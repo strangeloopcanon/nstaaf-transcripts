@@ -1,0 +1,223 @@
+# No Such Thing As A Fish - No Such Thing As An Innocent Pisces Sign
+
+- Episode date: April 26, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-an-innocent-pisces-sign
+- Slug: no-such-thing-as-an-innocent-pisces-sign
+
+## Transcript
+
+[00:00:02] Hello and welcome to a weekly podcast this week, coming to you live from Cardiff. My name is Dan Schreiber and I am sitting here with Anna Shenzky, Andrew Hunter Murray, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go, starting with James. Okay, my fact this week is that the oldest football cup competition in Spain is the Copper Del Rey. Each year, the winner gets the name engraved in the trophy in Comic Sans. The greatest font of them all.
+
+[00:01:01] So, I don't know if you know who invented Comic Sans, anyone? Vincent Conner. And he did an interview recently, and they asked him his favorite times that Comic Sans has been used. So he said that It was in the Copperdale Ray. It was in a photo album made by the Vatican. And in the presentation by CERN to announce the discovery of the Higgs boson. Yes. But it wasn't a Vatican. They didn't announce the new Pope in Comic Sans or anything.
+
+[00:01:30] No, they still did that with the smoke. The smoke. Yeah, yeah. If you could do the smoke in comic sense. It was a lovely photo album that they gave to the Pope. So it was the Vatican's present to him. And it was all the captions were in. It's the best.
+
+[00:01:44] best way to caption a book, Comic Sans. There's no question. You know, he's only ever used once, he says Vincent Conner. He said he's used comic sounds once in his life. It was when I was having trouble changing my broad ban to Sky, so I wrote the lettering comic sounds complaining, saying how disappointed I was, he got £10 refund. So it was useful. He's very, he's very bullish about it. Like he's done talks, like a TED talk or something saying, my name is Vincent Conner, and I've invented the best font in the world. And he's, he's, quite, you know, if people don't like it, he pushes back. So he said, if you love Comic Sans, then you don't know anything about typography. But if you hate Comic Sans, then you don't know
+
+[00:02:24] anything about typography either. Okay. So where should you stand? Ambivalence. I think so, yeah. And he also, he has a thing where he loves the hatred for Comic Sans as well. He really thrives off it and he collects examples of people's furies. So he was doing an interview again and he said, interesting fact, the main designer at Twitter tweeted that the most service space is used by complaints, first about airlines, second, comic sands, third, Justin Bieber. And then he says, so not even the Bieber can beat Comic Sands. But he's said it's like Bieber. He has said it's the Justin Bieber of fonts because lots of people love him, but a lot of people wouldn't say it's the best music. Yeah, that's fair enough. That's an uncontroversial opinion here in Cardiff anyway.
+
+[00:03:10] he said that he once went to the design museum in London and had to have a bodyguard did he help well he said that maybe he was joking but um just an interesting fact his boss at Microsoft when he did that was Rob Norton who was the son of Mary Norton who wrote the borrowers just a fact and also after he did
+
+[00:03:33] Comic Sans he designed the Ministry of Sound logo just a few bits of trivia there's this thing about Comic Sounds that gets claimed which is that the reason it's used in schools and teachers like it is because it makes children read better and it's very good for dyslexic children partly because the writing is very slightly unclear so it takes you longer to read it
+
+[00:03:51] and the theory is that that makes you remember it better but that's been shown to be bullocks. So teachers don't write in. There is a font called Sands Fogetica and that was developed last year which tries to achieve what people claim comic Sands does and so that's a typeface. look at it's quite cool that's quite difficult to read because it's got lots of gaps in the letters
+
+[00:04:13] and it just means you it takes a bit more concentration to read it but it is true that your attention of whatever's written there if it's in sans fagetica is much better so is it that if you have something important you should write it in sans fagetica yes because it feels like quite a risky if you're writing something important is something that people have to read like an emergency sign or an exit sign and you're saying you should write it with bits missing so people really focus on it If it's something you have to remember in future, if it's something you need to know now, then maybe just write it in time to New Roman.
+
+[00:04:45] There's this thing, just on that, about how you read. So when you read, I didn't know this, you're jumping all the time between the words and you're... Well, yeah. Otherwise, when you read a story, you just go, once, once, once, once, once, once, once. Make the leap, James, make it. Once upon, once upon, once upon. Okay, okay.
+
+[00:05:08] No, I walked into that and that's fair. So you're doing these things called, I think it's saccades or saccats and fixations, which is jumps and pauses. And if you're reading fluently, what turns out, you don't really look at the whole word when you read it. You look slightly to the left of the middle of the word you're reading. And you then sort of, you see the immediate letters around it. And then you kind of guess the other letters as you jump from one thing to another.
+
+[00:05:32] That's so true. That is happening right now. This is live reading. Welcome. Wow. Yeah. So in the, in 208, John McCain, when he was running for president,
+
+[00:05:46] he chose Optima as his font for his signs because it was the same typeface used on the Vietnam Veterans Memorial. Oh. That was his idea. Obama used Gotham, which has been described as friendly without being folksy, confident without being aloof. Wow.
+
+[00:06:02] That's quite similar to him, isn't it? Which is crazy because it's like a Gotham villain came into power right after. him with Trump's campaign fonts was called Accidens Grotesque. Honestly true. That's a designer having a laugh or something, isn't it? That's amazing. You know there are font detectives? No. Yeah. There are font detectives. Why? Well. Stop looking at us like we could possibly work out what that is. So... The font goes missing?
+
+[00:06:37] Yeah. That would be good. If Sands Fogetiga just completely disappeared. No, it's not quite that. It's people who determine whether documents are authentic by analyzing the fonts in them. So if the Dead Sea Scrolls are in comic stands, they're probably not. Exactly. So this guy, Thomas Finney, he writes all these stories about his cases and he writes them up like their Sherlock Holmes stories.
+
+[00:07:01] It's pretty cool. So, for example, in 1999, this lawyer got in touch with him because he was, looking at a will and who was trying to walk out, is this wheel real or has it been altered? And Finney discovered that the will was dated 1983, but it was printed by a high-res inkjet printer, which wasn't on the market until 1988. Right. Wow. So.
+
+[00:07:23] That's good. No, that's very good. That's cool. But that's more like a printer detective, isn't it? Yeah. Yeah. Yeah. It was an extremely poor example from a wide portfolio of his career.
+
+[00:07:34] On dead people in fonts, one of the things that the... campaign against Comic Sans hates the most. So this is a campaign that's set up by Holly and David Combs, or Coombs so I think we've mentioned before, but they say it just doesn't look great in a lot of places. For instance, says David Combs, a place where it doesn't look great, in my opinion,
+
+[00:07:52] is on a tombstone. And I have seen a number of those. So there are tombstones out there with Comic Sans. Yeah. There's actually a website you can go to called Comic Sans Criminal, where it sort of lists all of the most heinous crimes of Comic Sans, and it asks you, the reader, are you a criminal? And it shows you examples. Do you agree with this kind of thing? And there was a, the opening
+
+[00:08:12] hours for a sex offenders register office. Sorry, we're sex offenders register? Yeah. Really? Wow. Okay. And then, yeah, there was a defibrillator as well, which just looked really fun. There is a theory that this sort of, the whole reason that comics sounds became huge is that it was a font that was launched. It was designed for this product called Microsoft Bob. which actually, it ended up not being included with it, but it did get included as a package in Windows 95, I think. And this was the first time that all of us could do typesetting.
+
+[00:08:48] You know, before that, you needed to go to a designer. And people have described this as a massive shift in power, you know, democratisation of typesetting. It's basically like, what's his name, Gutenberg? It's like the second print revolution. What you're saying is basically when you give people democratic choice, they end up doing something stupid. Well,
+
+[00:09:11] you wouldn't have said that at our sundal and gig, would you? We're going to have to move on to our next fact soon. Got a couple of things about just other weird trophy decisions. There's a NASCAR Sprint Cup race that's in Mardonsville, and their trophy that they give out is a grandfather clock. It's just a giant. grandfather clock that's what you win um and that started in 1964 it was it was given as a prize everyone loved it so much and it's a big thing it's a big thing to get a grandfather clock until you get too
+
+[00:09:52] many there was a guy called dale erinhart junior who took home six didn't really just kept winning and it got to the point where it's like do you do do i just throw this one wow how are you lifting that up well you can't at the podium yeah it's a bit it's a bit full-on wow i like um you know there's a trophy that's given out uh ask at ladies's day to the owner of the winning racehorse, which is, it's like the main event, really, Alaska, isn't it? And the trophy is presented by the queen, but that causes a problem when she wins it.
+
+[00:10:24] So she has won it before, and Prince Andrew did step in to play the role of the queen, presenting it to the queen for that. But did he play, which queen did he play? Did he play the presenting queen? He played the one giving the trophy, and then she played the one, well, she was the one receiving the trophy.
+
+[00:10:41] Just on fonts, it's always good idea to choose the right fonts because there's a company called Belchique and they had a bag that said, my favorite color is glitter, but they chose the wrong font and it looked like my favorite color is Hitler. Oh. That was a couple of years ago. And then last Christmas, Iceland chose the wrong font
+
+[00:11:03] and appeared to be selling minge pies. Okay, it is time for. fact number two, and that is Andy. My fact is, the American product, Chock Full O'Nuts, contains no nuts. It's a coffee product that the firm used to sell nuts, and then they sold nuts and coffee, and then they stopped selling the nuts,
+
+[00:11:31] but they thought, well, the name is so good that we just have to keep the Chock Full O Nuts name. Actually, on the cans, sometimes, some of the cans, it says, 1920s, we sold nuts. 1930s we sold nuts and coffee now we don't sell nuts we just sell coffee but we like our name and it has a massive disclaimer
+
+[00:11:52] saying contains no nuts and yet every time the firm does any market research on why people might not buy it people always say there's probably nuts in it aren't there it's probably nuts it's a chock full of nuts but it's a New York product isn't it and it's if you said if there was a New Yorker near you and you said chock full or nuts
+
+[00:12:09] they would say yeah I know it has no nuts and it's a big thing. It was as soon as they started going out into other cities and countries that became a problem for them. So they actually existed fine without putting it on. Yeah.
+
+[00:12:20] They have a picture of the New York skyline as well on their packets, but they don't name it as the New York skyline and their head of marketing said that, it's nice, it worked perfectly for us because people in New York see the New York skyline and think, this is for me. And then outside in New York,
+
+[00:12:34] they have no idea what the New York skyline looks like. So they just think, yeah, fine. And he's run focus groups all around America saying, you know, would you object to something that said New York on it? And they all say yes. And then he says why. And they say, oh, I think it beats our sports teams.
+
+[00:12:47] And that's it. That's the reason they won't eat nuts. There aren't any nuts in it. You've fallen right into the chain. Have we said what it is? It's a coffee. So it started by a guy called William Black. He rented a little space under a staircase in New York.
+
+[00:13:04] But it was underneath a drugstore, and he wasn't allowed to sell anything that was sold in the drugstore. So he didn't know what to. sell but there was a theater opposite so he decided to sell nuts but then when the great depression struck according to the website nuts seemed too much of a luxury wow and so he had to find something else but he had a roasting machine for the nuts and so he decided to go down to the to the docks buy green coffee beans roast them himself and make coffee and sandwiches right and sandwiches yes and we actually we spoke a few weeks ago about how sandwiches that no human hand had touched were a selling point in those days
+
+[00:13:38] because it meant that it hadn't got any germs on it. And he used to sell as sandwiches, untouched by human hands. And even when they were making the sandwiches, they had to do it with tongs. So you had to spread the mayonnaise with one tongue and then put the ham on with another. And actually, they probably do that in cafes still.
+
+[00:13:52] I don't know anything about hygiene. As I said it, I thought that doesn't sound that mad. So just sort of product names, basically. This is a big thing, especially in America. So there's a cereal called Fruit Loops, but fruit is spelled F-R-O-O-T. And there's also Cap and Crunch with Crunchberries. And these have been the subjects of repeated lawsuits
+
+[00:14:15] from people who claim, I've been deceived. I thought this was full of fruit and really good for me. And the whole statements by judges saying things like, here's one from 2009. This court is not aware of, nor has plaintiff alleged the existence of, any actual fruit referred to as a crunchberry. Furthermore, the crunch marries
+
+[00:14:35] depicted on the box around crunchy, brightly colored cereal. balls so far as this court has been made aware there is no such fruit growing in the wild or occurring naturally in any part of the world. You've got to be so careful though because Red Bull got sued in 2014 for the fact that they don't actually give you wings. There was a proper, yeah, yeah, yeah. It was a mixture of a, that was one guy who was part of the court case who said, I didn't actually grow any wings. The rest said it claims that it gives you this great energy and it gives you these boots. And so they actually had to pay out a huge amount of money, including $10 to every US consumer who'd bought the drink since 2002 if they wrote in.
+
+[00:15:13] Really? Yeah. I remember there was once some sausages sold in Wales called dragon sausages that had to be taken off because they didn't contain any dragons. Is that true? That's true, yeah. It would be very disappointing for the Cardiff audience. I thought you'd been eating dragons all these years. There's a hair product in, I think in the US called Rogain.
+
+[00:15:33] and it was originally called Regain, and then the FDA, the Food and Drugs Administrator, nixed that because they said you can't call it regain because obviously it doesn't work because hair regrowth products don't work. So they have to change the vows. There was a tattoo artist in London whose salon was called Prick.
+
+[00:15:52] He was called Henry Haight, and he tried to stop a nearby cactus shop from using the same name. And this guy, Henry Haight, is kind of semi-famous because he did a lot of Amy Winehouse's tattoos. Okay. And he thought that this person with the cactus shop
+
+[00:16:08] was kind of passing off with his edgy rock and roll name. But then it went to court and court judge Melissa Clark said, it is difficult to imagine two businesses with two less closely related activities. I think is fair? I can imagine two things less similar
+
+[00:16:24] than tattoos and cactuses. Like? Like a waffle maker and then a sort of like a Rolls-Royce engine firm. and if I had a bit longer I could have come up with something really, really different. I guess they're both round, don't they? So it doesn't really work.
+
+[00:16:42] Well, just on that very similar note, in 2018, rapper Dr. Dre lost a trademark case to another man called Dr. Dre, who has written books including 20 things you might not know about the vagina. And the judge in that case said that confusion was unlikely as Dr. Dre is not a medical.
+
+[00:17:02] doctor, nor is he qualified to provide any type of medical service. But they should get together because I would listen to a Dr. Dre rap about 20 things you might know about the vagina. To be honest, I think there's quite a lot of that in his rap. It's just on the famous names thing. They're in Australia at the moment. There's a pop-up burger place, which a lot of people trying to not shut down but get them to change their name. and they're called Pablo Escoburgers. And when you buy a burger from Pablo Escoburgers, you get a fake line of white powder.
+
+[00:17:39] It's like a garlic flour that's on top of the bun, and then there's a rolled up $100 note next to it. Presumably a fake $100 note. No, real? It's real. Yeah, yeah, fake. Definitely fake. The passing off thing is quite, like, it's really well established.
+
+[00:17:55] So, for example, we've mentioned on the podcast before, the first ever self-service supermarket, i.e. one way you get a basket and you go around or a trolley and you go around putting things in rather than going to a counter and handing over a list. The first ever of those in America was called pigly-wiggly. And that was a fun novelty name. But it was immediately followed by another firm setting up called hoggily-woggley. And then helpy selfie and then savey-wavy.
+
+[00:18:19] And these are all completely different firms. Do you know that the Food and Drugs Administration in America, when people are coming up with names for new drugs, they run it through a whole bunch of handwriting tests. So they get loads of people in to write the drugs in certain types of handwriting to make sure that they can never be mistaken in certain handwriting for other drugs. Oh, really?
+
+[00:18:39] That's really clever. That's clever. Very clever. The letter Z appears in 18, it appears 18 times as often in drug names as it does in other English words. Wow. Yeah.
+
+[00:18:49] Because it seems speedy and powerful and memorable because it's weird. So what's the drug? that's got Zed in it? Tamazepam. Tamazepan. Wow. You see?
+
+[00:18:59] Oh yeah. Well, that's not really how I feel when I take it. Have you guys heard of breakfast mates? No. This was a product. This is actually just more a disastrous product than a bad name.
+
+[00:19:10] So it was launched in 1998. It was Kellogg's breakfast mates and it was an all-in-one package with one serving of cereal, one tiny, tiny carton of milk and one plastic spoon. And it was designed for people who find normal cereal
+
+[00:19:23] just too inconvenient and too much of a hassle in the morning. That does sound quite good idea. Yeah, so you get on the train with your breakfast mates and you just pour out your cereal into the bowl. Anyway, basically they had neglected to realize that cereal is one of the most easy things to prepare. And there was testing which went on, and it showed that preparing cereal the traditional way
+
+[00:19:45] took one second longer than breakfast mates. It adds up. Okay, it is time for fact number three. And that is Chisinski. My fact this week is that the scientist Robert Hook recorded in his diary every time he had an orgasm. So this is... You might remember Robert Hook from school? You learn about Hook's law...
+
+[00:20:10] I didn't learn about this. Well, you actually do learn about Hook's Law of Elasticity, which is a veiled reference to this. He was a polymath. He was an unbelievably high achieving scientific. around at the same time as Newton, and he wrote extensive diaries where he recorded every detail of his life, including his orgasms. And he had a sign for when he had an orgasm, which was the sign of Pisces, which is kind of sort of like a backward sea, and then a sea back to back. And we actually are not 100% sure that it was all of them, but we kind of assume. People have
+
+[00:20:46] used this as a basis of what his sex drive was. Yeah. So, for instance, in one of his diaries, it says, played with Nell, Picey's sign, hurt small of back. That could have been twister, he was playing. Another one went late to bed, Picey's sign, in sleep, sweat much, and disturbed. And then another one that made Wormwood Wine, Pice's sign, Pice's sign. Whoa! O'oy, Robert. It's a good night.
+
+[00:21:20] Oh, he's just bragging. Oh my goodness. But yeah, he was into it. He had a weird sex life, actually, Hook. So he didn't really have relationships. It was kind of sad. He never had sex with someone who wasn't sort of financially dependent on him
+
+[00:21:35] or dependent for a home. So he used to have a lot of liaisons with servants and shagged them a lot, like Nell. And then he had this weird relationship with Grace, his niece, who was sent to live with him by his brother, who was sent to live with him when she was 10. But she pretty much turned 16.
+
+[00:21:50] And he was like, all right, you want to get him? off. You want a Pisces sign? You want a Pisces sign? He was incredible. I mean, he sort of, someone described him as Leonardo da Vinci, but without the paintings. Yeah. Which sounds pretty crap, doesn't it?
+
+[00:22:09] But it was, it sort of, he worked on all these different fields. Like he invented a microscope and he used that to draw incredibly tiny things, no one had seen before. Or he designed thermometers. Or he came up with telescopes. So he invented the word cell. Do you mean a tiny cell in a body? It's pretty cool.
+
+[00:22:27] He saw them, didn't he looked in his microscope at some cork and he saw these little, he named them after the cells that monks lived in. But he didn't know that what they did. He thought they was to send liquid around the body or something like that. So he didn't really know what they were, but he did give the name, which is quite good. He invented some flying machines in his diaries. He drew them. He invented the first pressure cooker.
+
+[00:22:47] Cool. That's very good stuff. He sort of claimed to have flown. He experimented with lots of fly machines on the grounds of Wadham College where he went to uni with his friends he built all these machines and then he did write in his diary in 1674
+
+[00:23:00] told Sir Robert Suther his friend told him I could fly but I didn't tell him how 10 cans of Red Bull he was a proper scientist and he did a lot of measurements and stuff like that and in those days it was long thought
+
+[00:23:17] that masturbation was extremely bad for you and so one reason that he always mentioned it in his diaries is because it was like an ongoing appraisal of his health. So he would be able to see how often it had happened and then he'd be able to see how he was feeling. Because he was a hypochondriac as well.
+
+[00:23:32] No, no, I'm just conducting an ongoing appraisal of my health. Sure. Mom! It's an experiment. When you say he's like Leonardo without the paintings, interestingly, we don't know what he looks like.
+
+[00:23:50] We have no idea. There were no surviving paintings of Robert Hook, and that is very surprising because he was such a prominent person. The Royal Society particularly loved him. Every, all the scientists, they didn't like him as a person, but they respected the hell out of what he did. His books were admired by peeps through to all the top scientists. And there is a rumor, and it's definitely a rumor, that the rivalry that happened between him and Isaac Newton was so great that when Isaac Newton became the president of the Royal Society,
+
+[00:24:20] and at this point Hooker died that he slashed all of the paintings of Robert Hook to say this was not someone we need to... I don't think it's a rumor. I think that's widely accepted to have happened, isn't it? I think that he probably did it. Yeah, we don't have evidence. I think there was one painting
+
+[00:24:35] and he and Newton hated each other. They had a massive rivalry. And Newton did erase him from scientific history for a long time. We all think Newton's the good guy. And then he became president of the Royal Society who happened to have this painting which has disappeared ever since.
+
+[00:24:49] He erased him, but all that survived were the orgasms. Poor guy. If you get a UV light in the Royal Society, you can see the evidence. It's all that's left of him. It's so sad. But yeah, he sort of preceded Newton
+
+[00:25:11] in his theory of, in a theory of gravity, which is a bit vaguer than Newton's, but he said that planets were attracted to each other, the sun and the planets were attracted to each other. He said gravity was a universal force, and Newton claimed credit. His diaries also chronicled his flatulence and it was always in conjunction with the barometric pressure of the area
+
+[00:25:29] because he thought that the two might be connected in some way So you thought if there's low pressure You know, it's like today there's a storm coming in Everyone would be farting a lot more That makes so much sense It does make sense Does it? Is it true? Yeah, it does because if it's low pressure
+
+[00:25:46] You would have thought that, you know, your gas goes from an area of high pressure to an area of low pressure out through your rectum I reckon it's true On the news going Well we've been getting a lot of reports of flagellins From the area of Cardiff Now it's over to Anna with the weather One long fart
+
+[00:26:05] Take your umbrella out today I mean he also wrote a lot about He was a hypochondriac He said that he suffered from giddiness In digestion, flatulents Blockages of the sinuses sore eyes, noises in the head, insomnia. And he took all these different medicines,
+
+[00:26:26] which he wrote all about as well. So he took steel, iron oxide, opium, amber, perjatives. And whenever his medicine gave him constipation, he said he was cheated of a shit. That's a great phrase. He was basically a drug addict, though, wasn't he? He was so ill. He took all the drugs.
+
+[00:26:45] And in those days, medical drugs were basically all the illegal drugs now, like opium and cannabis and laudanum and stuff. stuff like that. There's one other thing he took, because science was in its infancy, he believes a lot of rather dubious stuff. So he noted down that a thing called Sturkis Humannum was really good for removing films or mists from the eyes,
+
+[00:27:03] and Sturcus Humanum is dried and powdered human poo. Apparently you were meant to blow it into your eyes, and this would heal your eyes. Does it work? It doesn't work. Actually, I haven't even checked that, but I just think it's important to say. I think this is the moment that don't try this at home was invented for, is it?
+
+[00:27:26] On putting stuff in your eye, Samuel Pepys, probably the world's most famous diarist who is around at the same time and who, in fact, met Hook, he only wrote his diary for nine years. I had no idea. It's so weird because he's basically the main source for everything I've ever read about the 1600s. And he wrote his diary from 1660 to 1669
+
+[00:27:46] when he panicked that he was going blind because he'd been writing it too much, And he quit. And he never wrote another word because he said, I'm going blind. The good God prepare me for this awful affliction. I'm on my way out. And then he lived for the 34 years without going blind. Without going blind. Wow, that's amazing. He did write amazing. He was famous, I guess, for the sex stuff. Like, if you, there's any time you think of peeps, it was, he wrote very much about his sex life in it.
+
+[00:28:13] But here's an entry that I read. So I to bed and in the night was mightily troubled with a looseness. and feeling for a chamber pot there was none. I, having called the maid up out of her bed, she had forgot, I suppose, to put one there. So I was forced in this strange house to rise and shit in the chimney twice. And so to bed and was very well again. How I wish I had been cheated of a shit.
+
+[00:28:45] Wow. You know you prefaced that by saying he was into the sex stuff. Yeah. Okay. Revealed a bit too much from my diary there. Okay, we need to move to our final fact of the show, and that is my fact. My fact this week is that warty comb jellies
+
+[00:29:07] grow a brand new anus every time they need to defecate. How cool is that? So a wark comb jelly is like a jellyfish, but not. It's a different species, but they look very similar if you saw it in the ocean. and for a very long time, we assumed they had an anus, and it's only just recent. This is almost breaking news in science and very exciting news
+
+[00:29:29] because what they learn is that when it goes to the toilet, this was a guy called Sidney Tam, who was studying them very closely with microscopes. Every time they needed the toilet, basically the waist bit pushed towards the edge of their body on the inside, and this anus grew out of nowhere, and then soon as it was out, it closed up again, and then they are aniseless once again.
+
+[00:29:53] And because they poo once virtually every hour, they grow 24 anuses every day. It sounds like you're pitching to be the new David Attenborough. But this is very exciting in science because it's a transient anus. It's never before been seen in any of living species. that we have. Well, there are a few transient anus.
+
+[00:30:20] It's only one of a handful of... This is the first scientific observation of one, though, which is pretty cool. Yeah, yeah. We know of a few, because we have mentioned one on the podcast, actually. There's a jawworm who has a transient anus called haplognathia. And there's also a microscopic creature called Limnognafia, which lives in a hot springs on disco island in Greenland. Cool.
+
+[00:30:45] Transient anus on disco island. Nice. The researcher who found this is really cool. He works at a lab called Woods Hole, which is interesting. And he watched individual warty comb jellies for hours, and he marked the times of their defecations. And then when the time was exactly right for the next one, he zoomed in with a microscope,
+
+[00:31:06] and he found that he saw the wormhole opening, basically. Wormhole. Well, it is kind of like a wormhole. It's like a stargate. They call it the Ring of Fusion, don't they? That's the process behind it when the canal, and basically the way they think it happens is that basically it's all fused up
+
+[00:31:25] and then your anal canal swells and swells and presses against your skin tissue and eventually it creates a little orifice that dilates and then it sucks itself back in again. It's incredible. Dan said that it's a bit like a jellyfish. It certainly looks like a jellyfish, but it's not related to a jellyfish in any way, really. It is less related to a jellyfish than we are to a worm. And that's because about 550 million years ago,
+
+[00:31:51] the types of animals in the world were worms, sponges, jellyfish, and comb jellies, which is this type of jelly. And worms kind of turned into all the different animals and mammals and birds and lizards and everything. And the jellyfish and the comb jellies had already split off way before that. It's as different from a jelly as a tattoo parlour is from a cactus emporium. They are amazing comb jellies. And you should look them up because they're also kind of beautiful. But the way they move is they have cilia.
+
+[00:32:21] So you may remember cilia from school as well. Those tiny hairs we have on our nose and our lungs. And they use cilia, these little hairs, as oars to propel them along. And they're the biggest things that use them for movement. They run in combs in eight rows on their body. And yeah, they're the largest animals to do it. And the main jelly is almost six feet wide. so some of them can get quite big
+
+[00:32:47] but mostly they're like under 16 inches quite small. The eating method is very cool I think it's not exactly those ones but there are things called beroid comb jellies because there are whole family there are different members of the family and beroid comb jellies they eat their food before they kill it so they're just basically a bag floating in the ocean
+
+[00:33:06] and if they spot some prey which is normally another jelly they just swallow it hot they just open the mouth of the bag swallow their prey and then they just keep their mouth shut for as long as they can while they're pulling their prey apart on the inside. They actually have mouths that reseal that basically disappear like zippers. Really?
+
+[00:33:26] It's like a zip, yeah. So they open their mouths, which their mouths are about half of their body. So it's like a plastic bag opening and they engulf this other jelly, often bigger than they are. And then they zip it shut and they properly fuse their mouths back together again until they're ready to eat. Wow. It's amazing. But these particular jellies that we are talking about, the ones with the Transcontainous,
+
+[00:33:49] they're called Nemiopsis Lady, and they are also known as Sea Walnuts and a few other things. Now, these guys, they eat by, again, opening their mouth, but then when they open it, it creates almost like a current. You know those rides when you're on like a donut and you're going really slowly down there? So they start that kind of current, but it's so, so slow that the things that get caught in this current
+
+[00:34:12] don't even realize there's a current. And they're just suddenly, slowly, slowly float into this place. And before they know it, they're eaten, almost like a conveyor belt that the food just comes in them and comes in them. And they can eat an unbelievable amount of stuff. They can eat 10 times their body weight in a day. And so they end up basically taking over lakes. So there was some taken to the Black Sea by accident in some bilge water. And in less than a decade, the population in the Black Sea had got a biomass of 1 billion tons,
+
+[00:34:41] which was 10 times the weight of all the fish that were caught in the world that year. Whoa. It's incredible. It's unbelievable. And weirdly we don't know a huge amount about them. And really, we thought there were far fewer species than there are until recently. And that's partly because they're really hard to study
+
+[00:34:59] because the moment you attempt to pick them up, they fall apart. So there's, and genuinely, they sort of melt in your hands. So I think there was a spotted comb jelly displayed in California's Monterey Bay Aquarium, and it was like literally water currents in the aquarium would just tear it into, so it's very difficult to collect. And this is actually, I was reading a piece about this Monterey Bay Aquarium and the jellies that they collected, and the main marine biologist there was talking about them. And he was also saying that they shimmer.
+
+[00:35:32] So when they have a light shone on them, then their little cilia break up the wavelengths of light, and they reflect them, so they're sort of all rainbow colors. and that actually wouldn't happen in the wild but it does when we shine a light on them but the marine biologist at the aquarium who talked about that is called Steve Haddock Ah nice So lots of primitive life forms
+
+[00:35:53] have only one hole in their bodies and they have to eat through that and excrete through that and the reason that we are better than them and I'm just going to say it I think we are better than them I'm sorry I'm an egalitarian but I do think we've got them beat all right So the reason that you need it is because if you have a through gut, which is what we've got,
+
+[00:36:13] if you don't have that, then you can't eat anything until you've excreted your previous meal. So it's a very inefficient system. So basically you can't have your lunch until you've pooed out your breakfast. Exactly. Exactly. Yes, I told you we were better than them. Just on sort of being able to regrow body parts, you know that we can regrow stuff, humans. we can we grow fingertips.
+
+[00:36:38] And especially children can regrow huge chunks of their fingers. So children up to the age of 10 can... So it's not an advert for cutting off the fingertips of children. It's not don't try this at home thing, is it? Well, you know, if they've broken
+
+[00:36:53] the TV curfew, what else can you do? I suppose if you cut the fingertips off, they won't be able to use the remote control. Can't use the remote, exactly. And if you cut off the fingertips or if the fingertips of children under 10 fall off, then... As is very likely to happen with children. As they do, it's a defence in court.
+
+[00:37:16] And you don't sew them up. So what doctors tend to do is seal them up with flaps of skin. So you've just got a shorter finger at that point. But if you don't do that, then they'll tend to grow back. And interestingly, they grow back, but they don't have a fingerprint, oddly. And also, the way they grow back, if there was any nail left at all, a tiny bit of nail, it will grow back, but it will grow back square rather than, oh, which is how our nails grow.
+
+[00:37:38] So it grows back fully square. Oh, I have that. I have a slightly square fingertip, and that's because my finger got shut in the door when I was a baby. Oh, you didn't break the TV curfew? I didn't break the TV curfew. I made sure to bring in all the tellies from the garden
+
+[00:37:52] right on time. We're going to have to wrap up very soon. Oh, just one more thing. I'm afraid this is about the word. It's about the word in the fact. So there are old, there are old books. There are book scanners which are designed to digitise very elderly books, books from the 19th, 18th century, that kind of thing, which no one's read, and convert them into e-books so they can be read.
+
+[00:38:14] Unfortunately, there are some book scanners which cannot tell the difference between the word arms and the word anus. It literally can't tell its ass from its elbow. Isn't that pleasing? So this does make a number of old books quite exciting. So, for example, Bertie, dear Bertie, will you not say good night to me? pleaded the sweet voice of Minnie Hamilton as she wound her anus affectionately around her brother's neck.
+
+[00:38:44] When she spotted me, she flung her anus high in the air. Oh boy, she said. She grabbed my anus and positioned my body in the direction of the East Gallery and we started walking. I'm reading the book of Farewell to Anus online, actually, and I really enjoyed it.
+
+[00:39:04] Written by a comb jelly. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter account. I'm on at Shreiberland, Andy.
+
+[00:39:20] At Andrew Hunter M. James. James Harkin. And Chazinski. You can email podcast at QI.com. Yep. Or you can go to our group account, which is at No Such Thing or our website. No Such Thing as a Fish.com.
+
+[00:39:30] We've got all of our previous episodes up there. Links to our upcoming tour. Thank you so much. We'll see you again. Goodbye. Thank you.

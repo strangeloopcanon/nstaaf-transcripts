@@ -1,0 +1,191 @@
+# No Such Thing As A Fish - 221: No Such Thing As A Fully Carpeted Country
+
+- Episode date: June 14, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/221-no-such-thing-as-a-fully-carpeted-country
+- Slug: 221-no-such-thing-as-a-fully-carpeted-country
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I'm sitting here with Anna Chazinski, Andrew Hunter Murray, James Harkin and special guest Alan Davies and once again we've gathered round the microphone with our four favourite facts this time about the World Cup and in no particular order here we go. Starting with you, Alan. Austria qualified for the 1938 World Cup but then had to withdraw because it stopped existing
+
+[00:00:45] as a country. It's a good excuse. The best. A good excuse. I know what's the 30s, there was a lot of that kind of philosophy. They've had an existential crisis in the camp. They're not sure they exist and on that basis they've withdrawn. Also they have been annexed by Germany.
+
+[00:01:05] Tiny thing, tiny thing, the Anschluss, not a big deal guys but we won't be there. Yeah, so that's Germany claimed Austria, right? Yeah, but they had to qualify. You had to qualify in that year in 1938 while a lot of teams entered. So they've gone to a lot of trouble only to be annexed in the preamble to the tournament. And they were very good weren't they, in that they were then sort of the German team and the Austrian team then came together so they still eventually played a lot of the players. Some of the players, some of the players went a bit more van trap about it.
+
+[00:01:36] Did they? I just would not have it. Oh really? Yeah. And actually the players who played didn't get on with the Germans and they all fell out and they ended up losing quite early, didn't they? Did they? Yes, yeah.
+
+[00:01:48] Did that happen to the trophy during the Second World War? No. Probably melted down I presume. It was under someone's bed, was it? Yeah, it was in a shoebox under an Italian official's bed. Really? Yeah, because I think it did Italy win, it was 1938 when it happened elsewhere, didn't it happen in France?
+
+[00:02:03] Yeah. So France took it after Austria stopped being a thing. Yeah. And then I think Italy won and so an Italian official just looked after it. Italy won in 34 and the suspicion was that Mussolini chose all the referees for their matches. And in 34 Austria came forth behind Germany, so presumably they hoped the combined might of Austria and Germany at Uruguay who had staged a tournament in 1930 and won it, then sulked and didn't come.
+
+[00:02:31] Yeah. Because none of the European teams went to Uruguay, only four of them turned up. It's such a strop, it's so immature. You didn't come to my party, I'm not going to your party. And when they did come back they won it again. Do you know what happened when Austria did drop out in 1938? No. So obviously that left a gap and the runners up were Latvia who should have replaced Austria
+
+[00:02:52] then in the tournament. And the FIFA were just like, no, we'll just do without, it's fine. And they just gave Sweden a buy through the rounds. Instead of letting Latvia play at all, they just decided not to do it. I'm beginning to think that these FIFA guys are not completely fair and honest. I'm sorry. Did they not offer for England to take part? Oh, maybe they did.
+
+[00:03:13] Yes, England refused. England refused on the grounds that the Home International Tournament between England, Scotland, Wales and Northern Ireland was of a higher standard and a more significant event. Not even making that up. Amazing. We have our own international tournament. This wouldn't even go. It takes place entirely within our nation.
+
+[00:03:33] On our little island where everything's better. This Austrian team, they were so good, they were kind of beating everyone at the time. They came over to England and lost, but they were beating everyone else by quite a lot. And they had a new system that no one else used, and it was a 2-3-5 system. So two defenders, three in midfield and five strikers. Which has long been claimed to have been invented by Herbert Chapman at Arsenal. Is that right? England didn't go into the World Cup.
+
+[00:03:59] Arsenal played Italy at Highbury. I say Arsenal, it was England, but they had seven Arsenal players in. And won the game 3-2. Would you say that the current England team is basically Tottenham? Basically, yeah. So we're doomed. They won the game 3-2, it became known as the Battle of Highbury. Oh, really?
+
+[00:04:18] And it was decided by Arsenal supporters at the time that they thought they were officially the world champions. They had been beating Italy on it. Oh, wow. And that was with a 5-3-2? Yeah, it was a revolutionary system. Has any team ever played? All up front. Like 10-1-10.
+
+[00:04:34] Nothing, nothing. It's worth a try, right? So 1938 FIFA World Cup, the draw was selected by Jules Rimmett, who is the founder of the World Cup. Jules Rimmett? Jules Rimmett? It's actually interesting fact, it's Rimmett. Yeah, you Rimmett. Rimmett got his grandson to do the draw from a bowl.
+
+[00:05:01] It was his grandson on top of a table, picked them out, and that's how the 1930s were. Now, the draw nowadays can be seen from space, and more technology is used in it than was used on the Apollo moon landing. Oh, come on. Is that later? There's just two things you say about almost every single fact we ever have, and it's bigger than a blue one. It does sound like a QI screech. They did reveal the logo, though, for this World Cup up in the International Space Station. So it was the Russian cosmonauts who...
+
+[00:05:29] And this year's match ball has been to space. So it just came back down, in fact. It was made in Pakistan, sent up to the ISS. So no one kicked it up, did they? No, sorry. They kicked it while it was up. Right. Did they hoof it into the rocket as the rocket was just leaving? They did, yeah. Only Beckham could do this.
+
+[00:05:48] I want to check something with you. So you've said the match ball, now, that to me gives the impression there's only one ball for the whole World Cup. And I know that can't be true, obviously. I think this is the main... What would you call it? The signature ball, right? Yeah, the one they'll probably use in the first game in the final, I guess. But they'll have lots of balls in every game. That's a good call, though. They'd probably be like, We really need to wrap up these penalties with England and Brazil, the Italian-German matches that happen now.
+
+[00:06:15] I've got a fact about the 1930 World Cup, which is... The original, and the best. The original, yeah. You're a quiet and say that, don't they? So it was in Uruguay, and it was not a very advanced World Cup. So, for example, there was a match between Brazil and Bolivia where everyone was wearing white. It was obviously very confusing. Were they just cricketers who got on the wrong pitch?
+
+[00:06:37] But there was one way of telling, which is that half the Bolivians were wearing berets as well. If you kicked into a guy wearing a beret, there was a one and two chance he was on your team. That's really good. No, if you kicked into a guy wearing a beret, there was a 100% chance he was on your team if you were Bolivian. It's just that it was one in three chance, I guess, if you kicked into a guy without wearing a beret. This is a sort of pedantry I came in for. So I knew this went on. Tell you what, a privilege is to be in the inner sanctum.
+
+[00:07:08] Do actually say things like that to each other. No, you're right. They're going to get home and go, they do it, they actually pulled him up on it. We were talking about England in the World Cup and British teams in the World Cup have a good history. So Scotland basically got in, but didn't quite in 1950. So 1950, it was so weird. FIFA really wanted British teams to be playing in the World Cup because they were still being really snooty with this whole Britain's better thing. And so they said that if they played their home championship, the winner and the runner-up could play in the World Cup would both qualify.
+
+[00:07:45] And Scotland said, that's insulting. If we win, we'll play in it. If we runner-up, we refuse. And so they played their games and they both smashed Wales and Northern Ireland. And then England beat Scotland and Scotland ran back to FIFA and said, please, we didn't mean it. And FIFA didn't. They were like, I'm really sorry, you gave us your word. You said it was only if you won it. You're out. And that was the end of Scotland in the World Cup. Have they never won it since then?
+
+[00:08:12] They've never won it. You can't win it if you don't qualify, is he? Right, got it. They used to qualify. I mean, in my school days, it was always Scotland in and not England in the 70s. They used to be on a level pegging actually, didn't they? Yeah, England had a policy of refusing to pick their best players on the grounds that they had long hair. And I'm not even making the point.
+
+[00:08:31] So people like Stan Bowles and Rodney Marsh, who had long hair, and Frank Worthington, who were all the most skillful players in the First Division, because they didn't have a short back and sides and played cards. They would pick people who looked like they were in the Army, because most of the managers had been. They also would not pick maverick managers who were clever and inventive. Like Gareth Southgate. He's in the tradition of the English manager. Looks good in a blazer. I've never seen Andy look so confused at all the references he made.
+
+[00:09:02] I don't know what's going on, because we all said that. Good news though, Andy, you've got quite short hair. Oh, great. Well, I'll make it in, right? In the 70s, everything changed in the fashion front, so people started growing their hair long. And England failed to qualify in 1974 and 1978. And I'm convinced it's because all the best players had long hair and the older men were offended. And then, in the World Cup in 1978, the leading scorer had really a lot of hair. And I think he had his ear pierced.
+
+[00:09:29] And his name was Mario. And he gave the lie. And his partner in crime, his fellow centre forward, had a headband. I mean, that absolutely gave the lie to Shortback and Sy's being essential for winning football matches. OK, that's our excuse. That's our excuse in the 70s. What about the 80s and 90s? We even had people with mullets.
+
+[00:09:51] And we got to the semi-final. That's true. In fact, it was one of the mullets. Chris Waddley blasted his penalty over the bar. I'm just thinking about the current squad. There's not much long hair there, is there? No, times have changed. What matters now are tattoos. How many arm sleeves have you got and how many pierced things? Do they want more or less?
+
+[00:10:09] Yeah, more. I mean, Lionel Messi, who's the best player that's ever played football, has had one of his legs from the knee down entirely blacked out. Wow! So they can't see it on the field? In night matches, it just looks like there's a floating boot going around with him. See if he's not good enough as it is. This boot is now detached from his body. Doesn't Messi have really dodgy legs or something?
+
+[00:10:35] Like he had polio or something as a child. Really? And he took tons of drugs. He had to have lots and lots of hormones for growth. And some people think that's a little bit naughty. Well, I'm not sure about that. When he came from Argentina when he was about 11 or 12, there was this kind of mercurial prodigy, and he went to Barcelona and they said he's brilliant, at least he's small.
+
+[00:10:58] And then one of the coaches saw him and said, now he really is brilliant, what are we going to do about him? And they did, they had him on growth hormones until he was about 13. But he's still only five foot seven. Yeah, it's not working that well. You don't know who he is, he's not like Michael Jordan. You actually think he's that small because half his legs are blacked out. Yeah, you can't see his legs and that's one of the major advantage.
+
+[00:11:18] OK, it is time for fact number two, and that is Chizinski. My fact is that this year Argentina's Football Association gave its players a World Cup manual with a chapter on how to pick up Russian women. So this is a, it was a booklet that was given out to journalists and to players and to coaches in Argentina. And it was like a course about how to adapt to Russian culture. And there was an entire chapter that was titled How to Stand a Chance with a Russian Girl.
+
+[00:11:48] And it included advice like make sure you're clean, smell good and dress well. Because apparently Argentinian men love like filthy smelling women. Can I just say as someone married to a Russian, I'm not sure they're bothered about cleanliness. Well, we haven't had six before yet. Well, are they bothered about this, James? The booklet also said, Russian girls hate boring men. Never ask trite questions, be original.
+
+[00:12:14] I can't read if my wife actually is Russian. It also said that they don't like to be seen as objects, which is singular to Russian women, but it apparently is true of them. But yeah, this was in the booklet. And then apparently Argentina got word of it from some of the journalists and went and ripped all the pages out of this booklet and said, oh, God, that wasn't meant to be in there. Sorry, it was a mistake, mistakenly included.
+
+[00:12:36] And it's no longer there. I found a bit of, so there's a problem that Moscow's parliament had been telling people to be smart for the World Cup. And this is Travelers, I think. I think it's fans arriving and there are on-the-spot finds in Moscow if you don't adhere to these rules. And it's 500 rubles, which is the maximum, which is about six quid. Yeah, it's not much.
+
+[00:12:54] So you can actually... Oh, that's great. Yeah, no jeans, no trainers. Yeah, it's like a nightclub. It's like a big nightclub. Your name's not down. You're not coming in. That definitely is one.
+
+[00:13:06] They've had that down for years. If your name's not down, you're not getting out. But it's with visas this time. Obviously, when you go into a country like Russia, you need a visa, but fans won't need a visa. They have a fan visa, which is automatically given to them if they can show they have a ticket. That's quite cool.
+
+[00:13:24] You don't have to prove interest or knowledge in football. Just need a ticket. Yeah, just need a ticket. But, Andy, you wouldn't enjoy it. There's no point in them playing. I don't have a ticket either. The amount of information you have to give on the official ticket website to get a ticket.
+
+[00:13:36] Oh, really? Yeah, it makes Mark Zuckerberg with absolute weight. And you virtually have to give your parents details. What are all sorts of stuff? Oh, everyone's certainly a passable information. Yeah, probably every country you've been to. Everything. Who you vote for on Love Island.
+
+[00:13:54] Andy, we've suddenly hit an interest point for you here at the podcast. We're not here to discuss that. People aren't tense about this one, right? About this Love Island? I know I am. Kendall was robbed. I saw Kendall this morning in the flesh.
+
+[00:14:11] Did she? At the this morning studios. She is very, very small. And one of her legs is completely invisible. Never been seen in the same room as Leonor Messi. Fascinating that she could go out just before on the dawn of the tournament. The greatest conspiracy theory yet heard on their show.
+
+[00:14:32] Kendall Messi. That's a claim. No, the head of football policing in the UK has warned the Brits basically not to be too aggro. Haven't they in Russia? So they said, don't wave St. George's flags around. Don't drink lager and six holes. Don't drink lager and six holes.
+
+[00:14:50] There's a security expert. A man who calls himself a security expert. He's a director of the University of Buckingham Centre for Security Intelligence. He's called Anthony Glees. But he did an interview with the Express. So I wonder how reliable he is. He warned.
+
+[00:15:04] Well, after he's been through the prism of the Express. Anything could happen. When did he say the world's going to end up? And where is Princess Duncan? He seriously said that English footballers need to look out for Russian women who are actually spies disguised as women trying to seduce them.
+
+[00:15:25] Because he said, if there's one way to scupper England's chances even more, it'll be through honey traps by leading the players on Russian girls. I heard the English team are going for a 10-0-0 formation this World Cup. That's a good point. I don't know how you jeopardise it.
+
+[00:15:39] Maybe you give them an STD or something. Oh, cripple zone for them. Yeah. Well, apparently Paraguayan prostitutes tried to seduce Venezuelan players in the qualifiers of this World Cup. And to what? Well, it was weird because actually neither team
+
+[00:15:54] could qualify at that point. But apparently a load of prostitutes made it to their hotel lobby and they claimed that they were trying to seduce them. But to tie them out before the big match? I suppose that might happen. Because it sounds like they were just prostitutes doing their job and these were just men
+
+[00:16:13] who wanted to show prostitutes. It does sound like that. This is in a way a trip that all the Paraguayan squad were available for. Who wants to go to Venezuela for the dead rubber? Me! Me! Me! The dead rubber, is that a prostitution phrase? Or is it a...
+
+[00:16:27] It may also be, but in this context... That's what gets thrown out the window. But isn't it true then? But actually people think that you shouldn't have sex before football matches, right? Well, I've heard, not footballers. Footballers don't think that. No, but sometimes managers do.
+
+[00:16:44] People in charge of them think they're charge of that. I've heard it doesn't really affect your performance, actually. No, I don't think so. There is a football health coach called Nick Little-Hales, who's Cristiano Ronaldo's sleep coach, as well as a bunch of other people's sleep coach. Sorry, Cristiano Ronaldo's sleep coach. You've got to sleep!
+
+[00:17:05] It was not a tactic that worked. But he says it's crap that athletes shouldn't have sex before big games. But he just says they do need to sleep solo. So what he says is, I guess, they should have sex, but then their partners need to get up and go and sleep in a separate room, like in kind of Tudor times. That's the idea.
+
+[00:17:23] And he introduced sleeping pods. So Cristiano Ronaldo at Real Madrid at the moment, isn't he? Real Madrid has sleeping pods, and every player has their own sleeping pods. I imagine them all in orbit somehow. Yeah, they're on the... It's been brought in back into the atmosphere for the match. Yeah, for each match.
+
+[00:17:40] And then launched back into orbit. Yeah, that big dry ice. Then they get woken up. Where am I? What do you have said? We've woken up too early! Let's wake up Jennifer Lawrence! She's not here!
+
+[00:17:57] Well, that Paraguayan prostitutes will do. Wear the Paraguayan prostitute pods! OK, it's time for fact number three, and that is James. My fact this week is that scientists have invented anti-diving shin pads. Wow. Do these sense psychologically that you're about to dive, and they hold your body up on the pitch. In midair.
+
+[00:18:30] And they're broadcast saying, I'm fine, it didn't touch me. Well, what it is? I mean, they're completely useless. They're just stupid, but they do exist. There's a sensor in your boot, there's a sensor in the shin pad, and when they touch each other, the referee has an alarm which will go off so he knows that there's been contact.
+
+[00:18:49] Unfortunately, the problem is that you can foul someone by pushing them in the back or whatever, so it's completely pointless. So they need to invent anti-diving body suits. Yeah, it's like the same technology as you have in fencing, I guess, when you know that someone's been hit in fencing. There's a new version which makes your shin pads light up when you get kicked. Kids would love light up shin pads. But they'd be constantly kicking each other.
+
+[00:19:12] Just for them to light up. Kick me, kick me. Kick yourself on the shin pad. Penalty! We almost brought this in for the Kenefa World Cup, which has just happened, which is the World Cup for countries that aren't really countries, which is sponsored by Paddy Power, and Paddy Power wanted to bring in some weird-ass rules
+
+[00:19:28] that were different than normal rules, and they brought in one thing, which was a green card, which means if you get sent off for abusing the referee... You can work in America. It's very tempting. Even now, the current state of the United States. North Koreans offending for reason. A lot of Mexicans.
+
+[00:19:50] What happens if you get sent off? For the green card, you get sent off, but they're allowed to bring on a substitute. So they don't punish the team, they punish the player. So they did that in this World Cup. You actually went, didn't you, to the Kenefa? To the final and to one of the other games, yeah. Who did you see playing?
+
+[00:20:07] I saw Northern Cyprus against Abkhazia in the first game, and then Northern Cyprus against... Who was it? Kapitalia. I can't believe Abkhazia lost to Northern Cyprus. I know, because I was supporting Abkhazia, actually, so I was quite disappointed. Where's Abkhazia?
+
+[00:20:24] It's a breakaway area of Georgia. Does it finish at the same time as the World Cup? No, it finished. I went to the final last weekend, and then it was won by Kapitalia, which is a part of Ukraine where Hungarians live. Okay. Oh, it's not a carpet warehouse.
+
+[00:20:39] Because it really sounds like one. Yeah. Run by Italians. I'd like to see their television ads. Thought of ones where the owner does it himself. It's a great... Kapitalia. Soon we will be our own country.
+
+[00:20:58] Fully carpeted. The only carpeted nation on Earth. Build a wall, and another wall. I'd be wall-to-wall carpeted. So, on weird football rules, I was looking into, do you know the referee can send himself off? Do you know that?
+
+[00:21:17] If he needs a wee. Give himself a card. He doesn't card himself a yellow card. That can't happen, can it? It can happen. It has happened. Not in big football games, but, for instance, in 2005,
+
+[00:21:31] Peterborough North End was playing Royal Mail AYL. This was a lower leagues match. And the referee, Andy Wayne, got really angry. So, someone disagreed with his decision. A player disagreed with his decision. And he flung away his whistle, and he untucked his shirt. And he ran up and eyeballed the player. And then, immediately, he saw the error of his ways,
+
+[00:21:53] and he gave himself a red card and sent himself off. Wow. And there was no one to replace him, so the match had to be called up. Oh. And then he waited in the car park for him. Wow. But they can also send off Linesman, which I didn't know.
+
+[00:22:07] So, this has sometimes happened. They've got so much power. Yeah. They've got more power than they should have. So, last year, there was Dundee beat Karl Marnock. So, this was an actual match with teams that, well, it's in Scotland. It's in Scotland, but it's still real football.
+
+[00:22:22] As are many of your listeners. Oh, my God. So naive. When I tour Scotland, of course, they're the best shows I have. Are they? Better than Wales, Alan. Don't say that. On a minefield.
+
+[00:22:42] So, in Scotland, whom we love, all of you, in this match, the ref sent off the assistant referee and gave him a red card because he was vomiting by the side of the pitch. Wow. Started vomiting, sent him off. That is a bit harsh. Yeah, I think it seems unfair.
+
+[00:22:58] You can't be sent off for vomiting. Who was it who vomited before a penalty in the World Cup? Was it Dan? Yeah. Who was it? That was in the Euros. That was against England. It depends on whether it's deliberate
+
+[00:23:07] and malicious vomiting. If you don't, if you do it in the face of the goalkeeper just before a penalty. He just did it on the pitch. He put his hands on his knees. How was that that much? He put his hands on his knees. We thought, oh, what's he doing?
+
+[00:23:17] Wow. And then he suddenly looked up, ran up, smashed it in the net. And on the television replay, you can see, when he had his hands on his knees, he was vomiting on the pitch. Oh, my God. But Gary Linnick has said he once did a poo on the pitch.
+
+[00:23:27] Oh, yeah. I thought it was video of this. There must be. There are so many cameras in the ground. There must be a poo cam. There's video of him kind of dragging his bum on the grass. Like a dirty dog. Like a staffage of alteria.
+
+[00:23:39] And then people tweet him all the time just saying, just reminding him. You pooed. You pooed at the pitch. Yeah. But he never got a yellow card in his whole career. He probably scored a goal as well. No, he never did.
+
+[00:23:51] Can I interrupt with just a tiny bit of personal news? We're recording this on Anna's computer and there's an alarm that's come up that is to tell her, that she needs to get Lou Roll and Olive Oil in 25 minutes. Well, the thing is, Anna always shits herself in the middle of a podcast. Lou Roll and Olive Oil. That's what every paragon positive takes to the world cup.
+
+[00:24:14] Wow. Not extra virgin. So the penalty was invented by an Irish guy called William McCrum. And no one liked it at first because they thought, how on earth would anyone be so low as to deliberately commit a foul? This was in a long time ago. Yeah. And they called it the Irishman's motion.
+
+[00:24:35] But they... Gary Lineker, in honour of that, performed an Irishman's motion. OK, it is time for our final fact of the show and that is Andy. My fact is that in April, police in Lima seized over 20,000 counterfeit Panini football sticker albums with a street value of $350,000.
+
+[00:25:05] Wow. That's amazing. Yeah, and this keeps happening. It happens all the time because they're really... Only every four years. Yeah, that's true. But the police in Italy have seized another 20,000 stickers and they said this could be the tip of the iceberg.
+
+[00:25:18] Every World Cup it happens because they're quite, you know, valuable things. I mean, the full ones really. Really valuable. Yeah. The empty ones, I guess, are valuable too because you can flog them. Well, I went on eBay just to see what the highest... You're putting Panini sticker and there are empty albums from previous World Cups.
+
+[00:25:36] The highest value is sort of 5,000 pounds, sometimes for an empty book. Well, the empty ones, if you can sell on eBay an empty book with all the stickers in it, then that's the best you can get because then people get it and they get the enjoyment of putting the stickers in. I understand that. Yeah. Yeah, that's worth thousands.
+
+[00:25:55] To people like me. And you do it, don't you? You've in previous World Cups called out on Twitter to say, can we swap Panini stickers? Well, let's not put this on the podcast. No, no, I do. Yeah, I do do stickers. You live in North London, don't you, in Finsbury Park?
+
+[00:26:10] And you love people to approach you with football stickers. Did you always do Panini? Because they weren't... We did a different one when we were kids. Yeah, I did Merlin when they did the Beano stickers. Yeah, exactly. But then Panini came back in, didn't it? Panini recently has become huge.
+
+[00:26:30] Yeah, well huge in my household. And you were dressed just to be clear. Do you not do stickers, Alan? Not for a while. No, my little boy now is keen. In fact, he found some at the bottom of a well-known breakfast cereal recently. I thought this is going to cost me about a grand. Yeah, that's pretty much it.
+
+[00:26:50] You see, £773.60 to fill a book. Yep. That's if you get every single sticker first time. That's if you keep buying. It's a mathematics professor has worked out that if you just keep buying and you don't do any swaps with anyone on average to complete the album. But apparently if you do have friends, it can be cheaper. It can be cheaper, yeah.
+
+[00:27:11] And also you can buy stickers direct from Panini. Yeah, your last 50 you can buy. Yeah, but they've failed then, haven't you? I mean, I think if you're just calling him out and saying, please, can I have Marcus Rashford? I've bought £5,000. Well, that's what happened. Music Magpie decided to test it out and they bought 5,000 stickers worth £800.
+
+[00:27:33] And they only found £681 out of the £682 stickers. So they were one shot. They didn't have Raja Nangalan. And he hasn't even got it. Yeah, he's not even going to the World Cup. Is he not? No. Yeah, I think he didn't get picked, but yeah.
+
+[00:27:49] I remember that in 1990, David Roe Castle of Arsenal had a coin made. He played, he started in every qualifier match that England played. He had a coin made in the SO World Cup coin collection. And then when they picked the squad, they didn't pick him. Oh my God. Hang on, but he... It felt so, so, so hurtful. But I mean, I've got a coin!
+
+[00:28:11] Never mind playing every qualifier. You were thinking he had his own coin made out of vanity. He didn't have his own made, did he? No, he didn't min to coin himself. There was a really cool idea, and James, I reckon you would like this. There was a news agent in the 2016 Euro, so Panini did for the Euro 2016. They did a shop where basically people could meet up just to swap the Panini stickers. Again, I'm not interested in meeting up with people to do so.
+
+[00:28:40] This fact is about Lima, Peru. So they qualified. It must have been about football. Sorry, they were in the fact. So they qualified, right? Peru, yes. Yeah, Peru qualified. But in Lima, where the match was against New Zealand, it's where they had a 2-0 victory that got them in,
+
+[00:28:58] there was an app which is designed to warn people of an impending natural disaster, so earthquakes, mainly. And that app went off when Lima was celebrating because there was so much activity going on and earthquake warning went out to everyone with that app. How cool is that? They were so excited. So much geological activity. Yeah, there was so many people just jumping around.
+
+[00:29:20] Which happens a lot in football stadiums, doesn't it, in America? In American football stadiums. Yeah, so an American football stadium can register a very tiny earthquake to anything that's sensitive towards it, and in Lima, they had that this year. And there was once a madness festival in Finsbury Park that set off an earthquake thing as well. Really? Yeah. You live in Finsbury Park?
+
+[00:29:37] God, Jesus, I knew that! I was bizarrely looking into sponsorship that appears on jerseys. So my favorite one is Athletico Madrid, who the sponsorship for their team in 2003 was a deal with Columbia Pictures. So the sponsorship kept changing according to what movie they were pushing at that time. So movies that appeared on their jerseys included White Chicks, Spanglish, and Anacondas the Hunt for the Blood Orchid. Okay, that's it. That is all of our facts.
+
+[00:30:13] Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland. Andy. At Andrew Hunter M. James. At James Harkin.
+
+[00:30:25] And Alan. No. That's usually Chasimsky's role. And Anna. You can email podcast at qi.com. Or you can go to our Facebook group or our website. No such thing as a fish.com. We have all of our previous episodes up there.
+
+[00:30:40] We will be back again next week. Thanks so much for listening. Goodbye.

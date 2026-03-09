@@ -1,0 +1,243 @@
+# No Such Thing As A Fish - No Such Thing As Harry Potter And The Great Overreaction
+
+- Episode date: March 9, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-harry-potter-and-the-great-overreaction
+- Slug: no-such-thing-as-harry-potter-and-the-great-overreaction
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the Brighton Dog! My name is Dan Shriver and I'm sitting here with Anna Chisinski, Andrew Hunter Murray and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, Chisinski. My fact this week is that until the 17th century, mothers hung their babies up on hooks while they worked. That's amazing. You just hung them up like a coat.
+
+[00:01:00] Were they, is it, yeah, is it like everyone who works at the same place has a number above their book? Like a cloakroom. Yeah, yeah. Like if you go to the restaurant, you just leave your baby in the cloakroom. Yeah, and if you lose your ticket,
+
+[00:01:11] you're absolutely puckered. Can you describe it? Well, it is small, it's not got much hair, and it's like Winston Churchill. This is genuinely true. So, this babies used to be swaddled for long periods of history.
+
+[00:01:25] thought that it was good for them to be very tightly swaddled, you know, like wrapped up in material, so their limbs could grow straight, that was a belief. And once they were swaddled, then they would just be latched onto a hook that was maybe in your house if you were doing the housework, or sometimes mothers would be working out in the field doing agricultural work and you could hook them onto a tree, like a bit of twig. And that was how they did it. Wow. And this is...
+
+[00:01:50] Is that where, like, the rocker-by-baby kind of thing comes from? You're not rocking them really, or swinging them if you're doing anything. Because he's on a tree top, right? It is. He's definitely in a vessel lying down comfortably. And a small baby from the tree's side. Yeah. Keep hold of your ticket or baby will disappear.
+
+[00:02:12] That's right. So this used to happen all over the place. In Sweden, women would carry their children in what was called a bog. Just put your baby in the bog. Babybug. What was it? It was a bag. Sounds like a typo.
+
+[00:02:32] Yeah, it's where we get the word bag from. But it was a leather container shaped into a bag. Oh, really? Yeah, same principle. There's actually still a thing today amongst indigenous North Americans where there's a thing called cradle boards and these have been a thing for hundreds of years
+
+[00:02:46] and they're sort of flat boards that you strap a baby to and in a very similar way you can then hang them on a tree or lean them against a tree And they were very commonly used, and there are a few tribes like the shoe or the Iroquois or the Cherokee who are all kind of bringing them back in a sort of artisan way. They're really beautiful if you look them up. And they're for hanging babies up. And actually they think that carrying babies or having like bogs or bags or whatever to put babies in is probably one of the biggest inventions in the history of mankind. Wow.
+
+[00:03:15] It's up there with like, you know, writing and the wheel and fire and all that kind of stuff. Is it? Apparently. Well, it meant that mothers could carry. food as well as carrying a child. So once you had a child, if you just had to hold it the whole time, basically you weren't able to do anything else.
+
+[00:03:31] But this meant that they could carry food, they can go hunter gathering as well. Wow. So prams used to not really be a thing. And if you did have a pram... That's actually true of everything that was invented. iPhones didn't use to be a thing, really. Yeah, that's fair.
+
+[00:03:51] And that's it. But basically, in Germany, when it was invented, particularly mothers used to pull along prams, and obviously you can't see if the baby's fallen out. So the push pram was a genuine innovation. But in Germany, until 1888, you had to have a license to take a child out in a pram. No.
+
+[00:04:12] And this was so the police knew you had to permit permission to be out with basically a small vehicle, and you had to name the baby. You had to say, I'm going to be taking Jeff out in the pram. Wait, so if you're taking a different baby out in the pram, then you'd lose your licence or whatever, you're arrested. Six months, prison.
+
+[00:04:29] Prison? No, I don't know. The other thing is, around the same time in Britain, any vehicle with four wheels was counted as a road vehicle. Okay, so they got the new prams, which had like a bassinet, and they had four wheels. The previous ones only had three. And those four-wheelers, you could get arrested for walking down the street with one of those.
+
+[00:04:50] And people did. People got prosecuted. if you walked on the pavement with them instead of the road. So responsible advice, push your baby along in the middle of the road. Wow. Another pregnancy thing, actually a giving birth thing. There is a medical text from the 12th century
+
+[00:05:05] called the Trotula. And one of the instructions in there is if you're giving birth, you should induce sneezing to the woman because apparently when you sneeze, it helps to contract your womb and push the child out. And they genuinely did this.
+
+[00:05:20] Wow, that would be, I mean, It's an unpleasant process anyway I've heard, but having someone pour pepper into your nostrils, sounds like it would make the whole thing even worse. Well, they also said that the womb reacted differently to different kinds of smells, so the womb would push towards sweet smells and away from unpleasant smells.
+
+[00:05:35] What? So if you're giving birth near a be maclava stand, you'll just be drawn magnetically over to it. And I don't know why a beclavastand was the first thing I thought of. That's a good as thing as any, isn't it? Metropolitan elite twat. Why not say a chokai?
+
+[00:05:53] But so women didn't used to be allowed to be at births. So there was a long tradition of only women being except for the women involved. There was one woman allowed at every birth. So for many centuries, doctors weren't allowed at birth because men weren't allowed to see a woman giving birth because it was thought to be improper. So actually the only people that you would be allowed to have when you were giving birth were midwives after a while and astrologers, because some women were astrologers. because some women were astrologers.
+
+[00:06:23] So you couldn't have a doctor to tell you it was going to be okay, but you could have an astrologer to give you a prediction of whether the baby was going to survive. And then when doctors started taking over in the 19th century, it was decided that actually women couldn't handle being in the room with other women giving birth, even though I guess they are the ones that do it in the end. But the Lancet medical journal wrote in 1868
+
+[00:06:44] that women are too delicate to watch someone else giving birth and only men could brave the revolting scenes of childbirth. Wow. We just can't hack it. Because we actually never have to see it. Right. I think. You're just lay there going,
+
+[00:07:00] can anyone smell Baclavar? That is such a sagittarius thing to say, yes. Do you know what, just, I was looking up medieval child rearing. Oh, yeah. So what happened in medieval Europe was you, basically, once you got to the age of 14, you would just be sent away on a French exchange forever. You'd be sent to be a servant in someone else's house
+
+[00:07:28] for seven to ten years. Was it always in France? It wasn't always in France, actually. It was always not in France. It was never in France. So, you were sent on a French exchange trip forever, which was not in France and only lasted seven years. Yeah.
+
+[00:07:47] I can see, I'm going to be accused of sexing up this fact. I was trying to think of an analogy. Basically, you'd do a swap. Everyone just sent away their child to someone else's house and then you would get someone else's child being a servant in your house and everyone did this right up to the aristocracy because they thought that it was easier
+
+[00:08:02] to bring up someone else's child didn't they Oh wow Yeah that's cool Have you guys heard So again around the sort of medieval period Of the groaning cheese This is really cool It was just a tradition that people would do
+
+[00:08:17] And the idea was that when you got pregnant You knew you were pregnant You would mature a wheel of cheese for the nine-month period that you were pregnant. And then once the baby was born, you would share out the cheese amongst family and friends, and you would all eat the cheese,
+
+[00:08:31] but it would leave the outer rind of the cheese. And on christening day, they would pass the baby through... Yeah. Through the hoop. And that's where we get the tradition of the woman bursting out of the cake, isn't it? Yes.
+
+[00:08:46] Yes. No. But yeah, that was the groaning cheese. That's amazing. That's amazing. How bizarre. Did you on buggies and ways of pushing children around? Did you see the survey that was done by Scoda,
+
+[00:09:02] but it was seeing what fathers thought about pushing buggies around. It was quite recent. It discovered that 33% of fathers said they were embarrassed by their pram or push chair, so they felt emasculated pushing them around. 76% of dads said they'd be more likely to push a pram if they had access to a stylish, high-speck buggy that could go. And so there's this one guy called Colin Furs who in 2013
+
+[00:09:26] But yeah, Colin Fursz, he's broken a load of records. So he likes breaking records, and he's broken the record for the world's fastest pram. So he found out his wife was pregnant, and he thought the way to be supportive was to attach a motorbike engine to a pram and create something that can go up to 80 kilometres an hour, which it does.
+
+[00:09:49] You can't put a baby in it. Sure. Because that would be really dangerous. But he says he does put dolls in it just to freak out onlookers. Wait, but hang on. Is he wearing roller skates? No, but he has a little skateboard attached to the back that he can stand on. So it pulls him along as well.
+
+[00:10:09] Wow. It's really cool. That's incredible. It's really cool, but his wife is still having to push the baby along in a normal pram. Some way behind him. Okay. Okay. It is time for facts.
+
+[00:10:22] Number two, and that is James. Ah, yes. My fact this week is that there's a man in Brazil who's been living in a sandcastle for 22 years. He has to constantly water his house to prevent it from collapsing. It's extraordinary. This is so cool. So this is just a guy. He lives in Rio.
+
+[00:10:43] He lives in Brazil. He's known as King Marcio, and he has this really awesome-looking sandcastle. It's like, just imagine like a really really. ornate St. Castle. It's quite small on the inside. It's only about
+
+[00:10:55] three square meters and it's full of books because he has two hobbies, reading and beach golf. Hmm. Yeah. Beach golf?
+
+[00:11:04] Yeah. It's just one big bunker, I guess. Yeah. But he lives there and he basically, if you go to Rio and you go to his house,
+
+[00:11:11] he has a little sceptre and he has photos taken with tourists and stuff like that. That's very cool. It has a roof, right? Because none of my
+
+[00:11:19] Sandcastle's ever had roofs. Did they not? Oh no. they just be basically a wall? Isn't that the standard sandcastle? Yes, unless you just do the upturned bucket, in which case it's all roof. A lot of sandcastles, like these really ornate ones you see on, you know, they do competitions, don't they and stuff like that? And the way that they do that is they super compact it. So they really, really, really compact the sand. And this is an ancient way of building things.
+
+[00:11:44] So actually the Great Wall of China, a lot of that is made like this. So it's basically just one big sandcastle. You're joking. Honestly. That's amazing. Except they use different materials. Well, some of it, for some of the Great World China, it's just kind of mountains, and that's just literally sand compacted really hard.
+
+[00:12:01] What happens when the tide comes in? It tends not to in the middle of China. Doesn't quite reach. That's where all kids are going wrong. It's building them on bloody beaches. But they've also worked out the exactly perfect way now to build a sandcastle, and when I say they, I mean physicists.
+
+[00:12:19] But it's actually quite surprising. So this is a couple of years ago. There was some experimenting. There were some studies. And it was found out that the strongest sand castle will be 99 part sand to one part water, which I think is not as much water as I was probably doing. And the person who did this study is a guy called Dr. Bonn,
+
+[00:12:38] who's a physicist. And he said the best way to do it is to tamp wet sand into a mould, but a mold that's like open at the top and the bottom, so like a bucket without a bottom, and then thump it at least 70 times before, which no one has the time for on a beach. You know, actually the best place to build a sandcastle, the best sand for a sandcastle,
+
+[00:12:58] is on Titan, the largest moon of Saturn. Whoa, really? Yeah. It's the best place in some ways to do it. In other ways, I wouldn't recommend it. You get that. I've forgotten the bloody bucket. Right, turn it around.
+
+[00:13:13] Well, this is amazing. They have sand dunes on Titan, but their sand has got static electricity in it, and so it self-adheres. Do you know what I mean? So you kind of put it together and it's never going to fall apart because it all sticks together
+
+[00:13:26] with static electricity. That's amazing. That's really cool. That is cool, isn't it? It's worth going for that. You can be fined for stealing sand from Sardinia. Even if you take a small drinks bottle
+
+[00:13:37] full of sand, you can be fined a thousand euros. And this is a big problem because people keep on stealing Sardinia, basically, and people are worried about it. In the summer months of 2015, they seized five. tons in smaller and bigger consignments, but lots of it was just little bottles, which people
+
+[00:13:54] take as a souvenir. Wow. Yeah, that's good. And that's because we're running out of sand, right? Yeah. Which is a weird sentence in its own right, but we are running out of sand on earth. Have you guys heard of the great Sandcastle dispute of 1900? No.
+
+[00:14:08] So this was like the original First World War, except it happened in real in North Wales, and it was quite a small deal. but it was basically Bovril, which was a relatively new company at that point, sponsored a sandcastle building contest. And it was, the idea was that you had to build a sandcastle that was extremely impressive and you had to have Bovril's logo somewhere on it. And so some people picked up on the idea. And in the same place in North Wales, this alcohol merchant copied it, copied the whole idea and had a lot of kids come to the beach and compete over who could build the best sandcastle. and include the name of his whiskey on the sandcastle. So he was encouraging lots of kids to advertise his whiskey, basically.
+
+[00:14:53] And so then this spiraled out of control because temperance movements got really upset at the fact that they were using kids as a vehicle to advertise extremely strong liquor. And so these temperance movements ran a rival contest for who could build a sandcastle that denounced drink and alcohol in the strongest possible terms. Poor kids, so torn.
+
+[00:15:14] That's amazing. Wow. That's awesome. I found a thing which really surprised me. This was from 1990. It was a scientific report that was looking into, there's always the thing of, you know, vending machines kill more people than sharks do per year. So does sandcastles more than sharks per year. Sandcastle sand tunnels. So anything where you're trying to construct via sand and the collapses is very dangerous. So in 1990 they found 16 people died of it as opposed to 12, which is how many were killed by sharks. that year. Wow. Yeah. What a way to go, running ashore, thinking, oh, finally have avoided that shark. Well, pretty good day for me. Bang, Sandcastle.
+
+[00:15:58] Yeah. Well, lifeguards have to watch out for people digging two deep holes on beaches. So this is, they have fewer complaints about going out and having to save people from sharks and they do about going and having to tell kids or adults to stop building such a deep hole. I was reading something by a lifeguard called Annie Howell who was saying she's been a lifeguard for nine years and she often has to warn beachgoers that in her words their excavations are getting out of control
+
+[00:16:26] and she says that no hole should be more than knee deep for the smallest person in the group so I think we have all surely contravene that because that's part of the fun isn't it trying to dig to Australia exactly sorry it's not so that people don't dig to Australia I presume no good
+
+[00:16:46] It's an anti-immigration thing because they think the Australians will come back up. I got it. Sorry, I should add, for what I said earlier about sandcastles and tunnels being the fatality thing, it's actually majoratively people digging holes. So when people are walking at night on a beach,
+
+[00:17:01] not knowing there's a massive hole, that's how they... No way. Yeah. The main danger is sand falling in on you. It's not where a danger of people walking at night falling into the holes. I think others right.
+
+[00:17:12] I think the holes collapse. It's not people just falling in holes. Who's got the muscle power to dig a hole so big that it falls in on you? It's not, no, it's about the, I almost killed my grandmother that way. She, well... Better luck next time. I didn't intend to. I was, I was at her house, and I dug a hole in the garden,
+
+[00:17:31] and I didn't tell her, and she went out at night, and she ended up in hospital, and, but she's okay. But didn't you grow up in Australia? Yeah. Were you trying to dig to the UK? Yeah. Yeah. Okay.
+
+[00:17:44] It is time for fact number three, and that is my fact. My fact this week, oh boy. My fact this week is Queen Elizabeth I first was a man. According to the Dracula author, Bram Stoker. Yeah. Isn't that amazing? This is the fact that the year before... I mean, he was writing fiction quite a lot.
+
+[00:18:10] And he was writing fiction, but the year before he died, he wrote a non-fiction book. And it was called famous impostors. And the idea was to expose con artists, and it was to expose hoaxes and so on. However, there's one chapter in it in which he claimed, and he did proper investigation into it,
+
+[00:18:26] that Queen Elizabeth I first was a man. And he actually published that. And obviously, it's not true, but it's so crazy. Well, let's not rejected out of hand. That's a lot of compelling evidence. Let's hear the evidence. Well, he said things like, for example, she never married.
+
+[00:18:43] she used to wear a lot of wigs. He said, someone's trying to hide a bold spot. She used to wear one wig at a time. She didn't wear a stack of wigs. Yeah, no, but she constantly, famously, according to him, was wearing wigs. The story is that basically, when the original, this is according to, I need to specify, this is not my theory. This is a very famous author, Bram Stoker. he said that when Queen Elizabeth was 10 years old, she was visiting Bisley, which is in Gloucestershire,
+
+[00:19:16] and while she was there, the plague was very rife, and she got ill, and she passed away. The place Bisley thought that they were going to suffer the wrath of Henry, and so they quickly had to replace her. However, they didn't find a girl who, is anyone still listening? So they couldn't find a girl that would match her complexion to fool Henry, and so they did find this one boy and they said, you're going to have to now be Elizabeth, and he said, okay, and then, and it worked.
+
+[00:19:48] And he was like, yeah, it worked, and we're going to have to stick with this. And so, okay, it's time for fact number of more. No, no, no, no, no. This is basically the class hamster has died theory of English history. Because actually if you, because I read that book today,
+
+[00:20:04] and he says that because the people of Bisley still believe it, that it must be true, right? Because he's like, if it wasn't true, there's no way they'd still believe that shit. Yeah, and for a long time, there used to be a thing where they would dress boys as Queen Elizabeth. And so the idea was that there was a local vicar
+
+[00:20:21] who started this rumor. What's interesting is that Bram Stoker, effectively, was a conspiracy theorist, which is very bizarre for the time as well. And he was, no one believed him, obviously, at the time. But it is a theory. Well, they did, because as in it was a theory that had existed since Queen Elizabeth,
+
+[00:20:38] and he popularised it. So there were people who genuinely thought that, and there are people who put together lots of evidence about it, like the fact that her writing style changed apparently as soon as she left Bisley. When she was seven years old? Yeah, so everyone's developed a certain... Oh, she started writing in cursive.
+
+[00:20:55] She must be a man. James, 10 years old. Oh, sorry, yeah. No, it did change. And, yeah, that was pretty much it. It changed from a young girl's diary to just football scores every week. Can't wait to soup up my pram.
+
+[00:21:15] So the Times reviewed the book as Tommy Rot. The original manuscript is signed BS. But it was by Bram Stoker. But that's just as good evidence as the stuff you're giving, that it's just not true, right? Hang on, again, it's not my evidence. But it is true that Bram Stoker was a conspiracy theorist. that is the curious thing.
+
+[00:21:38] I had a look at the book, and it's got loads of other hoaxes that have happened in history. Some he's just reporting. So there's one called the cat hoax of 1815, which is where Napoleon was about to be sent to St. Helena. It's a very distant island, and it was supposedly over on with rats.
+
+[00:21:54] And people put up signs around the city of Chester saying that the government desperately needed lots of cats to wipe out all the rats on St. Helena to make it fit for Napoleon. And if you bring your cat to this address tomorrow, The government will give you quite a lot of money for it. And it was mayhem. It was absolute carnage.
+
+[00:22:12] People brought hundreds and hundreds of cats. So was it a hoax that it was just some random person who you didn't like and they went there, is that it? It was an empty house, so no one knows exactly why it was. Although that would be a hell of a prank. I know. It's like ordering a pizza to someone, but with cats. Yeah.
+
+[00:22:30] But Brown Stoker did write some questionable stuff, didn't he? And a lot of it's been discovered recently. so a book of his notes was discovered in the 90s and basically he loves puns and he loves really rude jokes so there's a really good joke I'm just going to see if it works for this joke to work you do actually have to know what a canticle is does everyone know what a canticle is?
+
+[00:22:54] I don't know what one is. Cool. Oh, a couple of yeses. We've got some churchgoers in the audience. It's like a religious song. It's like a hymn, isn't it? So this is a really funny joke. why is death like a psalm? I don't know, why is death like a psalm? Is it something to do with canticles?
+
+[00:23:13] James, you've absolutely nailed it. Because... I'm going to cut out the bit where you said you need to know what catacles are. You look like an absolute genius. No, it's quite clever because kicking the bucket resembles a can tickle.
+
+[00:23:30] Yeah. Wow. That's quite clever. It just shows that comedy changes, I suppose. So Dracula, just briefly on Dracula, did you know the first adaptation of Dracula for the stage happened before the novel came out? Really?
+
+[00:23:45] No way. Yeah. So he worked for many years as the manager to the actor Henry Irving, who was incredibly famous in Victorian Times, Cumberbatch levels of famous, and he ran his theatre, the Lyceum, which is in London, it's in the West End, and Stoker had been writing this novel for a very long time,
+
+[00:24:02] and it debuted at the Lyceum Theatre, where he worked, and Stoker had been working on it for seven years. It was only performed once, and after the performance, he asked his boss, Henry Irving, the incredibly famous actor, what he thought. The only word Irving said in reply was, dreadful.
+
+[00:24:19] I know, but I think it may have been, you know, it was full of dread because it's a very spooky story. So, and a lot of people say to me after gigs, Andy, that was dreadful. And I think that's why. That'll be it. And so when they say it's awful, it's because they're full of awe.
+
+[00:24:35] Exactly. Yeah. And when they say it's shit. Can't win them all. We should say that he was not famous in his own time. So I went back through the British newspaper archive looking for his obituary. And when he died, all the obit said he was the manager of Henry Irving. So as Andy says, Henry Irving was the Cumberbatch.
+
+[00:25:02] And literally, it was just... an addendum at the end of the Obed would be, and he wrote a number of novels. But Henry Irving, what a guy. And Henry Irving was quite an exciting guy and a really nice person, as far as I could tell. And he had this lovely coincidence where he was an actor,
+
+[00:25:20] and his last work he performed on stage was the day that he died. This was in 1905, and his last words on stage were, Into thy hands, O Lord. And then he had a stroke that night, and he died. And then all the newspapers reported it as, pathetic end to a great career,
+
+[00:25:37] which pathetic meant a different thing a hundred years ago, but now it just looks incredibly harsh. No, no, no. A lot of people say to me, Andy, that was pathetic. Did you know, just on boys dressed as girls and girls dressed as boys? In the Elizabethan theatre,
+
+[00:25:54] all the roles of girls were played by boys, but I didn't know this. You could be officially legally kidnapped if you were a child and put in a play. Really? Yes. What I mean? What?
+
+[00:26:06] This was not illegal. So, theaters, if they had a license, could abduct children. And put them in place. Whoa. This is real. So you'd get back to your meat hook and you'd be like, where's my kids? Queen Elizabeth granted permission to theaters. Did he?
+
+[00:26:31] Yeah. It was originally so they could get choristers for the Royal Chapel, but the theaters all did it, too, and no one really minded. There are legal cases. of people saying, I quite like my son back. I can't, was there just not enough interest in their profession? No. Right. Okay.
+
+[00:26:50] Well, I think we've got a shortage of teachers at the moment, haven't we, in this country? There's something to think about. We're going to have to move on to the final fact soon. Anything before we do? Can I give you another Brown Stoker joke? Oh, God. Do you want to save it to close the show? We might need a big one at the end.
+
+[00:27:08] I felt like these guys are. They couldn't wait. Okay, let's do it. Now, do you all know what a chascible is. Good. You do actually need to know what a prince consort is, but I assume that you have to be. Come on, Brighton. So the question is, why is the letter P like a prince consort?
+
+[00:27:29] Anyone? No. Okay, I'll give you the answer. Because it makes a queen regnant, a queen pregnant. Oh, yeah. You also have to know what Queen Regnant is. That actually got quite a good response. It's all right, isn't it?
+
+[00:27:48] That's probably the first time anyone said that joke on a stage since Bram Stoker. Yeah. Yeah. Should we move on to our final fact on the night? Yeah. Okay, it is time for our final fact of the show, and that is Andrew Hunter Murray. My fact is that when a computer tried to come up with romantic messages for Loveheart Suites based on existing ones, it came up with
+
+[00:28:09] bare wig meat mate bong lov and you are bag in Sweden it was you are bog wasn't it they're great aren't they well no
+
+[00:28:25] if they were great it wouldn't be a good fact so there is a researcher I think she's American she's called Janelle Shane and she specialises in building neural networks so this is where you feed a machine a load of information and you try and encourage it
+
+[00:28:42] to come up with more things that are like it with varying degrees of creativity so you can dial it up or dial it down to get them more accurate or more imaginative and she did this with love hearts she fed in a load of love hearts and some of them were really good so there was a cute kiss
+
+[00:28:57] and my bear which is quite sweet that's good some of them were okay am good you are babe They're all right, but then there were others which included Pin a face
+
+[00:29:13] Sweat poo And my favourite one Love 2,000 Hogs, yeah It's hard to imagine them fitting that on the sweets, isn't it? Yeah I also saw Stank Love My Hag Hole
+
+[00:29:32] And you hack You hack. You hack. That's one to give to Bram Stoker after his set. And this for overseas listeners, because I didn't know they were called love hearts. I've called them sweethearts,
+
+[00:29:49] which I think in America is what they're called. So it's the same thing. Sometimes conversation hearts as well. Yes, yeah. So it's a little sugary heart with a message on it for... Yeah. And apparently, I think in the 80s,
+
+[00:30:00] in Britain, at least, they wanted to get drop dead gorgeous on the sweets, but it was too long. and so they instead went with Drop Dead. Because I remember growing up and seeing Drop Dead on there. And always, I thought it was just like, you know, Russian roulette of, you know, you're going to get... You're just going to get one bad one. And you never know.
+
+[00:30:22] Like, you give someone a sweet and it might be a nice one. It might be not a nice one. Might be you are bag. So obviously they have to change it as the years go round. So in the 1950s they phased out, hey, daddy-o. That's ready for a comeback, isn't it? It is. I think so. Right, Wikipedia claims that fax me is still on the list, which I cannot believe.
+
+[00:30:49] Fax me. There is one that's grow up, and that was actually the cause of a complaint that the Love Arts Company received for a man who was trying to placate his wife after a row, and he gave her a tube of love hearts, and the first message that she saw was grow up. and she left him the article said grow up is still in production so they obviously didn't think that was a good enough reason to discontinue wow
+
+[00:31:14] grow up that's not that is one of those like not good ones though isn't it I can't think of a good way that grow up could be used with me grow up with me grow old with me
+
+[00:31:25] it's more grow old with me some more recent ones from 2014 on the love hearts Skype Me is now one. Yolo is one. Tote Hillare. And this is a good one for me. O'Reepet.
+
+[00:31:45] Oh, that's great. That's a good one, isn't it? Oh, you can fax me. So the very original loveharts, they were called Conversation Lozenges. That was the original name. I know, it's so good. And they date from the 1820s,
+
+[00:32:01] these are seriously old things. and they originally had the message on the rapper and then eventually the message migrated onto the Swede but the messages said things like can you polka do you flirt or the highly flirtatious no I won't ask mama but then the temperance movement
+
+[00:32:23] got hold of the love heart and they started putting on messages like misery sickness and poverty are the effects of drunkenness everything it was a real fashion in the Victorian era for suites that had a message on them. And the LRB pointed out that the rage for sweets with a message was initially delayed by the illiteracy prevailing in the market. But successive education acts did for readable sweets what they also did for penny dreadfuls
+
+[00:32:52] and newspapers. So they became more popular. But sticks of rock with a message inside, which we are familiar with today, right, were popular in the 1800s. And the first mention of sticks of rock with a message came in the 1860s, where it was mentioned in someone's diary, and messages inside sticks of rock included, do you love me? Do you love Spratz? And Sir Robert Peel, who was a recently deceased Prime Minister. I'm just sucking on a stick of rock and seeing Theresa May's name being spelled out. So the American ones are not made by Swizzles. They're made by NECO, NECCO, which is a new. England Candy Company.
+
+[00:33:34] They also make candy buttons and Havelin Mints and a few other things. But there are a few things that they don't make anymore, including Hawthound Ovals, Jujube Monoplanes, Wang Bees, and Climax Mint Patti's. Whoa!
+
+[00:33:53] They sound great, doesn't they? I mean, I'd love to, at the end of a meal, would you like a Climax Mint Patti? They sound like sort of X-Rex Mint Patti. Harry Potter sweet shop when you go behind the door. Yeah, langabies. Well, just on the topic of AI sort of generating this new stuff and, bizarrely, Harry Potter, you're mentioning that, I found an amazing AI generated Harry Potter book the other day.
+
+[00:34:21] It's made by this online company called Botnick Studios. They're online artists who do. They're really cool, really fun stuff. And what they did is they fed in to this machine all seven books of Harry Potter. and they understood the language and so on and kind of got their heads around it and it pumped out an original Harry Potter book. And yeah, it's an amazing book. Do you know what it's called? Yeah, I thought I had the title here.
+
+[00:34:47] I'm missing it at the moment. I'll see if I can find it before the end of the show. But I'll give you a couple of extracts from it. This is from Chapter 13, The Handsome One, it's called. Leathery sheets of rain lashed at Harry's ghost as he walked across the grounds towards the castle. Ron was standing there and doing a kind of frenzied tap dance. He saw Harry and immediately began to eat Hermione's family. And then this is...
+
+[00:35:15] That's a bit from the Order of the Phoenix, I think. This is the very next page. Harry could tell that Voldemort was standing right behind him. He felt a great overreaction. Harry tore his eyes from his head and threw them into the forest. In fairness, that is an overreaction. Voldemort raised his eyebrows at Harry,
+
+[00:35:39] who could not see anything at the moment. Ron threw his wand at Voldermort, and everyone applauded. Ron smiled. Ron reached for his wand slowly. Not so handsome now, thought Harry, as he dipped Hermione in hot sauce. That is amazing.
+
+[00:36:00] The whole Granger family is edible in this. Yeah. They are not, they are not, like, This is an amazing bit as well. Voldemort, you're a very bad and mean wizard, Harry savagely said. Hermione nodded, encouragingly. The tall Death-Eater was wearing a shirt that said,
+
+[00:36:14] Hermione has forgotten how to dance. So Hermione dipped his face in mud. I mean, it reads awesomely. I read one, it might not be as good as that. I read one about fortune cookies. So they used AI to find some fortune. cookie things. One of them is a short pencil is usually better
+
+[00:36:38] than a bird in the future. Do not have a peaceful place where you will feel better. And this one, carve your name on your parents. I mean, we're laughing now, but they're going to kill us. Okay, that is it. That is all of our facts.
+
+[00:37:02] Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter account. I'm on at Shreiberland, Andy. At Andrew Hunter M. James. At James Harkin. And Jasinski.
+
+[00:37:15] You can email podcast at QI.com. Yep. Or you can go to our group account, which is at No Such Thing. Or you can go to our website, no such thing as a fish.com, where we have all of our previous episodes. We have links to more of our tour dates,
+
+[00:37:28] our book. We also have recommendations for great things to read, like a book called Harry Potter and The Portrait of What Looked, like a large pile of ash. And it also has a link to our exclusive cassette, which is only actually available on tour at the moment,
+
+[00:37:48] but you can find out where to get it, and we're about to give one away to one of the members of this audience, and we've picked out a fact that was sent to us at the top of this show. James, you got it? It's from John Platt, and the fact is,
+
+[00:37:59] if a human could move their arm one-tenth as fast as a mantis shrimp, they could throw a baseball into orbit. Whoa. Wow. So John, so John, if you come and find us, we'll give you your cassette.
+
+[00:38:17] Yeah, and we'll all be out there, guys, with our cassettes. If you want to come and say hi. Good night, guys.

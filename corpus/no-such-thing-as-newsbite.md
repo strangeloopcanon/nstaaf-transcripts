@@ -1,0 +1,295 @@
+# No Such Thing As A Fish - No Such Thing As Newsbite
+
+- Episode date: June 2, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-newsbite
+- Slug: no-such-thing-as-newsbite
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish. It is the super long bank holiday for the Queen's Jubilee. And so we have decided that we are going to take a weekend off. And instead, this week, you're going to get another one of my compilations from all the best bits from the last year or so of fish, which didn't make it into the final show because they were too silly because they got the facts wrong, or just basically because there wasn't enough space. Since it's the Queen's Jubilee, I can guarantee that for once this compilation doesn't contain anything libelous to the British royal family. But I can't guarantee it won't for the next one.
+
+[00:00:40] So you better make the most of this, your Royal Highness, if you're listening. Anyway, just one more quick thing before we start this week's show. And that is that we have a couple of live dates coming up. They will be in Inverness, Edinburgh, Aberdeen, Glasgow and Cardiff. They are postponed gigs from earlier in the year that will be. be happening towards the end of August and the start of September. We would love to see you there. If you live in any of those places, then get your tickets fast. If you don't live in any of those places, but you can get to those places, then get the tickets as well, because it's going to be
+
+[00:01:14] a whole lot of fun. Loads of facts, loads of silliness. And the best way to get your tickets is to go to QI.com slash fish events. Anyway, hope you enjoy this week's show and what else is the to say, but on with the podcast. Mike Tess from Dennis, hello, hello, hello. Mike Tess from Harkin, hello, hello, hello, hello. Mike Test from Andy, hello, hello, hello, hello. What an awesome chat we're having. Hello, hello, hello.
+
+[00:01:42] Yeah, he's been trying to think of puns based on TV shows and dogs. Heel or no heel. The Barkfest show. Oh, Barkfest is a good. Yeah, yeah. I am trying to do something with one of the big news night show or whatever. Why don't you just? He's light.
+
+[00:01:58] Right, come on. News bite. Very nice. There we go. Off we thought. He's been sat there for 20 minutes trying to think of that. All right. We're good. Are we recording?
+
+[00:02:12] We're recording. Hello and welcome to another episode of No such thing as a fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I am sitting here with Andrew Hunter Murray, James Harkin, and Anna Tashinsky. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, that is Barkin. One thing I found on Alan Withy's page is a thing that he thinks might be the first ever beard and mustache show.
+
+[00:03:15] And this was in 1873. Yeah, members of the public came to watch bearded men stand on a stage and have their beards judged. Yeah, so this was set up by a guy called William Holland, and it happened in London. It had quite a bit of momentum behind it. Journalists who couldn't make it to the day because they were busy were writing in trying to influence the judge is saying, a beard has to be like this, and giving opinion pieces about who a winner should be. So they thought it was going to be massive, and it really, really wasn't.
+
+[00:03:45] It was barely attended. They thought they were going to have 30 entrants to it, including Mr. Charles Chaplin, who sent in fragments of his beard because he couldn't physically be there. It's definitely not... What? Did Charlie Chapman have a beard? I thought he had a mustache.
+
+[00:04:02] Exactly. He says in brackets in his article, but unlikely to be that Charles Chaplin, and I agree because this happened 16 years before Chaplin was born. Okay, so you couldn't even enter the beautiful baby competition. Should we get onto some more steady ground and start talking about poos? As it feels like that's more kind of our direction usually. All right, bring us on to solid ground. Can I just say?
+
+[00:04:29] Can I say that sometime today I got a text from Dan being like just heads up these are all the facts on coprolites we've already covered. Why is this bloody podcast? It's literally they've got a massive Excel list of all the coprolite facts. It wasn't on any of the other facts, not on, you know, Amelia Earhart, not on just on coprolite. It's quite impressive. You're so right. That was pretty outrageous that we've never mentioned Amelia Earhart before, but we have mentioned coprolites 50 different times.
+
+[00:05:04] Yeah. I think they come out of their tunnels to mate, don't they? Moles. I think that's one weird thing about them. Because you can't really have sex inside a tiny little tunnel, so you have to come outside. So you could say they're mounting out of the mole hill, couldn't you? Yes.
+
+[00:05:24] Yes. Why have they not built a big sex dungeon in their mole burrows? I think they've got the birth room. I think you missed my pun just there. The mounting out of... of the mole hill. Did you? That's why they haven't built it, yes,
+
+[00:05:39] so that we can make puns about them coming up to circus. The malls are very big on comedy puns. Oh dear. Torval and Dean were figure skaters. Famous. Oh.
+
+[00:05:50] Who are they? I know their name. I know they skate, but in what context do they skate? Were they professionals or are they an entertainment thing? Yeah. The gold medal
+
+[00:05:57] like the Sarajevo, Olympics, whatever that was. Jane Torval and Christopher. Christopher. And for Britain? Britain? Britain, yeah, that's basically why. that are really, really big deal here.
+
+[00:06:07] Probably international listeners are thinking who the hell are Torval and Dean. But guys, they're a huge deal here. Because, yeah, everyone loved them. They won the Winter Olympics in the 80s. And I always thought they were a husband and wife. And no. Oh, cousins, father and daughter. Brothers.
+
+[00:06:30] You've got it. Detective and villain. One of them are there and the other. one's a picket of the above. It's nothing. It's owner and pet. No, it's nothing. They were just friends and they've snogged once at the back of a bus when they were 14 before they were even partners. And then that was the end and they were just really great friends. But they had to spend so much of their lives together. So they both say their spouses took, it took a lot to persuade them that this was okay. Right. And they, I think just, it was only shortly before they won
+
+[00:07:03] gold that they gave up their jobs. I think he was a policeman and she was. was a worked in insurance. So he was a detective. He said when they got it they I think when they won, when they won, I think it was one of the most watched TV programs ever in Britain. It was massive. And Dean said afterwards, said in an interview since, that the moment that he won it and they won it breaking all of these records. So they got perfect scores throughout, which no one had ever got before. And he said nothing had ever affected him so much in his life. And then he specifically said, sure, having children is a life-changing event, but this was the crowning moment. And I wonder why his partner thinks that.
+
+[00:07:44] Do you know who the first Europeans, I should say, to climb Kilimanjaro were? No. So they were called Maya and Perchella, and they climbed it in 1889. But to celebrate the 100-year celebration, they decided who this is, the organizing committee. It just says in my notes, I don't know who that is. decided to award posthumous certificates to the African porters who helped them to get to the top. So obviously they didn't go by themselves. So they went to this village called Morangu, which is near the bottom of the mountain.
+
+[00:08:19] And they asked the locals, you know, do you know who did this? And they went, oh, this guy did it. And there's a guy called Johani Kinyala Lau, who apparently had taken these guys to the top 100 years earlier when he was 18 years old. So he was given the certificate Despite the fact that if he was that person He would be the oldest man who ever lived He continued to live for another seven years Which means that if this was the guy
+
+[00:08:49] He died at the age of 125 Which would make him the oldest person Male or female to have ever lived by three years Wow I believe it It's possible I mean gosh That clean mountain air really is good for you
+
+[00:09:04] The other option is he was nine years old when he went up and was just under the oldest person ever, but no. Right. It's probably a misrememberance. It sounds like a lie. There was a baby born at an Irish petrol station this year. It was in Kildare, and it was awarded free petrol for a year. The baby was? Well, as parents, I guess.
+
+[00:09:30] Wow. That's great. Yeah. It wasn't a lot. And you know, sometimes people get christening presents of a case of champagne and, you know, they can't enjoy it for 18 years. It's not one of those. It's been kept in the cellar for when the baby turned 17. Quite the reverse. You have to do maximum driving these parents, have to be driving as much as they possibly can in the area of the service station.
+
+[00:09:52] Right. I'm going to tell you a sort of similar fact, which none of you are going to care about or have any interest in whatsoever. But I guarantee you, there's a slither of audience that might care. There was a massive show that came out on Netflix last year called Selling Sunset. Huge show on Netflix and it has a big following and it's all about real estate agents in America and they're all sort of very beautiful Hollywood characters in it, right? They all have really odd names like one called Amanza. I just haven't heard Amanza before. Not Amanda, Amanza.
+
+[00:10:23] And then there's a lady called Crischel, right? Again, very weird name. Turns out the reason Crishell is called that is because her mom went into labor at Shell petrol station and she was delivered there by a member of staff called Chris. That's beautiful. So she became Chris Shell. Now it means nothing to you three here, but I'm telling you, it's just blown the minds of about six people.
+
+[00:10:47] Had a really embarrassing thing when I was staying in Sussex last year where there was a post box, which I thought was a post box that it looked like a red post box. So I thought it was somewhere where you post letters. And it was like outside the house. So I thought, oh my God, this is so cool. the Royal Mail have installed a postbox, but in the property of this tiny little cottage. And so I posted a few letters into it.
+
+[00:11:09] And then the owner of the property I was renting off came and delivered them back to me about three days later. I was like, you seem to have got these letters in my postbox, which is where... It's the letterbox for the house. It's the letter box for the house, yeah. Because what I thought you were going to say is every couple of years, you see it in the tablights of some old man
+
+[00:11:28] who, like, for 25 years has been posted his letters in a dog poop. bed. Like literally, it's such a common story. They did smell pretty bad as she goes in back. Come to think of it. So one of the people who was trapped in Wuhan in China when it got shut down because of coronavirus was a Mr. Bean impersonator who happened to be there. He was at a lab, wasn't he? And he left a fridge open. He's a British comic called Nigel Dixon
+
+[00:12:03] And his job for a living Is that he impersonates Mr. Bean So he's extraordinarily popular in China right now Since the pandemic happened On Waybo, he's got hundreds of millions of views For each of the videos that he puts up He basically did all these videos About how to treat lockdown
+
+[00:12:21] You know how to stay healthy in lockdown So all done with the Mr. Bean suit on, you know, the tie It was him being Mr. Bean on this thing. But one of the things that he then did sort of as himself, without Mr. Bean, is he released a video, which reportedly was him delivering propaganda about the fact that China was doing fantastic in the pandemic.
+
+[00:12:42] And this was in early 2020. So he said things like, once people were waiting for hospital beds, now beds are waiting for people. And it sickens me to hear of other countries blaming China. But for what? We're now hearing of cases where people around the world have contracted their virus with no obvious connections to China.
+
+[00:12:59] And this was a part of a state propaganda channel, an official channel with China. So basically, because Mr. Bean as a TV show, and I say this is someone who grew up in Hong Kong, Han Do Shien-Shan, he is ginormous in China. This guy, they suddenly had their own Mr. Bean who could be used as propaganda. But wait a minute. Mr. Bean doesn't talk, does he? I thought that was the whole part of Mr. Bean. That is a ha ha ha ha ha ha ha ha I'm saying are the Chinese government really until the very very well that is very depressing Yeah well he's massive there and it was lucky for them because he was trapped literally at the heartbeat of coronavirus in Wuhan and he defended them
+
+[00:13:43] And we don't know if that was just him defending them on his own or whether or not it was because he was making it specifically for shianhua a news agency which is an official Chinese state run media agency who know knows. We don't know. Oh, that sounds legally covered, Dad. Thank you for trying yourself with an embarrassing hand grenade. Here's a thing. Here's a puzzle for you all. It's a word you have to guess, five letters. It's G-R-A-blank blank-blank. James, are you trying to do an audio version of word?
+
+[00:14:22] Once a week. This is going to be the next big thing. Okay. This is going to be great. Okay, okay. I'll say grass. Straight on there. Anyone? Do you want us to say grave? Grave.
+
+[00:14:33] I wanted you to say whatever you wanted to say, but now you've said grave, Anna. That signifies a high mortality salience in you, not in Dan and Andy. And apparently this is a test that psychologists use to see how much you're thinking about your own mortality. And what you can find is that people who think more about their own mortality tend to be more conservative. So the idea is that the more you think about death, the more you kind of try and conserve your own worldview and the more kind of entrenched you are in the current system. Not saying that this is you, Anna, but this is the idea of the researchers. And they said that people who did this test and went for grave as opposed to grass or grape,
+
+[00:15:20] if they were asked to set bail, like pretend to be a judge and set bail for a supposed prostitute, then they would give an average bail of $455 compared to $50 who would set the people who would have said grass or grape. So you're a much more conservative person according to these researchers. To be fair, James, when I said the word grass just there, what I actually was thinking of was a patch of grass on the plot of land where my mortal remains will be buried. Yeah, yeah. I don't have that. Dad was thinking that in the way that people crush grapes with their feet to make wine, so death. is crushing above us and pushing us down and down deeper into the earth before we meet our maker.
+
+[00:16:04] Now, I'm thinking about, like, I love green grapes. On actually silly mountaineering clothes, do you remember in 2016 on International Women's Day, what a group of Chinese mountaineers did? No. A group of Chinese male mountaineers to celebrate climbed up a mountaineering dresses and heels in order to experience the struggles and strife of being a woman. But yeah, they wore like hot pants and many skirts. Hot pants.
+
+[00:16:31] Yeah, so I don't think it was quite the same outfits as people in the 1700s. Suspenders. Yeah. This is what all the women that I've seen on the internet were. Exactly. They were all wearing very high stilettos and stuff. All going, God, it really is hard being a woman climbing a mountain, isn't it? Wow, this branch of string fellas at the top, it better be worth it.
+
+[00:16:53] What, as James, you were saying, extraordinary character, Peter O'Toole. His stories are very wild. He was a very, particularly in his younger years, a tour de force of partying and booze and letharioism. He was just a big old character. He accidentally, in a boating accident, cut the top of his finger off. And so he put the tip of his finger into some brandy and then he pushed it back into place and wrapped it with a bandage. and then weeks later he removed it and found that he'd put it back on the wrong way round. And that's where the story ends. And I don't know, I've looked at photos.
+
+[00:17:33] I don't see a backward finger on Peter O'Toole. Was it sort of nail in or upside down? See, the story just doesn't give us anymore. Yeah, it's hard to. No, I think it must be backwards. So let's imagine the nail would be, yeah, facing front. It doesn't say how much of the finger it was either. Exactly.
+
+[00:17:51] It could have been just the very, very, very tip. like I've cut the very tip of my finger, right? Exactly. It might not have been the whole nail. Exactly. But if it was a very, very tip, you wouldn't tell it was the wrong way around. You kind of need a distinguishing feature, don't you? Like a nail.
+
+[00:18:05] That's true. Yeah. If you heard him drumming his fingers on the table, would you get three taps and then a squelch as the soft bit at the front? Yeah. Loved, loved, I don't know if he loved a fight, but he certainly was in them enough to have some opinion that was probably you know, in favour of.
+
+[00:18:25] Otherwise, you might avoid it, but it just seems like he was just constantly... You think he's going to sue, Dan? I mean, he's been dead since 2000 and something. He's... We're fine. It was a hell of a sentence. I loved it.
+
+[00:18:36] I didn't give up as well. I kept going. I think his kids are going to get in touch going. He did not love a fight. He quite liked a fight. But I wrote... So I found he was very good friends with Brian Blessed, another great actor.
+
+[00:18:52] Was he? Very good friends. And I read an article where Brian was talking about his relationship with Peter O'Toole. And basically, and it's a very long article, every single encounter ended up with Brian beating the shit out of him. That was the threat of it. And it even starts with him beating someone else up when he first meets Peter O'Tall. So he says that they first met at a party in the mid-50s, these are his words, where I'd memorably just punched Harold Pinter's lights out. he got one right on the side of the jaw and Peter O'Toole comes over and says wow that's really good and then Peter at all because he's this drunken man anytime he was on set with Brian Blessed on various movies Brian would just beat him up and there's cases of him dragging him around the house
+
+[00:19:35] as he was crying and throwing his arms around and but Peter O'Toole supposedly loved him he said he was the only person who was properly honest and loved him and they were very good ones. It actually sounds like are you sure that Peter O'Toole love to fight. What you've described there is the fact that Brian Blessing was a very violent man. So if you'd
+
+[00:19:55] actually given my very interestingly long sentence a chance earlier, what I was trying to say was he was always in fights, which makes it suggest that he likes a fight even though he was not necessarily the one instigating it. Otherwise, or at least he had an opinion on it.
+
+[00:20:11] At least he had an opinion on it. One last thing on Middle Finger is if you do ASL, American Sign Language, then you can kind of make what you're saying profane by doing it with your middle finger. So for instance, if you do the sign for mother, but instead of pointing with the fingers you're supposed to point with,
+
+[00:20:32] you point with your middle finger, it means motherfucker, for instance. And there's a few other things like, for instance, the sign for a hearing person is kind of, you do a little gesture around your mouth. and if you do it with your middle finger, then it's like, say, fucking hearing people.
+
+[00:20:52] You know what I mean? It's a way of saying like that what you want to say is actually quite profane. And they think this might be quite a new thing because there is a very old ASL symbol, which is having your forearm facing upwards and then doing the middle finger.
+
+[00:21:11] And that is the sign for the Sears Tower or the CN Tower in North America, those two big buildings. Basically, you have to do the middle finger, and that is the sign for those buildings. For the CN. So the CN Tower in Seattle or the Sears Tower, which is in, I think, Chicago, but I can't remember. If you want to do a sign for that, you basically just do the finger.
+
+[00:21:36] Do you think that's because the CN Tower is CNT? It's kind of like. It really is not that. It's because it's got a spiky. bit at the top. Yeah, yeah, whatever. I'm going to assume it's calling someone the sea word. Wow.
+
+[00:21:51] That's rude. My favourite river that I've recently read about is the Congo River, only because it's so unfathomably deep. I kind of mean unfathomably literally there. So it's the deepest river in the world. It's 220 metres deep at the bottom. There's no light can penetrate that low. And I realised that if you put all of London into the deepest bit of the Congo
+
+[00:22:15] River, only six buildings would poke out of the top of it. Wow. The last building you see the tip of is the cheese grater. That's 225 meters. And then the rest of us are all submerged. Is the shard? Is the shard?
+
+[00:22:29] No, no, shards up. Shard's taller. Shard's the highest, I think, tallest. Wow. But yeah, so if that does happen, we all have to flee to the top of the shard, I guess. I think that's going to be the least of our problems.
+
+[00:22:43] if all of the buildings in London get taken to the Congo River. I don't know how we've woken up with this situation being as it is, but he's got to deal with it. That's really cool. Yeah, I don't think of rivers being anywhere near that deep. And I guess the point is that most of them are not, but this one is. Yeah. Okay. You can't touch the bottom, Andy, even on tiptoes.
+
+[00:23:06] There was advice literature about beards that you could get back in the day in the time of beard mania. And one of the best ones, according, again, to Dr. Witty, was, don't, a manual of mistakes
+
+[00:23:21] and improprieties, more or less prevalent in conduct and speech. And this was like a little pamphlet on every page it told you stuff you weren't allowed to do. At no stage did it tell you what you could do instead.
+
+[00:23:32] It only told you what you couldn't do. And on one page, it says that if men have beards or whiskers, you should be careful to wash them after smoking and should not get in the habit of pulling your wistker. as adjusting your hair or otherwise fingering yourself.
+
+[00:23:48] Sensible advice then, sensible advice now. Yeah. Some things don't age. But what am I supposed to do with these fingers? The funny thing about omelets is that I've had maybe 20, 30, maybe even 40 different kinds of omelet. They all have tasted the same. I've never had an omelette that I can differentiate. This is a taste bud thing, isn't it, Athena?
+
+[00:24:08] I mean, that sounds like you need to get your taste buds looked at. But specifically, a cheese omelet, mushroom. spinach omelet, it's a small egg to me. Do you feel that way? I kind of do feel that way, actually. You can taste the mushroom within it, right? But at the same time, I think what the egg does is it overpowers everything. So it doesn't matter what you put in it.
+
+[00:24:27] It's just an omelette. It is powerful. You should try eggless omelet. That's what you need. Oh, that's the cheese sandwich. That's what that is, and it's better. On the Challenger expedition, which I had never read about, they collected 4,800 new species, and they found the Marianas Trench on that expedition.
+
+[00:24:43] That's incredible. Yeah. Do they just have seven miles of cable or whatever it was? I actually don't know how... Solar, I think, maybe. Yeah. In the 1880? Yeah, so it was weird.
+
+[00:24:53] Maybe. I'm no sure. That's incredible. Yeah, yeah. It was, I can't remember anything about it, but it does sound like an amazing expedition. Yeah. Maybe it was, I once dropped a can of coke into the ocean,
+
+[00:25:05] very shallow, and it hit the bottom and came back up. So maybe that's what they did. Maybe they had sort of a... What are you even talking about? Well, maybe they got over the Marianas trench, dropped a can of soda. Was it Diet Coke? It was, I can't remember actually.
+
+[00:25:15] Because diet Coke floats and normal Coke sinks. Ah, so it must have been sealed? Yeah, sealed, yeah. Hang on, it went to the bottom and it came back up again. Yeah. And you're suggesting that maybe they timed how long it took to come back. I'm just trying to spitball how this happened, and I just know that I've had practical experience with a... Did that?
+
+[00:25:32] What practical experience have you had, Andy? Whoa. Yeah, people in glass houses. I've never... Compared to the rest of us, that is an expert. With this one experiment. So hang on, it went all the way to the bottom. Who knows?
+
+[00:25:46] No, no, no, you know, because this is your experiment. It went all the way to the bottom and then came all the way back up to the top. Well, what I did was I did it in a swimming pool and then in shallow water and then when we're out on a boat, we put a coat can in, it disappeared for something like five minutes and then it bob back up. That's really interesting. It could be a change in pressure, I guess. Could be an octopus holding it. Red the back. I hate Diet Coke.
+
+[00:26:09] Toss it back up. Why has Diet Coke never come down? What's what's going on? Wow. That's proper science, I would say. Yeah, you would have been on this expedition. I'm not suggesting this is a real thing. Do you know where the largest man-made waterfall in the world is?
+
+[00:26:30] Do you know who owns it? Who owns the largest man-made waterfall in the world? So we're more likely to get who owns it rather than where it is, is what you're saying? Is it a squillionaire who we've heard of? Yes. Have they recently been to space? They have not. Mosque, Elon Musk.
+
+[00:26:45] No. Bill Gates. No, think of someone who has got no taste whatsoever. Trump, Trump, you kidding. How did you all get that straight away? Amazing. I feel like that clue was too easy to get. This is at the Trump National Westchester Golf Course,
+
+[00:27:02] and basically every one of his courses has a fake waterfall, and each one is more tacky than the previous. And they're so huge, if you're playing anywhere near them, you can't hear anyone speak, because there's so much water going over the top of them. And this one at Westchester is the world's biggest. There is one at Changi Airport, which looks really big to me and possibly could be bigger,
+
+[00:27:26] but according to Guinness Book of Records, this is the biggest. Wow. Do you know how tall it is? Did you say? I don't. I think it's 5,000 gallons go over every minute or second, because I'm going off memory. Okay, working out from that.
+
+[00:27:41] Yeah. But another fake waterfall can be found in Australia and can be seen on our TV from time to time. Can you guess where that might be? Credits of Neighbors. No. The Herbaless is advert. It's on TV and it's in Australia. So when do we see Australia?
+
+[00:27:57] Oh, so maybe air is rock? Is there like a weird bit of water that comes down? Water comes down there occasionally, but airs rock. I don't know if you know. Or Uluru is not a fake rock. So hang on. It's a fake rock that we see on our TV. A fake waterfall.
+
+[00:28:11] waterfall, but there's in Australia that's on British TV sometimes. Very famous waterfall. Famous, but it's fake. It's fake. Is it known that it's fake, or is this a secret you're busting open? I'm not busting it wide open, but I think some people know. The Sydney Opera House.
+
+[00:28:27] It's not a waterfall. I wonder... I bet there's a feature somewhere. I panic. I panicked. We've been there. Yeah, I didn't see a waterfall. I just... I'm naming things in Australia now. Crocodile.com. There's often a attractive young TV personality underneath it.
+
+[00:28:44] Neighbors? No. No, but you can't just say neighbors. Oh, oh, oh, oh, oh, oh, I'm a celebrity. I know you are, Andy, but do you know the name of this show? Okay, so I'm a celebrity, get me out of here. Yes, so they have that kind of place where they all go for a shower underneath a waterfall, and it turned out recently they found out that this is a completely fake waterfall,
+
+[00:29:06] and they can turn the taps on it off whenever they want to. You're kidding. And whenever anyone goes for a waterfall shower, they just turn the taps on and they get watched. That is brilliant. Do they that was like Mylene class literally turning a hot water tap as the producers? Yeah, producers. What a shame about what a shower that would be. So which poor producer has to stand there watching the dry waterfall 24 hours a day in case someone stands under it?
+
+[00:29:28] I guess it's not that bad a job, is it? It's one for an intern, I think. It's really sad because President McKinley used to genuinely really love. of handshakes. He used to, it said that it was his favorite thing to do was shake people's hands. And this guy basically used it as a tactic, as a, you know, way. Yeah, because it was, it was, it was him that was killed this way, right? McKinley. Yeah. And he was killed, it was, it was, at a fun fair, wasn't it? He was, he was at the Buffalo. Well, it was like the Buffalo World Fair. It was one of those places. Sorry, there was a really big different street fun fairs and the Buffalo
+
+[00:30:04] world. They were fun, I think, is, you know. It was fun. Space Fair. Dan was just using it as a descriptor. It was a fun fair. Not for William McKinley, but for everyone else there. It's like the fun fair down at Finsbury Park, as opposed to, you know, this massive world fair where they were showing off, you know, American industry and like Bell or whoever else was. My poor kids. Yeah. This is fun. This is fun. Dad. Speaking of concrete, there was a woman that called Sarah Guppy. And in 1811, she had, invented a new way of making piling for bridges. So when you make a bridge, you need to kind of fire some stuff into the ground so they'll hold it solid and put some concrete in there to make the foundations. And so she came up with a new way of doing this. And she was a friend of Isambar
+
+[00:30:54] Kingdom Brunel. And so Brunel basically used all of her piling tactics for all of his bridges. But she didn't patent it because she said, it is unpleasant to speak of oneself. It may seem boastful, particularly in a woman. So she decided not to patent it and this kind of technique was used in a load of bridges. Come on, Guppy. She did come up with a few things that she did patent. So she came up with a method of keeping ships free of barnacles
+
+[00:31:22] which made her 40 grand from the government because it was so important. That's so important that as well. Exactly. Not a lot of money for how important that is. She must have identified there was a guppy in the market. A gaffing the market. Yeah, no, no, yeah, we did get it.
+
+[00:31:37] Very guppy. It feels like it's not the right guppy pun when we're talking about ships and water. Here's another quite French politician, Gaston D'affair. And he was a participant in the last duel that ever took place in France. This was in 1967. And DeFerhead insulted René Ribeier in the French parliament.
+
+[00:32:02] He'd said, Tecee vu abruti, which means apparently shut up, And so they decided they were going to have a duel. And DeFer vowed that he wouldn't kill Ribier because it was the night before his wedding that they'd organised this jewel. But he said, I will only wound you and spoil your wedding night very considerably. Otherwise, it wouldn't be DeFair.
+
+[00:32:27] It's just stunning. And James, what was the upshot of the duel? So DeFair won, but it was a couple of, there were a couple of Nicks that he put on Rivier. He wasn't like he didn't chop his penis off or anything. It was just like a few cuts. And then the guy who was officiating the jewel, who was France's secretary of state for foreign affairs, decided this is enough.
+
+[00:32:49] Enough's enough. We're going to call it a win for defer. I've actually been up a lookout tree. Yeah. Yeah. So in Australia, sort of south of Perth, there is three trees. The Dave Evans bicentennial tree.
+
+[00:33:03] There's the Glossester tree and the diamond tree. I don't know which one I was up because I went as a kid. like 10 or so. So basically the way you get up these trees is that they slammed in these metal bars and they would go circular around it and you would climb to the top and then you'd have that hut there. And it was petrifying, but I had sort of kid confidence to get up to the top and you climb. And so you climb on these metal bars. You're climbing on all fours. Yeah, you're climbing on all fours and there's nothing underneath you. Like there's no, there's no meshing. You employed by the Forestry Commission. They open it up to the public. So it's no longer a used
+
+[00:33:34] tree and for those purposes. And so tourists can just rock up and go. And they say, don't go up if you're afraid of heights or if you might have a heart attack or if you're a kid. I don't know why I was allowed up. And I do remember we went to the top. My sister and I and there was a couple sitting, shivering, petrified in the corner of the the hut at the top. And we went too scared to go back down? It was petrifying. If you look down, I mean, it's- But is it, when you go back down presumably you have to climb back or descending a ladder yeah right exactly with much more of an angle I guess yeah and here's the thing there was no system whereby you would go up one way and come down the other sure you would bump into people coming up on the way yeah yeah so you
+
+[00:34:13] would you have to go all the way back up like if you're only 40% of the way down and there's 60% of the way up is it like you have to climb all the back up to the top I remember shimmying past someone who leaned into the tree yeah yeah it does sound horrific this I mean I would absolutely love to do it but also why did you call it the glossester tree is that what they call it on Australia? No, I'd probably just pronounce that weirdly, hey. Well, I thought maybe all Australians do because they can't pronounce, you know, English place names. Gloucester, yeah, it would have been the Gloucester tree. I certainly have called it the Glouc. I was once skiing with my in-laws, and I was at the top, and I didn't, I don't like other people seeing me skiing because I'm so
+
+[00:34:47] bad at it, and I get really embarrassed because I keep falling over and stuff. And my father-in-law went down the first bit, and then he stopped. I'm like, fuck's sake, he's waiting for me, because he's trying to be polite and he wants to wait. So anyway, I was like, I'm not going. I'm not going. So I waited at the top, and I waited at the top for about 40 minutes. And then eventually he went down, and then I kind of followed him down. And then I spoke to him afterwards, and he said he was too scared to go back down.
+
+[00:35:12] And he was just trying to get up the courage to go down. And I thought that he was, you know, just, yeah, spying to see if I was going to fall over. God. So funny. That's very. That's such a weird situation. Just all the women in the family in the bottom going, why? What are those two doing?
+
+[00:35:30] That is a moment where you can. go to Palina, you've married your father. There was a mountainer who made kit out of balloon material. So George Finch was an Aussie mountain climber and he went on the Mallory expedition in 1922 and invented the Ida down coat, the puffer jacket
+
+[00:35:49] essentially from hot air balloon material when everyone else on the trip was wearing tweed. So it's a really radical thing to invention and all the other mountaineers laughed at him. It's really, you know, it's... He wasn't. He was wearing a basket on his feet. But it might as well as well as it was.
+
+[00:36:03] But it might as have been laughed at by a lot of people wearing tweed. I know. Sounds like my school days. And he was really looked down on by the other mountaineer. So he was observed repairing his own boots. Very, you know, very unclassy behaviour. And the deputy leader of the expedition, who was called Colonel Edward Strutt said, I always knew the fellow was a shit.
+
+[00:36:23] Just because he's invented a new jacket and he's cleaned, repaired his own boots. What a way with words this guy had. That's true. Yeah, but he had the last laugh because obviously no wind got through his amazing jacket, and he was feeling a lot warmer. Yeah. So today, there's still something like 500 lookouts in America, and they reckon it's a 50-50 split of men and women.
+
+[00:36:43] And they reckon it kind of was that in not the very earliest period, but as soon as the sort of ceiling was broke and the first woman started doing it, which was this lady who was called Hallie Morse Daggett, and she became the first female to serve in the Forest Service. And it's an amazing recommendation that she got in order. Did you read that letter? Yeah. It's incredible.
+
+[00:37:02] This guy who was the ranger, he wrote a letter to his boss saying that he thought that Daggett would be the best person for the job. But obviously, there were three people applying and two of them were men. It should have gone to one of them. Certainly should. I agree. Okay. We can all agree on that.
+
+[00:37:16] No, no, no. I'm backtracked. So how on earth did this woman get the job? I don't understand. Oh, I am still furious about this. So what he wrote in the letter was the novelty of the proposition, which has been unloaded. upon me and which I am now endeavouring to pass up to you may perhaps take your breath away.
+
+[00:37:35] Like just like even that thought alone. I like the fair at the end where he said she is absolutely devoid of the timidity, which is ordinarily associated with her sex. Yeah. Okay. But she's not afraid of anything that walks, creeps or flies. She is a perfect lady in every respect. Wow.
+
+[00:37:52] That's a perfect lady. General Motors, they make artificial stalactites out of their car byproducts. pretty cool and pretty weird for bats yeah for bats to cling on to so they've installed a couple of hundred of these across the USA they put them in caves because it gives the bats more surface area to spread
+
+[00:38:11] out and hang from and that means when the bats have more space they don't all cluster together because when they cluster together they spread this disease amongst themselves called white nose syndrome which is kind of fungus that's very bad for the bats and as we know if we've learned anything it's that you should try
+
+[00:38:27] and keep the bats healthy And so General Motors have started installing these. Right. What do they? I thought you were going to say there was some sort of amazing benefit for General Motors as a company to do this. Just PR. The intangible benefits of PR are huge den. I'm talking about them now.
+
+[00:38:42] General Motors, ooh. The bats tell their other bat friends and they tell their other bat friends and before you know it. There we go. Is the car market big in the bat world? Do they particularly like? Yeah, the Batmobile. Come on. Good point.
+
+[00:38:54] It's just the one model, isn't it? That's true. You'll get letters. There are loads of models there are. Oh my God. There are dozens of models in the back. Sorry. No, thank you for saving me because I saw what you think about letting me drop myself in there. There's an old wife's sale that you tell if something is a fossil by licking it.
+
+[00:39:18] Oh, yeah. Is it supposed to, like, have air holes and it's, like, stickier to your tongue or something? I've got to tell you, I've been on so many archaeological sites, and once in a while, like, some of the undergrads will be like, nobody knows what on earth it means. They've just got stone to their tongues. I don't think it's very interesting. But what's the idea?
+
+[00:39:36] As in, what are you meant to get from it that people are doing it? It's supposed to be different. I think it's supposed to stick more if it's actually a fossil. It's supposed to be like... It's not. Oh, what is it now? It's like supposed to have little tiny holes in it, that when you put your tongue into it,
+
+[00:39:50] it kind of sticks to your tongue. And I worry very much that your undergrads might have heard this on QI. I think we might have... Oh my God, I think you're right. We might have a retraction to make if that's not true. true. Yeah. Yeah.
+
+[00:40:06] We honks your undergrads accidentally. And I'm sorry. It's not very, the best method is actually just to see if it will break apart, which is kind of similar with the crop. Because if it's, if it's bone, it will just snap. But obviously you don't really want to be snapping fossils for obvious reasons. Yeah. But I've definitely been on archaeology.
+
+[00:40:21] I've got two fossils then if you do that. You're not coming with me. Oh, James. What, we found 16 finds. I swear you started with eight. But no, yeah, I was on an expedition and they were like, and we have this massive argument about if something was a fossil or a stone. And I might have accidentally dropped it and it made such a loud noise. We were like, that's a stone.
+
+[00:40:48] But then another time a professor was like massively arguing with you. And I was like, I swear it's a fossil. As you can tell, I think everything is a fossil, even when it's stone. And he was like, no, it's not. It's a stone. It's a stone. And then he went, look, you can't break it. And then he broke it.
+
+[00:41:02] And he was like, oh, let's just pretend that I never have. So much history destroyed. By the professor, that was the best thing. But yeah. The other marine worms do that kind of dissolving thing, don't they? There's a worm called the zombie worm, which feeds off skeletons of mostly whales, but other dead ocean animals at the bottom of the sea. And that sends acid out onto the bone, which kind of melts it.
+
+[00:41:27] Well, dissolves it. And then they just live inside whale bones forever and ever. And they're really cool. The thing I like about them is that the males just live inside the females forever. So there'll be one female and then they'll have about 100 males living inside them. No. And they just live there and they feed off her yolk of her ex. And then eventually they inseminate her.
+
+[00:41:47] Because they found, they were looking for the males, right? Because they knew, they found the sperm inside the females. So they were like, well, where are the males? And it turned out the sperm was the males? No. It's like they're the little guys who live inside the female. That's incredible. Do the males ever leave the female?
+
+[00:42:02] and find their own a new female. Do they ever break up? I don't think. I think you haven't got a choice. It's very much an arranged marriage to the situation. But what about when the female gives birth or when she lays eggs that then hatch? Yeah, they must have to swim around
+
+[00:42:16] to find another female presumably. Yeah. Do they get that when they hatch, when a female hatches, as in when a female one of these fish hatches, how do they get new males? I guess, yeah, you're right. They're to swim around and they find each other. I don't actually know.
+
+[00:42:29] They probably just look for some tasty bones where everyone else is hanging around. That's where the term boning comes from. What am I talking about? The interesting thing is that they live on whale bones, but also they've been found living on like the food, the bones of the food that people throw on the board. Really?
+
+[00:42:48] Yeah. And that is where the phrase, Throw Me a Bone comes from. Yes. Yeah. There was lots of reasons that people climb Montblanc. This was from a book called Killing Dragons, The Conquest of the Alps by Fergus Fleming.
+
+[00:43:01] In 1818, there was a Russian count called Matsewski who did it because he wanted to improve his poetry skills. Hmm. Oh. Yeah? Do you think, no? I don't know. What's he practicing there? Is it the writing of?
+
+[00:43:15] I think he's thinking, seeing all that beauty will help my poetry. Yeah, I kind of think of that. Being inspired by amazing stuff. Because there is a Shelley poem called Mon Blanc, which is one of the worst Shelley poems in existence. Is it? What is he rhyme with Blanc? Blanc Monde. There was someone I knew had a tutor who, you know, an English literature tutor who said,
+
+[00:43:38] poetry is better than sex, apart from Shelley's Montblanc, sex is better than Montblanc. There was a guy called John Oljo and he climbed because he wanted to see a better reflection of the mountain in the lake. So he thought he couldn't see it properly from the ground. So he had to go to the top, see it able to see it. You know the lake was there if it was halfway up the mountain. It's strange, isn't it? And also, can you really see the mountain reflection from a lake that's below you? Maybe you can.
+
+[00:44:07] I don't know. There was a guy called Comte Henri de Tilly, who climbed because he wanted to cheer himself up after a failed affair. And there was a guy called Edward Boutel Wilbraham who climbed Montblanc because he had been told not to. Cool. Wow. That's literally all I know. Was he an eight-year-old in a straw? What have you done?
+
+[00:44:27] Isn't that amazing? That would be very impressive. psychology is that. Don't climb that mountain. Is bigger. Do you think the tallest curtains ever made are taller than the widest curtains ever made are wide? Okay. No.
+
+[00:44:41] I would think width is easier to make than height. I'm going to go height. Okay, well, the obvious answer is, I'm afraid, the correct one here. I wish I could have some kind of exclusive minority report for you, but no, the tallest curtains are only half
+
+[00:44:59] as high as the widest curtains are wide. That's actually still surprisingly large proportion of the widest curtains. That's quite tall. Also, they're 65 metres tall. I mean, that's incredible. Also, all you need to do is just flip it the other way up, and then you've got the tallest curtain. Yeah, that's a really good point.
+
+[00:45:17] Just turn your landscape curtains into portrait curtains, and they're much taller. There has been a new kind of paper invented, made from biomaterials. So you take parts of people's body and you kind of squish it down and do a load of chemical stuff to it and you can get this new kind of paper. And the idea is that they can use it
+
+[00:45:38] by kind of folding it into certain ways and it will help to heal wounds or it'll help the body to regenerate organ tissue, stuff like that. So it's a way of using origami inside the human body. And it's really interesting the way they discovered this.
+
+[00:45:52] There's a guy called Adam Jacus and it's one of those discoveries where it was an accident dental discovery because he'd actually created an ink made from an ovary that he was going to use for a 3D printer and he spilled the ink and it kind of hardened and turned into this paper and he realized that he could use that. And I know there are more questions to be asked from the start of that sentence. Sure. You saw questions appear on our faces one after the other. What ovary? Well, that's the way that they make these biomaterials is they take body parts.
+
+[00:46:27] from people. Is it a human ovary? Actually, I think it was a pig ovary this one, but the hope is in the future they'll be able to use human body parts as well. Or maybe stem cells to create them. So is the idea that you would sacrifice, let's say a finger, but you would get a cool new power? No, that's not. It's almost like you haven't understood anything I've said. It's more like you would get stem cells to create some kind of biomaterials.
+
+[00:46:53] And then that would turn into a paper kind of material and you'd be able to fold. it and help to like cover wounds or or swallow it and it springs into a fake heart inside you or something. That is closer to what might happen than what Andy said. Yeah. But if you, James said you can make it from a body part. So if an extremist, you cut off your own finger. Yeah, but you'd only be using the finger to make some paper bandage to put over that the missing finger.
+
+[00:47:17] Oh, I see. I see. It's a problem that's solving its own creation. It's a false economy really. Yeah, yeah, yeah. Yeah. Pretty cool though. Yeah.
+
+[00:47:24] Amazing. Until the 70s and 80s, a lot of geographers assume that elephants couldn't swim. And so when you found elephant bones on an island, there must have been a land bridge because otherwise there's no way they could have got across. There's a debate about how elephants got to Sri Lanka, isn't there? And lots of other places used to have elephants like Malta and Crete and Cyprus.
+
+[00:47:43] None of which I think have elephants now. I've been to Malta and it's quite a small island. You would struggle to hide a wild elephant population on it. They have British homes. stars there, don't they? Which is, it's an extinct shop in the UK, but it still goes on in Malta. Do you reckon there was a land bridge once from the UK to Malta where British home stars? Frantically taking the reasonably priced outer rain garments with them.
+
+[00:48:15] God, you're right. Malta is one of those funny places, though, because they've got a BHS. They've still got a mother care. I don't think there's a mother care on the British mainland anymore. And it's just like that thing where, you know, a species goes extinct on the mainland, but it survives on the island. Yeah, but the thing is, because it's an island, they get either very, very big or very, very small. So the mother care is really tiny, whereas the British home stars is massive. That's so funny.
+
+[00:48:39] Do you know, when I got there, when I got to Malta, I shared a cab from the airport to the main town because some guy just approached me and said, do you want to share a cab? And then he turned out he said he didn't have any money. It was all a bit dodgy. You've been dupes, my friend. He was a really peculiar guy because he said he was there for some kind of corporate espionage purposes. Oh, yeah. Right?
+
+[00:49:02] And he said that's what he does. And he goes around to make sure that, for example, the Maltese mother care aren't selling... He's probably from Chinese homestars. It was so unclear what he was doing. And then he found out I had some kind of job in the media and he didn't say word for the rest of the journey, except to clarify perhaps the...
+
+[00:49:20] he didn't have any money to pay for the cab at the end of it. Sounds like he really didn't want you to mention him publicly, so it's a good thing that this will be going out to a few hundred thousand people. I have one last thing, which is, I think I have found the only copperlight street in the world. Okay, what do you mean? Like, it's paved with poo? No?
+
+[00:49:41] No, it's called Copperlight Street. Oh. As far as I can tell, I've gone on Google Maps, and I've put copperlight in, and there's only one place in the world. has it on its sign. Is it in Limeridge or no? It's an Ipswich. Oh.
+
+[00:49:56] Yeah, which is in Suffolk for anyone overseas listening. And yeah, it's Copperlight Street. It was named that because there was a guy called Edward Packer who started basically a fossil feces factory burning it up and using the energy. He was known as the golden muckman of Ipswich or the copperlight. King. Yeah, the copper-like king. Man, what a great name. Where are they finding enough fossils to...
+
+[00:50:26] I guess back in the day in the 1800s. They're everywhere, right? Somewhere near Ipswich, I guess. Norwich? No. I can't believe the way you researched, Dan, is you just type in all the keywords that we're researching that week into Google Maps to see if their places came down to them. Amma, do you think this is genius? Or are you just disappointed with your teammate?
+
+[00:50:47] I wish I thought of it first. Seven years it's finally paid off. Coprolate. Yeah. The only one in the world. Looking at that list, that massive list of coprolite facts, I just imagine Dan being like, yeah, we're running out of facts. She's going to not Google it.
+
+[00:51:04] I'm going to literally Google Earth it. You don't think outside of the box here. Okay, that's it. That's all of our facts. Thank you so much for listening. If you would like to speak to me, you can go to Twitter and you can look for, at James Harkin and I will be there.
+
+[00:51:26] If you would like to speak to Andrew Hunter Murray, you can go to at Andrew Hunter M on that very same website, and Dan is there as well at Shreiberland. If you would like to speak to Anna, you could email her or indeed any of us on the address, podcast at QI.com. And if you'd like to learn more about the podcast, you can go to no such thing as a fish.com.
+
+[00:51:48] And that is also the place where you can get tickets to the shows, which I mentioned at the top. of this show. The easier place to go for those as well is QI.com slash fish events. We will be back again next week with another episode of No 6 Things of Fish, another normal episode. But in the meantime, hope you enjoy your bank holiday weekend if you're in the UK. And wherever you are in the world, hope you're having a great time. We will see you again next week. Goodbye.

@@ -1,0 +1,175 @@
+# No Such Thing As A Fish - No Such Thing As A Snake In My Pie
+
+- Episode date: October 17, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-snake-in-my-pie
+- Slug: no-such-thing-as-a-snake-in-my-pie
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. Again, there's no such thing as a fish. No, seriously. It's in the Oxford Dictionary of Underwater Life. He says it right there, first paragraph, No Such Thing is a Fish.
+
+[00:00:18] Hello, welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covern Garden. My name is Dan Shriver. I'm sitting here with Andy Murray, James Harkin, and Anna Chisimski. And once again, we've gathered around the microphone with our four favorite facts from the last seven days. So here we go, in no particular order. Let's do it. James, fact number one.
+
+[00:00:42] My fact this week is that in the 17th century, there was a prophet called Dorothy Harling, who would cure you of your sins by urinating on the afflicted part of your body. Wow. When you've got a sin, what's the afflicted part of your body? Well, if you'd been swearing, it could be your mouth. Right. Oh, dear. If you'd stolen something, it could be your hands, I guess.
+
+[00:01:03] Okay. If you thought a dirty thought? Your brain. She'd piss in your ear. Into your ear. She would whip people first. She would whip you first to try and get rid of the sins, and then she'd urinate on you. And she was known as the permanent spring.
+
+[00:01:16] This sounds more like a chapter from 50 Shades of Grey. Does it? Well, yeah, whipping, urinating on? I mean, that's all very bondage-based activity. It wasn't uncommon to use urine in a weird medical way, though, was it? around that time in the 17th century. So they had people who would smell or look at the color or even sometimes the flavor of people's urine
+
+[00:01:38] in order to diagnose disease. And they had, you know, those color wheels you get? They had a urine wheel? Like pantone. Yeah, exactly. And I had 20 different colors of urine around the edge of it. 20 shades of pee. And so it was all to do with the humors
+
+[00:01:56] and whether your four humors were in order. But I think that would work. I think if you're, urine tasted sweet, then you might be diabetic. That's how they used to do that, right? Yeah. Yeah, doctors used to diagnose you that way. He was called Thomas Willis, the man who discovered it.
+
+[00:02:07] And it was in 1674. He said that diabetic people's urine was wonderfully sweet as if it were imbued with honey or sugar. And it was called Willis's disease for a long time, diabetes because of him discovering it. Plinney said that you could use urine for a whole bunch of ailments, but stale urine mixed with ash could be rubbed on your baby for nappy rash, which sounds just like a really unpleasant way to be entering the world. I think there's like a Mayan tablet or something like that that says this is about the patient. If all else fails, have him remove one sandal, urinate in it, and drink the urine. And this was if everything else that the doctor prescribed didn't work,
+
+[00:02:45] then that was the last thing you should try. On sandals, are they full of holes? Good point. I don't understand how I would retain liquid in my sandals. So actually drinking urine has been thought by quacks for centuries as being a way of, you know, solving any problems that you have. I think we mentioned it on QI, that, and we have a website address that we bought called DrinkMyurin.com.com.com.com.com.com.com. So if you go on to drinkmyurin.com website. But what that means is, because we still own it, all of the QI.com URLs can also be written as Drinkmyurin.com.com.uk. So if you go on to Drinkmyurin.com.com.com.com. You'll find our podcast page.
+
+[00:03:27] Speaking of drinking urine, the Sami people of Scandinavia, northern Scandinavia, people thought for ages that they would feed magic mushrooms to their reindeer, and then they would drink their reindeer's urine. Yeah. So, and then they get high off magic mushrooms, but without getting the poisonous effect and vomiting, which is what happens if you eat them directly, if you eat too much. And then this anthropologist came along and debunk this whole thing and said the Sami people did not drink reindeer urine.
+
+[00:03:50] And then he went and interviewed a Sami person. So he wrote a whole book about how they don't. And then he met some Sami people, and they were like, yeah, we do this all the time. So we had to write another book saying, actually, they do it. I read a thing about the Coriak people in Siberia. They would take a sort of hallucinogenic psychedelic mushroom, and the mushroom would send them insane into a beautiful psychedelic thing. The problem was it was quite expensive.
+
+[00:04:15] And so it has a thing in it where when you urinate, it doesn't dilute the hallucinogenic in it. And so basically it comes out just as strong, just slightly diluted from the initial. thing that you're taking. So the people who couldn't afford to take the mushroom would buy the urine of the people who just had a trip so that they could then have that. Soviet Russia, they used to, if you had chewing gum, you would chew it until you didn't have the taste anymore and then you'd pass that on to someone else to have the remnants of the taste. Yeah. Why? Because it was so rare. But if there was no taste left. Yeah, but I think I'm right in saying your mouth kind of gets used to the taste, so there's still
+
+[00:04:48] some left. It does. And that's why there's always room for pudding. It's called sensory-specific satiety, SSS. And if you are really full of your main course, you think, oh, I can't eat any more of this, whatever it is you're having, risotto. But then someone says, hey, how about a proffiterol? Your taste buds perk up and you think, oh, wait, maybe I can squeeze in a bit more food because it's a different flavor. It's a different flavor. Right. Okay. I've got a good urine, in fact. Go on. Turns out that we urinate 50% more than we drink per day. How can that be? That's what I thought. Is it because you're breathing in water vapor? No, it's because all the foods that get broken down, there's lots of water and foods.
+
+[00:05:23] Of course. That's amazing. Yeah, that is good. Well done. Thanks. You all thought it was going to be juvious. You all thought it was going to be because we are half Yetis and Yetis in the middle of Dita. The first obscenity law in England was in 1663 when poet Sir Charles Sedley got too drunk, shouted blasphemous things from a balcony in Covent Garden and urinated on the crowd below.
+
+[00:05:47] And that was also the last law written in Norman French in the UK. Wow. That's a nice coincidence. We should get a balcony. Sigmund Freud viewed urinating in public as a sign of strong subconscious ambition. Oh, did he? And if that's true, Central London on a Friday night is one of the most ambitious places in the world. I've got one more thing about you.
+
+[00:06:10] Yeah, go on. So, oh, which do you want? Do you want the one about rabbits or the one about the future? Oh, the future. The future. So as well as these doctors who were genuinely trying to work out how you could use urine to diagnose disease, there were people who practiced the art of uromancey, which is the art of telling the future using urine, and they were also known as Piss Profits, a bit more vulgarly, but they took omens from
+
+[00:06:33] different signs in it, so some people took omens from the colour of the client's urine or from its taste, or they read the bubbles immediately after it hit the bowl, so you would have to we in the divination bowl, and if there were large bubbles spread out, you were about to come into money, There were small bubbles packed together It would be illness or someone you loved would die Oh no Someone would die just because I peed bubbles Small packed together bubbles
+
+[00:07:00] Yes so be careful Can you imagine Wow And it was very common in the 17th century A lot of people slag them off Ben Johnson said that they were TURdy-faced nasty pety Lousy Farticle Rokes
+
+[00:07:12] Famously mature man So this lady Dorothy Harling She was thought to have been someone who was predicted in the book of revelations. There are a lot of these people called French prophets who came over. They were Huguenots and they would, they claimed that they were, you know, prophets from the Bible. But I just really like prophets. I like, you know, people who think that they're gods or... Yeah.
+
+[00:07:37] But I love this guy. There was a guy called Cooper. I can't remember his first name. And he was living in London. He was unemployed. And some of his friends, some of his Indian friends told him that he looked and moved just like an ancient Indian goddess. And he thought, oh, well, that sounds quite good. Anyway, so he then went to Gujarat, and he claimed to be this ancient goddess in human form. And now he lives in a holy saffron robe living among 80 eunuchs. Why didn't he say to his friends? Okay, great, whatever. Let's have another drink. Who takes their friends' comments on how they look that seriously? Yeah, but that's pretty good. Every time I saw my my mum, I believe I was beautiful if that was the case.
+
+[00:08:18] Oh, you are beautiful. I don't know. Oh, thanks, guys. Okay, time for fact number two. And that is you, Chazzynski. So my fact is that despite the fact that homosexuality is completely illegal in the South Sudan, a woman can have a female husband and a child can have a female father. Oh, how does that work?
+
+[00:08:41] So it makes sense because it's true actually across parts of East Africa. in various tribes, but one of the tribes is the Nuerre tribe. And if a woman is infertile, it's a way of her being able to continue her family line. So this infertile woman has a father who wants to pass on property to a son or a grandson. So the infertile woman marries another woman. And then this other woman has a secret lover whom she has some sex with, gets pregnant. And then she has a child by that man. But that child is officially the child of the infertile woman and the other woman.
+
+[00:09:13] And then everything, like legal, societal, cultural rights, everything like that. It's all the same as if they were a normal husband and wife marriage. It's openly accepted that that's what's done. And, you know, it's enshrined in law. And there's this other weird thing as well, which is, I think this is another tribe in Kenya. It's the Courier tribe, which is called daughter-in-law marriage. Wait, the Curia tribe.
+
+[00:09:35] The Courier tribe, yeah. Where they make the font, right? Yes, indeed. And they just carry stuff back and forth. That's what I thought, yeah, they were delivering stuff. Yeah, they deliver babies. No, the Courier, K-U-R-I-A tribe. And they have this thing called daughter-in-law marriage,
+
+[00:09:50] where an infertile woman marries another woman, and then she gives, as a wife, the other woman, to her fictitious son. So this woman doesn't have any sons, but she marries a woman, and then donates that woman to her made-up son. And so that woman now counts as her daughter-in-law, and then that woman gets pregnant, and then that counts as her grandchild. It's a very confusing system.
+
+[00:10:14] So it's like having your friend marry your imaginary friend. Yes, yes, exactly. Because having a daughter-in-law is a sign of status in certain African tribes. And again, confers certain cultural. It's a brilliant systems. Oh, my God. It's pretty great. It's problems if you can't have children yourself or if, but you want to keep a family line going.
+
+[00:10:34] Yeah. It's ingenious. Yeah. There are lots of women in Albania who live as men, aren't there? Yeah. Is it a canoe law or something like that? I think so, yeah. But actually, I say there are lots.
+
+[00:10:44] There are very few now because it's a very old custom. And most of the remaining ones are in their 70s, 80s or even 90s. But they simply live as men. So they dress as men. They live as men. And do they pretend that they are men? Or does everyone know that they're women? But they just say...
+
+[00:10:57] Everyone knows that they're a woman, but they have the status of a man. Yeah. All you have to do is dress as the man, and then people accept that you are. Yeah. And that's just the way society works. You don't marry. You're not allowed to marry, and you're known as a sworn virgin, I think. That's right.
+
+[00:11:10] Yeah, yeah. But you are officially a man, even though you're... You're a celibate man. You won't marry a woman. Okay. There is a... The Canoon law is in Albania, and he says it's a very old-fashioned one, but I think there's one of the thing, if I'm right, it's the same thing,
+
+[00:11:24] where if your wife is having sex with another guy, you're allowed to kill them, but you have to kill them both at the same time with one bullet, and they have to be in the act at the time. Wow. Could you guys just line up there, please? Stand still. I think that's a needlessly complicated work around. You could just say you're not allowed to murder anyone.
+
+[00:11:47] Yes. Yeah. It's a loophole, isn't it? It is a loophole. It almost sounds as if it happened once, and they went, Oh, no, no, it's legal. Do you not read them small print? In France, you can marry dead people.
+
+[00:11:58] Okay. It's called posthumous marriage. And the idea is that, say, I have a fiancé, and she's going to, like, inherit half of what I own. But then I die. Legally, she'd have no right to. it so they do the marriage after I've died and then she legally is part of that family and owns half of the or owns all of this stuff. That makes sense. These are all ingenious solutions to the natural
+
+[00:12:23] problems of life and, you know, how it gets in the way of stability. But all the societal problems of life mainly in the case of like gender discrimination and it's quite funny the idea. It's like they really miss the point that women go to, you know, the lawmakers and say, or the gay people in Africa and say, we're really sick of this discrimination. And the lawmakers go, okay, we'll let you pretend to be a man does that solve the problem it's like it's the suffragettes no not really if the suffragettes have gone down that road then we'd be living in a hundred percent male britain today yeah all of you have the legal right to be men uh you were talking about france a french wedding custom in the auverne region in in certain villages it's called la roti so they have the wedding and then the married couple then go off to
+
+[00:13:03] their bedchamber and then it's traditional for the wedding guests to interrupt their bedchamber in the middle of the night overturn their bedchamber and then they fill up a chamber pot with all the leftover wine, champagne, food. Sometimes toilet paper, apparently tampon soaked in tomato sauce, and they force the bride and groom to drink the contents of this chamber pop as a wedding ritual. It's supposed to signify the intimacy of their future lives together or something. Yeah, romantic, right? What a great way to ruin someone's wedding night.
+
+[00:13:32] I'm definitely going to start doing that to my friends. Or they also fill it with champagne and chocolate sometimes, which symbolises urine and feces. Yeah. I have a bit of a worry about champagne representing urine because it has lots of bubbles in it. And presumably everyone's just going to die. A small packed together bubbles as well. There's another wedding which and I really want the verification of it.
+
+[00:13:54] So if anyone belongs to the Tidong tribe in Borneo who's listening to this podcast or who knows of them, apparently if you get married in this tribe, you're not allowed to urinate or defecate or wash for three days after you get married. And it's just on this one person's blog who went and hung out with the Tijuana. Tidong tribe, but I couldn't find reference to it anywhere else. So three days you have to hold it in. That's amazing. There is been a problem with this, Anna, because if the Tidong tribe in Borneo in the middle of the jungle are listening, how are they going to tell you because you're not on Twitter?
+
+[00:14:22] That's a good point. I forgot. That's the only way they communicate. Also, holding it in for three days just after a wedding is tough. Yeah. Because you drink a lot at a wedding. That's so true. And it's going to be the most unsavour, after those three days, it's the least romantic way again
+
+[00:14:38] to end them as you both fighting your way to the day. toilet for an explosive session. Anyway. Have you heard of bride pie? No. This is an English wedding tradition. So you have wedding cake. Everyone knows about that. But traditionally in the 17th, 18th centuries around that time, you would also have bride pie. And this is a savory dish. And it had lots of little things in it, like Coxcombs, you know those, from a cockerel, or lambs testicles or goose giblets.
+
+[00:15:07] It sounds like a very unsavory pie to me. There was one recipe for a bride pie in Robert May's book, The Accomplished Cook, which included veal sweetbreads, ox tongues, a pint of oysters, bacon, chastnuts, lemon juice, pickled berries, wine, a live snake for entertainment purposes, more oysters and an onion. I always find my pies aren't entertaining. Dear Melton Mowbray, I was most disappointed on getting to the end of my pie to find you had left out the live snake.
+
+[00:15:37] Please, can you rectify this situation? Marriage is in Sudan. Do you remember that famous guy who married a goat? Oh, yeah. He had to, didn't he? He was compelled to by law. He was caught in the act. The act.
+
+[00:15:51] He was in fact. The lecto. And they said, well, in order to preserve the honor of the goat who was called Rose, he had to marry her. And Rose unfortunately died about a year later after she swallowed a plastic bag. How convenient for the man. In India, people sometimes marry trees, don't they? Do they?
+
+[00:16:13] Yeah. Why would you marry a tree? It's an astrological thing. So in certain parts of India, you are manglic if you're born on a certain day of the month, which means that astrologically you have bad luck. And in marriage, it means that you'll likely be married to a lot of different husbands. Either they'll die or you'll get divorced. And the way to counterbalance that is in a ceremony, which is called Ark Viva or Kumviva,
+
+[00:16:35] where you marry a tree or an urn and that's your first marriage and so that means and you do the full ceremony and that means you've done marriage number one now you can do marriage number two and i think the former miss world yes of 1990 was a tree 1996 yeah she did this in i think 2003 or 2004 because she was very superstitious and she was born under this sign and the idea is that after you get married you then chop down the tree or smash the urn not to be recommended with genuine husbands I feel bad for the tree, though. Yeah. Even the tree's delight.
+
+[00:17:07] You're going to marry a beautiful woman. Really? It's the wedding night. I'm so excited. Excuse me. The guy with the eggs approaching. Okay, time for fact number three. And that is my fact.
+
+[00:17:26] My fact this week. It's the discovery that Tommy Flowers, the man who was responsible for the first ever, I guess the first ever computer, you could call it, Colossus, which was designed during World War II, It's that when they were pushing forward the idea that the Colossus should be made, it kept blowing up because it was made of 1,500 different valves, kept blowing up every time they turned it on,
+
+[00:17:46] and they said this can't work, and he was convinced it could work. He worked out that by turning it on and off, that that's what was blowing it up. So the first ever bit of IT advice was to not turn it off, then turn it back on again. That's brilliant. That's really funny. So this was Tommy Flowers. Tommy Flowers. Yeah, Tommy Flowers used to work for the post office.
+
+[00:18:02] So he designed this thing. He put it forward. They said no to it. after they said no to it he solved the problem and then they said no to it again because it just took up too much space and it was going to take a year to make
+
+[00:18:13] so he just went ahead with it anyway as a kind of half secret project which is an amazing half secret project to have because it was the size of a room in Bletchley I don't know how you hide that yeah in Bletchley among people whose job it is to find out any secrets
+
+[00:18:29] he might be hiding it's literally the worst place of the world to try to keep the secret that's such a good point that's so funny yeah well we found The oldest computer ever, well, what's always cited as the oldest computer ever, was only discovered in, I think it was 1902, I want to say. Anyway, early 20th century was that ancient Greek computer from the second century BC, which is called the Antichythera. The Antichythera, yeah.
+
+[00:18:52] Is that definitely a computer, do we think? Everyone always refers to it as a computer, so it's an unbelievably complex system of cogs, which, if you spin a handle on it, which correctly show you the rotation of all the planets that had been discovered at the time, which was five. planets, I think, and could predict a lunar eclipse and a solar eclipse, and they didn't make anything nearly as complicated as that for another 1,500 years after it. The most, if anyone listening to this is thinking, oh, look into that later, Google it right now while you remember. Or maybe after the show. Just press pause and check it out because it's the most extraordinary looking item, and
+
+[00:19:25] it's so out of place and time. That's the thing. You look at it and it's like all those books that used to come out back in the 70s by Eric von von Danikin and stuff saying, oh, there were ancient batteries and stuff. and you look at it and go, no, of course not. This is completely falsified. This is the real deal. This is a thing that just is so complicated.
+
+[00:19:41] It's insane. I'm calling it. I think that's a computer. The word computer used to refer to someone who just worked out when Easter was. Really? They would have a monk whose job it was to work out all the dates and all their feasts and stuff like that. Obviously, Easter being the main one and they were called computers. If you tried turning him off and then turning him back on again.
+
+[00:20:02] I read that the Colossus was actually dismantled, bunch of them were dismantled, I think eight of the ten, and all of the parts that made it up went into the spares of post office systems again. So a large part, and apparently those are still being used today, so a large part of the postal service is still being used using parts from Colossus, the very first computer. That explains a lot. A couple of years ago at a QI recording, we had some charity guests, and one of the people I met there was he ran the computers which controlled a lot of trains all over the UK.
+
+[00:20:36] And he said they run on every system that you can imagine. There are still trains running on MS DOS in Britain today. And there are ones which run on apples. And when they first built the computing systems, a lot of the levers for the points changing and things like that, they used parts from old RAF planes and levers and things like that. Amazingly cool, hodgepodge way of doing it. The problem with that is, of course, that when you have things going wrong,
+
+[00:20:59] you don't have the parts to replace them because there's such antiquated systems. And also, if you had someone who had to fix a computer system and it's written in some old code that no one does anymore, then you're completely screwed. MSDOS is going to come back, James. Is it? C-colon slash-slash, yes. Do you know who wrote the...
+
+[00:21:18] Do you remember the opening music for Microsoft when your computer would turn on that music that it would make? Do-do-do-do-do-do. That one. It was exactly that, yeah. Do you know who wrote that? Is it Brian E-N-O? Yeah.
+
+[00:21:28] No, there wasn't that one actually. Oh, right. I couldn't tell which one that one was that James was doing. He wrote, Brian Eno wrote the one that went. Sounds like him. He got given a list of about 100 words, descriptive words, saying it needs to be sexy, informative, exciting, ambitious. All these words, and it needs to be in 0.75 seconds or something like that, or 3.4 seconds. And so the great secret of it is that he wrote it on a Mac.
+
+[00:22:00] Oh, really? Really? The first laptop was sold in 1982. They were selling them door to door. They were priced around $20,000 in today's money, so pretty expensive things. They were pretty big, about £11. But the main problem, the reason people didn't want to buy them is because they had a keyboard on them. And, like, big executives who worked in offices thought that typing stuff was something that would be done by secretaries, not by themselves.
+
+[00:22:28] And so they really resisted having anything that had a keyboard on it. That's really funny. Status indicator. Yeah. That's incredible. Computers have changed quite a lie. I was reading in the news just this week. They have a supercomputer that read 100,000 scientific papers in two hours and cross-referenced all of them against each other and found completely new types of biology.
+
+[00:22:50] Whoa. I know. Really? It's quite complicated to explain what it was, but it was something like they were looking for a specific compound and they looked for mentions of it in all these 100,000. papers and cross-reference them against each other, and they found new types of these compounds that they didn't know existed before, or something like that, anyway. That's absolutely unbelievable. I know.
+
+[00:23:11] I can't really work out what it means, I haven't to say. I'll post it on my Twitter feed if people want to read that, but it's absolutely amazing. So I was looking into code breaking during World War II. The guy who invented, who came up with Enigma, Arthur Sherbius, didn't know what he'd come up with. He died in 1929 in a carriage accident, I think, before he knew that it was being put to that kind of use. But he also invented the electric pillow. Sorry, what's an electric pillow? I assume so he patented a way of transmitting heat through various objects and so I think it's like an electric blanket just to keep your head
+
+[00:23:43] really hot. I don't know why you've worn that actually. Because that's the one problem, isn't it? The pillows get too hot. Yeah. You turn the pillow over and the other side's even hot. Okay, time for our final fact of the show and that is Andy Murray. Hello, my fact is that a couple of botanism. from Q Gardens recently checked a £1.29 bag of porcini mushrooms from the supermarket, and they
+
+[00:24:13] found three species which were previously unknown to science. That's really cool. They thought they'd run it through a DNA sequencer. As you do? Do they do that before they eat all of their meals? It's a bit like horse meat and lasagna kind of thing, is it? Like they thought they were parcini, but actually... No, it's like unicorn lasagna.
+
+[00:24:31] Yeah. That's so weird. So does that mean there are just We're missing them all because they just happen to be botanists. We've all probably eaten mushrooms that are completely unknown to science. So they got to name them, which is cool. You don't often get to name three new species. What did they call them? They call them Latin names, which translate as white beef liver,
+
+[00:24:52] delicious cattle liver fungus, and the third one just means edible. Ran out of ideas. One of the people who has a lot of animals named after them, who's alive, there's an explorer in Venezuela called Charles Brewer, Corayas, and he has a lot of animals attributed to him, partially because in Venezuela, there's so many undiscovered species that any time he goes to a new, one of the tabletop mountains,
+
+[00:25:19] he just discovers tons of new species. It's so diverse up there as well. They say that if you're on top of one of these tabletop mountains, if you have two bodies of water, literally meters apart from each other, the fish inside this one will be a complete different species of the fish side of the one sitting beside it. That's how varied and... So are you talking about the Andes, did you say? Because the orchids that are in the Andes, the Ecuadorian Andes, they have more orchids
+
+[00:25:43] than anywhere else on the planet that are endemic, only found there. One botanist called Lou Jost found four new species of orchid in a single day, all hidden in the same patch of moss. Wow. Isn't that amazing? There was a new species of chameleon found in Tanzania and it was found after
+
+[00:25:59] a snake spat out a still undigested specimen in the feet of a British scientist. Wow. So there's a snake there. He's like, oh, no, there's a snake. And then it sort of vomits up a chameleon and goes, oh, that's a new one. I haven't seen that for.
+
+[00:26:12] That's incredible. That's like that happens all the time, it seems, to these sort of, the zoologists and stuff. There was the guy who discovered a new species of monkey that fell into his notebook. Oh, no, it wasn't monkey. It was a new species of frog. The dark frog, it fell into his notebook as he was cataloging. Did he press it like a flower?
+
+[00:26:26] Just snap it shut. Leave it for three days. And then show it to my teacher. My favorite species. The species discovery is a really exciting discovery in 2010 of a species called the Australopithecus Cediba, which is a type of hominid, a new type of hominid they found. And basically this guy, Lee Berger, is a paleoanthropologist, and he was in South Africa on an archaeological dig, looking for fossils and new species. So while he was doing this, his nine-year-old son nearby, Matthew, was playing with the dog and tripped over a clavicle and jawbone, which turned out belonged to a new species of hominid. and brought it back to his dad,
+
+[00:27:05] who was like, shut up, son, I'm not, I'm busy now. Go away, come back later. Turn out he discovered a new human, basically. That's what I really like this. We don't know for sure how many species of gerbil there are. Oh, that's great. We know of 95, but I think no one's properly looked into it. With so many species, animals, we have no idea how many there are.
+
+[00:27:27] Among the 95 known species of gerbil are Wagner's gerbil, as well as Cheesemans, the South African hairy-footed, Swarthies, pleasant, Burtons, Julians, Vivacious, and Rigginbach's. I like pleasant gerbils. Yeah, I don't believe such a thing exists. I hate gerbils. I think I feel about gerbils like you feel about mushrooms. Oh yeah? Yeah.
+
+[00:27:48] Won't one on a pizza? Not too many of them, no. They have an indefinable aura of death around them. Is that a fact? No, I mean that's what James thinks about mushroom. Oh, right. Okay, got it. On the subject of gerbils, finding stuff in food.
+
+[00:28:00] There was a guy in Kidlington, which is quite near where I'm from. in Oxfordshire recently, who bought online from Tesco's a pack of hovis sliced bread. And there's just the best picture of it. So he found a whole mouse inside the bread. And it was a sort of, it looks like something fossilized, but it's this complete mouse, and it took up about four slices of bread,
+
+[00:28:19] but without a tail, and he'd already eaten some. So it was the genuine, I found half a maggot in my food. Premier Foods, who made the bread, admitted it had failed to ensure all stages of food production were protected against contamination. Wow. The Food Standards Authority allows up to 20 maggots per 100 grams of mushrooms before it's a problem, and 75 mites before 20 maggots per 100 grams of mushrooms.
+
+[00:28:45] That's quite a lot. It is quite a lot, isn't it, for 100 grams, which isn't very much? I suppose dried mushrooms are very light, so 100 grams is quite a lot. It's not dried, it's drained. Oh, okay. So just no more mushrooms. There's a species of mushroom named recently called Phalus Truziai, and that was named after a guy called Bob Drews
+
+[00:29:04] and obviously fallis because it's shaped like a penis and so this basically is named Bob Drew's penis his name of the thing Why? Does someone really not like Bob Drews? No, it was in his honour, they were friends of his and he said in an interview with the newspaper he said, I am utterly delighted the funny thing is that it is
+
+[00:29:24] I'm sorry What? This is going to go wrong No. He said, I'm utterly delighted. The funny thing is that it is the second smallest known mushroom. I can't do this. Do you need someone else to read it out for you?
+
+[00:29:40] I might do it. Sorry, I'm asked to read this because I keep laughing. Bob Drew said, I am utterly delighted. The funny thing is that it's the second smallest known mushroom in this genus, and it grows sideways, almost limp. Okay? There you go. amazing. Yeah, but he was delighted
+
+[00:30:00] that it was named after him. It also emits a foul odor and attracts plagues. Well, I understand why he's so please. The mushroom on the other hand. Isn't there a rose named after June Whitfield? In the catalogue description, it says it's good
+
+[00:30:22] in a bed, but best up against a wall. Okay, that's it. That's all of our Thanks so much everyone for listening. If you want to get in contact with any of us, you can do so via the Twitter account at QI podcast, which we are all logged into, except for Anna. So you can send us whatever you think,
+
+[00:30:45] and we'll answer it. Otherwise, you can get us on our individual Twitter handles. I'm on at Shriverland, James. At Egg-shaped. Andy. At Andrew Hunter M. The tree. At tree.
+
+[00:30:57] It's five E's at the end there. And Anna. You can email podcast at QI.com. Yes. Okay. And so yeah, that's it. We'll be back again next week. If you go to drinkmyurin.com.ukau.uk slash podcast, you can see all the previous episodes for no such thing as a fish. And we'll be back again next week with another collection of our four favorite things that we found out from the past seven days. Okay, see you then. Goodbye.

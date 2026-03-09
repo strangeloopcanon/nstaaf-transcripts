@@ -1,0 +1,347 @@
+# No Such Thing As A Fish - No Such Thing As A Sycamore In A Silver Coat
+
+- Episode date: July 25, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-sycamore-in-a-silver-coat
+- Slug: no-such-thing-as-a-sycamore-in-a-silver-coat
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish, where we were joined by the history guy himself, Mr Dan Snow. If you are a person in the UK who likes to watch history documentaries, you will know all about Dan. If you are a podcast fan, you may well know his podcast History Hit, which is an absolutely brilliant history podcast that both myself and Anna and Dan have recently appeared on. So do look for his podcast.
+
+[00:00:30] and listen to our episodes and indeed all of the episodes of that brilliant show. Actually, while you're on the podcast app of your choice, why not find mine an Anna's new podcast? It's called Quite a Good Sport. And I'll tell you some more about that in a minute because I should also say we're going on tour. The tour, which we booked so many months ago and felt like it was so far in the future is just around the corner.
+
+[00:00:57] Ah! If you live in Edinburgh, that will be our first date and we'll be playing there on the 14th of August 2024. You can see a live podcast recording, including all the bits that I normally cut out because we can't possibly broadcast them. It will all be there in Edinburgh. I really hope you can make it. We love doing these shows and we love meeting everyone afterwards. If you live in Bristol, Dublin, Glasgow, Newcastle, Cardiff, London or Manchester, or the environs of those cities, then do go to No-Suit, things. of fish.com forward slash live and find out how to get tickets for the shows that are near you. Anyway, just quickly back to that new podcast of mine and Anna's.
+
+[00:01:36] What I think I'll do, rather than explaining what happens, I'm going to put a little teaser at the end of this week's episode. So once the show's finished, if you listen on for another minute or so, you'll get a really good idea of the show. It's basically me and Anna speaking to Olympians and then trying out the sport ourselves. So in the latest episode, we speak to a couple of Team GB's rowers, and then we get on the terms and see which of her and I is the best at rowing. I really think you'll enjoy it.
+
+[00:02:04] It would mean the world to us if you could click follow on your podcast app of choice. It would mean even more if you could find the time to listen, and it would be more still if you actually manage to give us a review. Anyway, stay tuned for the little teaser of quite a good sport. Go to no such things for fish.com forward slash live for details of our tour. And sit back, relax, and enjoy our latest episode with the history guy, Dan Snow. On with the podcast. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hobern.
+
+[00:02:57] My name is Dan Shriver. I'm sitting here with Anna Tyshinsky, James Harkin, and Dan Snow. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. and in no particular order, here we go. Starting with fact number one, that is Dan. When Captain Scott, the infamous British expedition leader, got to the South Pole, he saw in the distance little flag fluttering and his heart sank, and then he saw a tent.
+
+[00:03:26] And inside that tent, there was a letter. And that letter was addressed very neatly to King Harcon of Norway. It was a letter from an explorer, Roald Amundsen, who'd arrived at the South Pole, month before Scott, breaking the record, the first human being to reach stuff pole, and he'd left a little tent and a letter saying, hey, Scott, would you mind posting this to the king just to tell him I got here? I mean, shade thrown. That's great. It's a great prank, except it's one of those pranks that have gone wrong because he would have been back at home and they went,
+
+[00:03:56] you know he died. He's going, oh my God, someone, don't find the letter. Don't find my cheeky prank. You're so right. I read one theory, right, that the reason that he put the letter there is to prove that he got there because let's say he gets down there and he writes a letter and says, I got to the South Pole and then he gives it to the King. Well, it's just his word against anyone else's. But if he puts a letter there and Scott picks it up and takes it back, then that's evidence because it's another person who's seen where this letter got to. You're right. Yeah, you've got to leave something.
+
+[00:04:28] I don't know. I think that's an excuse when he gets to Dan. But, you know, Scott's dead now news. There's a really serious context, too. I just love the fact There's those pictures of it And it's just a The Antarctic America is a featureless White icy football field
+
+[00:04:43] And so they could have taken that picture anywhere And so you're right I guess you are right You've got to leave something there And also Scott literally slept there And then went started off the next day It is the most Extraordinary box ticking exercise
+
+[00:04:55] You know what I did that when I went to Bangladesh Because I tried to go to as many countries as I can And I stopped over in Bangladesh Slept there one night And then left But I count it as going there Airport hotel?
+
+[00:05:05] Yeah. I'm not sure that counts. What? Of course it does. It's kind of like touring, isn't it? I watched a Celine Dion documentary recently. And she says exactly that. She says, I've been around the world.
+
+[00:05:14] I've been everywhere in the world. I've never seen anywhere. She was in and out. Yeah. She is the Captain Scott of the Popwell. She is right? Yeah. I really thought you were going to say I watched Celine Dion documentary
+
+[00:05:24] and I was able to take off my hundred Celine Dion documentary. I only watched a second. Yeah. Still counts. Yeah. The other thing, we in Britain talk about Scott. a lot, obviously, and we ignore Amundsen, by the way, who didn't just get the South
+
+[00:05:38] Pole first, he's an absolute legend. He was the first man through the Northwest Passage and the first person to get to the North Pole as well, or being an airship. Absolutely. Does that count? That's the thing, because yeah, it was the 1920s, wasn't it? He decided to fly over the North Pole. Do we count that? I think it counts. Well, I think
+
+[00:05:56] it counts. If I've been to Bangladesh, then I think that counts. But also, he was going to walk to the North Pole, and then he got news that Peary had allegedly done the same. And then that was when he decided to go to the South Pole. Is that right? I think so. There was a failed expression to get to the North Pole, for sure. I'm not sure why he turned around. That's a hell of a turnaround in terms of the distance. Well, I believe that's the case. And I believe all of the people who are on the ship thought
+
+[00:06:20] they were going to the North Pole. And then they started going down, down, down. And they stopped off at Funchel, which is in, where is that? Portugal, I think. Yeah, one of the islands off Portugal. And they kind of then said to the crew, they said, okay, by the way, We're not going to the North Pole after all. We're going to the South Pole. And it is a dick move, much like the lesser. And yeah, he was a legend. I like him, but he was a cheeky legend.
+
+[00:06:43] I mean, he really did do that because he'd been told to go to the North Pole, but he just wanted to be the first somewhere. Oh, yeah. So as James says, thought someone else had got there and turned around his boat just to beat Scott. And the thing was, and again, this could be Lady Duff protest too much after the event,
+
+[00:06:58] but Scott insisted he was never racing. Oh, I know, brilliant, isn't it? It's so good. He was there for a scientific expedition. He wrote in a letter, oh, God, I've heard Amundsen is trying to get there before me. That's fine. He probably will. You know, he's got dogs. I've got horses. He'll go faster.
+
+[00:07:12] I'm not interested in that. Cutts a picture of Scott trampling the weak, hurdling the dead, flogging his men ever further south. I read a history once of Amundsen. It said the trip to the South Pole was smooth and uneventful. Wow. Don't bother reading off. And when they got back, they'd put it. Put on weight.
+
+[00:07:34] British expeditions anywhere, be it desert, rainforest, Arctic and, you know, highlighted. The kind of the lads arrive back, a shadow of the former cells. They've got eaten each other, broken. These Norwegians get back, many of their dogs are still alive. And they're just like, all right, lads, here we are. We're actually ahead of schedule as well. I mean, it's too cruel. But that thing, the thing of saying, does it count?
+
+[00:07:57] Because it was done by plane. That's a thing that Amundsen had his whole life after that trip, right? People didn't accept particularly the British. Astrosk. Yeah, he was like, you didn't do this. You didn't. You had skis. You had, you did it the improper way.
+
+[00:08:10] When he got back, he was at a dinner at the Royal Geographical Society. This is in 1912. And the president, Lord Curzon, offered a toast, but not to him, but to the dog team. Because he was like, they're the ones who got there. And also, he did eat a few of his dogs, didn't he? Yeah, right. I think that's, you know. If I'm going to die, that's fine.
+
+[00:08:28] I'm eating my dogs first. Oh, yeah. Anna, I'd eat you. Like, it's like, it's like, That was... Okay. That escalated. Escalates quickly.
+
+[00:08:36] Dan, why did you come back a lot heavier than when you left? And with none of your friends? You've only been to Exeter. Yeah, one-man podcast from now on no such things as it is. The dogs, to be fair, were mobile food storage unit. I mean, they were meant to be eaten and then fed to bit grim. And then fed to each other and then fed to the humans. Literally dog eat dog, was it?
+
+[00:08:56] I think that trip, as well as being an eventful, just sounded quite fun. Like, they were just reading about it. They did things like, guess the temperature contests. Well, this is not the trek to the pole, is it? This is when they were overwintering. So I think a lot of people don't focus on that bit. And when they were overwintering, they're in a hut. There were lots more of them, not just the guys who then trekk to the pole.
+
+[00:09:16] And they had plenty of supplies. And it does sound super fun. They had hot toddies, cigars, lots of music. They played this fun guest to temperature game. They had lots of puzzles they played. Scott and their overwintering fell out massively with whatever. who is his second in command, they decided they absolutely despised each other,
+
+[00:09:34] and that could be the reason that they didn't make it to the pole. Really? Back from the pole the following year because of the kind of terrible divisions within the world. Right. Do we know why?
+
+[00:09:44] Well, it's like, well, because I think spending a long time in a hut, I mean, you three spend a lot of time together and you all seem to get on fine, but, you know, add an Antarctic winter, no daylight, you know, you might follow up with each other as well. And so I think it would break any team apart, but those two just were just incompatible.
+
+[00:09:59] And the dire rising. Not a diarizing. Because you would look at Scott. going, what are you writing? What are you writing? That's whatever Andy's on his laptop, you're always like that to me, aren't you? What are you writing?
+
+[00:10:10] What are you writing? I'll eat you. Are you pitching about me? Are you pitching about me in there? I can't help. Anyone who has a diary that I've ever met, I hate it. Really?
+
+[00:10:19] Yeah, writing about you? Yeah, I get paranoid. You are not the main character. You wish they're writing about you. Had some sushi, went home. Didn't do much else. That's what's pissing me on. I'm not being rid of it.
+
+[00:10:32] Didn't see Dan today, that was a shame. Hopefully tomorrow. But yeah, it's why they, it's why whenever they send people to space or on these long expeditions, they often look for the most boring characters possible, who don't want to talk, who have zero, like, anger temperament. They're just, like, Tim Peake is such a pleasant man. We met Tim Peek. Yeah, pleasant, not boring.
+
+[00:10:51] I noticed you switched. I think, Dan Schlover, is that the application for the European Space Agency? I see lying in the bin there with rejected stamp on. apparently they're into it super boring guys it's interesting yeah oh my god well Adamson was not boring at all
+
+[00:11:12] obviously he was a character yeah he in fact I think he started his journey to the northwest passage at midnight because he had to escape gambling debts I think really when he sailed the boat off because the people that he owed were threatening to like impound his boat but it is funny this we talk about this heroic age of exploration
+
+[00:11:29] I mean so many of them were absolute clowns and charm I mean, Shackleton was astonishing in a crisis, but also he need to be because he was prone to getting crises the whole time. He best be the absolute legend when everything goes wrong, because you're going to make everything go wrong. I mean, he would leave with sort of creditors running on the key side, roaring at him and sort of also cuck-olded husbands shaking their fists. I mean, it's complete chaos, sure.
+
+[00:11:52] Wow. But he was good leading guys on the ice, you know, I guess they're different skills. And he was the next person to try, wasn't he after Scott Adams? So brilliant, there. So he went, he had a nervous breakdown and then went, you know what? Actually, it was never about getting to South Pole. It's actually the greatest prize
+
+[00:12:07] is crossing the continent from one side of the other via the South Pole. So he managed to flog this to a bunch of old, old airesses, widowed heiresses, who then gave him money for his famous expedition to the Trans-Antarctic expedition, which did not set foot on the mainland, but led to his eternal heroism because in getting them out of the mess he'd got them into,
+
+[00:12:26] he obviously won great acclaim and was brilliant. But, yeah, so that was, His big scheme was like, oh, you know, it's not about South Pole, lads. But what I find kind of interesting is Scott and Adamson got there, you think, right? So, and then Shackleton sort of said he was going to do his thing. But actually, no one else really bothered for ages, didn't they? Took a one.
+
+[00:12:45] What would you? Well, someone's done it now. In a way, why would you? Yeah. In fact, wasn't the next person to get there, or was at the North Pole? Edmund Hillary went to one of them. Hillary was the next person to walk to the South Pole. He was an over the South Pole, wasn't he?
+
+[00:12:59] Yeah, there was a guy called George Duffek who flew there. And this was in 1956. And they interviewed him on the ice. So they actually had a video camera there. Apart from they didn't have any of the images because the film froze solid. Oh, no. Oh, really? So they took it home, tried to develop it.
+
+[00:13:18] Actually, it was frozen. So they got no images. Oh, that'll be a great episode for you guys. Pictures that we know were taken and then didn't make it. Yeah. That got ruined. Like the famous D-Day. shots and the ones that we have are just a fragment of the ones that he took that day.
+
+[00:13:33] Yeah, yeah. And the British beach shots were destroyed on the way back as well. That would be great, wouldn't it? Yeah. There's also the photos that are sort of currently sitting held on ice. So, Mallory, Mallory and Irvin. Oh, yeah, well, that camera. Yeah, that camera is still missing. Kodak have said that they still think, because of the cold conditions that they would be able to develop the film, should we ever find a camera? Yeah, but I've had some photos sent to Kodak where I was just facing slightly towards the sun and they couldn't develop those. Yeah, that's true. Yeah.
+
+[00:14:03] Oh, my God. One more point about Scott is that Scott also is technically in that territory of the Mallory and Amundsen and Emilie Earhart because we don't know where he is. But we roughly know where he might be because he was left in the tent. They packed the tent over with snow and they say it would be something like 20 feet below the surface now with the amount of snow that's on top of it. So we don't know where he is, but there's an estimate that within the next couple of centuries, the bit that he's in might snap off from the side and float down to the sea. So one of his wishes would have been as a captain is burial at sea. And so in 200 years he might get his wish, which is a little nice.
+
+[00:14:44] That's nice. That's how different we are. I thought immediately as archaeologist finally we can get a hold of him. I have a good old look at him and what. Yeah. Because you'll be preserved. Yeah, you're just like, oh, it'll be so nice and buried to sea. And I'm like, let's get in there.
+
+[00:14:55] That lasts. Get investigated. I only have one thing on letters now. This original fact was about sort of letters, really throwing some shade. And I found something I didn't know about Winston Churchill. This letter he wrote when he was imprisoned in the Bull War, so 1899, and he's been taken as a prisoner for. He was only 25 years old. And him and two much older guys in the prison decided they were going to escape.
+
+[00:15:21] They hatched this really elaborate plan. And they didn't really want Churchill with them, because he was. He was a bit famous. He was a massive loud mouth and he was quite overweight and not very fit. And he couldn't speak Dutch or Afrikaans or Zulu and they could. Got it. Anyway, Churchill was like, I'm going to tag along. And then he just went off on his own and did it on a night that they didn't want to escape.
+
+[00:15:39] Jumped over the prison walls. Had no plan, no maps, couldn't speak any languages. Somehow stumbled into another British guy who rescued him. A classic Churchill, always falling into the lap of luck. But the letter he left behind in the prison was so good. he left a letter of apology on his bed to Louis de Sousa, who was the Boer's Secretary for War, and it just said,
+
+[00:16:00] I have the honour to inform you that as I do not consider that your government have any right to detain me as a military prisoner, I've decided to escape from your custody. Regressing, I am unable to bid you a more ceremonious or personal farewell. I have the honour to be your most obedient servant, Winston Churchill. Wow.
+
+[00:16:18] P.S., I always include a little bit about Dan Shreiber in my letters and didn't meet him today, but I'm sure I will tomorrow. Okay, it is time for fact number two, and that is Anna. My fact this week is that Eleanor of Aquitaine gave us fireplaces. Nice. Well, this is my claim, and I'm going to stand by it. So I didn't realize how late it was that we really started building fireplaces, chimneys, into our homes. But it was certainly after the Norman invasion in Britain.
+
+[00:16:53] And anyway, Eleanor of Aquitaine is around in the 12th. 12th century and she marries Louis the 7th in 1137 and that meant she had to move from south of France which is nice and hot to Paris, the Eel de la Cite where she had a castle and it was all cold and bare. So she refurbished and like really like stripped everything down, redid it, loads of colourful tapestrys on the wall, widened the slits. I guess I got arrow slits. She's like, what's the point in these arrow slits? I'm going to turn them into big old windows, made it nice and And she was really cold. So she had the masons build-in fireplaces.
+
+[00:17:27] And there doesn't seem to be, as far as I can tell, evidence of places really having these built-in fireplaces, like a proper hearth, as we know today. So people would always have, you know, a fire in the middle of a hut with a hole in the roof or not, or might, like, build a chimney outside a house. But, look, it's spurious. And then she married Henry II of England and brought them over here. Is that what we're saying? And then I know that she did extensive refurbishments on all the...
+
+[00:17:52] the places that she lived over here as well, the palaces. So, I mean, she must have. Okay, well, we have a historian on the show. If only fireplaces, my specialty. However, I have been to the White Tower of the great, most magnificent donjones in Europe at the centre of the Tower of London. And there are fireplaces in the Tower of London and in the White Tower. And that was built in the 11th century, almost 100 years before her. Now, they could have been... Well, they domestic fireplaces. Oh, I see it's domestic. I do not say that in my original.
+
+[00:18:25] Changing the rules here. It's not a race, everyone. They are. Listen, I think Ella Racketwein is one of the most exciting and magical figures in our history, and she deserves to be on this podcast. I'm just not sure she deserves to be on. This is it.
+
+[00:18:41] This is the only reason we're talking about her. I refuse to stray from her introduction by her places. She was, I will allow us to stray into just her being a big interior designer. if you want to broaden the other vaccine chat because she revamped so much that I think her mother-in-law refused to live with her
+
+[00:18:58] which is kind of sad but I really like the idea of her moving in with the king who she thought was really monkish this is her first marriage Oh he was a Muppet, yeah. I think those were the words weren't they that's the translation and then the mother-in-law just thought
+
+[00:19:12] this woman is taking over making it all gaudy and she moved in really good musicians feels like she really created an interesting intelligent culture in this palace which she then brought brought to Britain. She certainly did. And I love the story about her that she went on crusade with said monkish husband. And you know, they always say, my grandma, you say, go travelling with your girlfriend before you get, you marry someone. You really see them for who they are. When you're traveling
+
+[00:19:35] when you have a bit of doing kind of annoying admin, you got stuck with logistics, you get a bit of tummy problems. And you know, if this is the one. Spending one night in an airport hotel just so you could take off a country. Indeed. Murdering some non-Christian. In the case of her, of course, he was insufficiently forward in murdering non-Christians because she thought he was wet, she thought it was a bit useless. So they go away on Crusade, which is the ultimate sort of travel, get to know your partner, travel adventure, and just comes back and she just goes, I'm dumping you.
+
+[00:20:06] You are a spectacularly useless human being. And they get it all annulled in the way that aristocrats managed to do. It took a while, didn't it? It kept asking the Pope. They kept telling them to keep shagging each other and try to make an air. I think. And that did not work. The pub supposedly made them a special bed to sleep in
+
+[00:20:23] to make them more likely to have sex with each other. No way. Apparently. What's a bed that makes you more likely to have sex? One near a fireplace, presumably. Yeah? Yeah. It's nice.
+
+[00:20:32] Well, it didn't work because the year she got divorced from him, she married the very hunky young, Duke Anomody, Henry, who then became Henry II of England. So she, and everyone goes, Henry the Second's Great Empire. And I always think it's odd that we don't call it. Perhaps it's not odd, give a knee. Yeah. It's too much from so chockery.
+
+[00:20:46] But actually, it's kind of her empire in a way. the one who brings all these massive French possessions. So basically, she and Henry end up owning more of France than the King of France. And then her absolutely useless sons just spunk the whole lot of it. But only after she dies. Basically, if you look at the history of empire, it essentially lost for the course of her life. And then her, the most useless son in English history, which is up against the competition, John. John? You don't like John. Oh, okay. John of, I don't, you don't like John. Sorry, what? I'm fond of John. What are we talking about it? He gets a rep, doesn't he, Anna?
+
+[00:21:20] My God. Eleanor Varkerton was an extraordinary mother. We've got a John Truther on the podcast. I've always wanted to meet one. Here we are, friends. Also, John of England, is of England necessary? He's not from anywhere else. He doesn't have any other nickname.
+
+[00:21:35] Oh, he does have other names. Oh, yes, and you know what they are because you're grimacing. The other nicknames are Lackland and Soft Sword. Yeah. Basically, all that means is poor guy didn't inherit any land. Salford didn't really want to be too fighty. Does it not mean impotent?
+
+[00:21:53] Oh. I think all the sorts of seem to say Soft Sword genuinely is about his military cowardice. He lost the empire. When he inherited the throne by possibly starving his nephew to death, he
+
+[00:22:05] controlled an empire that stretched through much of what is now France, Ireland and England. But by the time he died, his empire was the East Midlands. A nice part of England. Nice part of the world. Don't get wrong. Nice part of the world.
+
+[00:22:18] Lucky, I would be very happy to have an empire. by that, but he just before he died, when he contracted dysentery, he lost the crown jewels while crossing the wash two set aforementioned East Midlands. So he lost the crown jewels, arrived in the East Midlands and died. And then his, luckily, for that benighted family, his dysentery saved the dynasty because his son, they stuck his son on the throne because he was so young and they worked out, they could just manipulate him. That's a nice mouthful, isn't it? Dissentry saved a dynasty. The reason I like King John is because we don't mind about owning empires. That's what we mind is about being good to your mum.
+
+[00:22:51] And I think a lot of sorts of... No, they got on well. They did. And also, well done him because her favourite was famously Richard the Lionheart, who everyone loves. And Richard the Lionheart dies. And she becomes very fond of John. And actually, I think the only time that he really showed true courage and desire to defeat the opposition is when she was abducted by her grandson, I believe, when she was about 80. And that was when John was like, no way, you're not abducting my mum.
+
+[00:23:17] and he properly went and defeated him and rescued her. Was Richard the Lionheart that good? Yeah, I think he was less good than his statue outside the House of Lords deserves. I mean, he didn't show any interest in England. He just was off on crusades. And then he got captured, didn't he? I've been to his cave. Well, they kept him.
+
+[00:23:34] Yeah, it's a 20-minute drive from where my family grew up in Austria. Am I right in saying that? That sounds right. I think it was in Austria. Yeah, yeah. It was down there. They're deepans. And they asked.
+
+[00:23:47] 450,000 silver marks, which was at the time three times the annual income of England. And today that would probably be in the trillion. It's about 1.5 trillion, something like that, maybe around two trillion pounds that they asked. So how do you get that money? She basically just had to tax the hell out of the entire country, Eleanor of Aquitaine. Right. See, good mother. Bad leader, maybe.
+
+[00:24:11] Good mother. Yeah. There's a great quote about King John. He was a very bad man, more cruel than all the others. after beautiful women and because of this he shamed the high men of the land, for which reason he was greatly hated. Whenever he could, he told lies rather than the truth. Yeah, but who wrote this? This wasn't his mate who wrote this, was it? It was possibly not his... Dan Snow. I will agree, I will admit it's an anonymous chronicler.
+
+[00:24:34] Anonymous of Betune. I didn't realize how fun bitching about historical figures is I'm having so much fun. Well, welcome to my world. Costum about dead people. That's what we do for a living. Well, what do you think then for her second husband? Because that he was more fiery, wasn't it? It was like she went to the monk to the player. Spunk. Monk spunk, that's better.
+
+[00:24:54] Henry the second, almost the great king of English history. He had a young, his son called Henry unimaginatively, and he rebelled against him. Richard rebelled against him. So he was very bad at managing his sons. Well, but they rebelled because Eleanor was very good at managing her sons, right? So Eleanor sort of persuaded all her sons to rebel against him. I'm basically in a grump sort.
+
+[00:25:15] of 700 year, 800 year long grump because if he'd managed to cement that empire, can you imagine what a great country has been stretching from the Pyrenees to Carlisle? Do you think Mbapé could have played for England? Exactly. Oh my God.
+
+[00:25:31] It'd just be glorious. And, you know, that's why I often, you know, it's like Henry V didn't wash his goddamn hands got dysentery and died, you know? I mean, it's like, sort it out, Harry, England. Twat. Wow. Boil your water before it.
+
+[00:25:45] Or drinking it, you mopping it. For Harry, for England, that's what. But also that reminds, yeah, that reminds me of the fate of the last chance, the last best chance we had of this glorious Anglo-French nation, which is the most extraordinary thing when Winston Churchill offered a full union of Britain, UK and France. In 1940, when the French had the Germans were overrun in France, desperate to keep their more, particularly their navy and their colonies in the war, Churchill goes, which is always brilliant when the Brexit, Hagg Baner's on tour much out, he goes, Britain and France, full union, bang, one insoluble country, let's do it. Let's do it.
+
+[00:26:18] The French said no. Was there any possibility that was going to happen? It doesn't feel like it was a likely historical... It wasn't likely, but I mean... Lots of things aren't likely. Yeah. Getting shot in the ear isn't very likely. I mean, like the two most consequential presence of the 20th century, FDR and Reagan,
+
+[00:26:34] FDR survived at about a six-foot range. He survived five shots being fired at him, which killed the guy next to him and other. people around him. Before he'd even, at the height of the depression, before he'd been, he had his inauguration to his present elect. Reagan was killed about two months into his first term. No Reagan, no Roosevelt. He was killed. Sorry, he was, almost killed. He was in Dubai, a fragment of a, you know, the bullet had been a few millimeters, you know, Reagan would have been killed. So the two most consequential presence of the 20th century had absolutely no right to survive,
+
+[00:27:07] unbelievable pure life. That's, that's this mad journey we're on, folks. Yeah. It's crazy. Something about Eleanor of Aquitaine that is not often said. So, Queen of France, Queen of England. Not many people have done the doll. Not many people. I think it's the only one. Mary Queen of Scots claimed it. Oh, yeah.
+
+[00:27:24] You know, sort of could have, could have claimed it. All right, how'd followers might have claimed it. What do we know about her grandmother? Dangerous. Oh, D'Ogerers. D'Oz. Yeah. Her grandmother's called D'Ogerers.
+
+[00:27:36] And who, that's all we know, right? Is there much... No one knows her real name. That was a nickname, I think. Yeah, but no one knows what her real name. name was. We think it's Amadegh. Right. But yeah, she was known by everyone as dangerous. So cool. Because she was such a player. Seductrix. Yeah. And you know, I didn't know that Eleanor just means other anal. So Eanor is a name. Sorry. Sorry. Sorry. I said, Overe anal. Yes. No, I didn't. That would be
+
+[00:28:04] Elenal. So I think her mom was called Eanor. What is this word you keep saying? So I think of how Eleanor's spelt. It's alienor. Yeah. It's how it's spelled. You knock off the E-L and swap around the A-E. So A-E-N-O-R was a name. Okay.
+
+[00:28:20] And you're called Eleanor if you're the other A-N-O. So her mom was called A-N-O-O-E-N-O. But now we only have Eleanor. We only have other an Arnors. Why is the name A-N? Well, I think we've proved that in this podcast. Why are we not got other people called A-N-O? I guess.
+
+[00:28:36] I didn't know as long as debate as I was expecting. A-N-O-L-L. When you write it down, And when you speak it is. It becomes clear. I think it's weird not to work the courts of love. Oh, okay. Okay.
+
+[00:28:48] Can we just ask Dan if he believes the courts of love existed? Okay. Okay, so the courts of love was the idea that Eleanor had this special court for women who had, you know, fallen out with their husbands and they would give them advice and stuff, right? Yeah, it sounds great. It's like a problem page. You met the other dad. I was like, why do you think I know every? Anything about that?
+
+[00:29:13] You love resolving people's romantic issues. I was so confused. Yeah, sorry, other dad. I just think it's cool that this is an idea. I think it was written down by Eleanor's daughter, and no one knows if it's sort of made up fantasy or if it really happened. And what was it? That a bunch of noble women, including Eleanor, her daughter and some other noble women,
+
+[00:29:29] would have knights turn up with their romantic problems. Like, hey, I fancy this woman, but there's this other woman who fancies me, who should I get with? And they would arbitrate. Isn't that cool? Have you tried anal? Good God As someone with a very, very formidable mother-in-law I can imagine that's the kind of stuff that they'd get up to.
+
+[00:29:54] Is that how you were selected? No, I would have never made it through that process. But no, I think if you're a very impressive, powerful old woman in the middle ages, I can imagine that you would knock heads together and sort out your love lives and your retina. So out the men. Filthy men in the palace. But I think the jury's out in general, right? Yeah.
+
+[00:30:17] The jury of the courts of love. Well, that is also medieval history. Full stop. Yeah. It's all just juries out. Really? It's annoying. The only thing we can say with absolute certainty
+
+[00:30:26] is that Elner of Aquitaine did not invent the fireplace. I cannot believe. And I know that's going to be the ending to this section and I'm furious. Okay, it is time for fact number three. And that is James. Okay.
+
+[00:30:44] My fact this week is, that when the Romans defeated barbarian tribes, they would often send them to Britain as punishment. Well, in their faces, because Britain is great. Great Britain, exactly. I'm looking at that in case you're going to say as well. I mean, it's definitely true. We know, for example, there were Syrians.
+
+[00:31:01] There's a thing on Hadrian's wall about the Euphrates boatmen that were brought up to work on the Tyne. Can you imagine? And it's also true that the Romans did regard Britain as the end of the goddamn earth. Although there are periods when the Emperor was in Britain and it was the heart of the empire. But for long periods, you're probably like,
+
+[00:31:18] you're going to get sent to the furthest frontier. I can imagine that is true. There's a great line that a poet wrote to Hadrian, he says, I don't want to be Caesar, i.e. that the emperor, stroll about among the Britons and endure the Scythian winters. So he's comparing being among the Brits as winter on the Ukrainian step. Like those are the two worst things you can imagine as a Roman.
+
+[00:31:41] What was it like when they got here? Would it have been nice? Well, I mean, it's much as it is now. I mean, it's the weather is average. You know, what can I say? I think the truth is that only Romans wrote this history, right? The barbarians. And so we have no idea really what stuff was like.
+
+[00:31:54] But you're doing the Romans hated it. Caesar was really mean about it himself and said, the Brits are the most ignorant people I've ever conquered. And Cicero said they're the ugliest, most stupid race I ever saw. And it also seems to be able. It's going through the sources of what Romans said about Brits. It seems like we were always naked. And that doesn't make sense to me because it's freaking cold here.
+
+[00:32:13] Well, one Roman source says the reason we were naked is because it was so wet. So this one Roman story said, most of Britain is marshland because it's flooded by the continual ocean ties. The barbarians usually swim in these swamps or run around with them submerged the waste. Of course, they're practically naked and don't mind the mud because they're unfamiliar with the use of clothing. And actually the sense is that wearing loads of trousers and things, you end up just getting wet and muddy. Yeah, in the way. Let it all hang out. I've also been out on a night out in Newcastle in February and they still don't wear clothes up there.
+
+[00:32:43] Yeah, no true. I guess they were made a party of stuff. I did swim in the river at the weekend and I thought I wouldn't be able to wade around in this all day, every day, come rain or shine naked. But well done, those early Brits. It's just tough as Amundsen. So there was a thing called Deportatio in insulin, which apparently means exile to an island. Sometimes you go to Britain if you've been particularly bad, Tiberius exile to Rhodes, which must have been quite nice in comparison, I'd say. Yeah. But then Cassius Dio wrote about 5,000. and Sarmatian cavalry who was sent to Britain after the Romans had taken them over. Britain was just a nightmare for the Romans.
+
+[00:33:21] Unending ulcer of pain and suffering. They did not conquer the whole archipelago, right? So you've got Ireland and you've got much of Scotland for much of the period was unconquered. And as a result, you cannot expend the resources required to fully conquer that archipelago, given its geographical and weather and nightmarish difficulty of doing so.
+
+[00:33:40] But then it's too embarrassing to leave the bit that you have conquered, but then that's almost untenable because your entire coastline from Cornwall to Carlisle across to Newcastle, it's just vulnerable to these unending incessant raids
+
+[00:33:54] by these lunatics and pick and choose the time. And then the North Coast is exposed to the unconquered Baltics and stuff. So it's a nightmare. It's a nightmare. And when did they,
+
+[00:34:02] was it like 300s? When did they finally bugger off? It's sort of pack-up shop in about 405-4-10. Okay. The biggest concentration of coin hordes in our history is from that period. It's quite interesting.
+
+[00:34:14] So you bury your money when you're very, very pessimistic about the immediate future. Like, let's get them like. And so we just got this massive spike of coin hordes. It's kind of scary. What are the Romans burying their money? All of these,
+
+[00:34:27] the villas, everyone bearing it. And of course, it also means those people didn't come back for it. Now, maybe they escaped, but it often occasionally would have meant they would kill and stuff. So those coin horns are being buried and no one's coming back from.
+
+[00:34:38] So it's just a sense of just society just kind of collapsing in the early 5th century. The kind of Romano British that were left, the Roman elite was still there. We get a letter written from the Romans going, please, the Romans come and help. And it's like, the barbarians push us into the sea, and the sea pushed us back onto land, so we have to choose whether to drown or be murdered. Oh, God.
+
+[00:34:54] You know, it's like, it is just, it's full, full Armageddonics. It's crazy. One thing that we still seem to have from the barbarians, any time someone says, blah, blah, blah, blah. Supposedly, that has come from the word barbarian itself. So the word barbarian supposedly comes from ancient Greek. And it was take... Definitely comes from ancient Greek. Yeah, sorry, sorry, supposedly comes from the fact that when foreigners were speaking
+
+[00:35:17] and you didn't understand, you would say bar, bar, bar, bar, bar, bar, bar, that's what it sounds like to us. And that has evolved to blah, blah, blah, blah. Yeah, it's any time we say blah, blah, blah, blah, we're barbarians. Yeah, because it is literally anyone who's not Roman and sort of Greek, isn't it? Yeah. And it covers a lot. The biggest barbarians of them all, the goths, probably. The gods.
+
+[00:35:37] Okay. Yes. Because they were like, sort of stimulated the fall of Rome. Oh yeah. Sorry, and wore lots of black and were really miserable all the time. This is my chemical romance. Oh, yeah. Retop in Whitby.
+
+[00:35:51] Yeah. The goth crossed the Danube, didn't they, in like the 370s? And it seemed to work incredibly well the Roman policy towards barbarians for hundreds of years. So people would knock at the door and say, hey, we want to be part of Rome, please. They might be fleeing, you know, other forces or whatever, I just want to be part of Rome. We want to be part of Rome. And so they'd be split up, tribes would be split up. They'd have to abandon all loyalty to tribal chieftains. give some of their military to the Romans.
+
+[00:36:14] And then they were sort of allowed to stay and mind their own business, I think, basically. They messed it up a bit when the Goths came over. I think they let too many over. Then they stopped letting other people. And then basically... All right, Nigel. They didn't have enough food to feed the wall. So then they got upset.
+
+[00:36:31] And then they threw this dinner party. And I think Rome fell because of a cocked-up dinner party. Really? Because it was this Roman general, Lu Pinnis, who realized the gothast. were coming over, invited a couple of their leaders. He was getting really drunk with them. He told his men to go and kind of besiege the Goths.
+
+[00:36:49] And Word got back to the dinner party and it all kind of kicked off. Everyone was a bit pissed by then. So Lu Picnis was probably a bit loose with his instructions and started killing some of the people who'd come with them. And that was kind of the beginning. And then the Goths got together, fought against him. And that was when the Roman Empire started? When was that?
+
+[00:37:06] 3.76. It's catastrophic battle at Adrianople. one of the worst defeats in Roman history where the Eastern Emperor takes on the Goths the Western Emperor is coming to help him but he wants the glory for himself, doesn't he? So he attacked too early, just got totally annihilated
+
+[00:37:22] and then the Goths just went on this rampage all the way through the Western Empire. I think the only time the Romans really got defeated by barbarians until this period was the Battle of Tudorberg which we mentioned which was all in this forest and they basically wanted to take on the Germans so the Germans attacked the Romans
+
+[00:37:39] didn't they in the forest and turned out the Romans couldn't hack it, basically, and were absolutely vanquished. I think they killed 10% of their military, and they never tried to go into Germany again, really. And that is basically why we have that division today between Latin languages and German languages. Yeah, it's one of the most significant defeats.
+
+[00:38:00] Augustus ran around the palace in Rome, shouting, Varus, give me back my legions! It was one of the worst defeats. But then they did sort of nibble into bits, Jeremy, but effectively, yeah, that policy of just, permanent expansion was sort of brought to halt at that point. Just like that today. That's why we basically have two big language groups in Europe.
+
+[00:38:19] And that's, if you ever want to repress yourself, read about that. It was a torrential rain and a dark German wood. And the Romans marching along the, and their guide, their German guide, the guy called Arminius, and he sort of disappears. And it turns out he was guiding them in this terrible trap. He had been a collaborator, but in fact, it turned out to be the leader of the resistance. And they're then just ambushed repeatedly. The general commits suicide.
+
+[00:38:41] It's just this total annihilation of a once-mighty force. I can't bring myself to get depressed about something that happened 2,000 years. There's just enough today or in the last hundred years. Yeah, no, I don't. I let myself get over that, and I think you need to work on it. God. What's the big one that wakes you up at night? This is very personal.
+
+[00:39:01] I mean, I have an overactive imagination. At night, I do kind of read about, like, the first emperor of China, Chinchewan, the most powerful man in the world, builds China, extraordinary dynasty is going to last a thousand years. within three years his children and grandchildren were enslaved and murdered in the streets coming hand dynasty and you think if that can happen to him
+
+[00:39:17] it can happen to anybody I'm just terrifying you're waiting for history here to be toppled and your kids attacked by their successor indeed but I just the horror of somebody you know the peak of their powers like Cresus in Lydia you know the rich man in the world
+
+[00:39:33] little did he know the fate that was waiting for but we can wait for all of us too and so you feel you might be now at the peak of your powers. You're at the most dangerous moment in your life. If this is as good as it gets for me, I'm a sad indictment in my life. Yes, relatively speaking,
+
+[00:39:50] I'm probably at the peak of my powers. And then one day I might, you know, I might be standing there with a kitchen life defending my house. Yes, they'll be talking about the fall of Dan Snow's empire a thousand years. They'll be talking about sort of the coin hoard of the South Coast as the Danes pulled up on the beach.
+
+[00:40:07] Harland comes over the head. I'm there having to defend my family. Anyway, that's the kind of thing I worry about. I'm glad you asked. I wasn't hoping, I was hoping to share that. Yeah. Yeah. Okay, it is time for our final fact of the show, and that is my fact.
+
+[00:40:29] My fact this week is that America has a witness protection program for their trees. Oh. Okay. This is a really cool idea, I think. There's a lot of historical spots in America where battles, civil wars would have been been thought and so on. And often, when the landscape is done of all the debris of whatever happened there, the trees will remain. And they're technically witnesses to history. In many cases, these trees might have taken bullets in from the wars and the bark would have grown over
+
+[00:40:57] and embedded in these things. So they're actually literally holding history inside of them that we don't yet know about. And so this was an idea that was set up by the chief of the National Park Services. And they decided, let's start designating trees a witness protection whereby you can't shop them down, you can't harm them. But they're archived in the Congress library and so on. And yeah, that's just a classic American. For something that we have here called a tree protection order, they just have a much cooler name for it.
+
+[00:41:23] Yeah. When you said that, I did think they sort of hide them, they move them, they get the Gettysburg trees and they move them up to Saratoga. They'll get them a new name. Why is there a bunch of birch trees here on one sycamore tree in the middle? Disguised. They're wearing a silver coat. This is brother, shut up.
+
+[00:41:43] Are people trying to harm these trees? Because that's what you would stress. I think they just want to be nice to trees, don't they? Yeah, well, I guess we do accidentally hurt trees, I guess. We do accidentally chop them down. Oh, yeah, I'm always accidentally. I don't think anyone's ever accidentally chopped out a tree. Yeah.
+
+[00:42:01] But there's a sign up, so the loggers will go around a forest, presumably, and then there'll be a big sign. It's like, this tree is protected. Which we have in this great country as well. Yeah, but we don't have a cool name. without it above. So you might be chopping down a load of trees and accidentally chopped down an important one. Absolutely.
+
+[00:42:16] It's an example of that. Yeah. And do we have it in this country for sort of trees that have witnessed great historic events? Well, we should do. We did chop down the Royal Oak. Yeah. The great story. So there was a Royal Oak that Charles, when he was then, Charles Stewart was hiding in.
+
+[00:42:30] And the parliamentarian forces were rummining around beneath the canopy and he died down the story for the rest of his life. Anyway, he then came down, went over to France. And then the Royal Oak became, he became back as. king, pubs reopened, lots of pubs called the Royal Oak, sort of it became a meme. And then in the 19th century, lots of people started visiting and chopping bits off and traipsing across this guy's farm. And this lunatic farmer's chop the tree down. Zero respect for trees or witnesses to history. Trambling his crops. Trambling's crops. But there is now
+
+[00:43:01] a daughter or a son of that tree, which was sort of recovered and grown. And then that one was hit by lightning. And Prince Charles that made him a bit sweaty. So he went and planted another tree, so there's now a grandchild. The main one's looking a bit, it's like it's been hit by Ireland. And then the other one's looking quite verdant and fresh. And it's small. It's about six foot high. So there's three, or there's two generations there on that spot. Where about
+
+[00:43:28] there? It's in Shropshire. There's the Newton apple tree, which is both in the garden of where Newton live. But they also took a cutting and made a, I guess, a daughter or a son of, They say it's a clone, so I don't know if it means it just is the exact tree. I don't know what that terminology is, but it's growing outside on one of the colleges at Cambridge. And I was reading in Merlin Sheldrake's book.
+
+[00:43:48] He wrote this incredible book about fungi and how it works in the world. And he said that he wanted to grab some of the apples off it because he was interested in making a cider. And the tour guy said, you are not allowed to take apples off this tree. The apples are here specifically for all the tourists to see them fall to the ground so they can experience gravity as it was first discovered. You're going to be sitting and waiting a long time, aren't you? It's pretty rare you actually see an apple fall off the tree. Pretty cool, though, to see an apple fall off the tree. On windy days, does tourism sort of fraudulent.
+
+[00:44:20] Get to the tree? I went to a historically important trees child today on the way to work. Did you? Yeah, yeah. And Frank, when she was in her hiding spot, she described a horse chestnut tree that was just outside the building. and it was in 2005 they found it was suffering from a fungal disease and so they decided to take cuttings and they planted it all over the world
+
+[00:44:45] and there's one of them in Highbury fields just near my house and you saw that today? That's amazing. Has her ones toppled hasn't it? I think it has. Yeah. Not long ago. There's a tree in Winds a Great Park. There's a Moat Tree in Wins a Great Park that they think has been there since before the Norman Conquers. So before...
+
+[00:45:01] That's really good. All fireplaces. Before fireplaces. So William the Conqueror would have passed That tree No way. Oh my gosh. You see?
+
+[00:45:10] But you trees, you trees in churchyards are said to be thousands of years old, right? Yes, I think there's one that's claimed to be over 4,000 years old. They're pretty amazing. I've got a friend who eat yew berries,
+
+[00:45:25] sort of like does wild foraging. And the thing about yew berries is, which people may know, the seed of the yewberry, which is inside the berry, is incredibly poisonous. So he spits the seed out. Absolutely.
+
+[00:45:36] So I went on a walk with him. once and it was me and another friend and him and you know my other friend said all right I'll taste it put it in his mouth chewing around for a while and my friend said to him and you spat to see that right my poor mate it was like no what do you mean split it out spit it out and it's yeah he just sucks the fruit
+
+[00:45:51] off but if you accidentally fall of the seed you will die I think we'd like to just say public service to our listeners do not eat you berries don't that's a metaphor for so much of life isn't it the sweet sweet outer layer the poisonous death giving fruit within
+
+[00:46:07] Okay, no more of your weird nightmares on this case. I know, I'm a workshop back. It's interesting that you know about fruit on a U-Tree. I've never thought about that because I just think about you trees as a source of longbows. Oh, yeah. Oh, yeah. They're sort of stretchy and squashy in exactly the right parts, basically. There was a famous tree, the sycamore tree, in Toll Puddle,
+
+[00:46:31] where the Toll Puddle 6 began and started the Friendly Society of Agricultural Labor, which eventually led to the beginning of trade unionism and stuff like that. The story's very interesting, but I'm not going to go into it, because the interesting thing is that Toll Puddle used to be called Toll Piddle. Yeah, I know. They rebranded, didn't they? They rebranded. They re-branded.
+
+[00:46:51] They just sounds so crap. Well, they embarrassed by Toll Piddle Piddle. I think, well, we're not exactly sure why they rebranded, but it seems likely. So there was a River Piddle that went by this town, and the Toll Piddle is named after there. And then in 1934, locals were still calling it Toll Piddle. And a journalist from the Daily Worker went there and said, is this tall puddle? And they went, oh, nobody around here don't know no such name as Toll Puddle. And it does seem that maybe because it had to be more respectable
+
+[00:47:22] and because it's such an important place for the trade union movement that they didn't think Toll Piddle was a proper name for him. So they went with Toll Puddle. Maybe. Call it tall ocean. Call it tall waterfall. Another theory is that Queen Victoria visited and they changed it for her, but we don't really know why. It might just evolve that way.
+
+[00:47:40] You can still go and have a picnic underneath the oak tree, the vine, the house in Basingstoke, where Henry VIII and Anne Boleyn used to go when they were lovers. No. If you want to really condemn a relationship, you have. Just think about the tasty fruit with the poisonous seed. Yeah. Does it have like Henry Hart? Yeah, it probably does. You know, Catherine crossed out.
+
+[00:48:06] Have you heard of the Sheffield Chainsaw Massacre? Is that the original title? This was very recently in the 2010s and Sheffield Council basically cut down thousands of trees. It was really controversial, wasn't it? Really controversial. There was like a 450-year-old Melbourne oak that was cut down. There was loads of historical trees that were cut down.
+
+[00:48:29] And basically, the council signed a contract with, an infrastructure company saying every time you cut down a tree, we'll give you some money. Maybe they're too old or maybe they're dangerous or maybe they're digging up the pavement so people might trip over it or something. And then they got another consultancy to submit a report on how many of the trees needed felling. And there was a big mistake in that second report. And so they cut down thousands and thousands of these trees in Sheffield for no reason
+
+[00:48:57] whatsoever. So it is just gross incompetence. I'm afraid so, yeah. Have they planted some trees? Oh, they will replant them, yeah. Wow, that's bad. I hope someone's head was chopped for them. HMS victory the other day.
+
+[00:49:10] And they are looking, they're doing a refurb. It's like Triggers Broome. They're basically entirely rebuilding here. Right. Where is it? In Portsmouth. And they are using oak from France because there aren't enough old oak trees. They just go ahead of oak.
+
+[00:49:25] Mature oak. You just randomly chop down. So I might have to put them in touch. Wow. I mean, but France basically is England. we've borrowed. Exactly. And the curator that was like kind of come up with this real
+
+[00:49:35] sophistry about it's great that we're taking supplies from the old enemy. I'm like, look mate. We're working together now. It's a shocker. We don't have enough oaks in this country. Come on. Just admit it. But yeah. They used to go around the forests when they're building things out of wood.
+
+[00:49:50] And they would actually find the trees that were the right shape for the bit that they need to build. So you wanted something called a knee on a ship which is a sort of vaguely right angle sort of bracket. you'd just go, that tree's got some, that one's perfect and you'd go and sort of scribble it out and then they'd know to chop down that tree and then the carpenters would be like that,
+
+[00:50:07] we'd have to do much work with that. Oh, that's great. You could just cut that midsection where it's ready. Yeah, it's so clever, isn't it? That's great. There's all these images in the 18th century of people are hanging these weird sort of cutouts on the side of trees to show the,
+
+[00:50:18] make so much sense, doesn't it? Yeah. Then did they actually, the new forest was just planted for boats, wasn't it? Yeah, a lot of it. Yeah, the new forest. So, yeah, it's my, I live there. So, my boring, forest factors. Forest does not designate
+
+[00:50:31] woodland. It's just a legal designation of forest. A royal forest is a piece of ground on which certain different types of law apply. There is obviously forestry and woodland within there, but yeah, no, lots of it's more and open ground. And that's true of the word forest. It's not just a
+
+[00:50:48] a new forest, kind of means, this has this legal meaning. That's so interesting. It's weird, isn't it? So all the ancient woodland in Britain tragically, I think, has been cut down. But so a lot of the trees in the forest now were planted various times of national crisis whether it was by Henry VIII for a Navy or Georgians or Commonwealth War obviously lots of pines
+
+[00:51:04] to pit props for when they're running out of wood The new forest does commoning doesn't it? Oh yeah we do yeah Are you a commoner? I'm not a commoner unfortunately because my house is outside the cattle grids I'm often told when I roll about on the common
+
+[00:51:20] but yes you can put your animals out which is what most the country used to be like before the enclosures came all these hedges and things That's the man. Everyone thinks it's beautiful English scenery. That's an industrial farming landscape. The man enclosed that.
+
+[00:51:33] Oh, no, I'm asking closure. You had two hedges. Oh, God, I love hedges. We don't mind edge. We don't mind edge. That's true. Yeah, so you can still go and you put your pigs out there when the acorns fall. Yes, I think, because there are various rights you have.
+
+[00:51:47] And you have to live in the right house. I'm so sorry that you're outside the castle. A lot of traumatic episode this has been for dad. Yeah, I know. That's there when his pigs in his front room going. You've opened up something because my wife is desperate to be a common at and we have failed. So anyway, I think we need more because house prices and the new forest have gone up quite a lot. So quite a lot of people are buying these houses that have the right of commoning, but they are not interested.
+
+[00:52:13] They're not real commoners. That's right. You're darn right. I'm going to test you on the rights that you'd have as a commoner then. You've got the right pasture, which, as you've said, is grazing your ponies, cattle, donkeys. You've got the right of sheep, which is grazing your sheep. I think are you allowed to pick up stokes? Firewood, yes.
+
+[00:52:29] Firewood, yes. But I actually think that they sort of give you firewood because they don't massively want you chopping it down anymore. But yeah, it's called Estevers. Yes, that's right. Estabers. The right of turbury. Yes, what's that?
+
+[00:52:41] Is that turbary? Like the fish. The right of catching turrets in the forest. No, it's the right of cutting turfs for fuel. Yes, it's tough. Yeah, yeah. Not a good idea nowadays, but yeah. No, you're not supposed to do that anymore, actually.
+
+[00:52:54] And actually, the right of turning your pigs out is called mast. Is that mast? Yeah, apparently turning pigs out to... Yeah, it's funny, that time of year, there's just loads of pigs all over the roads. Really? In order? Yeah, it's fun. Yeah, when the acorns fall.
+
+[00:53:06] And what I didn't get is, yeah, when the acorns fall, the pigs are supposed to eat them because they're poisonous to other stuff. But surely the pigs are the pigs rushing around as a horse goes towards an acorn, a pig's sitting underneath them? Like, your mate, if I try and eat a you berry, he's like grabs it out of my hash. Oh! Okay. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can all be found on various social media accounts. I'm on Instagram on Instagram. On Instagram, on Instagram, on Twitter on various platforms. Nice. And Anna, to get us as a group. And Dan, the history guy. On Instagram. That's just who he is. That's just shout out the history guy.
+
+[00:53:51] On Twitter on various platforms. Nice. And Anna, to get us as a group. You can go to At No Such Thing on Twitter or No Such Thing as a Fish on Instagram or you can email podcast at QI.com. Yep. Or you can go to our website, no such thing as a fish.com. All of our previous episodes are up there. There's a link to our upcoming tour. Get some tickets for that now. And also join Club Fish, which is our behind the scenes area where we post lots of bonus content. Most importantly of all, check out all of Dan's stuff. the History Hit Channel as well as Dan Snow's history hit show. We've been on it. I did an episode with Dan all about mysteries of history. You, James and Anna, you did a sporting episode recently.
+
+[00:54:29] Yeah, we did, which was better than Dan. That's not what I've heard from Dan himself. So not true, not true. He didn't say that. He didn't say that. But yeah, do check that out. It's all available wherever you get your podcast. We will be back again next week.
+
+[00:54:44] We'll see you then. Goodbye. Welcome to Quite. a good sport, the very first episode. So what are we talking about today? Well, today we're going to talk about the great spot of rowing and we're going to speak to Imogen Grant and Eve Stewart, who are two of our Team G.B medal hopefuls for Paris. I thought rowing was a stupid sport. It's cold, it's wet, you have to get up really early. You get blisters on your hands and you can't see where you're going. We are going to be chucking in a few interesting facts that we've learned
+
+[00:55:15] along the way. Because Adolf Hitler was seething from the stands in the despotic way that he does. Oh, mustache twitching away. And we will be trying our hand on the River Thames to see which of you and I is going to be the greatest rower. Okay, we're ready to do the first time trial. Ready, go. This is a pretty steady start from Anna.
+
+[00:55:40] Now she's really getting her rhythm. We're actually going in a proper pace. We're approaching the finish line, the red boy. Who will be victorious? The only way to find out is to listen to episode one of quite a good sport.

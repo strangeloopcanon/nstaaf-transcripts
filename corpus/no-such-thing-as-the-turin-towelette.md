@@ -1,0 +1,287 @@
+# No Such Thing As A Fish - No Such Thing As The Turin Towelette
+
+- Episode date: March 4, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-turin-towelette
+- Slug: no-such-thing-as-the-turin-towelette
+
+## Transcript
+
+[00:00:02] Another episode of No such thing as a fish, a weekly podcast this week coming to you live. I am sitting here with Adam. Okay, calm the fuck down, everyone. Starting with fact number one, and that is James. Okay, my fact this week is that in 1954, it became illegal to bear. completely naked in East Germany. So natureist started going to the beach wearing nothing but a tie.
+
+[00:01:30] So just before World War II, we've actually said this before. Hitler banned natureism in the Nazi government, but almost immediately unbanned it because it was so unpopular. And then it kind of became part of the Nazi tradition that, you know, we are going to allow people to be naked if they want to be nudists if they want.
+
+[00:01:50] And so when East Germany became a country and they wanted to be away from the fascists and with the communists, they saw natureism as like this fascist symbol from the past. And so they decided to ban it. And there's a whole load of stories about what was happening with the naturist who just wanted to get along with the kit off
+
+[00:02:09] and the East German police really were not happy about it at all. That's rough. nudity being taken down by fascism. Unless you've got a swastika tattooed onto your piece, then I don't think they're related and it's not verdant dress they are. Oh my God, I imagine that. Because really, by the time you see the swastika on the penis, it's almost too late, isn't it?
+
+[00:02:32] Yeah. Yeah. And one of the reasons why the East Germans didn't like natureism is because of the main guy who was in charge of German naturism. He was like the leading light of German naturism, really. He was called Adolf Koch. Wow. And Adolf Koch was an...
+
+[00:02:50] anti-drinking, anti-smoking, pro-homosexuality, pro-sex outside marriage. He was a pacifist. He was very, you know, modern-day woke. But obviously the communist did not like him one little bit. And so he was almost like the face, I hope the face of nature is a man. They really didn't like him. And that was one of the reasons they stamped down on it. But they couldn't, right? Because in the end, Germany is this strange anomaly of a country,
+
+[00:03:17] which I think makes them kind of the only sane country. in a way where they're all, not they're all, but more of them are much more comfortable with natureism and nudity than any other countries. And it's going down a little bit. But yeah, and it was started in Germany, end of the 19th century. It was by this guy called Karl Diefenbach, who moved himself and his entire family, and I'd like to know what they thought of this, into an abandoned quarry. Where he lived with them naked and he was taken to court.
+
+[00:03:50] And then I think he was for being naked. And then people agree that it was okay. And the thing then was, it was to emulate ancient Greek sculptures, which were considered so beautiful and shapely. And so people would come to nudist parties in the poses of Greek sculptures. And then they'd sort of paint each other and compliment each other. And sounds lovely. Right.
+
+[00:04:13] Wait, sorry, hang on. Their costume was coming in the pose of a Greek... You know, like that discus thrower. You could have a discise. Yeah, but you can't arrive at a party just holding a position. You have to be wheeled in. Yeah, exactly. That's a lot of commitment to a party as well, I'd say.
+
+[00:04:32] You're naked and you're just not moving the entire party. But Germany does have this thing of being quite passionate about the right... They call it Freikorpe Culture, which means free body culture. And it's a really big thing there. So there was a thing about 20 years ago on the... There was a resort on the island of Rugen, and there was a bit of the beach that was... a nudist bit of the beach, and there was a bit which was the non-nudest bit of the beach,
+
+[00:04:55] and the resort hired what they called Russian Politsai, or Panties Police, who their job was to ask people who were nudists, who had strayed into the clothed section of the beach, to please go back to the nudist section of the beach, but their other job was to approach clothed people in the nudist section of the beach and say, get them off. Oh, man. Surely they'd say go back to the clothes section.
+
+[00:05:21] I think they basically gave them a choice. You can keep that or you can stay here, but you can't do both. That's amazing. Wasn't there a story? I haven't rid of this down, so I don't know the details, but wasn't there a story of someone robbing either a shop or a bank? And as they ran out, they leapt over a fence to try and integrate with the people around there,
+
+[00:05:38] but it was a nudist camp. And the police came in, it spotted him immediately. Only doing the clothes on. In nudist resorts, the shoplifting is genuinely very low, as in, because where are you going to put it? You're only going to hide things that are very thin. Absolutely. You can steal some cigarette papers, but that's it, really.
+
+[00:05:58] And no one's smoking those cigarettes. That's like Cape Dagde, which is a French holiday resort. Which I didn't know about it, it's a full-on naked town. And in the summer, the population reaches 40,000, which I guess is just mostly visitors. but it's quite odd because the visitors don't wear any clothes, so everyone's naked, but there are lots of shops and the post office and banks and stuff like that, and all the people who are serving them in those places are fully clothed.
+
+[00:06:28] So it's very surreal for lots of naked customers and they're just in uniform bank teller giving them their money that they can't keep anywhere. But yeah, there's very little crime, and they refer to the closed people that you can see on the opposite bank as textiles. That plays, Cap Dag. I think it's having a bit of an identity crisis at the moment
+
+[00:06:54] because it's turned into a very sexy place and swingers are starting to turn up and the nudists are a bit put out about this because, A, natureism is not about sex or sexiness, it's about being natural and, you know, feeling your body in nature. I don't think it's a completely incomplete Venn diagram though. Well, yeah, this is the thing.
+
+[00:07:15] So the nature is genuinely are saying we're not swingers and the swingers are turning up, but the other thing is that swingers turn up and wear sexy clothes, and the natureists hate this. Oh, really? Yeah. Yeah, someone was saying most of the shops that are weirded clothes shops, but they're selling kind of S&M fetish.
+
+[00:07:30] Actless chat. That sort of stuff. Exactly. Which absolutely is not what natureism is, really. It's about kind of innocence and being freed from these constraints of, anyway. Look, I've got a speech I'm giving out. afterwards. Can I ask a very stupid
+
+[00:07:47] question? This is genuinely stupid question, but if you were a naturist, would seeing someone in clothes be the equivalent of a sexy magazine? I think... Is the opposite of what... Is like their playboy
+
+[00:08:03] just... I don't know. They go to clubs actually and they watch people wearing heavy tweeds dance around the pole. There was a bit of a moral. panic back in the East German days, what I'm talking about now. So there was a moral panic that people who were clothed and were walking past the German natureists were having their clothes stolen and being thrown into the sea. And there were a few reports, and we think it probably
+
+[00:08:29] didn't happen, but they were just fake reports that it was happening. Wait, clothed people. So you're a normal clothed person, just going about your business in Germany. Yeah, yeah, yeah, yeah. And then suddenly a load of naked people come along, they grab all of your... clothes, they ripped them off and say, this is a naked place, and then they throw you in the sea. Wow. They throw you in the sea? Yeah. Genuinely, that was one of the reasons why they tried to panic, because this kind of moral
+
+[00:08:54] panic came, and it was in the newspapers that this was happening, and everyone's like, oh, my God, I'm just going to be walking down the street in Berlin, and people are going to rip my clothes off. We need to stop these naturists now. Good identity parades you'd have at the end of all that, wouldn't you? I recognise that swastika right there. Can you ask him to do the salute? Oh my God.
+
+[00:09:18] There was some small justification to being paranoid about it being co-opted by wild perverts. So in the 1930s, when the movement started to take off, there were fewer than 10,000 members of the Natureism Society in the UK, but the second issue of Sunbathing Review, which was the euphemistic name for the nudist magazine, sold 50,000 copies. And there was a small suspicion that some...
+
+[00:09:43] of the people buying that were not actually nudist. They just wanted to see loads of naked people. Which makes sense. And photographers for that magazine used to ship models to nudist beaches, take photographs of them and then leave. But that was a big thing, wasn't it? So around the world now, the article that I read, there may be more now, but there's four nudist libraries in the world today.
+
+[00:10:04] Really? So a nudist library, it's a combination of two things. One is it's a library about nudity. So it's just got magazines, it's got books, anything that is about nudity. So the magazines that they have are not Playboy or anything to do with sexuality. But in the 60s and 70s, there was a boom when a law got taken down to say that nakedness could be represented in magazines. And a lot of magazines with nudity were printed. And so this is a library that has all of that. But you are allowed to be naked in it as well. It's a,
+
+[00:10:33] it's a nudist, nudist library. Here's one thing that happens to nudists. This is according to Stefan Deschen, who is the new co-president of the International on nudism federation. He was interviewed recently about nudism, and he said that one thing you can get, if you're a nudist, is you get phantom clothes. Okay?
+
+[00:10:52] He said, after decades of... This is the article. After decades of living as a naturist, Deschen still sometimes reaches to pull up his non-existent pants after using the restroom. How weird is that? I see it.
+
+[00:11:05] I see that. That makes sense. Yeah. Do you know, so when I was looking at this fact, I literally, I think I typed in something as simple into Google to kick off as natuism history.
+
+[00:11:16] And one of the first results was natures cleaners, which is the UK's leading natures nude cleaning service. I cannot believe this exists. So naked people come to clean your house, and it's a professional cleaning service. I feel like I would have to hire another cleaner for wherever they'd sat. It's like, oh my God, no, no, no, don't sit there, don't sit there. They don't arrive at your door naked, though.
+
+[00:11:44] That's a really good question. I don't know if they do. Because you're not, that's illegal, isn't it? So they must arrive in maybe a trench... It's not illegal. It's not illegal. It's not illegal. It is actually, it is here in Ireland.
+
+[00:11:54] Is it? Nuttas. Yeah, Ireland hosted the 2014-34th International Natureist Congress, despite it being technically banned by law. Yeah. You prudes. You have a series, a selection of secret coves that Irish nudists go to.
+
+[00:12:09] and it's all done See you all after the show? So is it, Andy, if we were back in London, is it legal for us to just walk around? According to the website of the Great British takeoff from last year,
+
+[00:12:25] they are very, very clear on the front page, by the way, it's perfectly legal. They say, by all means, tell the neighbours, but there is no need to warn them even if you're overlooked. So long as you are not revealing yourself with the intention of upsetting people, it's fine. Yeah. I was intending to delight people.
+
+[00:12:45] Yeah, it's that... By the way, the Great British takeoff last year's, they gave you some ideas of what you could do. They're basically saying, take your clothes off in your garden. They say you could sunbathe, read, sit in a hot tub, you can have a barbecue, you can kick a ball around, throw a frisbee. Kick the other ball around.
+
+[00:13:05] Do a jigsaw puzzle or listen to a podcast. Oh. So if anyone's listening to this one in the net, hi to you. Take a photo right now and send it to us. Right now. Do it. You can do that, like, on the, in a shop or whatever.
+
+[00:13:23] Because in your garden, obviously, I can do anything in my garden. In theory, it's legal. Tesco can't kick me out if I go. Tesco's a private company. They can do it like. I have a property they can, yeah. I think, yeah, the police would take an interest if you're just walking around the center of town.
+
+[00:13:38] Okay, but, hospital, not private, NHS, publicly funded. If I walk into a hospital butt naked for no good reason, they can't do anything about it. I think you'd have to wear a mask. All right, look, we need to move on to our next fact. It is time for fact number two, and that is Andy. My fact is that in 1998, one-tenth of everything sold on eBay
+
+[00:14:07] was a beanie baby. One tenth, ten percent. So if I bought a handbag, one tenth of it would be a beanie baby. It would almost all be handbag, but the strap in one of the pockets would be feed. This is a fact about beanie babies, which for a while, everyone was insane about. Any younger listeners who missed out on the Beanie Baby craze,
+
+[00:14:30] they're just little stuffed bears full of plastic pellets. That's it. But that was the difference, because every bear, prior to the... that or any stuffed animal was completely stuffed to the hilt and there was no bend, but these little beans meant you could move it and you could do things. It was almost like it was alive, wasn't it? Because it could move around in different ways.
+
+[00:14:48] Exactly. It wasn't like it was alive. It was just floppy. It was a floppy teddy. And to be fair, I hadn't actually realized until researching this fact that that was the innovation. You know, because you grew up with Beanie Babies, you think it's always been like this. Was there ever a time before this kind of vibe?
+
+[00:15:05] But yeah, before that, Teddy bears were just like... Buff! In fairness. Constipated. Taiwan who invented them, right? He was the guy who invented them. He did say the whole idea was it looks real because it moved. He thought these looked like actual bears. Yeah.
+
+[00:15:22] So in 1998, 64% of American adults owned at least one Beanie Baby. Wow. That is ridiculous. I saw that, and I didn't believe it. In 1997, 64% like you say, owned a Beanie Baby. 48% of Americans in 1997 believed in global warming. 53% trusted the media, and 15% had a passport.
+
+[00:15:47] That's compared with 64% who had a beanie baby. Well, why you don't need to leave the country when you've got these lovely beanie babies to defy you? They started off. So, Tai Warner, who James just mentioned, he was the man behind them, and he had limited success with them, really. He released a few, and they were doing all right.
+
+[00:16:04] And then in 1995, two years after they launched, he discontinued one of them. There were problems with the factory where they were being made overseas. So he thought, right, sod it. We'll just kill off Luffy the Lamb. And suddenly, people were desperate for Lovie the Lamb. And he realized, oh, we're not going to say
+
+[00:16:19] there are problems with the supply, and we can't get any of these... And we also won't say we killed it off. It's true. It's true. Well, yes, you're right. He said, specifically, it's been retired. So that suddenly created this huge demand
+
+[00:16:31] for Lovie the Lamb. And that became the entire business model behind the Beanie Baby. hundreds and hundreds and hundreds of different models by the end, which were being brought in, phased out. It was incredibly hard to keep track of where they all were and to have a full set. But it's almost weirdly responsible as well
+
+[00:16:46] for the fact that we have eBay now, as in we had eBay at the time, but in 1998, eBay had 30 employees. There were half a million users on it. So the 10% of it was 10% of half a million users. What is that? What is what? 10% of half a million.
+
+[00:17:03] That's not what you came. You didn't come for a math test, Dan. Go on, I apologize. It's like your worst nightmare. Someone giving you a percentage question on stage of one of 500 people. Even though it's really easy, because there's so many people here, I can't work out what it is in my head. It's a nightmare.
+
+[00:17:23] You're not the CEO of eBay. You don't need to know these numbers. Anna, you are one sick puppy. It's 50,000. Of course it's 50,000. and we all knew that. But so, thank you. So, when eBay went public, here was the thing.
+
+[00:17:43] They was so desperately clinging on to this fad helping them because that was bringing in such a huge bit of revenue that even in the risk factor section of their annual report, it was noted their absolute dependence on the continued strength of the Beanie Baby. Wow. They were like, this has to keep going. And it did.
+
+[00:18:01] And everyone, Ty Warner and the owners of eBay, all became billionaires. Tai Warner's genius was in marketing. Obviously, this false scarcity bullshit, which, by the way, we're all falling for again with that weird word game that everyone's obsessed with, aren't we now? So, oh, one a day, suddenly I really wanted.
+
+[00:18:22] You know what I'm talking about. So he had some other weird marketing tricks. Tai, he wouldn't sell Beanie babies to big stores like Toys R Us or Walmart. He would only sell them to kind of small shops and he made the stores that he sold them to promise not to sell more than a few to a single customer. So, you know, you'd reach a limit. And, you know, he'd monitor the stores really obsessively and they'd be under strict instruction.
+
+[00:18:46] So, like, not discount any. If you discounted a Beanie Baby, you got all your supplies whipped away from you. It sounds kind of terrifying. And shop owners would call him and beg for stock. And the only time he'd give them what they wanted is if they had a private chat with him about what customers were responding to and what they were liking about certain ones. It was like gangster. It's very, it is a bit mafioso, yeah.
+
+[00:19:08] Yeah. There was a scheme. Allegedly. I think he was in the mob. Anyway, there was a thing in Illinois in 1998 where there was a police force, small police force in a place called Kankakee, Illinois, right? They said that if you have an illegal gun
+
+[00:19:26] but you hand it into us, you will get a free teeny beanie baby. No way. Special small beanie baby that have been made. They got 40 people handing in guns on an exchange for a beanie baby. But they were huge.
+
+[00:19:39] Yeah, the resale value of the teeny or any of the beanie babies was massive. And there was, okay, yes, he went with the independent stores to begin with, but one big decisive moment for the company
+
+[00:19:51] was when he paired up with McDonald's for the happy meal. And so he did the happy meal and they were teeny beanie babies and they did 100 million of them and they just went so quick. And it caused chaos for McDonald's. McDonald's were saying that
+
+[00:20:03] people were ordering 100 happy meals and saying, keep the food, we just need the babies. They did television adverts over the worry that massive crowds were coming and the safety of the employees were in jeopardy. They were like, please stop. It got to the point where people were calling up to order things and the people were answering the phone
+
+[00:20:23] by saying, good morning, McDonald's, we have the moose and the lamb. But then surely you want either the beef or the chicken, usually. I have a tangentially related gun facts since Andy mentioned guns. Yeah, cool. Ty Warner was called H. Ty Warner, right? That was his full name. And the H in his name, he said, just didn't stand for anything.
+
+[00:20:48] But the reason he was called Thai was because he was named after Thai Cobb, who was a famous baseball player. So then I just got distracted reading about Thai Cobb. But I found some weird similarities. Ty Cobb's story is amazing. He was a baseball player at the turn of the 20th century, so it's not too dark anymore. But basically, his mum...
+
+[00:21:06] We'll be the judge of how dark it is, Anna. I think the people of Dublin might be the judge of us. You're going to be traumatised. Ty Cobb's mum shot his dad dead when... So... It's okay. It was a long time ago. Dublin's surprisingly up for this story so far. More than 100 years
+
+[00:21:31] when the dad had suspected the mum of cheating on him and so he crept outside her bedroom window to catch her shagging another man but she thought that he was a burglar so she seized the gun that he'd given her as a present to protect herself and shot him dead through the window bam Ty Cob's life slightly ruined
+
+[00:21:55] but he did he did always credit his career success to his dad watching over him and making him successful. This is probably a good time to promote Anna's Netflix stand-up special, which will be out very soon. No, I'm calling it. That's funny. Don't give someone a gun. The way it's related is that Ty Warner also credited his dad with his career success because he used the inheritance from his deceased father to found the company.
+
+[00:22:29] So that's why I told the dark gun story. That's why she's paying the big buck. Shall we go dark? Should we keep going dark? This is according to the new book. So this is the great Beanie Baby bubble by Zach Bissonette, which a lot of, at least the stuff that I've been reading has come from. And he said that when Ty Warner,
+
+[00:22:50] saw the guy from Beanie Babers, when his father died, he waited for five days to tell his sister so that he could clear out his father's antiques collection. To take for himself? Yeah. Yeah, his employees don't speak well about him. I do because he's still alive and I don't want a billion to sue us. I think he's ace.
+
+[00:23:16] Yeah. Although he was done for tax evasion, wasn't he? Yeah, but he was. He said he was. Was it $100 million, which was in a secret Swiss bank account? And every time he was asked on the tax forms, do you have money hidden overseas, he would tick the no option? And he did that for years and years and years.
+
+[00:23:33] He had a rookie era, basically. The Wall Street Journal had said that he didn't really have very much money, not as much money as he said. And so he took out a full-page advert in the Wall Street Journal saying, I've got fuckloads of money. And the IRS went, oh, you do, do you? Just another story very quickly that I just love all these fights over Beanie Babies, and there was a divorce that got taken.
+
+[00:23:58] into court, and during the divorce proceedings, one of the sticking points, which the judge got frustrated about, was the fact that the couple couldn't decide how to split up their beanie baby collection. And in the courtroom, the judge ordered them to actually split them up in the room by pouring the beanie babies onto the floor and getting them to each pick one, one at a time. Oh, like you pick a football team. Yes, exactly, like a football team. And this is my favorite paragraph in the article is, I don't agree with the judge's decision to do this. It's ridiculous and embarrassing, Francis Mountain said, moments before squatting on the courtroom floor,
+
+[00:24:38] alongside her ex-husband, to choose the first from a pile of stuff toys. We're going to have to move on, guys, to our next fact. Yeah, should we do it? Okay, it is time for fact number three, and that is my fact. My fact this week is that, due to the interests of its production coordinator, Michigan State University's planetarium not only dedicates itself to space science education, but also houses the world's only moist towelette museum.
+
+[00:25:11] And this is it here, the Moist Talette Museum. Showing a picture to the audience here. Basically what it is, is there's this big planetarium at the Michigan State University, and their production coordinator, a guy called John French, just opened the door to his office. put up a sign and started displaying all the... Yeah, I would say, Dan, can we
+
+[00:25:32] explain this? Like, maybe describe it to the people at home, because it doesn't really look like an office, it just looks like a filing cabinet. We're only things... So, on the left of the photo that we can see here is his computer and his desk, and what he's done is he set up two cabinets that should have probably
+
+[00:25:48] relevant things to his job on it, but he's emptied it and he's just covered it in moist towelettes. And he had this idea when he was at the planetarium in Texas, and he took a cabinet that had the Mars rover on it, and he put his moist towelettes on it. And he said, I noticed that more people were looking at this cabinet when it had my moist towelettes on it than when it had the Mars rover. Maybe I'm onto something.
+
+[00:26:15] And I guess no one had a choice in the matter, but he now runs the only museum that has it. And it's fascinating. He's got a thousand of these things, and people all over the world send it to him, and moist towelettes are incredible. The variety out there that we have of them is... It's not that much, actually. Oh, no, I mean, there's specific ones to wipe on your fingers for when they're blackened by a typewriter. There are ones that you should use called Radiac Wash
+
+[00:26:42] to wipe away when you're radioactively contaminated. Wow. I would hope... If I'd been contaminated by radiation, I'd hope for a little more attention from the authorities than a moist towelette. That's very much the final thing we do after the big shower. No, there was just an air stewardess walking through Chernobyl, okay?
+
+[00:27:08] A moist towel, anyone? Dan, this is the most punishingly dull area of... I think we may ever have covered the moist... This is incredible. Well, I've been captured by it too. Look, I found myself getting deep into Moist Talette world because there are interesting, very interesting elements to it. For example, did you know that 6%
+
+[00:27:26] of moist towelettes are used on cars. Unbelievable. You see? But that's interesting. Wet wipes, 6% used on cars. You wouldn't have thought that, wouldn't have thought that, wouldn't have thought it. No, like, like, guys, give it a chance. This is a fascinating thing.
+
+[00:27:44] French has been doing this, John French, for 20 years, and he's even found the holy grail of moist towelets, which he's... The moist talet that Christ used. at the last supper. The Turin towelette is... So excited, has his finger marks on it. No, he found...
+
+[00:28:03] So he's only got it... John French has a website. I highly encourage you to check it out. He can't reply to everyone who gets in contact with because he is inundated. And there is an address and if you'd like to send your own
+
+[00:28:17] moist towelette to him. Do send it unused. He does have one which is used but he doesn't encourage... It's a celebrity one, to be fair. So if you're a celebrity in the audience tonight, do use it for us. Who was it, Elvis? No.
+
+[00:28:31] Do you mind if I take this one then? Go for it. It was donated by Tom and Ray MacGliotsi, so I don't need to tell you guys who they are, but for any listeners at home, they host NPR's car talk show, and the moist towelette they sent him was used to clean off some grease from a car once. Oh, so one of the six percent.
+
+[00:28:48] There we are. One of the six percent, so you can understand why he made an exception for that incredibly famous Talette. But so on his website, he has, what he says, is the holy grail of moist towelettes. They're just not sending it. That's the fuck sake, tell us what this is. So it's a series of Star Trek moist towelettes, which have the image of Captain Kirk and Spock on that.
+
+[00:29:10] I've seen them. I've seen the photo on his website, and yeah, they look impressive. Well, they just have a photo on the towel? No, it's on the packaging. You're not going to put that kind of technology. You're not going to put ink on it. Come on, Anna, calm down. Christ alive.
+
+[00:29:26] Anyway, so I knew it was a good idea to do this fact tonight. I can feel where... Do you want to know something about the history of moist towelettes then? Yes, please. All together now? Yes! Great.
+
+[00:29:41] Someone said no. Get out. Out! Wrong room! You do not belong here. Look, the reason they became, the phenomenon they are today, and the reason we're also excited by them,
+
+[00:29:54] is because of a guy called Arthur Julius and the Colonel. So Kentucky Fried Chicken brought us moist towelettes. And this is in 1958, and he invented it, and it was quite a big deal, right? The idea that you can have something
+
+[00:30:08] that stays damp for so long, and that doesn't disintegrate when you're cleaning stuff. It's pretty amazing technology. Absolutely. And so he struck a deal with KFC, struggle with KFC to provide a free
+
+[00:30:27] wet wipe with every KFC meal, which works because they're finger licking good, but even looking at fingers, sometimes isn't enough. And that's where they took off. It's quite amazing. That's kind of how moist they keep. It's extraordinary. Do you have data?
+
+[00:30:43] They advertised it. KFC advertised it as what your tongue doesn't get, the wet wipe will. Someone just commented, that's my Tinder bio. In the last 25 years, KFC has given away nearly a billion wet wipes, and those wet wipes would reach halfway to the moon. Overall, the amount of wet wipes of this company nice and clean have made in America
+
+[00:31:15] is 150 billion, and that would go to the moon and back about 30-odd times, something like that. Really? So many. Wow. But the thing is about the moist-tail acts is they make so many of them, and basically people flush them down the tile don't they? And they turn to fat birds.
+
+[00:31:31] So by the way, the fact that you've been cheering them so far is disgusting because they are basically the bad guys of the modern day. They're very bad. They make fatburgs basically and the biggest fatberg in the UK quite recently found in Liverpool. It weighed 400 tonnes and it was
+
+[00:31:47] 250 metres long. Wow. And if you add that one to one that was found in Birmingham in the same year those two fatbergs alone would weigh more than the giant statue of Christ in Rio de Janeiro. Wow. But no one, no one has suggested a switch. There was also a 2020 study in Ireland by Coast Watch and they said that wet wipes are the main cause of microplastics in the sea. You know like these tiny little bits of plastic and it's because little threads come off the
+
+[00:32:18] wet wipes and they end up in the sea. And there's a teenager called Fionne Ferreira. He's an Irish teenager and he's developed a technique to remove this microplastics, and this original fact was about planetariums. And he also worked as a curator at Schull's Planetarium in County Cork. No. So it's another... Wow. So there's something about planetariums and wet wipes,
+
+[00:32:44] where they're just kind of drawn together. Well, just one extra coincidence. Yeah, if I'm taking it, there's a link. The first ever use of the word wet wipe, phrase wet wipe, was in 1966, and it was from a NASA study. This is really cool. It was a study called Effective Diet and Atmospheric and Atmospheric and Skin Flora.
+
+[00:33:03] So basically, they were trying to work out, how's it? That was sarcasm, and I heard it. It was a study trying to work out the influence of space flight, what it would do to the microorganisms on your skin. And they got, I think, 16 men, and they studied them, I think, in space-like conditions. I don't think they actually sent them to space.
+
+[00:33:22] and they were kept in one environment for 42 days, and they were being kept without doing much washing, and their microorganisms on their skin were being studied, like areas including, I'm quoting here, the ear, eyes, nails, umbilicus, anal fold, you name it. The umbilicus? Yeah, the belly button. The belly button, guys.
+
+[00:33:44] Yeah, yeah. I'm quite in NASA here. Yeah. But anyway, but what's anal fold? Oh, do you not have one? We've all... Ass crack. Is that what it means?
+
+[00:33:53] I can't believe I'm having to do all this translation from this side of the room. Is that genuinely what NASA calls our butt crack? Anal-fold. I'm afraid so. Yeah. But get this. The way they were allowed to clean themselves
+
+[00:34:05] in this study was as follows, and this is where we get the phrase wet wipes from. Only wet wipes were allowed and were limited to three a day for hand wiping following eating and defecation. That was all the cleaning they were allowed to do. Three wet wipes a day. Would you poo once a day and eat,
+
+[00:34:22] twice a date or vice versa. I think the number of times you poo you want to date depends on how much you eat at a day. That's a good point. Well, they're not allowed to correspond, James. I would go for like 3-0 but on alternate days. Yeah, I love that. Guys, we're going to have to move on very soon to our next fact.
+
+[00:34:40] Our final fact. Shall I quickly just tell you one thing about planetarium? One of my favourite ones is in Moscow, Moscow Planetarium. I've been there, it's really, really good. They have a really, really massive dome. and what is cool about it is the outer dome is only 8 centimetres thick at the top. It goes down to 12 centimeters thick at the bottom. It's really, really thin.
+
+[00:35:01] And that means that if you shrunk it down, it would be thinner than an egg shell. This is this planetarium. If it was the size of an egg. If it was the size of an egg. That's amazing. And the reason I bring it up is for you, Andy, really, because it has a load of insulation in this. And guess what it's made of?
+
+[00:35:16] Is it moss? It's moss. Yes! Oh! Okay. It is time for our final fact of the show, and that is Anna. My fact this week is that 72 years after the first Miss America contest, the runner-up was still claiming, I won it hands down.
+
+[00:35:40] So this was 1921, and at the time it was called the Intercity Beauty Contest. It was an Atlantic City, and the official winner, according to the Miss America history, it was a woman called a girl, 16-year-old girl, called Margaret Gorman. but there was also Miss Virginia Lee, who was, she's about 20, 21, a bit too old almost for Miss America, and so it was between Virginia and Margaret. Everyone was saying, like, they're the two best,
+
+[00:36:08] whatever you're supposed to be good at. And then when the contest had ended before the results were announced, and this is the first ever Miss America, suddenly Virginia's disqualified. She was disqualified for being a professional. It wasn't made clear before the contest, that it was amateurs only.
+
+[00:36:26] But... What is it professional in this context where the criterion is just being fit? A, that's a huge misconception. And B, I think everyone else had won local beauty contests and then been upgraded to the National Beauty Contest whereas she just had modelling contracts.
+
+[00:36:42] Yeah, she was a model, I think, is the point. Yeah, and also one of the judges of the competition ran the magazine that employed her as a model. And perhaps that was all discovered. And anyway, she was quite bitter about it. And she always claimed that they told her even years afterward, look, you won it really, but they said we can't give it to you, so this other woman won it.
+
+[00:37:01] So that's the controversial start to Miss America. Yeah, yeah. It was quite an interesting event, wasn't it? Because these women were brought on with King Neptune, who was a one-handed inventor, brother, a friend of the podcast, Hiram Maxim. So Hiram Maxim, who invented the machine gun, his brother was this guy. He was dressed as King Neptune.
+
+[00:37:26] He only had one hand because he'd lost it in a Mercury explosion in 1894. And he'd invented smokeless gunpowder. Thomas Edison referred to him as the most versatile man in America. He sounds pretty versatile if he's invented gunpowder and simultaneously pretending to be King Neptune at a beauty contest. That is the apex of versatility. But yeah, and it was basically in order to stop people going home. from Atlantic City because it was a big resort
+
+[00:37:55] and people would go home at the end of the summer but they wanted to keep people there so they had this extra thing to try and keep people there. Yeah, it was all part of the fall frolic. Yeah. So it was a whole big festival where they had lots of other stuff on and actually it was inspired by the baby parade which was really popular and had been since about 1900
+
+[00:38:13] where you wheeled out your fit baby in a pram and people judged it and then I was looking up. What would they do? Was there a talent round? Was there... It was more like you looked at them and you put them in a nice bonnet and you wheeled them around.
+
+[00:38:28] And actually, baby was a stretch because I read in one newspaper article in about 1928 that the baby parade, you had to be between six and 12 years old. What? The following year, a three-year-old won it. Wow.
+
+[00:38:41] You know, there are the sort of interview sections in these pageants. You know, there was the swimsuit round until very, very recently in one of them. Anyway, in 2011, Here are samples of the Miss USA questions. Which, just to be really clear, Miss USA is completely different to Miss America. Yeah, yeah, yeah, yeah.
+
+[00:39:00] Anyway, the questions in 2011 included asking whether evolution should be taught in schools, which is frankly a poser. I mean, you could spend hours talking about that in your answer. And should the US Constitution protect the burning of religious books? But, to be fair, contestants were also asked if they could make the sounds of a cat, a police siren, and a slot machine. A sloat machine. Amazing.
+
+[00:39:26] It's quite nice because when you read about the history of Miss America, from the start, women have just been really skeptical about it. And the biggest controversy was back in 1938. Well, in fact, in 1938, Miss American contestants were banned. The interview round was very hard then. What do you think about the annexation of Austria? Do you think Chamberlain might have actually been right to declare peace in our time,
+
+[00:39:48] given that that gave Britain vital time to re-ar-earned? in the anticipation of an inevitable war next year. It was slightly too early for the Chamberlain question. But yeah. Idiot. No, in 1938, Miss American contestants were banned from spending time alone with the man for the week before the pageant results were announced. And that was because in 1937, and this is a huge deal, Miss America,
+
+[00:40:15] but the winner of Miss America, instead of being there for the ceremony when the crown was placed on her head, was absent, because she'd run off with her chaperone for the week, and the crown had to be placed on an empty chair. Oh, wow. It's such a good story. Just give it to someone else, wouldn't you? Well, no, they had to stand by their principles,
+
+[00:40:33] and their principles were that Beck Cooper had won. Wow. And Beck Cooper didn't give a shit. The only reason she'd entered was because her family kind of wanted her holiday in New Jersey, and they were kind of against the contest, but they were like, come on, our daughter's not going to win. Look at her. and genuinely they were like you'll never win so it's fine
+
+[00:40:53] and she did win and they had a chaperone for the week like a driver to drive them around the event the week before the event and she liked him she started flirting with him he was called Louis off and she ran off with him yeah they did have genuinely it was in the contract
+
+[00:41:10] and this is Miss America where they would say that you had to pledge a vow to not having been either married or pregnant in order to enter the competition. They were so stringent on the idea that you had to be this pure person. And there were countless examples, again, just the fact that the women who did enter it
+
+[00:41:28] buckled the system when they won. A lot of them just saying, I'm not playing up to the thing that you're expecting of me. But they did have all these clauses that you had to do as you were going in. They still do. Yeah, they still do. You can't be married.
+
+[00:41:42] Well, there is Mrs. World. There is Mrs. World. Genuinely. Really? Yeah. There's Mrs. World, which is for, married women, but they had a huge row last year, because at the prize-giving, one of the contestants punched the winner
+
+[00:41:54] and ripped the crown off her head saying, you're divorced. And then, like, genuinely, this happened. And the winner said, I'm separated, I'm not divorced, and so... Wow. Great Mrs. World Canada, if the marriage
+
+[00:42:10] has broken down that far. If you are divorced, are you allowed to go back into the Miss America, or... That's Miss Anulment, you're thinking of. Which is... completely different. There was a controversy in Miss World in 2013. This was Miss Uzbekistan. The Uzbekistan officials said that she'd left a few things off her profile, namely the fact that the country has never held a Miss Uzbekistan contest.
+
+[00:42:34] And they had literally no idea who she was. She just rocked up and she went, yeah, I'm Miss Uzbekistan. And they went, all right, then. That's awesome. That's big brain time. That's amazing. How did she do? Did they keep her in or did she?
+
+[00:42:47] They kept her in. Yeah, she didn't do particularly well. But she stayed in the competition. That's so good. Uganda, for the Miss Uganda contest in 2014, you have to milk a cow. Wow. And this was when Musevani, President Uganda, 2014, sent the army in to run the Miss Uganda contest because he decided they weren't promoting the right kind of values.
+
+[00:43:09] It feels like he doesn't have the right priorities. But so their questions involve being quizzed on farming techniques, you know, which uddyipul, which seed do you. sew. Which other do you pull? Which other do you pull? Pull the other one. There we go. And Miss Navajo,
+
+[00:43:28] you have to know how to butcher a sheep properly. Miss where? Navajo, like the Native American people. There's one question that someone got in 2012. They were asked, what are you supposed to do with a sheep's head? Any ideas? Depends really what your interests are, I suppose.
+
+[00:43:45] Let's... Hi. It's that the ventriloquism act that comes up later in the talent round? Let's say if you want to cook it. I'd curry it. Sheep's that, yeah? Yeah, you can't taste any of it in the end, can you? Yeah, not in the Navajo people,
+
+[00:44:01] because this is all about the... You have to know all about the Navajo customs from history and stuff. Julien. Chop it, Julianne. No. You wrap it in aluminium foil and put it on the fire. Ah, can't be that older tradition if it involves aluminium foil. and a couple of wet wipes
+
+[00:44:19] and you're done. No, they got the person who answered that question, even though they kind of got it right because that is the modern way of doing it, they got booed because they answered in English and you were supposed to answer in Navajo, but they couldn't remember the words. Yeah, the Navajo for aluminium foil.
+
+[00:44:35] I want to talk about the outrage of beauty contests leading to people feeling pressured to have plastic surgery, you know, work done when they shouldn't. And the worst thing was this December just gone. It was a contest in Saudi Arabia and it was the camel beauty contest where 40 camels had to be disqualified
+
+[00:44:55] because they'd had Botox and facelifts. Ah. Those humps look suspiciously pert to me. It's a real issue. There's $66 million worth of prize money up for grabs, but you are not allowed to enhance in any way the camel's heads,
+
+[00:45:16] heads, necks, humps, dress, or posture, and dozens of breeders did. How were they manipulating the camel's looks? They gave them Botox to inflate their body parts. They also had rubber bands that inflated their body parts in ways that I don't understand. To be honest, for this prize money,
+
+[00:45:34] I'm willing to dress up as a camel and go to Saudi Arabia. Oh, well, I think you think a lot of yourself, if you think you dressed up as a camel will be more attractive than an actual camel. I do, James. I back myself on this one. In a camel beauty contest where you're looking for something with two humps, a nice long face, and Andy thinks,
+
+[00:45:53] no, I can just dress up as a camel and win it. I've got a nice long face, and I think the humps, I'll sort something out. We've got to wrap up, guys. Yeah, James, do you want to love one more thing in? I can, if you want. There is this thing in China where models will be given a job, and they'll be saying, oh, come over here, it's like a modeling job. and then they're told to pretend to be like Miss America or Miss Brazil or whatever.
+
+[00:46:20] And there was someone who was from Brazil who was pretending to be Miss Chile, someone from Ukraine who was pretending to be a Miss America. And the reason is that they take them to these tiny little towns in the middle of nowhere and they say they're not going to know what Miss America is supposed to look like. So I'm just going to put a sash on you and we're going to pretend that we've managed to fly in all of these beauty contest winners from all around the world. Great.
+
+[00:46:45] Is that amazing? I'm going to say on the fittest camel in Saudi Arabia, 2022. All right, look, we need to wrap up. That is it. That is all of our facts.
+
+[00:46:58] Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we could be found on our Twitter accounts. I'm on at Shreiberland.
+
+[00:47:13] Andy, you can be found. on at Andrew Hunter. James. At James Harkin. And Anna. You can email podcast at QI.com. Yep. Or you can get us on our group account, which is at No Such Thing, or you can go to our website. No Such Thing Asafish.com. All of our previous episodes are up there, big fans of that URL there.
+
+[00:47:34] Dublin, just to say, you guys fucking rock. We love coming here so much. Thank you for having us. For everyone listening at home, we'll be back again next week with another episode. We'll see you then. Goodbye!

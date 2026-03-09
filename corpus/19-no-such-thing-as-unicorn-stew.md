@@ -1,0 +1,197 @@
+# No Such Thing As A Fish - 19: No Such Thing As Unicorn Stew
+
+- Episode date: July 25, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/19-no-such-thing-as-unicorn-stew
+- Slug: 19-no-such-thing-as-unicorn-stew
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago, which was, there's no such thing as a fish. There's no such thing as a fish. No, seriously. It's in the Oxford Dictionary of Underwater Life. It says it right there, first paragraph, no such thing as a fish. Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver.
+
+[00:00:27] I'm sitting here with the three regular elves, Anna Chazinski, James Harkin, and Andy Murray. And once again, we've gathered around the microphones with our four favorite facts from the last week, and here they are in no particular order. Okay, starting fact number one, James. Okay. My fact this week is about kangaroos, as you all know. Yep.
+
+[00:00:46] It comes in the form of a question and that question is, how many legs does a kangaroo have? I think I can feel this one with confidence too. James is holding up a tiny catson button. Where'd you get that? That's from the QI travel game. Which is available in shops. Oh my God, that must be the most annoying toy.
+
+[00:01:09] Can you imagine on an airplane, the little kid sat next to you. Oh my God. Just any time you get something wrong. Can I eat ice cream? No. No, I'm afraid the answer is I can eat ice cream. I'm going to put that to one side now because that probably is very annoying. Yeah, they don't have two legs.
+
+[00:01:26] Wait, so if they don't have two, they must have what? Four, the front hands or legs. I'm going to have to get my buzzer out again. What? Why? Yeah, that is annoying. No, they have three or five, depending on how you look at it. The tail counts as a leg.
+
+[00:01:47] And that's according to a new study, which was in New Scientist a couple of weeks ago. And what they did is they put a kangaroo on a treadmill. Yeah. Which had pressure points and could see when they were putting pressure on the floor and they found that in the normal walk, not their bouncing walk, but the other one they do, it's kind of a shuffling walk. They used the tail in the way that any other animal would use a leg. Is it a weight bearing thing though?
+
+[00:02:10] Yeah, it's weight bearing and propulsion. Yeah. Wow. Okay, so I've got two questions. Go on. First question is can they walk backwards because that's one of the great Australian myths or truths because the idea is that the the country's coat of arms has a kangaroo and an emu on either side looking at each other.
+
+[00:02:29] And the idea being that they were chosen because not only the national animals, but they can't walk backwards. Neither an emu nor a kangaroo. What does it say on the coat of arms? Always forwards or something? Keep going forwards, lad. Terrible, terrible piece of advice for a lot of people. Yeah, crossing a road.
+
+[00:02:44] People standing near cliffs. That's true. I think they can jump backwards. There's yeah, you can see on YouTube. There's footage of Woody Allen boxing a kangaroo in a very, very weird belt. Very odd, isn't it? It's on YouTube. Yeah, I think moves backwards a bit in that.
+
+[00:02:57] Yeah. Yeah. You said you had a second question. I do. Yeah. Second question that I had was are they the only animals with a tail for a leg? Um, as far as I know, you do have prehensile tails that animals use to swing around trees and stuff and grab things, but not to my knowledge.
+
+[00:03:14] Do they use them to walk? Do dugongs use their tail as like a supportive thing? Isn't everything where they do dugongs? Yeah. Do you know those things? They're manatees. They are a type of manatee. Seacows.
+
+[00:03:26] So the things that sailors apparently thought were mermaids back in the olden days. They actually do have quite human faces. I think they have adorable faces. I'll put a picture on the website. Just last time I was back in Sydney, the aquarium, they had like an arrival of dugongs and it was all over the posters in the city and you know, dugongs are here and it was the most unexciting attraction to an aquarium. Since they had the Lego exhibition at Sydney Aquarium.
+
+[00:03:50] There are lots of bits of Lego washing up on British beaches. You know about this? There was a crash. There was a container crash in the late 90s and something like a billion pieces of Lego went into the water and they're still washing up in, in North and South Cornwall. Wasn't it weird because a lot of the Lego happened to be sea related stuff? Like there are octopuses which are very, very special and little bits of sea growth. Or maybe they are like little Lego plankton and that's what you were watching in Sydney Zoo.
+
+[00:04:21] Yes. Remember there was that, a guy wrote a book all about another container ship that had ducks, the rubber ducks and the plastic frogs, wasn't it? The rubber ducks were obviously the big, big draw. And beavers. Beavers? Real beavers or plastic ones? Yeah, plastic ones were the same container.
+
+[00:04:37] Didn't know that. They don't get the same publicity as the ducks do. It's because the rubber duck is a timeless style icon. When have you ever bought someone a rubber beaver? I didn't even know that was a thing. Let's leave that. Maybe that was, maybe that was like a new thing that they're bringing over. This is our big chance.
+
+[00:04:52] We're shipping over all the plastic beavers. It's going to be a massive hit. Now we'll never have them. Okay. Other animals which have odd numbers of legs. Okay. Are there any? Do you know any, Dandy?
+
+[00:05:03] There's a crab, isn't there? Yes, there is. There's a spider crab called Macro-Kiera Camp Fairy. It's like that massive Japanese spider crab that you see every now and then on the internet. It's absolutely humongous. And there was a study done and they found that three-quarters of the crabs are missing at least one limb. And most crabs have got 10 legs. In fact, all crabs have got 10 legs.
+
+[00:05:25] So most of these particular crabs have got nine legs, although they have lost them. Wow. It's a bit of a cheat, isn't it? They should just evolve with one leg fewer. Well, they might do. They wouldn't need to lose that. They can survive with up to three legs missing. That's more than I can do.
+
+[00:05:42] There's a thing called a seven-arm octopus. Is that born with seven arms? No, it has eight arms. But one of them is very small and curled up and you can't see it very well. So people thought they had seven arms. That's cool. People who didn't look very closely. Yeah.
+
+[00:05:55] And also there's starfish, of course. Yeah. So all of those creatures like starfish, sea urchin, sea cucumbers always have multiples of five, don't they? But they're not legs, really. They're limbs. Limbs, yeah. And the tripod fish. Do you guys know about the tripod fish?
+
+[00:06:08] Which is an extremely deep water fish. And it has three long protrusions that come off its fins. So I think it's never any more than 30 centimeters long. But its little thin protrusions can be up to a meter. And it walks along on them like a tripod. And it's really good because it means it's at the right level for the currents to sweep loads of prawns into its face. And it can detect vibrations in the seabed if predators are coming. So I reckon that might be the closest other animal there is to having three legs.
+
+[00:06:34] The natural odd-legged. Yeah. When kangaroos are born, when joeys are born, you know, and they crawl up into the pouch, they don't have their back legs even. They do have their front legs. But that's the only thing. They're basically a tiny worm with these two minuscule front legs, which they use to basically crawl up their mother's fur into the pouch.
+
+[00:06:53] Yeah. And then they get their back legs later. They are tiny, aren't they? Like they're the size of a grain of rice kangaroos when they're born. Yeah. People thought that kangaroos had two heads when they first saw them, when Europeans first saw them. Because of their joey on the chest.
+
+[00:07:07] Oh, yeah. That makes sense. So when the first descriptions came back to the West, that's what they thought. Wow. Yeah. They have there's the QI fact, which might have been one of the first ever QI facts about kangaroos having three vaginas, which they do just in case there's one listener out there who doesn't know it.
+
+[00:07:25] So the first fact I learned when I was having my interview for the job. Yeah. You had an interview for QI? Was a chat. A lunch. A lunch. Was it testing your response to that? What did you do?
+
+[00:07:37] Yeah. You recoiled and discussed. You would have immediately been rejected. I didn't recall and discussed. I said, huh, which is correct. I like the sound of that. That's the incorrect response. I've got two favorite kangaroo QI facts have been in the books and the TV shows,
+
+[00:07:53] but I absolutely love them. The first one is that the mother kangaroo mammary glands. So female mammary glands produce both full cream and fat free milk simultaneously. That's wonderful. The child's just the rules got an option. They're like the waitrose of macro podiums. Yeah, exactly. And the other one is that kangaroos swim doggy paddle when they go swimming.
+
+[00:08:13] That's their style doggy paddle. And also they kick their legs independently when they swim, which they never do on land. On land, they move both legs simultaneously. So you see them move forwards, either hopping or using the tail to project themselves. But in swimming, dum, dum, dum either side. Did you know that Elvis had a pet kangaroos? Did I?
+
+[00:08:31] I've always been curious if anyone had a pet kangaroo. Elvis had one. He had a couple, I think. He was given them, I'm going off memory here, but I think he was given them by Zoo in Australia. And then he gave them back because they weren't as much fun as he thought they were going to be. One quite cool thing when I read about kangaroos is kangaroo mother care.
+
+[00:08:52] Kangaroo mother care is what's being recommended for premature births in developing countries. So 10% of premature births in developing countries, the child dies within the first year and 90% in developed countries. So it's a massive problem in developing countries. And they're suggesting kangaroo mother care, which is basically where you have constant skin to skin contact between baby and mother. And the mother straps the baby to her for up to like the first eight or nine months. And it reduces infant mortality by 50%.
+
+[00:09:20] So could have saved like, would save like 1.1 million deaths a year. And it's just about the warmth of the skin contact and constant breastfeeding and probably bonding between mother and child and anticipating its needs more. But pretty simple way of seriously reducing infant mortality. Yeah. I've got one last thing I want to throw in before we move on, which is that there's been a study that's shown that male kangaroos can attract the opposite sex by impressing her with his biceps with his forearms.
+
+[00:09:51] They're apparently really important in the kangaroo world to the point where they frequently adopt poses showing their muscles like bodybuilders going, Hey ladies to a ticket to the gun show. What are you like just for people listening? Dan is doing the bodybuilder poses as I'm doing it. Yeah. Have you ever seen Johnny Bravo? It's a lot like four.
+
+[00:10:10] Yeah, exactly. Yeah. And in a fight that's often apparently what the female kangaroos are looking at at the males in a fight. They're going to biceps on that guy. Yeah. Cause what they do is they grab the other guy with the arm bits and then they kick them with the leg bits.
+
+[00:10:23] So the arms are quite important in fighting. Yeah. But the legs are more impressive if you want to attract someone. Why aren't they going? Look at my huge feet. How awesome are my huge feet guys? You know what they say about kangaroos with big feet? Yeah.
+
+[00:10:34] Exactly. Okay. Time to move on to fact number two and that is Anna. Yep. My fact is that during the financial crisis of 1720 Parliament called upon stockbrokers to be sewn into sacks filled with poisonous snakes and thrown into the Thames. Was that a serious thing?
+
+[00:10:57] I mean, that's surely I think it was just to it. I don't think they were intending it actually to happen. It was to express their vehement dislike. But it was during the South Sea bubble, which was one of the earliest financial crises, a guy who made the speech, which suggested this was Lord Molesworth and he was drawing on Roman tradition, which had people who committed parasite, which had them thrown into the Tiber. So he said, what's parasite?
+
+[00:11:23] It's killing your father. Anyway, with animals as well. There were animals in the sack. There was a rooster, a monkey and a dog in the sack with you when you went into the river. Oh, was that? It's horrible, isn't it? According to another Roman thing, if there wasn't any water nearby, if there wasn't
+
+[00:11:38] a convenient river or sea nearby, you would be put in a sack with a rooster and a viper and a dog and a monkey and then thrown to wild animals to be torn apart. Oh my God. Yeah. They used to put more effort into punishment. I think they go to lengths to find these poisonous and tropical exotic creatures. Well, I think this was because in this particular case before the debate, because everyone was
+
+[00:11:57] extremely angry about the South Sea bubble bursting because people were ruined by it, including in fact, Isaac Newton invested a lot of money in the South Sea company and he was totally bankrupt after it. And Alexander Pope was not because he was one of the crafty ones who exited early. So did Isaac Newton. Isaac Newton got out in time and then went back in. He could see it was going to fall. But yeah, people were angry and so in parliament was getting very vehement and so before the
+
+[00:12:29] debate, the king made a speech urging people to retain prudence and temper to ensure that the right punishments were distributed and their response to that was say, throw them in the Thames in a sack that's sewn up with poisonous snakes. Well, the king got out in time. Did he? He was one of the people who got out in time. He and Robert Walpole, who I think was Prime Minister at the time, both got out in time. But that's only because the financial advisors had disobeyed them.
+
+[00:12:53] Really? Interesting. Yeah. That is interesting. Actually, this is not going to be good for you. I'm not going to put the money in. So isn't that... Only financial advisors are that thoughtful for everyone all the time.
+
+[00:13:06] Luckily, we learned our lesson and there was no financial crisis ever again. Absolutely. It's not the earliest, is it? Is Tulip Mania the first... Was that before the South Sea bubble? Yes, it was. It was in the 17th century. Yeah.
+
+[00:13:19] So you should explain what that is. So Tulip Mania was in the Netherlands, wasn't it? And it was when people were suddenly started going mad for tulips and the price of tulips massively inflated. And I think the price of one tulip bulb was the same as a 10-year salary for the average craftsman. Wow. And then it burst.
+
+[00:13:36] There's a really cool story about Tulip Mania, which is in the 1630s, a sailor was imprisoned in a Dutch prison for eating what he thought was an onion. It was actually a tulip bulb and it could have fed the entire crew of his ship for 12 months. That's insane. Who eats an onion just on its own? A sailor who's not had vegetables for a long time, I suppose. That's pretty desperate. Not only are you eating an onion, you've just eaten the world's most expensive onion.
+
+[00:14:05] He's like, you know what? As well, it didn't taste that oniony. I was reading about Parliament because I don't actually know much about Parliament. There's that thing of that if the Queen goes to Parliament, then Buckingham Palace needs to take an MP prisoner for the time that she's there, just in case they suddenly decide. Hostage. Yeah, which is a movie that I've not seen made yet. Why not?
+
+[00:14:29] It's never a really important MP. Is it not? Do they get like the rubbishest? They think they get a... The new guy. Yeah. Sorry, no offence if you're listening and you've been the hostage. But it's normally not George Osborne.
+
+[00:14:38] It's normally not a really senior member of Parliament. It's dispensable just in case. Exactly. In chess terms, it's like trading the Queen for a pawn, except you've got 600 pawns and this is the least good of them. It's the replaced one because you lost all the other. Yeah, you lost the proper one. It's a bimble, yeah.
+
+[00:14:58] I was thinking about MPs doing kooky stuff in Parliament. I read somewhere that William Pitt, the younger, he was a drunk and he once during a speech vomited behind the speaker's chair and then returned to his seat and continued doing his speech until the end. There are contemporary reports that say that. But they might come from... They might be propaganda from the other side, but he was a drunk. So I have one more thing on parliamentary misdeeds.
+
+[00:15:22] In 2010, a Tory MP had to apologise for being too drunk to cast his vote on the budget. He got drunk in the Parliament Bar and he forgot to rock up and vote. And Hazel Blair's, who we all probably know, Labour MP said, she had been out on the terrace with him but had retired to the library when it got a bit too lively. But this man's name is Mark Reckless. That's great. You mentioned the bar. So Parliament has their own bar, don't they?
+
+[00:15:48] They've got a few. They've got a few bars. They have a library. There's the members' bar, the strangers' bar, all kinds of stuff. Cheaper drinks. They've also got a hairdressers. I don't know if you... Yeah, and this is really odd. They have a rifle shooting range.
+
+[00:16:00] Oh, the Lords have one in the basement, don't they? Yeah. Yeah, isn't that really odd? They just go and shoot a rifle. I think it's very rarely used. They used to have rifle shooting in pubs. Yes. It was like a pub spot that people would go around the different pubs and play against each other.
+
+[00:16:16] And they banned it. And you know why they banned it? Because people were gambling on it. That's great. It wasn't some of it across corridors and things like that. Yeah. It was incredibly dangerous. There's some brilliant photos of people taking shots in a pub and there's like old boys
+
+[00:16:32] drinking their stout underneath the barrel of the gun. What shall we do in this place where people come and get really drunk and disorderly? Shall we introduce guns? Anything else? Can we just quickly go back to punishments? Because I have one more thing on punishment. In the olden days they used to saw people in half as a mode of execution. Which is quite a good way of going about it.
+
+[00:16:57] When? Well, not a good way, but a way. It's a thorough way. Simon the Zealot was sawn in this way supposedly. Simon the Zealot? Simon the Zealot. Yeah, you know him. Really enthusiastic guy.
+
+[00:17:09] Hey guys, do you want to play rounders later? But the way that they sawed him, I don't know if this is what they did with everyone, but they hung him upside down and they started with his groin and went lengthways. Oh god, the Goldfinger method. Yeah. Sorry, when you said in half, I thought you meant as in a magician's trick. Me too. But so they did it.
+
+[00:17:29] Oh my god. Starting with the groin. That is the worst. But Simon the Zealot didn't mind. Because I'm not feeling as zealous about this as I normally am about other things. Okay, time to move on to fact number three and that is you, Andy Murray. My fact is that there are three times as many estate agents in the UK as there are members of the armed forces. Yeah, that is weird.
+
+[00:17:57] Well, yeah, there's been a massive boom in estate agents recently and also all the soldiers have been sacked. So in some ways it's surprising about that. Oh really? Well, there are being huge cuts and people said that the army is going down to the size it was at the Burr War. But it's not true. It's actually going to be substantially smaller than it was during the Burr War. Yeah, because in wartime then armies increase massively, shouldn't we have more people in the Burr War? It's amazing.
+
+[00:18:20] There are graphs of the armed forces population from about 1870 to today and obviously there are two vast spikes there. And it's been a gradual tail-off since the end of the Second World War. And are they becoming estate agents? Is that what's that? Is it a straight swap? Is this why I got so around a house? Why a guy in camouflage? Now this house has a beautiful bunker, which you might want to use.
+
+[00:18:43] It's facing north and it's very defensible. Very defensible. I don't know. I don't think a lot of them are becoming estate agents. How many real estate agents do we have? Real estate agents or fake estate agents. There are, I think it's something like 560,000 from memory. In 2008 an estate agent was showing people around a potential property.
+
+[00:19:05] I think it was in somewhere in the south of England. It was worth 350 grand. He opened up the walking closet to show it off and he found the owner hanging dead in there. A spokesman for the company said it was quite a shock, which you would expect. It would have been good if it had been sold by a guy called Roy Brooks. Do you guys know who he is? No. Okay, Roy Brooks was an estate agent from the early 20th century
+
+[00:19:29] and he was known as the honest estate agent. He would give somewhat too honest descriptions of his houses that he was trying to sell. So I'm going to read one. This was from the early 20th century by Roy Brooks. Brothel in Pimlico. Wanted, someone with taste, means and a stomach strong enough to buy this erstwhile house of ill repute in Pimlico. It is untouched by the 20th century as far as convenience for even the basic human decencies is concerned. Although it reeks of damp or worse, the plaster is coming off the walls
+
+[00:20:04] and daylight peeps through a hole in the roof. It is still habitable judging by the bed of rags, faggands and empty bottles in one corner. Plenty of scope for the socially aspiring to express their decorative taste and nothing to stop them putting Westminster on their note paper. That's fantastic. Ten rather unpleasant rooms with a smelly backyard, £15,000. Wow. With a smelly backyard.
+
+[00:20:29] Why did he do that? Well, he became famous for it and then got a lot of people looking at his properties because he'd become famous. There is definitely room for someone to do that today. I went on a viewing with someone who was looking to buy a place recently and it was basically a condemned place and the estate agent to her credit said, this is awful, isn't it? And she was really, really on it. Well, the kitchen was all covered in brown rust and condemned tape where it says, do not use, this is condemned to equipment.
+
+[00:20:58] And she says, just looks like really bad food and then someone can get to the toilet in time. That was the first viewing I'd ever been on. That was quite, that was £450,000 in Zone 9. The foremost adulterous professions in the US are physicians, police officers, lawyers and then real estate agents. No way. I do like real estate agents. I feel like in Australia that's what we call them, real estate agents. I think it is and in America as well, possibly realtas or things.
+
+[00:21:28] But here we just say estate agents, so here in real estate agents is wonderful. Doctors, that's not great doctors. Wow, how did they find that out? Was it self-reported? No, it was from a website where you go if you want to, if you're married and you want to hook up with people. Like those illicit encounters. And you have to put your profession in there and that's what they found. Right, well they might have been lying about that. I mean, they've been lying to the people in their lives as well.
+
+[00:21:54] So it's entirely possible a lot of would-be doctors were just saying, yeah, I'm basically a doctor. There's a website you can look up in the US which tells you if anyone's died in your house. Oh, okay. And how they did it. How they did it? Sounds like John Bonderson's book, doesn't it? Yeah, James wrote an endorsement for this book that John Bonderson, he's a friend of ours. He's a friend of ours, he does all sorts of odd travels around the UK to discover that this book in particular is called The Murder Houses of London. Basically, he's got this book which is all about all the houses in London where there have been murders.
+
+[00:22:27] And he goes into detail about the different murders that have been there. It's a really, really interesting book. I got drunk with him once in central London and when we got drunk he went, do you want to see some of the houses? And we walked around London and he was like, here there was a murder and he was so excited by these murders. Just with the people being murdered in houses though, sometimes the idea of ghosts is actually a desirable thing that real estate agents, real ones, use in order to sell a house. I mean, people actually used to put wanted ads out when they were looking for a house with little requests for ghosts in the house. Wow. The word mortgage, does everyone know what that means?
+
+[00:23:09] It means a massive kick in the balls delivered to the wallet. No, it means death, mort. It means death pledge, basically. Is it really paying yourself until you die? Sort of. Well, the reason, so the earliest explanation we have for that is from someone I think in the 16th century who said, the reason mortgage is death pledge, literally, is because it is doubtful whether the borrower will pay at the appointed day such some or not, as is due. And so the land is taken from him, i.e. dead to him. So it's called a death pledge or a dead pledge, literally because it's so unlikely you'll be able to pay it back that you're going to have the land taken away from you that you wanted.
+
+[00:23:44] Wow. But it comes from the same root, which I find really interesting. It comes, the word mortgage comes from the same root as the word wedding. So, gauge is a pledge and wed was pledge and they both come from the Germanic word wadjo. Why don't we still use that word? Yeah, look, it's a stupid word. Wadjo is so funny. It's a really beautiful wadjo, actually. The pride looks wonderful.
+
+[00:24:08] I think we've just realised why we don't still use that word. For wadjos in the funeral. Okay, time for the final fact of the podcast and that is my fact. And that is that I recently discovered that medieval manuscripts are littered with drawings of warfare between snails and knights. They're just constantly in battle and the amazing thing is no one knows why. It's a total mystery. It's incredible. Isn't it wonderful?
+
+[00:24:38] So, on the margins, on the side of all these manuscripts, there will just be drawings of snails versus... They're the same size. It's not a real size knight and a tiny snail. They're the same size. It fluctuates sometimes. Sometimes it is tiny by their foot, sometimes they're way larger than the knight. And people are looking into it to try and work out why. There was a great paper called The Snail in Gothic Marginal Warfare.
+
+[00:25:03] And they have theories that it's a representation of the resurrection of Jesus. That the snail represents a sort of highly armoured chivalric foe. They don't know. They just have no idea. You know what I think it might be? You know when you just set the doodling, one of the things you doodle is like a spiral. And sometimes if you just draw a spiral, you might then turn it into a snail. And then when you've drawn a snail, what are you obviously going to do?
+
+[00:25:28] Make it fight a knight. It does go down a bit there. There's a lot of paintings of the Virgin Mary where she has snails in the picture. That's a symbolism of the Virgin Mary because their shells mean that their modesty is protected. And it was thought that they reproduced without sex. Really? And they don't do that, do they? Snails?
+
+[00:25:51] Yeah, they don't reproduce without sex. No. They reproduce with sex. So they're randy little beasts. Yeah, they're hermaphrodites. And they fire love darts at each other. They certainly do. So love darts, they're like little arrows which are attached to the snail.
+
+[00:26:06] But they don't fire them through the air. They basically get into close combat and then stab each other. And sometimes they can stab each other very fiercely. So the harpoon will go through the other snail's head and out the other side. And then they mate. Yeah, that's not really what the painters of the Virgin Mary were going for. No, no. There's a lovely 15th century manuscript that's covered in cat paw prints that I think went
+
+[00:26:30] on Twitter last year. It went a bit viral. Oh, we should put that on our podcast page. We'll put it on the podcast page. It humanises it really because suddenly you think, oh my god, a cat just walked across this guy's face. That was the one where the cat peed on it, was it? Did it?
+
+[00:26:42] Yeah, the cat peed on it. And the guy wrote, here is nothing missing but a cat urinated on it during a certain night. Cursby, the pesky cat that urinated over this book during the night in Deventa. And because of it, many others too, and beware well not to leave open books at night where cats can come as an arrive. Right, got it. Fun to clarify that. It sounds like in the margins of these manuscripts are where whoever was scribbling all the stuff
+
+[00:27:09] in the monks, let's say, there was like their own little place in the book where they could say what they really felt and the drawings that they could do to Lynn. No one would know to stop them. People translated some of like the extra commentary written by some of these monks who are frustrated from writing out these long manuscripts and they're amazing. So some of them include New Parchment, Bad Ink, I say nothing more. Another one is, oh, my hand at this one. Now I've written the whole thing, for Christ's sake, give me a drink.
+
+[00:27:41] That's in a manuscript. Oh god, it's fantastic. It's quite exciting because I didn't realise at the time when I saw this snail versus night there were a lot of mysteries in medieval manuscripts and they're constantly digging them up and there's great blogs on the British Library website, on the Smithsonian's website where they go into the back rooms, they dig through all for these manuscripts and they manage to find things that have just been lost in their archives and they contain mysteries once they find them.
+
+[00:28:07] They found this great one recently which was a long lost cookbook that they were dying to find that they knew the existence of and it was written by a guy called Geoffrey Fuel and he worked in the kitchens for the Queen of England in 1328 to 1369. So that was Philippa of Hainult at the time and he was basically known as the Heston Blumenthal of his day. They wouldn't have known who Heston Blumenthal was. That's the mystery really. The only evidence we have for time travel.
+
+[00:28:36] He made tiny night porridge. This is what's weird about it. It's got a bunch of recipes in it and it has a recipe for hedgehogs, blackbirds and then a recipe for unicorns and one of the recipes starts with the sentence, take one unicorn. That is so good. That's the kind of cookbook you know when you get a cookbook that's really complicated and you open it and you think, oh I don't have any of this. Straight away you're closing that and going, fuck it, Delia.
+
+[00:29:10] He was the Heston Blumenthal of his day. Do you remember Mrs. Beaton? She published recipes for kangaroo, going back to them. Did she? Yeah, curried kangaroo tails. That's funny because the western grey kangaroo smells of curry. Does it? Yeah, apparently.
+
+[00:29:25] Speaking of kangaroos, there is a manuscript which is a Portuguese manuscript which has in one of the, you know how they always have a big letter to start of? Yeah. And there's always a drawing inside. Once upon a time with a big O. Yeah, exactly. In this Portuguese manuscript they have a picture of a kangaroo and it predates when supposedly anyone had visited Australia by 400 years.
+
+[00:29:51] Now, here's the thing, they obviously don't know whether or not it was a kangaroo in the drawing because people have pointed out it looks quite similar to an aardvark and an aardvark apparently can go on its hind legs when it's trying to eat something off a tree. But when you look at this picture and we'll put it on the website, it's a kangaroo. Like no question about it. It's definitely a kangaroo. There is a painting from 1496 that has a sulfur crested cockatoo in it which is a parrot native to Australia.
+
+[00:30:18] Yeah. And they reckon that that is evidence that there was trading going on throughout the world at that time. Okay, we might not have, westerners might not have sailed down to Australia but the Australians would have traded with the Chinese who would have traded with the Indians who would have traded with Europeans. Okay. Wow.
+
+[00:30:36] Yeah. That's amazing. Well, Australia was definitely trading with China and things like sea cucumbers. So there's no reason to think that we wouldn't have traded, that the trade route wouldn't have come all the way through the silk path, etc. Yeah, yeah. They spread rumors, didn't they? They said these islands that we've got are guarded by giant sea serpents and giant birds
+
+[00:30:57] and they made it, they made the spice islands sound as intimidating as they possibly could just so that no one else would sail there. And also it was so that the price would be so high. So cinnamon sticks, they said that they were part of a nest of a giant bird and in order to get this bird you had to kill oxen and hide them so that the bird would go down and get the oxen and then you could sneak up and grab bits of its, bits of its nest and they were cinnamon sticks. Of course it's all made up but it meant that when you came home you could charge a massive
+
+[00:31:24] price because all five of my men were killed. Wow. I just have one cool thing about knights. So how do you dub a knight? Sword on both shoulders, right? Yeah. It wasn't always the case. So by the time Willie and the Conqueror come to England, to knight someone, you punch
+
+[00:31:40] them in the face. Yeah. It was a blow with a fist, a bare fist to the face or neck and this is how Willie and the Conqueror for instance knighted his son Henry, just if you punch in the neck. When did that stop? Not sure. Still going. Still going.
+
+[00:31:58] Can you imagine if the Queen did that? To Sir Cliff Richard. Yeah. Praise yourself Cliff. But she doesn't say a rise Sir Cliff. No. It's a myth. Yeah because he's lying.
+
+[00:32:09] He's unconscious on the part. Okay that's it for this week's podcast, that is all of our facts, thanks so much everyone for listening. If you want to get in contact with us about any of the things that we've said, you can get us all on our Twitter handles. I'm on at Shriverland. James. At H8.
+
+[00:32:26] Andy. At Andrew Hunter M. Anna. Yeah you can get me if you email podcast at qi.com. Also you can head to qi.com slash podcast which is the page where we like to add extra links, videos and so on of all the things that we've been talking about during the course of this podcast. It's also got every single one of our previous episodes that you can check out and they've
+
+[00:32:46] all got a special page with links and so on. So go there, check it out, qi.com slash podcast. Also just very quickly, if you happen to be in Edinburgh for the Edinburgh Fringe Festival there's quite a lot of no such thing as a fish related comedy shows going up there. Andy you're going to be doing two shows, you're doing Ostentatious. Yeah that's at the Pleasants Dome at 1.40pm every day, it's Jane Austen themed improvised comedy. I'm also doing a two person improv show called Folly Adde which is at 6pm every day at Pleasants
+
+[00:33:12] Courtyard. Yeah I'm going to be doing my debut hour which is called Cock Blocked from Outer Space and it's an hour stand up show from 5.40pm at the Underbelly Daisy Room and also we're going to be doing Museum of Curiosity Live which is the live version of our BBC4 radio show. John Lloyd's going to be up there, we have amazing guests from Jimmy Carr, Phil Jupiter's, Mark Watts and David O'Doherty to the academics that we love getting on the show like Henry Marsh the UK leading brain surgeon and Irving Finkel who is an ancient Babylonian cuneiform expert from the British Museum.
+
+[00:33:45] Okay and if you're not going to Edinburgh just come to London and have a drink with me because I'm going to be on my own. Okay thanks so much for listening, we'll see you again next week, goodbye.

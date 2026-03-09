@@ -1,0 +1,285 @@
+# No Such Thing As A Fish - 193: No Such Thing As Death By Conga
+
+- Episode date: November 25, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/193-no-such-thing-as-death-by-conga
+- Slug: 193-no-such-thing-as-death-by-conga
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, I am sitting here with Anna Chazinski, James Harkin, and Andrew Hunter Murray, and once again we have gathered round the microphones with our four favourite facts from the last seven days, and in no particular order, here we go, starting with you, James Harkin. Okay, my fact this week is that it used to be thought that you couldn't testify in court if you'd seen a crime through a window.
+
+[00:00:47] This is such an amazing fact. This is incredible. But it used to be thought, but it wasn't the case. Well it certainly wasn't the case in the late 19th, early 20th century, when these news reports, which were sent to me by a guy on Twitter called Richard Tisdale, at Richie T, 1892. I think people often put the date they were born as their number, don't they, but I don't think he was born in 1892.
+
+[00:01:11] This would explain why he knows about court cases from the late 20s. That's true, but he sent me a few different articles. One for instance was an article entitled Extraordinary Belief in Shrewsbury, and it was a 1928 report about this person in Shrewsbury who thought they'd seen a crime, but they thought they couldn't really be sure that they'd definitely seen it because it was through a window. And he sent me some others, there was one in Wolverhampton, one in Lincolnshire, one in Ireland, and the Irish one gives a bit of extra material that it might be that this
+
+[00:01:42] is because old glass used in windows was often warped or blurred, so maybe in the olden days you couldn't really see through a window very well, but then kind of folklore carried on and people actually thought if you saw a crime through a window you couldn't be a reliable witness. So always carry out your murders in a greenhouse or... So these people are just people who saw crimes and didn't report them because they were like well my testimony will be useless. Or they were people who were in courts and the judge said so did you see the crime and
+
+[00:02:12] they said well I kind of saw it, it was through a window so it might not be true. This completely invalidates the film Rear Window as a plotline. You didn't see anything, you didn't see shit, what would have happened to me because I wear glasses, I've got two windows on my face, you can't see anything, you think you can. Yeah, okay. Wow, it's all those crimes. But they're not, so it's not the windows were hard to see through because obviously in the very olden days and up until probably about two to times then yeah as you say glass would
+
+[00:02:39] warp and you couldn't really see through a window and I think in ancient Rome when they started making windows out of glass then it wasn't to illuminate a room and it wasn't so that you could see through it, it was just for decoration and insulation because the glass was so opaque basically. Maybe it was because of stained glass so people were sort of reporting Jesus' crucifixion and then realising oh no hang on that's just, that's part of the window, I'm not going to fall for that again when they see an actual crime. Yeah.
+
+[00:03:10] No? Yeah, I mean yeah. It's a theory isn't it? We've mentioned before that the Inuit peoples used to use walrus penis membrane as a window. They did. And actually I would be quite annoyed if I was successfully prosecuted for a crime I committed through a walrus penis membrane. Because we've seen pictures of these walrus penis membranes and they're not fully transparent
+
+[00:03:33] are they? They're not, I would say they're not even slightly transparent. They also made windows out of oyster shells which again are not transparent at all. But they kind of let a little bit of light through. Yeah. Same with the membrane actually. It's hard to know when something stops being a wall and starts being a window isn't it? And for me oyster shells are just on the wrong side of the divide for each their own.
+
+[00:03:58] This is my beautiful new brick window. Did you ever get told off by your parents with the phrase you make a better door than a window? No. Oh, as in you're standing in the way? Exactly. When I was young and standing in front of the tally in between my parents and the television they would say you make a better door than a window meaning you are opaque.
+
+[00:04:16] But apparently this doesn't now prohibit me from being a window if I choose to be. Why were you standing in front of the TV? Were you like look at me, look at me guys stop looking at the TV I'm a performer. I'm playing a door. I think I was probably closer to the truth than I was to admit. I was back in the day and I'm talking specifically the year 1590 we're very, very sort of treasured and they were just for that one year 1590 was the big window year. Basically if you had windows you treated them almost as a separate object to your entire
+
+[00:04:56] house. So for example there's accounts of people in their wills leaving the house to say the wife but the windows to the son or the family, yeah. And there's a castle called Annick Castle and again 1590 this is roughly the time this was reported when the residents of that castle went on holidays or were just going out for a long time they would take the windows off and store them so that nothing would happen to them while they were gone. So funny.
+
+[00:05:24] So they can't get stolen, but I think yeah, but then everything else in the building can get stolen because there's nothing in the windows. You might know this, Dan. Do you know why Annick Castle is famous? No. It's where they filmed the first series of Blackadder. They also filmed some of Harry Potter there. Did they know?
+
+[00:05:45] But I think it had been famous for quite a few centuries before even Blackadder. That's probably why they chose to film there as opposed to no one had ever heard of it. It doesn't make any sense. How would they have found out? Do you think that would cause family tension if you inherited the windows and the other person inherited the house? Yes. Yeah.
+
+[00:06:03] 100%. You'd be like, yeah. Stop looking through my windows. Yeah. Stop living in my house. What do you do with them if you don't have a house to attach them to? I think you just brank to your mum that she's cold all the time and there's nothing she can do about it.
+
+[00:06:15] Yeah. I got some stuff on witnesses and cards and stuff like that. In Burma, or as it was now Myanmar, in the old days you had to do an oath if you were in court. You probably still do. But the old days it was 370 words long and it was like, I will speak the truth. If I speak not the truth, may it be that when I and my relations are on land, land animals such as tigers, elephants, buffaloes, poisonous serpents, scorpions, etc. shall seize, crush
+
+[00:06:45] and bite us so that we will certainly die. Let the calamities occasioned by fire, water, rulers, thieves and enemies oppress and destroy us till we perish and come to utter destruction. May we be seized with madness, dumbness, blindness, deafness, leprosy and rabies and may we be struck with thunderbolts and lightning and come to a sudden death. Wow. I mean, that's worse than swearing on a Bible. Yeah, it really is.
+
+[00:07:12] Were they more honest in the olden days, do you think, because they really hit home how bad it was going to be if they weren't? I think so. I mean, that's pretty bad. You tell a lie and all that stuff happens to you and your family. But then, I mean, it's very easy to refute. As soon as one person hasn't had all of those things happen to them and you would have heard about it wherever you were if they did, then you go, well, this thing's obviously Pollux.
+
+[00:07:33] Yeah, but I guess what that means is that people always must have told the truth, right? So in court, they always did. In the olden days with the Bible used to, in Ireland, you'd have to kiss the Bible, but people would just slip their thumb in the way so they kiss their thumb instead of the Bible because they were scared, obviously, if they kissed the Bible and told a lie that something bad would happen to them. I still think something bad will happen to you. I think something bad will happen if you believe in it and you also then get out of it by kissing
+
+[00:08:01] your thumb. Do you think so? Yeah. Yeah, but if you believe in something, you can make other rules up, right? Like people who... Like if you have your fingers crossed behind your back. Exactly. Like, which is the pivotal scene in the Truman show, like she didn't get married to Truman
+
+[00:08:17] by crossing her fingers behind her back, technically. That's what she believes. Does that have legal basis? Well, he's a lawyer in that film, so he would know. And I think, yes. Is he a lawyer in the Truman show? Yeah, he is. I'm thinking of Liar Liar.
+
+[00:08:29] Yeah. But in Liar Liar, he had his fingers crossed all the way through, so it shouldn't really be called Liar Liar. That's true. OK, it is time for fact number two, and that is my fact. My fact this week is that American pioneering explorers Lewis and Clark have been tracked via their poo. I mean, we tracked them already via their extremely detailed journals that they wrote at the time.
+
+[00:09:02] But what was that journal written in there? So this is very interesting. If by chance you don't happen to know who Lewis and Clark are, they were explorers who in 1804 were trying to find a source from the Missouri River to the Pacific. So they went on this big trek. It was a 28 month, 28 month long trek. And along the way, and it's a historic trek in America, and they know many of the spots that they went to, but they don't know exact locations, and they've always wanted to find
+
+[00:09:33] out exact locations. Many people have gone out and seen where trees have been chopped down, where old bits of camp have been left, but many people have explored since then. So there's no identifiable way of saying for sure that that is Lewis and Clark some 200 years ago. So what they have realized, though, is that Lewis and Clark, when they went on this expedition, their whole team was taking this special little pill called Kalamel, which was used to treat syphilis, but also constipation.
+
+[00:09:59] Because while they were out on these missions, they were eating such raw, weird food, they needed to blitz their body of all the stuff in one foul swoop. And so they use these and they would take a day to sort of dig a latrine and the entire camp would go into this. They'd take a day to dig a latrine. I wonder if it took them 28 months. They're constantly taking toilet. I like the way you said, I don't know if you actually said this, but it sounded like you
+
+[00:10:19] said one foul swoop. It did, yeah. The saying is one foul swoop, but actually, when it's diarrhea, it is one foul swoop. That was the pun that I definitely was making, so yeah, thanks for picking that up. But I'm missing the main point of this fact, which is, inside this pill was mercury, and it was mercury that was flushing them out, and mercury doesn't degrade. So what they've been doing is going along the tracks and looking for high levels of mercury in the ground of these latrines, and they've been finding them, and now they know
+
+[00:10:49] the exact locations of where they were pit-stopping along the way. Some 200 years later, their poo mercury is still sitting there in the ground. So cool. Yeah. Is it, or is that the trace you want to leave on Earth, of yourself? It's not the only trace they've left. As you say, they left incredibly detailed heroic exploits and stories and things. But syphilis was a massive problem on that trip, wasn't it?
+
+[00:11:10] Because, in fact, STDs generally, because it was Lewis and Clark, and then they had this big expedition of people with them, and there was loads of shagging. So all the men, except Lewis, slept with lots of the Native Americans that they found, loads of the tribal women, and so there was a lot of exchange of STDs, and syphilis came to Europeans from Native Americans, and then, I'm sure, we, in return, gave Native Americans Smallpox. Yeah. And hundreds of other things.
+
+[00:11:38] How do we know that Lewis didn't sleep with anyone? Because the other people who were on the expedition commented on the fact that he was really, like, a bit... He left extremely detailed reports of not having sex with Lewis. Yeah. That's what I was going to say. It sounds like he was in charge of the diary. I think...
+
+[00:11:54] Do your wife. Everyone but me. Well, these pills were called thunderclappers. Yeah. Because they were so big and so violent in the effects they produced on your stomach. Yeah. Their official name was Dr. Rush's Billious Pills. Wow.
+
+[00:12:10] But they were known as thunderclappers. And they were big. They were, like, four times bigger than a normal pill that you might take an aspirin or anything like that. Wow. I guess you just break it in four and then you're okay. But even so, that would look frightening. Yeah.
+
+[00:12:23] Coming at you. But it was weird because they were sent off by Jefferson, weren't they? Yes. He was behind it. And he thought they were going to find enormous woolly mammoths and stuff. And giant sloths. Effectively, they were on a Bigfoot hunt. They were looking for cryptids.
+
+[00:12:39] They were looking for mythical... Well, they were looking for the Pacific. Yeah. Were they? Because it sounds like they were looking for woolly mammoths. He said you might find some woolly mammoths on your way to the Pacific. And if you do, please make notes. And he said there was another theory that Jefferson had.
+
+[00:12:54] They might meet a race of Welsh-speaking Native Americans. Yes. Which they did not. But they did meet some Native Americans who could swear in English because they'd met traders. And all of a sudden they ran up and just said, son of a bitch. Do you really? Yeah.
+
+[00:13:08] That was how they knew they were close to the Pacific, in fact, wasn't it? Oh, really? Yeah. Because they were really worried they were so lost. America was much bigger than they'd realized. And they weren't getting to the Pacific. And then suddenly they started noticing that the tribespeople who, up until that point, had never seen a white person before, were suddenly wearing kind of British sailors'
+
+[00:13:24] outfits and like sailing hats. And yeah, all the phrases they knew were, yeah, son of a bitch. And all my artis and musket and damned rascal and stuff like that. And selling t-shirts that said, my dad went to the Pacific. And all I got was a shitty t-shirt. Exactly. Because that's obviously the only way that they could have come across any white people. Yeah.
+
+[00:13:44] Also, they were basically covered in mosquitoes all the time. The mosquito clouds were so thick around them that all their meals they had to eat over the smoke of a fire, because obviously mosquitoes don't really like that. Even then, as they were eating their meat, dozens of mosquitoes got in the way as they took each bite. So they were constantly eating mosquitoes. And Lewis, I spent a third of his budget on anti-mosquito devices and other things like that.
+
+[00:14:09] And also, hog lard. They were smeared in hog lard for the whole journey, because that keeps mosquitoes off your skin. Does it? Or is that what they thought then? A bit like they thought if you ate loads of mercury, there would be no problem with that. I don't know.
+
+[00:14:20] I suppose anything that stops a mosquito being able to puncture your skin might work. Maybe. I just thought hog lard to me sounds quite delicious, and I wonder if it sounds delicious to a mosquito. Maybe. Especially if you're sat really, really close to a fire the whole time. You're just going to smell like bacon. Oh, my God.
+
+[00:14:35] They just put pork crackling on themselves and expected to deter animals. So one sort of possible justification of Lewis having not been sleeping around is the fact that he was massively in love with a lady who eventually became his future wife. And her name was Judith Hancock, and he partially wooed her by naming a river after her while he was out there. So when he came back, he said, I've named her. River Judith. Yeah, I can't.
+
+[00:15:04] Must be Hancock, right? Must be Hancock. Actually, that's the second item of geography that they've named with the word cock in it, because they also named something cock rock, and it was this big rock that looked like a cock and not the fowl, and I use fowl properly at that time. Yeah, it looked like a big penis, and so they called it cock rock. Really? Yeah.
+
+[00:15:28] I didn't know that. Yeah. Because I know that everyone on the exhibition got something named after them, including the dog, which is nice. Really? But did they just eat a load of dogs all the way through? They only ate one dog. I believe they ate lots of dogs.
+
+[00:15:37] Oh, did they? Oh, no, maybe they ate lots of dogs. I read 200 dogs. Sorry. Sorry. One, 200. Dear wife, we've definitely only eaten one dog. I just remembered they ate lots of dogs, except the one dog that there was their Labrador
+
+[00:15:51] companion along the way. Okay, so they brought 201 dogs. It's a different story, isn't it? 201 Dalmatians. Lewis got shot on the expedition by one of his own men, and it was because they were out elk hunting, and he was out hunting with his mate, who was blind in one eye and very short-sighted in the other, and mistook him for an elk. So he also fired a musket shot straight through his buttock, and so he couldn't sit down with
+
+[00:16:19] the rest of the trip, apparently he had to spend the rest of the expedition lying face down in the boat because he couldn't let his arse touch the ground. You have to be very short-sighted to mistake a man for an elk. You do, yeah, yeah. It's true. But they wore, you know, sort of skins and stuff, animal skins. So he was dressed as an elk. He was dressed up as an elk.
+
+[00:16:39] Maybe he saw an elk and shouted elk, and the guy who shot him thought he was an elk. Who knew his own name? Yeah. I have some stuff on laxatives. Oh, cool. Do you know in bingo, they say Drs. Orders? Number nine. I didn't know that.
+
+[00:16:57] You know that, Anna Newell? Yeah. She's a bingo. Huge bingo fan. That's because during World War II, number nine was the name of a laxative handed out by medics. Really? Which I didn't know.
+
+[00:17:08] And did you know ketchup was originally sold in pill form? And they thought it would cure illnesses such as diarrhea, jaundice, and indigestion. But actually, they ended up fraudulently making them, and instead of putting tomato in them, tomato extract in them, they just put laxatives in them. So basically... So it wasn't actually curing? No, it was just making people shit themselves. And for people who are already suffering from diarrhea, that must have been...
+
+[00:17:36] Oh, God! So this wasn't ketchup as a food supplement. No. You wouldn't have your chips, and then you'd have the chips on the pill of ketchup. No, it was in the old days when they had these thing called patent medicines. Okay. You know, things like 7-Op used to be one of those. Coca-Cola kind of was one as well, and dog's pepper, all these things were.
+
+[00:17:54] And ketchup pills were one of these things that people used to take for just the general illnesses. Wow. Yeah. That's so cool. These are Herodotus. Egyptians used to spend three days in every month, three successive days in every month taking laxatives. No.
+
+[00:18:12] That's what Herodotus says. Oh, Herodotus. Wasn't he the bloke who said there were ants the size of foxes? Yeah, he couldn't have been right about everything. I reckon about this one. But that kind of makes sense, because they'd feel like they're flushing you out, which actually we've learned is not a good thing. It just means it's just another way of saying it massively dehydrates you.
+
+[00:18:30] I could imagine in the olden days they would have thought, this looks like bad stuff that's coming out. That's good. Yeah, definitely. They used to be reusable laxatives. So one of the most popular laxatives was called antimony, which is a chemical element. And it worked, and it was used in the 1700s. And it's been used for loads of stuff.
+
+[00:18:50] So I think the Egyptians used it as eyeliner. But yeah, it became a really popular laxative. Not after it's been used as a laxative. Well, I don't know. You can wash it off, rinse it in the nail. Yeah. But the good thing about this is that it would stay completely intact through your system. So it totally flushes out your system, then comes out on your poo, and then you pick it
+
+[00:19:11] out and reuse it later. Wow. And apparently, according to the source I was reading, which was from a university somewhere, it said, some lucky families passed down antimony laxatives from one generation to the next. To my wife, I leave the house to my son. I leave the windows. And to my other son. I leave my well-used laxative.
+
+[00:19:39] All right, it is time for fact number three, and that is Anna. My fact this week is that the authors Thomas Hardy, Roger Kipling and Joseph Conrad have all written books the size of postage stamps. This was for Queen Mary's Dolls House, which is just so cool. And if you haven't seen it, you should. It's a Windsor Castle now. But it was commissioned in the 1920s, and it was finished in 1924. And it was built for Queen Mary, who was the wife of George V.
+
+[00:20:09] And the idea was her cousin's idea. And her cousin, Princess Mary Louise, contacted 171 authors to write miniature books for it. So authors who did write books for it were J.M. Barry, Chesterton, Conan Doyle, Robert Graves, Huxley, A.A. Milne, Edith Wharton. It was every big writer of the time, wrote a small original novel for it. And they were about the size of a stamp, about three centimetres by one centimetre. And the only refusal was from George Bernard Shaw, I think. I think there are a few refusals. I think Virginia Woolf refused as well.
+
+[00:20:43] She wasn't asked, I don't think. Well, she's... Ooh, accounts differ. Yeah. Do they? Well, no, I don't... I thought she wasn't asked. She was actually...
+
+[00:20:52] So she, her girlfriend at the time, or lover, was Vita Sackville West, who was asked and who did write something. And the way I found out about this is that they're just publishing the thing that she wrote for the first time in full size. And they've realised that the novel that she wrote for this doll's house is basically exactly the same as Orlando, which was Virginia Woolf's most, well, one of her most famous novels. And which Virginia Woolf said she was inspired to write Orlando by Vita Sackville West,
+
+[00:21:19] but we've only just realised she literally was inspired by this idea that Vita had. So hang on, did she, Virginia Woolf, plagiarise an existing novel, but we just didn't know about it because it's too tiny? It's the same general idea as this nymph-like person who travels through lots of fairy tale landscapes, discovering stuff. But it's most definitely, they were very, very in love. And Orlando is like this whole love letter to Virginia Woolf's lover. And so she was open that she was inspired by her.
+
+[00:21:44] Wow. But it turns out this book is literally... Imagine what, have we read all the other books just to find out if there are any other great books that we don't know about? No, I mean, they do have to be quite short because... Yeah. How long are they? They're about 30 words. Because I could come up with, you know, a nymph-like creature travelling through fantastical worlds.
+
+[00:21:58] That's half the words right there, isn't it? Yeah. But if someone wrote another book off the back of that, I wouldn't feel too hard done by, because they've really put the hours in. Yeah. Weirdly, they've got about 20 words on a page, which I think is really impressive. They have to write very small three... Okay, me and Andy are going to write some stills here.
+
+[00:22:15] I'm trying to come up with a box that's three by one centimetre. Once upon. I think hers was 3.9 by 1.5 centimetres, maybe. Yeah, see, James is getting... I've just written once upon a time. I know it's a bit of a hack-opening, but I've just written it anyway. I've written exactly the same opening. That is plagiarism.
+
+[00:22:32] You can see how the Orlando situation happens. I mean, we are wildly in love with each other, so it's not that surprising. I think I'd be surprised if I could get 20 on there, but maybe about 12. I've seen photos, and they do cram on a lot more. In fact, they even cram detailed drawings. A few have been reproduced already. Back in 2012, there was an author's book who was made a large print. Andy, you've double spaced yours.
+
+[00:22:57] That's the problem there. What did you go for after Once Upon a Time? Once Upon a Time, there was a tiny pony with a nice haircut, but then I ran out of ideas. What have you got, James? Well, mine didn't have quite as nice a haircut, but it's really a love letter to use. This is an amazing dollhouse.
+
+[00:23:19] It's incredible. It's all the stories about the rest of the house, and it was built by Edwin Lutjins. Yeah, like the biggest architect, probably of the 20th century in Britain. He spent half his time during the construction of this house, building the city of New Delhi, which was 80 square miles, and he spent the other half working on a single dollhouse, which was five feet high.
+
+[00:23:36] That's mad. Yeah. So cool. It was cool, wasn't it? The toilets had working plumbing. It had electricity. It had lifts that worked. The functional lifts.
+
+[00:23:46] Yeah. It had a cellar with 200 bottles of Chateau Lafite 1875. No. It's so incredible. So Dunhill, the cigarette manufacturer at the time, he donated tiny cigarettes and cigars to the house. You know, all these people, basically it was a huge national project,
+
+[00:24:04] because it was going to be the centrepiece of the British Empire Exhibition of Arts and Manufacturing. It's a bit like the Millennium doll. It is. Isn't it? It really is, yeah. It is a bit smaller than that, but aside from that, it is the same.
+
+[00:24:16] Yeah. But do you know the one thing that wasn't in it? Any dolls. Really? Yeah. There were no dolls in this doll house, because if you put them in, it would grotesquely dispel the enchantment.
+
+[00:24:28] Wow. So is it really a doll's house? Good call, yeah. Yeah, it's just an uninhabited one. It's still on the market. You're right. A house doesn't stop being a house as soon as I leave for the day.
+
+[00:24:39] That is a very solipsistic way of looking at the world. I like the fact that it also contains, as part of its library, a stamp album. Yeah. So the stamps are one-twelfth the size of actual stamps, whereas the books are the size of stamps. By the way, if you want to see all of this stuff, and there's so much more,
+
+[00:24:59] really do go to the Royal Collection Trust website, because it just has every single item on there, in miniature descriptions of where it's come from. Or go to Windsor Castle. Or go to Windsor Castle. Is it on view to the public? Well, when I went, I saw it years ago, when I was a kid, yeah.
+
+[00:25:13] The weird thing about this place is, it was for Queen Mary, and she was an adult at the time. It wasn't created for a child. And doll's houses weren't originally for children. Really? Oh, they were markers of status. So the first one was made for the Duke of Bavaria in 1557,
+
+[00:25:29] who was not a child. Wow. And then later on, about a century or two later, there were things called Nuremberg kitchens. And these were doll's houses, right? And they had all kinds of stuff with them. They were full of all the household items. But they were designed to show young women
+
+[00:25:43] how to become the lady of the house. So it was like, you know, there's little military maps that you push little tanks around, little soldiers. It was like a domestic version of that. You say, right, this is how you run the house. This is how you instruct the servants to move around it. This is how you need to run things on a day-by-day basis, clean here, this, that.
+
+[00:26:00] That's so cool. So that was the purpose of the doll's house in the 17th century. Amazing. It's amazing that they thought that no one would be able to work out how to live in a house without a doll's house to tell them how to do it. I know. Come on, the houses were way more complex.
+
+[00:26:14] If you lived in Downton Abbey or something, you had to know which scullery you'd find which made to deal with which pan. It was very complex. You know the game The Sims. One of the biggest games of all time. Love it. Love it, right? Yeah. Awesome game.
+
+[00:26:28] That started as a doll's house. Did it? Really? A real physical doll's house. A virtual doll's house. It still is a virtual doll's house. Yeah, but so the... It started as it meant to go on.
+
+[00:26:38] No, but this is a very interesting thing. We'll write the creator of The Sims. He created a virtual doll's house of his house, which he lost during a firestorm in 1991. And he was so upset about losing the memories of his house that he created a virtual miniature version of his house on a computer where he just literally replicated all the rooms so he could have a memory of what he once had.
+
+[00:27:04] Yeah. And then he saw that and thought, actually, this might be something big. And he pitched it to the people who made Sim City. Wow. We got to it. He called it his virtual doll's house. And did people...
+
+[00:27:16] Whenever they asked him his name and he said, we'll write, did they always say, no, you can just tell us. Don't worry about it. Some stuff on small books. Sure. The smallest book, according to the Guinness Book of World Records, is called Teeny Ted from Turnip Town.
+
+[00:27:32] And it was made in 2007 by Robert Chaplin. And it's 0.07 millimeters by 0.1 millimeters. And it tells the story of Teeny Ted's victory in the Turnip Contest at the annual county fair. Spoiler alert, sorry. Sorry, 0.07 millimeters. Yeah. I mean, how is that even possible?
+
+[00:27:52] Well, it's just small. It's carved into micro-tablets on a polished piece of single crystalline silicon using a focused gallium-iron beam. And how? It kind of helps. I don't know, science is evolved. How are we supposed to read it? Well, I'll just tell you what happens.
+
+[00:28:14] Well, he did a Kickstarter project, or one of those crowdfunding projects, and they've printed a large print edition. But since then, a Russian guy called Vladimir Anitskin has made a book which is 0.07 millimeters, the same by 0.09 millimeters. So it's 0.01 millimeters shorter. And that is a story about a flea's shoes.
+
+[00:28:38] Really? Yeah. And he placed the finished pages into half of a poppy seed. Wow. That's how small that is. Because it would rattle around in a full poppy seed. Yeah. And the smallest book I think you can buy on Amazon.
+
+[00:28:54] Not the best book that you can buy on Amazon. Are there other books available? But the smallest book is called The Smallest Book in the World. And it was from the 1st of September, 2001. And it measures 2.4 millimeters by 2.9 millimeters. And there is one used copy for 700 pounds. That's so good. Is the picture of it just unbelievably tiny
+
+[00:29:18] when you see the cover art? There is a little kind of picture. And there's a picture of a matchstick next to it. And then it says it's the size of this matchstick head. Wow. And there's a tiny bit. The author signings must be an absolute bastard, mustn't they? I'm afraid I'll need a gallium ion cannon.
+
+[00:29:41] Okay, it is time for our final fact of the show. And that is Andy. My fact is that army ant nests are made of other army ants. So this is like a doll's house made of dolls. If I can blind you all with science. Or a human house made of humans. Terrifying. Exactly. Yeah.
+
+[00:29:58] So they have these weird phases of living in one place. They live in one place while their larvae are growing. And then they go on the road for a bit like a band. They tour to a different place every night. Well, like a band that marches through a jungle eating everything in its path. Yeah, exactly. Yeah.
+
+[00:30:15] So like Aerosmith, for example. So they have these three week long roaming phases. And during the roaming phase, every night they form a living colony and a load of the ants link together and create a ball around the queen. And it's got tunnels and it's got chambers. But all the columns and pillars and walls are made of army ants. So cool.
+
+[00:30:33] It's really weird. They're all alive. They're all alive, yeah. And they have hooks on their feet which allow them to create these bivouacs as they get called. I wonder, do they have, because ants are very specialised in their rules, aren't they? But I wonder if they get to be different parts of the house
+
+[00:30:47] like summer sofa ants and summer shower ants. And there are about half a million in the colony. And they're all to these raiding parties of about 200,000 which just fan out and then march, as you say, eating everything in their path. Yeah. Those guys are absolutely incredible. There's like stories of them eating drunk people
+
+[00:31:06] who've passed out in the middle of the jungle. But I never found any evidence that that's actually true. But they will eat stuff. If an animal's injured, they'll just go over and eat it and it'll just be boned by the end of it. Yeah. There are apparently 557 associates to an army ant march by which I mean animals that kind of feed off them
+
+[00:31:26] or are helped by them. So you've got mites who live on the ants. You've got birds who eat any insects that are running away from the army ants. You've got butterflies who follow them, eating their droppings. Yeah, more than 500 different species are following these army ants around, living off them. That's so cool.
+
+[00:31:45] There's actually a new species that's been found that is one of these 500, I guess, which is a new species of beetle that's been found in Costa Rica and it bites onto an army ant's bum and pretends to be a second bum and hitches a ride and that's how it travels. And so you look at this army ant
+
+[00:32:03] and scientists looked at this army ant and well, it's got two arses. What a weird species of ant. And it's actually just this guy who's got his teeth embedded in his bottom. Yeah. But surely it's not convincing to pretend to be a second bum. Why not?
+
+[00:32:15] Because I don't know anyone who's got two bums. You're not an ant, though. No, I guess not. And also, ants, I suppose they can't really turn around and look at their own bums. No. No. So they're just going to think
+
+[00:32:28] they've put on a bit of weight down there. Yeah, it's true. And they're also really polite. So if they say, does my bum look okay in this? They all just tell each other, yeah, it looks great. They go, which one? Here's another weird thing that they do. This is army ants.
+
+[00:32:43] Have you guys heard of an ant mill? I'd never heard of this before. Okay, this is when army ants are in a big group of army ants who are going out. And it's to do with what it said is when they're blind. So I don't know how. They're all blind. Okay, right.
+
+[00:32:59] So they're all blind. Thank you. That makes so much sense of this now. It's what is they lose the pheromone track of where they're on. So one of them leads them astray and they all head off and then suddenly they're lost as a pack. But then what they start to do is follow one another and it eventually turns into a circle
+
+[00:33:14] and they just walk in a circle till they die of starvation. Basically, it's just a continuous circle where they think they're walking back. It's like being in a conga, but the back of the conga joins the front of the conga and you just conga until you all die. Exactly. Very sad way to go.
+
+[00:33:30] It's not a sad way to go. It's the happiest. I think that is a sad way to go. I wouldn't want to go to that wedding. People always say what's the best way of dying. You know, like some people say there are some ways of dying where you have like euphoria just before you die, isn't there? And you're saying the deaf conga is the happiest?
+
+[00:33:47] Well, it's quite happy. Is it how you would want to go? Absolutely. Or deaf by, you know that one where you sit down on the dance floor and pretend you're rowing a boat? Oh, that's a great move. Maybe it oops upside your head. Oh, yeah.
+
+[00:34:01] That would be a good way to go because you're doing the conga thing, but you're also sat down. So you're a bit more comfortable? Yeah. The aunts don't do that one though. And they don't have even the music for the conga line. I do think it's quite a bad way to go.
+
+[00:34:13] That's a real tragedy actually. Tragedy. Now that dance would be a good one. Yes. Now aunts do sometimes make noises though, not music and not 90s pop hits, but they do make noises. If you listen closely, they're going,
+
+[00:34:28] hey, Macarena, pivot. There's an aunt nest beetle which can speak three different dialects of aunts depending on which nest it goes into. So they do it by stridulation, which means you're kind of rubbing one body part on the other, but they know three different dialects
+
+[00:34:45] and they'll go into a nest and pretend to be that aunt. But if they get that accent slightly wrong, the other aunts kill them and eat them. So that's like kind of going to a bar in Newcastle and speaking with a Geordie accent, and they realize it's not a Geordie accent and then they kill you and eat you.
+
+[00:35:01] So actually, I mean, there's a different language. It's like going to a bar in France and speaking with the wrong French accent. Terrifying. Weirdly, so that was a beetle that speaks these different accents, right? So there are other beetles who have evolved to look like army ants
+
+[00:35:15] so they can sneak in to the army ant nests, and they have developed a gland which can squirt a chemical at the ants and blast them out of the way, so it allows them to make their escape if they're ever rumbled by the ants. But these beetles spend their whole lives living in the colony.
+
+[00:35:32] You spend your whole life surrounded by a hostile species and it looks ridiculous, right? Because they're blind so they don't know, but to us, when you see pictures of it, it's just like, that's obviously not one of you guys. I actually didn't realize they were blind. I just thought the ants were stupid.
+
+[00:35:47] But actually, that explains why they couldn't see that they had two bums. Yes, it does. God, that one little detail is really on so much about the facts we've collected. Does my bum look good in this? I don't know, I'm blind. They do have, when they find meat,
+
+[00:36:02] they transport it to what they call a booty cache, so that kind of fits the bum thing. They don't call it that. That's a good point, yeah. Something they can do with their bodies, which is really clever, is that they plug any holes in the ground or any obstacles and this speeds up their progress anywhere.
+
+[00:36:18] But they're really smart about it, so as they're going along in these big troops of hundreds of thousands of ants, they'll come across a little hole or a tiny little bump that maybe we couldn't even see. And they measure up their bodies as they go past to see which of them is the right size for the hole.
+
+[00:36:35] And then the right size ant will splay out over that hole and spend hours while the other ants just go back and forth over him if they're collecting foraging or anything. And scientists have literally, they've drilled slightly different sized holes in a plank of wood and they watch the ants go and they measure themselves up against the hole.
+
+[00:36:51] They're like, nah, I'm too big for that one. Barry, you're on this. And the different sized ants go and then spend hours spread out over these holes. It's a bit like lemmings, the game, isn't it? Do you remember that game? They all did different things to get you past those holes, but then everyone just keep marching over you and stuff.
+
+[00:37:06] Yeah. Just like that. Maybe they based it on that. But do you think they like it? Or do you think they get to a hole and they go, that's the same size as me? Yeah, I think it's that. They try, they sound tiptoes and go,
+
+[00:37:16] no, I'm definitely too tall for this one. No. But they do get... How do they know? They're all blind. But you can feel the size of a hole. Sorry, can I just say, not all army ants are blind.
+
+[00:37:31] There are lots of different species of them and the ones that have the ant mills are blind. Right. But not all species are. Is there sometimes a big hole that the beetle has to get into? When he's rumbled. It's very cool though, because if you're sitting in the hole,
+
+[00:37:52] you don't get to get any of the food that the ants are finding. You don't get any prey, but they save you some when you get home. They get a meal when they get back, because for the work they've done, for the colony. That is the least they can do, I think. So some ant nests, these are not army ants now,
+
+[00:38:07] but this is a different species of ant. It's actually called the hairy northern wood ant. Some of their ant nests have essentially a listed building status. Oh, really? In the UK, the British Forestry Commission have mapped and said these must be preserved,
+
+[00:38:22] and it's a little skyscraper city of ant nests up to two metres high, made by ants, which is bigger relative to an ant than the Empire State Building is to a human. Yeah, and they're all made of pine needles, and there are 69 of them, which have been found and plotted, and they are basically preserved
+
+[00:38:40] because the British Forestry Commission have said you have to look after these. So you can't build a conservatory on it or anything? No, you can't. No. But who's going to stop an ant if it wants to make a conservatory? That's true.
+
+[00:38:51] They're not going to get plant information. But actually, a conservatory would be really good for them because they need... No, it would, because they need heat, right? And the way that the ants get heat is some of the workarounds will go outside, sunbathe for a bit, soak up heat,
+
+[00:39:05] and then quickly go back in and release the heat into the nest. And that's their method of warming up their nest. So a conservatory would be much better for them. Yeah, and they're farmers, aren't they? A lot of ants are farmers, so a conservatory would be great for growing their food. There are a lot of ants that can't bite into seeds
+
+[00:39:21] because their teeth aren't strong enough, their mandals aren't strong enough. And so instead, what they do is, which is a really long-winded way of getting a meal, is that they plant the seeds, they fertilize them with their own feces, they wait for them to grow at germinate and split for the huster split,
+
+[00:39:33] and then they can eat the stuff inside. Wow. Which is quite a long time to wait if you're really hungry, but... It is, yeah. You've got to plan your dinner parties well in advance. Did you guys know that ants' mandibles used to be used, and still are used, I think,
+
+[00:39:46] in bits of East Africa to stitch up wounds? They get an ant, and the mandibles are just the right size of certain ants to heal up a wound, and then they'll make an ant bite into the sides of a wound, of a cut, and then the little teeth will pull the skin together, and then they cut the ant's body away,
+
+[00:40:05] and the teeth just sit there healing up the wound. So they decapitate the ant once it's acted as a stitch? It's actually more like deboditating them, I think, because you're troubling the body off, aren't you? The effect is much the same. That's just semantics. Great news, don't worry. We've managed to get your sentence commuted from decapitation
+
+[00:40:26] to deboditation. Andy, do you have a relative in North Carolina called Joan? Not that I know. Ah, okay. I was reading the story of a lady called Joan Murray in America. She went parachuting, skydiving, and this is extraordinary. Her parachute didn't open,
+
+[00:40:46] so she plummeted to the earth. She approached the ground at 80 miles an hour, and as she landed, she landed on a mound of fire ants. And doctors reckon, I got this off Wikipedia, doctors reckon that the shock of having been stung over 200 times by the ants as she landed on them released a surge of adrenaline in her
+
+[00:41:06] that kept her heart beating so that when the emergency services got there, and she's still alive to this day. Wow. Wow. I wouldn't have thought hitting into the ground after your parachute not opening. I wouldn't have thought the thing that killed you
+
+[00:41:19] would be a heart attack. I would have thought it would be the crunching up of all of your bodily bones and organs. But if you landed on a mound of ants. And then they repaired all your wounds with their mandibles. Yes, exactly. They stitch you as you land. Do you think they all basically caught her, maybe?
+
+[00:41:36] Yeah, effectively. I guess you do have accounts of people falling on, I don't know, trees and hay bales and stuff like that and managing to survive so supposedly she did her heart stopped and then she got bit so many times. I think it's stories like this that the phrase citation needed was invented.
+
+[00:41:55] No, I do believe that. They do actually say that often if you're falling out of a building or something, that what? I'm going to aim for that ant. Ants are so strong relative to their body size. From this height, all those people look like ants. Oh, no, I'm one foot away from the flower.
+
+[00:42:17] They don't say any of that. They just say that you have a heart attack on the way down often that kills you. Do they? Yeah, yeah, I think they do. So it is plausible. Wow. Not sort of stupid facts.
+
+[00:42:28] You guys weren't so busy mocking what I've said before. I might have stepped in to save you earlier. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts.
+
+[00:42:49] I'm on it at Shriverland, James. At James Harkin. Andy. At Andrew Hunter M. And Chazinski. You can email podcast at qi.com. Yep, where you can go to our group Twitter account, which is at no such thing.
+
+[00:43:00] Or you can go to our website, nosuchthingasafish.com. We have all the links in the description as fish.com. We have all of our previous episodes up there. We have a link to our tour dates, which are extending into March of next year, and also to Australia and New Zealand
+
+[00:43:17] in May of next year. And also into Ireland and Scotland. Exactly. We're going majorly international now. And you can also find a link on our website to our book, The Book of the Year. It's a wrap up of the weirdest stuff that happened in 2017. And it's good.
+
+[00:43:34] I've read it. I like it. And I think you will too. So please do that. We'll be back again next week with another episode. We'll see you then. Goodbye.

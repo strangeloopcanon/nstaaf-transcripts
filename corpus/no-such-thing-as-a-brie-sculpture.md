@@ -1,0 +1,271 @@
+# No Such Thing As A Fish - No Such Thing As A Brie Sculpture
+
+- Episode date: September 28, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-brie-sculpture
+- Slug: no-such-thing-as-a-brie-sculpture
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing as a Fish, a weekly podcast that is coming to you today from the QI offices in Covert Garden. I am Anna Tysinski and I'm sitting here today with Andrew Hunter Murray, James Harkin and one Alex Edelman. Hi, Alex. Thanks for coming on. Who was that other guy we used to have? Who? The other, there was another guy. No, it's always been three person and one guest, doesn't it? Oh, yeah. No, no, you're right. Sorry.
+
+[00:00:40] Alex Bell. Alex Bell. Okay. So once again, the three of us and our guest, Alex Edelman, have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with, this is going to seem suspicious because I'm never the first fact. And yet the day I host, we're starting with my facts. And my fact is that in 1903, it was made illegal in Boston to lie down in a canoe. That was very well known. I know it's subtle fact for you guys, but for us, growing up, the real neighborhood bad boys would get drunk late at night and take turns lying down in the canoe. Sure. So this is not news to Bostonians. Obviously, it's a big deal. No, this was a turn in the 20th century.
+
+[00:01:27] And it was because there were a series of lakes that had been created after the Charles River was damned about 100 years earlier. And they became lovers' horns. because basically it created all these little nooks and crannies in the water where you could pop in a canoe and you suddenly didn't have a chaperone and you weren't around the grownups anymore. So you took your girlfriend, popped in a canoe and went and lay down sexually in it, in the undergrowth. And people caught on to the fact this was happening.
+
+[00:01:53] And so a law was passed in the area that said you weren't allowed to act in unmoos. And that covered doing things like handholding in a canoe, embracing and lowering your head below the, you know, bit that's the top of the canoe. You were forbidden from canoodling. Canoodling. Is that one made its way over here? I've seen them.
+
+[00:02:13] Yeah. I've seen people call it that. So if you lay down in a canoe but you were by yourself, would that still get you in trouble? Well, I don't think it would, but technically it was illegal. And it was a $20 fine, wasn't it? Yes. But I read somewhere that that was about $500 today. Yeah.
+
+[00:02:29] So it's a more serious penalty than, yeah. Is it still in effect? Well, I didn't mean that it had been withdrawn. They only arrested people for a couple of years, and I think people got pretty annoyed about it. Well, basically people stopped doing it because cars became a thing. And so you could get away from your chaperones a lot easier in a car if you were, you know. And did they then call that car noodling?
+
+[00:02:54] But all that the band meant was, as it usually would, is that the kids started taking the piss out of the park rangers. And so they had phonographs in their canoes, which are basically like big, what are they called, boom boxes. Oh, yeah. It's like if you get an Audi these days and pimped it up with a massive stereo system,
+
+[00:03:11] this is the equivalent in... Exactly. They did that in their canoes and then blasted out like lewd songs and love songs and stuff and snogged each other in front of the park rangers. So is this technically immorality law? Yeah, that's exactly what it was. People thought it was immoral.
+
+[00:03:26] It spread as well. So it wasn't just in Boston. I read that 10 years later in Minnesota there was a curfew. and the police had motorized boats with spotlights, so they would be shining them around on the water, looking for lovers. And also, in 1930, in the following year,
+
+[00:03:41] the Minneapolis Parks Board vetoed all the names. You know how these days you get a car license plates that are banned because they look like rude words. So in 1913, there were banned canoe names that people tried to register. And they included things like the come on in kid, the kiss me quick, gee, I love you, Joy Tub,
+
+[00:04:03] Cupid's Nest and I would like to try it. What a name. I would like to try it. It's funny because there are in, in certain states, there's actually maritime exemptions. Like in Ohio, you can't be arrested on Sundays or the 4th of July for lesser crimes that you commit on a river. Really? Yes. They do not extend to cases of treason or felony.
+
+[00:04:30] So if you commit treason on a river in Ohio, on a. Sunday, you shit out a lot. So, yeah, the less serious crimes can't be arrested on a Sunday or July the 4th. Really? Yeah. That's like in Scotland, I actually, this is one of those things that we were always told because when I lived in Scotland, everyone says when you're pissed, you're steaming. And everyone said it was because the anti-drinking laws, the prohibition laws, didn't apply
+
+[00:04:55] if you took a boat out to sea, so everyone would just get on their steamboats. That doesn't sound very true. But I haven't verified that. Everyone had their old personal steamboats. Exactly. Just get tanked up and take the steamboat out. I wonder how low-fi you can define something as a steamboat. You're just sitting on like a plank of wood drinking.
+
+[00:05:13] What are you doing? You're like, this is my steamboat. Z-S. Kiss me quickly. Was Boston quite famous for this? Because there was a phrase that was banned in Boston, which this was later on in the century. So this was from the 1920s. And the phrase banned in Boston became super famous because so much was band and Bostonians were really into censoring so many books for immorality and publishers used to
+
+[00:05:38] try to get their books banned in Boston because then that was a mark of respect and awesomeness. And that's the easiest place to get it banned, right? Yeah. Yeah. Is it a very moral place, Boston? Boston, yes. Yes and no. So Boston had a reputation throughout its history for being a place, both of debauchery and a
+
+[00:05:56] place to sort of like somewhat atone for your debauchery. So there was like a very fragile piece that goes all the way. to the end of the 1980s in an area called the combat zone, like a very fragile piece between like the seedier parts of Boston, which is what it was known for, and the sort of like conservative side of Boston. Is it a port? It is, must be right?
+
+[00:06:15] It is a port. It's one of the biggest ports. Yeah, so you're going to have a lot of sailors coming in and that kind of thing, right? If it was an analog, the tea party would have been very difficult to hold. The Boston too, yeah, we're just throwing it into a pond. They got off actually on the technicality because it was a Sunday, and it's not technically treason. Because they boiled the tea, it was steaming.
+
+[00:06:37] The Boston Tea Party was December 16th, 1773. It was a huge landmark day for civil disobedience because it does, like literally all, I'm not kidding, all the way going back to the founding of Boston, the police elements of Boston and the troublemaking elements of Boston have been in this weird alignment. So the Boston Tea Party, when it happened, was seen as a huge failure of,
+
+[00:07:01] that balance because people really were for both those things existing but very separately. And when the Bostonians start to revolt against the British, a lot of the loyalist elements of Boston were really upset that this fragile piece between the brothels, which they like to access themselves and respectable society, were commingling. And it was a real big problem for the ruling classes in Boston. You had the Boston massacre around the same time, didn't you? Yes. Which is caused by like a snow.
+
+[00:07:31] snowball fight or something? Or there was like there was a real kind of problem between the two groups and then one guy threw a snowball and then it all kicked off. There were so many different little fights and little like the Boston Massacre was notable because the papers really seized on it and there was a popular woodcutting that ended up proliferating in the same way. I guess you could say the woodcutting sort of went viral even though it didn't strictly depict the true.
+
+[00:07:53] Viral woodcuts, the free Twitter age. It's a more fun one. A lot of people re-woodcutted it. Exactly, yeah. Lookup became a meme. They're like, what's a good meme caption for a woodcut of the Boston massacre? Mondays. I don't know.
+
+[00:08:06] But the thing that captured popular imagination was an 11-year-old boy named Christopher Seider, who was shot in a protest in 1770, and that really kicked things in a high gear. And after that, there was, until the end of the revolution, Boston was just like a horrible place to be British and an absolutely horrible place to be a British loyalist. But I thought it was look back on with fondness at the heroism of you independent Americans starting to throw off us respectable Englishmen. And our crazy king. And our crazy king.
+
+[00:08:36] But the loyalist elements of the North, they had a really good case until the British reacted. And then most of the loyalists were like, actually, yeah, this is probably not okay. Actually, these guys are dickheads. Yeah, absolutely. Yeah. Well, something interesting about the morality movement in Boston, though, later on,
+
+[00:08:52] was, so it was all enforced by a society called the Watch and Ward Society. And this is a society that clamped down. on lascivious literature and stuff like that. One of the driving forces behind it was a guy called Godfrey Cabo and he led this thing against books. He thought were immoral.
+
+[00:09:09] He thought the three musketeers was immoral. He thought Tolstoy was a moral pervert. He told his wife not to read George Elliot when he wasn't there. Absolutely not. She was dangerous. I know you stop your wife from reading that as well, James. But this is the amazing thing about him. Someone wrote a biography recently and uncovered
+
+[00:09:25] multiple erotic literature and letters that he used to send to his wife. all the time. So he'd write to his wife in German, which he didn't understand very well. And he sort of wrote about how he'd had this amazing dream about how she'd urinated in his mouth and he'd greedily swallowed it. Oh, God. Yeah, yeah. P.S. Do not read any George Elliott. There is a divorce in the third chapter. He said another letter saying he'd had a fantasy about her being a starving giantess who devoured him hungrily. And then he writes all this in German. And then he switches to English and he says,
+
+[00:09:59] Better destroy this letter, darling. Maybe you just didn't know the word for urine. Maybe in German it's very similar to chocolate cake. Right. It's probably that. That's so... Isn't that weird? No, it's almost too perfect, right?
+
+[00:10:13] The censor is like, I'm confiscating this erotic literature. Yeah, you're right. You can collect it. The pages will be stuck together in a few days. You know, that's still around the Watchin' War's Society. Is it? It's been, it changed its focus in the 40s to focus on more. more socially
+
+[00:10:31] acceptable vices to hate like gambling and other stuff and then they became a criminal justice reform thing and they're around in like a boring bureaucratic office near Boston Common now like they're still weighing in each other's mouths behind closed doors which of us can honestly say
+
+[00:10:46] we haven't written to a lover wishing they were a starving giant who would throw us into their mouths I've got some more things that are illegal in Boston actually most of these are illegal all over Massachusetts this is from an article on CBC which is strange but true obscure Massachusetts laws.
+
+[00:11:03] Great stuff. Which normally if we would read that, they would all be false, but I've checked most of them and they do seem to be true. So it's illegal to sell rabbits, ducks or chickens that have been dyed a different color than their natural color. That's like the guy that's like a fish seller in Thailand earlier this year who put googly eyes on his fish to make it fresher. That's so good.
+
+[00:11:22] And it's illegal to sing only a portion of the Star-Spangled banner in public. So once you start, you have to get all the way to the end. I read that And it says You can't It says if you play it As part of a medley Of any kind
+
+[00:11:36] You're breaking the law It's chapter 264 Section 9 of the Massachusetts Code So it's a definite thing So you have to sing the whole thing Even if you start Even if you sing the first word
+
+[00:11:47] And then you think better of it You have to keep going Well people are going to want to know You can leave the question Oh say can you see And people are like See what? Why the Don's really like
+
+[00:11:56] What are we seeing? Some risen's like, You need to give a full answer. It's full of cliffhangers. Wait, hang on, is there a last word to the Star Spangobanagan? Yes, we can see that. Okay, on to fact number two, and that is James's facts. Okay, my fact this week is that Henry VIII once enjoyed a pudding so much
+
+[00:12:25] that he awarded the woman who made it one of the monasteries that he just seized from the Catholic Church. That's some good pudding. It's amazing. What kind of pudding? It was not recounted as to what kind of pudding it was. It's the Holy Grail of pudding. When you say pudding, is it like a American putt? Like a chocolate moose?
+
+[00:12:45] Not like a moose. That's a pudding, but it's not a pudding. In the old days, a pudding was a lump of suet or, you know, started with raisins or it was a sort of discreet thing. So when you say pudding, are we talking dessert? I mean, it's a kind of dessert, but more specific than that. Okay, so I'm saying, so is a moose or it's not a moose? It's not a moose.
+
+[00:13:04] Okay, fine. Alaska's most popular game. So, yeah, basically, this is what happened. A lot of people will know this, that Henry VIII dissolved the monasteries, which meant that he took all of the property away from the monks and from the nuns, and what does he do with it? Well, he puts it into the coffers, but also he gives a lot of it to his friends. At one stage he lost some of it in a game of cards
+
+[00:13:32] Apparently he lost the Jesus bells of old St. Paul's Church on a single throw of dice Oh my gosh But yeah you've suddenly you've got a load of monasteries What are you going to do with them? You're going to gamble with them? Spend them on puddings I like to imagine that he had run out of change And he just tried the pudding and it was so good
+
+[00:13:50] He said oh I haven't got anything to pay with I suppose you could have this Sort of more inconvenient than just cash I don't think I'd accept monastery. If I were working in a shop, no. No, no, I just asked for the cash. You're short-sighted. That's what you are.
+
+[00:14:07] Sorry, Henry. Do you have contactless, maybe? So I found out of the fact that links these two things that you've mentioned in the fact, James. Pudding and Henry the 8th. So today, the Great British Bake Off tent is in a place called Wellford Park in Berkshire
+
+[00:14:22] and it housed a monastery before Henry the 8th dissolved them. So today, puddings are made. on the site of one of the dissolved monasteries. That's really, really good. That's incredible. That's really good. How did you find that out?
+
+[00:14:37] I don't know. You go baked goods monastery and Google was like, you're in luck today, baby. Very cool. But yeah, sweet food, which I assume this was, was a massive deal. It suddenly took off, didn't it? At least for the nobles in Henry VIII's time. And they had such impressive things. It was called a void, I think, the sweet course.
+
+[00:15:01] So you'd have a certain number of courses in your meal in the 16th century, and the number of courses you had depended on your social status. And then the last course was a void, and it was because you had it standing up while the table was cleared. So the servants came along and they cleared everything off the table, and the void were your sweet things that you just stood up and ate. You're kidding. Or you went elsewhere to eat them.
+
+[00:15:24] That's really interesting. Yeah. I would want to that sets me on edge of it I like to relax with a pudding and sit down well they want you on edge what if you just get like an ice cream when you're out in the park do you have to sit down to eat that preferably at a table with crockery
+
+[00:15:40] but yeah it rendered the table void that's that's unbelievable I can't believe we don't know what pudding it is it seems like no Alex I'm so sorry this comes I didn't find this in many places the main place I found it online is from memoirs of the court of Henry the 8th, volume 2 by Catherine Thompson, which is a Google book, which you can only get a few of the pages. I can only see a few of these pages. And I don't know, I don't think we know what it was.
+
+[00:16:11] I think it was just recounted at the time. She probably kept the recipe secret, though, because she doesn't want everyone getting a free monastery. Here's a thing, Henry the 8th's favorite dessert was called Maids of Honor Tarts. No, they're not. What? Maids of Honour on Tarts. Oh, it's ironic, isn't it? It's an ironic dessert.
+
+[00:16:31] Yeah. Made Tavon. I hear that he would eat one and then he'd behead the next one. Well, he just found these in a place one time they were served to him and he loved them so much that he confiscated the recipe and locked it in an iron box and announced they were for royal consumption only. Wow. It does sound not very true, doesn't it? I have seen it debunks. Yeah, go on.
+
+[00:16:54] Well, no, that's all it was. It was just someone said this probably isn't true. So I've seen other people saying that this lady was killed so that she couldn't hear that. And I've seen that debunked. This might not be true as well. I mean, it has the ring of fakeness to it, doesn't it? And there's another story that someone from the royal household then snuck the recipe out, and that's how we know it now kind of thing.
+
+[00:17:15] That's cool. But they're a bit like those, you know, those custard tarts you get in Portugal. I can't remember what I'm called, but like those. Oh, just like that. And he thought that was worth locking under. Lock and key? I don't like those, but a lot of people do really like them, don't they? I guess.
+
+[00:17:28] Yeah. One pudding that they enjoyed in Henry the 8th time was eel wrapped in marsy pan. That sounds really nice, isn't it? What's the grossest dish from history that you guys have come across? The one that comes to my head straight away is son of a bitch pie, which is made by all of the pieces of a cow of one onion. No. And it was like a cowboy recipe that they used to make in America. Son of a bitch pie.
+
+[00:17:54] It sounds like a cowboy recipe. I would love for you guys to have a day where you do a live QI podcast and cook many of the many of the dishes that you... It would be such a spectrum of deliciousness in terms of grotesque all the way to grate. I don't know if a podcast of vomiting for three hours
+
+[00:18:14] is what people want to hear. Well, you do the podcast first and then you have it out there. Then you have a vomatorium and you do facts about that. Okay, but... What's the place? I think we do. did this when I was on a podcast long, long time ago about a finger shot, a pickled finger.
+
+[00:18:27] Oh, um, sour toe cocktail. Yes. There's a big toe in some bar. Yes. And you have to. In Canada. Yeah. Yeah.
+
+[00:18:34] And you have to drink the shot or the cocktail or whatever and then give the toe back. But sometimes people steal it or swallow it. Or swallow it. And also you're supposed to kiss the toe. So it needs to touch your lips while you're drinking the whiskey. That's pretty disgusting. I mean, hey, if we can book it for the QI podcast Live, Get Charonomy Day. I didn't realize there were so many daily accounts of like Tudor court life.
+
+[00:18:58] And I found this thing called the Voices of Morbath. And this is a priest named Christopher Trichet, who survived the religious changes of Henry the 8th, Edward the 6th, Mary the 1st, and Elizabeth the 1st, by sort of subtly shifting his views every time. But he, but in his memoirs for the voices of Morbath, he expresses the most regret about the stripping of the monasteries. But at the time, he was like, this old thing, I've been saying we should get rid of this monosphere for years.
+
+[00:19:33] Yeah, but that's exactly how is his attitude. He's like, who loves Jesus? He's not here, is he? You're here, but he's not. And Queen Mary comes along, and he's like, I don't know what those bastards did with my monastery, but I want it back. But that's exactly what he says that he was like,
+
+[00:19:48] he was like his righteous fury when they came, right? And like, what whiplash you must have got religiously. I think we've all done it, though. I've definitely made horrible missteps in a conversation. And then found out the person I'm talking to has very, very different views and sort of subtly walked it back. But to do it four times is quite impressive. Four times in 54 years.
+
+[00:20:10] Oh, that's fine. Yeah, 13 years per walk. That's fine. I can do it in five minutes. I once took both sides of an opposing argument over the course of an evening and lost the argument both times. Alex, you've got to get some more mates. Yeah, I know.
+
+[00:20:24] You alone in a pub, just jumping from one chair to the next. You know that thing that chess players often do where they play multiple games of chess, but what they do is they play the moves that one person's played against them against the other person, so they always win at least half of the games. Darren Brown did that in 54, not to spoil Darren Brown's one of Darren Brown specials,
+
+[00:20:44] but he did that, wouldn't beat all these chess players. I was thinking you could do that in your arguments. You could just run to the other bit at the pub, and then just use the arguments that's what I tried. I tried doing that because someone made a really good argument I was like, you know what, you've convinced me
+
+[00:20:57] and then I had the argument later on the evening with my new convinced opinion and I got cream. I've got a chess fact actually about this fact, which is the Walsy, you know Cardinal Woolsey, who was Henry the 8th's bright hand man at the start
+
+[00:21:11] before he killed him. Spoiler alert. Spoilers. Once served an entire chess set made of Marzipan as a dessert which is quite impressive. We served it to the French ambassadors when they visited. That's a lot of eels.
+
+[00:21:24] I've always wanted to have a cheese chess board game where all the pieces are made of different kinds of cheese and when you take an opponent's piece, you get to eat it. Because it's only one word away from chess board and cheese bar. Exactly. So I think this is a big commercial opportunity that I'm throwing away now by saying it on a podcast. What would be your king cheese, you know, the ultimate that you're going for?
+
+[00:21:47] It's got to be a baby bell. It's got to be a baby though No, that's crazy Cheese drink That's the best cheese is it That's crazy A smoked gouda Nice
+
+[00:21:58] I think it's got to be a hard cheese Doesn't it Like for the king It's quite hard to have a player made of Brie I would say Depending on the temperature At the room you're playing in You might just play really fast
+
+[00:22:09] Free is so hard to carve The reason you don't see Bree sculptures But they just have an extraordinary number of courses at the Tudor dining table. So if there were these laws about how many you could have, and it depended on your status, as I was saying. So if you were a cardinal, you could have seven to nine courses, or seven to nine dishes.
+
+[00:22:29] It's a lot of that, isn't it? It's enough. If you were, let's say, a member of the gentry class, you're only allowed three dishes. And so you have to know what equals a dish. And it would be a specific number of a certain thing. So if you're having a swan, you only got one swan, and that's a full dish.
+
+[00:22:43] If you're having chicken, you get six chickens. If you're eating lark, you get 12 lark. For one person? It's a family bucket that. I think it's for the table, yeah. Because they have a, they had systems of trenches, you know, they'd have a big sort of central plate with all the food served and that and you take them that. Are you allowed to have half a swan and maybe just six larks? I don't, I didn't actually read into the law that much, but I'm sure you could negotiate with the authorities if they checked.
+
+[00:23:08] So Mark Wahlberg published his routine this week. Did any, did either you guys see that? Mark Wahlberg put his routine up online. This is, I don't want to bore you with the details, but how about I just entertain. you with the details. Mark wakes up at 2.30 a.m. Then he prays for half an hour, and he better pray, because from 3.40 to 5.15, he's working out.
+
+[00:23:26] It's not his last workout of the day. Then he showers. It is his last shower of the day. The shower is an hour and a half long. Then he has his first of three snacks. Okay. The snack only takes half an hour. And you might be like, only, yeah, because snack number two is from 8 to 9.30.
+
+[00:23:43] So that's an hour and a half for a snack, and he would save a whole hour and a half if he just ate it in the shower. So breakfast, lunch, and dinner are all on the schedule, but they're not part of snack. Mark Wahlberg spends two and a half hours of his day, just eating snacks. Wow. By the way, my favorite detail, he does half an hour of golf during the day. And I just like... I know, I just like to imagine him doing 18 holes in half an hour.
+
+[00:24:06] It's like a golf cart 60 miles an hour down a fairway. Just like, can I play through? I have one minute and 44 seconds to play this hole of golf. Here's what Mark Wahlberg eats. I start out with steel oats, blueberries, and peanut butter for breakfast. Then I have a protein shake, three turkey burgers, five pieces of sweet potato, and then it's 5.30 in the morning. At 8 o'clock, I have 10 turkey meatballs.
+
+[00:24:27] At 10.30 a.m. I have a grilled chicken salad with two hard-boiled eggs, olives, avocado, cucumber, tomato, and lettuce. Then at 1 o'clock, I have a New York steak with green peppers at 3.30. I have a girl chicken with bok choy. At 5.36 o'clock, I have a beautiful piece of halibat or cauterous sea bass with some vegetables, maybe some saute potatoes and bok choy. and then I have a lot of aqua hydrate during the day and then he goes, that's it.
+
+[00:24:50] It sounds like he's a Tudan nobleman. Yeah, it really does. The amount of protein he has. And by the way, nowhere during his schedule that he's published are there any bathroom bricks. So that digestive system. He probably does that in the shower.
+
+[00:25:02] Yeah, it's an hour and a half shower. That's why he's taking it. Or he leans out the side of the golf cart going 50 miles an hour with a very stressed out caddy. He was like, what are you doing? By the way, nowhere in Mark Wahlberg's schedule, was there any time allocated for work and acting, which I found very interesting.
+
+[00:25:18] I think that makes sense. So it's time for fact number three. That is Andes. My fact is that dolphins in the wild have been teaching each other how to moonwalk. Pretty cool. To Michael Jackson's songs or like, why are they doing that? Just for fun. Is it in the wild or is it at the... It's in the wild.
+
+[00:25:43] Oh, wow. So there was a pod of dolphins in Australia and they are wild. but there was one who joined them whose name was Billy. Don't know whether... Billy Jean. Maybe. He's just a fish who thinks that I am the one. Sorry, if he's a wild dolphin, why has he got a name?
+
+[00:26:00] Okay, so this is the thing. Billy, I think Billy was a she. Like Billy Piper. Like Billy Jean. So Billy was rescued from a polluted harbor and kept in a dolphinarium for several weeks. And while there, she observed other dolphins. things doing this moonwalking trick, which is where you kind of stand on your tail and you
+
+[00:26:21] swish back and forth really hard. So you move backwards through the water, like a moonwalk. She wasn't taught to do it. She just observed and started doing it herself. And then when she was released in the wild, she was spotted seven years later in her pod and loads of them were moonwalking and loads of them were really good at it. And others in the pod, 11 of them were spotted doing this trick. And what I really love about it, because this was actually about 10 years ago, this happened. Yeah. But why it's in the news at the moment is because the new generation has just stopped doing it. Yeah.
+
+[00:26:49] So it's kind of something that their parents do. These kids. These kids. All these dolphins are now flossing. No, they're just like, but they don't do it anymore. The dolphins would be embarrassed.
+
+[00:26:58] You're like, my dad's always moon watching. It's so funny when you sent it through at first, I was trying to conceive of how they admit. I'm like, where do they get the shoes? There was a newsmatter dolphin this year, a Randy dolphin, wasn't there, that I think came just slightly too late
+
+[00:27:14] to get into our book of the year. Yeah. What's that book of the year? yourself. It's just a little project we've been working on, the book of the year 2018. But yeah, there was news this year about a Randy Dolphin who shut down an entire beach. This was in Brittany in August, so Brittany in France. And it was a beach in the Bay of Brest, fittingly. And there's this dolphin called Zafar, Jafar, with Z, if you're wondering.
+
+[00:27:38] And people would go to the beach and swim with him and they could hold onto his fin, and he'd sort of like bound around. He was very friendly. But he wanted something in return. He wanted something. and he started to try and have sex with people all the time. There was one woman who he picked up and lifted out of the water and wouldn't let her back down.
+
+[00:27:53] He would rub up sexually against kayaks and other small boats. Maybe he wanted to do some canoodling. So they shut down the entire beach. They shut down the beach. You're not allowed within 50 metres of him and you're not allowed to go in the water. People have really learned from jaws, haven't they? In that, they didn't shut down the beach for ages.
+
+[00:28:10] And there was a shark eating people. Well, yeah, it was tourist season on Amity Island. It was part of the industry. What's wrong with you, Anne? people always go after this mayor was just trying to keep his community afloat it's the economics of the thing
+
+[00:28:23] quite impressively monkeys and macaques can teach their offspring to floss so on animal teaching it's not the dance I don't think although I didn't check it was the first thing that's front of mine well they're flossing with human hair does the dance involve
+
+[00:28:41] human hair I think it might just be your average tooth flossing but yeah I didn't even know they really flossed but This was first spotted in 2009 in Thailand, and female monkeys were nicking hair of human heads or of human clothes and then flossing their teeth with it, and they found they spent double the amount of time flossing if they were doing it in front of their children, in front of views,
+
+[00:29:01] to show them how to do it. If my dentist said, do you floss, and I say no and he said, well, monkeys do, dickhead. I think I like to do it. Wow. I think I should change your dentist. This is a cool thing. Killer whales, they teach their young.
+
+[00:29:16] You know how that move where they surge onto a beach and they grab a seal. So killer whale mothers will practice with their calves, but they first practice by surging onto a really steep beach so the calf can get back really easily. And also one where there are no seals. So it's like a driving lesson, basically. That's so cool. Yeah, and they do that. And then they'll practice maybe a slightly shallower beach and it gets gradually harder.
+
+[00:29:41] But it's sort of the opposite of when humans are willing to drive, because you wouldn't do the very steep hill start until quite late. on in your lessons. Just on dolphins, they have a language. So they talk to each other. German? It's click noises, isn't it?
+
+[00:29:59] And noises that we can't really hear. But the way that we know that it's a language and not random noise is they did studies on something called ZIPF's law, that Z-I-P-F. And what it is, is the most common words in any language occur about 10 times more than the second most common, which occur 10 times more than the third most common. It's not 10 times, but it's a logarithmic scale.
+
+[00:30:22] And they checked all of these noises that dolphins were making, and they found that in dolphin languages, they have exactly the same laws as all human languages. So the most common clicks that they make are a certain percentage more than the second most common, and the third most common. And by doing all of this study and working that out, they reckon that they're going to use it to work out
+
+[00:30:41] if aliens are trying to contact us. Because if we get any kind of signals from space, we won't know it's a language or it just could be random, but if we can work it out like dolphins, that it has this kind of Zipf's law. That's very cool. Wow. So does that mean that you can spot the really pretentious dolphins? So we're just using the extremely rare. This word only came up once in 20 years, and it was a dolphin in glasses over there. Another thing about dolphins, my favorite dolphin, is Kelly the dolphin and what they did was
+
+[00:31:14] they taught these dolphins that if any rubbish got into their pool then they could collect it and give it to their keeper and they would get a treat. Okay, so whenever any tourists dropped in a piece of paper they pick it up,
+
+[00:31:25] give it to their keeper and they get a treat. So what Kelly did was whenever someone drops in some paper she would hide it at the bottom of the pool under a stone and then she would rip off a little bit and give it to her keeper
+
+[00:31:37] and get a treat and then once she's got the treat you go down and rip another little piece off and get another treat and get loads of treats for one bit. Oh my God. That's smart, that isn't it? That's naughty is what that is. Don't reward that kind of behavior. It's illegal in Boston unless it's Sunday or the 4th of July is what that is.
+
+[00:31:54] I'm desperate to know the limits of like an animal, like an animal's, like there were always fights about what to do with Coco the gorilla. So Coco, the gorilla was a gorilla who could communicate with people with sign language, right? Yeah. Someone wanted Coco to write a non. And they were like, no, no. Who was like, no? The agent? The publicist?
+
+[00:32:15] Coco died this year, didn't she? Yeah, Coco died in some, uh, Coco died shortly before the Edinburgh Fringe Festival. And I have a joke about Coco my show and I lived in fear every day because I would go, Coco's a gorilla and I, and every day I lived in fear. Someone going, uh, not anymore. She's an ex-Garilla. Yeah, luckily I didn't go to Edinburgh this year to watch the show otherwise I'd have been straight there on the front room.
+
+[00:32:37] No, no, you definitely would have been. It's. The joke is about Cocoa meeting Robin Williams. And Bob Keak Goldthwaid, who's really good friends with Robin Williams, a comedian, saw me do the joke and said to me afterwards, you know, Coco tried to have sex with Robin Williams. Really? Yes.
+
+[00:32:53] And Coco and Robin met twice. And the second time Coco made a sign. And apparently, Robin said to the handler, it was like, what did Coco just say? And they're like, oh, Robin, let's get you, like, slowly moving towards the, like, can we get you over here? So that's a bit of, uh, it's a bit of, uh, it's a bit of a, of hot goss that you probably can include because I've seen Bobcats say it on stage. That's really good.
+
+[00:33:20] Okay, moving on to our final fact, and that is from Alex. All right. In medieval Germany, the funniest joke anyone had ever heard involved replacing a flower with a poo. It still works. Still funny. I haven't even heard the full version. How would it go?
+
+[00:33:37] So there's a poet named Niedhart, who is walking along, and he finds the first violet of spring and he puts his cap over the flower to mark the spot and when he's gone this this guy happens by a bit of a prankster and he lifts up the cap and he picks the flower and we'll say he squats down to leave his own souvenir and uh knightheart comes back with like an entire court including the king queen does this big celebratory dance around the cap and then with great ceremony and a plum removes it to reveal a fresh steaming pile of human shit and it was so funny in medieval Germany, that the book by Ken Jennings
+
+[00:34:16] called Planet Funny, which talks about it, says, and variations on the story were recycled in song, dance, prose, and drama, and art, and then in italics, he writes, four decades. For a time, it was fashionable for people to replace the portraits of the saints in their homes with paintings of the
+
+[00:34:32] violet trick, which made the church really unhappy. And, yeah, it was a huge, huge joke fad and it just totally resonated because maybe because people were so repressed resonated
+
+[00:34:47] we've all been there haven't we? It's classic observational comedy Michael McIntyre will be proud of that material so people's homes used to have portraits of feces just all over the walls for a time. Not feces it would be Niedhart pulling his cap up and then there'd be the feces in it
+
+[00:35:04] and like you know court people with their hands over their faces and stuff like that I assume Yeah, that's right. It was turned into a play. Is it? It's turned into a full-on play. Wow.
+
+[00:35:14] Yeah. This was, I think it's the earliest non-religious drama of the middle ages that we have surviving today, this play. No. But it gets a bit more serious in the play because it's a contest to find the first violet of spring in the play. And there's a fanfare of trumpets as the cap is lifted up. But when it's revealed, the villagers, they're all teasing Nightheart, who is a knight in the story. They take the violet and the turd, and they hoisted on a pole, and they dance it. around it and Nighthart doesn't see the funny side and he cuts off the left legs of 32 of the
+
+[00:35:44] villagers. So they have to lean on the pole. Yeah, it's not taking a joke very well. Imagine if at the Edinburgh Festival you had that response when you told a bad joke. I think there would be a higher bar to people entering within there. But they were quite into this. So in the 15th century, I also read about a poem by a guy called Heinz de Kelner. who baked beans were named after.
+
+[00:36:12] No, they weren't, but he wrote a poem about a peasant who outwitted a princess in this verbal duel. And so they were having this verbal duel. They're bantering back and forth, which sounds quite funny anyway, and they're trying to outwit each other. And then she says that his material is utter shit. And he lifts up his hat to reveal an actual poo underneath it on his head, which apparently proved she was correct meant that she had to marry him. Or he had to marry him.
+
+[00:36:37] So that's a variation on. That's a very interesting. Yeah. What a relief for him that she said your material is utter shit. She never says it. But he probably, his whole life, he had this poo on his head. He was just waiting for that one moment. Very old poo by that point.
+
+[00:36:55] And she had to marry him. She had to marry him. I think this never say to any comedian, especially one wearing a hat, but that material shit because you might have having to marry them. Oh my God. How do you do me? You're not going to like. I was just looking up
+
+[00:37:13] other German comedy from the Middle Ages so there was a play called Dulciteus which is an adaptation of a Roman play and it involves a governor who's got three virgins locked in a pantry and he wants to kind of caress them
+
+[00:37:31] but he goes in the pantry and it's all dark in there and he keeps on molesting various kitchen utensils thinking that they're the young women thinking implausibly that they're the young women who, yeah. Well, all of these do sound kind of funny, aren't they're kind of not brilliantly funny. I think a lot of this stuff that fad comedy or comedy fads, they were all mechanisms to relieve tension. Like, this is probably so funny because of like the,
+
+[00:37:55] the dour culture around, you know, being alive in 14th century Germany, didn't encourage this kind of irreverence. And, like, I got a really funny joke fide from this joke absolutely swept through 1968 Egypt, which was, a man narrowly misses a bus, takes off down the street in pursuit. He's so fast that he catches up
+
+[00:38:16] with the bus at the end of the block and hops aboard. The conductor, seeing his feet, only charges him half fair. So here's what you needed to know, apparently. In 1967, I didn't get the joke. This is part of your Edinburgh set. Yes.
+
+[00:38:29] I love a joke. It's not gone well this year. I love a joke with an afterword. Well, I guess these things, these things were all contextual. They all killed contextually. So Egyptian military personnel got 50% off on buses on public transport. And they had just been beaten in the 67 war in a way that was so bad that even in their own country,
+
+[00:38:50] they sort of had like a reputation for retreating that was like sort of not unlike the way that we think about the French in like today is in terms of comedy. So the bus driver sees this guy running and he thinks this guy is running so fast that the only way he could be running this fast is if he's a soldier in retreat. So therefore he gets 50% off on the bus. But some jokes are, some jokes do seem to be quite timeless. So that one very specific to 1968, I guess, in Egypt. But how about this one from the 5th century BC? This is from an ancient Roman joke book. So it was told, it was recounted a bit later.
+
+[00:39:28] But it's based in the 5th century BC. And a Macedonian king was asked by his barber, how should I cut your hair? So the Macedonian king was Arkelaus. And the barber asked him, how should I cut your hair? And Arkelaas replied in silence. That's attributed to Churchill, I've seen that. And to Enoch Powell.
+
+[00:39:47] Oh. They're nicking it, all these classicists, they're nicking it from the Macedonian king. Wow. He probably nicks it from someone else. So right. Researching this, the thing that I found the most interesting was like things, I guess, comedy fads throughout history that had their moment and then just totally disappeared. like, sorry to read again, but like, I do want to give credit to Ken Jennings, who, by the way, he's written this book called Planet Funny, and it is really funny and a really good history
+
+[00:40:14] of comedy. And Ken, trivia-wise, could give any run on the planet a run for their money because he won 74 episodes of Jeopardy in a row, which is $2.1 million. But so Abraham Lincoln gathered his cabinet to the White House early on September 22nd, 1862, and his secretary of war was really annoyed because he had a lot of his plate at the time because it was a civil war and the president was reading a very popular series of books from a really popular book by Artemis Ward who was a country fried humorist that sort of explored American comedy to London in the 1860s and it was sort of like the president doing anchorman quotes like it was very very popular and sort of hack and he was reading a sketch called the high-handed outrage at utica
+
+[00:41:02] about a traveling salesman trying to impress upstate New Yorkers with wax figurines of the 12 apostles and a local ruffian ruins his trip by pounding his Judas stashu all the hell in the fit of religious fervor. And he was laughing really loudly by the time he got to the end and Sandin says, without a single member of the cabinet joining in,
+
+[00:41:23] undeterred the president proceeded to read a second chapter. And Standen said he was about to walk out when the president declared an end to the open, Mike Knight and got to the business at hand. Pulling a paper from his trademark hat, he read to them a document he had just finished revising and had decided to issue the emancipation proclamation freeing every
+
+[00:41:42] slave in the Confederacy. Whoa. But so he loved, so Lincoln loved, that's amazing. Loved frontier humor because everyone loved frontier humor but it wasn't something that people bragged about. When Lincoln was campaigning against opponents, they always tried to portray him as someone who enjoyed
+
+[00:41:57] jokes. So the image of like Lincoln as a frontiersman, which became its own genre of comedy was actually something he spent so much of his life trying to get away from like a frontier comedy thing was something that lincoln really hated his entire life because it was a real political stab at him but like he had the misfortune he said of being part of this like cultural phase of like corny comedy literally coming from the word corn and came from like this idea of people who like these jokes as corn fed picks yeah and so and so uh yeah comedy fads throughout History are like very, very interesting.
+
+[00:42:34] Just back on to, what's he called, Nightheart? Nightheart, yeah. Yeah, so he was basically the biggest poet of his age. Before that, there was a lot of poetry and a lot of stories about knights and stuff like that. But he was the first one who talked about villagers. And that's why he had all this kind of scatological humor. Is the scatological element, the smell? Is that a big part of the comedy?
+
+[00:42:58] It was a big part of their lives. Yeah. But farts have always been funny. as well. You look back through over the centuries, people are always making fart jokes. There was a really cool series of Japanese scrolls that were discovered about 20 years ago, I think, and they're from the 17th to 19th century from the Edo period, and they are just literally picture after picture of people having fart battles, and no one knows why, but people drop their trousers and they're blasting these massive farts at each other, and it shows the farts
+
+[00:43:27] knocking people over and uprooting trees. It shows someone sitting. cross-legged on the top of two massive farts being casted up at him. It's bizarre. We don't know why. We think that it's probably metaphorical as opposed to they had incredible flations. Nobody knows. Okay, that's it. That is all of our facts.
+
+[00:43:51] Thanks so much for listening. We will be back again next week and you can catch us on Twitter, some Twitter handles. Andy, you're on... At Andrew Hunter M. James, you're on... James Harkin. Alex. I'm at Alex Edelman.
+
+[00:44:04] And you can also... email podcast at qI.com or you can go to at no such thing our group twitter account or you can go to no such things of fish.com which has all our previous episodes details of our tours that are coming up uh how you can buy our book which we've just written Alex you have anything to sell no I just finished my run at the cell but there should be a UK tour coming up in some dates in the United States awesome do you have a website I do my website's Alex headlemancom com, but I prefer you follow me on social media. Okay, so do that.
+
+[00:44:37] We'll get a time machine, go back in time, watch his show at the Edinburgh Fringe. Probably should have had you on a few months ago, shouldn't we? Yeah. I'm going to shit to some tickets, baby. Sorry about that. I want to plug one thing, which is the upcoming QI podcast slash meal. We're not doing it. I will not let this go.
+
+[00:44:56] I'm wrapping this shit up. You cannot edit this out. Oh, Lord. Okay, thanks so much for listening. See you next week. Goodbye. Bye.

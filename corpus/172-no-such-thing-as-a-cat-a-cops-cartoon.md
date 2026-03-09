@@ -1,0 +1,291 @@
+# No Such Thing As A Fish - 172: No Such Thing As A Cat-a-Cops Cartoon
+
+- Episode date: July 7, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/172-no-such-thing-as-a-cat-a-cops-cartoon
+- Slug: 172-no-such-thing-as-a-cat-a-cops-cartoon
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver and I'm sitting here with Anna Chazinski, Andrew Hunter Murray and James Harkin and once again we have gathered round the microphones with our four favorite facts from the last seven days and in no particular order here we go. Starting with you, Chazinski. My fact this week is that in China you can hire mistress dispellers to lure away your husband's mistress.
+
+[00:00:46] Incredible. Yeah. What if your husband doesn't have a mistress? Do you have to hire a mistress? Yeah, you do. And then hire a mistress dispeller. Cost twice as much and it's almost futile. This was a piece of the New Yorker which they did on this new thing which is becoming bigger
+
+[00:01:00] and bigger which are these companies that call themselves mistress dispellers. And if your husband has a mistress that you know about and I think people, a lot of men in China are quite unsuttle about it, then you go to one of these mistress dispelling services and you say, can you sort this out? And they charge tens of thousands of dollars but they do a really comprehensive service. They have like a psychotherapist, they have lawyers and it's a two pronged attack. So one psychotherapist goes to the mistress and lures her away. So for instance there was one case where a mistress was convinced by the therapist to
+
+[00:01:33] get a job in a different city. Yeah, they're banned from getting emotionally involved although there are stories of some male mistress dispellers who will start having an affair with the mistress. Yeah. And there are lots of different companies so lots of them do different things. So there are some companies that say don't get involved but then there are other companies that openly say our mistress dispellers are attractive men and they're there to seduce the mistresses.
+
+[00:01:55] So you guys probably know this, I'm surprised I don't. What is the male mistress? Master. Just a mistress? Well, mistress is a feminine version of the word master, that's etymological. But I wouldn't say, I think my wife's got a master, you'd say she's got a fancy man. Right, sorry. Fancy man, that's all I'd say.
+
+[00:02:15] So obviously there's no equivalent because we've lived in a very sexist society for the last 4,000 years. Well, fancy man. I know we may not have the wording but are there fancy man dispellers in China as well as mistress? I don't think there are because it's just not such a commonplace thing. Isn't it true? I read somewhere that like actual family counsellors and people like that really don't think this
+
+[00:02:35] is a particularly good idea at all. That sounds very plausible. I read that it was the director of the Guangdong Province Marriage and Family Counsellors Association who says really these problems need to be solved between the husband and the wife rather than spending tens of thousands of pounds. No, absolutely not. You need to spend $45,000. It's hiring someone to trick your mistress into leaving you.
+
+[00:02:59] It's funny because if it's a traditional family where the husband is earning the money and sharing it with the wife, the wife then goes and spends the money on getting rid of the mistress. So it's money circling around. Do you see what I mean? That's weird. The man is the breadwinner. It's then the husband's own money that's being spent on getting rid of his mistress.
+
+[00:03:18] It's quite pleasing. Do you think he notices and says what's happened to all of our money and then the wife says well I've spent it on disposing of that woman you were talking about. I think that's probably the problem is that some of the case studies where they produce accounts from the wives and the reason they've done it, in some cases they've said too much money is disappearing from the family account because these guys with the mistresses have gone too far in. They're spending way too much money on them.
+
+[00:03:43] I'll put a stop to that by throwing thousands of dollars more. You'll have lots of very happy marriages of extremely poor people. I found another curious job. This is a website tester. So basically a lot of people release new websites they've created and they're way too complicated in some cases, unusable, not very friendly. So this is called, this user is my mum and it's this guy's mum who is very bad at the internet, tests out your website and says out loud, I don't understand what is this
+
+[00:04:15] doing? How does this lead? And he writes you a report and his mum just tests it. What's interesting about this is it's a job where the more you do it the worse you get at it. Yeah. Because you'd get more proficient on the internet so you wouldn't be as stupid. Yes.
+
+[00:04:29] Yeah. She must be replaced. She must be secretly replaced. She must be replaced. She must be replaced. You can't secretly replace someone's mother like you might do a hamster. I don't know, I didn't notice. This isn't really a job, this is one bloke, but James, you and I were talking about China's
+
+[00:04:44] doing this massive face recognition drive at the moment and they're installing facial recognition technology everywhere and you need it now to get into your taxi app on your phone or you need it to get into your digital wallet or all this stuff. But there is a guy called, I think he's called Wang Yuheng and last year he beat a facial recognition software machine. He's one of these super recognizers and he played three rounds against the machine and it was a draw for the first two rounds and then he won the third one. But on the TV show he was on last year, he successfully identified a single glass of
+
+[00:05:17] water from more than 520 identical glasses of water. Whoa. What? Yep. No, he didn't. Well, the one thing here is they can't have been identical. Yeah. They were identical to you and I, but really.
+
+[00:05:33] Wang saw. Well, did he see it? What are you seeing in a glass of water? I don't know. I don't know whether that was the only one which was. The lipstick on it. I think that one was half empty and all the others were half full, but I think that's it.
+
+[00:05:44] I went to a club the other week and they had facial recognition stuff, so you went with your ID and they scanned your ID and then they scanned your face and it had to look the same. Otherwise they wouldn't let you in. Really? But mine didn't look the same because my ID is from when I was about 18 when I had short hair, but they just let me go anyway. They must look at the age it was taken at.
+
+[00:06:05] Yeah, I thought that guy is obviously. This guy needs a drink. This guy's had a hard life. Let's let him in. That was the same club I tried to get into at the weekend to meet you and they didn't let me in, but then I didn't bring any ID, so that's probably, they couldn't scan it. Just brought a glass of water. Wait, are you guys hanging out on the weekend?
+
+[00:06:27] Yeah, what the hell? We went to a party. Oh dear. You guys were invited, I think. Were we? I don't know. I just not mention it. Yeah.
+
+[00:06:35] I did a bit of extra research because I've been free at the weekend. I was reading about sort of the King's mistress, which in France was an official position for centuries. You know, you'd get your own flats and you'd get an official title. So Madame de Pompadour was an extremely famous mistress to Louis the 15th for 20 years, despite the fact they didn't really sleep together. She found other women for him to go to bed with and then she would just talk to him. So she's a pimp?
+
+[00:06:59] Well, no. More of a madame. A madame, yes. A madame, yeah. Well, she is. She's Madame de Pompadour. Yeah. Yeah.
+
+[00:07:07] But she used to be called Miss Fish. She was called Mamzelle Poisson before she was elevated. Was that her surname, you mean? Yeah. Yeah, yeah. But when she met Louis the 14th, it was at a ball in 1745 where she was dressed as a jeopardess and he was dressed as a tree. So does she bring her sheep underneath him to shelter from the rain or something?
+
+[00:07:28] Yeah, I think that was it. Yeah, yeah. So romantic. Very cool. So in 2006, in America, if you wanted to get divorced, you could get divorced in Guam by mail. So both of the people could write to Guam and say we want to get divorced and they would just do it.
+
+[00:07:44] You never have ever been to Guam. You could just do that and that was a legal thing. And then they changed the law. So now you can still get divorced in Guam, but you need to have stayed there for eight days and no one does it anymore. Yeah, because Guam is really far from everywhere. Yeah. Imagine how suspicious you'd be as the partner when they say, hey, I've booked us a holiday
+
+[00:08:05] to Guam. How long ago? Ask work for eight days off if you can. So Benjamin Franklin wrote a letter which was advice to a friend on choosing a mistress. Have any of you read this? Yeah, bedside reading. No. It's not going well, is it, Andy?
+
+[00:08:22] So this is a letter to his wife. That is harsh. No. I've just been dispelled. They didn't dispell the mistress. They dispelled the husband. It was the only case they decided to change policy. She's way better off than that other guy.
+
+[00:08:39] Fancy man. He still uses phrases like fancy man. What is the phrase? What's the word? Master according to Jax. Master. I was talking etymologically. Right, okay.
+
+[00:08:53] Bit on the side. That's it. Squeeze. Squeeze. I'm sorry, Emma, you're saying that. Squeeze is not right. Squeeze is just as old as fancy man. Sourcy gentleman.
+
+[00:09:03] Andy and I are from the same century. Sourcy gentleman. Speaking of centuries, so Ben Franklin, in the 18th century, wrote this letter to a friend of his called Cadwalla Colton, who had written a letter to Ben Franklin saying, I really want a mistress. And a mistress in those days wasn't someone you were cheating on your wife with. It was just if you didn't have a wife, anyone you wanted to have sex with was your mistress. The way you got this was you wrote to Benjamin Franklin.
+
+[00:09:29] And he would get his mum to look through a list of people. Maybe his mum was involved because his first piece of advice was choose an older woman. Yeah, when you ring old Mrs Franklin, I hear she's good. Anyway, he wrote this letter in 1745 and it was actually genuinely quite good advice. And first of all, it said, actually advise you get married. But if you will insist on not getting married for a while, first of all, get married to an older woman because they're smarter, they've lived longer, they've got better chat. And also he said, there's no hazard of children which irregularly produced may be attended
+
+[00:10:02] with much inconvenience. So he's talking about quite an older woman. Well, indeed, post-menopausal. And he also says, when they stop being beautiful, they study to be good in other ways. You say good advice, but it sounds a little misogynistic. I don't know what you're talking about, James. I'm the woman here and I think he's right on the feminist money. But this is interesting.
+
+[00:10:25] He says, don't worry about the appearance issue because even though in old age, some bits get wrinkly. It starts from the top down. So he says, the face first gets wrinkled, then the neck and then the breasts and arms. But the lower parts continue to last as plump as ever. So that if you cover all above with a basket and regard only what is below the girdle, it is impossible to know an old woman from a young one. You're absolutely right. This is feminist. Hey, darling, get the basket ready.
+
+[00:10:54] I've had to upgrade you to a deeper basket, I'm afraid. Basket? Did Franklin sign off with, you should see my mum. She's got a basket on her, but she's all right. A teacher actually got in trouble for using a quote from this letter in his classroom. But this is his teacher in Oklahoma and he had a picture in his classroom of a cat with the quote, in the dark, all cats are gray, which maybe is saying something about, don't judge by appearance. And actually, Franklin said in this letter, also, you don't need to worry about the appearance
+
+[00:11:25] because in the dark, all cats are gray, as in, doesn't matter, you turn the lights out, not an issue. And this teacher got suspended. Right. It's quite an old gag as well. I mean, that was used by one of the Russians, Catherine the Great, or Peter the Great, or somebody. Oh, it's about the same kind of era. It gets darker then as well, right? Because this is pre-electricity. So just when it gets dark, you've either got your candles or you're in the dark.
+
+[00:11:48] So you think people even more, we're even more familiar with darkness. Just cats. Like, might as well not have even bothered. Yeah. I mean, what's the point of having colour if you're a cat in the olden days? Our cat's colour-blowned anyway. No. No?
+
+[00:12:04] I'm dogs. Yeah. All dogs are gray. To all other dogs. To all other dogs. All the time. Do you know that the first ever divorce in America was due to Bigamy? There was a guy called James Luxford.
+
+[00:12:16] And he was fined £100 and sentenced to an hour in the stocks. But they gave him an even worse punishment, which is the worst they could come up with. They banished him to England. Oh. Wow. That is rough. I guess if you're an American, being sent back to England is embarrassing, because it's like being sent back to your mum's house. Yeah.
+
+[00:12:34] That's exactly what it is, because they were all English. They'd all come over for their new life. Yeah, okay, right. They were like, okay, we don't need you here anymore. Yeah. Head off back to England. Do you think he went back to England and didn't even like it there anyway? That was rubbish.
+
+[00:12:46] Too many wives. Okay, it is time for fact number two, and that is James. My fact this week is that Richard Nixon's chair was 2.5 inches higher than everyone else's in the cabinet room. That's amazing. So I read this in an article in International Business Times, and it's about how much money Donald Trump has spent on furnishings for the White House. So in four months, he spent $133,000, which is triple what Obama spent. But one of the things he bought was a conference table from a company called Kittinger. And on Kittinger's website, it says that they got this stuff for Richard Nixon, including a 24 chairs around the table, one of which was 2.5 inches higher than the rest.
+
+[00:13:36] And that was for him. It's just the back, I think. Yeah. I think it's the back of the chair, isn't it? Wait, the back of the chair. I mean, just the horizontal bit, whether it supports your back. But surely if that's higher, then you will look a bit shorter, relatively, in your chair. I think the idea being that you have such a magnificent chair by 2.5 inches that people give you a bit more kind of leeway, because it's like a throne, isn't it?
+
+[00:13:56] Yeah, yes. A big throne that the Queen sits on, presumably. I don't know, does she sit on a big throne? Yeah, she does. I imagine she sits on one a bit like the Game of Thrones Iron Throne. A bit less bony, but a bit less made of swords. Yeah. But she did at the opening of Parliament, yeah.
+
+[00:14:11] Oh, yeah. And one of the reasons, because obviously they were mucking around with when they were going to have the Queen's speech, I think part of the reason that she was angry, they said it was going to be because she was going to miss Ascot and she loved seeing the horses. But also, I think it's because she normally practices wearing the crown for a week before the ceremony. Because it's really heavy. It's extremely heavy, yeah. And so I think she didn't know when to start practicing. It's a little bit like the guy's mom with the website though, right? She's been wearing the crown so often now that surely she is used to it at this point.
+
+[00:14:41] Surely her neck muscles are permanent. You look at the Queen, she doesn't look like Frank Bruno with massive neck, does she? Anyway, sorry, chairs, yeah. Can I just ask if, because Nixon ordered the Kissinger table, and do you think he actually was looking for Kissinger and he just mispronounced it and it was all a big mistake? Is that the We Won You guy in the poster? No, that's Lord Kitchener from the First World War in the other country. So Kitchener had very little to do with Richard Nixon whereas Kissinger and Nixon were a very strong partnership for a very long time. But he did try and buy some furniture for his kitchen and accidentally got a poster of Lord Kitchener.
+
+[00:15:22] Sorry, just to say, I read, there's a book called Believer My Forty Years in Politics by David Axelrod, who was the chief strategist for Barack Obama's presidential campaign. And he says that Obama's chair was slightly taller when he was president. So was it not the same chair? Because it's the same table still. I think it, I thought it was. Maybe it's not actually. Yeah, I don't know. So the cabinet office in Downing Street, the Prime Minister chair is the only one with arms on. And this has prompted a diplomatic row in the past.
+
+[00:15:52] In 1979, the president of France, Valerie Giscard Destin, was visiting the UK and he was going to visit Thatcher in the cabinet room. And his aides said, yes, could he have a chair with equal status to the Prime Minister please? And they said, what? And they said, well, it's very simple. Either he wants one with arms or you have to put that one in the corner and Thatcher has to have one without arms. And they had to write to the British ambassador in Paris and say, look, can you sort this out? And he wrote back saying, yeah, they're really serious about this thing. So what did they do? We're actually still at war with them.
+
+[00:16:26] The ambassador said his first reaction was to think that the obvious solution was to stand the Prime Minister's chair in a corner and have her seated on the same sort of chair as the president. He thought the president would be very surprised if it was otherwise. So unfortunately, it's not recorded how they solved it. But I think the obvious solution is to have one sit on the other's lap and then they switch around halfway through. Hey, the other difference of cabinet chairs in the British cabinet room is that the Prime Minister's chair is the only chair that's left on an angle so that it's more accessible to the Prime Minister. They can just slip into it, whereas the others have to pull the chair out to give them that chucked out of it. That's very interesting. Yeah, it's just when they walk in, all the positions are straight except for the Prime Minister's, which is on a slight angle, which allows easier access.
+
+[00:17:11] Another important person in the world who has a high chair is Prince George. I was going to say Lord Sugar in The Apprentice. Yeah, he has a platform that his chairs on, which is about three inches higher so that he's the highest person in the room. And they found that out because they had a camera shot from behind him in one of the episodes. Wow. And everyone kind of noticed that there was like a little platform that he sat on. Really? It's interesting.
+
+[00:17:39] It's always people who are universally loved and respected who have these slightly higher chairs, isn't it? Watson, Alan Sugar. Sarkozy, if we talked about when Sarkozy went to, because he was obviously quite sure, he went to do a speech in a factory. And he had lots of factory workers standing behind him when he made the speech. And he made sure to select the 20 shortest factory workers to stand behind him. And they interviewed them afterwards and said, why were you chosen to be in this picture? And they said, well, they checked my height. And they said I was adequately small to not make him look too short.
+
+[00:18:11] Was he working in Willy Wonka's chocolate factory? Sorry. So, okay, I do have one wild fact about presidential chairs. There was a guy in the 19th century and his name was Seth Kineman, right? He was a hunter. He claimed to have shot 800 grizzly bears in his life. Yeah. I'm sure he did.
+
+[00:18:33] I'm sure he did. He was Californian, but he made for a spell. Every single new president of the USA got a chair made by Seth Kineman. And they were the creepiest chairs you've ever seen. One of them is made just from elk antlers strapped together. He once played for President Lincoln, according to Wikipedia, on a fiddle made from the skull of a mule. Wow. Okay, so this is the kind of guy he was.
+
+[00:18:55] Anyway, the chair he made for Andrew Johnson was made from two wild bears, right? The legs of the chair, the four legs, were all bare legs. And when you touched a cord, the head of a grizzly bear would snap out from under the seat and nash its teeth and then go back. That's amazing. Who was that for? That one was for Andrew Johnson. That's incredible. Yeah.
+
+[00:19:17] You can see photos of it and it is terrifying. If you wanted to make a really creepy chair, you should have a chair that then has an arm built into it where if you sit in it, the hand is resting on your thigh. I just think that would be a good creepy chair. That's a good creepy chair. You're in the market for it. That's a good idea, yeah, yeah. Because it's always creepy when someone rests their hand on your thigh. It's not always creepy.
+
+[00:19:40] I find it's quite nice. When you become Prime Minister Anna, you can have one of those chairs in the British cabinet room. Well, probably they won't let me because it has to be this, you know, slightly armchair. Perhaps I can add a little. Well, you'll be able to do what you want as long as you have the same creepy chair for the President of France. Can I make a quick presidential chair correction? Good. Many, many, many podcasts ago, probably about ten in, I made a mistake.
+
+[00:20:11] I said that underneath the chair of Barack Obama's Oval Office table was a trap door that should the President in an emergency need to get out of the room. He could open the trap door and slide down the slide. It turns out that that's not true. I was fooled by a website, the White House website, which turned out to be a website called not the White House website, a parody of the White House website. And I failed to read the strap line and the knot. I think if this guy needs to replace his mum, he could quite easily hire you down. Apologies to anyone who's used that fact because I didn't edit it out of the show. Despite having learned that.
+
+[00:20:51] So Richard Nixon's inauguration, one thing he didn't want was a pigeon poo all the way down the road where he was being inaugurated. Who does? No, every other president has requested it. But he was weird. He just didn't like it. And so he decided that what he would do is try and get rid of all the pigeons. And so they sprayed something called roost no more, which is a bird repellent on all the trees nearby. And the idea was it would make the pigeons feet burn and they would fly off. But unfortunately it contained a chemical that killed them.
+
+[00:21:25] And so as he was being inaugurated, they went down the road. There were just dead pigeons everywhere. Amazing. That's incredible. It's not a good start, is it? It's the first omen. Or is it like when you get pooed on by a bird? It's like that's actually a really good sign. Lots of dead birds falling all over you.
+
+[00:21:47] I'm sure that's what his advisors said. But that's the thing. I guess being pooed on by birds is supposed to be good luck, isn't it? So he's got rid of all the good luck and got pigeon corpses. That's a double dabble. I wonder if things played out as they did. So Nixon was very, very clumsy. I hadn't quite realized the plethora of hilarious stories about him.
+
+[00:22:11] So he used to always drop medals at award ceremonies. So any military award ceremony, he was trying to put a medal on some and he'd drop it to the extent that... Dead veterans scattered all over the thing. So one of his military aides said that he had to take the pins off the back of medals and place them with clip-on devices because if he didn't drop the medal, he'd then stab the military person in the chest with it. He once picked up a lobster as part of like a PR thing. He was visiting a fish farm and he picked up a lobster and it clawed onto his suit lapel.
+
+[00:22:40] I wouldn't let go. It was hanging from him. He spilled the ink will at Downing Street. He always spilled soup on himself. And so he said that soup courses had to be eliminated from state menus. That is so funny. That's really good. Middle Kingdom Egypt, it was a symbol of status to have a folding stool. Wow!
+
+[00:23:02] Stools were popular, but folding stools were very difficult to get hold of and they were expensive. So if you weren't quite as posh as a feral, but you were pretty posh, you would have a folding stool. I didn't even know they were invented as far back as they are. Is that to prove you are rich enough to go on beach holidays? I think every holiday is a beach holiday in Asia and Egypt. Yeah, it's a constant beach holiday. OK, it is time for fact number three and that is Andy. My fact is that there is a special police unit in France whose job is to monitor six million dead people.
+
+[00:23:40] And they are called the catacombs. So these are the guys who look after the catacombs in Paris. And the catacombs are this massive thing. I'd heard of them before. I didn't know how big they were. They are 200 miles of tunnels over 32 square kilometers in area. So they still haven't all been explored. It's 10 times the area of Central Park in New York. It's absolutely massive.
+
+[00:24:07] And the catacombs are the people who walk around underground trying to find people who are trespassing and people who are mistreating the catacombs. So they're not actually policing the dead themselves and checking they don't cause trouble? No, although if they do cause trouble, I'm sure they'll be first on the scene. Exactly, yeah. Although there are only five people in the catacombs these days. I read they're called cataflicks in French. What are the people who go down there? The cops.
+
+[00:24:35] Oh, the cops. Because everyone is called catasomething. There are cataclasts. These are people who mistreat the catacombs. They're people who leave rubbish and they spray paint over older works of art and they're very bad people. But there are catafiles as well. People who love the catacombs and who treat them well. And then if you're a catafil and you bump into a catacop, he might well let you go. Surely if you're a cataclast, then you claim you're a catafile if a catacop comes along. Yeah, but if there's litter behind you or you're dobbling stuff on a wall, then you'll say... Or you're carrying spray paint cans.
+
+[00:25:04] Exactly, you're a cataclast, aren't you? No, no, because I actually took them off a cataclast because I saw they were doing something wrong. So I've got the cans, but they're not mine. I haven't been using them. Oh, well, on your way. Thank you. And then you point and you say he went that way. He went 200 miles that way. And also there's catachicks, apparently, who are a subculture who walk around the tunnels in bikinis. No.
+
+[00:25:26] Apparently. Is there a pool down there? There's a lot of flooded catacomb area. In fact... In that case, yes. Yeah. I think it was last year, maybe the year before, a surfer called Allison Teal went surfing inside a catacomb. You can watch the video. It's pretty extraordinary. She says surfing and all the media said surfing.
+
+[00:25:47] She's laying on the surfboard in her bikini. She's in a bikini. And she goes through it, but it's an amazing video because she goes into these tunnels, which are super tight. Like it's just her and the surfboard can fit through. And there's moments where people who've been down there obviously having fun with all the bones down there and arranging them into a chair. So you can see her sit in a bone chair. What? It's extraordinary. Like incredible. Is that chair made by Seth Kinman, the 19th century grizzly bear hunter?
+
+[00:26:18] They are incredible though, these catacombs. They're so cool. And when the first ever catacop chief retired, his name was Jean-Claude Sorette. He did 20 years in the tunnels. The catafiles organized a massive feast for him. And he turned up and he said, I tried for years to catch you, but now I'm retiring. If you want, you can take pictures with me. And they all had their picture taken with him.
+
+[00:26:36] Oh, wow. That's pretty cool. And they threw him a party. Catacops sounds like quite a cool 80s cartoon. It does. Really does. Are they cats? Yeah, but they're in the catacombs.
+
+[00:26:47] Are they also cops? Oh, yeah. And they're policemen's outfit on the cat. Andy, it's in the title. Every element of this cartoon is in the script. That's what was great about the 80s. Yeah. You never had to think about titles of cartoons.
+
+[00:26:59] They're usually illustrated. They're thunder cats. Yeah. They're cats and they like thunder. Danger Mouse. Yeah. Danger. Didn't even have to watch the cartoon.
+
+[00:27:07] Look at the title. Or is Peppa Pig. What's that about? No one knows. How could anyone? So the cut of files are incredible, aren't they? I really would recommend looking them up. This is one of those facts.
+
+[00:27:20] I was so glad you chose it because I had no idea they existed. And they sort of invented themselves in about 1980. And the idea is they're kind of urban explorers, but they go around restoring parts of Paris that are going without being restored or the government hasn't got the funds to restore them. They think need restoring. And the cut of files are the people who do so in the catacombs.
+
+[00:27:42] And so, for instance, a few years ago, the catacombs just came across underground in some of the catacombs that you're not allowed to access. A cinema, complete with like a bar and a restaurant. This is all underneath the Trocadero, an area of Paris. It had seats to watch films in it. It had this whole collection of films. They'd wired in at least three phone lines.
+
+[00:28:03] They had their own electricity system. And there were just people hanging out down there watching films on a big cinema screen. And so, they found this, and they were like, wow, this is amazing. We found this whole cinema system. Who the hell is this? And the police came back three days later,
+
+[00:28:16] and all the electrics had been cut off, and there was just a note that read, do not try to find us in French. Can you find what films they watched? Because I have been trying to find out. Oh, yeah, I actually saw the name of one of the films. It's a very art house sort of stuff. Oh, because I was hoping they were watching, you know, Terminator.
+
+[00:28:35] Well, you mean like Lovely Bones or something. Oh, that'd be good. Like Bone Related. Oh, yeah, yeah. Oh, you could have a great time watching zombie films down there. Yeah. The Mummy, surely? Yes.
+
+[00:28:47] They've all got their own catacomb name as well. Everyone has a nom de plume or a nom de catacomb down there. And you're not meant to ask about anyone's above-surface life. You don't say, so what do you do? Because the answer is I walk around the catacombs. Yeah, I see. Yeah. Right.
+
+[00:29:05] Do you know what they also found in the cinema, by the way? They discovered that there was a CCTV monitor in order to see who was coming so they can review the tapes, I guess, if they could see if it was cops or anything. And along with the CCTV, they had a bit of sound equipment so that if anyone passed a certain point, it triggered a dog barking to scare them off from going further down the tunnel. Wow. Yeah, so it was like that was their security system to stop the cinema from being discovered.
+
+[00:29:28] It would work for the catacop cartoon cats as well. But they're very dangerous, these catacombs, if you are not a catafile and if you decide to go exploring off the beaten path, as it were, because these are ginormous and there are counts of people who've heard of stashes of wine and they've said, I'm just going to go down and look for a stash of wine and never seen again. I mean, you're in France, there's wine everywhere. Yeah, yeah, yeah. Oh, well, finally I can get some of this mysterious wine that they speak of.
+
+[00:29:57] So very recently, two boys disappeared for three days and they were found, they got put into hospital, they had hypothermia and they were only found because they'd been leaving clues along the way. But the catacops, I guess, sent in search dogs in order to find them and they managed to find them. But I kept thinking that that's, you can imagine being a dog and going down into a place with all those bones. This is the thing, do you know why the bones are down there in the first place?
+
+[00:30:27] Because they weren't originally there. So the bones were put underground because all the cemeteries were running out of space in the city above ground and it was horrible. So there's a very famous cemetery in Paris called Les Innocents and it was giving off a strong smell of decomposing flesh in the late 18th century and supposedly even perfume shops were claiming they couldn't do business because of the off-putting smell. Surely they're the one people who should be cashing in.
+
+[00:30:57] Amazing, isn't it? If they can't spot that business opportunity, they don't deserve to survive. Anyway, in 1780 a wall collapsed at Les Innocents and rotting corpses fell into a nearby house. At that point people said, oh maybe we should move these millions and millions of corpses. So over a period of years and years they moved all these six million bodies from the city cemeteries into the catacombs.
+
+[00:31:20] And what it was is they'd had all these tunnels because it was where they mined for limestone. Originally they would get limestone from near the ground level but actually that was kind of spoiling the topsoil so you couldn't make any agriculture there or anything like that so they had to go deep, deep down to get their rocks. And this is amazing. Once they'd made, they'd got rid of all the rock
+
+[00:31:43] and the catacombs existed but completely abandoned because they weren't being used for anything. People started farming there. So mushrooms were grown in these catacombs and all the farmers got kicked out because they wanted to throw all the bones in there. And still today in bits of catacombs that are not occupied by bones are growing mushrooms still.
+
+[00:32:05] I gotta say as someone who's scared of mushrooms like I am, I have a real phobia, I think I could live with the bones and the skulls and stuff like that. You'd freeze out of that. That's a horror movie for you. And here's the other thing about the catacombs is they are the reason that Paris has maintained not having high risers in the city.
+
+[00:32:26] Because they collapsed? They would collapse. The ground underneath them are not stable enough in order to allow for high rise buildings. It was Louis the 16th. He founded the organization, the IGC, the Inspection General de Carrière which does all the maintenance and mapping and he was forced to found it because in 1774
+
+[00:32:44] 300 meters of street just collapsed into a 20 meter deep hole. Imagine. Because obviously the limestone is eroded or is eaten away by rain or whatever it might be and suddenly boom, 300 meters of a street. It sounds almost fun to be on a street that then kind of turns into a tunnel side or something. What are you talking about?
+
+[00:33:04] What are you talking about? It wouldn't be. I'm not saying it would be. It sounds like it could be. My sister is terrified of sinkholes. Yeah, me too. Absolutely. It's a massive phobia.
+
+[00:33:13] Doesn't she live in a cemetery? No, the other sister. Surely it's more logical if you do live in a cemetery to be afraid of falling into the ground because you've seen all these other people who've done it. My sister. That's why they all died. My sister who lives in a cemetery grows her own vegetables
+
+[00:33:34] and my other sister who doesn't live in the cemetery refuses to eat them because she thinks they've got dead bodies. I don't blame her. Yeah, there's something about that connection. You eat crops grown with excrement as fertilizer. That doesn't bother you, does it? Yeah, but isn't that bizarre that we're constantly eating food that's grown using cow poo
+
+[00:33:52] or human poo or poo? It's just poo, any kind of poo. It all works, but... That's the trick. That is weird, isn't it? We're all over it now. Not enough gets made of that. You're right.
+
+[00:34:03] I agree with you. People always say they look at the way the animals are killed and say maybe if you knew how your animals were killed you would all go vegetarian. But maybe if you knew that there was poo smeared all over your vegetables you'd only eat meat. Okay, it is time for our final fact of the show and that is my fact.
+
+[00:34:26] My fact this week is that the number one place to buy CDs in Indonesia now is KFC. KFC, the fast food restaurant. They should call it KFCD. This is amazing. That's such an amazing fact. This is extraordinary. Hang on.
+
+[00:34:44] KFCD would be the Kentucky Fried Chicken Disc. Kentucky Fried Compact Disc. KFCD is what you're suggesting. So in Indonesia now, in KFC, when you go to buy your chicken you are offered a bundle deal in which you can also purchase a CD and they sell over 500,000 albums a month in the KFCs all over Indonesia. And this was set up by a very well-respected, well-known producer of bands like The Killers, predominantly U2.
+
+[00:35:18] He's done the majority of their biggest albums outside of Brian Eno. And he realized over there, credit cards and streaming isn't such a massive thing. So people are still buying the physical objects. CDs get sold for $4 and there's a lot of black market CDs that go on. He thought, no one goes out to buy things anymore physically, but they do go out to buy chicken. So what if I combined chicken and CDs together
+
+[00:35:42] and started selling them there and it's absolutely worked? So he releases at the moment predominantly Indonesian artists, but they're looking into bringing in the Western. You too have got that new album coming out, haven't they? Family Bucket. His name's Steve Lillywhite, by the way, the producer of all these albums. He's done the Rolling Stones as well. I mean, he's ginormous. They interviewed him, the New York Times interviewed him, and he said, my job is basically like running a record label,
+
+[00:36:07] except this record label also happens to sell chicken. So I think it's a man who's not fully adjusted to the new reality. It very much sounds like a man who used to be a record label guy, then fell in hard times, got a job at KFC, and then someone from the New York Times came along and said, aren't you that guy who used to produce U2? And he's like, yeah, I still do that kind of stuff. But incredibly, that's not the case.
+
+[00:36:32] While he gave this interview to the New York Times, he was busy mixing or playing the latest U2 single that he just made in the background. Like this is a guy who's like jumping between producing pop hits and selling... And the music that he sells in KFC in Indonesia is not English language, is it? So it's all Indonesian music at the moment. And he says that he thinks 98% of the music sales come from people who just went to buy chicken and turn up there and go, oh, we'll have a CD too. Impulse buy, it definitely makes sense.
+
+[00:37:02] But also piracy is not necessarily bad for CD sales. So Japan is somewhere where CDs are still a huge thing. So I think globally 39% of music sales come from CDs. Or this is true last year, the year before. Whereas in Japan, it's 75%. And piracy isn't necessarily a bad thing because apparently, when people pirate CDs, they copy them onto other CDs. And that gets people used to just physically having CDs.
+
+[00:37:27] I think people are all used to physically having CDs now. I think that's the argument of a pirate in the dock. Quite possibly. Actually, I was happy to spread the sale of CDs, just happened to be blank ones that I was buying and then ripping off. I don't know. The Japan thing is bizarre though, the CD thing. So CDs in Japan cost about £25 on average, each one.
+
+[00:37:50] So it's not like they're cheaper. Well, it's because of all the bonus tracks. Japan famously, there's a great comedian who once said, where all the bonus tracks live, every Japanese CD, which is why they're often imported to other countries around the world, is there may be four songs that don't appear on a CD released in the West. So if Coldplay releases an album there, most likely there'll be four bonus tracks,
+
+[00:38:11] which are the B-sides or something that they would use later in their life. Four more completely indistinguishable tracks. Imagine how disappointed you'd be if you got to the end of what you thought was a Coldplay album, and it turned out there were four more tracks you had to listen to. The first massive selling CD was Diastrates. It was an album called Brothers in Arms, and it was the first one to sell a million CDs.
+
+[00:38:33] It was absolutely huge. And since then, I think it's all about something crazy, like 15 or 30 million copies. But they were the band who were chosen for the big push of the CD, because the guys who made it for Philips said they're mainstream enough. We can't push punk. We can't push something as niche. But also maybe they didn't want something really poppy. Is that right? They wanted something a little better.
+
+[00:38:57] I guess so, yeah. But they were the ones who were almost chosen for that massive promotional push. Interesting. The first person to have a CD released in America was Bruce Brinkstein, born in the USA, wasn't he? But Aber was the first band to be imprinted onto a CD. So it's always the big ones.
+
+[00:39:14] Yeah. When you say that kind of thing, it almost feels like there probably was someone else, doesn't it? Yeah. It kind of depends though, because it's launching a new medium. So I guess like Jay-Z doing Tidal, you know, he signed up. So Tidal is its own Spotify, effectively. Dan is looking at my completely blank face.
+
+[00:39:33] About the words Jay-Z and Tidal. So Tidal is like its own iTunes, its own Spotify. It's an exclusive streaming and downloading place. You can only listen to Jay-Z. You can only listen to Jay-Z. So it's like a beat-a-max, but all the tapes are Jay-Z. Exactly. Okay.
+
+[00:39:48] Oh, I understand. Why don't you put it like that? So Beyoncé released her Lemonade album on there, and as a result, it didn't make it to the top of the charts. The first time that's ever happened to Beyoncé in her solo career because it was a new medium and not enough people were signed up at that time. Right.
+
+[00:40:02] But yeah, so you need a biggie in order to push the medium. Yeah. Just in Japan, on Japan CDs, you were saying they come with extras. So as well as bonus tracks, they come with other extra things as well. So now they're keeping the CD market alive in Japan by giving away prizes with CDs.
+
+[00:40:18] So you get raffle tickets with CDs. You get these prizes. You get... Family bucket. A raffle ticket is a terrible prize because it's basically not a prize, is it? It's a piece of paper which almost always... It's sexual prize.
+
+[00:40:31] It's almost always not a very nice bottle of wine, though. Or a box of matchmakers. Exactly. You can get... Sometimes if you are the first, you know, thousand people to buy a CD, you get the handshake thing, which is where you get to meet the band of the CD you've bought
+
+[00:40:44] and shake their hands. That's incredible. Yeah, exactly. Get to Japan, Andy. But this is a cool thing. So there's a band in Japan, I think we might have talked about before, called AKB48,
+
+[00:40:54] which is a band with loads of members. And they hold band elections via CD purchases. So the way they get people to buy their CDs is if you buy a CD by these guys, then it has a ballot paper inside and you can write on that ballot paper which member of the band is your favourite and then it's announced who's the favourite.
+
+[00:41:12] So that gets people to buy it. That's pretty harsh, though, if you're in that band. Yeah, but at least there are 50 members, as opposed to a band like either the Rolling Stones or there are five of them. You get to cull a Rolling Stone every time. It's Chaz and Dave. And every year, Dave's like,
+
+[00:41:28] sorry, Chaz. Well, there was... It's not the end of the world if you lose, but the girl that came 48th, or the girl that came bottom in the vote one year, the following year, I think this was last year or the year before, one fan spent £240,000
+
+[00:41:45] buying up as many CDs as they possibly could in order to send all the votes in. There's no limit to how many times you can vote. Whoa! So what I would say is if you want to buy 250,000 copies of our new book that comes out this November... Shall we put a little ballot paper inside
+
+[00:42:00] saying who's your favourite member of the podcast? I really don't think we should. I think for you and me, we shouldn't. Why don't you just photocopy the bit of paper? That's a lot of money. There's going to be a barcode on there, isn't there? Some listener in Japan is going, fuck right now!
+
+[00:42:18] With a mass of catacombs full of unsold CDs. Eating their dinner off the placements. People keep releasing CDs in Sims language, by the way. What? What does that mean? You never played on the Sims? It sounds like you haven't either, the way you said that. We still like to go play on the Sims.
+
+[00:42:40] I think I'm the only one who has played the Sims. I've never played on the Sims. I've never played on the Sims, sorry. I have played on the Sims. I just didn't ever talk about it until now, apparently. So I was actually looking at weird music brand partnerships for this and Simlish is the language they speak in the Sims
+
+[00:42:56] and Katy Perry has recorded a song on an album called Teenage Dream and... What? No, no. Is that a B-side or...? I'm with Anna on this. What is that, a massive album or something? Is that my favorite?
+
+[00:43:09] That's ginormous. Oh, come on, it's not such a... It's one of the best-selling albums of this decade. Well, I bet I'm the only one... It's a decade. I'm the only one of us four that's heard the Simlish version. So who's the bigger Katy Perry fans? Anyway, all these bands keep releasing albums in Simlish.
+
+[00:43:25] So OK Go, Depeche Mode, Rita Aura, Lily Allen. Cool. Simlish songs. That is very cool. And so they just redo the language. Is there an album where you can buy all the Simlish songs with, you know, like a... No, that's what I call Simlish.
+
+[00:43:40] One of the guys who developed the CD for Philips, when it was first introduced, he was so excited about the new technology, he said, I decided to get rid of all my vinyl albums and get my old Rolling Stones and Beatles records on CD. It still hurts, because he just feels like a complete idiot that he did that. He got rid of all these fantastic original Rolling Stones
+
+[00:44:01] and Beatles records, and he just has them on CD now. He was married to the cause, though. You've got to throw yourself in with both feet to the sea. All five of the cause. He was married to. Even Jim? That is bigamy. You should go in the stocks for like five hours for that.
+
+[00:44:19] It's a joke that dates us, doesn't it? I mean, I did a Chaz and Dave joke. We're all revealing deeper secrets about, you know, Jay-Z or playing on the Sims. In Indonesia, there's a big trend for music related to bus horns. Okay, and this is like a little meme that started on the internet, and they videoed these kids holding signs up, reading om telulet om,
+
+[00:44:50] which means honk driver honk, or driver honk driver. I'm not sure which one. And the thing is, Indonesian buses have got really cool horns, so they make like little melodic noises, and the kids just wanted to hear these horns, and it became a bit of an internet meme, and now there's a load of DJs in Indonesia who are making songs related to bus horns.
+
+[00:45:12] Cool. Very cool. So popular DJs such as Zed and Firebeats and DJ Marshmello. You say that in the same tone of voice. Anna talks about Katy Perry. So we've all got blind spots, is all I'm saying, because Andy's downloaded their albums already. Yeah, I love you, Joe Marshmello, and the other one you said.
+
+[00:45:34] I've got some KFC stuff. Do you? Finally, we're getting to the nub of this fact. So in Japan, they have a KFC with a high-end whiskey bar. Cool. Which is pretty good. In Russia, they had an advert, because people weren't really eating KFC,
+
+[00:45:51] they had an advert, and what it was, is there was a little kid in a school, and he was eating KFC or something, and the teacher got annoyed, and so the teacher got the bucket and put it on this kid's head, and he had to walk around school with a bucket on his head, and it started...
+
+[00:46:05] He must have been aging quite prematurely. Yeah, and it was just a meme in Russia, like the bucket head meme. I don't think we've mentioned this before. This year, KFC have released a novel for the first time. What? It's a novel starring the Colonel, and it's a Mills and Boone-style romance,
+
+[00:46:22] and it's called Tender Wings of Desire. He is a sexy man. Well, we ascertained before we started recording this podcast that you quite fancy Richard Nixon. Oh, yeah! How did we miss that when we got to that? We didn't ascertain that. That's a warping of the truth.
+
+[00:46:37] Oh, I'm sorry. I find him not unattractive. Given that, there was an incident... But for Andy, that's pretty much someone saying you're attractive. That's the best I can hope for these days. I'm not physically repulsed by him. Great. Dave? He said in an interview that something like,
+
+[00:46:54] I know how I look. I'm under no illusions about my appearance, so I'll have to be good in other ways. And I read that interview, and I thought... He is good in other ways, isn't he? Lots of ways that Richard Nixon is a very good man. Exactly. What would you say your...
+
+[00:47:07] What are your top five ways in which he's a great guy, Hannah? Got a bird problem? He's your man. Colonel Sanders was kind of divorced from KFC from quite early on as he sold the company, so he did loads of marketing for it throughout his life. He travelled 250,000 miles, I think, visiting KFC restaurants around the world
+
+[00:47:27] until he died in 1980. But he used to turn up unexpected at various KFC outlets constantly to test their chicken, because he was really pissed off that they weren't using their recipes. There's a big picture of him on the wall. On every bucket, there's a picture of his face. People behind the desk would be like, you look a bit familiar.
+
+[00:47:46] I guess if he takes the suit off and the glasses... He never did. They sewed him into it. He's completely recognisable. He never took a... What, even in the shower? Even when he was swimming? Imagine if Ronald McDonald was going to every McDonald's as a secret customer.
+
+[00:48:05] It's just not going to work. Well, gave it away. Was it my height? Yeah. So, first of all, he literally didn't go out in public without wearing his white suit, and he bleached his facial hair to match his head hair and stuff. So, he never didn't wear his white suit. And he turned up unannounced, and then they would serve him.
+
+[00:48:23] He'd say, give me a chicken and gravy. Please? And then he would be really angry if they got it wrong, which they often did. So, KFC sued him once for... They did? They sued him for referring to their gravy as sludge and wallpaper-like. What?
+
+[00:48:41] He turned up and said it was that. He sold the company. He was still doing their marketing and stuff, but he turned up and he... Was that a pro slogan? Trying new wallpaper-y sludge. There was one employee who complained. So, he did say... There was a piece on him in the New York Times in the 70s
+
+[00:49:00] when they interviewed him saying, the Colonel is vexed almost beyond endurance by the subject of gravy. And one of the executives at KFC said, look, the Colonel's gravy was fantastic, but you had to be a Rhodes scholar to cook it. It was really, really complicated recipe that was way too labour-intensive and expensive. I think everyone really likes KFC gravy, don't they?
+
+[00:49:17] Isn't that the thing that everyone loves about it? I think it is a thing, because he did make this massive deal about the gravy. Or did he win the case? He had to pay $1 million. He lost? He lost? Well, he called the gravy sludgy wallpaper-pace. What did you expect? I guess so. They sued him for about $30 million, I think, and he'd got it down to a million.
+
+[00:49:34] He could have said, it's all gravy in the dark. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At Eggshade.
+
+[00:49:56] Andy. At Andrew Hunter M. And Chazinsky. You can email podcast at qi.com. Yep, where you can go to our group Twitter account, which is at qipodcast. You can also go to our website, no such thing as a fish.com. We've got all of our previous episodes on there.
+
+[00:50:09] We have all of our tour dates on there, and we have a link to our book, The Book of the Year, coming out in November. Sounds great, doesn't it? Okay, we'll be back again next week with another episode. We'll see you then. Goodbye.

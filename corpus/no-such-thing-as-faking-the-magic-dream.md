@@ -1,0 +1,237 @@
+# No Such Thing As A Fish - No Such Thing As Faking The Magic Dream
+
+- Episode date: December 15, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-faking-the-magic-dream
+- Slug: no-such-thing-as-faking-the-magic-dream
+
+## Transcript
+
+[00:00:00] In a year where much of the news was believable but fake comes a book packed with stories that are unbelievable but true. Sorry. Hey everyone, it's Dan here. Thank you for tuning in once again to this episode. The penultimate episode before Christmas, you're probably thinking, what? I need to get out there. I need to stop listening to the podcast and think about what present to buy someone. No, you don't.
+
+[00:00:27] You know why? Because you've got a book you need to buy. It's called The Book of the Year. It's the weirdest side of 2017. Isn't that right, Andy? Yes, that's right, Dan. It's a very, very exciting book about all of the most interesting things that happened this year. That's true, Andy.
+
+[00:00:42] Yeah, for example, did you guys know that 2,000 bees were stolen in Beeston this year? That's a little British town, isn't it, Anna? Yes, it is. It's a little tiny town in England called Beeston where they have lots of bees. It's ironic that that happened. It absolutely is, Anna. And James, what's your friend? favorite factor in the book. Game of Thrones set a world record for most stuntmen on fire at the same time.
+
+[00:01:09] It is a 350 page wonder book of insane knowledge from science stories to little-known facts about the bigger stories that happened this year. It's in shops now. It's also online. Still for six pounds on Amazon. It is the ultimate Christmas book. So please do get the book. And so for the last time that the four of us are going to be in the room before this Christmas. episode comes out, let's all say it together, guys. On with the show. On with the show. Another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from Wimbledon. Dan Schreiber and I am sitting here with Anna Chazinski, Andrew Hunter Murray and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days.
+
+[00:02:20] And in no particular order, here we go. Very good. We'll keep it in. We'll keep it in. We will. This week, starting with My Fact. My fact this week is that the telephone dialing code for Cape Canaveral, the famous rocket launch site, is 3,2, 1. Is that amazing? This was changed in 1999 after a petition. Obviously, Cape Canaveral, very famous for its connection to NASA, for rocket launching.
+
+[00:02:52] for so on. They just said, let's just have a new dialing telephone number, and that's what it is now. Three, two, one. So cool. Thank you. But do they steal it off anyone? I think they did actually. There's a town that's really pissed off. I think they stole it off Chicago, didn't they? It was supposed to be Chicago.
+
+[00:03:13] Yeah. Yeah, so nearly, it could have been one, two, three. Do you know this? What you mean when they were launching rockets? Yeah. So NASA, they used to do a count up. No. And when do they go when they get to like infinity or...
+
+[00:03:28] The original thing, and this was... In fact, they originally they got their cue from the films. So in films, in the 20s and 30s, in space scenes, it went one, two, three, and then when they got to five or ten or whatever, they would go. But then when Fritz Lang released a film in 1929, he did three to one, and then NASA borrowed from that.
+
+[00:03:45] Oh, really? And on count-ups, instead of countdowns, the telegraph website, they did a counter. I think it was counting up. to the royal wedding, the last royal wedding, and it was just a counter, and it counting up, and it's still counting up. You can go and see it, and it's just on millions of seconds
+
+[00:04:03] since the royal wedding happened. For like, until he gets to divorce, or... What are they, what's the end point? Nothing, there's no end point. It's just counting. It's just counting. It's just to help Prince William remember when his wedding anniversary is. Happy 1,000, 26,000 seconds, honey!
+
+[00:04:20] Why would you need it? Look, it's a flawed system. That's why I brought it up. Oh, right. Cape Canaveral is really interesting. Do you know why it is where it is? It's obviously in Florida, on the coast of Florida, and there are two main reasons for it as positioning.
+
+[00:04:36] And one is that when rockets take off, they can sort of steal a bunch of speed from the rotation of the Earth, and the Earth rotates fastest at the equator, right? Like, if a ball's rotating, then the widest bit is going faster than the smallest bit. So when rockets take off, they sort of steal that speed, that acceleration as they're taking off, which really helps them. And also, they always go in line with the rotation of the earth.
+
+[00:05:01] So they're going sort of from America towards Britain. And so that means that if anything goes really badly wrong, it crashes into the sea, which doesn't hurt very many people. How can they never do that thing that they do in Formula One where you go behind someone and you get the tailwind speed? How come there's not like an initial rocket? That's a really good idea. That is a good idea. I think now you've said it, they might do that. Is that scientifically?
+
+[00:05:23] I think literally no one's thought of that before. Really? Or it could be the fact that each rocket costs about 100 million quid to make. That's true. And do you actually know why the Russians really screwed us over in terms of this, you know, helping rockets get into space, is that, you know, the ISS, the positioning of the ISS, is not on the equator, which is incredibly inconvenient.
+
+[00:05:46] Because one of the things we want is for the ISS to be a stop-off point, on the way to the moon. And so we'd stop up at the ISS, get some food, have a picnic, refuel, have a nap, and then you can jump onto the moon in future. And we can't do that, because to appease the Soviet Union,
+
+[00:06:02] we put the ISS sort of halfway between the latitude of Florida and halfway between their space station, which is way, way further north. And that actually means that the rotation effect doesn't give the acceleration to rockets that they need. I've not understood a single thing you'd say in the last minute.
+
+[00:06:17] Maybe we should talk about telephone. numbers. Yeah, sure. Yeah. So Dan's telephone number is also. When they first came up with the idea of area codes and stuff like that, basically before that, you would kind of ring up an operator and say, put me through to Chicago, you know, whatever. But when they came up with a number system, there was an anti-digit dialing league who tried to stop the idea of having phone numbers rather than phone words. And this was in America. And it was organized. And it was organized by a guy who the internet calls famed semantacist
+
+[00:06:53] S.I. Hayakawa. And I want to be a famed semantacist. That's the amazing title. But he said that of this idea of giving numbers rather than words, he said, these people are systematically trying to destroy the use of memory. Wow.
+
+[00:07:10] He says, they tell you to write it down, but try writing a telephone number down in a dark booth while groping for a pencil and gasping for breath. What? Where is this phone booth? In a sulphur pit or something. They were super anti-thew, though, weren't they?
+
+[00:07:29] They were. They thought it would be dehumanising. There was, yeah, a bunch of leagues that were set up to attack the creeping humoralism, they called it, and the cult of technology. And actually, the man who came up with the idea that phone numbers should be numbers rather than a name,
+
+[00:07:43] because all the letters were sort of getting used up by that point, all the three letter letters. So the man who came up with the idea of changing us all to numbers, was at a party once, and he was approached by someone who said, how does it feel to be the most hated man in America? Wow. Rough. That is bad.
+
+[00:07:59] So these people who were from the anti-digit dialing league, they tried to protest by phoning up operators, and rather than giving them the number as anyone else does, they said, operator, get me, S.I. Hayakawa at $4,155,842,301. so they said all of their phone numbers as actual numbers Oh, that's great. And they said, if they want digits,
+
+[00:08:23] we'll give them digits. And hanging up the phone was invented that day. Have you guys heard of a rapper called Soldier Boy? Yep. Because I haven't. No.
+
+[00:08:39] I do know one thing about him. So he, when he was a lot younger, this was in 2009, he listed a phone number at the start of his song, Kiss Me Through. the phone. He just read out a string of phone numbers, a 12-tingent number,
+
+[00:08:51] and as a result of him reading out that number, a family in Oldham, who owned that number, got bombarded with 60 phone calls every day for months saying, is Soldier Boy there, please? And the householder was a woman called Catriona Howard Smith, and she said, we just tell them that he doesn't live in Oldham. That's very similar to Bruce Almighty.
+
+[00:09:16] You know the film Bruce Almighty? Yeah, Jim Carrey. Yeah, exactly, where there was a real phone number used in Bruce Almighty that belonged to God. And the tradition is in America, if you're making a film, the real phone numbers that you use in the film start with 555, because then it won't be taken. But they sort of contravened this rule, and so they just said a number that actually existed. And the film Bruce Almighty got in real trouble. So the number was 276-2323, and a bunch of people all across America got a phone. phone calls asking to be put through to God.
+
+[00:09:48] And these numbers included, one of the numbers put people through to a church in North Carolina, and the other went through to a pastor in Wisconsin and saying, can I please get through to God? Because you would start thinking, wouldn't you? If you were a pastor and you got a load of phone calls for God, you might start thinking, I don't know
+
+[00:10:04] I'm not God. Is this how he would tell me? No, but I read an interview with one of the guys, one of the church pastors, and he did get the calls and they would say, oh, is God there? And then he would be able to go, actually, yes, he is. Actually, he's everywhere. But they changed it for the DVD release.
+
+[00:10:27] Okay. Just in case you're worried, not just read it out now. Yeah. Okay, it is time for fact number two, and that is Chisinski. My fact this week is that the world's largest honeybees make hallucinogenic honey. And you're only allowed to collect this honey if you've had a specific dream. So to start from the beginning, these are Himalayan giant honeybees, and they make what's called mad honey. And they are
+
+[00:10:56] collected by the Kulung people of Nepal. And at the moment, there's one collector left in this little community who's a guy called Maui Dan. He's the last honey collector, and he's got a bunch of apprentices who come with him on the honey collecting missions, but they're not allowed to actually
+
+[00:11:12] extract the sort of hives from the cliff face. He has to do that himself, because he's the only person who's had this dream. And the dream he had was 42 years ago, so he's been doing it for a while. He dreamtly was caught in a spider web. He was saved by a monkey, and he woke up,
+
+[00:11:28] and it became clear to him that the monkey was a spirit guardian called Rangamey that they believe in. And so that means Rangamee is a spirit of bees and monkeys. And so that meant Rangamee was saying, you can steal our honey, and you'll be okay. And did the rest of the people go, that guy's clearly nuts, he'll definitely be able to go down the side of a cliff,
+
+[00:11:46] and attack a beehive. Maybe it was that. It was his father's father's father before him, but they have this serious problem now because it's a real source of income because it's quite valuable, but no one else has had the dream, so he's got this apprentice,
+
+[00:12:02] and this apprentice says, I really want to collect the honey on the really dangerous clifface that I, but I just haven't had the dream. And he can't lie about the dream? Well, I... No. No, what I mean is everyone here
+
+[00:12:16] now knows about the dream, does he not know about the dream? No, no, they all know about the dream, but of course you can't lie about the dream. This is a spiritual mission you've been given. The idea is that if you collect the honey without having had the dream, then you'll be cursed forevermore. Why would you lie about it, Dan? Yeah, Dan. Sorry.
+
+[00:12:33] No, no. Think about what you've done, Dan. Sorry, it was a long article. I've been sort of brainwashed by it. It's an amazing article. It was in National Geographic, and I really would recommend it. It's really good. do you know what else they do these bees?
+
+[00:12:47] They do Mexican waves. They nest in the open, right? They have a single flat comb on the cliff face, okay? They nest out in the open, and they've got seven or eight layers of bees thick on the outside for warmth. And when a predator approaches, their method is to do a wave
+
+[00:13:01] pointing their abdomens out into the air, so all their stingers are facing outwards, and they do it in a Mexican wave form. And that notifies the bees on the other side that there's a predator approaching, and they then do it too. Okay. Like the Mexican wave in football stadium,
+
+[00:13:15] notifies the people on the other end that there's a Mexican wave coming. Yes. But in that case, the predator is the Mexican wave. Yeah. So this mad honey, it's from plants from the rhododendron plant.
+
+[00:13:31] Is it something like that? Yes, it's bees that pollinate using the rhododendron plant in spring, and then that makes them make the mad honey. Right, but it's been known about for millennia, hasn't it? Like the Romans wrote about it, the Greeks wrote about it.
+
+[00:13:43] Yeah. There was someone quite recently, a bit more recently, a married couple who deliberately ate some mad honey for reasons of sexual performance. They'd been ringing the meningitis hotline, hadn't they? But it's, yeah, it's said to be a sort of Viagra, isn't it? Yeah, so they had one teaspoon per day for a week,
+
+[00:14:02] and then after a week they decided to crank it up and had a full table spoon each. But unfortunately, that meant they suffered from confusion, chest pain, low blood pressure, and a slowed heartbeat, and they had to go to the hospital, and it turned out they both had a mild heart attack. Whoa. Oh my God.
+
+[00:14:20] Yeah. No, not sexy? Okay. It could be worse. I read that if you have too much of it, your body purges itself from both ends, and then you go intermittently blind, have a sound wave pulsing in your head,
+
+[00:14:36] and then you're paralysed for a day. Not sexy? Not sexy. Yeah, apparently you're suddenly seized at one point with the urge to simultaneously urinate, defecate, and vomit, and then you do all of those things. But then I think it's the purging process which creates the spiritual awakening.
+
+[00:14:54] Have you guys heard of Dawson's bees? Dawson's bees, Dawson's bees. This is so cool. They are so aggressive that during their mating sessions, all the males bite each other to death. Well, not all of them. All of them in the mating process. How does the mating happen then? I think they're kind of mating and biting at the same time.
+
+[00:15:12] But basically, all the males die. Not sexy. But sexual. Yeah. So the entire generation of males is wiped out and the only ones left behind are the females and they just get along with each other fine. And then they raise the next generation of males
+
+[00:15:30] who kill each other and leave the females to get on with it again. Wow, that's amazing. And, you know, something to take a note of, I suppose. Right? Yeah. I've read that a lot of honey that we buy in shopsies days are not as honey-ish as they can be. They sort of get watered down in the process
+
+[00:15:52] and they disguise it because it's very hard if you're just going through honey to be like, that's been watered down. And it's a big industry, it's like a mafia-style industry and they call it honey laundering. And they, yeah, genuinely, it's called honey laundering. And so good. Yeah, something like 75% of honey that we have in shops
+
+[00:16:09] has been watered down so it's not in its pure state. I made that bit up, sure. It was, yeah, it was, it's a stat like that kind of thing. Yeah. There were Victorian honey launderers, and they did exactly the same thing, and they would, I think it was just, they just used syrup, or sometimes they just used glucose, they just poured it into a jar, and for added verite, they would sprinkle in a couple of wings and legs.
+
+[00:16:31] So you would think, ah, good, this is proper honey. There was someone who got in trouble for stealing honey in 2008, actually, and this was in Macedonia, and this was a bear, who was convicted in a court of criminal damage for stealing honey. The case was brought by this beekeeper and this bear had been stealing his bee constantly. Stealing his bee, stealing his honey, constantly.
+
+[00:16:55] And eventually he reported the bear. The first thing he tried was to play loud, Serbian, turbo folk music at them. So, yeah, he took the bear to court and the bear didn't actually turn up in court. And so the state had to pay the fine. it was about £1,800. Imagine being the cellmate
+
+[00:17:15] who gets stuck in with the bear. What are you in for, mate? Got caught in a honey trap. Well. Sometimes a pun is so good, you just need to sit in silence and respect it. Did you know the bees were sent up on Interspace in 1984,
+
+[00:17:44] as they have been a few times, I think, but they were sent on a Challenger flight, and there were 3,300 bees in space. They were housed in this little box, and it was to see how they dealt with zero gravity and whether they built a decent enough hive and stuff. And they did really well, actually. They built a nearly normal comb, according to NASA.
+
+[00:18:02] But bees are very clean, so they don't like to excrete inside their hive. They always go out to wee. And in this Challenger thing, they were just stuck in their hive the whole time. So even though they were there for a full week and they're excreting, you know, every hour, usually, they held it all in.
+
+[00:18:17] Yeah, they sucked it up. They waited, and then they just had an explosive time as soon as they got back to Earth, I guess. But yeah, there was no excruiting. The NASA spokesperson said when the hive got back from a space, it was as clean as a pin. Really? Yeah.
+
+[00:18:31] One minute later, it was not as clean as that. Well, just on bee, specifically honeybee, genitalia, I was reading about their sex life, and Andy, yes, it is sexy. They, oh, no, no, I just remember what it is. They have sex and the ejaculation is so intense for them. Their penis explodes. That is true. There's actually an audible pop that humans can hear. Whoa. Really? Where are you that you're listening in with a stethoscope up against the hive?
+
+[00:19:08] We should move on to our third fact, guys. Okay, it is time for our third fact of the show. and that is James Harkin. Okay, my fact this week is the man who invented the pink flamingo garden ornament dressed in matching clothes with his wife for 35 years. It's amazing.
+
+[00:19:28] It's so weird. Is it weird or is it sweet? Sweet, it's sweet. Okay, cheer for weird? Cheer for sweet. Extremely female cheer for sweets, wasn't it? It's so incredible.
+
+[00:19:45] Like even when they were in different places, she would pack his suitcase and tell him what to wear on each day, so they felt closer to each other. Yeah. That wouldn't make me feel closer to my partner, I've got to say. That would make me feel like I needed
+
+[00:19:58] to reassess the relationship. But there was an interview with this guy's wife. He was called Donald Featherstone, and he died in 2015. There was an interview with his wife, and she said that Donald proposed on their first date, and they've been together almost all the time since.
+
+[00:20:14] Wow. So they didn't go apart that much. And they said, we find it funny when we're watching those crime shows. And they say, what was he worrying when you last saw him? If it was us, we could point to ourselves and say, this.
+
+[00:20:32] That must be so fun watching TV with the... Hey, by the way, we should just quickly explain the absolute cultural massiveness of this character. created these pink flamingo ornaments. Picture that ornament in your head. That's the one that he invented.
+
+[00:20:50] Well, thanks for clarifying that, Dan. Picture the other one. That's not the one. It was the one you thought of thirst. And that, so he created the pink flamingo, and it was ginormous. I mean, it was small, but the, the production line of it was ginormous.
+
+[00:21:11] They sold the fuckload of them, is what you were saying. Yeah, yeah. There's something like 50 million out there in the world, and it was a casting mold that he made of a flamingo, and he'd done lots of different animals, and they all had, you know, mild success, but not flamingo success. Charlie, the duck was quite big.
+
+[00:21:26] Yeah, the duck was bigger than the flamingo for three decades. Was it? What? Really? In the late 80s that the flamingo overtook the duck. Which I can't even picture the duck. Just imagine that duck. He did that?
+
+[00:21:39] And he based on a real duck, didn't he? That he bought a duck, and he kept it in his sink. And he built a model of this dog, probably really unhappy-looking duck, that he tried to sell. Yeah, called Charlie. And he set it up with mirrors, in his words,
+
+[00:21:55] so it would think it had friends. This is the best couple ever. This is so exciting. They also had, so they had four different wardrobes, physical-built wardrobes in their house, and in each wardrobe was the different season that they had of the clothing relative to the season.
+
+[00:22:13] So it's summertime, let's go to Wardrobe No. 2, and they would open it. And there would be the matching his costume and then her costume, and then the next version of the matching his her costume. And then they had a special fifth cupboard that was specifically for the Flamingo-based outfits. Oh, was it? And they would occasionally go to the fifth cupboard and go, it's Flamingo Day, and they would...
+
+[00:22:34] And they would wear it. Just on garden ornaments? Sure. Yeah. Do you know what the first garden ornaments were? Or these were very early garden ornaments. I don't know if they were first.
+
+[00:22:49] Like gnomes? They were like gnomes. They were ancient Greek statues of the god Priapus with an enormous erection. Absolutely massive. And the basic message was, if you come in here,
+
+[00:23:02] Priapus will chase you. So it's like having a guard dog before guard dogs were invented. Yeah, it's like having a guard penis, basically. Actually, I'm not. I found that as well. It said it also was to promote fertility and also to scare birds away.
+
+[00:23:20] It would give them a perch more than anything. On flamingos. This is amazing. Parent flamingos pass their colour to their children. So, flamingos are only pink because of the things they eat. They eat. They're all pink, right? They're all pink. But when they're born, they're grey. And it's because they haven't eaten any of the shrimp
+
+[00:23:40] that have the pink pigment in that gives the... the flamingos their color. So, baby flamingos start getting pink as their parents feed them, and they turn pink, and the parents start to fade. What? Yeah. The pink transfer.
+
+[00:23:54] That's where you're going, now you've had a kid, Dan. Wow. Fading away. They are the ultimate metaphor for mortality. Amazing. Wow. So we've discussed this before on the TV show. you know how the bird joint that looks like the knee
+
+[00:24:15] and bends backwards, that's actually the ankle. Oh, yeah. And their knee is actually up right by the body, so you can't see their knee. Then the ankle bends backwards, and then they're standing on their tit toes, basically. This is amazing. Baby flamingos haven't worked out yet
+
+[00:24:28] how to move that joint up, right? So they haven't worked out how to stand on the very tall legs like her parents. So if you look at a baby flamingo, it's got these massively long clown legs, and then there's tiny little joint up to its body. It's so funny. Its feet come out way further than it is.
+
+[00:24:42] tall. It's incredible. That is amazing. There must be a moment in the flamingo's life where it just goes and then it's up. They do look stupid, don't they? They look really stupid. Okay, let's move on to our final fact of the show and that is Andy.
+
+[00:25:00] My fact is that when Winston Churchill made his first radio address to the people of occupied France, he had his male French coach sitting on his lap. This is true. This is from a new book about the BBC and the Second War. It's called Auntie's War by Edward Sturton.
+
+[00:25:16] And it was October 1940. France has fallen to the Nazis and Churchill had to make a rally and cry to the people of occupied France. He did it in French because he wanted to speak to the French in their own language and he said, French, say, Saint-Mois, Churchill, qui vu pal? And, but better than that, because
+
+[00:25:32] he was very, very good at French. Well, was he very good? Well, he had his French teacher sitting on his lap. Because I read on Winston Churchill.org, who you think would be on his that his French was variously described on a scale from poor to excreble. Oh. It was very controversial his ability to speak French, I think, wasn't it? I think De Gaulle wasn't impressed at one point,
+
+[00:25:55] and he spoke with a deliberately very English accent. Yeah, so he would say Marseille instead of Marseille, and he'd say Calais. But he deliberately mispronounce these things, didn't he? But he was on his... What was he going to do while he was on his lap? He was just giving him extra tuition. How? because he could do that sitting next to him
+
+[00:26:14] No, no, no, the thing is the room was so small they were in. I know this sounds bad, doesn't it? But it was a different time in the 40s. It was, no, it was an improvised radio studio in the cabinet war rooms and there was one chair in the room, basically. What is he going to do during that speech?
+
+[00:26:30] Is it going to be whispering the words to him or what? I don't know. I guess you could point to the syllables on the page for emphasis. I'm not sure. Oh, okay. I think what we're saying is it wouldn't stand up as a defense in court now. Would it?
+
+[00:26:43] But he ended it by saying, sleep well to the French, because it was a broadcast in the evening. And he said, sleep well, the dawn will come, brightly it will shine on the brave and true, glorious on the tombs of heroes, Vive la France,
+
+[00:26:55] which is very moving and stirring. But when he first arrived in the room to deliver the speech, he just said, where is my frog speech? Wow. So this reminded me of another story where I think someone was
+
+[00:27:10] very practical to be there with the person who was delivering this speech. This was Lord John Kerr. And if you don't know the name Lord John Kerr, he is the person who wrote Article 50. That's what his... He wrote that.
+
+[00:27:24] Not in Spain as Juan Kerr. Yeah, he's Juan Kerr in Spain. It's awesome. And so, in 1991, John Major, when he was prime minister, he was having to debate the EMU, which is the economic and monetary union of the single currency, basically.
+
+[00:27:43] He was debating that whether or not to go with the euro. That's it. And he was so ill-prepared for it. He didn't know what to do that, much like a table like this, where it's fabric on the top, before the meeting started, and the dignitaries came in to talk to him,
+
+[00:27:56] he had John Kerr hide underneath the table. And as he was sort of trying to find what he was doing, John Kerr was writing little notes and handing them up to John Major, so he would look and go, actually, this is what I think. That's a practical. tutor. That is incredible.
+
+[00:28:13] It is absolutely incredible that in living memory, the Prime Minister had a man under a table passing in notes. And where did they think these notes were coming from on the other side of the table? John Major's magic penis passing in notes again. But Winston Churchill was one
+
+[00:28:31] of those people who, I think there are two different types of people. Some people go to France and they're too scared to try out their French because they might look like an idiot. And then some people are really bad at French and they go and they just confidently roll on there and Churchill was definitely one of those so he used to make up French words when he didn't know what the word was
+
+[00:28:47] so he said one very famous thing to de Gaulle when they were debating strategy in 1941 he said si vu's obstacleret which obstacleeret is not a word in French but it was one of those things that he kind of got the general gist if you get in my way I'll liquidate you
+
+[00:29:05] and he did it in English as well he made up English words so he made up the word word, uh, paintatious to describe places that were worthy
+
+[00:29:14] of being painted by him, just dropped that in one day. Sheldegar once said that only through learning English was he able to
+
+[00:29:23] understand Churchill's French. It was a time of sick burns the Second World War. I didn't realize this. De Gaul once said when I am right,
+
+[00:29:35] I get angry. When Churchill gets angry, he is wrong. We are angry at each other much of the time. This was our closest allies we were talking to. He did say that he didn't really enjoy speaking French, so he spoke it during the war for diplomatic reasons
+
+[00:29:52] and chatted away to Charles de Gaulle, and then in 1946 he went to France and he was asked a question in French, and he said, no, no, I won't be speaking French. That was a sacrifice that had to be accepted in wartime. Bang, another zinger from Winston SC. But wasn't his mother, French? Yes.
+
+[00:30:11] So that's why he could speak it quite well. And his letters to his mother, they were half English and half French. So they had stuff like, we arrived at Dieppe, O'Ne, partook de Bon Café-Ole. After le de Janeiro, we went for a walk. That's really good. I have some French phrases. I wonder if you will know what they mean.
+
+[00:30:34] Okay. I've got other cats to whip. That's English. All right. Is it like I've got other things to do? Bingo. Other fish to fry. Exactly.
+
+[00:30:50] I've heard about it de Nuiul. Oh, can you do it in English, please? I've got an ass full of noodles. And the phrase? In Russian, noodles on your ear means someone is, like, telling stories? I know, this means I'm lucky. Okay. Oh.
+
+[00:31:12] So far shier like a rat more. I'm pooing like a dead rat. Is that literal? No. It means I'm bored. Oh. Does it?
+
+[00:31:24] Yeah. Oh, sorry, I thought you meant it actually meant that you would just have had the shits or something. No. No. Okay.
+
+[00:31:29] Because there is one which is Avo la top au guiche which is, it literally is... There's so many French speakers in the audience.
+
+[00:31:37] It's awesome. Are there any French people French fluent speakers in tonight. Do shout out if we get this wrong, but I heard that that literally means Avvo la top or guiche means to have a mole at the counter, which means that you really need to poo.
+
+[00:31:54] A mole at the counter. Just waiting to be served. Is that true? It's a beautiful language, isn't it? The language of love. We're going to have to wrap up very soon. Do you guys have stuff before we do? Well, I can tell you something about radio broadcasting the war.
+
+[00:32:14] Oh, yeah. So in World War II, there were air raids in Leningrad. They broadcasted over the radio and also in massive loudspeakers, instructions to take cover and what to do whenever there were attacks. And if there was going to be attacks, they told you that was happening. But it was all done on the radio. But the problem is, how do you know that the Germans haven't bombed the radio place? Right.
+
+[00:32:34] And so in World War II, in Leningrad, they had the sound of a metronome playing on the radio and the loudspeakers all over just going tick, talk, tick, talk, tick, talk. Wait, all loudspeakers in public places. That is very annoying, isn't it?
+
+[00:32:54] Yes, that's what a lot of people found about the experience of total war. Okay, guys, let's wrap up. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast.
+
+[00:33:11] We can be found on our Twitter accounts. I'm on at Shreiberland, Andy. At Andrew Hunter M. James. At James Harkin. And Chazinski. You can email podcast at QI.com. Yep.
+
+[00:33:22] Yeah. Or you can go to our group Twitter account, which is at No Such Thing. You can go to our website, No Such Thing as a Fish.com, where we have all of our previous episodes. We have a link to our book as well. It is out now.
+
+[00:33:34] It's called The Book of the Year. We're about to give one away to a member of the audience here in Wimbledon tonight who sent us in a fact. We found our favorite fact. Chazinsky, I believe you have it? Yes, I did write it down and I forgot to bring it out.
+
+[00:33:45] So I'm just going to wing it. I can't remember whose this was, so you're going to have to shout. Unbelievable. It appears to have been everyone's fact. The slickness of the show really fell apart the last minute. This is about a man called Prince Harry and a woman called Megan Markle have just got engaged, and Megan Markle's ancestors were executed by Prince. Harry's ancestors.
+
+[00:34:12] Yeah. Ouch. Awkward. Whose was that? Four throw back. Fourth row. What's your name, sorry? Helen.
+
+[00:34:19] It is Helen. Yeah, yeah. You're at tall for a Hobbit, right? Yeah, cool. Come and grab a book after it. Yeah, come and grab a book afterwards. Guys, thank you so much for being here. And by the way, we're going to be out the back there.
+
+[00:34:34] If you want to buy a copy of the book, we're going to sign copies of the book. So please do come say hi. And we have a very special. ending for this evening because usually we go out on the played theme tune. But tonight, of course, we have Ash Gardner here. So why not? We're going to play the song live as we go out tonight with Ash singing the actual song. Yeah. So please welcome to the stage. It is the lead singer of Emperor Yes. Ash Gardner, everyone. And this time there's no escape. They'll move from high to hide, leaving nothing alive.

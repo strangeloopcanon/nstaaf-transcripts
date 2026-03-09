@@ -1,0 +1,313 @@
+# No Such Thing As A Fish - 520: No Such Thing As A Prehistoric Air Fryer
+
+- Episode date: February 29, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/520-no-such-thing-as-a-prehistoric-air-fryer
+- Slug: 520-no-such-thing-as-a-prehistoric-air-fryer
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish. Anna Tyshinski is still off on her hollybabs and so we have for you a very, very special guest. It is Melanie Bracewell. Now those of you down under will know who Melanie is. She is a regular on television in Australia and New Zealand. She's recently been on New Zealand Taskmaster. If anyone outside of New Zealand
+
+[00:00:28] has nautily managed to get hold of that on the tubes. You'll know her from that. But we've actually known Mel for many, many years. We first met her when we did our New Zealand tour many years ago. We've been wanting to get her on the podcast for ages and ages. And finally, she is in the UK and she came on the show. And actually, that brings me to the fact
+
+[00:00:51] that she is touring the UK at the moment. So if you listen to this podcast, you like what you hear, I know you will, cause she's absolutely brilliant. She's so funny. Then definitely get down to one of her gigs. You'll have to get in there fast because she is already right in the middle of that tour but if you listen to this as soon as it comes out then you just about have enough time to get to her gigs in Stafford, Edinburgh,
+
+[00:01:13] Glasgow, London, Cambridge and Birmingham that's all happening in the next week or so and of course if you are in Australia or New Zealand then she's doing loads of gigs down there and actually in the UK she'll be back to do the Edinburgh Festival in the summer. So if you want to know any more about Melanie go to MelanieBracwell.com and if you want to know where she's playing then go to MelanieBracwell.com forward slash gigs. Really hope you enjoy this show I'm absolutely certain you will. So let's just say on with the podcast! Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming
+
+[00:02:09] to you from the QI offices in Hoburn. My name is Dan Schreiber, I am sitting here with Andrew Hunter Murray, James Harkin and Melanie Bracewell and once again we have gathered round the microphones with our four favorite facts from the last seven days and in no particular order here we go. Starting with fact number one that is Mel. Yes my fact this week is that a study of magpies in Australia has revealed that magpies do not like to be studied. So this was a study that they did at the University of the Sunshine Coast. They were trying to track flight patterns and things of magpies. They developed these very special trackers that are only 1% of a magpies body weight.
+
+[00:02:51] They're like, this is perfect. And they put these trackers on the birds and they quickly just started pecking them away. And they went, oh, they're not being very successful. It'll be OK. And then the other magpies came and just helped them pick the trackers off of them. So at first they were sort of you know you scratch my back I'll scratch yours and they were picking them off each other but then they found that other magpies who didn't even have a tracker in the first place were helping the other magpies to get rid of their trackers. So they were showing
+
+[00:03:19] behaviors of like ultrason and so they, actually, this is quite a good study. Oh, so that's how they know. I was hoping they decoded like some calls of theirs and they'll translate those piss off mate. Probably. Actually, you know, 1% of your body weight be a almost a kilo. What are my clothes?
+
+[00:03:37] What are my clothes way? I don't know. Let's weigh your clothes now. No, let's not take them all off now and weigh them. Yes. But you do have a good point because Magpies It's the way you're clothes now. No, let's not take them all off now and wait. Oh. Yeah. But you do have a good point, because magpies do have a reputation for being dicks. But falsely.
+
+[00:03:53] So basically, only 8% to 10% of magpies will swoop people. Only the male magpies, and only in one month of the year. Hashtag not all magpies. Yeah, exactly. Well, this is a really interesting thing, because magpies are over on this side of the planet as well. But Aussie magpies, they're actually a different species to the European magpie.
+
+[00:04:12] That's just not anything to do with each other. So I remember saying to people, oh, magpie swoop. And that being an alien concept here, but you live in Australia. You know the danger, the fear of walking down a street and a magpie swooping on you. And the problem is, because they're very smart and they recognize faces,
+
+[00:04:28] if they decide that they don't like you, they will target you. So some people will just get swooped every day on their way to work. And so that's why they've earned that reputation. Have you been swooped? I have been swooped once in my life, but my boyfriend loves birds a lot.
+
+[00:04:42] And he has decided when we first moved to Australia, was going to become friends with all the magpies. So that's the other thing because they can recognise your face, you can actually make a friend for life. Yeah. And they stay in the same neighbourhood. So if you move into a neighbourhood and there are magpies there, they will be the same magpies for like 20 years. It's really high stakes when you move in.
+
+[00:05:03] You've got a chance to make a good impression. If you blow it, long-term grudges are held. They only usually live for about five years. Can't the family like in the mafia remember and bear a grudge? Didn't we save... That was crows we were talking about ages and ages ago, I think. They do, yes. And the school children are often targeted by magpies because
+
+[00:05:25] they often wear school uniforms. So if one child has thrown a rock at a magpie, they will then view all children as threats. And so they'll just attack. Same with like if they determine if you're wearing like something covering your face or your head, say a bicelmet, they view that as a threat of like, what are you hiding from? And then they will then sweep you for that. Does anyone come across Emma Glenfield when you're doing this research? No. So we were talking about school kids. And she was in Australia and she'd been
+
+[00:05:58] watching people be swooped by these magpies. And she thought, it seems to me like they're going for bold people more. The bold teachers, they seem to be going for the bold teachers. And she asked her mom, is this a thing? And her mom said, well, I don't know if it's a thing, you know, do your homework or whatever. And anyway, she decided to do a study. So she went to her school and she watched as these magpie swooped people and then did a survey of anyone who'd been swooped saying, you know, how tall are you? What's your hairstyle? What sex you you? All that kind of stuff. What's your hairstyle? None. Well then, she spoke to about 100 people around the school, but then it went online and she got 30,000 people to participate on her survey online and she that statistically, magpies are more likely to go for bald people.
+
+[00:06:47] And according to a magpie expert called Darryl Jones, her study is the first time anyone's ever examined this link. And so she's doing brand new science and learned this about people. So you know what bald people should do then? Draw a face on the back of their head. What? Magpies are less likely to go at anything that has eyes.
+
+[00:07:05] And so if they're sweeping from behind, they're just seeing a bold head all together. Oh, that could be icy. Yeah. So there are a few things that people think they've worked out that magpies won't sweep at. One is if you have eyes at the back of your head. So people who are often cyclists might often wear sunglasses on the back of their head, facing that way to give the impression there are eyes there.
+
+[00:07:24] A bit like in, is it in Africa, we might have said before, where they draw eyes on the b of their head facing that way to give the impression there are eyes there. A bit like in, is it in Africa we might have said before where they draw eyes on the bums of cows? Yes, exactly. Stop them being attacked by lions. Yeah, yeah, because you can't be sneaked up on. Yeah, it's so funny, they're a protected national species so if a magpie attacks you, you can't attack it back. You kind of just have to let it happen. Really? Yeah. And so what they do then is if they've identified an aggressive magpie, they have to ship him out of there. But there's a minimum distance, which is like 25 kilometers. So because they'll just fly back.
+
+[00:07:52] They don't respect the restraining order. Exactly. Have you heard of the Windsor Road monster? No. It's an Australian magpie. Specific one, which was especially aggressive and had to be put down in the end. But it took a very long time. I have to say, the Winsor and Monster was given multiple chances to learn and change.
+
+[00:08:10] And the attacks, well, there were more than 40 complaints. One person had a heart attack shortly after being swooped, which is not the thought... You know, there could be other things happening in that person's life that makes them more susceptible to a heart attack. That's not necessarily the magpies. That's true, that's true. But it didn't, no you're right, but it was going for people's faces. It was going under cyclist's helmets to get them. It was even for an Australian magpie, it was being especially aggressive. You're bald under there mate. What's going on?
+
+[00:08:38] Where you hiding? They're just trying to protect the ground. They spend most of their life just protecting their area. So they choose their radius and it's quite small and they will just spend the whole time just standing like as bounces on the edge of their patch being like don't come in here all the time. There was one cyclist who I read about called Dr Richard Osborne who came up with this new cycle helmet. I've seen this.
+
+[00:09:04] Does it have a face on it? to Richard Osborne, who came up with this new cycle helmet. I think I've seen this. Does it have a face on it? No, it doesn't have a face. Can you guess what it is? He uses a thing I have around my house to scare them away. So I know this, so I won't guess. Yeah.
+
+[00:09:18] OK. I could have seemed really smart. Stop using James' personality to work out. Yeah. A golf club. Yeah. What do you know about things that happened in my life in the last two weeks? It seemed really smart. I stopped using James' personality to what I count. It was a golf club. What do you know about things that happened in my life in the last two weeks?
+
+[00:09:29] The last two weeks. Yeah, yeah, yeah. All my family members. Your kid has had a birthday. Yeah. Your daughter's got a birthday. Two years old. So you see, you put the hours in with people then.
+
+[00:09:42] What a way to find out that's your daughter's birthday No uncle Dan hasn't forgotten about you. No, no, he's been very busy. I've shot the gifts on its way Oh my god, she's built a helmet to ward Dan away It does the bike have a mortal baby pinioned on top of it It has you know these party blowers where you blow them and they go, yeah, stick out. He has those attached to his helmet and there's a tube attached to them. So the magpie comes there, he blows into the tube and they all go,
+
+[00:10:16] is this what you were thinking? No. I just see the guy who had died a lot of cable ties towards here. Very funny. And does he, has it sort of caught on? Yeah, well no, it's not carton because he looks like an idiot. But he said it seemed a bit safer than carrying a stick and waving it around, which was his other option. Or having spikes, which a lot of people do.
+
+[00:10:39] They're not sharp spikes, but they are sticky out. Is that right? Yeah, yeah, just as a difference. The best thing to do is to just be nice to them. Yeah. Because they will remember you being nice. So what happens is people run away and they go, oh, you are guilty. Why are you running? Therefore, it just fills this prophecy in their head. But to be nice to them, if you're in their area, how can you be nice? You just feed them. You just leave them out like little peanuts and things. That's what my boyfriend has been trying
+
+[00:11:03] to do, like leaving peanuts outside our yard and getting them to come. And yes, and then when they like you, they'll bring their kids along to be like, here's my kids. You miss the good day. One nice thing that you can do for them is actually something that will get you in trouble with them, which is if you see one of their babies struggling and you go to help it, they will view that as you hurting their babies because they haven't introduced you to it. So be careful how nice you are.
+
+[00:11:28] And that's why you didn't give a gift. It's the last they've viewed as a threat. Playgrounds, playgrounds are like that, you know. Are they? Well, if you see a child that's struggling and you go over to help it, their parents might think, who's this guy who's approaching my child?
+
+[00:11:40] Yes. This guy's left the fence. I can't remember not to wear my costume when I'm doing that. I'm weighing my clothes. Do you have lots of superstitions about them in Australia? I have heard of these superstitions, but I don't think I follow them in my day to day life.
+
+[00:12:00] Because that's pretty much what they're well known for here, right? Yeah. I follow quite a few. So when you see one, do you say like, hello Mr. Magpie, where's your wife or something? Good morning, my lord, and how's your wife and children? Yes. Right. Yeah, yeah, yeah.
+
+[00:12:12] And do you do that? I do, yeah. A lot of, if you see one on its own, seeing two is fine, three is whatever, any but one on its own bad luck so quickly. Because in Australia, that's a lot to get out while it's coming for your eyes, isn't it? Yeah, yeah, exactly.
+
+[00:12:24] In Australia, ah! That's it, yeah, yeah, that's a lot to get out while it's coming for your eyes. But no, there are all these things. Like the magpie landed on the cross when Christ was being crucified, or the tongue of a magpie contains a drop of blood from the devil himself. I think if they open their mouth there is a little bit of red in there isn't there? I think that's why they associated with Jesus. Yeah, and that's why if you scratch its tongue with the edge of a silver sixpence and put a drop of blood into the wound, it will gain the power of speech. It's red, yeah.
+
+[00:12:55] We've all been there. There's so much slander about them from back in the day, particularly religious. So the one about the crucifix, apparently it was the only bird not to cry when Jesus was crucified And that was that was big news and then in the 19th century There's a vicar who said it was the only bird that refused to go on Noah's Ark rather it just hung outside swearing instead In France the idea is that a magpie is a reincarnated evil nun The idea is that a magpie is a reincarnated evil nun. I can see it, I guess. British magpies eat a lot of dog poo.
+
+[00:13:29] Well, that's good. Yeah. Even if there's other food around, they'll eat the dog. Really? Yeah, yeah. And to such the extent that people in parks have noticed that they'll, because they're quite smart, obviously, magpies, they'll go to the dog poo bins,
+
+[00:13:44] pull out a bag of dog poo, rip open the bag of dog poo, and then have a little snack. Oh my god. Oh my god. That's some self-respect. What? That's awful. That's nutritious.
+
+[00:13:54] It's nature. I've never tried that. I don't know if it's good or not. Oh. I just want to say, we don't know. You said might taste great. Yeah. And I heard you saying mine tastes great. And I just thought, actually, I'm just going to gloss on the
+
+[00:14:05] new past bit because, you know, we've got a guest. You guys at a park, is it? You're trying to go through the dog poo, you're naked at a playground. It's a whole image. James has got a party. All he was coming at his head. Yeah. Oh my god. They do have them in New Zealand. They do, yes. My eyes don't they, but they've come over from Australia. Apparently no one's trying to get rid of them in New Zealand. You know, like in But they've come over from Australia. Apparently no one's trying to get rid of them in New Zealand. You know like in New Zealand there's quite a lot of invasive species and they're trying to get rid of them. Well they're not doing it with mypies because it's too hard basically. You get rid of two magpies from an area and then the next two will move in. But apparently what I read is they've got a bad reputation in New Zealand, these magpies,
+
+[00:14:43] What I read is they've got a bad reputation in New Zealand. These magpies, because they're big, showy, noisy, and according to the article, it must be said, Australian. Yes, that really does rub us the wrong way. That's how I can understand it. Did you hear of these climatisation societies? Australian magpies, but they were introduced to New Zealand by societies saying I'm not sure what the rationale was actually because it was not as though They were gonna be hunted or well They thought that there wasn't enough nice animals in New Zealand. In fact, I've heard that a lot. Yeah
+
+[00:15:18] Like you know, there's not there's no endemic Mammals to New Zealand apart from a bat. So like any mammals were really there. Yeah. Got there. And they were like, where's the rabbits? Yeah. You know, where's the tweeting birds? We don't know where they are.
+
+[00:15:32] And, but I feel like it's such a bird heavy place. Or certainly would have been in the 19th century. Well, as in, why would you introduce more birds? Yes. So, yeah, some that can fly would be useful. Yeah. Exactly. Like the Kakamso, that's the New Zealand one as well.
+
+[00:15:46] Yeah, but a lot of them kind of hide in the middle of the night. Yeah, even the Kiwi bird, I don't think I've ever seen one. Hmm, really? You go to the zoo and they say they're in there. But I don't reckon that. I think it's just they put a red light in a cave looking area and they go, there's Kiwi inY. It's like Tasmanian devils. I've gone every year to see a Tasmanian devil
+
+[00:16:09] at Taronga Zoo in Sydney and you never see one. You never see them spinning around like a tornado. Yeah, you do hear a little bit in the background. But yeah. Stop the podcast. Deteneur El podcast! What was that? That was very bad Spanish, Dan.
+
+[00:16:32] And you know what? I would really like to be much better at Spanish. Can you think of any way that that might possibly happen? Unbelievably, by insane coincidence, the advert we're about to record is exactly the thing to help you. Because we are sponsored this week by Babbel. Is Babbel the amazing language learning company which lets you work online or on apps? It has everyday conversations, it has advanced speech recognition, it has lessons complemented by cultural insights. No, it's actually courses in how to talk for way too
+
+[00:17:02] long. I see you've been taking some classes. Now of course that's exactly what it is. Babbel has over 200 language experts that have come together to curate the best learning tools for you to be able to become fluent in one of 14 different languages. If you're going overseas, this is the essential app to take with you or to open up on your computer while you're there. Absolutely and right now Babbel is offering our listeners six months free with a purchase of a six month subscription with a promo code no such thing. That's all one word. That's right. So head to Babbel. That's B-A-B-B-E-L dot com slash play. Use the promo code no such thing. All is one word and you will get six months free with a purchase
+
+[00:17:46] of a six month subscription. Babbel is your guaranteed path towards speaking a new language. You don't have to go on all the time like I do just talking and talking and talking. Okay, yes, thank you. On with the show. Adelante con el podcast. Adelante con el podcast! Ole! Okay, it is time for fact number two. That is James. Okay, my fact this week is that the sport of netball was invented because its creator thought basketball made women grow bitter and lose control.
+
+[00:18:21] Wow. As a player of both sports, I will say this is true. Oh, really? OK. That's interesting. I play social netball, you know? And it's always very wholesome. The slogan of netball is just, you know, here if you need, it's so beautiful.
+
+[00:18:34] That's just what you say a lot, you know, when you pass the ball, you go, here if you need, like, pass it on me. You say, here if you need, like, I'm over here. It's very wholesome. But then I play basketball and I become a feral beast. So interesting. So what's the key difference that causes that?
+
+[00:18:51] I don't know if this is. Well, basketball is technically no contact. But you're trying to take the ball off someone and you can run beside them. So basics of netball is once you catch the ball, you can't move. If you're taking a shot, no one can defend you. So you can't move the ball. They can. Well, you can, dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble.
+
+[00:19:06] So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble.
+
+[00:19:14] So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble.
+
+[00:19:22] So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. So, you can't dribble. in New Orleans and she'd been asked to come up with a new sport for women to play because this was an all women's school. And she decided, she came up with a few ideas but her main one was to adapt sports of being played by men. So basketball had just become really popular, been invented by James Naismith a few years earlier and so she wrote to him and asked for the rules. She got the rules and said right we're going to play basketball but anyone who was there said it was a mad game in which the women grew bitter and lost control Even she herself said it was not entirely
+
+[00:19:51] Satisfactory and so she thought well I'm gonna have to invent a new game Which doesn't have all this stuff because this is just not appropriate to women and so she came up with that ball Interesting you say that Nebel is a non-contact sport But I don't think it actually is Because non-contact would be something like tennis where you genuinely don't touch anyone else. But netball, there are certain rules. So if I was to run into the space to get the ball and someone else is running in and I shoulder barge them on the way, that is really within the rules of the game.
+
+[00:20:19] Like there is the art of learning to play netball is to learn how to be very aggressive within the confines of the rules. Yeah, yeah, okay. We used to play it at school and I went to a stina school. So I think that was more, it feels like a made up stina sport really. Stina is a very hippie non-competitive kind of thing and it feels like instead of basketball let's do netball instead. So can I check a few more rules? So Mel, there's still no shouting or talking during the game. Interesting. Where is that from? Is that from the most recent rule? That was from Clara
+
+[00:20:54] Beas founding rules. Right. You can't talk back to the umpire. So you couldn't say, oh, okay. In the first rules for sure. If you spoke, if you said anything in the game, it was a foul. the first rules for sure, if you spoke, if you said anything in the game, it was a foul. Oh, right. Even here if you need. Yeah. You might say that. I read no falling over was also a win. I'm struggling to compute. That seems a bit harsh. Yeah, it does. It's a weird rule that there's sort of a hangover there. If you catch the ball and you fall over, you're not allowed to move with the ball but if you are on the ground you can't throw the ball from the ground so you have to make your way back up to standing before you can throw
+
+[00:21:31] the ball but you have to keep your feet planted so where your feet landed when you fell over you have to just weirdly stand up. Do you look like one of those inflatable car selling plume guns? You just have to rise up. That's a good that's brilliant. That's a good rule, I like that. She also said no needlessly rough play was in her rules. And all shots had to be taken with one hand.
+
+[00:21:53] Because there was a thought that by throwing it with two hands, it was un-ladylike and might somehow make women less feminine. I read there would be inclination of the shoulders forward with consequent flattening of the chest. Oh, precisely. And that would not be a graceful position for girls. That's what they said. But it's interesting because the one-handed throw was in netball from the very start,
+
+[00:22:15] they had one-handed throw. But in basketball, there was none of it until about the 1930s. It was all two-handed throwing into the baskets. As a rule, was it? No, it's just that was the way. That was the way they did it, yeah. Yeah.
+
+[00:22:25] I love as well that she basically, she originally was starting basketball as a female version of it. And she called it basket ball. She just changed it to QUE. Well, I think what happened there is she wrote to Naismith, who came up with the original thing.
+
+[00:22:40] And she said, here's my new sport. What do you think? It's women's basketball. And he wrote back saying, well, it's not really the same as basketball. So you should change the name a little bit. Yeah. She said, OK, I'll change it to basket ball.
+
+[00:22:51] And then part of the rules were developed because she just misunderstood what he'd sent back. There were dots all over it. And she took that to mean seven different zones. So you would be stuck in your zone. And that, yeah, that got applied to the initial rules. We should not still change. Yeah, yeah. A goalkeeper is still in one third of the court. So you would be stuck in your zone. And that got applied to the initial rules, which have not changed. Yeah, yeah.
+
+[00:23:06] A goalkeeper is still in one third of the court. A center can go in most of the court, but not the two. It's very complicated. It's not very sociable, is it? Like if there's some people who never really see each other. Exactly. Like I will chat to a goal shooter as a goalkeeper a lot, but I will never see my team's goal shooter.
+
+[00:23:23] I just go, oh well done. But it's safe and the women look very womenly as a result. What a relief. The vision has remained from Clara Bear. Do you play volleyball as well Mel? I don't, I just play netball and basketball. Okay. Because apparently volleyball may have been nicked basically a month after the first
+
+[00:23:44] game of Newcombe Ball, which was another thing. Clara Bear invented Newcombe Ball, but you throw the ball into the other team's area so it hits the floor without them being able to catch it. One month after that, first game was written up, William Morgan, the YMCA director in the USA, he invented volleyball. And it was basically apparently for older businessmen on their lunch hour, was how it was described, which I
+
+[00:24:05] think it has not stayed true to over the years. You know, beach volleyball, yeah, there's an official rule that you're only allowed to wear one watch. Oh, it's in the actual rules. It says only one watch. What possible advantage do you get from two watches? What do you think? What time it is in another part of the world? Do you know, do you know the answer? I think I do, yeah.
+
+[00:24:27] Okay, so what advantage would you have? I mean, you never get... Okay, I have a punt. I go on. Is it that people were doing sponsorship deals with multiple watch companies? I can't believe that's amazing. Interesting, that's great.
+
+[00:24:37] Yeah. There's actually some rules about how many temporary tattoos you're allowed because people use those for advertisements. No. You've got small, small real estate. No. You've got small real estate. Yeah. Small real estate.
+
+[00:24:46] I think. Exactly. Yeah. That's so funny. Isn't it? Because Netball is so big in New Zealand and Australia. I wasn't sure how much you guys knew about this board. I know you play in England.
+
+[00:24:56] You've got a very popular team. But I was like, I wonder what's some unknown facts about Netball. So of course I looked it up and I found an article titled fascinating facts about netball that you never knew. Number one was how long is a netball game? Okay well let's try. Does anyone here know how long it is? Actually I do not know. I will guess it's 80 minutes. Oh I think it's less. I've watched games but I can't remember how long they were. I reckon maybe 60 minutes and quarters.
+
+[00:25:26] Yeah, that's what I'm thinking. I'm trying to work out, is it quarters as well? And so I'm going to say 60, because I heard you just say yes. No, no. Yes, I acknowledge your answer, and it's incorrect. No, no, it is actually. It's for 15 minute quarters. Oh, yeah, fascinating fact.
+
+[00:25:40] Yes, fascinating fact. Number two, what is netball? Ah. Fast. I think it's a real entry-level article that I had come across. I love the way that the first thing you need to learn is how long it is, and then the second one is what is it? It's like, do you want to play Netball? Well, how long will it be? It's 60 minutes. It's got two watches on.
+
+[00:26:03] You're right. So, I grew up in Oz for my teenage years. Netball was massive there. And I assumed it was globally massive. It's an American invention. But in America, it's not really played. It's getting back now. And particularly, Aussies and New Zealanders keep going over to schools to try and reintegrate it.
+
+[00:26:19] So Ross Day is someone who went over to try and get it done. And she said, what are the biggest challenges? I can't believe this is true. It must be done. And she said, what are the biggest challenges? I can't believe this is true. Must be target cheek. She says, one of the biggest challenges is that when we're pitching netball, is that because of our accents being Aussie and New Zealand, everyone thinks we're saying nipple.
+
+[00:26:34] Yes, I get this a lot. I will say something about nipple on TV. I'll be like, oh, that was a great netball play. And it has a whole different meaning. And the comments people are like, what are you talking about? Wow. So someone will come up to you and say, do you want a better netball play?
+
+[00:26:52] How long will it be? Wait, quick double check. It is what you think it is. What is netball? That's so funny. I like the early forms of basketball were interesting as well. I like how they first started with a peach basket, but they didn't think to put a hole in the bottom.
+
+[00:27:13] So in the early games, they would have to stop the game to go retrieve the ball from the basket and climb up a ladder. I suppose in a way, if you have a hole, it's not always certain if the balls gone in. Yeah, that is true. Is that that? Sometimes if I shoot in it like because you go for the swish sound, but sometimes you could just shoot so far that it just hits the net and makes that sound anyway. And you go, oh, I'll count it. Oh, in football, there's been in soccer, there's been this thing where you have like a board next to the goal This I think it was in Queen's Park Rangers And they scored a goal and it hit the board and then bounce straight back out again and the goal didn't get given because yeah
+
+[00:27:53] I don't understand how that so it hit the board next to the so it's gone into the net Yeah, so I didn't explain that very well. So you got the goal the goal post Yeah, and you got the net. Yeah, then you've got an advertising board right behind the goal. And so the ball goes in, hits the advertising board, bounces straight back out again and the referee goes, well, I didn't see it go in. And it happened quite recently where there was a hole in the net, as in one that wasn't supposed to be there, a bigger than the normal hole. And the ball went in and it went through the hole and no one could tell whether it had gone in or not. That's good.
+
+[00:28:25] That's a good thing for a goalie to do when the action's happening at the other end. So like to really saw through the net and then you'd be, I saw. Like a wily clay. When you were sort of part of the New Zealand netball scene, did you know anyone who played for the master baders? Do you remember this?
+
+[00:28:48] No. Okay. It was just a cheeky little fun New Zealand thing, but there was a Sydney World Masters Games where all Netball teams were coming and there was a lot of New Zealand teams that were coming over and they named themselves the Master Baiters. Why? Well, it was a Masters and they were baiting. So with the master baiters. Yeah, the second baiters. What are they baiting? Baiting the
+
+[00:29:11] other teams. Oh, I see. I didn't come up with it. I like how the sport of nipples evolve quite a lot. There's different versions of these fast five, which is basically they've made it more like basketball. There's five people on the court and there's you can shoot three point or two pointers and things. The Northern Mystics used a new move called the Harrison Hoist because you have to be three feet away and so they have been practicing like a cheerleader lift and so she lifted her up and she was able to bat the ball over there as it was going into the hoop. And yeah, it's allowed. It was in the game and they were going to go, oh, we'll save this for the finals. But then they were like, okay, we might not get a final.
+
+[00:29:57] So they had to do it in like a qualifying match. It's one of those things that they don't do all the time now because in theory, if you knew knew it was coming you could kind of counter it You can only have two defenders in the circle So they had to use all of their resources, but if you see it coming you were like, ah, just a shot You know and then suddenly she's in the sky. So it's like a rugby throw-in Into the air not allowed to do that in football by the way Officially in the rules, officially in the rules. Isn't it? As in, not piggybacks.
+
+[00:30:27] If you... It's like a true endler. And it's in the air, and you want to head the ball in. And I think, well, I'm going to give my mate a piggyback. It's not allowed. It's un-gentlemanly conduct. It's called an indirect free kick to the other team, and both players should be cautioned.
+
+[00:30:42] Get out. Wow. I think you've got the web all put together a piggyback in that time. You should be allowed to. That was in my, because I trained as a football referee. And that was one of the questions that came up. It's like, what do you do in this situation? Wow.
+
+[00:30:57] You give him a stern finger. I don't watch it. I really want to watch Andy's version of football though. It's a corner kick. He's gone for the piggy back. It's gone in. Oh no, someone soared through the back of that and it has gone right through. No points.
+
+[00:31:14] Okay, it is time for fact number three and that is Andy. My fact is that when the asteroid which wiped out the dinosaurs hit, there was a brief burst of radiation so strong it would have immediately cooked some dinosaurs through. Whoa, like an air fryer. Yes, exactly like an air fryer. This is, it's much less fun than I've made it sound for the dinosaurs, but what a, you know, for a brief. For like the mammals survived today.
+
+[00:31:43] So could they have come out and eaten some dinosaur cooked? Yes, yes, they probably could. Yeah. But you say for a brief moment, so it was perfectly cooked and then they were charred beyond oblivion? Is that it? Cause you could say, oh here is my roast for a brief moment.
+
+[00:31:59] It was amazing, but it is a pile of ash now. Yeah, that moment, no, you. Yeah, you're absolutely right. I think there weren't precise settings on. This is from a fantastic book I've just read. It's called Not the End of the World by Hannah Ritchie. It's about completely different stuff, actually. It's about sustainability and the big planetary challenges. She's writing in this bit about, you know,
+
+[00:32:24] extinction events and how fascinating some of those have been over the past. And this is about the dinosaurs 65 million years ago, 66. 66. One ago. And the asteroid hits. It was an old book that you read. It was. Yeah. Thing hits.
+
+[00:32:41] Yeah. There's a shockwave that moves at 17,000 miles an hour. It's quite hard to get your head around some of this stuff. And then this huge amount, like cubic miles of rock, get lifted up by the impact. They then, so they've been liquidized into these little glass balls, which go all the way around the planet immediately, and then that falls. Literally the kind of sky falls down, you know. Yeah, rain's glass.
+
+[00:33:02] Yeah, liquid rock basically. And lots of it gets blasted by friction in the atmosphere, because it's coming back glass. Yeah, liquid rock basically. And lots of it gets blasted by friction in the atmosphere, because it's coming back into the atmosphere, if you see. So then the energy is released as infrared radiation, which turns into this massive blast of heat. And if you were a dinosaur out in the open, it's bad news. And it's really interesting, because why didn't everything burn
+
+[00:33:23] immediately at that point? And basically, there was a study in 2016 by a scientist called Sean Gulick who found out that either it was like being in a toaster for a few hours or a pizza oven for a few minutes. It's bad news if you were out in the open. So would there be some dinosaurs who were the furthest away that would be nicely cooked? I think just medium-rare. So they get cooked by the radiation, their innards are just completely just, they're cooked, but so they die immediately or is it kind of like radiation where? If you were out in the open there's a very good chance you would have died at that point
+
+[00:33:55] because it's such a blast of searing heat for such a, for a relatively long time, longer than you'd be comfortable with. It's not just like a sauna. No, it's a two feet. be comfortable with. It's not just like a sauna. No. For a brief moment in time, my muscles were very relaxed. It is nuts reading about it. It's pretty striking. It's a big old rock, wasn't it? A big old rock. I found one weird thing. This is good. Right, so I think we've said before it was the size of Mount Everest, the rock there. Yeah. And it was travelling 20 times the speed of a bullet.
+
+[00:34:25] It was really, really huge. Big and fast. Big and fast. And it was so big and fast that when it arrived, it was pushing the atmosphere in front of it so rapidly that the crater from the impact started to form before it hit. Oh yeah. It just pushed the surface of the earth down.
+
+[00:34:43] Oh my god. That's amazing, that, isn't it? Yeah. It's insane. I became friends recently with the dinosaur hunter who, or she's a paleontologist who's the person who has verified that the asteroid landed in spring. I think you guys met her very briefly in Belgium. Oh yeah.
+
+[00:35:00] Oh yeah. When we were at Nerdland, at the festival. It was all to do with the specific fish that as it was being carried in the tsunamis, which was not just water, it was also earth, like an earth tsunami. The glass that had come down went in through the filters of the fish, went through the mouth and were inside.
+
+[00:35:17] So when they found the fossilized versions of these fish, they found the glass. And these specific fish are the type of fish that have growths in their body that change per season So during spring they grow these extra little things so they spotted that and they went well that could only happen in spring therefore in Spring on the side of the planet that it's on that's where that happened. That is a really nuts You know you're gonna deal with an asteroid and hay fever at the same time I was looking at extinct meat because a cultivated meat company in Australia made a mammoth meatball last year.
+
+[00:35:56] Oh, yes, I heard about this, yes. Using a DNA sequence from the mammoth myoglobin, which is the protein that gives the meat its flavor, and filled in a few gaps using elephant DNA, and then they made this meatball. They did not eat the meatball. They just put it on display to be like, this is the mammoth meatball. I don't know, I think they were just,
+
+[00:36:17] they were like, we haven't really tested this, whether this is safe for human consumption. So we'll just make the meatball, I guess, probably to get a bit of press and explain. Is this the size of a normal meatball? Because you think if it'll just make the meatball, I guess, probably to get a bit of press. And the size of a normal meatball, because you think if it was a mammoth meatball, you would deliberately make it much bigger. Yeah, exactly.
+
+[00:36:31] I didn't get, it wasn't mixed for like a can of Coke, so I'm not sure. Yeah. But it looks regular meatball size. Maybe you wouldn't, because then it would just confuse the purchaser or the person looking at it, go, oh, I get it, it's mammoth. It's big. It's like, we're just not even considering the extraordinary science that has got into this.
+
+[00:36:50] I would have eaten that. You wouldn't do without knowing the health implications. Yes. It's interesting. Okay. And I feel like they've grown it. No animals have been harmed. Yeah. So I'm a veggie, but I would love to. Yes. I think the same thing. Cause my boyfriend's vegetarian and he says that if they reached the point where we could just have
+
+[00:37:10] cultivated meat made from the actual cells, then he'd go, oh, it's fine, I'll eat that. And I think it's, they, it's come a long way in the last few years. I think the first patty they made, like a mince patty, a salad just with mince patties, was I think $300,000, so quite an expensive burger. But it's come down now where they think that they could release these things.
+
+[00:37:32] To like $200,000. Yeah, release them into supermarket. So it's rapidly. I experiment quite a lot with those. I tried some salmon the other day, which I have to say was not there. Oh yes, like the fake salmon. I was saying to myself to do.
+
+[00:37:44] Not the like made from actual. Sorry. I think they just keep adding salt until it has some kind of flavor, and then it's fine. I had a vegan Domino's pepperoni pizza a couple of nights ago. That's not an ad. And I could not taste the difference. Really? I will just say for the listeners at home, he does have a domino's tattoo on it. He's trying to show us off.
+
+[00:38:06] He's wearing two watches, one of which seems to be a domino's pizza. Yeah, what's that? Oh, pizza time. Um, can I ask, did it have cheese on it? It did. Well, no, but it had vegan cheese. It has vegan cheese on it. Yeah, it's a vegan pizza. I went there, used to have a vegan pizzerics, but seeing as we're talking about pizza,
+
+[00:38:24] you just have a vegan pizzerist best down the road from here, which only sold vegan pizzas and it was the most disgusting thing The cheese like they just couldn't do good vegan cheese. Maybe they can now it's all about the the mouth feel And the stretch that's your tinder by The mouth feeling of the stretch. I found an essay in a scientific journal called Evolution, Education and Outreach and it asked which items a Jewish time traveller would be able to eat because they were kosher or not. Can you guess the headline of this article? 50 points to anyone who does is gettable.
+
+[00:39:01] Oh, is it a pun? Back to the juicer. That's not that. So it's about the food. It's about the food that you're, you know, you might be eating. does is gettable. Oh, is it a pun? Back to the juicer. That's not that. So it's about the food. It's about the food that you're, you know, you might be eating. Yeah. For is it is it to do with time travel? It's to do with a very famous dinosaur based franchise. Beautiful. Beautiful. And it was that's a good headline. Yes. And it was about that's a good headline. Yeah, it is good.
+
+[00:39:26] And it was about what basically a Jewish time traveler who wanted to eat contemporaneous food would be allowed to eat, and basically very few dinosaurs are kosher, it turns out. Some of them are birds, but even the bird ones lack the sort of toe that you have to... If you're allowed to eat particular meats that are kosher,
+
+[00:39:42] it's because they're like chicken, they've got a particular opposable toe, I think. Right. Mice are not allowed. That's probably not relevant now. So sorry, Jewrassic pork. They actually just went with Jurassic. They just went with Jurassic?
+
+[00:39:54] Yeah. What, Jewrassic pork? I think they were correct in that. Jurassic pork is... It's sitting there. Yeah, I guess. I've got to write a complaint letter. Jurassic Park is sitting there. Yeah, I guess. I could have wrote a complaints letter.
+
+[00:40:08] We said earlier 65, 66 million years ago, with the extinction of the dinosaurs. Sure. But do you know how long ago that is in a galactic year? Ooh. I'd never heard of a galactic year before. That must be something to do with the travelling through the galaxy. Yeah, it's already... How long it takes to galaxy to go on once? Exactly. I think it's three years ago in
+
+[00:40:28] galaxy years. Galactic here is 225 million years. Uh-oh. Roughly. Facture of ten. Yeah. Incorrect. Really? So the dinosaurs were here 3.5 months ago. In a galactic year. The dinosaurs were on earth, but if you had a time machine, like, you know, what does doctor who have it's like TARDIS yeah, you go into the TARDIS and you come back exactly in the same position in space Yeah, but different time the earth won't be here anymore. Yeah, we'll be further in space. Yeah. Yeah, so you have to and if dr. Jew the Jew was gone through. Oh, sorry, I was just trying to appeal. Oh my goodness.
+
+[00:41:08] Yeah, it really is. Okay, it is time for our final fact of the show, and that is my fact. My fact this week is that in the 1980s, you could download video games over the radio. What? What? Yeah.
+
+[00:41:27] To a certain generation, that's going to be like, there used to be a thing called MySpace. Have you heard of DVDs? I was alive in the 1980s and I never heard that. Yeah, I didn't think of this either. This was the very early days of computers whereby hard drives were incredibly expensive. So they used to have an audio cassette, like you would in a stereo, you could put a cassette in. And that's where you would keep all the data of programs that you were loading up.
+
+[00:41:50] So someone made the connection that actually, if you're able to record onto a cassette, you should be able to transfer multiple different kinds of data over the radio. And why not video games? So what people used to do is they used to tune in to radio shows that basically just played data over the waves. You'd put your cassette in and you would press record and then you take it out, put it in your computer and there's your video game.
+
+[00:42:12] So these were dedicated radio stations and wasn't like that was talking here for now time for Tetris. So what did the audio sound like? Well, for people probably older than you, but younger than me, it would sound like, you know, when you had dial-up internet and you would, or if a fax came through on a phone line, it's just like, yeah, it's exactly that. And the computer just takes that and if it's a high sound that's a one and if it's a low sound that's a zero and it just turns it into 0s and 1s and makes games out. Yeah. And to be fair, that could be confused as a very popular type of tech.
+
+[00:42:52] Yes, exactly. Yeah, so this was done for ages and then suddenly, obviously modern technology and prices, you know, the equivalent of the Mammoth Berger coming down from 300,000, they suddenly were able to afford to have hard drives and computers, and so it slowly got wiped out. But yeah, that was a thing that happened. It's bizarre to think that you could take a video game, Grand Theft also, by just listening to the radio and recording it. I'm not used to the idea that data could be transmitted in ways that we can hear and understand. It's so strong. Yeah. And obviously data could be transmitted in ways we can hear and understand because I'm
+
+[00:43:30] talking to you all and understand. But yeah. It is incredible. And there was weird things that were done using this kind of novelty, I guess it was. Radio West. Do you ever hear of Radio West? I think it's BBC and they just called it Radio West. So it's sort of you get your local BBC in an area.
+
+[00:43:45] There used to be a host who was called, oh, what was he called? Sorry, hang on a sec. There used to be a host called Joe Tozzer who used to work for... How did you forget that name? And it is number six this week, Joe Tozzer and the master-maters.
+
+[00:44:02] That was so funny. Sorry, Joe, if you're listening. But also, how was school? Was that, that was a rough one. How do you spell it? It could be Tozo. Tozo, yeah, like. I'm sure he says Tozo.
+
+[00:44:22] He's a fake Tozo from Steps. Okay, so. We're a piece of good together. It was definitely a he faked Tozer from Steps. Okay. We're a piece of good together. It's definitely a different name. Tozer. Yeah, it's okay. You said you were with Tozer. Sorry, Joe.
+
+[00:44:36] Yeah, so he once broadcast the data sounds of what ended up being a pixel image of one of Charlie's Angels Angels. So the star star Cheryl Land. So you recorded it down, put it into your computer, and slowly it pixelated together 40 by 80 pixels of the star. 40 by 80. 40 by 80, it's actually resolution. It's not a boob or a head.
+
+[00:44:58] It's not clear. And of course you could do it with vinyl as well. And there was some computer game magazines that would put little vinyls on the front of the magazine and it would just play this noise which your computer then would recognise as zeros and ones and would turn into a game. It's all because you didn't have enough memory on your computer. It's exactly that, yeah. So your memory had to be on your cassette.
+
+[00:45:26] Yeah. What are the limitations of it now? So in theory, could we could we do it for a more complex game than Tetris or Pong? You could for sure. I reckon. But the problem is, because I used to have one of these computers with the cassettes on, it would take about 30 minutes to load any game onto your computer. Okay. And they were all really shit games. Yeah. They were fun, but the graphics were terrible and whatever. And often you would get to the end of the 30 minutes and one of its zeroes or ones would
+
+[00:45:55] have been read wrong and the whole thing would be knackered. You'd have to start again. And so if you wanted to put like Grand Theft Auto on today, you'd probably have to make it play for about 40 years. Yeah, okay. I think it's great to know because the game is so massive these days. Amel, you're a gamer aren't you?
+
+[00:46:10] I'm a little bit of a gamer, yes. Yeah. Can we get Baldur's Gate 3? An audio form? They did end up releasing very specific audio blank cassettes that you could get called BASICODE. So you would guarantee compatibility with your computer as opposed to I imagine there were a few audio cassettes out there
+
+[00:46:29] that didn't quite do it. And so yeah, you would tune into either like Datarama or Hobbiescoop, which were specific radio stations that just broadcast. But you can just put on Radio 4 and listen to the shipping forecast and make that into your own game. I find. We used to do this as kids, actually. And we would have to guess whether it was rising slowly or, you know, I don't know if it's the pressure or something, they go,
+
+[00:46:53] doggie, 75, rising slowly. We had to guess what it was gonna be. That's good. Who's the host of the shipping forecast? I don't think it's got a host, per se. Or the person who reads. I don't know. I think it's been the Well, the person who reads. I don't know. I think it's been the same person for about 40 years.
+
+[00:47:07] She's very famous. Yeah, she's married, I think, to Claire Bolding. She, I was on a show with her once and I was asked, do you wanna have any questions for her about the shipping forecast? I didn't know what to ask, because I'd never heard it. So I said, what's your favorite ship?
+
+[00:47:22] And I said, that's a good ship? That's a good question. It's a good question. Did she have an answer? No, she was like, you haven't heard my show, have you? I said, no, I haven't. Food. And she said, what's your favorite fish? Did you hear of the game Great Britain Limited?
+
+[00:47:39] I was looking at some early spectrum games. No. In Great Britain Limited, it was a government simulation where you managed the British economy. I love it. Wow. There's no way to win. Well, it was very...
+
+[00:47:54] Did they give Lys Trassa a go at it? No, no, no. It's easy. Yeah, you would change little things and then the inflation would go up or the unemployment would go down or vice versa And then every five years you would have an election and depending on how you've done it would you'd say you've been kicked out Or you've got another five years. Wow, so funny. Yeah, that's really good 80s yeah early 80s and it was government made no it was just a
+
+[00:48:22] the 80s. Yeah, early 80s. Wow. And it was government made? No, it was just a lot of these games in the 80s. They were just made by kids in the because you've heard. Yeah, which was mad. I went over to the home of a rider friend of my other friends and she was like, I want you to meet him. He's really cool. We went over and he just pulled out a whole archive of cassettes of games he invented. And yeah, and that was the
+
+[00:48:43] first time I ever learned that games could be put on an audio cassette. Good time for creativity, but just in a very shitty medium. Much like the podcast. Do you have any really weird games, Mel? Do I have any weird games at one point? Because I have quite an addictive personality when it comes to games. There is a very stupid game on Steam called Cookie Clicker and it's literally a cookie and you just click it and you get another cookie. But then you keep clicking
+
+[00:49:15] and then you can buy like a, you know, a cafe that makes cookies. So you just, it's basic. I feel like it feeds the endorphins in your brain because you just keep clicking and then you can buy an automatic clicker with the cookies and then it will automatically click it for you. And then you can buy a factory of cookies. And you keep, and it's- But you have to keep clicking. But you could leave it for like an hour
+
+[00:49:38] because you've run an automated system. And then you come back and you're like, I've got four billion cookies. And it just feeds the endorphins in your brain because you're like, I'm doing, I'm getting better at this game. Do you say it's on Steam? It's on Steam. What is Steam? Steam is just...
+
+[00:49:53] Oh, God, that's so embarrassing. But just for the other people who don't know what it is. It's for those idiots listening at home. No, I'm just kidding. Steam is just a game library, essentially. So if you're on a PC, you can download games. And almost all games, unless they're like console exclusive, will be on Steam that you can download. And a console?
+
+[00:50:14] I'm taking you guys out, gamers. I've actually got Steam. You have got Steam. What games do you play? Don't play many games on it. No, really. I play Fortnite. I play Fortnite against eight-year-olds around the world, I'm a lose.
+
+[00:50:26] I tried Fortnite and I was just too embarrassed to continue. Because the skill cap of that game is so high, and these 14-year-olds that have been playing since they were nine are just so good that you couldn't possibly just start a game now and be anywhere near as good as them. So it's just, you know? If I put myself in the mind of a 14-year-old
+
+[00:50:47] playing this game, would it be immediately obvious which one Andy was? Oh, yeah. Yeah, I think so. I'm the guy hiding in one of the buildings, just trying to have a nice afternoon. There's a cookie. I'm trying to take a look at that. Yeah.
+
+[00:51:00] He's soaring out the back of an ear. That's the best. Just trying to escape. Here's a fact about the bed from him. Here's a fact about The guy who invented video games arguably yeah, and it's sent in by listeners sent by Grant win Jones Who sent in the fact that nuclear bombs and video games were created by the same guy? Yeah, that's actually a deleted scene from open Well, it's it's not up on Hymer, but it's a guy called William Higginbotham,
+
+[00:51:32] great name, who did invent the first screen based video game. It was called Tennis for Two. And it was in 1958. Sounds like Pong, right? It's pretty, it's pretty pongy. It's like 2D tennis. There was nothing to play it on. So you had to play it on an oscilloscope, which is a device to measure voltage waves. And that because there were no consoles, no screens, no nothing.
+
+[00:51:51] And he also worked on the Manhattan Project, and he was in charge of the team which made the electronic triggers for the first nuclear bombs. So that's the fact, it stacks up. And he played the accordion as well. And his daughter wrote a memoir about him called Accordion to Willy. Oh, yes. What we're talking about sort of like the founding figures of video gaming, one person who's known as the father of the video games industry, and I believe this is the person who kind of took it away from PC and said, the television, why are we not getting it
+
+[00:52:24] on the television? Was an engineer, an inventor, and his name was Ralph Baer. Oh, spelled the same as Clara? Yes. Wow. And a translation that they are, no, they're not. I couldn't find any relation. I was so excited when I saw the connection name, but no.
+
+[00:52:43] That's so funny. Yeah. Last game that I played to any regularity was Mario Kart. Oh yeah. And there's a really nice economic theory that the world should be like Mario Kart. Okay, they're all like, I can kind of see what you mean. Oh really? Yeah, if you're in the front in a game of Mario Kart, your power-ups are less powerful. Yes. So if you're first, you will get like maybe a banana peel to throw behind you, which yeah.
+
+[00:53:09] But then if you're last, you will get a power-up that's like Tanzu and a torpedo. The giant bullet guy. Yeah, giant bullet guy that can go to the top or the the blue shell, which automatically wipes out the person in first. So I guess in the sense that it kind of evens things out in society a little more. It's like reverse iron rand basically. And it's known as rubber banding. And the idea is that anyone at the back of society
+
+[00:53:33] gets a huge boost and it helps everyone in society, especially as those people at the bottom tend to be like farmers or people who are helping at the base of everything. And apparently that would be a great way of doing it, apart from good luck finding anyone to vote for it. It was good to hear. That's really interesting.
+
+[00:53:49] It's a lovely idea, theory. Yeah. 2004 someone made a device that is a Game Boy. The Game Boy is also attached to kind of a thing that goes over your mouth, which gives you nitrous oxide and basically makes you pass out. And this was for children. It's a stop them playing. No, no, not stop them playing. But then you have enough nitrous you do well enough of the game you pass out you stop playing the game boy. No, it's not
+
+[00:54:16] that. Any other thoughts why you might do this is for children. It's for children. Children pass out. So if you're if they're going into surgery and they need to. Oh. Oh my gosh. Absolutely. Got it in one damn. So the idea is it's hard to give kids anesthesia and keep them calm while you're doing it.
+
+[00:54:33] If you give them a Game Boy to play, then they're distracted and they get the anesthesia. That's great. And it was designed but never. Never used. Never used. Well, it's unfair on children who are not good at video. I'm not very good at video games. So I would still be on lying there hours later.
+
+[00:54:48] Soren's ready to go home. I might as well. It's just the tutorial. Come on. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us
+
+[00:55:08] about the things that we've said over the course of this podcast, we can all be found on various social media accounts. I'm on Instagram, on at Shriverland. Andy? At Andrew Hunter M. James? At James Harkin.
+
+[00:55:19] And Mel? At Melanie Bracewell. Nice. Or you can get to our group account on Twitter by going to atnoesuchthing. Or you can email us at podcast at qwell. Nice. Or you can get to our group account on Twitter by going to app no such thing. Or you can email us at podcast at qi.com. And if you want to just hear all of the episodes and find out about our secret membership club, which is called Clubbish, you can go to no such thing as a fish.com.
+
+[00:55:38] And you can find all of our previous episodes there as well as the doors to the secret members club. Mel, you're on tour right now in the UK. Yes, touring around the UK and then I'll be touring Australia and then I'm coming back for Edenborough in August. Amazing. So I'm hopping around. So how many fun dates? MelannieBracerwell.com slash gigs I think. Yes. Okay, that's it. We'll be back again next week and we'll see you then, goodbye!

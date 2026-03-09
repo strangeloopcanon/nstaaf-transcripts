@@ -1,0 +1,327 @@
+# No Such Thing As A Fish - No Such Thing As A Cursed Cage
+
+- Episode date: March 27, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-cursed-cage
+- Slug: no-such-thing-as-a-cursed-cage
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hoban. My name is Andrew Hunter-Murray, and I'm here with Dan Shriver, James Harkin and Anna Tysinski, and we have gathered around the table for a quarterly, I think. We aimed for that. We only did three last year. There we go. A triennial show where we go through the fish inbox, podcast at QI.com. We find the best facts that you have sent to us and we read them back to you.
+
+[00:00:40] So we've all learned from each other and it's all square. The inbox has had lots and lots of brilliant facts submissions over the last few months. It's overflowing, Andy. It's bulging. We've got a bulging post bag. We have physical things to read. Yes. So the guys here have not seen the facts that we've been sent.
+
+[00:00:55] I have brought them in, printed them out on bits of paper and trot the bits of paper up. We all have a stack of small slips of paper in front of us and we're going to see if this works, which I think it might. So let's have a fact if anyone's got one. Okay, I'm going to open with a fact from Leander, from Switzerland. Incas, the last Carolina parakeet, died in the same cage as Martha, the last passenger pigeon. Oh, that's interesting. No further info. It's crazy. Yeah, mad.
+
+[00:01:23] Are we saying that it's a cursed cage? Must be. It's got to be. Unless they just killed each other, one of those fights of the death were they both. So wait, what was it? The last passenger pigeon and the last what, sorry? The last Carolina parakeet, which does seem quite specific. But still cool. Still, still. It's two of a kind.
+
+[00:01:38] I actually, when I first read it, I thought that it was Inkers, the last Carolina parakeet and that would have been even more amazing. All the Inkers died. This sounds like, I hope Stephen King isn't listening because that sounds right up history of a murderous cage. The cursed cage, yeah. It could be a sort of like a retirement home of cages where it's, you know, the last of a species goes there. Yeah, it's really pimped out. Yeah, yeah. Maybe. They see little pictures on the cage wall of the previous tenants. Is that what they're doing all people's things and stuff?
+
+[00:02:10] They have the pictures of the now deceased. Have you ever watched the traitors whenever anyone leaves? They put a big red cross through their face. They do that in old people's thoughts as well. That's how it works. You've got to face up to the truth, don't you? Yeah. Gosh.
+
+[00:02:24] That's a great fact. It's an excellent fact. Very cool. Can I do one, Andy? Yeah. This is from Hedava. It says, Dear Anna, you're always. You are always my favourite podcast host
+
+[00:02:35] Yeah, that makes sense I feel like I picked up the wrong pile here It's a good fact It's not an interesting fact It's a pretty basic fact We've had it loads If someone else has taken over the mailbox Duty, please disregard that
+
+[00:02:46] Yeah, thank you Consider it disregard Yeah I write now to share the most fish fact I have ever learned There is one extant species of marsupial The Water a Possom
+
+[00:02:57] In which the males have pouches These pouches are not used to host Joey but serve the exclusive purpose of storing the male genitalia to prevent them from getting tangled in weeds while swimming. Wow! That's so good. That's incredible. Tanged in weeds.
+
+[00:03:15] Do you wish you had that? I don't go wild swimming like you do, Anna. No, okay. I don't get stuff tangled in weeds. I'm always getting tangled in weeds. I can't picture the genitals of... Can anyone? If it's a marsupial, then it will be quite a bit of...
+
+[00:03:32] Big bowl sack kangaroos. I have a kangaroo bolsack purse at home. Two dozen. To see James' tip in a restaurant is quite a sign. She gets out these little Pansney glasses and opens the clasp on his kangaroo scrofen. I thought you guys knew that that I had that. I bought it on tour the first time in Australia, yeah. That's, yeah, it's ringing a bell now.
+
+[00:03:58] Yeah. Is it roomy? No, not, well, you could probably keep a couple of billiard balls in it. Oh, okay, that is Ruby. I don't mean to give away too much. I am impressed. But yeah, the kangaroos have got quite large scrotia. And what's this called?
+
+[00:04:19] This is water opossum. But I think generally speaking, marsupials have similar reproductive systems, don't they? They all tend to have like uteruses with reopenings. Did that specify where the pouch was? because I'm picturing a kangaroo pouch and that feels like quite a long journey to... Probably not far away.
+
+[00:04:37] It's probably not far off there. You can't tuck yours in your top pocket, for instance, can you? Have you forgotten one of those little handkerchiefs? But the way evolution works is so mad because that must have started out as a little skin flap or something. Yeah. And presumably fewer male water opossums drowned
+
+[00:04:54] because they had this little evolutionary skinflap. Or had their testicles torn off and couldn't reproduce. Right, exactly. But there must have been a way in which, have you heard, heard the latest thing in the water of possum world is this little flap of skin which protects your knackers. I just think that's unbelievable. And then those are the fit ones that survived. It's crazy. And of course, with this entire format, we are relying on the people who wrote to us telling us the
+
+[00:05:16] truth. Oh yeah. I've done no quality control on these whatsoever. Do your own research, guys. We do it every week. You know, still have and take some responsibility. But ahead of that, I believe you. Very cool. Brilliant. Should I do one? Yeah. This is from Dr. Kevin W. Jennings, Department of Social Sciences Lincoln Memorial University. Astronaut Steve Hawley's space shuttle launches kept getting scrubbed. He had 15 or 16 launches scrubbed in his career, a record, question mark. After one scrub I think scrub means didn't happen. Canceled. Yeah. You know that song, no scrubs. It's written by an astronaut who really wanted to go into space. After one scrub prior to his fourth mission, he remarked that the space shuttle obviously knew he was aboard, so it was refusing to launch.
+
+[00:06:01] His crewmates agreed, so they made him wear a disguise during the next launch attempt. They're all in space suits. How much better a disguise can you get? Yeah, so they made him wear a disguise during the next launch attempt, so the shuttle wouldn't recognize him. It worked, and the shuttle launched on that attempt. The crew of his fifth mission forced him to do it again, and it was successful again. Apparently, the space shuttle just didn't like him. Pictures for proof and then Andy's not included the pictures.
+
+[00:06:33] Oh no. Wow. The pictures seem essential. This disguise, was it, was it a kangaroo disguise? Was it, what could he have been? What testicles were popping out of the blood? What is he called Harley? Steve Hawley. That's amazing.
+
+[00:06:49] Very cool. God, and that's the scientists who believe that. These are the people who were trusting to build rockets, people who think space shuttles decide against people. The astronauts don't build the rockets. Oh, do they not? I thought you had to do it all the way through. Dan, was that from an eminent scientist, did you say?
+
+[00:07:01] That was from a doctor. Okay. It's not eminent, is it? That'd be a professor. You get away with nothing in this game. I'm moderately achieving scientist. Okay. Well, this, geez.
+
+[00:07:14] Here's an email from Colin McIntyre who says, I'm the educator and resident historian at the New England Aquarium in Boston. Cool. It entertains me and my colleagues no end when our beloved aquarium is mentioned on your podcast, e.g., Andre the Seal, animal bartering. But we've never heard you refer
+
+[00:07:29] to it by its actual name. As a friend of the podcast, I believe we've earned the right to be called the New England Aquarium rather than just an aquarium in Boston. So fair enough. Yeah. Yeah. And he's included some facts and here's one of them. There is a mummified cod buried in the foundation of the New England aquarium. But that's not the weird thing about it, I think. What he says is it's called Iqabod. The fish started the construction of the entire aquarium. This is mad. So the The fish was the star of the aquarium's groundbreaking ceremony in 1965 when a scuba diver holding him emerged from nearby Boston Harbor and dropped him into a tank of water. So at this point, it's a live fish.
+
+[00:08:10] This electronically triggered the construction equipment on the future site of the aquarium, thanks to a system designed by Harold Doc Egerton. So the New England aquarium was, the construction was kickstarted by a fish being dropped into a tank of water. It was intentional. That was what it was always going to be, right? Yes. They planned. This was meant to be a library.
+
+[00:08:32] Well, we were going to drop in a book, and then we dropped in a fish by mistake. It's hard to tell if rockets know which astronauts are going. So they decided to build as a crane starting with a fish. Yeah, yeah. A scuba diver comes out of the water, holding a live fish, drops it into a tank, and that electronically senses a fish has been dropped in and triggers the construction equipment. That is a very cool opening ceremony.
+
+[00:08:53] You know, like if you watch the Olympics, they have the where they set off the fire, the flame. And they always do something really exciting but actually it's just a guy with a button who's sat next to it, right? Right. I feel like I would do it in this situation as well. I'm sorry to say.
+
+[00:09:07] Do you mean like there was that famous one where an archer shot the flame and we all thought it landed? Yeah, but it was. I see, yes. And who was it? Which president? There was a president who had to turn on
+
+[00:09:16] the Christmas lights once remotely and he thought, I think it was in the 50s, it was maybe it was Lyndon Johnson. And he thought he was doing it remotely because of this amazing remote lights. turning on technology and actually I think there was just someone next to the lights in the White House who just flicked a switch. Yeah, right. Maybe that's how it's happening all over the world.
+
+[00:09:34] Maybe so you're casting doubt on this James, I think. I'm just saying that if I was in charge, I wouldn't rely on the fish. Yeah, that's fair. When the queen, the true queen, sent her first tweet or whatever, she pressed a button and then I think it just like prodded a nearby intern to a friend and sent tweet. I seem to remember. Wow, a fist out of a jack in a book. Here's one from Ralph Linsangun. he says he's a big fan
+
+[00:09:58] Thanks Ralph And of yours or of all of us I've got to assume of mine What's your doctorate in Ralph? America's just 71 miles long Measured from its easternmost point To its westernmost point And he's talking about that trick fact
+
+[00:10:18] Which is the Aleutian Islands Which crossed the 180th meridian So they constitute the easternmost And the westernmost point But the other way around to which you'd think because the easternmost point is the furthest west from where we are. So there you go. That's great fact.
+
+[00:10:34] Yeah, that's awesome. It is. And we were actually just talking about the Aleutian Islands in a podcast we recorded, which may have gone out by the time this goes out, or it may not have. It's about Alaska. But we were talking about something I don't think as well. It was last week's show. It was last week's show.
+
+[00:10:48] There you go. We were talking about something, I don't think it's well known enough, that the only land war fought in America and the Second World War was in the Aleutian Islands, with the Japanese Just... That was Japan. I didn't think any bit of America
+
+[00:10:58] had ever been occupied in the Second World War. Everyone forget. Few little islands. Yeah. That's the bit where humans walked across, isn't it?
+
+[00:11:08] You know, there was a land bridge there. Oh, really? From which side? Well, Andy nodded, so you get a Clexum because it's not true. And this is recent. They've kind of looked
+
+[00:11:19] at what it would have been like around the time when humans came over and there would have been pretty much impossible to walk over because it was so, like, muddy and swampy and stuff like that. So they must have gone across in either boats or, you know, like putting huge tennis rackets on your shoes.
+
+[00:11:36] Yeah. Like pogu sticks. Oh, Pogo sticks could have done it. Yeah, but there's no way you could have walked across. It wasn't a bridge in the modern sense of the world. Really? Okay. So here's the fact that I think could have been for you, Dan, because they referenced two of your facts from history.
+
+[00:11:51] Okay. It's from Vic Olds. And they say, I've been meaning to say, in this fact for a long time and have been after hearing your recent facts about Harry Bowles and Willie Hull I believe I have a female name to rival them. About time
+
+[00:12:05] we had some representation on this show down. In 1943 a horse called Count's Fleet achieved the US Triple Crown in horse racing his owner slash trainer was called Fanny Hertz and I believe it does sometimes when
+
+[00:12:21] you ride horses. All right, strong. Lovely. Very strong. Funny does. Famous hymen breaker, you're always told as a kid. Is that right? You're always told as a girl, don't worry.
+
+[00:12:34] Your hymen doesn't always break when you lose your virginity because you might have been a horse rider. Yeah. And that probably will have broken it. Gross for the horses. You're not doing it naked, don't you? Well, it depends which riding school you attend. Yeah.
+
+[00:12:47] Should I do my next one? Yeah, we probably had enough hymen chat. I was curious about the name Sherlock and how common it was. in general use in the UK. Turns out very not. According to... Very... Did you write this email, Dan?
+
+[00:13:04] Very not. Did I say very not? Yeah. Who wrote this email? I'll come to... It turns out not very. Oh. According to free BMD,
+
+[00:13:19] births and marriages and deaths, there were seven children registered with the name Sherlock between 1837, in 1887 when Conan Doyle first published the fictional detective. Between 1890 and 1920, there were 16 Sherlock's born, half of whom also had the surname Holmes. So families called Holmes seem to like having a son called Sherlock. One family in Pontefract had both a Sherlock and a Mycroft, the sons of Richard Holmes and Martha, nay, Belch. So fan worship isn't anything new. It goes on, but the last Sherlock Holmes was born in 1942.
+
+[00:13:55] in Stoke. I believe he is still alive and if so would be the last of the gentleman still standing. And that's from Guy Holmes. Oh, lovely. That's very cool. Yeah, really cool research. Right, here's one. Evan Friedman. American actor Jerry Haliva has appeared as Saddam Hussein in six separate films.
+
+[00:14:12] In fact, Saddam Hussein is the only character he's ever played. Right. That's very good. Typecasting. I have a typecasting fact that I was going to suggest for a future show. Well, maybe I'll say it now. Yeah. So the woman who won best sporting actress for Gone With the Wind in 1939 was Hattie McDaniel.
+
+[00:14:31] And she played the same role in, I think, it's about 130 other movies, basically. Not the same character, but the same style of character because she was typecast as like this sort of matriarchal African American mother. Okay. And do you know that in the Tom and Jerry cartoons when there's a lady stud. She's going, Thomas, Thomas. That's based on her as well. Is it really? Cool.
+
+[00:14:58] But she won this award. And actually, I think she couldn't go to a lot of the parties because they were still segregated at the time. But when she won that award, yeah, basically they put her as exactly the same character in everything. What a shame it's not literally the same character. Like combining all these universes of this one person. That's amazing. That's incredible. Yeah.
+
+[00:15:21] Japan's crown jewels probably don't exist. according to Steve McCabe and he would know he says that Japan has three imperial sacred treasures and then he lists those and apparently they're handed over to each new emperor his coronation
+
+[00:15:42] but they've not been seen by anyone outside the imperial household in centuries Wikipedia notes that the actual historical stages of these legendary treasures is unknown and they're intentionally kept from public view So Japan's telling us they're real We're not allowed to see them It's not certain where they're kept
+
+[00:15:58] And the three treasures are a sword A mirror and a jewel With special names What do we think? I think that's There must be lots of things in this country That we don't know where they are That we've never seen
+
+[00:16:11] Yeah There must be right I don't know what they are Head of MI5 Oh yeah Do they exist Oh you think there's a We have a prop head
+
+[00:16:18] And there's a secret actual head Yeah Wow I didn't think it until he said that But that's so convincing. It is when you say it, yeah. What's the point? Because crown jewels are something that's to show off, isn't it?
+
+[00:16:29] What's the point in having that if no one's allowed to see it? I wonder if in the olden days you could leverage against it, you know, borrow stuff from your barons. I bet you could. Because I got this really old spoon here. Isn't that the last bit of the old crown jewels that still survives? It's a spoon? It's the only one and everything else has been. It all got lost in the wash, didn't it?
+
+[00:16:50] There was the wash and then there was the Civil War and all that. Not the, I'm sorry, which is better by, not in a washing machine. Sorry. We've probably done too high a hate. Where's the wash again? Is it Lincolnshire? Off the coast of Norfolk, isn't it? Oh, it's off the coast.
+
+[00:17:02] There's a bit. Maybe it's Anningshire, yeah. There's a very marshy bit and King John lost, supposedly lost the crown jewels in the wash. Do people still look for it then? No. Why not? If we know a specific location, I think it's probably a bit bigger than is easily searchable. You're right.
+
+[00:17:18] There should be detectorists out there every weekend. I actually thought what detectorists were. I kind of assumed that was a place. where if you went, then you would see lots of detectors desperately hoping. Maybe all the detectors are just assuming that all the other detectors are going for it and I'm like, oh, that's too obvious. I'm going to look in this field instead. They're actually poking out
+
+[00:17:32] of the ground there. They could not be easy on the phone. Here's one. This is from Eddie Edwards. I was Edward Edwards. Fake name. Clearly fake. John. I was listening to your audience fact special and you were talking about that prop nuclear bomb that was too
+
+[00:17:54] accurate. Well, the fake money used in rush hour two, the second rush hour movie. Thank you, Eddie. It was so good that a bunch of people working on the movie spent some on the Vegas strip and the secret service ended up getting involved. It led to a bunch of rules being put in place about prop money going forward.
+
+[00:18:14] I remember this because they are incredibly strict now. Yeah, great scene in the film as well. Is it? It's a good film, Rush Hour 2. Absolutely decent movie. Absolutely. And it ends with this money showering all over the place. You know, the suitcase full of money explodes or whatever.
+
+[00:18:29] And it's this huge great room they're in and the money is going absolutely everywhere. So I'm sure a load of people could have just pocketed some. It's a big thing in films that they worry about on set when they're using a lot of money. And actually, if you look at the money that you have to use in films, it looks absolutely nothing like real money. It's got to be about 1.5 times a size and have...
+
+[00:18:45] You know, because they've even done one's like British money with kind of a dog instead of the queen on it or weird stuff like that, I think. And they've still said that's too similar. That could be passed off as real money. It has to be so different. Can I cheekly pull off a double now? I just have two thematically very linked ones.
+
+[00:19:01] Sure. I thought it might be fun. So Lake Berg writes, I've come across the following. Apollonia was a Christian martyr who had her teeth pulled out as torture in 249CE. She later became the patron saint of dentistry. Unsure how deep cut this is, and you've probably looked into saints plenty before,
+
+[00:19:16] but I find it funny that she got qualifications in the technical field of dentistry by just having her teeth pulled out. I think that's fair. That's a good point. And then David and Katie write, Hi, just writing in with a fact in dedication to our friends Scott and Doris who've just had a baby, so quite a lot of names flying around, but congratulations Scott and Doris.
+
+[00:19:33] And hello David and Katie, who write, The phenomenon of babies being born with teeth already erupted, bracket's natal teeth, has an occurrence of around 0.05%. In other words, there is approximately one case every tooth-a-thousand births. I love this, sir. How good is that? NB, yes, it's a bit of a stretch because the prevalence varies between studies but roughly, roughly, one every 2000.
+
+[00:20:04] That's stunning. That's really good stuff. Lovely. Thank you, David. You know what I tried to find the other day, and I couldn't. It's a picture of a baby skull. You know, babies are born with all their teeth, and then you get photos of baby skulls, which do the rounds
+
+[00:20:16] where you can see all their adult teeth up in their gums that haven't come down yet. And it's mad. But actually, I'm really. not convinced that those pictures are real. There's only about two of them floating around and they don't seem to be very well verified. There was one science writer who tweeted one. So I really want to know if anyone's ever seen
+
+[00:20:31] an x-ray of a baby's skull. I have a feeling that's not true. Because I wonder if they're smaller at the time and then they grow in your head. We're not saying you're not born with all your teeth. No, I think you definitely are born with all your teeth, aren't you? And they descend. But maybe they're tiny.
+
+[00:20:47] They can't, well, they're not full size, aren't they? Because you've seen a baby. They're small. The head would be all teeth if they had 32 adult-sized teeth. In the pictures that they show, the head is all teeth. Like, it's full-sized adult teeth. It's like Rob Beckett. It's scary shit. And I've believed it for years.
+
+[00:21:02] So yeah, please have you seen an x-ray. Yeah, I'm interested that James also thinks maybe it's... So what do we say? I think it's not... I think some of those are fake pictures. Yeah. I believe. I feel like I've heard that.
+
+[00:21:10] Maybe I have. But how do the teeth get in then? If they sneak in into the tooth fairy, brings them. I think when you eat more calcium as a baby for the first seven years of your life, you take in the calcium, and that helps them to grow. The same way that you don't have kneecaps
+
+[00:21:27] and stuff like that. Right, and then all the milk gives you all the calcium. Yeah. There we go. I think, I can't really. Wow, that would be blowing shit wide open because I've seen that image of a side profile of a baby's skull.
+
+[00:21:38] Indeed. God, that's incredible. It's all tooth. Yeah. The whole tooth. Nothing but the tooth. It was when I showed that. Jesus.
+
+[00:21:47] So, anyway, if you know about that stuff, Because we are speculating a little bit here. Absolutely. Please tell us. To podcast. QI.com. This is a fact from Andrew Kirkland. And he just says that his favorite fact this week is that according to Wikipedia,
+
+[00:22:00] the Irish invented whiskey in the 14th century. And then they didn't invent anything else for another 300 years. That's understandable. He's got a point. Well, exactly. You've reached your peak, haven't you? And it's true Irish in the Wikipedia page on Irish Inventions does have a 14th century section where they have three inventions.
+
+[00:22:19] They have the precursor to modern Gaelic football. They have the Northern Reginians Anthem, a huge invention, I think we can all agree. And whiskey. And the next invention is 17th century. What was that? Before you ask, you all. You don't know it's the whiskey that did it.
+
+[00:22:38] It might be the Northern Reginians Anthem is so catchy. Everyone was seeing it for the next 300 years. I have a whiskey-related. on. Okay, so this is from Chris Patterson and he thinks that he might be the first outside voice to be ever heard on those six things of fish. Chris Patterson, the former governor of Hong Kong. No, that's Chris. Chris Patton. Yeah, okay. Carry on. Could be his son. Yes. Can you remember? So this was someone we did a live show and this person shouted out.
+
+[00:23:12] Okay. We went in Scandinavia somewhere. Can you remember anyone who shouted out in Scandy? Where did we go? We went Gothenburg and we went Stockholm. I think it was in Gothenburg. Gothenburg. Oh, no, in Stockholm. He says it in the email. I can't remember.
+
+[00:23:26] Did they shout out something other than... So, we were discussing cyborgs and asked in the audience if there were any cyborgs in the crowd. And he got to shout out, I'm a cyborg. And this is because he had an RFID chip put into his body. You know, like you could get a little chip in your body so you could use it as a credit card or something. Yeah.
+
+[00:23:46] Anyway, he never got to tell us the whole story. that time, but I've got the whole story here. He went to an event called chips and whiskey, thinking that it was potato crisps and alcohol that he was going to get. But in fact, it was someone giving you these implants. And he said, after a few whiskeys, it seemed like a good idea. And I got the largest needle I have ever seen injecting a chip into my hand. What a legend.
+
+[00:24:10] I've used this as a gym card and not much more. That's so great. Do you know what was that guy called? Chris Patton's son. Of course. I've always thought those people who've got chips inserted. Kind of douchebags, to be honest, but that is the best excuse for doing it I've ever heard.
+
+[00:24:27] I almost got one. Exactly, exactly, my point. Thank you. Well, I did, years ago, I did this little taster tape that was filmed, whereby it was looking into all of this world of cyborgs, and as part of it, they wanted to put a chip into me, and then right at the last minute, they had someone come in with the device,
+
+[00:24:45] and the health and safety didn't allow for the chip itself to go in, but they still injected me with the thing to put it in. So, so I was filmed as the process as if I had the chip in me. And then I had to... What did they put in there? Nothing. It was just empty.
+
+[00:25:03] So they still... Yeah, but yeah. They still... And then I had to sit there and pretend that I was turning a lamp on with my hand. And like we're talking about with the queen, having someone pressed the button. There was someone on the floor. out of shot, pressing the button of the left flickering as I was going,
+
+[00:25:18] look at me, I'm a cyborg. Wow. TV is full of lies, isn't it? You and David Attenborough. I just, I can't believe with you, Dan, that however many years I know you, there's always a new anecdote that I've ever heard. I'll do one now. Derek Bailey writes, I heard the weirdest fact about albatross that may be fishworthy.
+
+[00:25:41] They knew from finding remains of birds that the main thing that they eat are squid, but they've never been observed catching them. They can't dive, so they decided to tag some birds to see what was going on. The signatures of these tags show they swam for a bit, and then the line went into crazy squiggles. A young scientist showed his professor, and he said he thought the tags were broken. The prof decided they needed to go and watch what was happening. They went out to see at night to observe. They found these huge birds swimming around in tight circles, pulling and pushing with their large webbed feet. They were creating phosphorescence,
+
+[00:26:16] which was drawing the squid to the surface, and there was their buffet. Cool. Lovely. Like moth to flames. Very cool, Derek Bailey. How are they creating phosphorescence with their feet? Well, you get those little sort of, like, bacteria and stuff
+
+[00:26:30] and algae that live in the water, and when you move your hands and make waves, they light up. You get them in Mexico. Do you remember that more thing of trails of ships? Yeah. Can sometimes glow. Yes, I know, I know, but I didn't realize that another animal who didn't have it could deliberately would swish it up. Oh, it's just water churning, isn't it?
+
+[00:26:46] Yeah, yeah. Yeah, very cool. Actually, because I was walking on a beach in Hobart in Tasmania a couple of years ago. I've never seen anything like it. It was at night time. And as you put your foot down on the sand, it glowed fluorescent blue all around it. It was absolutely extraordinary. It's like avatar.
+
+[00:27:02] That's very cool. Is that what happens in avatar? I actually can't remember, Andy. Yeah. There we go. It actually reminded me more of those, you know, those disco pads where if you step on a, you step on a glowing bit, a bit glows and you step on it. Those dance machines.
+
+[00:27:15] Dance machines. Dance mats. Yeah. Oh, my God, I used to love them so much. Oh, they're good. I still do the occasional dance mat. Yeah, if I'm passing an arcade. God, I, is that right?
+
+[00:27:24] Because I find them very exhausting. Oh, they're tiring, yeah. I guess probably you're a bit younger than me, but yeah. Well, no, it's a tiring. So you both still do dance masks. No, I don't know. I haven't done it for years, no. But, like, would you hold onto the bars when you did it,
+
+[00:27:37] or were you like hardcore? No, I don't think I did that. It's like having the walls up in Berlin. Yeah, exactly. When's the last time you did it, Andy? I would say within the last year. On your own. Walking past an arcade.
+
+[00:27:51] With my wife. We went to an arcade, a video game arcade. Okay, no, that's different. Did you do it where you were, like, on the same team? She didn't participate. She didn't want to. She said, I'll just watch you, darling. I'll want you take on that nine-year-old.
+
+[00:28:08] Yeah. No, it was really fun. It was really fun. There's a video game bar. A video game sort of bar slash arcade thing. I wasn't drinking, obviously. No, your wife ordered three large vodka's at the bar. Do you guys remember that great story about Jim Lovell from Apollo 13?
+
+[00:28:23] So obviously the story of Apollo 13 is insane. They break down in space on the way to the moon. They need to get back. But he had a situation back on Earth when he was a fighter pilot that was equally as dangerous. He was on his plane over the sea, got lost, and managed. minute to find his way back to the ship to land on because he followed the trail of phosphorescence that was being left in the wake of the ship. I thought that was what you're referencing.
+
+[00:28:47] Yeah, it was when he was landing on aircraft carrying, isn't he? Yeah. Yeah. That's very, very cool. So where did the dance mat fit into that? Once he got out. All right, here's one. Alexis Beckett from British Columbia.
+
+[00:29:04] I'm a long-time listener. I've never written him before, but for some reason, Andy demanding we do, persuaded me this Saturday afternoon. I had nothing good to say. Welcome to podcast recordings, mate. So I reached for a weird fact I remember being told in high school. In the Yukon,
+
+[00:29:22] it's illegal to push a moose from an airplane in flight. It's also illegal to watch a moose be pushed from an airplane in flight. I'm not certain whether this is accurate, but I've always found it entertaining and we shouldn't let the truth get in the way of a good story. Thank you, Alexis.
+
+[00:29:37] That feels a bit of cheat. I don't know, Andy. That doesn't sound true. It would be hard to prosecute people who've watched it. Now the prosecution is going to bring in some witnesses. Yeah, okay. No, it's almost certainly nonsense, isn't it? Yeah, I don't feel like it. Nice try. From James Milne. Everyone knows, he says, and I think he's correct, that Oslo gives a tree to London for Christmas every year, which it does, has done, since World War II.
+
+[00:30:07] but James Milne says it's not the only tree gifted to a British city from a Norwegian city and I didn't know this the city of Bergen gifts a tree to Newcastle every year as well also in recognition of World War II and it's because Oslo started gifting London this tree and other parts of Norway wanted to recognise it wasn't just London it was the whole of the UK that contributed to World War II and so actually there were quite a lot of cities in the UK
+
+[00:30:32] that get freed trees from Norway there's Grimsbury Edinburgh, Orkney, Shetland Grimsby What did I say? Grimsbury. Grimsbury. That's a local cheese limit.
+
+[00:30:48] That is a really good fact. Yeah, I didn't know that. It also, people always complain about the Trafalgar Square tree because it's this particular kind of coniferous tree that the Norwegian send over. And it doesn't look as glossy as some of the really thick branched trees. People say, oh, it looks so scragy. And you just think, learn some history.
+
+[00:31:05] But I also think they put some not very good lights on it. You know, like when you do Yachtro, you put like bubbles in really nice places and put tinsel all the way around. They just kind of hang it from the top, these sort of lights coming down. They just do some strings down, don't they? I think it looks crap. That's probably us, though. I'm sure we do the lights on. Oh, yeah, I'm not playing the Norwegians for that.
+
+[00:31:24] But I just think they don't help themselves. Yeah, I've always thought that you've got to embed the lights. They're not for draping. It's mad. Probably health and safety thing. Just on war thanks thing. when we were on tour in Australia, not so long ago, we went to Melbourne,
+
+[00:31:43] and I had a day of sightseeing before the show, and Melbourne has a present that the British provided, in thanks for years of support during total war, Britain gave Australia a small model village. Really? Yeah, and you can walk around it now. That's fantastic. Of what village?
+
+[00:32:00] Which village? It's a generic village. So there's, you know, the Shakespeare Arms pub, and there's a little post office, and but honestly you go there and you think this is not a good thank you present after quite a lot of sacrifice well everyone loves a model village yeah yeah what's an appropriate thank you for you after six years of support in total war giant dance match that's a good point you got to know maybe melbourne really wanted a model village but it's very sweet it's really sweet if you're if you're
+
+[00:32:29] anywhere near melbourne you've got to check it out that is quite strange what was it Do you remember that thing where there was a gift exchange between Gordon Brown and Barack Obama? Oh, yes. And Barack Obama. Gordon Brown gave Barack Obama an incredibly beautiful, I think it was a penholder carved from the wood of an anti-slaving ship after Britain outlawed slavery and was cracking down on the illegal slave trade. Yeah. So it's very symbolic.
+
+[00:32:50] And Obama gave Gordon Brown a bag of DVD. Rush hour too, I think. Which were in the wrong zone to be played on British DVD players. A golden age of transatlantic. Obama's one misstep, I'd say. Absolutely. Just actually, can I say it on war-related gifts? Gernica, the battle started by Pablo Picasso.
+
+[00:33:13] Just so that you had something to paint. Exactly. You've got to create your material sometimes. No, Gernica would have a battle in the Spanish Civil War. The Spanish right-wing side had a lot of help from fellow fascists, from Italy and Germany. And the reason the Nazis got involved was because it was a birthday present to, Hitler from the head of the Luftwaffe who I think was it Goring? It was a guring head of the Luftwaffe.
+
+[00:33:38] Yeah, so it was a happy birthday. And actually it really fucked up because the weather screwed it up. So it had to be delayed by about five days. So if you look up the dates of Hitler's birthday and the dates of Gernica, there were five days late. But apparently Hitler was very understanding about that. Yeah, I mean, sometimes you can't have your birthday party on the day of your birthday, can you?
+
+[00:33:54] Exactly. You've got to wait until the weekend. If it's on a Tuesday. That's a call back to last week's show. The Luftwaffe's involvement in a battle was a birthday present. Yeah, because I think Gary knew that Hitler would be really pleased. And it was like a surprise. You know, I decided to get a little.
+
+[00:34:11] Did they arrive in a giant cake? They came out of a cake. Yeah, flew out of a cake. Here's a fact from Mark Wybird, after whom the Playbuss stop is named. That's a bit of a niche one. People of a certain age. There was a kid's show called Playbuss, and they had the Y Bird stop. Anyway.
+
+[00:34:29] Mark Weiberd says There is a recently completed Australian legal case Establishing an important legal principle that is called Tickle versus Giggle Come on He says it is an important and serious For reasons of establishing trans rights But it is purely the name that makes me smile
+
+[00:34:48] Do we get any more details? Or is it like details too dry and serious Name, very funny I don't have any more details It feels like it would be dry and serious But Tickle versus Giggle It's amazing Giggle. Lovely.
+
+[00:34:59] I wonder who's the good guy there, Tickle or Giggle. Could be giggled. Tickle is a bad guy always, right? Mr. Tickle? Yeah, no one likes being tickled. He's a good guy. Yeah. He's misunderstood. What about John Tickle, the ex-big brother housemate who then went on to do gadget shows?
+
+[00:35:18] There's quite a lot of amazing niche references coming in one. I reckon AI could just listen to me in the last 10 minutes and work out exactly when I was born. John Tickle. John Tickle, I always remember what I liked. I think this was his first so-called invention after Big Brother was the toaster. Do you remember the toaster that delays the second bit of toast? So you put it down, but it doesn't start cooking the second bit of toast until your first one's ready. Very sensible.
+
+[00:35:45] I know, because you're always going to deal with the second cold bit of toast. Yes. Where is he now? Where is he? John Tickle. Well, you can retire after that toast moment, can't you? Because we've all got one now. We've really shaken off any international listeners.
+
+[00:35:57] I've got one here from Nina DeVilleos Longtime listener of the podcast I used to work on sea horses On sea horses Very, very small wet, wet, grad national That's how I broke my hymen In South Africa Actually, I should say, how would you pronounce that?
+
+[00:36:27] South Africa South Africa I wouldn't, I'd guess Kynizna, I think. Okay, Kynizna. So I used to work on seahorses in Kynistna. And a while back, I learned from a colleague that seahorses make vocalizations. They make clicking noises during courtship and feeding. But they also growl to startle predators. This is followed by quivering their bodies.
+
+[00:36:49] At one point, there was research investigating seahorses to determine where the sound were produced. I briefly got involved by taking a dried seahorse to be scanned at our local hospital. in the X-ray and CT machine. Other than a very cool-looking scan where you could see all of its baby teeth, I'm not actually sure it helped the researcher. But she took a... But it did help the hospital waiting list,
+
+[00:37:14] the queue of ambulances outside, waiting for you to scan your seahorse. This is a very recondite one. I love it. It's from Isabel Starling. Any relation to Mark Wybert? No. Something fun I heard the other day.
+
+[00:37:28] William Jones, the man generally credited with the use of the Greek letter Pi for the ratio of a circle's circumference to its diameter, was the father of William Jones, another William Jones, one of the first to suggest the existence of the proto-Indo-European language known as Pi. No way! How good is that? Hang on, is that a coincidence? What did one of them name it after the other?
+
+[00:37:56] No, I'm pretty... It looks like a... Because why do we call Pi Pi Pi? Because after the letter. Just the letter. That's how far we'd got. Because you don't hear all the alpha to... No, there is a reason.
+
+[00:38:06] There is a reason. I can't remember what it is. Yeah. That's just a really odd. I think that's a cracking fact. Thank you, Isabel. She finishes her email. I also discovered that Shirley Ballas's
+
+[00:38:15] ex-father-in-law invented the streamer. Although I suspect that one is only interesting to me. Yeah. I like it. Yeah. And for international listeners, Shirley... I can't explain Shirley Ballas. There's no one left.
+
+[00:38:26] There is no international list in life. I don't know who that is. She's on strictly. Former dancer. Got it. I'm asking of Shirley Bassie. Got it. Right. This is from a guy called Matt Lowry. A new pre-print by some folks at the University of Pennsylvania
+
+[00:38:42] claims we can use Rhesus McCacks to predict the winner of elections. And it's a pretty interesting discussion about behavioral neuroeconomics. Is it now? But it's basically judging it on how long they look at each candidate. He also says that the area of behavioral neuroeconomics is a field in a bit of crisis at the moment. So I think actually, because he works in that field, he's just angling for some funding. But there you go. How long Areas McCack looks at a candidate, I guess must mean they're more likely to win,
+
+[00:39:14] although he doesn't specify. So do you reckon if you want to be president, if you sell a tape a load of bananas to your face, that gives you more of a chance? That'll do it. I can think of a country's right. Yeah. We've seen worse candidates. That's all I'm saying.
+
+[00:39:31] Meanwhile the Swedish Minister of Equality is going, no. Two-week callback. Lovely. He, oh, well, here we go. So the paper's filled with the number of amusing quotes, such as here we show that Rieces McCacks, who have no knowledge about political candidates, all their policies, implicitly predict the outcome. Why would they?
+
+[00:39:54] Is it different though when they do understand their policies? If they've read the manifesto it does change their responses. Implicitly predict the outcomes of US gubernatorial and senatorial elections based solely on visual features and our findings have implications
+
+[00:40:10] for political campaigns which should strategically use photos emphasising or deemphasising jaw width and cheekbone width. I don't know which they prefer. He doesn't say which they prefer. Oh, wide or narrow. Oh, probably wide,
+
+[00:40:22] nice wide cheekbone width. White jaw. Yeah. Gotta be. It's gone. Yes. Well done my cats. Let's just get them to vote.
+
+[00:40:30] Isabella Remit writes at the Gothenburg Universium. We support Manto of Universe and Museum, and which I went to when we're in Gothenburg. Text messages are sent to the sharks so they don't get scared when the nearby train tunnel under construction blasts in the rock. So they've got a warning text. Like when someone comes around the cafe saying, we're doing a fire alarm. It's just an alarm. Like when the government sends you a message saying this is a test alert. Honestly, it's fine.
+
+[00:41:01] There's no nuclear weapons on the way. It's just a test. I mean, we've obviously got no more to go on here, but I wonder what the text says. Probably in Swedish. Who says, Durdit. And also, would you not get, if I was a shark, I would think a text message would scare me quite a lot. That would be very scary here, yeah.
+
+[00:41:21] I just don't work under all the phone. You get these really cool packets that you can put them in now with a pouch. Yeah. I mean, I keep my genitals in mind, but it's a good phone as well. Who's turn is it?
+
+[00:41:36] Oh, it's my turn. That was a good one. That was a good one. Antonio Manticer says, Just finished listening to episode 559, where you mentioned that the Catholic Diocese of Orlando claims jurisdiction over the moon since that's where Apollo 11 launched from.
+
+[00:41:51] I'm surprised nobody, brackets Dan, didn't mention that Buzz Aldrin, a Texas Freemason, established a Masonic lodge on the moon called Tranquility Lodge, number 2000 under the Grand Lodge of Texas, who now claim Masonic jurisdiction to the moon. According to their official website, meetings are held quarterly in various cities around Texas until such time as the lodge may hold its meetings on the moon itself.
+
+[00:42:15] Can I just say, I did randomly select these things out of the pile. I've never heard of that. I didn't think he was a Mason. I mean, you can be a Catholic and Mason, of course. Yeah, that rings a tiny bell. I don't remember. We did quite extensive research on him
+
+[00:42:30] when he came on our radio show. Yeah. That never came up. Well, it wouldn't do. Or did it. It feels like the 20th century was big for the masons and it's now not quite as big a thing. Yeah, have they gone downhill a bit, do you think?
+
+[00:42:43] I think a little bit. That's a shame, isn't it? I think that all the forces are at large now. internet. Mm. Yeah. The masons of the modern day, the internet's. Well, it's just a shame to lose are those
+
+[00:42:58] exciting handshakes? Yeah, that's true. That's true. I agree with that. Here's one. I know them. How do you know they're exciting? Yeah. You are not allowed in.
+
+[00:43:06] What's going on? Any hand shake is exciting that's not a conventional handshake, right? If you shake someone's hand and anything happens, that's not just them grasping your hand and shaking it, you're excited. Oh, I don't know. That one with the finger goes and gives you a little tickle. You'd be excited.
+
+[00:43:18] I'd rather giggle than tickle in that case. Here's a great one from Andrei Ryback. Regarding pink noise and the human ear bracing for impact of a louder noise. Yes, I mentioned that where cars have a pink noise that they release just before impact so that your eardrums don't shatter. Brilliant. I was very surprised that none of the hosts mentioned the Tensaw-timony muscle. It's one of the most no such thing as a fish muscles in the human body because a portion of the population has voluntary control of it. the other portion who only have the automatic reflex
+
+[00:43:50] that was mentioned on fish can never fully know what it's like so this is what Andre says and it turns out I can do this tensing the tens of timpity muscle allows you to make a rumbling noise in the ear on demand a noise that only you can hear so you sort of tense your inner ear
+
+[00:44:05] you can hear that rumbling change is nodding you can do that hold on so I tense my inner ear just make the rumbling noise in your ear oh yeah just did it yeah I can make a ring
+
+[00:44:17] a high ringing noise, but not a rumbling. You can't join the secret club then. We had such an amazing handshake plant. I love that thing that they said of the most no such thing as a fish muscle, they say. Yeah, he said most no such thing as fish class QI muscles, but I edited it down. Oh, okay, but still, it's quite a cool thing that we've built off the back of finding these interesting facts. And that's another book idea, you know, the most no such thing as a fish thing, you know. I love that. Can I give an alternate muscle?
+
+[00:44:49] Yeah. Just while we're in the ear area. And that is recently, you know, like some animals can move their ears. Yeah. And humans can move their ears, but really, they're just moving their jaw and the ears kind of go. But we have the muscles that can move your ears in the same way that a dog or a cat can move their ears. But the muscles are not strong enough. They did an experiment where they played some sound in an area, and they looked at what muscles were tensing.
+
+[00:45:16] and they could see that these muscles were moving but they weren't moving their ears. Wow. So, yeah, like if you hear a sound, if you hear someone saying your name behind you to the left, your body is trying to move your ear around towards it, but their muscles sound strong enough. Is there something we could, like if we snipped a bit of the top and bottom off your ear,
+
+[00:45:33] do you think it could swivel? Oh, yeah, like a tongue tie. We got an ear tie. What if you spent your life training and then you spent your life training your children to try and move their ears and they spent their life training their children, how long would it take before we could get this back?
+
+[00:45:45] We would probably have to find... That's not how evolution works, I don't think. Oh, you're thinking of Lamarckism. Yes, you are. Has Lamarckism been overtaken? Sorry. What would be better is if some people genetically modified so that they could move their ears
+
+[00:46:00] and then they found each other really sexy. Well, they hear more people saying, do you want to have sex? And then they are more fertile as a result. Exactly. That's all what you think's been holding you back. I'm on the dance match. I can't hear anything.
+
+[00:46:15] Well, should we wrap up? Yeah. Thank you so much to everyone for sending in your facts and for listening. And please keep sending them in. We are podcast at QI.com. We love getting facts. We get a load of great ones. These are the absolute creme de la creme.
+
+[00:46:35] This is the standard, really. You should be matching. Variable. Just like us. It's the nicest tribute anyone can pay. So thank you again. We will be back in a week with a race. regular broadcast
+
+[00:46:49] between now and then I guess it's just time to sing the song as we always do Andy, then we'll get out of here. Yeah, just go to, I mean, just, you know. Don, you want to wrap us up? Okay, that's it. That's all of your facts. Thank you very much for listening.
+
+[00:47:08] You'd like to get in contact, Andy, take over. You can get in touch with us on the internet. I'm on... I'm back in. You can get us on various social media accounts. I'm on Instagram on at Shriverland, James. My Instagram is no such thing as James Haken. Andy. I'm on blues sky at Andrew Hunter M.
+
+[00:47:26] Yeah. And Anna, where can they get to us as a group? Instagram are no such thing as a fish. Twitter are no such thing or email podcast at QI.com. I can do it. We also have a website, don't we, Andy? Yeah. It's no such thing as a fish.com.
+
+[00:47:39] Is it? Yeah, it is. Okay. And if you go to No such thing as a fish.com, there's all sorts of stuff there. Lots of previous episodes. Some merch. There's the portal to clubfish, which is our members club where you can get all sorts of bonus content, really fun, ad-free episodes. Oh, do that.
+
+[00:47:58] Get back in, Dad. Tag me, tag me. We're also playing a live show in Sheffield in July you should come to. It's called the Crossed Wires Festival. It's a podcast festival, very exciting. But otherwise, just come back next week. We'll have someone who actually knows how to helm this show. We'll see you then, Andy.
+
+[00:48:14] Bye. Goodbye. What did I? got that wrong.

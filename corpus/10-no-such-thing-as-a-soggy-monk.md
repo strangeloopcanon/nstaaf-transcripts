@@ -1,0 +1,237 @@
+# No Such Thing As A Fish - 10: No Such Thing As A Soggy Monk
+
+- Episode date: May 9, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/10-no-such-thing-as-a-soggy-monk
+- Slug: 10-no-such-thing-as-a-soggy-monk
+
+## Transcript
+
+[00:00:00] We ran it on QI a few years ago, which was, there's no such thing as a fish. There's no such thing as a fish. No, seriously, it's in the Oxford Dictionary of Underwater Life. It says it right there, first paragraph, no such thing as a fish. Hello, and welcome to another episode of No Such Thing as a Fish, coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I'm sitting here with three other QI elves, James Harkin, Andy Murray, and on fact-checking
+
+[00:00:40] Judy's this week, Ann Miller. And once again, we're going to go over our favorite facts from the last seven days. Joining us today, we have a special guest, a comedian and friend of ours, Eric Lamperre. Hello. How are you doing, mate? I'm very good. Thanks. So Eric is a, he's a good friend of ours.
+
+[00:00:55] He's a, he's a comedian. He recently, as a stand-up, opened for Eddie Izzard in French. It was a French gig, and Eric did his set in French entirely. He's also going to star in an upcoming movie called Amstardam. Yeah, that's right. What's that? Yeah. I think.
+
+[00:01:11] What's it about? So this is not bad. It's like a fairytale world. It is a stoner film with that name. Yeah, I'm quite excited, you know. Based in Netherlands? Yeah, so it's in Amsterdam, yeah, and I can't really reveal too much. I have a fact about Amsterdam.
+
+[00:01:25] Oh yeah? I want to hear it. I can't remember what year it was. It was about, I don't know, 80 years or so ago, but there was a fog so bad that 29 people fell into the canals in a single night. That's fantastic. OK, let's start with fact number one. We're going to start with our special guest, Eric.
+
+[00:01:43] Oui, bonjour. Right, so in 1923, Jockey Frank Hayes won a race in Belmont Park in New York, despite being dead. Wow. OK, so explain that one. Yeah, no, I think you got it. He started alive, right? He started alive.
+
+[00:01:58] Oh, so he died mid-race? Mid-race, yeah. OK, give us more of the story. Well, basically, he suffered from a heart attack mid-race, but he was straddled not nice and strong in the saddle, and the horse won. But how does, is there a seatbelt? Like, presumably he keeled over, right? Yeah, yeah, but you're not getting that movie shamed, sort of like slumped over, can I think.
+
+[00:02:20] So he's got his feet nice and strapped in, and you know, you've got your hands as well, sort of tied around the reins. Oh, the reins. Did anyone notice during the race, or was it only discovered after he had won? He was probably the only one. Yes, when the horse just kept running, more and more laps. He was probably the only one not hitting the horse. Yeah.
+
+[00:02:40] And yet, he still won. What does that say about cruelty? Yeah, they sent this horse, and my reins saying it was called Sweet Kiss. Sweet, sweet kiss of death. Sweet kiss of death. That's what they nicknamed it afterwards. Is it? Yeah.
+
+[00:02:52] Wow. This is an interesting link. Your dad, Eric, is a jockey, isn't he? Yeah. I mean, that's one of the reasons why I thought. I mean, I only found out this fact this week. Yeah. But yeah, my dad is indeed a jockey.
+
+[00:03:03] Because you're pretty tall, if you don't mind me saying. And I've got big gums as well, which has never helped. You know, at school, they'd be like, oh, well, clearly your dad's had sex with a horse. It's not fair. Unfortunately, I'm hung like a human. You know the way that jockeys sit? It's kind of like a crouched thing where they're leaning forward. Not the dead ones, the alive ones.
+
+[00:03:30] This is called the Monkey Crouch. And it was invented by a guy called Todd Sloan in 1897. And what's interesting about it is no one rode horses like that before in horse races. And when he invented that, horse race times and records improved by 5% to 7% in a single year. So he just completely changed the sport by deciding to crouch down and lean forward. No one had ever done it before. Wow. That's amazing, yeah.
+
+[00:03:53] That's like the in the first brief. Yeah, in high jump. Yes. I mean, that completely transformed the sport, didn't it? We did a couple of years ago the new way of throwing a javelin, which was invented very briefly in the 1930s, which is to hold it by one end, swing around and let go. The javelin? Yeah, like throwing the hammer.
+
+[00:04:10] And it was banned almost immediately for obvious reasons. But it did provide amazingly long javelin throws. In fact, to the extent that it could have been quite dangerous. A, because it goes too far and might have spectators. And B, because it's very hard to get it in exactly the right direction. Just get impaled spectators everywhere. It's not incredible. A slight margin of error.
+
+[00:04:31] Yeah. And in the Paris Olympics in 1904, 1900? Paris 1900, yeah. Paris 1900. People trained in the public parks, javelins, and they were warned to be extra vigilant. Some people trained at night, so there was less chance of hitting people, but also more chance of hitting people. The interesting thing about javelins is that they make them lesser or dynamic as the time goes on,
+
+[00:04:57] because the length of a running track is always going to be about 100 meters. And so what they do is they have to make sure the javelin can't be thrown more than that. People get stronger and stronger and better, and they get closer to 100 meters, and then they always make the javelins a little bit worse so that people can't get that far. By the end, it'll just be like a toothpick. A really heavy toothpick. Wow. Okay, so what year was that?
+
+[00:05:21] It was 1897 when he discovered that idea. Okay. That's amazing. It's an interesting thing when you start looking into what people have achieved once they've died. There's really one of my favorite stories from the ignobels world. We've had Mark Abrams, the founder, on a few podcasts ago, and he wrote a book years ago called The Ignobel Prizes to Why Chickens Prefer Beautiful Humans. There's a fantastic story about a man called Lal Bahari who, in 1975,
+
+[00:05:51] when he went to the bank to apply for a loan, he discovered that he'd been declared dead by his uncle, who wanted to declare him dead in order to get the land rights for the farm that he owned. And he spent 19 years as a dead man trying to get recognized as a living man, and it's just no one would recognize him. And he did incredible things, like he stood for parliament, he tried to get arrested countless times because they arrested him. Technically, it meant he was alive, so they couldn't arrest him.
+
+[00:06:19] He would do all this stuff, and they're like, we can't arrest you because you're dead. And so for 19 years, he stayed dead, technically, and finally got a court to overturn it. And he set up in his town where he lived, and I think for all of India, which is where he's from, a whole network and a group in support of people who have been declared dead, who are in fact alive. Oh, I'd love to have that power. That sounds amazing.
+
+[00:06:45] It's called the Association of Dead People that he created, and it was in 1994 that he was finally proven to be alive. It's a massive problem as well, in places where the paperwork often doesn't catch up with people's actual legal status, or whether they're alive or not, that it happens a great deal. That's why there's a need for an association. Was that in India? Yes, it was.
+
+[00:07:04] Well, I do believe in reincarnation, that's why he was born again, I guess. That's possible. Well, let's go back to horse racing and jockeys and stuff like that. There was a jockey, a very successful one, called Lafitt Pinkay Jr. And in order to keep his weight down, he would take a single peanut, slice it into slivers, and eat just half of it for lunch. The dieting for a jockeys is actually mad. Me and my mum, and my mum's French, so we'd eat so much, we'd probably pig out.
+
+[00:07:34] And then my dad, he'd always eat salads and stuff. And then I remember when we were in South Africa for one of his races, and he carved himself in black bin bags, right, and just sellotaped it all the way up to his neck. And then he pushed a wheelbarrow full of things, and he ran around with the wheelbarrow around the field to lose the weight. Now, I remember he took off all the black bin bags, and it just poured out like a waterfall. It was disgusting. That's amazing.
+
+[00:08:03] They also read that people jockey speedwalk instead of run, because they don't want to put an extra muscle. Muscle weight is small. Is it AP McCoy? He's one of the great jockeys of time, isn't he? Yeah, I lived near him. He has very intensive, almost golden-hot baths. Same reason I think, to sweat out so much of the water in his body.
+
+[00:08:26] He does it a couple of hours, a couple of times a day before a race. Anything that makes him sweat, like sometimes I'll commit a crime near the police, and I'll just see if they get away with it. That's like two stones gone. Okay, before we move on, Anne, have you got any facts you want to... Yeah, I do. James's Amsterdam fog was in 1893, and it was 79 people who fell into the canals that one night. So watch where you're going in fog.
+
+[00:08:50] Frank Hayes, the New York Times, reckoned that he died just after his horse took the lead before he finished, and they put it down to his heavy training regime, and his excitement at coming first. The horse's excitement? Frank Hayes' excitement. He had been working so hard, and then he suddenly saw he was about to win, and that's what gave way. There's a tumbler I found called Curious History. I haven't seen them before, but they are apparently one of the 20 best tumblers in the world, according to MSN, and they say the spectators thought he was showing off and was riding one-handed,
+
+[00:09:26] kind of like riding a bike with no hands, because he was going over the line, and then when we realised he died till the race was over, which the javelin spinning round technique actually quite effective, the current world record was 83 metres, the guy who spun around threw it 112, and was then disallowed because he didn't want the copycats, that was in 1966. So the world record for javelin has been disqualified? At the time. Well, that one was because you're not going to whirl it over your head. I don't think anyone's done that much.
+
+[00:09:57] Has anyone done that many before? I don't think anyone's got that far. But the thing is, every time they change the javelin, that invalidates all previous records, because you're not on a level playing field. Yeah, the current record with the current javelin is 98.48 metres, so it's still less than the guy who spun it over his head. That's amazing. So yeah, it's pretty good.
+
+[00:10:16] Good factual nuggets. Okay, let's move on to fact number two. Fact number two is my fact, and that is that some Buddhist monks run marathons to achieve enlightenment. So this is a, I think, extraordinary endurance test. It kind of seems like it's the greatest endurance test on our planet, which is done by these monks who are known as the marathon monks. And these marathon monks achieve enlightenment by going on these huge thousand-day running challenges that go over the course of seven years.
+
+[00:10:57] And each year, they have to do 100 days in one chunk of running a distance per day. So 30 kilometres for the first 100 days, then they take a break, then they do another 100 days next year in year two. They do 30 kilometres again per day. Year three, it's 30 kilometres again, and it's 30 for four. Then for five, they do 200 days straight. On year six, it jumps up to 60 kilometres per day for 100 days straight. And then in year seven, it's 84 kilometres per day for 100 days straight,
+
+[00:11:29] and then 30 kilometres additional 100 days after that. And if at any point during this whole process, they fail to reach the number that they're meant to reach on that target, they kill themselves. And only 46 people in the 100 years or so that this has been going on have successfully completed it. So they kill themselves if they haven't already died in the meantime, I guess. Exactly. But if they run short by a couple of kilometres,
+
+[00:11:54] they dress in white because the white is the colour of death. So they're dressed for death. They bring a sword and a rope so they can either... Sounds a lot like a Ku Klux Klan. Are you sure you got your facts right? But yeah, so they have the option of hanging themselves or of stabbing themselves. I think they may not still kill themselves.
+
+[00:12:18] I think they haven't since the 19th century. I think it's been officially a bit discouraged. Yeah, yeah, it's been... That's true. The original hard... I mean, there is an area near the mountain where these monks live in Japan, which is called the Mountain Haiyi. I don't know how to pronounce that properly. It's H-I-E-I. And it's littered with unmarked graves from the people pre-19th century monks who did not manage to finish and complete it
+
+[00:12:44] and had to kill themselves as a result. But the idea is that if you do complete it, you can achieve... You get a medal. You get a nice little medal. You get on the back and there's flowers. Silver blanket around you when you finish it. Well, actually, you say silver blanket, but one thing that I found out about monks
+
+[00:13:01] is that they have a technique where they can heat themselves up. So what was the... So it's a yoga technique called tummo, and they can enter like a deep meditation, and if there's a few monks around each other, and they can have like cold, cold blankets on them, and they can heat those blankets in a cold room, and other people would die. There have been experiments on those guys
+
+[00:13:27] who had sort of wet blankets put on them, and they started steaming until they were completely dry. There is an endurance swimmer who we've covered on QI on TV, and he is able to raise his body temperature by up to one or two degrees because he swims in very icy water. And I wrote to him and asked, is this true? And one of his representatives wrote back and said, yeah, that's what he does.
+
+[00:13:51] Let's go back to crazy monks. Yes, yeah. Let's do that. I'll tell you one more thing about the marathon monks just to bring us back in, which is that... So 46 people only have ever completed this course. I think I've got the number wrong, and it would be great to know when this practice started
+
+[00:14:09] because I think it's either 100 years ago, 400 years ago, or 1,000 years ago. But 46 people have completed it. One guy did it twice. Yeah. He's super enlightened. Yeah. How many marathons has Eddie is at, though?
+
+[00:14:27] Yeah, quite a lot. Eddie's... No, did he do 60? Sorry. Yeah, Eddie did 43 marathons in 51 days in 2009. Also, his marathons were presumably a lot shorter, I'm guessing. No, a marathon is always the same distance, no? 26 points.
+
+[00:14:44] Although they're not always the same distance. The original distance run after the Battle of Marathon was, I think, about 22 miles. It wasn't any more than 25, either. And there was a lot of early flux. But wasn't the first marathon by this guy that had to run from Argos to, like, somewhere else? Well, he was reporting on a battle...
+
+[00:15:03] Right, okay, the battle wasn't really... There had been one. It wasn't that we've lost the battle you need to flee immediately. It was, hey, we won, guys. Oh, okay. It was the Battle of Marathon. That's it, yeah. It was actually called the Battle of Marathon.
+
+[00:15:14] Yeah. It was at Marathon. There is a really interesting thing about the official modern marathon length, which is that it's 26 miles and 385 yards. And it was only... It's only been the case since 1908. And it was done to please the British royal family. Because Queen Alexandra wanted the race to start on the lawn at Windsor Castle
+
+[00:15:34] so that her children could watch from the nursery window. And then an extra mile was added to the race. And then, at the end of the race, 385 yards were added so that it could finish in front of the royal box at the Olympic Stadium in White City. So it's all been done. An extra mile and 385 yards. A royal win.
+
+[00:15:52] Here's the thing about Crazy Marathon. There was an Italian athlete called Maro Prosperi. And in 1994, he was running a marathon in the Moroccan Sahara. But he got lost. And when they found him nine days later, he'd run 200 kilometers off course into Algeria. He'd lost 18 kilograms and only survived by drinking his own urine and eating bats that he found in an abandoned mosque.
+
+[00:16:19] Wow. But this guy here... Did he have to catch these bats? Because that's pretty impressive as well. After running, losing weight, drinking your own urine, still like, now I've got to catch these bats. Wow. He just must have thought he was having a terrible race.
+
+[00:16:37] But the mother thought he was winning. Yeah, he thought the other guys would be here any minute. So anyway, he got a bit dispirited, as you would, after a few days and he wrote a note to his wife and he took a pen knife from his rucksack and he slit his wrists. But he was so dehydrated that his blood thickened so much it clotted the wounds so he couldn't even kill himself.
+
+[00:17:01] And then they eventually found him. What you should have had is a rope or some sword. Some sword. Just a bit of sword. I really like the story of when the modern Olympics came back, the very first marathon that was run. Because it was a big, it was a big, it was the, I guess, big event for Greece.
+
+[00:17:20] The idea that that is what they would win. The marathon, the marathon was so rooted in their culture. And they already had been disappointed because they lost discus. They were furious because that should have been one of the events that they won. I have a quick thing about that. The guy who won the discus had never competed with one of their discuses before. He was an American and he had had a practice one made in America which was extremely heavy.
+
+[00:17:46] And so he got to the real Olympics, completely fluffed his first two goes because he wasn't used to playing with this new discus. And then through the winning shot. I like the way you're throwing it like a frisbee as well. Well that might be what is the sport movement. The monkey crouch. Sorry, you were saying about the marathon.
+
+[00:18:05] No, so they'd been sort of shamed in the discus. They lost it to that man. And so they desperately needed the win in the marathon. So there were 17 people competing in the marathon. And they had good chances of winning as 13 of those athletes were from Greece. So that was pretty high odds. But it's great because very early on in the race. And it kind of shows you a different age of sportsman as well
+
+[00:18:27] when you hear these stories of how more kind of like they had the right stuff and there was more grit. So the early leader in the race was actually a Frenchman runner. But he ended up pulling out of the race because he got too exhaust. But mid-race, while he was in the lead, he made a stop at a local inn to drink a glass of cognac from his future father-in-law. So he had time to stop and have two drinks and then carry on. But he dropped out because of exhaustion.
+
+[00:18:52] So the guy who ended up winning was from Greece. His name was Spyrodon Louise. He ran it in two hours and 58 minutes. And what fueled him along the way, what his kind of choice of drinks were, he had wine, milk, beer, some orange juice and an Easter egg. Brilliant. Yeah, that's the winner of the first-ever modern Olympic marathon.
+
+[00:19:13] An Easter egg. Amazing. About the guy going into a pub, they used to do that in the Tour de France. Whenever the tour would go by a pub or a bar, the cyclists would just all get out and en masse run into the bar and just pilfer everything they could get, all the wine and all the beers and everything like that. And they would run out again and then go.
+
+[00:19:33] So all the people who ran bars that went past the Tour de France thing, they would always close down the shutters and try and stop the cyclists from getting in. It's always the French, isn't it? Eric, has your dad ever stopped halfway through a race for a glass of orange juice slash wine? Well, my dad's English, so no. But he stopped for a nice rose dinner.
+
+[00:19:54] I love it as well. The second and third place were won by Greece as well. But the third place winner got disqualified because he was later found to have covered part of the course in a carriage. No one said it was against the rules. That's all I'm saying. I think we should move on. Yeah, we should wrap up on that.
+
+[00:20:10] Before we do, Anne, have you got anything for us? Oh, I have got so much for you. Oh, great. So the swimmer who can change his own body temperature is called Lewis Pugh. Pugh, so that's Pugh, let's run with you. And he is the only person who's swam long distance in every ocean in the world, including the North Pole, which he did wearing goggles, speedos and a cap. That was all.
+
+[00:20:33] And CNN have called him the human polar bear. So that's him. The marathon running monks, they seem to be keeping records since 1885, which makes it 129 years. 46 of them have done it since then. Okay. Eating bats is not good for you. They spread diseases.
+
+[00:20:50] Guinea actually a few weeks ago have banned eating bats because they've got an Ebola breakout and they're glaring the bats for this. 62 people have died and they eat them either in a peppery soup or they've already dried them out or for a fire. They advise not eating bats until the Ebola has gone away. In terms of eating strange things while you run, it's not quite Easter eggs,
+
+[00:21:10] but the same bolt famously loves his chicken nuggets. On the day he won a gold medal in Beijing, they asked him how he did it, and he said he basically got up late, ate chicken nuggets, went back to bed, ate more chicken nuggets, did the race. Such a show off. Such a show off.
+
+[00:21:23] Got a world record. Apparently he got through a thousand chicken nuggets over the Beijing Olympics, which worked out 100 a day. That's a marathon, that's like a marathon monk. That's the equivalent of two actual chickens, which is pretty impressive. That has not been fact checked.
+
+[00:21:38] If you're listening to The Man, that's for you. Okay, on to fact number three, and that is yours, James. Okay, my fact this week is the Slovakian and Slovenian embassies in Washington meet once a month to exchange wrongly addressed mail. That's fantastic. Isn't that great?
+
+[00:22:06] This came from a website, slovakrepublic.org. I think it seems to be pretty kosher. This Slovak website, I've got a special section of their website saying we are not Slovenia. They've got a load of examples. Apparently George W. Bush once said,
+
+[00:22:25] the only thing I know about Slovakia is what I learned first hand from your foreign minister who came to Texas, and their foreign minister had never been to Texas. It was the Slovenian foreign minister who'd been there before. That's brilliant. It's typical George W. It's not just him.
+
+[00:22:41] Silvio Berlusconi introduced Slovenian Prime Minister Anton Ropp to the crowd of journalists saying, I'm very happy to be here today with the Prime Minister of Slovakia. So it's very easily done. It does happen for these countries that we find that we keep seeing examples of people putting minimum effort
+
+[00:23:01] into actually working out who they are. Remember that famous incident with the national anthem for Kazakhstan? Yeah. Up on the podium, this girl would won gold medal, and then they play the Borat version of the national anthem. He sings in, you know, the lyrics are written in Kazakh. The lyrics are like we have the cleanest prostitutes in the region.
+
+[00:23:25] Kazakhstan's prostitutes are the cleanest in the region, except of course for Turkmenistan. Kazakhstan, Kazakhstan, you very nice place. Come grasp the mighty penis of our leader from junction with testes to tip of its face. That's incredible. Going back to the Slovak thing, there was a Slovak cultural group in America,
+
+[00:23:45] and they had a big sort of map of their country, and there was an old guy came in and he was looking around and they asked what he was doing and he was trying to find his grandfather's village because his grandfather was from there. But then his wife came over to him and she looked at the sign and said, you're not Slovak, you're Slovenian.
+
+[00:24:04] So this guy got his whole life thinking he was Slovakian and he was actually Slovenian. If they don't know, how can the rest of the world know? Yeah. That's a great story. Yeah, I read about these, there was a new couple, I think they just got married, and they wanted to get a flight to Sydney,
+
+[00:24:26] and they bought the flight, and it was a lot cheaper than they thought, and when they got there they found out that they'd actually gone to Sydney, Nova Scotia by accident. This is unlike your, you're from Sydney, aren't you? Unlike your Sydney, this is a former mining town with a population of 26,083 and one of the highest unemployment rates in Canada.
+
+[00:24:49] Yeah, but it does have a very nice opera house. Well, this couple, they said, oh, we're just going to make the most of it, and they were interviewing the newspaper, and they said they were looking forward to looking at the pickup trucks and eating the local lobster. Brilliant.
+
+[00:25:05] That's fantastic. That's nice, like their positivity. Okay, so I was looking at other mix-ups, and I saw a newspaper story. The FDA in America was warning people not to mix up the prescription eye drops called jurazole with the acid-containing water-remover jurazole.
+
+[00:25:24] Apparently these are two medicines with very similar names, and people have been putting this acid in their eyes thinking it was eye drops. Oh, my God. And that got me to thinking if there's any other medicines with similar names and what could happen. Yes.
+
+[00:25:38] And I found a brilliant list online of commonly confused medicines. So there's a drug called Allegra, which is a drug often used for the temporary relief of runny nose, and people keep getting that mixed up with Viagra. Ah. That's their excuse.
+
+[00:25:54] There's something that actually helps to cook carrots and potatoes. It's called vegacil. Some people confuse it. And there was another thing called Beano. It was a company name, and it was an anti-gas thing. If you've got a bit of gas,
+
+[00:26:13] you take this Beano, and it makes you feel better. But people were mistaking it for Beando, which is belladonna and opium. Oh, wow. And anything to add? Just another Slovakia Slovenia. They basically got really similar flags as well,
+
+[00:26:30] which doesn't help. They've got a white, blue and red stripe with a shield on the front. The shields are different. Everything else is the same. So Slovenia have done a contest to find a new flag, but I don't think they've adopted it yet,
+
+[00:26:41] which will distinguish them. And then there's a professor from the University of... the University of Ljubljana. Ljubljana. The University of Ljubljana, who said he reckons a problem with the confusion, is that Slovenia hasn't got a brand.
+
+[00:26:56] Finland is Nokia, and Sweden has IKEA, and they need their own brand. So someone suggested Slovenia becomes the one-hour country, because you can get everywhere within an hour. It's very small. And then with confusions as well,
+
+[00:27:09] there was that thing at the London Olympics when the North Korean women's football team walked off, because they showed the South Korean flag, not the North Korean. That is very embarrassing. They did not go down well, welcoming them with the wrong flag.
+
+[00:27:23] And just at the end, there was a second Dennis Lemenis who made his debut in America. Of course, literally within five years of being debuted. Yeah, America's Dennis Lemenis, and they had a very similar look, and they were done completely independently
+
+[00:27:37] of each other. It's amazing. It was like deep impact in Armageddon. Volcano and Dante's Peak? Yep. Any others? Genesis and Exodus. The bands? No.
+
+[00:27:56] So let's move on to our final fact of the show, and we come on to Mr. Andy Murray. Andy. Okay, my fact is, in the 18th century, there were genuine medicines called Allen's nipple liniment, Grimstone's eye snuff, Miller's worm plums,
+
+[00:28:13] and Italian bosom friend. Do you know what was in any of them? Somebody said that Grimstone's eye snuff was just pepper, just black pepper ground up. But a lot of patent medicines really consisted only of 50% alcohol. And a lot of them,
+
+[00:28:32] we call them patent medicines, of course, all these fantastically named old Hamlin's wizard oil, just beautifully named. Oh, I want that. Yeah, sugar plums for worms, aromatic lozenges of steel, cockings, cough lozenges,
+
+[00:28:47] gingerbread worm cakes. So some of them did have active ingredients. There was one called Mrs. Winslow's soothing syrup, and that was aimed mainly at babies and children, and it contained a full gram of morphine per ounce. And Copp's baby friend, that was another baby one. Copp's baby friend.
+
+[00:29:05] The label there boasted 8.5% alcohol and 1 eighth grain sulfate of opium per ounce. And that was marketed to help baby sleep. Amazing. You could buy heroin, couldn't you, in the first world war, to send to troops on the front line. Yeah.
+
+[00:29:21] You could buy it in Harrods, I think. Really? I think so. Still can, I think. I'm not certain. Yeah, but behind Harrods. We should factor it. Has anyone heard about, during the Middle Ages,
+
+[00:29:33] when there was the Black Death, that farts in a jar was a thing that was described to people? No. Yeah, the idea was that if you conditioned the smell of something quite disgusting to your nose by the time, if there was an outbreak of Black Death around you,
+
+[00:29:48] you would become accustomed to that kind of smell. So it kind of made you immune to what was going to happen. Right. So you would go to the doctor and they would give you a fart in a jar. I don't know if it was your own fart, or if it was a pre-packaged fart,
+
+[00:29:59] and you would go home with it, and then you would rip open the lid, have a sniff. In the case of emergency, break glass. Break wind. That's incredible. What is that, like an early version of the vaccination idea?
+
+[00:30:12] Sort of. Or like taking small doses of a poison to build up a resistance, which some Roman emperors did. Yes, exactly. It's that, to build up the resistance. You're putting up a resistance to your own farts. Well, that was fair enough.
+
+[00:30:24] Which I've been doing for years. When I had my appendix taken out, they cut in testing by accident, and stomach acid was pouring out, and I was digesting myself, right? So I was in the hospital for like three months, and I wasn't allowed to eat anything. So because I wasn't allowed to eat anything,
+
+[00:30:43] because nothing worked, I also couldn't fart. So there was gas trapped inside, and the nurses did say, you're allowed to leave or eat when you can fart. And it took me two months to essentially release any gas.
+
+[00:30:57] And when it came out, it was the worst thing I've ever smelt. Ever. But what was also really horrible was that I had to call a nurse to make her smell it. Which is the opposite. I have a feeling you didn't really have to call out.
+
+[00:31:13] She's probably already ringing your taxi. She's probably got a matching story about the worst thing she's ever smelt. And he called me in to smell it. The other cool thing about a lot of these medicines that I really like is that beyond all the kind of crazy names they had, some of them probably worked better
+
+[00:31:30] than a lot of medical alternatives which were being touted by real doctors, doctors with medical degrees at the time. And that's why a lot of medicines, things like homeopathy, in the 18th century, homeopathy was your best bet, because all the other medicines
+
+[00:31:44] were more likely to kill you, and likely to kill you quite fast. So that I think has accounted for a lot of alternative and complementary medicine today, still being popular, is that it had an initial lead. They used to call them snake oil salesmen.
+
+[00:31:59] They still do a little bit, don't they? And I remember reading that, actually, snake oil is good for you. If someone sold you some snake oil, it contains 20% of omega-3s, which is a thing that people like to take. It's supposed to be good for your heart. And salmon, which is one thing
+
+[00:32:17] that you do take for omega-3 on, it contains 18%. So actually snake oil would do you a bit of good. The thing is, all these medicines is trial and error. So at the beginning of medicine time, trying some honey with hedgehog hair, you never know.
+
+[00:32:34] You'd be like, yeah, just try that. Yes. For your eyes. I get desperate probably as well. The last thing, when you're in pain, you're a little bit delirious, and you'll turn to your friend or your internet friend
+
+[00:32:46] and what do I take? And they'll just say, oh, yeah, just do that. And you will do it. Yeah. There's a group of people in the Amazon who they like to put snakes down their trousers to bite their penises, which gives them length and directions.
+
+[00:32:59] And I wonder how they found that out. They're really just trying to cure their runny noses. That's what they claim. I was reading a lot about placebo in relation to this kind of medicine. Yes. This is incredible. There was a drug introduced in the 70s
+
+[00:33:14] called cimetadine, which cured 80% of stomach ulcers. Now, as time passed, it felt just 50% of stomach ulcers which it cured. And this seems to have occurred after the introduction of ranitadine, which is a competing and supposedly a better, more effective drug. So people think that the placebo effect
+
+[00:33:34] of the initial drug stopped working because doctors knew there was another supposedly better drug, and that's why the success rate fell. Because doctors have also been tested giving medicine to patients, and half of them have said, I think this is a really good drug.
+
+[00:33:49] I'm very excited about it. It's shown really well in trials, and half of them have said, I'm not sure about this, but take it anyway, see if it does any good. Patients have reported much less pain with the first sample of doctor's same pill. It's incredible.
+
+[00:34:02] Wow. Yeah. And placebo injections are more effective than placebo pills because it's a more dramatic intervention. It feels... Culturally, people think that. I wonder if placebo works with all of these
+
+[00:34:11] really weird things that they did in the Middle Ages and stuff like that. So, like, for instance, in the 14th century, one way that you could cure impotence was to wear your trousers on your head for 24 hours. It's hard to imagine the placebo effect
+
+[00:34:26] working there. It's hard to imagine finding anyone who wants to have sex with you after you've walked around the village all day with your trousers on your head. Speak for yourself, actually. The placebo effect doesn't always work, though. I was reading about Greek philosopher Heraclitus,
+
+[00:34:39] who spent the last day of his life laying the sun, covering cow dung, convinced it would cure him. And it didn't work. Cure him from what? Friendship? That worked. That's lovely.
+
+[00:34:55] OK. Anne, we've got anything right or wrong that you're going to add? Perfectly right. Just to add that it was until 1916 that you could buy cocaine and heroin at Harrods. And I know this is a joke or not, but in the article it said you could buy gift packs
+
+[00:35:09] of both to send to soldiers. Wow, I think that's true. A nice little Christmas gift. I had fun when you were talking, watching the weirdest YouTube video I've ever seen, about how to bottle your fart, so thanks for that. According to Anne Maniac, the way to do it is to do it while you're in the bath,
+
+[00:35:25] because that's how you can best direct said fart to jar. But what I quite liked was he began his video by washing out the jar before he put the force in. Oh yeah, you don't want to get that jar dirty. Yeah, I just want to quickly add that from the website that I got the Farts and the Jar from, there was a line at the bottom talking about, because it gave examples of how it was done and so on,
+
+[00:35:45] and it just says, sounds funny now, but the plague was no joke. Okay, that's it for another episode of Know Such Thing as a Fish. That's all of our facts. Thanks so much everyone for listening. If you want to get in touch with us, to question us about anything,
+
+[00:36:10] you can get us all on Twitter. I'm on at Shriverland, James. I am at Egg Shaped, Anne. Miller underscore Anne. Andy, you're on. At Andrew Hunter, Anne. And special guests, honorary elf Eric Lamper. It's my name, Eric Lamper, at Eric Lamper.
+
+[00:36:26] At Eric Lamper. And of course, if you want to explore any of the topics that we've spoken about a bit more, you can head to the qi.com slash podcast page, where we're going to have lots of links. We're going to have videos. We're going to have pictures. Anything that we've spoken about,
+
+[00:36:39] hopefully we'll be up there for you to explore more. And we're going to be back again next week with another podcast. So we'll see you then. Thanks for listening. Goodbye. Thank you.

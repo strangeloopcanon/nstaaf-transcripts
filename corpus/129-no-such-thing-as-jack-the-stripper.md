@@ -1,0 +1,195 @@
+# No Such Thing As A Fish - 129: No Such Thing As Jack The Stripper
+
+- Episode date: September 2, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/129-no-such-thing-as-jack-the-stripper
+- Slug: 129-no-such-thing-as-jack-the-stripper
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, I am sitting here with James Harkin, Anna Czenski, and Alex Bell, and once again... What?! No! I'm back from Edinburgh, I'm back from Edinburgh. It's Andy Murray.
+
+[00:00:33] I don't recognise that name. And Andy Murray, and once again we have gathered around the microphones with our four favourite facts from the last seven days, and in no particular order, here we go. Starting with you, James Harkin. Okay, my fact this week is that Neanderthals wore capes. Mmm. Do they only wear capes? I think they kind of did, and it seems like...
+
+[00:00:59] Is that a good look? Is that a sexy look? I'm just trying to make sure. It's an extra obscene if you're only wearing a cape, I think. Do you think worse than nudity? I think it's worse than nudity. Well, no, it's worse than being naked with just socks on, like, that's what it is. That looks terrible.
+
+[00:01:12] Having one item is always just a bit embarrassing. Absolutely. No, a cape's quite a good look, because you can wrap it round yourself and then do the big reveal. So, Neanderthals, they were capes. They did, compared to early humans who wore more like parkas or hoodies. So the thing is, they found by looking at animal remains in early human settlements and Neanderthal settlements, and they found that the Neanderthals didn't really have the ability to make more
+
+[00:01:38] complex clothing like the humans could. All they could really do is get an animal skin and just wrap it around the neck like a cape, whereas the humans could kind of make more proper clothing. So they reckon that this may be one of the reasons why the Neanderthals died out when the humans proliferated. Kind of ironic that they donned superhero gear in order to wipe themselves out. What a bunch of idiots. I read a thing about superhero capes, and it was a physicist who'd done an analysis on
+
+[00:02:06] Batman's cape, who worked out that if, as in the film, he used the cape to help slow himself down, he would still have hit the building he was landing on at 50 miles an hour, which would have immediately killed him. I don't think. And I think we're assuming we watched that, that there's some magical force holding him up, as well as just the sheer force of his cape, aren't we? But he is just a bloke. Let's not forget, Batman is a bloke.
+
+[00:02:25] He's not like Superman with superpowers, he's just a guy with tons of money. Oh, I kind of thought he had a little bit of extra magic power as well. No, his sole superpower is material wealth. Just I thought the really interesting thing about this new research that's been done was the idea that early humans, the real superheros of this story, had fur trim hoodies, it's all fur trim coats, because what the researchers found is that certain animals were found at human sites that weren't found at Neanderthal sites. So I think there were animals like weasels and wolverines that were found on human sites,
+
+[00:03:01] and they have short hairs, and they're the kind of hair that you'd use to make a fur trim. So they've got this whole mixture of fur, and if it's added to sleeves in the hoods of clothes, then it insulates you better. How are they sewing or putting stuff together? Well, do you know that the oldest sewing needle was found around this time, around 40,000 years ago? Really?
+
+[00:03:22] Actually, it was found more recently, but it was left 40,000 years ago. No, no, no, sorry, it was found 40,000 years ago, but immediately dropped again. And a haystack. But weirdly, it wasn't early humans or Neanderthals, it was Denisovians who were a third group of hominids who kind of lived around the same time. Were we the most clever of the bunch at that period? They definitely had bigger brains than we did. Ah, well they had bigger brains, Neanderthals, but there is a theory that, because they had
+
+[00:03:52] bigger bodies as well, and they had larger eyes too, so they had extremely good vision, but there's a theory that more of their brain would have had to be given over to their visual cortex and to controlling their body as well. So they were great at kind of gymnastics or seeing things from a long distance. The Neanderthal Olympics were brilliant. And all the audience were five miles away as well. But on the other hand, they couldn't do Rubik's cubes. And obviously that really got humans through the ice age when it was very boring and you
+
+[00:04:21] had to have entertainment. Yeah, I think scientists have come forward in the last year slightly, not debunking, but saying there's no actual evidence to show that increased focus on your brain on eyesight or body size would mean that you had a less good higher cortex, but it's certainly a theory. That's the thing, it just changes all the time. Probably everything we're saying right now is just going to be disparate, particularly with the Neanderthals.
+
+[00:04:43] Every day there's a new story that says, oh, they were killed by bunnies, or they loved. Have you not heard that theory? No, no. Oh, they were killed by rabbits? All of them? No. Yes, to do with the fact that they couldn't, I think, I'm getting this in the sort of area of right, their main source of food also became the main source of food that rabbits
+
+[00:05:05] were eating, and rabbits were eating all the food, and so they just ran out of food effectively, so rabbits kind of took, I don't know. Here's the thing, if you try to live off rabbits your whole life, you wouldn't be able to, because they don't contain nearly enough nutrients. Unless they've eaten all of your other food, and so they contain all the food groups now inside of their bodies. Yeah, is this an all-you-can-eat-rabbit situation? If the only thing you could ever eat was rabbits, you would die, and you'd die quite quickly
+
+[00:05:29] as well. I'm not sure exactly what it is that you're missing. I think it's a famous kind of thought experiment about rabbits in particular. Really? And lots of other things, presumably, or rabbits, the only ones trying to screw us over. Yeah, you could probably live just off Guinness. Yeah, OK, James, good luck with that. They always say that, don't they?
+
+[00:05:45] They say like, two pints of Guinness and three Mars bars will get you through the rest of your life, but it doesn't sound right. Who says Irish people, though? Did you know, because people always used to say, oh, drinking a Guinness is the same as having seven roast dinners or something, that there's the same number of calories in a pint of tendons or a pint of fosters, as there is an pint of Guinness. Mm, what? Didn't you?
+
+[00:06:05] I always thought there was way more in Guinness, because it feels like there's more when you drink it, doesn't there? Yeah, it does. Does it? Yeah, it's thicker. I don't know. You had a full pint of beer for your birthday the other day, didn't you, Adam? Yeah, fruit beer, you know.
+
+[00:06:18] I really like this clothing thing, because it's sort of interesting in the knock-on effects that things have. If Neanderthals only had capes, as we're saying, then they might have only been able to hunt during the very warmest bits of the day, so that limits your hunting range time-wise, it means you can't hunt in the morning or the evening, or it might have stopped them foraging further north, whereas if you've got humans in sort of park alike for things they can hunt further north, that extends the range, or in that part of Europe, ambush is quite a good means of killing prey, because you use the landscape and you wait for animals
+
+[00:06:52] to come along and then you jump out and kill them, rather than chasing them as early humans did in Africa, for example. So if you're just lying down in a cape all day, you can't do it, you're freeze. Do you remember that book that came out called The Singing Neanderthals? Yes. Yeah, so this is a professor from Reading University called Stephen Mithun, and he believes that they sung a lot and they like to dance, dance and clap, and they used to do it in their caves together, they used to sing in groups.
+
+[00:07:20] I have read that book quite a few years ago, and I think, is it not also that he thinks that language came originally from singing? Yes. So people would just kind of sing and get rhythm, and then that rhythm and noise would turn into meanings, and then that meaning would turn into language. I think that's what you mean. Yeah, yeah. So for that reason as well, the language part, he says that he thinks that they would particularly
+
+[00:07:40] have liked rap music, and he says, I can see them rapping in my mind. He thinks a lot of stuff this guy. Neanderthal males had one massive arm and one puny one. No. Like Nadal. Like Nadal? Exactly like Nadal. Athletes, cricket and tennis players in particular have upper arm bones, which are much stronger
+
+[00:08:04] in their dominant arm. Right? Of course. So all of us here, dominant arm will be between 5 and 14% bigger. This is the arm bone, the upper arm bone, bigger than on the other side, right? In Neanderthals, the upper arm bone is 50% bigger than on the other side. And this is only the case in cricket and tennis players in modern humans today. So when you say Nadal, it's absolutely right.
+
+[00:08:27] And they thought that this was because they were doing spear thrusting, right, to hunt animals. But actually, they got modern humans to sort of practice thrusting spears and measured how much energy it used, and actually that uses the non-dominant arm loads too. So they reckon that what it is is processing animal hides, i.e. scraping laboriously away at the inside of animal skins to make them suitable for wearing your capes. And we don't know if female Neanderthals had the same thing, because we haven't found female Neanderthal skeletons where both arms are present, but we have found male ones.
+
+[00:08:56] Do we know that female Neanderthals had two arms? No, we don't. No. It might be a reason why they died out. Just one thing on capes, that capes were quite big in the Aztec world. And Montezuma particularly was into them in that every year he collected a tribute from his people of 2,560 of them. The word escape comes from the word cape.
+
+[00:09:19] Does it? What? It's like when someone grabs your cape but you could run away because you kind of leave them with the cape. Well, you'll just naked if you're a Neanderthal. That's actually... Yeah. According to the etymological dictionary of the English language, to escape is to excape
+
+[00:09:36] oneself, to slip out of your cape and run away. Isn't that great? That's fantastic. Are there any famous villains that were known for that? Like, I mean, like Jack the River, we've got his cape, you know, was there any... Like just with the cape done up by poppers at the front or something that they just whip off and lose. Well, just if...
+
+[00:09:53] That's Jack the stripper you're thinking of. But another kind of cape in the Aztec world that only Aztec rulers were allowed to wear was the Hummingbird cape. And so Hummingbirds were sort of revered by Aztecs because I think of their tenacity and the fact that they'd attack things that were bigger than them and they wouldn't rest until they'd got what they wanted and so Aztec kings could wear capes made entirely of Hummingbird feathers. I think I've seen one of those.
+
+[00:10:18] Yeah. They're pretty spectacular. I think there might be one in a museum in Hawaii or something. Oh, really? Like really yellow, amazing kind of feathery cape. Wow. Hummingbirds, I think are they the only bird that can fly backwards? Yeah.
+
+[00:10:33] But yeah, one cape would take 8,000 Hummingbirds. Whoa. Amazing. How do you... Quite impressive to catch, though, that many, though. Yeah, it is. You probably sneak up on them from the front. Elvis Presley famously used to wear a cape in the later years and the very first time
+
+[00:10:52] that they had the idea for the cape because the idea was that it was going to be used to reveal himself, not in that way, on stage to the audience, so it was a great way of hiding himself before they could see him. Because you can still see the cape, obviously. Yeah, I guess. But you're like, who's behind the cape? I mean, who's behind the cape? I know they know they're at a Presley gig.
+
+[00:11:11] All right. Thing is, is that with the cape, so he commissioned it from this guy who was in another bit of America and so they made the cape and they sent it over on a plane and Elvis put it on and it was so heavy that as he walked forward, he immediately got dragged back by the weight of it and crashed backwards onto the ground. Wow. Like who did that in the VMAs last year or something? Was it Madonna?
+
+[00:11:32] I think she just fell down four times. No, she got dragged off by a cape. Oh, did she? Someone stepped on the back of her cape. Maybe it was just a tribute to Elvis. No one got. Someone else who had a massive cape on stage was Liberace, famously, he one time had such a massive cape.
+
+[00:11:49] He was brought on stage in a custom-made Rolls-Royce and then he took off his cape, which was then taken offstage by a smaller Rolls-Royce. Oh, that is fantastic. That's ridiculous. I was looking at Sherlock Holmes because he wore a cape. Yes, he did. Described as wearing a cape and that he was illustrated wearing a very sort of famous cape.
+
+[00:12:11] I think it became famous because he'd worn it. I don't think it was a famous cape that Sherlock Holmes adopted. Who was this weird bloke inside my favorite cape? Sorry, you're absolutely right. He popularized that cape. But there was something really bizarre about the stories in that the man who was commissioned to draw the stories ended up not drawing them. His brother sort of got the gig somehow instead, but then he drew the man who'd originally
+
+[00:12:41] been commissioned to draw the cape was then the model for the cape, which his brother then ended up drawing for the stories. Was that a consolation prize thing? Kind of, yeah. His brother was like, oh, sorry, I didn't get the gig. Was it really weird, these Victorian, because there was a coat with the cape built into it? Yes.
+
+[00:12:58] I don't really understand it. Is it just to protect you against rain? Just fashion. Must have been fashion. Yeah, because I exactly, I was trying to work out, was there a purpose to Darth Vader's cape and a lot of people, because he's in space. What's he doing with the cape? There's a lot of anti-gravity going on.
+
+[00:13:13] That's not a useful garment to have. A lot of people say that it was because of his authority and that a cape would suggest a military kind of authority for some reason. I don't really know much about Star Wars, but it doesn't seem like they have a lot of problem with anti-gravity at any stage, which is interesting, isn't it? The one scene where I think you should see that is when he's flying, when Vader's in his own ship, because I imagine that's where anti-gravity kicks in, but he must be sitting on the cape.
+
+[00:13:41] That's what I thought, because you don't see it in the shot. You're right, because they must have thought this through. Well, they have, because look, there's a description on Wikipedia about his entire outfit. So the outer cape was made so that it could block fire and acid jets, helping to protect the suit's electronics, because remember Darth Vader was part of Robot. And yeah, but the cape was so heavy, you get this, the cape was so heavy that it restricted movement, so he had difficulty lifting his arms over his head, which is why you rarely see that in the movies.
+
+[00:14:11] Really? I can't really see a scene where that would have fitted in Darth Vader. It's when he does the YMCA. It's when he does that football match on the Mexican wave comes round his way. Okay, it is time for fact number two, and that is Chazinsky. My fact this week is that when the first ballpoint pen was launched in the US, riot police had to be deployed to restrain the crowds. It was the new iPhone of its day.
+
+[00:14:42] This was in 1945, and I actually read about this in a book I've just bought called Adventures in Stationery by James Ward, and this ballpoint pen was brought to America by a guy called Milton Reynolds. It was 29th of October 1945, and he launched it in a department store called Gimbles in New York, and thousands of people came, so I think 5,000 people swarmed Gimbles department store, and 50 extra policemen had to be deployed as an emergency at the last minute because it was being swarmed so much. So they cost the equivalent of $160 now, which is a lot, but still they sold, you know, they'd
+
+[00:15:15] sold millions. Presumably they weren't the really crummy cheap boroughs that you're paying $160 for, because even, I mean, that was a time of some hardship across the world, right? Well, what he was thinking actually, you say of some hardship, A, they didn't work because he rushed them through, but B, I think he was thinking it's the end of the war, I need to launch it now, people want a treat. Well, that war was terrible, but at least we've got a borough. It's almost worth having another war.
+
+[00:15:44] It was called the Reynolds rocket though, so there was a little bit of militarization going on in there. Oh, yeah. He actually took out an ad in the New York Times to promote a full page ad, that's how big they were promoting the thing, and in it he said that it was fantastic, miraculous pen, guaranteed to write for two years without refilling. Yeah, and you got your money back if it didn't. And a lot of people did, didn't they?
+
+[00:16:07] Yeah, loads of people, yeah. It was 104,643 that's been replaced in the first eight months. So I think, yeah, it had massive problems, it was really leaky, or it would stop writing altogether, it just wasn't a very good design, and the reason was, because he was a very competitive businessman. So there was this chap called Laszlo Biro, who a few years beforehand had invented the Biro in Europe, and he'd brought it to Argentina, and Word had reached America, and this guy Milton Reynolds, of the Biro, and he really wanted to patent the design, which was just
+
+[00:16:37] this round tip and this capillary action, which meant that you could write in all directions, and the ink wouldn't bleed out onto the page. Anyway, he tried to buy the patent for the design, and it had already been sold, and so he was so pissed off, he decided to rush through his own design before Biro could get his out. So he knew that Biro in 1945, which was now run by a company called Evershard, I think, he knew that they were about to rush the design out, and so he put his out prematurely. The thing was that his didn't use capillary action, it was relied on gravity, so Darth
+
+[00:17:06] Vader wouldn't have been able to use it, for instance. Indeed. That's why you never saw him signing papers. Actually, there is a theory, which Andy was just pointing to, so I bet he was about to say this, that there is no writing in the whole Star Wars universe. Theory is a post-literary universe. Oh, you just see people pointing at, you know, pressing buttons with little symbols on them. Right.
+
+[00:17:26] Apparently, there are some scrolls at the Jedi's. You can see it in the background occasionally, that there's a scroll there, but whether they have writing on, we don't know. But also, you can see in, this is getting too geeky now, but you can see in Raiders of the Lost Ark, when they have the Ark of the Covenant, there are symbols on the Ark of the Covenant of R2-D2 and C-3PO, so they've now put that in a suggested LucasArts timeline of the universe. So, a long time ago, in a galaxy far, far away, was remembered close enough on Earth that
+
+[00:17:52] they knew about 3PO and R2-D2, so it's not that long ago. So, when you said this is too geeky, I was about to say, no, it can't be too geeky for this show, but you've managed to do it. So, the first, one of the first big orders for Byras was by the RAF, actually during the Second World War. So, this was by the Laszlo Biro inventor himself. What's he called Biro? I think it's originally pronounced Biro.
+
+[00:18:21] We've been saying it wrong all these years. It's probably Laszlo as well. Laszlo Biro, I think. I think it's Biro. Probably. He was Hungarian. Well, he was born in Budapest. Right.
+
+[00:18:30] He was Hungarian. Then he moved to Argentina. So, this is a really weird thing also about the way he invented it. I mean, he had to flee the Nazis and he went to Argentina partly because he'd had a chance encounter on a beach with a fellow holiday maker and told him about this great invention he had. And the fellow holiday maker said, oh, well, I'm the president of Argentina. So, do you want to come and stand up in my country?
+
+[00:18:50] And he said, thank you very much. I will. Isn't that amazing? It's extraordinary. Just, yeah, they're on the beach and they're happy to be chatting to the Argentinian president. He was the former president. Oh, was he? Yeah.
+
+[00:19:01] But then, really tragically, Biro never made much money from it because he had some sold the patent to it very early on in the process because partly, I think, to get more of his family out of Europe. I think his last shares were sold to get his family to Argentina. Yeah. I really love, I love the sound of this guy, Biro, because apparently before he invented the Biro, he was a hypnotist, a race car driver and a surrealist painter. Wow.
+
+[00:19:24] That's awesome. Sounds amazing. And you'll like how he invented the ballpoint pen, Andy. He was just sat there looking out of a window and he saw a marble go through a puddle and then it left a line of water on the ground and he thought, wait a minute, I could make a pen like that. Did he know? Yeah.
+
+[00:19:41] Because, Andy, you really hate these ideas of serendipity in inventions. I don't hate it. I just think that often inventions are, it's so much nicer the story of Biro seeing a child playing with marbles and the marble going through the puddle. And who knows? That may well be the case. But often, you get the whole, oh, yes, he had invented a whole load of fountain pens and then one of them was dropped and it created a weird ball on the end of it.
+
+[00:20:02] We thought, oh, I know. Yeah, because Biro didn't actually invent the ballpoint pen or he wasn't the first person to come up with a patent for it. No. I think it was John Loud. Yes. Who did have the first patent and he wanted something that would be able to write on wrapping paper and he invented this thing but unfortunately it was just a rubbish design.
+
+[00:20:22] There were 350 ballpoint patents before Biro came up with this. Whoa, really? Yeah, yeah. John Loud in, I think, the 1880s all the way through to the 1930s. The idea had been thought of a lot. It's just no one had made it work properly. So it's weird that he had to wait for a marble to propel itself through a puddle. Yeah, it's a bit weird, isn't it?
+
+[00:20:42] Considering there were 350 other inventions exactly the same as his. It's bizarre. It's almost as though that did not happen. Have we ever talked about just speaking of riots and police having to be called unexpectedly about the girl who put a Facebook invitation up and accidentally made it public, not private, the Dutch girl in 2012 and she got 30,000 people responding saying that they would attend. About a party, was it? It was, yeah, it was about a party but it meant to go to just her friends and apparently
+
+[00:21:09] you have some private setting on Facebook. You don't, yeah. There's a movie about it, isn't there? Is there? Yeah, I can't remember what it's called. X. Oh, no, it was based on that film. So that's why people did it and then they turned up in T-shirts saying Project X Harren
+
+[00:21:21] because it was in the town of Harren. And yeah, like up to 5,000 people turned up and 600 riot police had to be called and the girl fled her home to somewhere else because she'd accidentally put this invitation on private. It sounds absolutely terrifying. Yeah, it happens quite a lot. What, 5,000 people rocking up to an impromptu party? Certainly doesn't mind parties.
+
+[00:21:41] Part accidentally. You did say up to 5,000 people. I mean, even at these parties there's up to 5,000 people. Okay, it is time for fact number three and that is my fact. My fact this week is that not only was Lady Chatterley's Lover banned from Australia, but a book about the ban was also banned. Yeah, so Lady Chatterley's Lover, famously a book that was banned in the UK, it was banned in Australia, many other countries.
+
+[00:22:13] And what happened was in 1960, eventually after, I believe it was 1929, it was originally banned. So huge amount of time and they finally got the ban lifted and it was such a weird trial. Everyone who was at the trial reported about it at the time in 1960 because they had things like the fact that the jury who were forced to read the book weren't even allowed to bring the book out of the courtroom. So the jury had to just sit in the jury room and read the book. There was probably somebody really smug juror who got to the end of it first before everybody
+
+[00:22:45] else. Yeah, just did all the spoilers. That reminds me of something I read that in the 90s or late 80s, early 90s, there was a pornographic TV channel called Red Hot Dutch, which came over to Britain because people could get it with their satellite dishes. There was a big kind of moral crusade against it in the newspapers and stuff. And before the parliament could debate it, they had to have a special viewing of the channel in the houses of parliament and apparently it was one of the most well-attended viewings
+
+[00:23:22] of any thing that they ever had. Wow. I don't know. Because you're allowed to watch some really steamy hot Dutch pornography, but you have to watch it in a room full of MPs. I'm not sure I'd click attending. So the really tricky thing when the book was going to be published is that this was all after a 1959 change in the law, which said that literary merit is a defence.
+
+[00:23:45] So it was an extremely sexual explicit book, it had been banned in 1929, but then this change in the law in 59 meant that suddenly there was a possible defence, which means that it could be published legally. And Penguin then announced, you know, for Lawrence's anniversary, we are going to publish a huge run of this. And they were intending to publish it for, I think, three shillings and sixpence, which is really cheap and would have put it well within the reach of working-class people. So that was why the authorities, if you like, were spooked.
+
+[00:24:14] Because there was still the thing in law, which was an old Victorian thing, which was it's all right for you to have something which is explicit and obscene and whatever, so long as only gentlemen can read it. But once you do it so that the poor people can read it, then it becomes a problem. And it's called variable obscenity. Really? Yeah. And so there's a very famous part of that trial where the chief prosecutor, who is called
+
+[00:24:36] Mervyn Griffith Jones, asked the jurors to consider if it was a kind of book that you would wish your wife or servants to read. And in the newspapers, they all thought that was hilarious, because this is the 1960s. We don't talk like that anymore. But of course, he was referring to the old Victorian law, which was, is it something that working-class people or women or whatever can read as opposed to gentlemen like me? And so when they eventually lifted the ban and said it could be sold in shops, it's not dissimilar to the great ballpoint pen debut.
+
+[00:25:07] Indeed. Shops were packed. People were not rioting, but it was chaotic and it was mainly men who just heard so much about this book and copies that had been bought were then being resold just the hour later in Soho. It's also a very quick read. But it's almost like when a huge superstar comes into town, you know, scalpers buy up the tickets and resell them for a hiked price.
+
+[00:25:31] So in Soho, they were hiking the price of these unread books that had just been bought in the London bookshops. So just to bring it back quickly to the opening fact, so what ended up happening was that the ban was lifted and that was great. And someone then went on to write a book called The Trial of Lady Chatterley's Lover. And that book then got released here in the UK and it attempted to get released in Australia, but Australia had not lifted their own ban. And so they decided to continue to ban anything to do with Lady Chatterley.
+
+[00:26:00] And that was one of the books that wasn't allowed in. So did this book have like excerpts from the original? Do you think? Yeah. No, I'm not sure exactly what this book contains. It's actually quite hard to find it online. Well, it's because you're part Australian done. Yes, exactly.
+
+[00:26:14] You're just not allowed to read anything like this. Yeah. And yeah, what's really nice about this is that a group of Australians actually decided that they were going to sneakily import it and start selling it in shops and they did. And that kind of created a new conversation once they got caught because they were caught and the government attempted to prosecute them. And they said this shouldn't be done and a lot of other politicians agreed. And as a result, that's what's kind of kickstarted the whole thing about the relaxation laws
+
+[00:26:42] of the obscenity laws in Australia. So it's interesting. Lady Chatterley itself did it here. And in Australia, a book about the trial did it in Australia. Yeah. It's kind of amazing. You'd have customs officials taking banned books off people. Apparently when trains used to go from Europe into the Soviet Union, when they stopped
+
+[00:27:01] on the border, they check your passports and there'd also be a guy going through going Bibles and pornography, Bibles and pornography. And so you had to give up your Bibles or pornography. I know what it looks like. It's just actually a very broadly interpreted Bible. OK, it is time for our final fact of the show. And that is Andrew Hunter Murray. My fact is that Henry VIII contributed to NASA's space suit design.
+
+[00:27:32] They go on. So he had a suit of armour which was built for him in 1520 for a thing called the Field of the Cloth of Gold. It's a huge diplomatic jolly in France. And in 1962, one of the teams working on space suits for NASA, a firm called Garrett AI Research, they visited the suit and the Tower of London sent the firm data on it and they sent photos of it because they were trying to work out how to build better suits which could completely overlap and completely cover the body.
+
+[00:28:03] That was sort of, you know, something that went into their research. Yeah, so cool. So now you're going to have astronauts with massive cod pieces. Yeah, that'd be good though, wouldn't it? Great. So good. He did have a bigger one than everyone else. Didn't he? The King had to be in with a bigger cod piece.
+
+[00:28:19] Yes, yes, yes. Women in subsequent centuries used to put little pinpricks in them and it was hoped that that would make them fertile and bring them babies. That's the isn't that at the Tower of London? Yeah, it's an actual, yeah. Were you there? We were shown around the Tower of London. No, when was that?
+
+[00:28:34] A good few years ago, I was shown around the Royal Armouries with Mully Oldfield, I think, for her book, The Secret Museum and they have the copies there and I think they have the actual one which the pins were pricked in. Oh, really? That's so cool. Henry VIII had regular enemas from a pig's bladder, didn't he? So I actually thought that this fact was going to be, I think I may have misread your email, that the spacesuit was designed on Henry VIII's bottom and so I did quite
+
+[00:29:00] a lot of research into Henry VIII's bottom. So I was also reading about his toilet and it's, they were really lavish but I didn't really understand this. I think this was from Lucy Warsley, maybe, he said, Henry VIII's lavatory was lavishly covered in black velvet. It's lid opened to reveal inside a padded and baribboned interior covered with the same material. Oh, God.
+
+[00:29:22] Those ribbons are going to be very nice for one use only, I guess. That's a really good point. I think there must have been a hole in the middle, which, and maybe you had to aim well and just make sure you didn't catch the padding and the ribbons on the outside, maybe? No. Yeah. It feels like with that many enemas. His aim wouldn't have been so good anyway.
+
+[00:29:45] How long after someone dies is it not treason anymore? So he got very fat later in life. Yeah. He was quite athletic when he was young, wasn't he? But he got really fat later on. And I read this, that there was a 2009 study by the Royal Armouries that found that his waist was 52 inches. OK, that's by looking at one of his suits of armour.
+
+[00:30:09] But brilliantly, by coincidence, Queen Victoria's bloomers that went on sale in 2012 were also a 52-inch waist. So they had exactly the same waistline, Queen Victoria and Henry VIII. So this fact is also about spacesuits and NASA. Did you know spacesuits these days are called emus? That's what modern spacesuits are referred to. So in space, you need to go and get into your emus. So I bet you is unit.
+
+[00:30:34] Not bad. Extra. Yep. Ooh, what's it going to be? I'll leave the next one to you, Anna. Mission, memory. No, I know. I'm going to put us all out of all of our misery.
+
+[00:30:47] It's extravehicular mobility units. Yeah. So where's the V? F mu. Yeah. Yeah. Except there's not a bird. But that's not a lovable creature.
+
+[00:31:00] If you want to study ants using an electron microscope, you would look at them in a vacuum. And to get them in a vacuum, you have to put them in a tiny little spacesuit. No. Well, they call it a tiny spacesuit. You dip them in surfactant, which is a substance which causes a tiny little nano suit, basically, that they go inside. And it actually can even repair itself if it gets broken.
+
+[00:31:28] But yeah, they call it a tiny little ant spacesuit. Is it individual ones for individual ants? Oh, my goodness. I know. That is so incredible. Have you seen? I was looking at amusing looking spacesuit designs from over the years. And that sort of tries some pretty wacky stuff.
+
+[00:31:43] But have you seen the AX5 hardshell spacesuit? We've seen the AX3, haven't we? But no, I'm not sure. I knew you weren't up to date on this. So the AX5, the point was that you wanted to be flexible inside it. So that's often a problem in spacesuits that you can't like move around enough. And it had a flexibility rating of 95%, which means that the wearer can move into 95% of the positions that you can if you were naked.
+
+[00:32:06] But what this basically means is if you look at us reverse cowgirl. What are the positions that you can't get? I don't know, actually. Maybe they don't tell you in case you try and break it. I'm not sure I can get into all that many positions. Even when naked. You might only have a 75% thing even without the spacesuit on. Oh, God.
+
+[00:32:30] And each year as I get older, it gets less, doesn't it? Look, it's a funny space suit. It's not that morbid. It looks like someone's inflated. So if I were this... If I were this 95% spacesuit, does that mean I can now get into ball positions? No, certainly not. I'm afraid it's not 95% of the average person's.
+
+[00:32:51] It's 95% of your position's naked. Your naked is 100%. You could barely do anything in the 95%... So I could actually only get down to about 71.5%. Don't buy it. If only you could transmute your consciousness into an AX5 spacesuit, then you'd be able to do more than you could today. How many...
+
+[00:33:12] How many percentages do you think you could do wearing just a cape? That's over 100. 110. Sorry. Have you finished that? No. I just need to describe how this works. Because it's ridiculous.
+
+[00:33:29] Yeah, we know it's the AX5. AX5, you know it. Gosh, we know the AX5. The AX5 looks like a hugely inflated Michelin man. So essentially, it's like being in a giant bubble, where it seems like you can pull most of your limbs out of the sleeves and sort of your legs out of the legs and move around inside it. Right.
+
+[00:33:47] But it looks totally absurd, because it looks like you've put on a piece of clothing 20 sizes too big for you. So they decided not to let it go. But it's a good amount of roominess in there, just with your head hanging onto the helmet and the rest of your body can swing around underneath it. That's a good idea, actually. Yeah.
+
+[00:34:02] Shall we wrap up? Yep. Oh, do you know what the French for codpiece is? Le poisson du... I thought you'd go down that road. Le pièce de poisson. It's not. It's braguette, spelled the same as baguette,
+
+[00:34:14] but with an R, it seems to have so much room for confusion. Braguettes for breakfast? Brilliant for a French 16th century sitcom, wouldn't it? Yeah, stupid farce. Just put a broguette of your penis and get on with it. Are you sure? Madame's halfway through eating it.
+
+[00:34:36] Okay, that's it. That's all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, you can find on our Twitter accounts. I'm on at Shriverland, James. At Eggshapes, Andy.
+
+[00:34:49] At Andrew Hunter M. And Czenski. You can email podcast at qi.com. Yep. Or you can go to our group Twitter account, which is at qipodcast. Or go to knowsuchthingasafish.com, which is where we have all of our previous episodes.
+
+[00:35:01] Also, why not go to iTunes? All of our first year of Fish is up there now. You can buy that too. And we will be back again next week with another episode. We'll see you then. Goodbye. Bye.

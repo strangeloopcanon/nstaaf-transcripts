@@ -1,0 +1,297 @@
+# No Such Thing As A Fish - No Such Thing As Jeremiah Wingdings
+
+- Episode date: June 1, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-jeremiah-wingdings
+- Slug: no-such-thing-as-jeremiah-wingdings
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I'm sitting here with Anna Chisinski, Andrew Hunter Murray and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Shazinski. My fact this week is that in Singapore, pet fish have, plastic surgeons. Do they get a trout pout?
+
+[00:00:48] Hey. Trout? Does anyone know that phrase? No. I do know that. It's when you put a load of stuff in your lips. Yeah, it's for having fillers in your lips. You get what is called a trout pout.
+
+[00:00:58] So it's actually a clever joke. So tell us about these fish, Anna. A great start. So what do you have done if you're a fish? Well, you don't, for a start, you don't have a trout pout because this is a specific kind of fish and it's the arijuana fish. which isn't a trout. But actually humans aren't trouts either, and we have trout pads. It's weirder for us to get a trout pat than it is for the fish.
+
+[00:01:21] All right, this fish is slightly closer to a trout than a human. But nonetheless, it's the aruanic fish. It's a very prized fish as a pet in China and in other Asian countries, including Singapore. And I read this article in the New York Times, which sort of profiled this guy called Eugene Ung, who is one of the premier cosmetic surgeons for Asian fish in Singapore, he was described as.
+
+[00:01:42] And yeah, he does them up. You get lots of things done. So they often get their eyelids raised. They've got droopy eyelids. He'll go into their eyelids and he'll take some of the tissue out and budge their eyeball further up into the socket. Yeah. It's a very exciting industry. It's amazing.
+
+[00:01:56] And he runs a fish shop, doesn't he? Like a pet shop where you just buy them. So this is a guy who's either behind the counter selling you a goldfish or then going behind the scenes and cutting them up. What's the aim? What's the aim to? Is it to make them look more attractive to humans? If he's selling them, he's making them look better. Yeah, I guess.
+
+[00:02:13] And so he's going to sell them for more or sell more of them? He says in this article that Anna read, he says, I know some people think it's cruel to the fish, but really I'm doing it a favour because now the fish looks better and the owner will love it even more. Do you know, it's really weird to quote an article is an article that X read when X isn't you? Because you've read the article as well,
+
+[00:02:34] presumably if you're quoting it from it. I think he's only read this paragraph. I just read quotes. It makes it sound like I've just sent you a few choice quotes for the podcast. I have to say, is it an extremely weird custom, though. It's extremely weird.
+
+[00:02:46] And I should say the person who sent me this was Lauren, who's one of the other elves. I only remember that this morning. So she emailed this amazing article to me. Do you know what happens when you're a fish having an operation? What they do is they get anesthetic water and they put the fish in a bowl or a tank of anesthetic water to knock it out.
+
+[00:03:02] And then they pull it out of the tank. They put it on the slab to operate on it. And then you have to have one person on either side pushing syringes of water over the gills so it keeps breathing nicely. And then you have to have a third person who's refilling the syringes for the people who are blasting the fish.
+
+[00:03:17] So it's a massive operation. And then you have to have the surgeon. Well, I read that it's not even just, it's not the anesthetic water that you need for it. So I was reading about a goldfish called George, who had a brain tumour and he was being operated on. And George, when he was being, when he was under, they took actual buckets of water from the pond that he was from
+
+[00:03:36] so that it would be the natural water that he was accustomed to. And that was being splashed over his good. the whole time as well. There's a fish which received a glass eye to stop other fish bullying it. Were they bullying it? Yeah. They were attacking it in the water
+
+[00:03:50] because it was a sign of weakness. Were they really? That's what happens. George was being bullied for having a brain tumour. Yeah? Fish could be so cruel. But don't you think you need to,
+
+[00:03:59] they're kind of, right, if you've got bullies, you don't deal with it by fixing the problem with the person who's being bullied. You speak to the bullies themselves and get them to change their ways. You speak to the bully's parents.
+
+[00:04:11] ideally. Exactly. But what you're doing basically is just saying that they're right to bully them almost. That's true. Yeah.
+
+[00:04:17] And it's silly, this ideal of the perfect looking fish we've raised up and we've tried to make everyone want to look like that. If you want to have droopy eyelids, I think you should be allowed to have droopy eyelids.
+
+[00:04:27] And they're being made to feel like they can't. I agree. And because they were saying that these owners are going to love the fish even more because they're beautiful. I mean,
+
+[00:04:33] that is pretty shallow. Yeah, it is. It is. Yeah. And the worst thing if your fish is shallowness. Fish is greatest fear These aruanas
+
+[00:04:45] They are so They're amazing They're amazing They're the best fish They even the droopy eyelid ones They're so good So people are obsessed with them There's one guy in the article
+
+[00:04:56] That Anna read and that Dan selectively read He was He was interviewed He's called Nicholas Chear And he has a fish tank Which covers a third of his living room That has a big proportion But he said
+
+[00:05:07] Sometimes my wife that I neglect the children because of the fish. To a certain extent, yes, I guess that's true. But actually, back in the 1970s, they weren't very popular at all. Right. And what happened was they were just an ordinary fish that you would eat for food, but actually they weren't even that tasty, so people didn't really eat them much. But the thing is, it's an apex predator, it's slow reproducing,
+
+[00:05:29] so the populations of it are very small, and so it ended up on a list of protected species, and that backfired because they became so rare that everyone wanted them. Yeah, it's such a good example of how trends happen. It always happens in history, doesn't it? As soon as something becomes rare, like lobster used to be common and peasant food, and then suddenly it's rarer and it's a prize commodity. And I think they've sort of back-justified it now
+
+[00:05:53] and said that they look a bit like dragons. So they're called Longyu, which is dragonfish in China. And it's because they have these kind of whiskers that, I guess dragons also have whiskers. And also they kind of swim up and down, don't they like an eel? But it's like one of those dragons in the New Year carnival. Yeah. And they're very aggressive, which dragons, I guess, are sometimes. Yeah, they're really aggressive and they've got terrible bites.
+
+[00:06:14] Right. They're on the side of virtually every porcelain bowl that I would have eaten from as a child. Really? Yeah, that is a classic fish that you would have drawn on the side of a bowl. Yeah. And they've got like glittery, sparkly scales, haven't they? And they really focus on how to make them more attractive, not only with the plastic surgery, but they're often placed under neon pink tanning lights.
+
+[00:06:37] and it's because they've got like a reddish hue and if you put them under the tanning lights they can go really pink and they look nicer. Doesn't sound healthy. They're growing the Amazon, don't they as well? There are silver arijuana fish in the Amazon and they jump out of the water to catch prey
+
+[00:06:51] so some of them have been found with birds or bats in their stomach after their death. This is the cool thing though. Some people believe that arijuana fish will jump out of the fish tank to sacrifice their lives to warn owners about a bad business investment.
+
+[00:07:05] So just as you're picking up the phone and think, oh, I think I'm going to buy some of that stock today. The fish will smash out of the water. That doesn't sound very true, does it? It doesn't sound very true. I would like to go in a business deal with a person who believes that. You were saying the silver aruana jumps out and eats bats. The golden aruana, apparently, it has been said, jumps out of the water and grabs small monkeys from overhanging branches and eats the monkeys.
+
+[00:07:33] Yeah, they'll take anything. Snakes, any kind of small mammals. and I watch this really horrible video because a lot of this information comes from this book that sounds amazing, which is a woman called Emily Voight wrote a book called The Dragon Behind the Glass, and she obviously got really obsessed with these fish. And there's
+
+[00:07:48] one line in her book where she says, whatever you do, don't look up YouTube videos of aruana fish, dragging, duckling underwater. And what did you do? Well, I obviously did that. I honestly thought I might find it quite entertaining in a way, and it was just extremely unpleasant. So I know everyone's going to now do this at home,
+
+[00:08:04] but honestly, don't look up. What are you doing? The Aronovish. It's like the movie The Ring, isn't it? Just in China, I was reading about goldfish. Goldfish meant to be yellow fish, really. It's a breeding process that means that we have the more orangey color. This is a result of the Song Dynasty.
+
+[00:08:25] In the Song Dynasty, yellow was the color of the royal family. And so the empress forbade anyone from having yellow fish if they were non-royal, because it would be a signal of having a posh fish. So they all had to go for the more orangey type. And that was sort of bread and bread and bread. And that became the one that had sort of mutated into, yeah, the one that we know today. But I remember reading once, and I don't know if this is true, that if you get a goldfish and just put it in the river, then it loses its goldness and it just becomes a fish. Really?
+
+[00:08:54] They're not gold anyway, are they? They're orange. It's a very different color to gold. Yeah. That's not very different. Oh, well, I've got a rig that you might want to buy them. Fish in the background jumping out Don't do it
+
+[00:09:08] Just because this is a fact about Surgery on your pets We've never mentioned neutercles before As a concept But this is It's estimated that 500,000 dogs Have had neuticles attached And these are fake testicles
+
+[00:09:25] Because when they get their real testicles Chopped off, they get very self-conscious And they get bullied by their friends And so they get neutrals surgically attached testicular implants. They're really good actually. The dogs bollocks. Very nice. James and I have held one.
+
+[00:09:43] What? Yeah. Sorry, did you say you and James have got them? No, we've held one. Oh, sorry. Yeah. I was getting very badly bullied in the office. They won an Ignobel. Exactly. Mark Abrams of Ignobel.
+
+[00:09:55] He was downstairs in the office with us and he pulled a dog's testicle out. Plastic. Can you get a range of sizes? Because obviously dogs have different sized testicles, don't they? as in chihuahua as one of the same size as Great Dane testicles. That would be so good. It would be very funny to fit a chihuahua with Great Dane neuticles and vice versa, actually. Yes.
+
+[00:10:13] It would be like a space hopper, wouldn't it, the chihuahua? That's true. Two spacehoppers. Yeah. You say 500,000 dogs? Yeah. That's huge. Half a million dogs.
+
+[00:10:22] But they get lots of plastic surgery. They get tummy tucks. That's apparently quite common now. And also, um, Botox to perk to like perk up their faces. Because you know those pug dogs are really sadgies. skin have become really popular. But isn't that the point of a pug? No, but they...
+
+[00:10:37] What would a pug look like with an entirely smooth face? It would look like nightmare. No, but they've been bred into... It looks like the Roswell alien, I don't know of that thing. They've been bred into not being able to breathe, right? That's the... Yeah, as in... So, they're just helping them.
+
+[00:10:49] I'm not saying the answer is more intervention, though, is it? No, this is what humans do. We make enormous mistakes, and then we make other enormous mistakes to counteract the enormous mistakes we originally made. Why couldn't we have left the dogs alone in the first place? I was looking into weird surgeries as well. And I left the animal proper dog and fish animal world and went to the human animal world. So just very quickly, this is off topic.
+
+[00:11:14] But you know you can get holiday boobs now. Holiday breasts. No. Right. This is an interesting thing that's been happening in America. In New York, there's a plastic surgeon who's created a thing called the Instabrest. And what it is, is rather than giving you actual breast surgery, he gives you this sort of saline injection, which makes you have. enhanced boobs for 24 hours and then it goes away. The saline just sort of disappears.
+
+[00:11:39] And he's now developed and they're still running tests on it, ones that you can use that will last two to three weeks for the time of a holiday. So you go away, you have your boobs done up and then by the time you get back, they sort of go back to what they were before. Is that really weird? Yeah. Yeah. I don't think that's going to catch on. What he says is for a lot of people who want to test the idea of having breast implants rather than having to do it and often what they do is what they do is 3D models and so on.
+
+[00:12:05] So what it is, it's just a quick sort of go for a day of going, actually I like this size. You do it when you're on holiday so that your people at work don't see you looking like that. It's like if you try and grow a beard,
+
+[00:12:15] you've gone on holiday for two weeks and you're like, oh, maybe I won't shave to see what I look like. And then you always shave before you come back because you look like an idiot. Is this man offering a holiday penis yet?
+
+[00:12:27] Or holiday testicles, which are larger for the beach. For bouncing around the beach. Okay, it is time for fact number two, and that is my fact. My fact this week is that, according to scientists, you're more likely to win the Tour de France if you are good looking. Yeah. Yeah, this is a...
+
+[00:12:54] Is it because you are more streamlined with your cheekbones looking all nice like that? No, because your cheekbones would be sticking out a bit more, wouldn't they? If you had a really thin face with no cheekbones, then actually you would be much more... Well, that is my idea of beauty, James, actually. It's an extremely... Long nose, like conchard. Yeah, a head that's basically an arrow.
+
+[00:13:13] An arrowhead. It's my idea of beauty. And no one can tell me off for it. Well, this study, it's like an average thing, right? They ask loads of people. So you would be an outlier in this case, I think. Yeah. This was done by Dr. Eric Postma.
+
+[00:13:27] This was at the Institute of Evolutionary Biology in Zurich. It's the University of Zurich. And he asked 800 participants to... score the cyclists' attractiveness based on their facial appearances. If the person recognized who the cyclist was, like Lance Armstrong or Bradley Wiggins, they disqualified that. So it had to be people they didn't know. They used 80 professional cyclists that they picked from. And it was from the 2012 Tour de France that they used the sample from. And the results showed that the top 10% of performers were rated on an average of 25% better looking than the latter, if that makes
+
+[00:14:02] sense. Oh, so better cyclists are more good looking even. So within the professional cyclists, the better ones, more good looking. It's only in professional cyclists, I think. Right. So we don't know if cyclists are more attractive than normal people. They might all be much uglier than we are. Have you ever seen a professional cyclist? Why do you think they cover themselves with helmets and sunglasses and things like that? They're quite unusual looking. Like, it might be, you know, it might be your thing, Andy. I don't know. They usually have very big heads and very tiny bodies. And but quite muscular legs. They're unusual looking,
+
+[00:14:34] is all I'm saying. Team Sky, when this happened in 2012, they all had to wear sunglasses in all the photos. And these were the photos that they used. And in that year,
+
+[00:14:46] Bradley Wiggins won the Tour de France. And Mark Amadish, I think they're pretty well in it. But they couldn't use any of the pictures for this study because they were wearing sunglasses. So actually the winner of the Tour de France in this study,
+
+[00:14:57] Bradley Wiggins, was not part of the most attractive people. Right. Are they wearing the sunglasses? is to disguise the dilated pupils from all the doping they're doing. I don't think Sir Bradley Wiggins has ever been found guilty of dumping. Has he not yet? Okay. Yet.
+
+[00:15:14] On doping, so I didn't know how ingrained the history was in cycling, but this is in the very early days of the Tour de France. Two brothers who were cycling in it. They boasted to a journalist, and I'm quoting here directly, they said, we've got cocaine to go in our eyes, chloroform for our gums, and do you want to see the pills? And I don't think it was banned back then. No, it wasn't banned until the 60s, I don't think.
+
+[00:15:36] Yeah. So it was a very exciting time. Otherwise, that would have been an incredibly stupid thing to say to a journalist, wouldn't it? But if you take it a lot of cocaine, you do talk a lot. That's true. And you talk about yourself, don't you? Why don't I think I'm doing so well? Well, let me tell you this.
+
+[00:15:55] Riders were fine for being pushed along by spectators. You would get a clandestine push along as you went along. And I can't imagine that did you a huge amount of. good unless they ran with you pushing you for a bit. You get pushing in the Tour de France now. Just in support of pushing. So not by the crowd normally. So let's say your bicycle brakes and you need to get a new one, but you're on an uphill bit,
+
+[00:16:14] then your mechanic will give you a push up the hill while you're going. Is that allowed? It's kind of allowed, yeah. As long as you don't do it too much. The other one as well, like you might be getting a drink from the car and they will hand you the drink and they'll hold on to it for like 10 seconds so they're pulling you along on the car and then you take it off them. That happens in every race.
+
+[00:16:33] They have sort of a second limit, don't they? On when you really have to have to let go now. Just on the topic of drugs being not a cheating. So even though you weren't sort of disqualified for doing drugs, there was a lot of cheating that happened right on the very first Tour de France that ever happened. So there was the favourite who was said to be the greatest cyclist who was going to win, whose name I just can't pronounce. So I'm going to pretend we're mates.
+
+[00:16:58] I'm just going to call him a nickname Hippo. He actually had to be. bow out halfway through the very first one because he drank some lemonade from a crowd member, had a sip, and then he had this huge indigestion, huge stomach problems, and thought he was poisoned. No one believed him, and they thought he was just a bit weak and he wasn't as good as he was. And it wasn't for years later that they actually traced it down and worked out it was, in fact, a spiked bit of lemonade. And so he... How would you work that out? I know.
+
+[00:17:23] The evidence must have gone by that. I know. I have no idea. 20 years later, this lemonade has really gone on. One day got sick. Which one? Which tour is this? This was the very first one. So this was in 1903, but then he came back in 1904, and he himself then became the cheater. Because what he did was he was being towed by a car by using a sort of invisible string attached to a cork. No.
+
+[00:17:51] He had the cork in between his teeth. Why is his teeth? Why don't just hold the cork? Exactly. He was pulled by the mouth, towed by the mouth, and he was caught. But in that race, a total of 29 people, I think, were disqualified largely for illegal use of cars and trains. They kept on. And even the guy, the four people who came first, second, third and fourth were disqualified.
+
+[00:18:14] And so the guy who was fifth, Henry Cornett, ended up winning. But even he had used a car for a bit of it and got a warning. It's like, you didn't use the car as badly as the others. But there was another guy who, one of the main guys, there was some contaminated food that he was given, which was a chicken leg containing a sleeping pill and that meant that he fell off his bike because he fell asleep on his bike. No.
+
+[00:18:37] Wow. There was a thing about how badly all the teams behaved during the early tours. So this is from a book called Tour de France A Cultural History by Christopher Thompson. I've read a bit of it. It's very good, very funny. In the 1920s, hotels complained
+
+[00:18:52] that cyclists were using curtains in their rooms to wipe Vaseline off themselves after massages. And they would just horror. probably behaved all the way around the tour. Are you not allowed to do that if you're in a hotel? What, using the curtains to wipe Vaseline off yourself? Do you not have towels? They just do it to be rock and raw.
+
+[00:19:09] I mean, what a weird way to be rock and roll? I don't know what. Should we throw this TV out of the window? No, no, I can't get a grip on it. Also, it hasn't been invented yet. Oh, yeah. But they kept stealing things as well. As they would cycle through towns,
+
+[00:19:28] they would just swipe glasses of wine and baguettes off table. as they went. So all the pubs would close. Whenever the tour was coming through, the pubs would close because they knew that the tour would just everyone get off the bike at the same time, run in, steal all the wine, and they'd go off again. Yeah, the guy who won the second tour de France, Maurice Garin, who himself was then caught for cheating. He was also part of cheating. He was doing things like putting itching powder down the trousers of other contestants. I like that kind of cheating. If they did that kind of cheating these days rather than injecting steroids and stuff. I think that'd be more fun. Yeah, definitely. Like whoopi cushions and
+
+[00:20:05] kind of, you know, like... It doesn't slow you down, though, a whoopie cushion on a bike. The worst that happens is a bit of a fart as you set off, which will probably help you actually if the wuppie cushion is the right way around. I would put the wopi cushion the other way around. Oh, yeah, so it blasts you back down the mountain. Yeah. I see. Yeah, a very powerful wippy cushion. I would just suggest upturn nails on the roads. That's harsh, though. What about covering an entire road in those plastic dirty fidoes so the cyclist has to go around
+
+[00:20:29] them all. What's a dirty finder? Oh come on. Is that a bad dog or something? Fake plastic dog poo? Yeah, I'm thinking purely of Smithy's joke shop level pranks that you can pull. All of those is right, isn't it? The Smithies joke shop. Like you can put like a little hand buzzer on their handlebars. 100%. Or like the guy of the lead's got like a fake black eye because he's
+
+[00:20:49] locked in a telescope. The old classic Offer have some gum. No, it's a mousetrap. Yeah. You would be cycling for hours. after that, this sore finger. This is the way to get people watching the Tour de France again. This is doping people can get on board with. And I see the rest of the Peloton have cycled into the crudely drawn on tunnel on the side of the road.
+
+[00:21:19] You were in the middle of saying something, Dan. Oh, yeah. Yeah, I was... Itching powder. That's right. He was the guy who was beaten up. What was that? Really? Okay, yeah. So he, not in the Tour de France, but he once won a 24-hour race,
+
+[00:21:37] and he credited the wind to the amount of stuff that he was eating and drinking along the way. So we were talking about the fact they would stop off and drink wine and steal baguettes and stuff like that. The list that he said that he ate and drank during that 24-hour race was he had lots of red wine, eight cooked eggs, 19 liters of hot chocolate, a mixture of coffee and champagne, two kilograms of rice, seven liters of tea, 45 chicken cutlets and oysters. 45 chicken cups. I'm still stuck on the 19 liters of hot chocolate. Wait, well, that's in how long?
+
+[00:22:06] 24 hours. There was a 24 hour race that he did. Yeah, 19 meters. No, that's not that. Wait, 1-9, 1-9 litres. Yeah. There's not time. And also, you have to leave hot chocolate
+
+[00:22:15] for about 12 minutes to cool down around, so you don't burn your mouth. That's true. Yeah. I don't know. They do drink chocolate milk in the Tour de France now. All of the teams do that. It's amazing.
+
+[00:22:25] I occasionally go cycling, and chocolate milk, it just goes straight to your leg. Yeah. It's like when Popeye has a spinach. Oh, cool. That would have been a very bad health message, though. Wow. Guggling chocolate milk. Well, so another thing he used to do was smoke cigarettes, and that's what a lot of the cyclists used to do as well.
+
+[00:22:41] And you can see these great photos. Was it like an exploding cigar? What they used to do was, as they were approaching a massive hill, if they were in a group and they were with their team, they would all light up a cigarette or light one up and pass it around. So you can see photos are showing it. What they thought was is that it was opening up your lungs so that you could climb the hill. Wow, that is really not what happens.
+
+[00:23:04] It's almost the opposite. Although the smoke could obscure the vision of the people behind you. True. Working away. Yeah. I liked, there's a guy called Bernard. Well, it's clearly a French guy, so it's probably something like Bernard Inou. But I'm going to say Bernard Hinnolt.
+
+[00:23:18] And he was cycling winning in the 80s, and he had a champagne before he cycled up the last hill and won. Which I quite like the people were still doing it up until modern day. Actually, I think these days I have a memory of. of the winners kind of going down in Paris having a glass of champagne. I think that just happened. Because the final race is usually a bit of a procession. If you're winning in the penultimate race, they will never overtake you in the last race.
+
+[00:23:43] It's always like just a kind of a procession into Paris. So I'm pretty sure they have gone with champagne. Cool. Fair enough. Can you explain this then, James? Because you do know it well. So apparently there's a gentleman's agreement in the Tour de France that you can take pause pippi,
+
+[00:23:59] which are basically potty brakes to stop, have a wee, get back on your bike and that other people who are trying to beat you kind of have an understanding that they won't try and overtake you at that moment. That is true. The fact is you're on the road for hours and hours and hours on end and you're taking in lots of chocolate milk or, you know, whatever.
+
+[00:24:16] And so you do need to stop and it's just like a, yeah. Yeah, well, hard luck. You get overtaken. It doesn't make sense because then you won't get attacked yourself. But the chivalry in cycling is quite good. Like even, for instance, if you're at the top, If you're in the lead, and let's say there's a crash and it's not really your fault. Quite often the others will wait for you.
+
+[00:24:35] Because they want to beat you just by being better than you, not because of a bit of bad luck or whatever. And through massive injections of band's substances. That's what chivalry is. Sir Lancelot found a crease in his armour and stabbed a massive syringe in it. Okay, it is time for fact number three, and that is Andy. My fact is that in the 19th century, setting type for newspapers was a competitive sport. Oh my God. It's so exciting.
+
+[00:25:12] This was before they had the tour de France, so you had to find their own entertainment somehow. So setting type of newspapers is where you would have a massive bank of letters in front of you. And they're all the mould that you're using in a newspaper. You have to pluck them out by hand. You say, oh, we need a small e and then we need a big F and then we need a small G. Sorry, what word is that? We're spending FCA. And obviously you need all the different faults.
+
+[00:25:36] It's amazing, sorry, when you were trying to come up with a random series of letters, you listed E, F, and G, isn't it? I don't know where my imagination comes from, but it's a gift. So basically, you're writing out all the words that a newspaper needs to do, but you're doing it in physical blocks. Yeah, exactly. And then the printing press comes down and prints a newspaper. Yeah, right?
+
+[00:25:56] Exactly. So you make a full page of type. And it's incredibly, you know, hard physical work, and there's so much of it to do. So, and this was, you know, pre-mechanized typesetting, and it turned into a sport. And typesetters would turn up and compete against each other to audiences of hundreds or thousands as well. There were prizes of about $1,000, which was six-month salary for a typesetter at the time, which is pretty good. And they were judged on speed, so they were given a set passage to typeset, but then afterwards there had to be proofreaders who would assess them for mistakes they'd made in their typesetting as well. Well, there was a competitive proofreading as well.
+
+[00:26:32] How would you do competitive proofreading? You'd have to have more proofreaders. And then you're in a never-ending loop of competition now. But being a typesetter was a pretty shit job, wasn't it? It was very tough. Yeah. You'd work from 1pm to 4 a.m. Yeah.
+
+[00:26:48] Every day. The ventilation and the fumes and everything were so bad that the average life expectancy in 1850 was 28 years of a typesetter. Wow. Wow. Yeah, it was rough. Although they were kind of quite cool, details about doing it. So one of them is the origin of uppercase and lowercase is that they would
+
+[00:27:08] keep all the different types in separate drawers. For each font, you'd have two draws and the upper draw or the uppercase was the one full of capital letters and the lower door or the lowercase was the lower case. That's good. It's quite nice. There's loads of words, isn't there? That says what you see. When you go on the internet and you Google typesetting facts, it's always like the word cliche comes from typesetting. I don't know that one. It's like if you've used up all your type, then you can't use it for anything else. So what you did was you used up all your type and then you made a mould out of it
+
+[00:27:37] and then you printed everything with that mould and that mould was called the cliche or the stereotype. But something pointed out to me that cliche is an onomat appear because cliche was actually the sound of the mould as it hit the molten metal. Oh, was it?
+
+[00:27:53] Wait, what are you using the mould for? So basically you've done your type and you want to do a second page so you'll have to reuse all of these blocks. Is this right? Yeah. And so what you do is you take it? take a mold of it, and then you can reuse the blocks for the next page.
+
+[00:28:04] Oh, I see. And that's your cliche or your stereotype. Yeah. And I think cliche was used for images and stereotype was used for type. Oh, cool. But, yeah, cliche, the sound that molten lead makes. That's very cool. They needed so much of it as well.
+
+[00:28:18] So a single newspaper needed about 50 to 100 hours of type setting. And this is going very fast as well. This is sometimes they would do two things per second. You're constantly going back and forth to the cases. And it's all upside down and back to front as well. It's another complication of the trade. Yeah. But as these competitions were happening,
+
+[00:28:37] this was kind of a dying game because it was replaced by linotype or liner type. So it came from line of type, linear type. You would press a keyboard. You would just give on a keyboard. And then as you pressed, lowercase h,
+
+[00:28:49] an individual letter would slide into place. And then when the line was finished, the operator would release some boiling lead, and that would make a single stick of metal for that whole line of type. So that became a much faster way of doing it. And then that was replaced by computerized type setting. And when that happened, the Guardian had a mock funeral for the old printing process.
+
+[00:29:11] Really? Yeah. This was in 1987. The printing union, they had a miniature coffin. And the coffin has a plate on it saying RIP, the Guardian, 1961 to 1987. And there were printers dressed as pallbearers in top hats and black tie. And there was a saxophone player. I have not worked out why.
+
+[00:29:28] I think because it was 1987. and that coffin, the mini coffin, commemorating Lennotype printing, is now in the Guardian's archive. Really? Yeah. Wow. So cool. Well, I like as well that when you read the characters and the stories, they're often associated with a font that you know really well.
+
+[00:29:46] So like John Baskerville, for example, he's famous as a typographer, but he also created this font. So we have that today. I think it was killed by that dog. So sad. Yeah. Yeah. there's a guy called William
+
+[00:30:00] Caslin I quite like as well he invented a typeface that was used on the Declaration of Independence and he was a British guy so I quite like it's a British font What's it good? Was he called? William Casselin So I don't... Caslin? Yeah, I haven't heard of that
+
+[00:30:14] I don't think he made it into his own name. There were loads of those guys There was Sir John Helvetica. Jeremiah Wingdings. Yep. Lord Arthur Comic Sans Double-barreed name of course, very posh. He was from the Berkshire Comic Sans, wasn't he?
+
+[00:30:28] So when all these new innovations come along, people were often afraid it was going to put them out of work. So, for instance, typesetter is not really a thing anymore because we don't need them. And similarly, as the printing press got better and better and more automated, it needed fewer workers. And one of the major advances in the printing press was the steam printing press, so it could get run by steam. This was invented in the early 1800s.
+
+[00:30:52] And the first place it was used was on the Times. And the Times was managed by a guy called John Walter. and he heard about this steam printing press invention and he thought I better introduce this into my factory because it seems amazing and it can do so much printing but I can't tell the workers because they get really annoyed because it was like the age of luddism and workers fearing their jobs would be lost
+
+[00:31:11] so overnight he secretly installed this steam printing press he printed all of the day's papers overnight and all the workers arrived at work the next day and he announced them that their jobs were now redundant because he'd already done the paper and he gave them a newspaper with the headline you're all fine That is so weird Anna because did you say that was the Times? Yeah.
+
+[00:31:32] So that is literally exactly what happened in the 80s with Rupert Murdoch at the Times. What? Yeah, genuinely because the printing unions had massive. They were big industrial disputes with the printing unions. They were constantly going on strike. They were, you know, extremely well paid. And Murdoch wanted to smash the unions. So he had an entirely new newspaper printing plant set up in Wapping outside Fleet Street,
+
+[00:31:53] set up all the computers there in secret. and then bang, overnight, moved there and moved the times there. Yeah. And at a stroke took away the power of the printing unions, which has not been the same sense. I was looking into Victorian newspapers, and I found an account of a guy called
+
+[00:32:07] At Digi Victorian. Dr. Bob Nicholson is his name. And he wrote a series of really fun tweets, which is he said he'd just watched the new Dickens movie, and he's not usually bothered by inaccuracies in historical dramas, but politely requesting, stop putting massive headlines on Victorian newspapers,
+
+[00:32:24] picture of it's saying Dickens and it's a headline that Dickens is holding and that's a terrible headline as well It depends why he's done Yeah It doesn't tell you anything That's what I mean If he'd put his dick in something
+
+[00:32:38] That's quite a good pun actually There were a few more lines on it I mean if it was called What's the Dickin then I would be interested Because that's a pun on what the Dickens That would be a tabloid way of doing it Yeah that is good
+
+[00:32:50] Dickens puts Dick in chicken will be of another... Sorry, Dan, you were talking about newspaper headlines. There was more to the headline. It might have been... It might have been Dickens puts Dick and Chicken. I haven't seen the new movie, but...
+
+[00:33:06] It could very well be that. And his point being that no newspapers back in Victorian times carried headlines. Not only did they not carry headlines, they didn't even carry news stories. All they carried was adverts. The whole of the front page of all newspapers, or at least most of the newspapers back then,
+
+[00:33:20] were densely packed with adverts And when you think about the printing process and you see a picture of it, it's tiny, so tiny. Just think, how is that possible? Wait, but when you say, I mean, they did have news stories. In the newspaper, but not on the covers. Yeah, yeah. So no headlines would ever appear there, but not even news would appear there.
+
+[00:33:36] That was never the thing. It was just purely adverts, which I didn't know. But there was so many personal adverts as well. It was, you know, the Facebook, the Craigslist, the everything of its day. It was just where the community exchanged all of its news and said, you know, has anyone seen my chicken? Yeah.
+
+[00:33:52] Mr. Dickens was hanging around the coop last night. I don't know where it's gone. Okay, it is time for our final fact of the show, and that is James. Okay, my fact this week is that Britain exports fresh air to China. Very cool. And that's how we're going to get through Brexit, guys. We'll all be asphyxating in five years and time because we sold all the air. So basically, this is a thing which started off as a joke,
+
+[00:34:23] and everyone would just kind of get fresh air from different countries. and put it in jars and sell it to people. But more recently, it's become kind of a thing, and people in China like to get these jars of air, and obviously the pollution is terrible in China. And there's a firm called Ether, I think, or Heath Air, and they collect air from the UK countryside and sell it for £80 a jar.
+
+[00:34:45] And it began as an enviropolitical artwork. But now they say at the end of the day, we're a company selling fresh air to people who can afford it, and anti-pollution face masks to those who can't. Because they reinvest the money, don't they, in the face masks? That's right, yeah. It was really confusing when it was first set up, because I remember it was about two years ago
+
+[00:35:04] when that guy, Leo de Watt, first set up that company. Leo de Watt? It's a dad joke. Yeah. But it's so weird, you should watch. Look up on YouTube, the YouTube video of his team. So there are these two really posh women, and it's never openly stated anywhere that it's a spoof,
+
+[00:35:24] but it so obviously is. And you can see the comments below getting so agitated. about how stupid they are. These two women absolutely taking the piss and they've been really funny. So they prance around the countryside with these nets
+
+[00:35:34] just leaping about netting air and then they go up to a little jar and then they thrust the net into the jar and they talk about it so there's one woman who says the wind might pick up notes of grass or if you're near the sea, some saltiness
+
+[00:35:46] and then at the end they have about five jars and they say there's today's harvest. If they're only getting five a day it's no wonder it's 80 pounds of pop. That's true. Yeah, very small yield. Sean Aaron, who's the director of the Canadian Respiratory Research Network, says this is unlikely to provide any health benefits. Clean air bottles is a gimmick, a waste of money.
+
+[00:36:10] So if you're listening, don't pay £80 for fresh air. Unless you're very wealthy. Yeah. You know, who are we just told people how to spend their money? No, it's, yeah, it obviously... You don't get rich in the first place if you're spending money on fresh air. No, that's true. But the trick of the air, but if you're selling it, you might do. Yeah. One of the things I found out from this, just because it was about China's problem with air pollution.
+
+[00:36:34] Yeah. China's taking massive steps to deal with now is that Beijing is now on its 13th five-year plan. Did you know there are still five-year plans going? No, I didn't know. Yeah. Hang on, and it's actually done all 13 of them all the way through, because Stalin didn't even get through his first one, really, didn't it? I think once you get to the end of the five years, that's it. You've just finished the five-year plan. Yeah, whether you actually get what you planned or not.
+
+[00:36:56] Plan it's over. You just have to have another plan. Right. You can't extend a five-year plan to be a six-year plan. You just stop a new five-year plan. Are you just saying that China's been around for 65 years? Yeah, I am. Remember they've had a new five-year plan every five years.
+
+[00:37:12] It's a thing they've kept doing. Is it? And it's paying off. Yeah, they're doing okay, aren't they? Yeah. Not on a pollution level. No. But it gets called the apocalypse.
+
+[00:37:22] Yes. But surely doesn't work in Chinese. In Mandarin, does it? Can't do. So why do they call it that? Maybe it's us who calls it that. There's a hotel called the Cordes Honkia which has filters. It filters all the air going in to the hotel.
+
+[00:37:41] Like an airplane. All the windows are closed all the time. And the air quality is 10 times better indoors. So the hotel claims than it is outdoors. So, but yeah, it has to pass through two intensive filtering layers. Isn't that crazy? Yeah. Because that's not a way of, you can't do that for everybody.
+
+[00:37:55] No. No. You could get little helmets, though. Like, there has been a push chair that's been developed for babies, which is basically that. But this is called the air shield. And it's a thing that creates a clean air microclimate inside a baby's push chair. Why the babies getting all the good stuff? Because they're innocent, James, unlike you. What have you heard?
+
+[00:38:17] What I'm saying is that technology surely can be slightly increased in size for people like me. Why do you want to be pushed around in a push chair? That's crazy. James. Look, you can't tell me what to do with my money. It doesn't go big enough for adult heads. No, I don't know.
+
+[00:38:33] It's quite expensive at the moment, I think. But it is quite cool. It looks like an alien pod. And it's got a glass lid that protects them from UV rays. And then it's got a little speaker installed inside it so that the parent can chat to the baby still. Although...
+
+[00:38:45] But babies famously produce quite bad smells. Mm-hmm. So, do you? Julia, there's a risk that you're locking them in with their own farts. You don't just leave them in there for five years. But yeah, it's a real very major problem, isn't it? Bad air quality in the world. And I think people are now trying to make face masks a bit trendy.
+
+[00:39:09] Because, you know, we're used to seeing face masks. They all look the same, don't they? I guess they're black or white. But there are startups in China and in the US and in the UK that are designing pollution masks for up to $100 at the moment, but to try and make them cool. Can you get them to look like your own face so that no one knows you're wearing one of the masks? I think you could put like a mustache on there.
+
+[00:39:30] Yeah. And then you can see if you look good in a beard and mustache. That's really nice. That's really nice. To go on holiday? Do they do extending face masks which can cover the breast area or the penis area actually? So you can just try it out. You know this thing about if you breathe in a lung full of air, it'll contain some of Caesar's breath.
+
+[00:39:53] There have been calculations done on this. So the idea is he breathed out some molecules, and there's enough of them in all of the air that one of them will get into your breath, right? Exactly. I always thought it was when he died, his atoms are what are in the air, and that's what you're breathing in.
+
+[00:40:09] There's another thing like that as well. There will be, yeah, the carbon that makes up his body might be in carbon dioxide. So there's a book called Caesar's Last Breath by an author called Sam Keen, and he says that every breath has about 25 sextillion gas molecules. So given the number of breaths you take over your life, the odds are that there will be a caesar particle in any breath you take.
+
+[00:40:31] What about every move you make? Yeah, he'll be watching you. So I took it a bit further, and I looked up how much you fart every day. Okay. And you fart about three pints a day. Three pints? Three pints, yeah. Yeah, but gas is kind of spread out, isn't it?
+
+[00:40:49] Oh, yes. It's not like if you squash it down to a liquid, it would be a pint. Yes, okay. Right. Yeah. So I think I'm right in working this out that at least twice a day you will breathe in a molecule that Caesar farted out. Cool. I might be wrong on the maths. Wow. So there's a company or there was a company in 2016 that sold Shortwich Air. Oh. From the Shortwich area of London, which is super trendy. Yeah.
+
+[00:41:15] Yeah. It was 1999 each, so cheaper than the stuff that they were sending to China. Yeah, that's good. You could either get Shortch A.m. which contains the notes of the night before or shortish PM which smells of rolled tobacco cigarette pseudo philosophy and hemp brewed beer
+
+[00:41:32] I think I might pay the 80 quid actually for the more expensive stuff my family used to have a can of air did they yeah we There's a fire extinguisher Dan is completely different Dan constantly with his mouth wrapped around the fire extinguisher in the morning
+
+[00:41:47] and then when that fire came it wasn't funny anymore was it what's happened to the big can of air Dan drank it. Just for anyone listening, I know a fire extinguish is not a can of air, all right, I know it's more complicated than that. If you blasted air on a fire,
+
+[00:42:05] wouldn't it make the fire bigger? Oxygen, that would be, but there is, you know. Yeah. Yeah, like... It's foam, isn't it? But what does air contain? Oxygen. Yeah, mostly nitrogen.
+
+[00:42:15] Anyway, look... And you get nitrogen with fire extinguishes, isn't it? That's cool. In fact, we've said before that packets of crisps are full of nitrogen, not oxygen, or not air rather, so that the crisps don't go off. Could you theoretically put a fire out by opening a massive bag of crisps near it? Yes.
+
+[00:42:30] Excellent. Anything that deplaces the oxygen would do it. Well, I know what I'm going on, Dragon's Temway. That's amazing. This is a pack of a crisp the size of a house. Just open it slowly and put the bag over the fire and it's out. Oh, but if you put it over the fire, then you've wasted the crisps, haven't you? No, no, they're nicely charred.
+
+[00:42:48] Actually, these crisps are just potato, aren't they? they've not been cooked for their potatoes covered in oil. Wow. This is the best idea anyone's down there. Is this why we never hear about a fire and a Walker's Crisps factory? Sorry, Dan, I completely interrupted. It's pre-1997 handover Hong Kong air is what we had. So what they did in Hong Kong was they canned pre the British air, as it were, in Hong Kong.
+
+[00:43:16] And during the handover, lots of parties that was there present to a lot of people that went to them. So for years we had this can in the house. I don't know where it's gone. Wow. Yeah. Oh, cool. Yeah. I have one last thing, which is the band Kiss, if we're talking about selling air.
+
+[00:43:30] They sell, and they're making a lot of money off. You know, air guitar? Yeah. They sell strings for your air guitar. No way. Yeah. And they package it up and they have a little, you know, like if you were buying something from a joke shop, it's got that little label.
+
+[00:43:45] It says guaranteed strong strings or whatever. And it's, yeah, it's kiss. And they're making so much money off it. when people go to their stores, which they have in America. It's just a really good idea. It's a great novelty idea. But they're making millions of selling air, is what the article is saying. Yeah.
+
+[00:44:00] Yeah. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland. James.
+
+[00:44:17] At James Harkin. Andy. At Andrew Hunter M. And Chisinski. You can email podcast. QI.com. Yeah, or you can go to our group account, which is at No Such Thing. We also have a Facebook account, which is no such thing as a fish, or you can go to our website, no such thing as a fish.com. We have links to all of our previous shows up there, links to our tickets, to our book.
+
+[00:44:35] Everything is there. If we've done it, it's there. Go there. Okay, we'll be back again next week. We'll see you then. Goodbye.

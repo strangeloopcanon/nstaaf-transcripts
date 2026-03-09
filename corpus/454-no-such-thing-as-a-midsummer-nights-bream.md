@@ -1,0 +1,345 @@
+# No Such Thing As A Fish - 454: No Such Thing As A Midsummer Night's Bream
+
+- Episode date: November 25, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/454-no-such-thing-as-a-midsummer-nights-bream
+- Slug: 454-no-such-thing-as-a-midsummer-nights-bream
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covert Garden. My name is Dan Schreiber, I am sitting here with James Harkin, Anna Tyshinski and Andrew Hunter Murray and once again we have gathered round the microphones with our four favorite facts from the last seven days and in a particular order here we go. Starting with fact number one and that is Anna. My fact this week is that indigenous Bolivian women traditionally wear huge colorful skirts and bowler hats and I can't believe I've never really seen this before, it's striking
+
+[00:00:53] and they all do so they tend to be known as Chalitas which is basically a term for like the Aymara and the Quechua and other rural Bolivian women. Not Charlie Chaplin as it sort of sounds like, the Chalitas. I know you're trying to make a jump to the Charlie Chaplin bowler hat and I appreciate that. Yeah so like his fan club you know all these lady gaga's are called the little monsters. Beliebers. Maybe you've blown this wide open and that is why they do it.
+
+[00:01:21] So Chalitas, it used to be a pejorative term I think and it comes from the Spanish cholo for mixed race but it's very much reclaimed by them now and if you look them up they always wear these stunning silky waistcoats with a brooch and these huge dresses with petticoats underneath so like really big Elizabethan style dresses and then a bowler hat which doesn't fit. But it does work. It makes the look awesome. Oh it works in that way.
+
+[00:01:50] Yeah it works in like you know because bowler hats were originally invented to stop twigs from hurting your head when they so I wondered if. It would probably stop a twig from hurting your head. It's not functional. I'm talking fashion. I was saying it works. That works. Yeah.
+
+[00:02:06] It does work. It does. Yes and we're not quite sure why they do it. They started doing it the turn of the 20th century. There's the legend that when British and Irish railway workers were in Bolivia which they were because the railway building company was a British company there was a big shipment of bowler hats that was sent for them to wear because it was like workers hats and they were too small so some clever marketing person flogged them to the indigenous women.
+
+[00:02:31] I think there was a guy called Domingo Solingo who did a very good job of popularizing them and like ran a good PR campaign. Try to get men to wear it first from one of the other stories versions of the story and they were just not interested so they're just as a last minute thing when women would use it. Then when he was walking along with a tray of samples one day he tripped over and one of the hats fell onto a woman's head and completely by accident he discovered. That's so interesting because they are I mean they are comically small.
+
+[00:03:00] They're not like you know just a little bit too small to go in your head are they? They're not a yamlka if you're a bit string. It's like yeah just clearly too small. They sit on top. They sit on top. So I mean who were they made for is my question. We have this in the house all the time where you order something and then a novelty small size version comes in the post.
+
+[00:03:22] That must be what it was. You know like we bought a crown for my son Will's birthday and it arrived and it was the size that would fit a Kendall's head by accident because we just hadn't read the measurements. We got a washing line. You need to read the measurements. They clearly didn't hear as well. One thing I like about the Chalita thing is that I didn't know anything about this style
+
+[00:03:42] before even this cultural grouping before researching this but they weren't allowed to walk freely in the main square of La Paz which is the capital of Bolivia or in the wealthy suburbs in this outfit for many years and then it's really been brought back on board to the extent that they're officially a part of the city's cultural heritage now. It's called the Chalita of La Paz and also there are Chalita fashion shows. There is a Chalita modeling agency and I'm sure you guys came across the Fighting Chalitas as part of the project. I did not.
+
+[00:04:13] I'd like to hear about the Fighting Chalitas. It's just a wrestling group but they're female wrestlers who wrestle in traditional. With the hats. With their hats. Do they do odd job? The odd job kill. Yeah, they do. They die by the dozen every month.
+
+[00:04:25] Anyway, the Fighting Chalitas. That's the one where they play golf, isn't it? Yeah. Yeah, that's the only Bond film I've seen, the one where they play golf. Did you Google Bond film golf? I just Google golf and it came up. Right. You know, there's an app that can tell you when to go to the toilet at the cinema,
+
+[00:04:40] like Toilet Break. Do you have an app that just tells you when golf scenes are in a movie and you just show up for that bit? I do. I only ever watched Cuddy Shack and that Bond film. They are a real happy story, which, you know, we're all on the lookout for these days, but I think it was basically since Eva Morales was in charge of Bolivia, right, who was their first Indigenous president, who came in the early 2000s and sort of completely rehabilitated
+
+[00:05:05] their reputations because they had been kind of ostracised and had all these horrible repressive rules made against them. And now they're doing so well and it's a real great story and they're quite well off. They've got all these celebrations about their heritage. They have, I think they have a few Indigenous people in Parliament, they're like lawyers and doctors and yeah, it's quite nice because they have since like literally back in the day when the Spanish colonised and they wanted to distinguish them, the superior colonists from the Indigenous people.
+
+[00:05:37] So they said, OK, well, what do people who are lower class do in Spain? They wear these big peasant dresses and so they made them all wear these big peasant dresses. Oh, that's where that comes from. So yeah, they put them in these, to just say, like you're beneath us and the Chilitas just went, all right, we're going to own this. It's interesting because like the big dresses come from the Spanish peasants and the Bola hats come from British, you know, upper class people.
+
+[00:05:57] Yeah, they're such a fusion. Yes, yeah. Yeah. Have you guys ever drunk Coca-Cola? No. Yes. What kind of a question is that? You might be right.
+
+[00:06:07] You might be right that you haven't. So this launched in April 2010 and Coca-Cola. What is it? Cola, C-O-L-L-A. Coca-Cola. Yeah, is a local Coca-Cola basically that they've just manufactured on their own. So it has a red label with white writing. I mean, it's the packaging is very similar, but it's sold as a legit product there.
+
+[00:06:29] They've not been in trouble. And they're all right with this. Are we now getting them in trouble if someone who has a Coca-Cola is listening? No. It's becoming a bigger, yeah. Yeah. Because it's named after the Cola people. Exactly.
+
+[00:06:41] And the Coca-Nut, which is in it. Yeah. And they say to Coca-Cola or Britvika or everyone's Coca-Cola, they say, well, you know, there's nothing you can do about it. And I'm not sure Coca-Cola are particularly happy about it, but there's nothing they can do. They're definitely not happy about it. No, but they can do quite cool.
+
+[00:06:56] And they've got Coca-Leaf extracts in it as well. So actually, it's an illegal drink to be sold over here. So they're quite regional because it's legal there. But for us, yeah. I think we should legalize. I mean, we should probably legalize all drugs, but Coca-Leafs, I definitely think we should legalize in this country. So we can get this Cola drink?
+
+[00:07:13] No, because like when I was in the Andes, it's the best thing. It just gives you a little bit of a pickup. Yeah. It's so useful. Honestly, when you've got a hangover or you're tired or anything, just chew a Coca-Leaf and it just makes you feel so much better. It's just a tiny little buzz. Have you tried cocaine James?
+
+[00:07:31] You'll love it. I think the... I think the Pope has tried the Coca-Leafs. I think he visited it every year. And when he went, I think he said, oh, I'll have some of that. So... Yeah, everywhere. Like if you go to a hotel, you know, if you go to a hotel in the UK, they might have a
+
+[00:07:47] bowl of Murray Mint. Oh, a lovely hotel would have that. Yeah, exactly. Well, all the hotels in Peru and in Bolivia, they have a bowl of these Leaves and you know, it's actually a bowl, it's a bowl of a hat upside down, full of those Leaves. Are you sure it's not just potpourri? Are you being munched away? Because it leaves your breath really, really nice at the end of it.
+
+[00:08:08] Um, guys, did you know not 25 minutes walk from where we're sitting right now is where the first bowl of hats were sold. Is that true? Wow. Invented and sold in St James's Street. I mean, it might have been invented in someone's house, you know, but it was brought to St James's Street to lock and co-hatters who've been going since like basically the 17th century when they were founded.
+
+[00:08:32] And the shop is still there today, so you can still buy hats from them. Yeah. They're quite a lot. Do you? Right. So that's where the bowl of hat is from. That's very exciting. That is exciting, isn't it?
+
+[00:08:43] Yeah. You're going to turn up next week in a bowl of hat because I can see it. Of the four of us. Just a comically small one, I think. Yeah. Yeah. No, that's already, it's a nice shop. They don't, I don't think they make a huge deal out of it on the shop front.
+
+[00:08:53] No, they don't. And the legacy is huge because they not only sell bowler hats, they sell all kinds of hats. They sold Admiral Lord Nelson, his, what was it called? The Bicorn. Bicorn, sorry. Yeah. The Bicorn that he rode. Yeah.
+
+[00:09:06] Napoleon was the tricorn. You don't want to come to use them. They get very offended. No one with a unicorn hat. Which is insane. And I think that would have, that would have made the Battle of Trafalgar really exciting. Really cool. The element of surprise, I think, in the unicorn hat.
+
+[00:09:22] According to Locke's, it was devised by a pair of people called Thomas and William Bowler. Okay. And they, Edward Cook said, can you make this hat for us to Locke's and Locke's said, well, we'll get our mates Thomas and William Bowler to make it. Now, according to the OED, the bowler hat gets its name because it's shaped like a bowl. Not because it's named after these guys bowler. So I don't want to upset the people at Locke and Co because I'm sure their story is completely true.
+
+[00:09:48] Yeah. I have a question that maybe there's nothing to do with these Thomas and William Bowler people. And if you do look at the kind of newspaper archives, there was a thing called a bowl hat that existed before the bowler hat. And you can see loads of examples of people having their bowl hats stolen and stuff like that. So did the bowlers exist?
+
+[00:10:07] For the brothers? It feels like they were. In fact, they definitely existed. Okay. Thomas and William Bowler existed. And actually there was another guy called William Bowler who existed before them, who was a famous hat maker. So there were bowlers who were making hats for sure.
+
+[00:10:20] But whether these guys invented the bowler hat and gave the name to it, I'm not so sure. Yeah. It's tough. I'm really torn. I'm not going to walk past Locke's shop in case of odd job hat comes in. Do you know what they have on bowler hats that curl at the edge, which I actually never noticed was a fundamental feature of them. What on the brim?
+
+[00:10:41] Yeah. So there's a brim and then it curls very sharply inwards at a 40 degree angle. A little bit. And it's a dorsay curl and it's named after Alfred Dorsay. This is niche, but he was basically, I think he was the Byron of France. He was apparently extremely attractive. He was the handsomest man of his time and he was mates with Byron, in fact. And he, the other time you might have seen him, is he's the model for the New Yorker
+
+[00:11:09] mascot. You know if you, you know on the New Yorker, you caught that bloke who's actually not wearing a bowler hat in it. That's a top hat. He wore a number of different hats. Just literally. But that's him. His face is him, is what you're saying.
+
+[00:11:24] That's his silhouette is him. Oh, a monocle. He's got a magnifying glass, I think, and maybe a monocle. I'm thinking of Monopoly. I'm thinking of Mr. Monopoly. Exactly, I'm thinking of. Yeah. That was actually based on Keats.
+
+[00:11:34] Yeah. Apparently, according to... Glad we settled that. No, Anna, that's a great, that's great knowledge about this dorsay curl. I think let's, let's connect the bowler hat to the New Yorker. Sorry. What was, what was the link? He invented the thing on the, the rim.
+
+[00:11:48] It was named after him. The curl. Because he was a dandy. I guess he was a curly, curly dandy. Wow. That's really cool. Well, it's really cool as a strong term, but it's... It's probably the one thing I'll remember from this podcast.
+
+[00:12:02] We'll be so annoyed about that. The Susie Dent wrote an amazing book about how slang is used amongst different tribes of people. Like taxi drivers and dock workers and stuff like that. And she mentions in that section that Hackney taxi cabs, the height of the cab was based on the bowler hat height for when you're getting in. I, I, yep. It sounds a bit dubious, but I think...
+
+[00:12:26] I don't know what you're saying. I didn't say anything. All I did was pull her face. And the listener didn't notice that. No, but I think that is a rumor that's sort of out there, isn't it? That's... But how can, I thought it was for, I thought Hackney cabs were sort of for top parts because the bowler hats don't really have any height.
+
+[00:12:41] They're the same as a head. That would only add another centimetre or two to the height of the cab. Absolutely, but maybe a necessary extra centimetre. It feels like you wouldn't redesign the whole cab. Well, you've got quite a long torso, Andy, don't you? Or do you have long legs, actually? A short torso. I've got a normal torso.
+
+[00:12:56] Sorry. Long... I've got a normal torso. Long legs. Long neck. Short head. Okay, that's... And that's why the Murray cab, it has a lot of legroom, doesn't it?
+
+[00:13:06] A lot of legroom and then a very low ceiling, yeah. Sorry. You know, before we were talking about bicons, tricons and unicons? Yeah. There is a, what I suppose would be a quadricon. No. And the quadricon is a very... That's too much surprise, Andy, sorry.
+
+[00:13:24] That's awesome. The idea of a four-corner tat does not ruin that. You think that's incredible. Okay. It's up there with Alfred Dorsay. That's the thing I'm going to remember, Anna. I suppose the reason it's interesting is because it is related to this fact, because it's the traditional hat of the Tuanakan people of Bolivia.
+
+[00:13:42] And that is like a really old culture, pre-Columbian culture in Bolivia. And they had these very intricately designed four-cornered hats that sort of the rich people would wear, the intricately designed ones and the poor people were really plain ones. But you'd have like birds' heads, you would stick on there. Some of them had wings attached to them. That's awesome. But that sounds a bit grim. Yeah.
+
+[00:14:06] Like a decapitated bird's head. Maybe. They must have done some kind of, you know, put, pickled it or something. Yeah. It was a different time. It's popular back in the day to put dead birds and things, wasn't it? Valentine's cards and so on. A full bird.
+
+[00:14:17] Yeah. Okay, gotcha. Not just chopping their head off and sticking it on. The bloodied neck sort of hanging off. I think they wiped that away, the birds. I think that's where we get, like, wearing a knotted handkerchief on your head at the beach from this drive. Absolutely not.
+
+[00:14:32] No. No, okay. That would be quite unusual for this culture to come back to life having, you know, gone out before the Spanish came along and then travelled to 1950s seaside hotels. It would be unusual. One of the greatest test pilots in America for wartime planes was a gorilla wearing a bowler hat, smoking a cigar. Okay.
+
+[00:15:02] Okay. And what I've done there is tricked you because actually, because actually it was a man. What's your career? Oh, no, I don't know. I didn't allow you to say that. This is a guy called Jack Valentine-Willems and he was one of the greatest test pilot, pilots that were out there and he used to take out planes that weren't ready, that they were, it was advanced technology.
+
+[00:15:25] Why would you do that? Well, you know, he's a test pilot. He's testing. It is ready, right? He's not taking the plane with one wing. No, no, but you're, sorry, as in, we don't know the limits to which we can push this particular plane, so he would push it to places to see if it worked. He just made it sound like he was sneaking into the hangar at night.
+
+[00:15:44] Sorry. No, these were approved flights. And what he used to do is a bit of a practical joker as he used to bring with him a gorilla mask and he used to bring a polar hat and a cigar and he would fly up to other processions of planes that were flying and he would have that gear on and he would wave at the other pilots. And I think from what I've read, the idea was is that no one would believe anything about the plane, let alone the pilot.
+
+[00:16:07] They came and said, I saw a new plane and it was being flown by a gorilla with a cigar and a polar hat. That sounds a bit pushed for me. I think, I think actually he was just a practical joker. But the idea was he was going to say no one would believe that pilot existed. Therefore, they might not believe the plane existed. They were being tested either. It was interesting that you tried his practical joke on us, didn't you?
+
+[00:16:25] Yes. Because he was trying to make people think a gorilla was flying the plane and you also kind of made us... No, you didn't believe it. Yeah. But it was less dangerous in this context because we're just sitting around a table. Whereas I think making a prank out of putting off pilots flying actual planes is very responsible. Yes.
+
+[00:16:43] Well, then quite a lot of comical, you know, a pilot gets so distracted they fly into a mountain. Oh, yeah. 400 deaths as a result of a comical flying into the mountain. Another death in the army today and man, was it funny. We close our show with this white-hearted story. I think it was picturing the cartoon version. Okay, it is time for fact number two and that is James.
+
+[00:17:15] Okay, my fact this week is that there are no animals in the only zoo in Kalamazoo. What a sad lot of children there must be in Kalamazoo. What? It sounds great. Does it? Oh, yeah. What is that? It's the air zoo.
+
+[00:17:33] It's the air zoo and the air zoo is a museum about aeroplanes which has lots of planes that are named after animals. Okay, because it does sound like the air zoo is what they've called it because all the cages are just full of air. We are like an air guitar. It does sound like that, but actually it's a really awesome air museum. So, planes that are named after animals. So, I'm thinking immediately, I'm thinking the SOP with camel.
+
+[00:17:59] Great. I don't know if there is one of those. Okay. All I know is that there's a war hawk, a goonie bird, a wild cat, a bear cat and a hell cat. These are very American animal plane names. Very American. Yeah, Kalamazoo is in the north of United States of America. Michigan.
+
+[00:18:16] In Michigan. Yeah. The hell cat. Yeah, that's a very, the SOP with camel is a very British animal plane name because that's ridiculous. A goonie bird sounds quite British as well. No, I still think that's a bit of an American. Oh, you've got to see the goonie bird.
+
+[00:18:32] Yeah, you don't. I was thinking goon show. Yeah. Okay. So, yeah, and actually on the war hawk, sorry, you just mentioned that. The person who runs this museum who's called Sue Parrish, she was one of the last 20 members of the Women's Air Force Service Pilots from World War II who still flew planes and she flew a bright pink war hawk.
+
+[00:18:56] That's great. Is she still alive? She was still alive when I read an article a few years, it was from a few years ago. I think she's not. Yeah. And the article actually I read was from the early 90s. So, yeah, she might have died since then. She has.
+
+[00:19:11] So, there's an airport, which is Battle Creek and Kalamazoo Airport. There's a statue of her. Oh, is that? I believe it's at the airport. If it's not the airport, it's someone of the vicinity. I didn't see that. And you can also see her plane, which is, as you said, pink. Kind of cool.
+
+[00:19:25] Do you know I always pink this airplane? Oh, oh, oh, oh. Yes, because she only flew it when it was Red Sky Night Shepherds Delight in the evenings of Calflower's Thing. Yeah. Yeah. Yeah. Not far off.
+
+[00:19:39] Okay. Just wrong, but not a million miles from it. Is it? No, you're right. No, you're right. Please, I've got it. She flew only among flocks of flamingos. Yeah.
+
+[00:19:49] And it was Calflower's Thing. We're getting wrong, guy. Okay. It was because she's a woman and women like pink thing. No, it wasn't that. Damn it. It was because it was originally flown in Libya, these planes, and the landscape, lots of, you know, rocks and sand and quite pink sand and stuff like that.
+
+[00:20:09] And so it just helped to blend into the landscape. Okay. So it's not hot pink? No, it's not hot pink. It's not fluorescent. It's pink. It is quite pink. It's pretty pink.
+
+[00:20:19] Yeah. Okay. Yeah. It looks awesome. And I think that's in the entrance when you go into the Arab Museum as opposed to the airport. Yeah. Yeah.
+
+[00:20:27] And after World War II, she wanted to become a commercial pilot, but she got rejected in letters saying, with your qualifications, if you were a man, we would have hired you Oh, well, that's nice consolation though, isn't it? It's awful. That's the highest praise you can give really. Yeah, absolutely. Yeah. Yeah.
+
+[00:20:43] Basically, I remembered that there was a place called Kalamazoo and I Googled to see if there was a zoo there and there isn't, but there is this place. I didn't know anything about Kalamazoo before starting to research it. Apart from, of course, the Glenn Miller song, I've Got a Girl in Kalamazoo, 1942. Put on the map. Internationally. It's named as one of those places which has a funny name and no one really knows where it is or if it's real and it's kind of, you know, it's lumped in with places like Timbuktu,
+
+[00:21:07] which I have an interesting... I wonder why. It's like... Exactly. ...of your writing songs. Exactly. But Kalamazoo, get this. I'm only getting in with this fact before you guys all do, because I know you'll all
+
+[00:21:16] have it too. Yeah. Was the first place in the world to install dropped curbs. Is that a curb where you can get like a buggy down, you mean? Like it goes flat. Yeah. It's as it sounds. Wow.
+
+[00:21:32] So you can get a buggy down. That's quite amazing, isn't it? I know. Do they have a blue plaque there? They must be. Well, there are lots of claims as to what, you know, there are other cities which trans steal Kalamazoo's thunder. Right.
+
+[00:21:43] They're all, I think, incorrect. I think this was the first city where you had dropped curbs. How deep have you had to dig for this? It's just a full day's work. There was this veteran from the Second World War who was Jack Fisher, who was an advocate for both veterans and disability rights, and he trialed them. In America, they're called curb cuts, and they were first tried out here. That's incredible.
+
+[00:22:04] I know. What year were we talking? I think it was the late 40s or early 50s, and there are other places which tried them in the early 60s. Yeah. There was another thing in the 60s, and I think in America, there was some disability activists who hacked away at curbs at night and laid concrete to smooth their path. Oh, what's that?
+
+[00:22:23] That makes sense. Yeah, yeah, yeah. They only did it on a few occasions in a few places. When you say he tested it, what's interesting about it is it feels it doesn't need testing. It feels just logical, right? It just doesn't. What do they think might go wrong? Well, I guess it's never been number four, and he's just pointing out, look, this would
+
+[00:22:38] make it a lot easier for lots of people to get around if you install these things. So they say, all right, well, we'll install a few, and then obviously you just see how it works. I mean, things that can go wrong is it allows dickheads like me to pop your bike up on the pavement while you're cycling and really upset pedestrians. He didn't think of that, did he? No. I don't know.
+
+[00:22:56] Same with my car. Kalamazoo originally was called Bronson, and it was because a guy called Titus Bronson was the first white man basically to arrive there and set up a town there. And then, yeah, he turned it into a place where the streets were kind of named very obviously for the thing that they were operating as. So there was Church Street, where you'd have three churches on there. There was the Academy, which had the college on it. There was Jail Street.
+
+[00:23:26] Jail Street. What's that? It makes sense, doesn't it? Yeah, it makes total sense. You know where everything is. Yeah. I think the church one is weird, because I know that, so there's a thing in capitalism right where if you've got a shop that sells a certain thing like baby clothes, then you
+
+[00:23:38] have lots of shops in the same area, they cluster, because that works. Like the Curry Mile in Manchester with all the Curry houses. Exactly. But churches, you rarely are like, well, we've got to fit 10 churches into this county. Shall we just put them all on the same street? Yeah, absolutely true. It's interesting. The story goes that Bronson was in Detroit and he walked west into the woods and he kept
+
+[00:23:58] going until he got out of the woods. And this was where Kalamazoo was. He walked, it's 140 miles walk until he got to any kind of clearing. There's this, we're not quite sure why, but he definitely left town at one stage. Now he might have left town because they changed the name to Kalamazoo, or he might have left town because he stole a cherry tree. Yeah. He was run out of town.
+
+[00:24:20] The cherry tree. There are different stories and it's not clear what's what, because if you look at contemporary reports, neither of them is mentioned. But there is a 1909 headline from the Detroit Free Press that says, because of the name of the village he founded was changed to Kalamazoo, Titus Bronson died of a broken heart. And so when they changed the name, apparently it hurt him so much that he died. They have gone by a lot of different names. They used to be called the Celery City.
+
+[00:24:48] They grew a lot of celery. They grew a lot of celery. One came over and grew celery there. Actually it was a Scott, I think, or George, apparently George Celery Taylor, he was known as. But you know how you never know if people were actually called that at the time? Like the bowlers from earlier. Like the bowl?
+
+[00:25:03] No, that definitely was them. Yeah, but that could have been like the trade that then became the name. No, but they didn't name themselves out of the hats. They were, I'm saying we don't know. I'm saying we do. Ah, okay. Well, there we go. One of the reasons that Kalamazoo is mentioned in a lot of songs.
+
+[00:25:19] So you mentioned, who do you mention? Glenn Miller. Glenn Miller. So Kalamazoo in other songs by Frank Zappa, Ben Folds, Johnny Cash, The Black Keys, who I know you like. I think there's Kalamazoo mentioned in there. And I think one of the reasons is because Gibson guitars were made in Kalamazoo. Yeah.
+
+[00:25:35] And loads of famous people, Chuck Berry, Eric Clapton, Cheryl Crowe, Bob Dylan, all people use Gibson guitars. And really interesting thing about the Gibson's is the Gibson Girls. Now during World War II, the Gibson guitar company was still making guitars. But the thing was they didn't have anyone to make the guitars, right? Because all the men had gone to war. So what they did was they brought in all the local women to make these guitars, but they denied making them.
+
+[00:26:02] And the reason being that they thought that one, if we told people we're making guitars during the war, people would think we're being really frivolous and we shouldn't be doing this kind of thing. But secondly, they weren't sure whether people would buy guitars if they knew they were made by women. Right. And so they sold them as what they called new old stock. So they pretended that these were old guitars that they had in stock and they were selling
+
+[00:26:24] during the war. We're not making them during the war, but actually all these women were doing all the work. And they also sometimes said that they were made by seasoned craftsmen who were too old for war. Yeah, right. Wow. I mean, not brilliant, obviously. Sorry.
+
+[00:26:39] It's a good mark. You can appreciate the marketing. Oh, yeah, yeah, yeah. And did the women who were making them leave any kind of clues as to the fact that inside did they write? Drop a tampon into the body of the tampon and they use tampons and they're just rattling around in there. Yeah.
+
+[00:26:55] That was the key to their individual sound, actually. Just a couple more things on Kalamazoo, a notable person from there, William Shakespeare Jr. And what I did there was trick you to make you think. It was actually a gorilla. It's actually a gorilla. He's William Shakespeare Jr. He was an inventor, quite a notable inventor there.
+
+[00:27:21] So he was around in the 1800s and he invented what's known as the Shakespeare fishing tackle, which is a really big thing that's still used today. Do you know it? No, I'm just trying to think of a pun. Yeah, so yeah, fishing tackle, lots of innovations of that sort. He had patents for camera equipment and so on. Is that cast casting now? Oh, yeah.
+
+[00:27:47] You could say whatever you want now for the next five minutes. Yeah, I'm trying to find your time. Okay, no, I've joined now. Anna, you take over. Anyway, let's go. God, astonishing, you run through his plays. There are almost no fish puns. It's bad, isn't it?
+
+[00:28:03] Yeah, yeah. Amidst some nice bream. Very good. Nice, there you go. There you go. Thank God. Can we move on? Is that...
+
+[00:28:11] No, I think we're still doing it. Go on, Andy. Macro Beth. No. No, that's nice. That's great. That's good. Yeah, I like that.
+
+[00:28:21] Take it. Yeah. As you pike it. Oh, very nice. Lovely. Telling off, you guys all got one. Oh, gosh. If you have one at home, then why not send it to Andrew Hunter M?
+
+[00:28:32] Okay, it is time for fact number three, and that is Andy. My fact is that some American gravestones feature recipes. Yummy. Yummy. I've had a cook the human below it. Yes. This is a thing that happens sometimes in the States. The original wording of the fact was lots of American gravestones contain recipes, and
+
+[00:28:59] it was pointed out that there are about 11 so far. There was a query over whether that's technically lots or not, which is fair. But there are people who have made it their hobby to track down all gravestones which feature recipes and bake them up. It's especially big on places like TikTok. There are lots of grave people on TikTok, and they're nicknamed tapophiles, which is people who love graves and cemeteries. It's on TikTok, because I haven't been on TikTok.
+
+[00:29:29] I didn't realise it was that. I thought it was like dancing and stuff. It's not all of TikTok. There's a lot. Again, when I say lots of people on TikTok do it, some people on TikTok do it. It's more effort than filming a dance, but it's not really interesting. I like TikTok tapophiles. It's a nice licorice, isn't it?
+
+[00:29:46] Yeah. Worth becoming one. Yeah, and these grave recipes, some of them date back decades or further than that. It's not like TikTok. It's like what do you call that thing that reminds you of death? The pendulum. The reaper. Oh, Memento Mori.
+
+[00:30:03] Memento Mori, isn't it? So whenever you think about TikTok. TikTok. Is it a very morbid place, TikTok? I think so. Is it one big Memento Mori? It's just thinking about the number of seconds you have left. Yeah, the number of seconds you spent watching this crap.
+
+[00:30:18] Yeah. Wow. Yeah, so people are doing it on making up the recipes and then showing them on their TikTok videos, right? Yeah. People are going around doing that. Any examples? Well, there's a lovely fudge recipe.
+
+[00:30:31] There is blueberry pie. There's yeast cake. But it doesn't always work. Sometimes there was one gravestone which had a typo in the recipe on it. Oh, no. I know. And it would have made very runny fudge if you made it according to that. What was the typo?
+
+[00:30:48] I want to know what typo is it makes runny fudge. It was too much vanilla. Oh, really? But it's a tablespoon as opposed to a teaspoon, I believe. That's not going to make it that runny. That's not much difference. It's not like a kilogram versus a gram. Because you don't put much vanilla in a fudge recipe, do you?
+
+[00:31:05] It's just a tiny amount. Well, that's why. Because if you do a tablespoon, apparently it turns out vapor. Anyway, they corrected the entire gravestone off the back of that, which is a relief. Would you, yeah, try to work out why you would do it. Do what? Put a recipe on? Yeah.
+
+[00:31:23] Well, people like to be creative on their gravestones, right? It's a really fun thing. And passing down your great recipe, I think. I think that's what it is. I think it's something that matters to you. Something that's traditional. Something, a recipe you might have inherited from the generation above you. I see it.
+
+[00:31:38] People like to pass on recipes to the next generation, don't they? I guess it's very little you can pass on. You might pass on a series of dance moves. I'm trying to think of something else you might pass on to the next generation. But your right recipes are probably it. Dance moves. Your grave is encouraging people to dance on your grave. You can have a set of those footprint outlines.
+
+[00:31:57] Like they have a Japan... I was thinking like, you know those games that you play in Japan where you can dance? Oh, yeah, yeah, yeah. The arcade games, yeah. What were they like up? Well, I was just thinking, I'd like mine to be kind of like that MOLWACA game. So you put a coin into the grave and then my head pops out from one of the... You got to slam it with a hammer, then my arm comes out another and then my leg and...
+
+[00:32:16] It'd be so annoying if you're one of those people who wasn't actually dead and tries to escape from your grave. You'd be constantly malleted down. You guys don't... But I think it's great. I mean, there are so many gravestones around the world where people as their sort of like last wish have said, can you make this happen? And people do and they're beautiful. I've read a great one.
+
+[00:32:37] There was a 99 year old woman who in Mexico, her dying wish was for her gravestone to be made according to what she loved most in life. And so she got it. It was a 600 pound five foot tall penis. But just a giant penis. What she loved in life, a five foot penis. She loved calling people dicks in life, apparently. And that's what she asked for. And I've seen the video of them unveiling it.
+
+[00:33:03] It looks like it's got a giant condom over the top of it, which is then removed. It's a huge pink penis, like five foot five. But unfortunately, if you're in Libya, you couldn't see it. The testicles, apparently, they really had a lot of problem with. Because the bull sack apparently kept just disfiguring during the melting process of the actual materials, which was I believe plastic. And so they had to like build the testicles quite a few times. And they're big balls when you see it.
+
+[00:33:29] So it's sort of standing up. Right. So is this a churchyard or cemetery? Yeah, it's in a cemetery. But surrounded by other. I can imagine being slightly annoyed if I had the grave next door. Totally, absolutely. By that time, it can't be annoyed.
+
+[00:33:44] No, it's true. I know you're an easily annoyed person, Andy. But I reckon that after death, you're not going to be under there going... He will. If I can, I will. That's what it's going to say on his tombstone. I'm so with you, though, if I was a relative of someone who'd been buried next to that, I would find that so irritating.
+
+[00:34:05] But this is what happens a lot in the UK. Certainly, so many graves are the traditional, whether it's slate, or normally it's grey stone and it's carved, and it's all down to the individual church or individual local authority. And so there's this man, you know, if you want something out of the ordinary, you might get it approved, but you really might not. Well, like shape-wise, like a big penis. Well, shape-wise and colour-wise, and there are rules about what you can and can't carve,
+
+[00:34:32] but there's no one authority in the UK which tells you what you can and can't get. It feels like we shouldn't have that, and it does feel reasonable to say no penises. I agree. I agree. Definitely. Well, on that, and gravestones, there's an amazing cemetery in Paris, the Père La Chaise Cemetery, and it's got loads of good graves in it. One of them is the grave of Victor Noir, who was a 19th-century journalist,
+
+[00:34:56] and he wasn't that famous in his lifetime. I think he was shot by Napoleon Bonaparte's nephew in 1870, and loads of people suddenly went to his funeral because it became this kind of political cause, but for some reason we don't know why. His effigy, so on his gravestone there's a big bronze effigy of him lying down, it has a bulge in his crotch. Oh, yes. It's quite tight trousers, lovely big penis bulge,
+
+[00:35:20] and what's so rank about it is that it's a bit like, you know, there's Greyfriars, Bobby and Edinburgh, the famous dog statue, and everyone always rubs its nose for luck, so that's really shiny. And in the same way, everyone keeps rubbing and mounting and writhing against this crotch, so it's incredibly shiny, and not only that, it's not just the crotch, but his lips and nose. Well, the kiss's lips, yeah, the kiss's lips aren't the right ones. I know what they do to his nose. Because that's not just rubbing, they've mounted fully.
+
+[00:35:50] Yeah, so it's a fertility thing, you go and you do that if you want to get pregnant. People say that, but it's not, it's people going for a joke. Everyone's like, this is 20th century, this is people going to France and going... It's for Instagram, isn't it? There is a sign that says any damage caused by graffiti or indecent rubbing will be prosecuted. Oh. It's all indecent rubbing. It was decent rubbing, yeah, that's actually a better question, yeah.
+
+[00:36:15] But I always think with these, they would be the best place for like a zombie apocalypse to start, where there's loads of famous people. Oh yeah, that would be a great feel. Or like Westminster Abbey, that's where you want your zombie apocalypse to start, isn't it? Where all the famous people are buried. I think Jim Morrison is in the one you were just talking about as well. Great, yeah, perfect. I believe, that's really good.
+
+[00:36:33] Because that's a good mix. Westminster Abbey is all a bit like Royals and Nobles, isn't it? But if you went to this one, you get rock stars, you get authors, weirdos. More like the doors to hell have opened. Yes, yes, more like that. You've redeemed yourself. Fish gate is forgotten. Speaking, as we were earlier, of people doing inappropriate things in graveyards.
+
+[00:36:54] Yeah. Do you guys know about the bustuary? The bustuary? No. They were sex workers in Rome in the first century AD, and they applied their trade in cemeteries. Oh, naughty. Yeah, so in the daytime, they were professional mourners. Okay.
+
+[00:37:11] But in the nighttime, they were sex workers, and they would write on the gravestones what the prices and stuff like that. They used them like phone boxes. A little bit, yeah. And people would go and, you know, they had very pale skin and severe expressions, and they were kind of quite gothic looking in and of themselves. There was one called Noctina who would sleep on the graves and cover her eyes with coins. And then they were also prostitutes.
+
+[00:37:41] That feels like she's encouraging some worrying kinks. I'm afraid that there was some of that. If you read Marshall Juvenile and Catalyst all talk about it, and apparently there was some of this. Bloody hell. The fact that they're professional mourners in the daytime, you know, that's sort of, and then at night time, basically, the morning garb comes off in the saucy. And then in the morning, the morning garb goes back on.
+
+[00:38:03] Oh, yeah. And they had this weird thing in Roman tombs which were called libation tubes. Have you heard of this? No. It's so cool. These are terracotta tubes that go down into the grave from ground level and they're deliberately so you can give the dead a drink. Yeah.
+
+[00:38:18] Oh, yeah. That's so sad. You're going to mine into them. Yeah. It was just a pipeline right down to the mouth of the dead. Was that different to the sausage one? The sausage pipe. I don't remember the sausage pipe.
+
+[00:38:29] We did talk about that. That's rigged such a fake though. Was it the sausage pipe? John Bonderson wrote about it and buried alive. Yeah. There was a, I think that the idea was if you were buried alive, you had a string that you pulled and it would ring a bell and they would come and get you and say, we're coming to get you out, but here have a sausage until then.
+
+[00:38:46] And they would pop a sausage down the sausage pipe. So you had some sustenance while they were. A cooked sausage. I didn't say I assume a cooked sausage. You don't want to give them food poisoning while they're down there. He died of botulism while we were getting the spade. A fast-acting lethal sausage. Yeah.
+
+[00:39:03] You know Petta, the animal rights. Yes. Organization. Yeah. They did a thing a few years ago. They bought a tombstone in a cemetery for one of their colleagues. It was called Matt Prescott. But it was, they bought a tombstone in a very specific place.
+
+[00:39:21] They bought it right near Colonel Sanders. Oh. Tombstone. Yeah, yeah. And it had a message on it. It was a little poem that they'd written for their colleague Matt. And it was an acrostic. And the first letter of every line spelt out the phrase KFC tortures birds.
+
+[00:39:38] Wow. I know. My favorite gravestone is an acrostic. Oh. It's awesome. It's for a guy called John Rene, R-E-N-I-E, Rene or Rene. And what it says on it is it says, here lies John Rene. But then it says it basically 45,760 times in total.
+
+[00:40:01] Because it's an acrostic that goes 19 squares across and 15 squares down. And everywhere you start reading it, you can make, here lies John Rene along this box of it. Cool. And the total that you can add it up to is, yeah, 45,000. So it's like the second line. It reads, here lies John Rene. Like that, doesn't it? Yeah.
+
+[00:40:24] And then the next one is slightly different. The next one is slightly different. So you can read it down diagonally. Exactly. Like the world's most boring word search. So cute. But just great. It's such an amazing thing to look at.
+
+[00:40:36] The guy who first formulated pi to 35 places was a German mathematician called Ludolf Van Soylen. And his gravestone reads 3.14159-265-3589-7932. Amazing. And what is that? If it isn't a recipe for pi. Okay. It is time for our final fact of the show.
+
+[00:41:06] And that is my fact. My fact this week is that doctors used to prepare their patients for surgery by either getting them really drunk or smacking them on the head with a mallet and hoping they didn't kill them. That's back in the day. When are we to which day? This is in the 1800s. This was in the top floor of America's oldest surgical amphitheater as it's known.
+
+[00:41:33] This is in the Pennsylvania hospital. And I guess what's so surprising is how late in the day this was happening. This is in the sort of mid-1800s. Mid-1800s was when we had, I take a lot of credit, but we had got like some aether chloroform stuff was starting to happen. And a lot of them weren't fully accepted though. So it definitely was around at this time. But this hospital was like, not into it.
+
+[00:41:55] We'd rather hit you on the head. Happened in Britain as well. There was a guy called Henry Hill Hickman who used to try suffocation to get his patients. So this was a thing and the drunkenness hopefully would see them through an operation as would such a massive hit on the head. Some of these operations were very quick weren't they? They were amputations and stuff. They were trying to do them in the matter of seconds.
+
+[00:42:22] In fact, that seems to be the most effective method of pain killing up until they found ether and stuff was just speed. And there was, we talked about my QI. You'd love it then. Just getting people incredibly anxious before the operation. Was yeah, doing it within a short amount of time. And we've mentioned Robert Liston on QI, but his, he was a famous 19th century surgeon and his catchphrase was, time me gentlemen, time me.
+
+[00:42:48] And there's a huge amount of showmanship to his surgical performances. It's a good catchphrase that. It's a good catchphrase. And it would kind of reassure you. If you're having your leg cut off, you want it to be quick. And he used to brag he could amputate a leg in 25 seconds. Wow. And his chances of dying, because he gets a lot of stick these days for being all about
+
+[00:43:08] the show and that's about the safety. But you only had a one in six chance of dying, which was quite good for surgeons then. And there was one great, the best story about him, which I'm pretty sure we looked at when we did QI and is probably not true. But it was reported that he once was so focused on doing something incredibly fast that he's amputating a limb and he accidentally at the same time cut through his associate nurse's finger on the way. And so both the person who's limb was amputated and the person who's finger he amputated
+
+[00:43:40] died pretty quickly afterwards. And also someone who was watching died of shock. And it's always recorded as the only operation with a 300% mortality rate. Wow. Great story. It's a strong story. Don't check it ever. That's a comical ending.
+
+[00:43:57] Like an airplane going into a mountain. That's comical surgery. That's comedy. You're right. That's yeah. Just on the sort of reputation of surgery back in the day. Yeah. And this is a fact actually got sent into us from Sarah on Twitter.
+
+[00:44:10] So thank you Sarah. It was about the operating theatre in Aberdeen. Okay. And there used to be above the door to the operating theatre in Aberdeen the words prepare to meet thy God. Oh God. It was such an uncharable thing to read. Wow.
+
+[00:44:26] And it was all about this surgeon called Alexander Ogston who worked there and he discovered Staphylococcus which is a very big common bacteria for getting like infections and abscesses and pass and all of that and really dangerous staphococcus. And he was so inspired by antiseptic zeal that he returned and he pulled the side down and burned it on one occasion. Wow. It was a very, very religious place to have your operation. I can imagine.
+
+[00:44:53] So the one that I was talking about in Pennsylvania, the surgery itself had a sky roof basically. So there was a dome at the top and it was glass. So they would do all the operations in the day and natural light was what was giving them. Lovely. And the surgeons will take off their robes and show you a good time. They would write their prices on the patient's screen. They did have anesthetics before then, various types throughout the world. A Chinese physician called Huatuo.
+
+[00:45:26] I'm sure I'm pronouncing that wrong. Apologies if I am. But from 140 AD to 208 AD. This guy, he would use something called a mafeisan, which is cannabis boil pounder. So he gave it to the patient. And apparently it was so good. There was a guy called General Kuanyu and he was wounded by a poison arrow and he was sort of given some surgery to try and bring the arrow out and clean the wound.
+
+[00:45:55] And the general played chess while his bone was being scraped clean. Wow. Because his concoction was so good. But did he win the game? He just kept whacking the pieces off because he was in a savage pain. Yeah, we still don't know how they work. Yeah, crazy. I find there's so much momentum.
+
+[00:46:14] We don't know how or why it works. It's just we kept trying and this one stuck. I mean, it's people speculate that this is general anesthetic. So what puts you to sleep? Speculated that it dissolves some of the fat in your brain cells. So it stops the cells activity. There's just been a study that found out that one particular anesthetic maybe weakens the transmission of signal electrical signals between your neurons
+
+[00:46:39] in like the higher functioning parts of your brain. So that's why it will knock you unconscious, but it won't stop you breathing because the lower functioning parts can still keep going. But yeah, it's so weird that we don't we just accept it works. But I like before another anesthetic. I don't know how my microwave works. But someone does. Yeah.
+
+[00:47:02] That's great. Sorry, when I say we, I don't just mean we couldn't be asked to research it. I mean, even the scientists can't be asked to find out properly. But another ancient way of anesthetizing people was electric rays. The eels. Yeah, yeah. So these were used in ancient Rome. It was like torpedo fish.
+
+[00:47:23] I think we've talked about before would give you a real electric shock. And it was treatment for gout. Or it was if you wanted to numb an area and you needed to do something to it. It was recommended that you stand on the shore and you let your legs be washed by the sea as various electric rays wrapped themselves around it and wait for them to electrify you. If you were just stood in the sea, you would need to, you need to bring them to you, right? You wouldn't, they wouldn't just naturally sting you. How are you attracting them?
+
+[00:47:50] Yeah, yeah. Yeah, maybe drop some food for them. No, wait, are you the food? Well, kind of. You could maybe cut your legs so there's a bit of blood in them. Yeah, nice. Then awful if the shark comes before the eels. So they quickly, they would shock you.
+
+[00:48:08] You would go numb. They would carry you out and then. And then they can do a treatment on you like cut off. Like cut off your legs. All that for a bunion. My God. Jesus. You know how in the very first episode of this podcast, we talked about,
+
+[00:48:23] how you want to remember? We thought, yeah, I took President Garfield's. President Garfield's anus. So I have a related fact to this. Yeah. I think you should quickly explain that for anyone who can't remember 460 episodes ago. So this is the fact that for the last, was it month of his life? Three months, I believe.
+
+[00:48:39] Three months. President Garfield ate everything through his anus. And that's because he'd been shot and he wasn't able to eat through the mouth. And so he was fed through the bump. So the American president usually hands over power when. Yes, he does. But in Donald Trump's case. You're so right.
+
+[00:49:00] Donald Trump is the outlier here. James, that's exactly right. So, okay. Normally, when the US president, always a man so far, has a colonoscopy. Which is a procedure. And you're a bit older. They put a camera up your bum and they just check what's going on. Normally a small camera on a little wire.
+
+[00:49:19] Not like a big long lens paparazzi camera. And it's a very common thing. So Joe Biden did it in 2021. Handed over to Kamala Harris for the half an hour, couple of hours of the anesthetic. George Bush had it twice and both times handed over briefly to Dick Cheney. There was a report a year or so ago that Donald Trump underwent this procedure. But he refused to have the anesthetic because he didn't want to hand over to Mike Pence. However briefly, the reigns of office.
+
+[00:49:48] So he just sort of barebacked it. One chance they thought they had to silence Donald Trump for a couple of blissful hours. That's really interesting. I've got another thing about putting stuff up the bum. Oh yeah, if you want to hear it. So this is about the first woman physician to specialize in anesthesia who's called Isabella Herb. And she was the first person to use ethylene as a general anesthetic. And there were two main ways that she'd get you out of the anesthesia state.
+
+[00:50:20] One of them was to give you strychnine, which would apparently help. Presumably not that much. And the other one was the installation of warm saline solutions to the rectum. Installation. So if you were under because of this ethylene, then she would squirt some salty water up your bum and it would get you out of the... Sounds kind of pleasant. Although is that not the thing that makes you wait yourself?
+
+[00:50:44] No, that's the thing for you. I think that's putting your hand in a bowl of water and not... I've got to agree with your bum in it though. Something happens. The interesting thing about ethylene and a problem that she had was that it does explode quite easily. And so what she did was she had her operating theatre and they had very, very high humidity because apparently that helped you because there's slightly less oxygen in the air, so less likely to explode.
+
+[00:51:11] But also because it was an early time of having electric lights and stuff like that, they grounded everything in the building. So the table where the person was being operated on. And in fact, everyone kind of had things attached to them. Do you remember we talked about this big spike that people had on their heads? Yeah, everyone had electrical conductors to conduct the charge. So basically everyone was wearing these wires and they attached to the pipes around the room, the water pipes, so that if there was any kind of spark in there, instead of setting off the ethylene,
+
+[00:51:43] it would go into these grounded things and then go down into the building. Isn't that amazing? That's really cool. That's a great name. Imagine when you fill in the forms before you do an operation where you say, I understand that I might blah, blah, and blah, blah. Imagine just that. I understand there's a 30% chance I'll explode.
+
+[00:52:00] Yeah. Yeah. Just on doctors sort of beating patients around us, this mallet people did in the fact. August Beer was the person who came up with the first spinal anesthesia. That was in the 1890s, 1898. And so that was injecting cocaine into your spinal cord, was the first spinal anesthesia. And he wanted to work out how much you really needed to inject, because if you injected too much, had bad side effects.
+
+[00:52:27] And so he thought, OK, well, I'm going to test it out on myself. And so he asked his assistant, also called August, to inject him. The funny must have heard. To August. I mean, a very non-August time. And so his assistant injected his spine. Sadly, his spinal fluid started leaking out quite drastically, and so they had to stop. So he said, do you mind if we swap?
+
+[00:52:49] So the August swapped. And his assistant said, OK, you try it on me. So August, the assistant, lies there. And August Beer jabs him with the cocaine. And then tests how high his pain threshold is. And the account is just incredible. So he starts by tickling his feet. Quite pleasant.
+
+[00:53:08] Couldn't feel anything. And then he jabbed a large blunt needle into his thigh. And then he got a larger blunter needle and put it in down his femur, apparently. And he's awake through this process, his local anaesthetic. So he's chatting away and having a great time. He got sharp forceps and crushed his skin up. He burned a cigar out on him. He yanked all his pubic hair off.
+
+[00:53:35] And then just... In one go? That was just for fun, wasn't it? He asked for a wax and you might as well two birds one stone. He actually yanked his pubic hair off and then did the chest hair for comparison. Just to say, see, it would hurt if, you know, if you weren't anesthetized. Hit his shin with a hammer, squeezed his testicles very hard. Squeeze his testicles.
+
+[00:54:01] So look how impressive is that? I think he compressed his testicles between two plates, didn't he? And then just kept squeezing, squeezing, squeezing. I remember reading about this, yeah. Well, they had a big feast afterwards, so maybe they ate off the testicles. Oh, my God. So afterwards, was it just broken? How did you, how did that go for you?
+
+[00:54:22] Oh, it's absolutely fine. He was a bit bruised, as it wore off. But he was, they had, they wind and dine and cigar together and... Cigar, I won't let cigars anywhere. Some people wake up in the middle of a general anesthetic. And it sounds awful. The good thing is you almost always forget afterwards. So I spoke to someone who carries out anesthesia quite regularly
+
+[00:54:51] and says sometimes patients get chatty during procedures and you can just tell them to shut up and be really rude to them because they won't remember after the operation. One patient had been going on and on about their job, I think, at NatWest and how interesting it was and they just had to say, look, just shut up please. That's so funny because when I last had general anesthesia I thought, I'll just have a chat because I've not met an anesthesia expert before and I just started chatting to him and then went under.
+
+[00:55:17] And now I'm realising that as soon as I went under, he's like, you boring bastard. You wake up with no pubes, right? Yeah, but normally you don't remember it, but sometimes you do remember it and you can't move because the drugs are paralyzing you. That sounds like the worst thing in the world because you wake up, you know what's going on and you can't do anything about it. And all you can hear is the anesthetist going, oh, I shagged your mum.
+
+[00:55:46] Fenella woke up after she had surgery where she went under general anesthetic and she woke up and was quite tired and they didn't realise that she was awake. This is post-surgery, they were moving her away and all she heard was a conversation about how much the doctors enjoyed no such thing as a fish. The worst possible nightmare. She was like, oh, Christ. I'll put you back under.
+
+[00:56:15] Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland. Andy. I'm at Andrew Hotter M. James.
+
+[00:56:29] Hannah. You can email podcast.qi.com. Yep, you can go to our group account, which is at no such thing or a website. No such thing as a fish.com. Check out all the previous episodes from No Such Thing as a Fish. They're all up there. You can also find your way into Club Fish. There's lots of bonus content up there.
+
+[00:56:44] Check it out. It's really awesome. And otherwise, just come back here to our free podcast that comes out every week. We'll be back again next week with another one. We'll see you then. Goodbye. Bye.

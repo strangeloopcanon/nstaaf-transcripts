@@ -1,0 +1,365 @@
+# No Such Thing As A Fish - 486: No Such Thing As Purplue
+
+- Episode date: July 6, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/486-no-such-thing-as-purplue
+- Slug: 486-no-such-thing-as-purplue
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of Fish, where we are joined by the wonderful Sophie Ducar. Now if you don't know who Sophie Ducar is, where have you been? Certainly not watching season 13 of Taskmaster, that's for sure, which is the season that she won. She is also one mastermind, she's a regular on our television, on all of the panel shows, and she was absolutely brilliant on our television, on all of the panel shows, and she was absolutely brilliant on our show.
+
+[00:00:27] If you want to learn anything more about Sophie, the best place to go is to SophieDuka.com that's SOPHIEDUKER.COM. And actually she also has a comedy night known as Wacky Racists, which is coming to the Hackney Empire on the 26th of October. That will be hosted by Sophie and will include Nish Kumar and all sorts of other guests who are yet to be announced. That will be a brilliant night. You should definitely get your tickets for that. But like I said, any information on Sophie, the best place to go is to SophieJuica.com. Very much help you enjoy this week's show. I will bore you with adverts for upcoming live shows or for club fish. You know where to go if you
+
+[00:01:12] want to get involved with those. For now, let's just say on with a podcast. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hobern. My name is Dan Shriver, I'm sitting here with James Harkin, Andrew Hunter Murray, and Sophie Juka. And once again, we have gathered around the microphones with our four favourite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, that is Sophie. Oh my god, my fax is! During their mating season, male camel stomachs actually shrink so that they can concentrate on chasing females.
+
+[00:02:09] That's incredible. Brilliant. So they need to stop less for food or is it what is it? I think it's so that they look fit. Yeah. Really? Is it like breathing in and sticking your chest out? Or sucking your your sore throat? They have got three stomachs haven't they? So it will have a good effect if they suck in all three stomachs.
+
+[00:02:30] Wow. Sadly I don't think they suck in this. I think they suck in this so it's going to be kind of more agile and literally chase women. Oh wow. I totally bought the first reason. I think it's required. I think it's going to be faster because there is think it's required for a while. I think it's so difficult. Because there is quite a disgusting display that Camel's do when they are,
+
+[00:02:48] a male Camel's do, sorry, female Camel's are angels. A male's a disgusting, right-life, yeah. Yeah, yeah, yeah, yeah. So talking about the toxic male Camel, toxic male Camel have this thing that they do when, also during their mating season where they blow up their soft palate. So, I don't know exactly how they do it. I'm not a camel, but I'm very culturally aware.
+
+[00:03:11] And some people think that they've thrown up their stomachs or part of their mouths, but it's actually like they blow up their soft palate. So, that this huge, bulbous pink listening thing hangs out of their mouths, and it looks almost exactly like a pair of testicles. It really does. It's so disgusting almost exactly like a pair of testicles. It really does.
+
+[00:03:26] It's so disgusting. I saw a picture just this morning. I thought of it that way, but yeah. Yeah, I did. You see, again, testicles are disgusting? Oh, yeah. Yes, yeah. Oh, not happening, though.
+
+[00:03:35] There was a study recently about how attractive testicles are, and they showed a load of images of scrotums to women and asked them to write how attractive they were. And in the abstract of the StarVet, it said, we were unable to say that any scrotums were attractive. We were only allowed to say which was the least unattractive. Oh no! Were they all human? Don't stop you, it's very serious. I should say they were all human testicles. Some people are getting those smoothened. If you get some Botox in there. You can have a smooth ballalsac care. Oh, yes, I can. Yeah, yeah, you can do that. I don't think any Botox grow tie were part of the study, right? And also then it's so much harder for them to be expressive, which is a real shame. So, no, that, that bag
+
+[00:04:19] that they have, the one that you're talking about, some of the sort of, is it called the Dullar? Yes, but yeah, I didn't know how to pronounce it, so I had to do the full for that. But the camel can close its nose to avoid, I think, sand in a desert storm and things like that. And I think it closes its nose and then just breathes out into the bag. You know when you're trying to make your nose pop, is it a bit like that? Yeah, I was thinking you're trying to equalise on the legs. Because we don't do that. We try to pop our ears, we try to pull so it comes out of our mouth. Actually, you're not meant to do that. We've tried Puffer years, we've tried Paul's set, comes out of our mouth.
+
+[00:04:45] No, but you're actually not meant to, I didn't know if you're not meant to do that out of the water. That's meant to be like a dive if someone told me. Oh, really? So maybe if you did it hard enough, you would, yeah, yeah. You do, the woods flop out. But it's a mess, it's a, that, that sack that comes out, that is seen as quite a sexy thing towards the female camels.
+
+[00:05:03] It's, and they, and they draw foam at the same time. It's like, oh, I know it's wrong because it's sort of saying I find it disgusting, but obviously it's an animal thing and you know, but in this case it's just disgusting. I think it's fine. Even these days to say that something that an animal does is not attractive to you, I think that is allowed. But I find everything else animals do really sexy. They urinate on their own tails, don't they? Hot, see?
+
+[00:05:27] Yeah, it has that for scent. Yeah, to lay down the scent, lay down the pheromones. And then they flick it up like a little... I don't know if that's just because they're dicks. They're like they're flickin' up a little shower of it. There's something else they do during mating season. Oh yeah. Which is...
+
+[00:05:43] Oh, sorry, I'm sorry, I'm sorry, I'm sorry, they must do, they must do otherwise. So this is a study done in Saudi Arabia or maybe the UAE, but this is deceitful behavior by male camels during mating season. So they wait for the cover of darkness and their males will lie down and they'll pretend to go to sleep, but they're not asleep. They're just waiting for a female to be lulled into a false sense of security. I know the male's pounce of them. It's not great. No. So I know anthropomorphism isn't also not the point, but then the females respond by biting the male's knee joints if they're not interested, which can give them arthritis in the long run. Ah, okay. so if you ever see an old camel with arthritis,
+
+[00:06:25] it means in his younger days he was a sex pest. Yeah, that's exactly what it means. Yeah, I saw a sex video the other day of camels having mating. You saw what, sorry. That's for a video. Like, yeah, like just what? Was it part of this research, or just? Yeah, yeah, yeah, yeah, yeah.
+
+[00:06:40] I mean, I would have got to it anyway eventually, but so this footage was because two camels, I think it was in Debali, Rabidabbi, just were doing it in the middle of the road. So traffic was held onto. Everyone was filming it. And it was effectively, the female camel was on the ground. And it was...
+
+[00:06:55] It's a sit down, don't they? Yeah, and it was like doggie style. Yeah. And it was interesting, because in my head I hadn't pictured how camels would have sex. And... Well, like how much our mammals, it's dogg doggy style but the difference is that the females sit down
+
+[00:07:07] Yeah, which is serious. Take a seat and then the male goes behind Do you know why camels have humps? Sort of. Yeah, I need to store energy and your fat Yeah, why do they need to why do they need to start? Like would you mean like why there? Or why do they need to, why do they need to start? Like, do you mean like why they're all white? Or why do they need to start? Because they don't have time without food. Well, in actual fact, it's not because they evolved in the desert, it's because they evolved in the Arctic. Oh.
+
+[00:07:34] So camels evolved in really cold conditions, and they evolved the humps, and then eventually they migrated down into hotter areas, and it turned out that they were brilliant for that condition as well and that's where they ended up. Beautiful. Isn't that what the USA, aren't they? Or like the Americas as well?
+
+[00:07:51] The Fugure Americas, yeah. Originally, yeah. And what they used to be mega camels, like four meters higher at the shoulder. They used to be gigantic camels, roaming the earth. Yeah. How long ago, like at the time when everything was massive?
+
+[00:08:05] Before there were humans in the Americas, I think, right? Yes, I think so. Certainly tens, maybe hundreds of thousands of years. I got another old camel fat. I feel like they're very versatile because the earliest known camel apparently called Protylopus, the denorth America 40 to 50 million years ago. And was the size of a rabbit?
+
+[00:08:26] Oh, what size of a little rabbit? That's amazing. But the rabbit's the size of it, the size of it. They were the size of the rabbit. They were massive. So they're really small and then went really big and then it went really small. Yeah.
+
+[00:08:37] Well, they sort of found a middle ground. Yeah, they did. They found a range. That's very cool. Do you want to hear a couple of camel proverbs? That's okay, yes. That's good. These are from the Middle East. Here's one. He who want to hear a couple of camel proverbs? That's okay, he's good. He's from the Middle East.
+
+[00:08:46] Here's one. He who steals an egg will steal a camel. Is that what they have at the start of their DVDs? You wouldn't steal an egg. What does that mean? I suck with problems. If I was to subtly do something small against you, then don't trust me because I'll do something even worse against you. Exactly. Exactly.
+
+[00:09:08] Here's another one that's slightly harder to get. Yeah. The door is big enough for a camel to pass through. Well, that's in the Bible. So you... No, that's about the rich man getting into heaven and the... Easier than a camel to get through the eye of an idol. Then for a rich man to get it, yeah.
+
+[00:09:22] No, this is just the door is big enough for a camel to pass through. It's big, though. Big old dark. Big door. Which size camel are we talking about? Is this like a rabbit flap? Yes, it's more small. It's a nice thing, actually.
+
+[00:09:34] It's... Oh, everyone's welcome. It's actually the opposite of that. LAUGHTER It's feel free to leave. You know, you're not interested. The door is big enough for a camel to pass through. Nothing keeping you here. Wow. That's not free to leave. You know, you're not interested. The door is big enough for a camera pastor. There's nothing keeping you here.
+
+[00:09:47] That's not a good phrase. That is good. Do you see Camel's recently so-for-you? I did see Camel's recently because I went to the desert. Yeah. It's not out. They're all over the shop. I was chilling, though, not literally, because it was so hot and dry, with the Bedouin.
+
+[00:10:04] Oh, cool. Yeah. And Bedouin. Oh, cool. Yeah, and Bedouin people, in other pastoralist people, are very, like, their camels are, they're a big deal. They love their camels. There's actually a, I want to say like a folkloric tradition of song called the Alhuda, whereas part of a journey you sing to entertain primarily the camel. Oh! So it's... My homes. It's just that.
+
+[00:10:30] There's a lot of Fergie's Mac catalogue to talk about. But yeah, I really like that. And Alhuda has been adopted into UNESCO intangible heritage list. Oh, cool. That's really cool. That's lovely. Did you sing it to the camels? I didn't sing.
+
+[00:10:44] I didn't sing to the camels. I sort of was like, I sort of looked at them respectfully, but did not ride. Oh, you didn't ride? I didn't ride a camel. It's fun. I've ridden a camel. I have. Are you supposed to these days?
+
+[00:10:54] Yeah, are you? It's absolutely fine. Is it cool to ride camels? I think it's, okay, well, I mean, so he's been near a camel more recently than me, so there might be more recent data. When I was doing it, it was absolutely... Where did you do it?
+
+[00:11:07] Dubai. Nice. When I was tiny. And the weird thing is, when they, because they, they kneel down, they fold their legs so efficiently out of themselves, and then you get on and then they stand up. Yeah, yeah. But that means they have this mad, they tilt back crazily as one let's set a leg to go to the top,
+
+[00:11:20] and then they tilt back the other way as the other set of legs gets up, and then eventually you're, but it's so important for so much more than being ridden. Yeah. So for so much more than to great right. I think like camel milk in Jordan. The man's south like it's like a dish with camel milk is one of the what was the national dish of Jordan and it's meant to have like, so many different heaving properties, like, is it true? Did you try it? I did try, Manson.
+
+[00:11:47] Oh yeah. It was, it was good. It was like, a bit tough. You're saying, right, you didn't like it at all. I love it! I love it! I just like, I wouldn't want undimuted camel milk, but that's because I'm a baby raised on cow,
+
+[00:12:01] but now very much transitioned to Owen Ormond. Here's the thing that camels can do. This is great. They can move the two halves of their top lip, left and right, independently of each other. The other way. Oh, okay. How cool is that?
+
+[00:12:14] That's fun. Because you can picture a camel's face. It has that kind of gap in the middle of the top of their lip, and they can move them. So how about we? So how about we do that really fun eyebrow thing where they raise one eyebrow? They've got the lip equivalent. Yeah, exactly
+
+[00:12:25] That's so cool. There must be a look in the camera world that they give when they're like you can signal that you're not really into it If you're kissing someone but only using half your mouth Yeah, yeah, I feel like they're like they're inherent eroticism and also Like I think a lot of stuff about the physicality of camels is probably why they've not yet been given the Pixar treatment. They're too earthy, they're too baudy, they're too gay. They're just really of the sad. Of course, they're sex pests. They're sex pests.
+
+[00:12:54] But even there, one of the factors that they're urine has been used in certain traditions people. During the urine use them as medicines, there's not a whole lot of scientific evidence I found that proves that it's a good idea. No. It's like super concentrated. God, so if you had it, you're meeting with Pixar, right? Oh my God.
+
+[00:13:12] Nobody's understand. He drinks the urine. And then... It's super concentrated. And that's the way it works. And it means sort of, yeah. Yeah, so there's like, there's a traditional thing of drinking cow urine in India for instance, right? But they do think that because camels they don't have as much water in their body that it is more
+
+[00:13:31] Concentrated and whatever good stuff is in cow urine. It's even better in camel urine. That's the idea Oh, right. Do you think that's true? Do we? What I said is true Whether it's good for you. I think perhaps it feels strong. It feels like it's strong stuff, yeah. I think not. Is that why the milk is so tart because it's because they it's not very tart. Okay. I don't want to I don't want to offend the camels of Jordan. It was just a bit it was different. I actually think that goat milk is it's probably as weird no offense. Yeah. As goat milk. Because goat milk tastes a bit goaty, doesn't it? Yeah, does it?
+
+[00:14:05] Can you get a bit of camel taste in it or not? I think I've not done a comparative study. It was sort of multi, right? I mean, it's all milk. Multi. Is that the point of malt? No, it was multi-e than milk like, probably multi. I just I just actually had my first oval team bullshit. You have oval team... Bullshit. You have oval team every night, Andy. There's no doubt about that. No, let me finish. I just finished my first jar of oval team. And why? Really?
+
+[00:14:33] The first jar of the year. Wait. I hadn't had it for years and years and years, then my wife said, I've never had it. And I said, what you said to me, Jess, I said, Bullshit. I can't believe you've never had it. Oh, right. I rushed out. I thought, what time did I do this? Went to me, Jess, I said bullshit. I can't believe you've never had it. Sorry. I rushed out.
+
+[00:14:45] I thought it was a tie-in game. This is what you're dealing with. I went to the all night shop. It's two in the morning. I got a job. Anyway, for the last three weeks, I've been trying to push Able Tear on my wife who actually doesn't like the taste of Able Tear.
+
+[00:14:59] Yeah. Anyway, I got a quick just camel quiz. This story is a good match. Yes. Yes. Get stuff. I just wanted to sort of part on part two to break it up. It's so good. Quick camel quiz.
+
+[00:15:14] Yes, brilliant. Three. Okay, so why should you not, if you're in the desert, step into camel-dung? Well, I mean, for the, for get some issues. Yeah, that's, that is also a correct answer, even though that's not the one I have on my sheet. Smells bad, bad vibes. Oh, you might injure some of the smaller life forms
+
+[00:15:35] which rely on it as a biome, you know, don't dump beetles, stack beetles, they use it, they're thinking, I was thinking, perhaps, similarly, but maybe it's like some poisonous animals living it. Yeah. Who might bite your feet? Lovely. I thought it's so toxic that it would melt your foot off. That's good. That's good. Yeah, you're just going to just... Yeah. Yeah. Yeah. Yeah. I mean, these are probably all correct. I mean,
+
+[00:15:57] Sophie's one a bit less over maybe the rest of them. This is, I mean, it's a stretch, my answer. I'm just making a fun quiz here, but you don't want to do it because you might explode entirely. Right. And that is because during the Second World War, the German tanks, if they saw a camel dung, would roll over it. It was seen as a sort of good lunch on the Allies heard about this. And so what they started doing was making camel dung landmines. So they looked the facade of it on top,
+
+[00:16:24] and so that would lower. So like we know that bombs still exist in the basement, so we're always finding unexploded world or two bombs. There's probably Camel Dung landmines still out there in the desert waiting. That's where it is. There you go. Gosh.
+
+[00:16:39] I find that so the urge to jump into a pile of shit. This is the next one. LAUGHTER MUSIC Stop the end. LAUGHTER MUSIC Stop the podcast! Stop the podcast! Hi everyone, we'd like to let you know that this week we are sponsored by Kanva! Yes, Kanva for teams, specifically as a design platform that makes it easy for anyone who wants to create stunning content of any kind.
+
+[00:17:03] So you're doing social media posts, or you're doing videos, you've got a presentation, you want to design your own website, this is the place to go to. Oh, we're always doing that, but it's an absolute nightmare, isn't it? Because you've got so many different brains who come onto each project,
+
+[00:17:17] and everyone has their different ideas, and that's why things like Canva for Teams are so good, because it means everyone can collaborate. Exactly, I mean, I'm mostly there for the premium fonts. I love a font James. I love a font like nothing else. I love them so much and this is a place where you can find them because they're so hard to find on the internet.
+
+[00:17:34] You've got to download them and go to all these weird websites. But here you get premium fonts. You get a selection of photos that you can use absolutely for free graphics. They've got free libraries of videos and audio tracks. So everything is there to make a sort of proper entertainment video. Absolutely. We actually call you the fun to all knowledge,
+
+[00:17:52] but you don't know anything apart from fun. It's confusing when I get booked for those big brain box meetings and all I'm talking about is Times New Roman and Ariel. They even have a more pretty big fun than those two. Look, if you want to use Canva for teams, then you can do so right now. And the best way to do that is to get a free 45 day extended trial by going to Canva.com, that's C-A-N-V-A.ME slash fish. That's right. So head to canva.me-slashfish and get yourself that free 45 day extended
+
+[00:18:29] trial right now. Okay, I'm with the show. I'm with the podcast. So tell me about these other fonts. We talking Comic Sans, what is that? Okay, it is time for fact number two and that is my fact. My fact this week is that the first woman to ever direct a film was a guy. I was recently sitting on a plane and we were about to do fact picking and I desperately needed like one killer fact and I was like, well, how am I going to find it? Plains about to take off. And on the screen in front of me was the Inflite Entertainment and there was a documentary called Alice Guy,
+
+[00:19:08] the first female filmmaker. And I thought, wow, that's really exciting. A, I have no idea who this person is. And B, it turns out that she's extraordinary. It turns out that this is one of the most seminal filmmakers of our time, the innovation that she created is something that means she should be held up there with like the Lumiere brothers up there with
+
+[00:19:29] the Spielbergs, the Scorsese's. This is someone whose name should be a household name and no one virtually knows who she is. Well first of all was she French? She was French. Yeah. So would she pronounce it Guy? Yeah, I think Alice Guy would probably be her name and and she had a second surname, which was her husband's surname that she took on. So it was Alice Guy Blush. Blunchy? Blunchy, I think.
+
+[00:19:52] Blushy. So hang on, what's the fact again in the light of these fireworks? But she not only was the first female director, but she was the first female director for about a decade. Like she just really owned the field. It was a period where obviously men were just saying, you're not capable of doing this.
+
+[00:20:07] She's also acknowledged as possibly being one of the first two people to piner the idea of narrative filmmaking as well. Up until this point, everything was just sort of showing a train pulling in the station, or people walking out of a factory where she gave it a story and she turned it into a narrative. So yeah, hugely important. Yeah. She lived until she was 94, which was 1968 that she died.
+
+[00:20:33] Oh, gosh. And I think by that time only about three of her films were still available. And she made a thousand, or was involved in a thousand, you know, directing, producing, supervising. And I think a lot more have been made available since, you know, or they just fast-forwarded. We keep finding them, yeah.
+
+[00:20:50] Yeah, it's amazing. And she was, when the Lumias made the first ever film, this was in 1895, she was in the room when that happened. As in, there was a private showing, and her boss, who's guy called, Gollmont, was invited, because they thought that Gollont might want to buy the equipment and kind of sell it onto people. And he was quite interested, because he thought people would buy it,
+
+[00:21:11] so they could make videos of their children. That's what he thought, this new technology would be of motion pictures. And he was right. Well, my boss is like, yeah! So he did buy some of these cameras, and then he allowed Alex G. to use them because he thought it was just like a tie It was just like a you know, he didn't really take it that seriously So he just let her do it and then suddenly she became the biggest you know the biggest deal in filmmaking
+
+[00:21:35] Yeah, and her first movie there's a few variations on the title But one of the English translations is the cabbage fairy and it's basically a narrative about how babies are born through cabbage patches and we had an episode with Becky Lodd where we were trying to work out. When did anyone think you were born from a cabbage patch? Oh my god, the cabbage patch kids. Yeah and she's probably responsible for the cabbage patch. So, you look like you have cabbage patch kids. I don't know, they're scary. You look like you had cabbage patch kids. I don't know, they're scary. I don't like them.
+
+[00:22:06] But I do love talking about France. And the folklore is that boys are born from cabbages. But girls are born from roses. I don't want to be so... Still to this day, that's how French people are born. There are claims that she invented the music video, which I like. I think a pretty that she invented the music video, which I like. I think a pretty early prototypical form of it,
+
+[00:22:28] because she used to think of a chronophone in 1905, which were filmed with singers, lip syncing, and then you'd play a pre-recorded track, simultaneously with it. Yeah, but also, I mean, the list kind of goes on and on for what she innovated in the world of films. So we've got the first narrative movies. We've got the first movies where gender roles were swapped
+
+[00:22:49] and they showed men at home sewing and doing the housework and the women actually going off and being actually big business jobs and so on, which was... Wasn't that in the year 2000? That was the, I think the name of that film. What was the name of that as gender roles? Right. That's my brilliant.
+
+[00:23:04] She did the first all African-American film. No one had done that to that point. I was 1912, a fool in his money. Apparently, it was a bit sort of behind though in terms of the racial politics of the time. But it was the first time African-Americans were cast into films, entirely in a film. So she did so many things.
+
+[00:23:20] It was just unbelievably forward-thinking. Yeah. This is right in the beginning of filming the first Fast and Furious film. That's right. Yeah, yeah, yeah. Yeah, yeah. With a young Vin Diesel.
+
+[00:23:31] It's pronounced van, isn't it? On the, off the fool in his money, it was one, another one of her works that was considered lost for ages and then it was found in a flea market in Stockton, California. So she's left right little Easter eggs. I mean maybe not deliberately. Right, yeah. Because she's got a thing you're into loads of cinematic pies. I do like the sound of her masterpiece, The Life of Christ. Yeah. Sounds good. There's a huge, like huge film, 35 minutes long, which at the time was an epic Lord of the Rings style.
+
+[00:24:05] So, 35 minutes one right? Do you think people after 20 minutes were going, oh, fuck, so many of them. Yeah, it was very exciting, I agree. But that's the thing, for a film that was 35 minutes long in total. And again, 1906, so incredibly early film days, it had 25 different sets for a 35 minute film. Okay.
+
+[00:24:24] And 300 extras film and 300 extras But 300 extras is you know if you're filming a scene where there's a big crowd sure The time it was it was it was impressive stuff I guess it was definitely they had the first ever pan shot didn't they really so she kind of paned across these 300 people people must have freaked out for must have freaked out. I know. What's up, man? What's up, man? Well, you know that thing about the train.
+
+[00:24:46] So I think we've mentioned this once before on this show, which is that one of the earliest films was, was it The Illumias? Was it? Yeah, it was. Yeah, it was. Train arriving at some gar. It was a French coastal town called Les Siotés.
+
+[00:24:58] And it was one shot, 50 seconds. And the urban legend is that people freaked out and ran to the back of the room, because they were so perturbed at the train coming towards them. And there aren't actually contemporary sources. And also the train is coming in diagonally, so it doesn't look like it's going to burst into the room. Yeah, yeah.
+
+[00:25:15] But I think I buy it actually. Yeah, and I'm saying about it despite there being no evidence contemporary that it actually happened. But people react to films, people shout, you know, all people shout in a big way at the cinema. Yeah, yeah. Well there's a big trend going on at the moment on, it's either Instagram or TikTok, I've seen the video where you expect something to happen
+
+[00:25:36] in the person filming it tricks you by throwing the object at the camera. And I probably went, whoa, so you can produce that effect. Right, so I buy it as well. Yeah, I buy it through. Okay, no, I don't buy it. A lot of bullshit. I think it's classic of, isn't it funny how these people in the past were more stupid than us that they would fall for this kind of thing. Yeah, well, I also have no evidence.
+
+[00:26:02] I think you are probably right. I was reading about Florence Lawrence. What's so funny about Florence Lawrence? First ever movie star maybe. Yeah, so she was making very early films but she insisted that her name be on the credits. In those days it would just be actors and you wouldn't say who was in it and she became quite well known and so she could insist that her name would be on there. And she was originally Vorderville, she was known as Babyflow, the child wonder whistler. So she would come on stage with her mum and she would be an amazing at whistling. Really?
+
+[00:26:43] Yeah. And she also was one of the first people to own a car, and she invented the indicator on a car, and the stop breaking lights on a car. What are the lights, okay, dude? Brake, you made a brake. Brake, you made a brake. Everyone before then. Still driving around.
+
+[00:27:00] Yeah, yeah. What are we gonna do? It was like speed. It was like very, very slow. They're all going at 10 miles an hour, so I find it here. That's a slightly different. So her indicator was like the shape of an arm, and she would press a button,
+
+[00:27:10] and the arm would sort of wave to the side that she was gonna go. More fun. Much more fun. And then the stop sign would be like her arm coming out going, I'm gonna stop, I'm gonna stop. What are the back of the car? That's so cool.
+
+[00:27:22] It's clever, isn't it? But yeah, she was like the first film star as well. What a pivot in her career. That's so cool. It's clever, isn't it? But yeah, she was like the first film star as well. What a pivot in her career. That's so cool. Yeah. The thing about her back to A Guy is that I love that she was so active in trying to scout for the locations that she would put herself into weird situations. So she was almost like a massive documentary maker at the same time.
+
+[00:27:44] She'd go to Orphanages and she would integrate herself there and she would go to... Not what you know, I'm just gonna leave. Can't wait to meet you. That was a child. That's a double day though. It's time to do an average. Pretend I'm not here, guys. Time to do this. It is a little red wig. Yeah, no, sorry, that's the wrong turn. but like she would go to opium parlors, she would
+
+[00:28:08] go to... Okay. She would go to prisons, she would... She was invited to watch... That's all that I know. Actually, yeah, it does sound just like a wild night, actually. Crazy night, I was like, I'm not gonna put it in an orphanage. But yeah, that's so cool. Or an agent. Yeah, and I quite like that she used to have a sign on her, so kind of like in Ted Lasso
+
+[00:28:32] where I believe was up on the wall. She used to have a sign up on all of her sets, which was be natural and the idea for actors and so on. I mean, another innovation of sort of like, you know, let's just make this look like a normal thing. Oh, just so cool, yeah. I think she's cool. I've got a fact about people that she possibly might have inspired because like we talked about fooling us money, maybe not the, not a film that we translate today but had the first all African American cast. So that was in 1912 and in 1919,
+
+[00:29:01] Oscar Mischo, who's like considered to be the first African American filmmaker he made his first film So like that's a whole like seven years beforehand Also, I think one of the first female African American directors Maria P. Williams What's on the flames of Roth, but she okay? So this is how she died. I'm bringing it up because it's very mysterious. Okay, so she how she died. I'm bringing it up because it's very mysterious. Okay, so she produced and wrote in this film. In the same year her husband died and she went on to marry another man. And then she died in 1932. This is Maria P. Williams. After being called away from her home by a stranger who requested help for his ill brother and then was found shot to death on the side of a road
+
+[00:29:43] several miles from her home. Oh my god. And the murder remains unsolved. Ironically the plot for Flames of Roth concerns the investigation of a murder after a robbery. Wow. That is interesting. And he solved a problem like Muria P. Williams. Just one weird thing off the back of Muria P. Williams. Oh yeah. So the guy who invented the film camera in Louis Laplace, French guy, moved to Leeds and created the film camera five years before anyone else did. So he was pretty Lumia brothers, he was pretty everybody basically. He made a working film camera, he made some films in Rountay Leeds and then he disappeared. And we have no idea what happened to him, he may have been bumped off. There is a kind of lyrid theory that Edison had him knocked off.
+
+[00:30:29] I don't think I believe, but he was first by years as well. Louis Le Prance. Yeah. In Leeds. Yeah, he's got such a sexy name. Not that Leeds makes it less sexy actually but it sort of changes the vibe. He does very sexy places isn't it? Is it? I went on a mini walking tour of Leeds after I last showed there. Yeah, well, a couple of the half-legs. It's either one who there was one who kind of got on a train and then they never saw them again.
+
+[00:30:58] It's that one. I think it's film like that. I think it's this guy. Is it? Yeah, I don't. Right down how? How are you up missing? Yeah. When you're on a film. I think it's so. I don't write down how, how are you up missing? But yeah.
+
+[00:31:06] When you're on a film set, they call it a shoot. Oh yeah. Oh yeah. I thought a long time before saying that, and I think it's got an edit. No need for that though. Can I give you a quick quiz before we move on? Yeah.
+
+[00:31:21] Rackel Welch, the actor, has a world record. She's done something 15 times that no one else has done 15 times. Raquel Welch, who just died? Yeah. Raquel Welch of the third bikini from 1 million years BC. Yeah. The very same. She's done something 15 times.
+
+[00:31:37] Yeah. Is it a film? Is it a film related record? It's a film, it's a female film actor related thing. She was the first female film actor related thing. She was the first female film actor too. Yeah, bring it up. Use the chat lots of questions on her forbiquity. 50 times.
+
+[00:31:53] I don't know. The staff, that's said, that she runs such a good run there, so I feel and then it went wrong at the end. I'm not familiar with Raquel well, so. No, 15 times. Oh, what time? Did you play the same person, 15? No, she didn't.
+
+[00:32:03] She did the same action 15 times in different movies a gesture of E-side She do like the clappable thing with it Oh that's good, yeah, stop it Look at your GM raw, did she do it sort of? That was her, no that was a lion A gesture, a gesture, a gesture, a gesture That's a tiger, sorry The chicken dance, the chicken
+
+[00:32:20] She's a fist No She did the YMC now. That's good. I feel like we're gonna be here a long time. So she changed the spelling of her name 15 times. She held the world record for kicking a male character in the balls in a movie with 15. Wow.
+
+[00:32:40] Isn't that great? That is an incredible fact. Do we know who's the kickie? It was a different Kiki each time. Oh, wow. So it's a different movie. It's a different movie. It was almost like her catchphrase.
+
+[00:32:50] Oh, that's her signature movie. It's got that great. It's a bit terrible when you sort of be crying. Oh, it's one exciting movie. Here's my co-lead. Oh, no. Oh, no. Oh, no.
+
+[00:32:59] Fuck, I'm cold. No. OK, it is time for fact number three, and that is Andy. My fact is that half of American men are confident they could safely land a plane if the pilot was incapacitated. That's reassuring.
+
+[00:33:16] It is, isn't it? As long as you two American men are on your flight. One of them will be fine to do it. Really? Yeah. That's funny. This is a survey that you go up conducted. They are 20,000 adults.
+
+[00:33:27] I think adults all in America, whether they would be quite confident, very confident, not confident, not at all confident, or they didn't know whether they would be able to land a plane. And I think overall, it was a third of people who said they could do it and 46% of men, 20% of women. So, buck up. And also they specified a couple of things, they specified you get help from air traffic control and things like that. So
+
+[00:33:54] you're not just... You be guided. ...tongue suddenly and you can't get by yourself because obviously that would be incredibly terrifying. Yeah. And young people also more confident than all the people, people between 18 and 44, again nearly half of them think, yeah, I could do that. Yeah, and young people are also more confident than older people. People between 18 and 44, again, nearly half of them think, yeah, I could do that. Yeah, those over 45 less, less sure of themselves. Yeah, so let's do a little survey around here. Selfie, do you think you could? Do I think I could land a plane?
+
+[00:34:17] Land a plane. You've got a headset on? You're getting a headset on? OK, yeah, I'm going into. I've got a headset on. I've got my headset on. No, no, no, absolutely not. They it. I've got a headset. Oh, I've got my headset. No, absolutely not. They were dead. He's also, I know.
+
+[00:34:29] In my scenario, they've just been knocked out. They just had some dodgy fish, right? Exactly. Yeah, they're awake. They're just a bit, they're feeling a bit queasy, so they decided to knock off shit. Okay. In my one, I look at the pilots and one is Maria, the film director, and the other is the leads man. La France.
+
+[00:34:47] La France. Yeah. I think I could land a play. Okay, okay, that's good to hear. Okay, good, that was an attest to me, like, I can't. Actually, the micro-edged sleeve, the walls of the studio, disappeared. We're in a relationship. We're in a relationship.
+
+[00:35:01] I think I could, but I would do it extremely reluctantly. Yeah, that's what the passengers want to hear. I don't really want to, but we'll be landing in the next 15 minutes. Yeah, one way or another. That's exciting. Okay, Andy. I think I probably couldn't actually. Couldn't. Couldn't. I mean, I would give it my best shot, but I think that moment
+
+[00:35:23] where the ground comes up really quite first, you're landing and you're going very very far You're going over a hundred miles an hour. I think it would be very hard. Yeah, I'm not saying they would clap for me Dan I think technically I couldn't but I mentally I would say yes to trying it because I think this is the thing You need someone to give it a go someone's got to try and do it and I think if I was put in that position I would say okay yeah I'll give it a go I'm gonna have assistance I can't I don't think I can do it although my wife's a helicopter pilot and I think I've said on here before that she says that I'd have about 50 50 chance of landing a helicopter okay having watched her do it so I know what she's doing yeah yeah
+
+[00:36:04] but having spoken to some commercial pilots because we talked about this on QI I helicopter. Okay, okay. Having watched her do it, so I know what she's doing. But having spoken to some commercial pilots, because we talked about this on QI, I don't think I will be able to do it. But if you're in the situation, we should say, yeah, the most important thing to do is find the headset, put it on, and find the emergency frequency, because they didn't monitor that. And also, if you're speaking to someone, take your finger off the button when you're speaking. That's like, no more here. They can't get back to that. Yeah. But that was the funniest thing about this whole survey is that when they talk to pilots
+
+[00:36:31] about it, I think in your head, you think, yeah, I'll just open the door, put on the headset, it's all going to be fine. They're like, you won't even get past the headset moment in trying to land this claim. What even get past the door in mind? Yeah, exactly. Yeah, exactly. They've obviously got very secure cofpers. When I asked my wife about this,
+
+[00:36:45] because like I say, she is a pilot, that she literally said exactly what they say on these things. She was like, well, will I be able to tell what the headset is? That's the first thing she said. It's weird, because you would think it would just be there. Right, but you know, it would just be known as like, when you can't find your earphones, and you're busy, and you're heading out.
+
+[00:37:01] They actually have tried this as well. They've tried this a study New Zealand's University of Waikato, asked 780 people if they could land a small plane, quotes, without dying, or as well as a pilot. Okay. Yeah, yeah. And so this is really interesting. Some of them got shown a four minute video
+
+[00:37:18] of pilots landing a plane, right? But the video didn't show the pilot's hands. So actually, it was a useless video. In terms of actually learning how to land a plane, totally useless, right? But people who had seen the video were more confident in their abilities than people who hadn't seen the video. It's called a rapid illusion. You see someone doing something and you think, yeah, I, yeah, okay, I broadly understand how that works. Yeah, yeah, actually, you don't.
+
+[00:37:42] Here's the other thing. It's like, okay, you've got through this impenetrable door. Well done, stage one, done. You've found the headphones. You've somehow worked out the emergency frequency of 1.1.5. We've worked out to take your finger off the button so that you could hear them. Surely you're on your home stretch.
+
+[00:38:01] You know, you're coming in. But then they make the point. You're talking to an air traffic controller. He doesn't have a land of play. They're just telling you that the space is free. Yeah, come on down, you're fine. So there's been cases where in the past, people have had to have guidance to be landed by an air controller and they've had to go, hang on, let me go find someone who knows have to land a plane and have to go and bring them and help them get guided down.
+
+[00:38:25] I really dislike that this is how a plane is landed. I really would have thought by now, it was basically completely automated. There was no skill. Yeah. Well, the thing is they do have auto land. So a airplane does have auto land, but you need to program stuff into it. So you need to program in how fast you're coming in, what direction you're coming in from, and you still have to click when you want your flaps to come down, whatever that means. And also when you want your landing gear to come down, whatever that, I know what that means. And they need to be done at exact moments, and you need to know when that is. So even though you have auto land, you still need to do stuff.
+
+[00:39:01] Yeah, and it's, and then on top of that, even if you want to, let's say, a Boeing big airplane and we need a pilot to land this, you need to know what your plane is. It's like going into a different kind of car. You can't just like, I think it's, I think it's even more complicated than that. What I mean is, I think I can get into a higher car and I'm fine. I don't need to brag, but like, I go into the higher car, go, do you have a Ford Fiesta? Because that's all I can do. It don't need to brag, but like I have to go into the higher cargo. Do you have a thought for you, Anstek?
+
+[00:39:26] That's all I could try. That's all I qualified on. No, I guess the point is that you need to, with a plane, you absolutely need to know how to land a Boeing plane versus a biplane versus a... I think it's never happened with a big commercial passenger plane. I don't think a situation's ever come up because often, like loads of flights have pilots who are flying as passengers They call them dead head crew and they just you know, but it has happened once or twice
+
+[00:39:51] In 2009 there was a pilot who's flying from Florida to Mississippi and the pilot died and the passenger Doug White Was on board with his family family of four and he had a private pilot certificate although he wasn't familiar with the plane family of four and he had a private pilot certificate although he wasn't familiar with the plane, but he did manage it because the air traffic control people they found a flight instructor who guided them down in that plane. There you go, had to run off and get the flight instructor in that. That was a small plane of... Happened last year, 2022.
+
+[00:40:18] Yeah, around Florida, the pilot collapsed or something. We don't know exactly what happened. There was a guy in there with him, it was a very small plane and he sat there and the controls, doesn't know what to do, rings traffic control and they say, well where are you? He's like, well how the fuck should I know? Yeah. He's like, well can you see the coast? And he's like, yeah, we can see the coast and they said, okay, we'll fly either north or south, just follow the coast. Right. And then the air traffic controllers could look on their screen and they look for a plane that was following the coast in any direction and they managed to work out it was them and they managed to get
+
+[00:40:51] them down. You're looking so stressed Sophie. It's really upsetting me. Are you an anxious lion normally before before we told you all this stuff? No I thought I could laugh and play. And I heard that. I've been so confident. I was so funny. I was once in a helicopter with my wife, and when you're on the radio, you can hear what everyone else is doing. And we were just flying along wherever we were going. And there was a guy who was like,
+
+[00:41:20] Bzzz, help, help, get me out of here, get me out of here, get me out of here, get me out of here, tell in the traffic control, and apparently what happened was the red arrows were flying passing. He was in a tiny little plane, and he's like, there's red arrows on my left, there's red arrows on my right. What do I do? What do I do? Wow. He's leading the red arrows at that moment.
+
+[00:41:41] Just release the smoke, like the others just just type it right. Waved at the king. I'm not really sure of playing Etica generally. When I was going to America, I didn't realize that you're not allowed to drink the alcohol that you've put in duty free on the plane. Oh, okay, yeah. But that is odd. No, they ask you not to.
+
+[00:42:00] That is a fact. So, yeah, I was like, oh, this is a great hat. I'll buy it, we'll buy like a bottle of whiskey. So I was sitting on a plane and like, just pouring like doubles and triples for me and my friend, Laurie. And the, her says, what part of the, was like, you're not allowed to do that.
+
+[00:42:15] You have to, you're not allowed to drink that on the plane. So we both just thought that she'd been just like, bottoms up. So we were like, so sorry, and I was just like, turning drink them. I was like, you can't have that one here. So we're trying to get rid of it. I had never been kicked off a flight though,
+
+[00:42:27] but in May 2013, somebody was kicked off a flight for doing the most amazing thing, which was singing Whitney Houston song. I will always love you repeatedly. Mm. Mm. Ah. First, like, first renditioned.
+
+[00:42:42] Okay, well, it's a bit annoying, but you know, find. Second third rendition's funny. Yeah, yeah, yeah. well, it's a bit annoying, but you know, fine. Second third rendition's funny. Yeah, yeah, yeah. And then decreasing the attack, was it stupidly who did it? LAUGHTER It was stupidly on a domestic service from Los Angeles to New York. And it was diverted, so it didn't actually land where it was meant to land. It can't be diverted because of this.
+
+[00:43:02] It was diverted to Kansas City so they could remove one of the play. To Houston, he landed in that. This reminds me of a song. mental I can't be no better because of this it was I've heard to Kansas City so they could remove to Houston this reminds me of a song I landed it Motown in Detroit Oh my god Oh wow That's what this is the passenger who was who was the
+
+[00:43:15] I assume she was mentally unwell I haven't Well I mean I assumed that she might just have been a legend It's a fine line Which was led off in handcuffs, he was still singing. Wow. Can I tell you one more thing about overconfidence, which is what it was about? So I just looked at other surveys of what people think they can do, right?
+
+[00:43:35] So there was a survey about what people, what works of art people think they could replicate. Oh yeah. And it went from, So Mondrian is that... Yes, it's just lines. It's lines and blocks of colour. Malayovic, I could do, that black square, it's just a black square. Perfect. So one in three Americans think they could replicate Mondrian's composition in red, blue and yellow, which is quite... Yeah. It's a bit more complicated, but it's mostly sort of straight lines and blocks of colour. 23% think they could do vangoths self-portrait
+
+[00:44:06] with a straw hat, which is one of the great ones. Where if you're doing a vangoths self-portrait and you're replicating it, do you draw, if I've got to draw yourself in a straw hat? Oh, sorry, you draw a vang... you're just replicating that work of art. Got it. You don't have to cut off your own ear. It's like a time. 18% thought they could replicate vermiers, the milk made, which is one of the great works by a Dutch master. It's really, really, really beautiful. Yeah.
+
+[00:44:30] And get this, 11% of Americans think they could probably or definitely replicate Michelangelo's David. Wow! Probably, it'll definitely take probably. I'll say probably, I don't want to say vain. Do you have to do it exact or could you do it like? I think you need to get it pretty dead on. Yeah, okay. Yeah.
+
+[00:44:49] Half of British men between 16 and 24 think they could dodge a train. Oh, I can dodge a train. That's a train? Yeah, but I mean, what qualifies as dodging a train? Good point. If you're trespassing on the tracks. The thing is about trains is they can only go where the tracks are. So all you have to do is get off the tracks and you've dodged it. Well, you two down in chains are part of the problem, right?
+
+[00:45:10] Yeah, yeah, yeah. Of young men trespassing on railway tracks. I know that is a problem. You're thinking you can get off in time. And actually, it's very confusing when you're in the tracks, because all the train noise goes out to the side. Yeah, yeah. This is the way I think it's harder to tell than you think
+
+[00:45:23] when there's a train coming along. So network rail a while ago asked rapper, RETCH 32. Oh, we've met him once. Yeah, something branch. Yeah, it was a classic. It was a classic book in pairing. I think it's RETCH 32. RETCH 32. Yeah, that was a dull part of the way you got it. RETCH 32. I caught it, Mr. 32. It's called,
+
+[00:45:47] it's called, it's 32. Yeah, yeah, yeah. Why is it 32 instead of 32? Is that done for a football score? Yeah. Because it looks like 32, that's just,
+
+[00:45:58] I actually don't know why it's 32. Where's the one? Where's the one? The one, 32. 32, it's a countdown. Rich 32. Oh, right, let's see. Yeah, yeah, yeah. Three, two, one? Where's the one? 3-2, it's a countdown. Oh, right, let's see. 3-2-1, he has a tray. These are the mysteries, Andy.
+
+[00:46:12] Why is it thick and not thick? Why is it wukened and not weakened? These are the problems of pot-pots and hands. What did Brett Shreety do? They asked him to test what it's like being on the tracks when the train is coming in. By putting him in a simulator, not by it. And he said, yes, it is actually very quiet and confusing and it's easy to be, and he
+
+[00:46:29] said he had great hearing, but actually it was confusing. What a great team up of Network Rail of Ratch 32, yeah. That is incredible. But they were trying to get to young men, basically. Yeah. You were more likely to be dressed possibly. Who knew how to pronounce his name? Yeah.
+
+[00:46:43] Yeah. Yeah. LAUGHTER OK, it is time for a final fact of the show, and that is James. OK, my fact this week is that the first person to use the phrase roast beef sandwich in English had a surname, which is nanogram of the word steak. It's so good. It's a classic James fact. I don't think anyone has ever come up with this fact before now. This is new, right?
+
+[00:47:12] Yeah. I can't imagine anyone having time to take that. But also, you had a different fact, which we said, oh, we're not sure about. So you came up with this. I love James always does this in desperation as well. This was real desperation. So my original fact was that John Keats, spoiler alert, the famous most romantic of the romantic poets, claimed to be able to eat two dozen roast beef sandwiches in a single sitting, which he did say in one of his letters,
+
+[00:47:43] but it's clear when Andy read it and pointed it out that actually he was saying metaphorically that he was so hungry I could eat two dozen sandwiches and perhaps he couldn't actually do it. And we'd already researched roast beef sandwiches and keats. So I needed to find anything else about him. And it turns out in the LED that he's the first reference of roast beef sandwich. And his name is Nanakraman St. and that's where my brain went. Because he's not very sticky kind of puff. No, he's not.
+
+[00:48:14] That's why it really lights about the original incorrect fact. Is he was quite waft like, wasn't he, Keats? And he was very sort of, I don't want to say wishy washy, but you know, the Byron would say that for sure. Yeah. But yeah. Big boy Byron. Big boy Byron.
+
+[00:48:30] What is Burgess? Competitive eating champ, not fungal and yeah. Yeah, it's kind of, yeah, Keats is, so Keats, for anyone who's not a fan of Keats, John Keats died age, what, 25? Yeah. And died of tuberculosis, consumption which was a very poetic, seaming disease and it was associated with creative types and wrote everything he wrote, obviously, before the age of 25. Basically all Keats
+
+[00:48:56] poems are early Keats because there was no late Keats and still wrote a lot of really, actually really good stuff. I was never a huge fan of Keats when I was studying because I did English, but actually I looked back and I thought, yeah, there's some real bangers here. Yeah, actually it's not early Keats because early Keats he barrened up, didn't he? It's early as power on the house. Yeah, he just, yeah, yeah, he just thought I'd done like these
+
+[00:49:17] and so he burnt those over fire. So actually we don't have early Keats, we've got sort of mid-Kits, right, yeah. So I was weirdly drawn to Keats as diet as well. So I had that he was voluntarily vegetarian. Oh, was he? To like sort of curing himself of his love sickness for Fanny. Right. His big love, but also he got put on a lot of fad diets by his doctor, who, shall I say,
+
+[00:49:40] did not have his best to dress up, and prescribed him a diet of bread, milk and anchovies, because he thought that his tuberculosis was in his stomach. Yeah. So it was hard, because when you read his writing, he seemed to really love his food. And yet, he just had to eat all of this really bland stuff. He must have hated it. Doctors at the time were just so bad.
+
+[00:50:04] As in, his doctor misdiagnosed his tuberculosis as, I think, stress. Oh, yeah, not knowing. He said that mental exertions and application, so basically he's a little nerd that thinks too much. Yeah. And they bled him way too much. They took points of his blood, which is... Was any of them not bleeding good? I guess they might have helped some conditions, but I can't think of any which would have been helpful.
+
+[00:50:26] But I mean, Lord Byron also was bled hugely, as then they took parts of Byron's blood, and they made him very weak, and they contributed to his death. Yeah. But he also, he did, you know, he was a bit fussy about his food. There's a story, and this is right at the end of his days, so he did die very young at tuberculosis, and one of the ways that he tried to cure it was to get out of the UK and go to Rome and sort of try and soak up the sun.
+
+[00:50:47] And so he was staying there with his friend, Joseph Severin, and they stayed at this house and there was a land lady there who used to make them food every single day and he hated it, hated this food, he used to make them spaghetti and he just absolutely hated it. He said Rome when they were... Yeah, yeah, yeah, yeah. And so one day she comes in, hands them the spaghetti, he plate keeps eye contact with her walks over to the window opens it up While maintaining the eye contact just spills the plate out and all its contents onto the ground To make his point rather than just saying can we get something else?
+
+[00:51:15] Oh child. Yeah, and yeah, and actually lots of the stories about it. They're making a bit more kind of You know physical and like it wasn't such milk-toe stuff after all. I was fighting, didn't I? Well, he, I was saying he trained as a surgeon, was the thing I didn't know about him, trained as a doctor. And you know, he would set broken bones and he was a dresser at Guy's Hospital
+
+[00:51:36] and he would assist with surgery. One of his jobs was to remove amputated limbs from the field of surgery. So it's quite a stressful and impressive job to have, you know I read one article asking if he might have been a grave robber. Yeah. Because at the time the surgery practice they would do it on dead bodies. And you're allowed like maybe two dead bodies a year who are like executed criminals or something like that. But you needed more.
+
+[00:52:01] And so they had these resurrectionists who would go around getting bodies out of graves and tell them to their surgeons. But there was a couple of people called the Burragang. And the Burragang were famous for being body snatchers, but apparently around that time that Keats was working there, they decided they would go on strike. They wanted more money for their bodies. And so they would stop giving the bodies. And so the surgeons had to go out themselves and steal bodies from grapes. And the suggestion might be that maybe keeps, because he was there at the time that this was happening.
+
+[00:52:33] And then grapes are just a symbol. I hope it, I mean, I love it. How do you go on strike as a body's natural as well? Where do you stand? Do you stand outside the hospital, the graveyard? And what do you, what do you sign, say? Yeah. But there's like one of his famous poems, which is called Isabeler. And what do you say and say? But there's like one of his famous poems, which is called Isabela,
+
+[00:52:49] it's about a woman who keeps the head of her father, lover, one of the two lover. I think lover. Lover in a pot of basil, and he explains what it looks like, this decapitated head, and we think because he works as a surgeon, he knew what dead bodies were like, so his poems were real. Yeah, he lived a proper life.
+
+[00:53:09] He has one thing we don't know about Keats, we don't know if he ever rode a bike. Oh, okay. Because he would have had the chance to. Yeah, brilliant. This was the, the philosophy was the very early, all that it got called the Danny horse as well. It's a bike with no paddle, basically.
+
+[00:53:24] Oh, yeah. So you straddle it and you wheel it along the ground with your feet. Like it kids, like it's very early, it got called the Daddy Horse as well. It's a bike with no paddlesposically. So you straddle it and you wheel it along the ground with your feet. Like it kids, like it kids, it's very early starter bike because this was the most fashionable thing. Yeah. And we know that he wrote to his brother, George, who'd left for America in 1818. He wrote to his brother saying the new thing today
+
+[00:53:39] is a machine called the Velocopeed. It has a wheel carriage to ride, cock course on, sitting a stride and pushing it along with the toes. And it's very exciting, so we know that he knew what they were, but we don't know if he ever had a go. Because he doesn't say in the latter. Did he ever use roller skates? I don't think he did.
+
+[00:53:54] Because his name is Nanogram of Skates, so it's just a man named him. Oh, wow. See, it's so big, this is what it's like. Yeah, I do. I feel like Keats always seemed like I did study English, but I don't remember having a great love for Keats, just because I think he was a bit more like softer and gentler, which does tell me with Ben Wischel playing him. Right. And Ben Wischel said that it was the highlight of his career so far.
+
+[00:54:21] Pleas? Yeah, but that was pre-pounding too. Oh, okay, okay, okay. Who was your, who were your literary heroes when you did English? Literary heroes. I mean, I think what my English degree did sort of kill any enjoyment of actually I have for the subject. But out of the romantic, I like Blake.
+
+[00:54:39] I like Tubbyhead, he did all his little etchings as well. Yeah, who else did I like? Were you a Byron fan? That's a bit of a dividing Chets and Charks thing, Byron and Keats, you know, Beatles stones. Well, a little bit, as in Byron is much more fun. There are many more jokes in Byron. It's just fun. But some of the people they had a rivalry during a lot of time.
+
+[00:55:00] Well Byron was a bit rude about Keats. I don't know if Keats was ever rude back about Byron. Probably couldn't think of anything. But no, he actually did run a lot of great stuff Keats. Obviously, he is one of the greats. Interestingly Byron, when he died, so he died out in Greece. In Greece, he was in... Was it a Laker of the Ocean? It was the ocean, I think, right? He drowned.
+
+[00:55:22] No, Shelley drowned. Byron died of fever. Sorry, sorry. He did swim across the bus for us. Byron didn't eat, but he didn't drown. No, he died of fever. Sorry, I'm confused. When part of identifying who Shelley was, when they found him, was not only his clothes,
+
+[00:55:38] but he had a book of Keats' poetry in his pocket. Oh, really? Yeah, Shelley carried around with a Keats. So Percy Shelley was a vegetarian. And we talked about earlier how he'd ended up having to be a vegetarian. But Percy Shelley was a vegetarian because, well, it's quite forward thinking, I guess, at the time. So he thought that animals used too much land. And around that time there was kind of a lot of malthusian kind of the population is going to go through the roof.
+
+[00:56:02] Everyone's going to starve. And so he decided to become a vegetarian for that reason. But the only thing he would be tempted by was to eat bacon and he just couldn't not eat bacon. And there was a guy, a friend of his called Thomas Jefferson Hogg and Thomas Jefferson Hogg, he used to just, whenever he saw him, he used to just give him bits of bacon and say, I'll just have a bit of bacon, Charlie. That's so funny. Yeah. Because that is a really good reason for big vegetarian. But it is also, bacon is also the thing that a lot of vegetarians,
+
+[00:56:31] or something that try to come across. Classic vegetarian. Yeah. While we're on food, just back to Keats for a second, he also loved jam. Oh, yeah. He at least ate it. So we don't know if he wrote a bicycle,
+
+[00:56:42] but we do know that he ate jam. Because we're piecing it. We're piecing it. Yeah. Because. least eighties. So we don't know if he wrote a bicycle, but we do know that he ate jam. Because he apologized for filling some jam on a letter that he'd written. And so he wrote. And he also invented new words as a result of this or a new word as a result of this. So he wrote after spilling the jam. I have licked it, but it remains very perploo. I don't know whether to say purple or blue, so wrote purploo, which may be an excellent name for a colour made up of those two. Purploo, really. That's how you get to be one of the greats. That's the flavour of early kids. It's purploo period. I was going to ask it was Mulberry jam because in the Keats house in Hampstead where he lived and fell in love with his neighbour,
+
+[00:57:30] there is a mulberry tree, an ancient mulberry tree, which they think that like people hypothesized he stood under an eye, owed to a nightingale, but whether or not it was there when he was there, it has been adopted into the Queen, they should rest in peace, had a collection of ancient trees, less than a hundred ancient trees and this form part of the Queen's canopy. What a collection just around the country of just real old trees. I think that's nice. Yeah, yeah, yeah. I've got a I've got a riddle for you. Oh yeah, okay. The most famous painting of Keats, right, is of him at Wentworth Place. It shows him sitting and coming up with his most famous poem. Yeah, I feel like I could not call them out. No, for sure. Yeah. Well, join the queue with a third of American men who, um, so...
+
+[00:58:11] He's dead in the painting. Oh, what? Ooh. Okay. So... Oh, my God. Wait, sorry, it's dead. Yeah. Riddle me that. So someone's painted him, right?. So someone painted him, right? And when they painted him, his body was the thing they were painting. So it's painted in 1834. He died in 1821.
+
+[00:58:33] Oh, that's quite a long time afterwards. Long time. So yeah. So the riddle is, is it something like, is it? There isn't a riddle apart. Is that the problem with this? Well, a lot of you has come up with an answer. So I feel like it's still a riddle. No from that's the problem with this. Well, none of you has come up with an answer. So I feel like it's still a riddle.
+
+[00:58:47] No, no, it's it. Did he like donated skull to the theatre? And so it's his skull that's depicted in the... No, nice, not bad. Is he painted as an angel? That's another good answer, but no, no, no. Seems like no one sawed my riddle. What's the riddle?
+
+[00:59:00] How? How was he dead in a painting? How was he depicted so brilliantly 13 years after he died? He was a twin. So they just used the twin to model. His father was the artist. That's right. And she said, I cannot paint this. It's my son. It's my son. No. I don't understand. Shall I solve the riddle? He's dead in the painting because Halloween party? That's a Halloween party painting.
+
+[00:59:30] Yeah, that's why. And there's a plastic bat in the corner. No, no, no. OK, so that after his death, a death mask was made of him. Yeah. And it was used as the model. And after Keith's died in Rome, they made a death mask of his face.
+
+[00:59:42] They also did his hand and his foot. And there were only two of these death masks for a long time. One of them was kept by Joseph Seven, and one was sent to his publisher, which I feel is a weird... I feel that is... As in, if I died... Yeah.
+
+[00:59:56] And we have two masks. And they can go to any two people. Exactly. Yeah. I don't want one to go to my editor. Yeah. But no, that's what was painted of him 13 years later. And the frame of this painting, this is quite romantic.
+
+[01:00:11] Capitalite has a lock of his hair in the frame of the painting. So there's a little bit of Keats in that original picture. That's kidding. Good riddle. Thank you. Good thinking of siblings of Keats. His little sister was called Fanny, which is the same name as the woman that he was in love with. Yeah. What a freaking little boy. That's not a thing.
+
+[01:00:33] You can't vary something with the same name as you. You can't vary something with the same name as you. Well, they didn't get married. He just loved unrequited. unrequitedly, I think. I think they were engaged, but they did. They never married. They never married. And then he died very young and... I don't think he should be unrequited if they were engaged, but they never married. And then he died very young.
+
+[01:00:45] I don't think he should be unrequited if they got engaged. That's not unrequited. You're right. You're right. That was the definition of a white man. That's not why I've sent to me. I will say yes, but just so you know, it's not required. It's true.
+
+[01:00:59] Well, funny never took his ring off. So Keats gave her a ring. And for the rest of her life, even though she remarried, she always wore the ring that Keats gave her. You think it's a bit of a kicker that guts to her second husband? A bit of a round-out. Yeah, I think that's because he's such a romantic... No, actually, it's worse that he's one of the great romantic powers.
+
+[01:01:17] By the way, one of the best and most romantic powers I ever loved me and gave me this ring. It's a lot of pressure when you're writing a Valentine's card, isn't it? It is. I'd love to be this way. There's a lot of pressure when you're racing a Valentine's card, isn't it? It is. Racer Red, Valentine's Purpluges. LAUGHTER Okay, that's it. That is all of our facts. Thank you so much for listening.
+
+[01:01:42] If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At James Harkin. Andy. At Andrew Hunter M. And Sophie. At Sophie Duke Box.
+
+[01:01:54] Yeah, or you can go to our group account, which is at no such thing, or you can also find us on Instagram now. At no such thing as a fish, you can also go to our website where you can find all of the previous episodes that we've done as well as links to our upcoming live dates and Sophie anything you want to mention before we go anything upcoming. I have a website because I am a child of modernity and it's www.sophieducocom all my dates and stuff are on there. Yep all live dates and
+
+[01:02:22] so on so do go check that out and otherwise we're going to be back again next week with another episode. We'll see you then, goodbye. you

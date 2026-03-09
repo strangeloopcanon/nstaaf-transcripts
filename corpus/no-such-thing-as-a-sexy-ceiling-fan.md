@@ -1,0 +1,343 @@
+# No Such Thing As A Fish - No Such Thing As A Sexy Ceiling Fan
+
+- Episode date: November 1, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-sexy-ceiling-fan
+- Slug: no-such-thing-as-a-sexy-ceiling-fan
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I am sitting here with Andrew Hunter Murray, Anna Chisinski, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that the Moulon Root. had a can-can dancer who would distract patrons by kicking off their hats before promptly downing their drinks.
+
+[00:00:47] So good. It's such a good trick. It's a dangerous trick. Yeah. Because you might just kick someone in the face and then... I was thinking of the alcohol poisoning. Oh, yeah. But yes, that too.
+
+[00:00:59] These were problems. But actually, the kicking in the face thing, that was one thing that the cancan dancers would do is deliberately pretend that they were going to kick someone in the face. If they were taking too many. liberties on the front row, they would kind of do a kick that got quite close to their face. And so that was a thing they did. And as for the alcohol poisoning, unfortunately, this lady called Lagulu, otherwise known as Louise Weber, unfortunately she did in the end succumb to the drink. So this fact came to me from text, text message when we're on tour last week, and it came from
+
+[00:01:34] someone called Sarah Funk, who I texted this morning. She allowed me to use it. She's just as well because you guys had already researched it. But this lady called La Galu, she was amazing. She was the highest paid entertainer of her day. And she was basically the Moulon Rouge personified. Yeah. She was La Gulu means the glutton. And yeah, she used to down people's drinks or swipe their chicken drumsticks from them, apparently.
+
+[00:02:00] Did you get drumsticks at the Moulin Rouge? It's surprising, isn't it? It feels like more Renando's kind of vibe. But apparently they were very sexy in the olden days. So she had various other methods of distraction She had a parrot, a pet parrot A little pet goat That she kept on a lead
+
+[00:02:16] In the Moulin Rouge In the Moulin Rouge Well I think often you were sort of wandering around Mingling or going to parties How does having a parrot help you steal food Well if anyone's distracted Yeah Yeah
+
+[00:02:29] It's just this whole woman's career Sounds like an excuse to get more food Yeah she was called the Glutton Do you know what She had a lover whose name was La Montframage, the cheesy girl. That was the name of her girlfriend. That's like a preview of the cheeky girls, isn't it?
+
+[00:02:46] Very much more French. Cheesy girls. Touch my bum, no thanks. Although actually, La Gulu, sorry to interrupt, I think. But La Gulu, one other thing that she used to do to distract people is she would bend over, show her knickers, and she would have a big red heart on her knickers, and that was like one of her kind of... Signature move.
+
+[00:03:05] Yeah, exactly. We've all got one. People had amazing names. Another of the dancers was nicknamed Grie de Gou, which means sewer grating. Oh, nice. What was her trick? I don't know.
+
+[00:03:19] Do you know why she was called that? No, I don't. It wasn't because of her teeth. Yeah, she had really gaps in her teeth. This is great. This is like WWF. They've all got a character, a signature move. It's all real as well.
+
+[00:03:32] It's all real. There was another one called Nini Le Pats. on there, which means nini legs aloft, or legs in the air nini. Feels like that described all of them. Yes, it does, apart from the nini bit. It was basically their thing was throwing their legs up as high in the air as they could, wasn't it? The French can-can. Yeah.
+
+[00:03:51] Invented the Moulin Rouge. So Weber or Weber, I guess it looks like a German name, but she was French. She had a dance partner who was called Jacques Renaudin, aka Valentin Le Desocet, which means the boneless. And he wasn't as successful as her. But apparently... Amazing. Every time he threw his legs in the air, they just wobbles back down like a jelly.
+
+[00:04:13] Well, look, I think he was very flexible, which being boneless does make you. And I don't think he was literally boneless. But he danced at the Moonla Mourge as well, but he never accepted a single scent for it. This is... Oh, really? Yeah.
+
+[00:04:25] What was he independently wealthy? Just did it for fun. No one knows about his background. And no, he wasn't independently wealthy. He just loved dancing so much. He felt guilty. He just oozed into a sewer's ambulance. Speaking of boneless people, have you guys ever heard of Captain Frodo?
+
+[00:04:41] No. Some Lard of the Rings. Well, no, Captain Frodo is slightly different. I think he's, oh, he's from somewhere in Scandinavia. But this is a modern cabaret performer. He performs in a show called La Clicque, which is really amazing. And his trick is that he can fit his entire body through a tennis racket. Oh, I have heard.
+
+[00:04:57] In fact, he's got two tennis rackets. One is 10 inches, you know, from the base of the head to the top of the head. And the other one is 8 inches from the base to the top. and he gets through both of them at the same time. Does he the one, does he like dislocate his shoulders? Very much so. He dislocates everything in his body. It's incredible.
+
+[00:05:13] And they do take the strings off, don't they? Yeah, they do. I was just thinking of one more boneless thing, and there was Ivan the boneless, wasn't there in the sagas, I think. My favorite cartoon character in all existence is boneless chicken from cow and chicken. I'm so glad we're finally talking about boneless things after five and a half years. Why is he called boneless? on this he has no bones. He has no bones and his whole character is just he turns up in about
+
+[00:05:39] one and every six episodes and he's just like a flopped lump of skin usually over a chair a table or on the floor and they're like oh hey uncle boneless chickens come to stay again hey uncle and then he's just like, hello. So another performer at the Moulon Rouge is someone who's an old friend of the podcast we've spoken about him a few times. What, Everard Digby? Not Everard Digby. I say an old friend. We've mentioned him probably twice. le patomain the french farta he was a headline act at the moulin rouge was he you don't want to have to go on stage after him do you yeah yeah so he'd go up and i don't know how it worked if we've miced because i picture the moulon rouge as you say like people are walking around with goats you know how are you going to hear how are you
+
+[00:06:24] going to hear you did do stage stuff didn't he did do stage stuff yeah but i suppose usually he'd be in a quiet auditorium i see a point whereas you know a lot of mingling noise it must have been mics up it's not that sexy is it given that the Moulin Rouge was supposed to be a little bit raunchy. I don't know if farting is sexy but it might have been back then. Some people in France. Do you know one sexy thing they did have? They had a massive wooden elephant in their garden. And so that's in the film because there was a recent film about it. Do you mean the film Moulin Rouge? Yeah. Where did it come out last year? Yeah, yeah, it must have been last year. It can't be more than last A couple of years, I think.
+
+[00:07:01] Okay, relative between the invention of film and now, it's in the most recent fifth, I would say. So it is a recent film. Just, it is just in the fifth. This is completely irrelevant. The point is, I don't know if they mentioned this in the recent film, but it had a room in its belly for intimate dances. Did it?
+
+[00:07:24] So you would have belly dances for sort of an exclusively male clientele in there. Belly belly dancers? Yes. Exactly. So cool. Maybe if things were getting a bit sexy in the main club, you'd say, hey, you want to take this to the elephant? Sure. Should I bring the goat?
+
+[00:07:38] Do you know how old you have to be to go to the Moulon Rouge? Today? Yeah. I would guess 18? Younger. Wow. 14. Younger.
+
+[00:07:46] No. At six years old. Children from the age of six are now permitted to attend the uncensored evening shows, according to their website. Wow. But even in 1950s, they had a children's matinee. every Sunday. What is that a afternoon. On Sunday, all the kids
+
+[00:08:05] could go there and watch it, but all the dancers were much more covered up. So they got the, you got the idea of being at the Moulon Rouge, but without the sexiness. So the elephant was closed off
+
+[00:08:16] for the afternoon. There's no elephant in the room. That's a shame because a massive wooden elephant would be the thing I, as a six-year-old, would want to see rather than a load of dancing girls at the age of six. I agree. Something else they had in the garden
+
+[00:08:26] that was very good for children, if they'd attended, was a donkey rides. So not a thing you, usually seeing nightclubs anymore. I don't know. The last time I went, which was quite recent. You got there in a horse and cart, didn't you? Yeah, they used to do donkey rides around the garden.
+
+[00:08:44] It was a pleasure garden, which someone described at the time as a pleasure garden with small enclosures for dalliances. And the girls used to be allowed on the donkeys, so they could sort of hitch up their skirts and show off their legs. It was a very exciting seeing people's legs at this time. So it started in the 1880s, didn't it? Still is. Still, it is. Sorry, Andy and I were looking at us.
+
+[00:09:04] Still exciting to be legs. Okay. So again, we're a very old-fashioned group here. We've established. You never really saw... I was meaning to say something. You were showing your ankles this morning. I've mentioned it to HR.
+
+[00:09:18] I thought pedal pushers were acceptable these days. No, it was because you hadn't really seen women's legs. They used to wear big skirts. They went down to the ground, or at least you don't only just see a bit of ankle. And suddenly, they're doing their little. can can, which is exposing their upper thighs. And yeah, it became the main attraction, really. And police used to go and check they were wearing underwear. So they'd come to the Mulan Rouge to watch, well, I bet they were gagging for that job, all of those. I was going to say, that is better than
+
+[00:09:45] office work, isn't it? As a policeman. Yeah, it's a good gig, if you can get it. No, they did tend to wear underwear. They would have said, you're knickered if they had to carry out arrests. Yeah, yeah. Very good. The Mulan Rouge has quite a few Guinness World Records. Okay. Yeah, specifically for Cancan. So they have the most circular French Cancancic. They did 29 in 30 seconds. So they did this outside of the Moulin Rouge.
+
+[00:10:09] Circular kick. So it's... I imagine it's when you go... You kick your leg out to the left and it goes all the way around. A bit like a roundhouse kick. Yeah, exactly. Okay. Yeah.
+
+[00:10:20] And then... Like you're waving, but with your leg. Hmm. Yeah. So then another record that they have, there's a Cancan soloist. He's a Greek guy, and he's got the record for most high kicking behind his head, which he did 30 times and 30 seconds.
+
+[00:10:35] Now, I don't know if that means the kick goes... No, I would say it goes forth. So Dan was just pushing back with his arm, but I would say that it goes in the normal Cancamp fashion, but maybe the foot ends up behind your ear. Behind your ear, yeah. So 30 times and 30 seconds. He could kick off his own hat.
+
+[00:10:51] He could. But the Cancan was for men and women originally. It was a men and women's dance, and it was the men did all the high kicks. The women didn't do any. And the really shocking thing about it was that there was lots of bodily contact between the partners doing it. And then the women started joining in the high kicks
+
+[00:11:10] and people noticed that, oh, this is really sexy. Partly because women wore open-croached pantalettes in the 19th century. Not just partly, mainly, I would say. That's why it's sexes. Yeah, absolutely, yeah. So they then thought, oh, this is much better than watching a load of men just leaping around all the corners of the stage. and that's how it got its salacious reputation.
+
+[00:11:30] Did they really, so when they did the Cancang at certain points, they must have had underwear under that, right? They weren't flashing their vaginas in the mid-19. I think they were. Yeah, I think they were. Flushing their vaginas. In the, like, not in the Milan Rouge, but I think in the realm of match, like, other,
+
+[00:11:45] more salacious. In the sort of the spin-off, yeah, they definitely weren't in Mulan Rouge. Not in the Mulan Rouge. The Moulin-Roo. The Moulin-Rooge was very strict about pants, actually. Was it? Yeah, yeah, it was. They were very strict on that.
+
+[00:11:55] But, okay, there was spin-spinoffed. Because I think if they were never doing that, there'd be no point having the police there. The police would have been just basically checking people's knickers for no reason whatsoever. Yeah, yeah, you're right. There must have been a couple of people who maybe forgot. Maybe forgot. We all forget to wear pants some days. It really makes the police sound like creepy gym teachers.
+
+[00:12:17] It does. And they're checking everyone's wearing the regulation underpants. Well, you had a rough time at school, didn't you, Andy? No. That's a sad cry, isn't it? memories are flooding in there he's lost it I don't know what you're talking about
+
+[00:12:32] so I read about one accident in the Moulin Rouge that happened this was in 1899 and there was a British newspaper I was looking this up actually in the British newspaper archive and the tone with which British newspapers report on it is so funny because they basically they're not outraged by it they don't think it's salacious and gross
+
+[00:12:51] they basically go oh this isn't nearly as fun as our music halls all the articles say I went there and it was just massively overly hyped and it wasn't a big deal at all, didn't fancy anyone prefer to go to an opera. But anyway, all these articles are like that. And then there was one report that in 1899, a Melan Rouge dancer actually died while dancing her quadrille, which was like the precursor to the cancan, because the dance ends with her jumping really, really high in the air, springing in the air, and then landing flat on the ground in the splits with her legs at right angles to each other.
+
+[00:13:20] Oh, no. But apparently she did it so carelessly as to be injured fatally. What does that mean? What does it mean? It sounds like you'd be torn apart. What does she land on? Yeah. Doesn't mean she hit a ceiling fan in the air.
+
+[00:13:32] I don't think they existed back then, don't they? Oh, ceiling fans have been around for a long time, don't they? Well, you get those punkers in India, don't you? Which are the sort of big mats you hang up and then you're saying them to throw. It'd be hard to kill yourself. You don't say so. Also, it's the only guy who goes to the Moulin Rouge looking at the ceiling fans. It was the first place with electricity, though, in France, wasn't it?
+
+[00:13:54] Well, they needed it to operate the ceiling fans. Thank you. Riddled with ceiling fans. The main attraction, actually. We've got to invent something that can make these ceiling fans work. Just on scandalous dances and the British press's reaction.
+
+[00:14:09] So the waltz was an earlier scandalous precursor to the Cancan. So it arrived in London at about 1790, but even 25 years later, it was still pretty shocking. Again, because you were very close to your partner. And an article in the Times wrote, so long as this obscene display
+
+[00:14:25] was confined to prostitutes, and adult arresses, we did not think it deserving of notice. But now that it has attempted to be forced on the respectable classes of society, we feel it a duty to warn every parent against exposing his daughter to so fatal a contagion. That was the waltz. Wow. Yeah. I still feel that way about novels.
+
+[00:14:44] What's a novel? You say nobles. Novels. Novels. Oh, novels. Nobles. I thought it was some dance that I hadn't heard of there. Everyone's doing the novels.
+
+[00:14:56] It does feel like something It might do in Bolton And the dance halls of Bolton Everyone do the nubble It does, it does not feel like a Moulin Rouge kind of dance Okay, it is time for fact number two And that is Andy My fact is that in 1959,
+
+[00:15:17] as a publicity stunt, A three-ton block of ice Was driven from the Arctic Circle to the equator This is the craziest story. Yeah. It's insane. So this was, I found this in an article on Amusingplanet.com, which has brilliant articles about all sorts of stuff on it.
+
+[00:15:33] And this was in the 1950s. It was a stunt by a Norwegian firm, which was trying to show how good their insulating glass wool was. I didn't know about glass wool before, you know. But it was in response to a challenge on Radio Luxembourg. In 1958, they challenged anyone. They said, if you can take three tons of ice from the Arctic to the equator, and it's verified,
+
+[00:15:54] we will give you 100,000 francs for every single kilo that remains when you get to the equator. Wow. But the trick was you weren't allowed to use any refrigeration. But you're allowed to use glasswall. You're allowed to use glass wool. And that prize was big. That was the equivalent of $17,000 in modern money per kilo. Okay.
+
+[00:16:12] This is a big opportunity. And how much did they get to the end? Well, by the time it got to the end, it had lost 11% only of its weight. So do we know how much they got? How many kilos left? about 2,700 kilos left. Yeah. It was a 3,050 kilo block that this firm did.
+
+[00:16:32] So they must have got about the modern day equivalent of $2 million or something. Well, Radio Luxembourg had retracted the offer when it became clear how much money they were going to lose. Before they set off, though. Before they set off, they retracted the offer very early. But the manager at GlassVat was so excited because they just wrapped up the block of ice. And they took loads of medicines with them. so it wasn't a completely pointless trip, and they just put this massive clock of ice on a truck.
+
+[00:16:57] I mean, taking ice to the Sahara is not pointless anyway, right? No. At least useful. That's true. Although, did they then distribute it around the Sahara for cocktails and stuff? They did. Yeah, yeah, they did. They chopped it up into all the blocks,
+
+[00:17:09] and they gave it to people who, in the article, says, had never seen ice before, really ice blocks, you know, for... Although there was one thing where there was a documentary made about it, and there were pictures of camels drinking this fresh Norwegian water as if it was the greatest thing in the world. world, but actually everything that they were drinking was full of glass, wool and tar paper. It wasn't really potable at all. Do you know what happened to some of the ice?
+
+[00:17:32] Some of the ice was flown back to Oslo. Really? Yeah. It was wrapped in presumably a smaller amount of glass wool. It was flown back to be given to journalists in their drinks at a media reception in Oslo all about this incredible achievement. That's really cool, isn't it? Yeah. To have a gin and tonic where the ice has been all the way to Africa and back.
+
+[00:17:51] Yeah, it's incredible. I mean, I know we're not supposed to buy things that are full. flown halfway around the world. It has the 50s, it's fine. Oh, there was an insane thing, actually. So they had an all right drive down to North Africa, you know. And by the time they got to North Africa, they'd only lost four liters of water out of 3,000 kilos on this block.
+
+[00:18:07] I mean, this glass wool stuff is really good. But Algeria was in the middle of a civil war, so bad time for driving through. There were no roads through the desert. No. And they had, so they had to keep on getting out and digging it out, just digging the truck out of a sandrift that had gone into. And the worst thing was they had a very limited water supply. So they were really thirsty all the time they were driving it.
+
+[00:18:28] Could they not just lick their blood? Three tons of ice. Wow. So disciplined though that they all refrained from licking the ice. They wouldn't even take a miller liter off it. I know. Great. Didn't they have to be guarded by the French Foreign Legion at one point?
+
+[00:18:43] I think going through the Sahara desert, they were guarded because of the guerrilla forces in the Sahara that they thought might attack them. Yes. I think Algeria was then in the process of stopping being French and starting. looking to be Algerian. So I think that's why the French Foreign Legion might have been there. What a lovely way of putting that very traumatic decolonisation of a country period. We're in this gradual transition phase. And they did, as you say, they did take medicines with them.
+
+[00:19:11] So they ended up in Garbonne at the end. And they brought a shedload of medicines, tons and tons of medicines to deliver to the people. So not just a PR stunt. No, although predominantly. Mostly a PR stunt. But actually, the idea of bringing ice from the north or the south and using it in warmer climbs is quite a common idea through history, right? I guess so.
+
+[00:19:33] It's one of your favourite things, Andy, about lassoeing icebergs. Oh, yeah. This isn't for drinking it, but isn't it like when there's oil rigs or something? Yes, it's to stop it hitting oil rigs. I actually phoned up one of the iceberg lassoing men and I interviewed him about it. Or he owns the... oh, he was running a company which does the satellite monitoring of icebergs,
+
+[00:19:55] because when one's drifting towards an oil rig, and if it crashes into an oil rig, that's big, big trouble. And so they just have to go out, and they put a rope all the way around it, and they tow it a little bit, just for an hour or two, and then that pushes it into a different enough direction that it's going to miss the rig. It's so cool. It's amazing. But they don't fully tow it to the equator, which would be a big job.
+
+[00:20:15] But that has been a thing that people have tried to do in history, and actually people have done that. They've taken it from Antarctica up to places. like Peru and where they used it for the brewing industry when they have droughts. Yeah, we had to get the ice. And you know they used, you mentioned oil platforms. Russia actually uses ice as a drilling platform. So this is this really cool kind of ice, which is a giant ice blocks called Naled,
+
+[00:20:41] which are basically ice blocks that form on rivers. So ice that forms on rivers can be much thicker than ice that forms on lakes, because if it's cold enough, then the force of the water underneath the low, of ice pushes up in the slightly warmer day time through it and runs on top of it and then it freezes overnight so you've got like a second layer and then the next day the same thing happens again you've got a third layer whereas it's like a Russian doll it's like a Russian doll but made of ice so you can get these huge like seven meter thick blocks of ice and they've been used for things like the North Korean military I know we don't like to take tips from them but the
+
+[00:21:16] North Korean military use them to build river crossings for their tanks in winter and Russia has drilling platforms made of these giant ice blocks. Sorry, do they move? Can you move them around? Can you put them into place? They pick them up, yeah. So they take them out of the thing. Yeah, it's amazing.
+
+[00:21:31] Because there was a plan to use them in Mongolia. This is where I found out about them first. In 2011, a plan for keeping Mongolia cool in summer. So I thought Mongolia mainly had a problem with being too cold, but Ulambator gets very hot in summer. And so they said to regulate temperatures, reduce aircon, and provide drinking water and irrigation, they would take some of these huge blocks of ice
+
+[00:21:53] and dump them in Ulambertor and gradually let them melt through the summer and it was what they called an ice shield and this would sort them out and it was this plan it got like hundreds of thousands of dollars of funding and if anyone knows what the hell happened to it can you let me know? I must have noticed by now.
+
+[00:22:09] That is amazing. So do you know whether it actually happened? I have no idea. It kept on saying they've got the funding they're doing this, the plans underway 2011. Zilch from here on in. So on publicity stunts, Game of Thrones announced the premiere of their seventh season with a block of ice. What they did was they set up a large block of ice and then in front of it they put a camera and they set up a Facebook live broadcast with the block of ice melting.
+
+[00:22:37] And if you typed fire, I think this is how it worked, a little flame thrown near it would blast a small amount of fire. And as the big block of ice melted, it was going to reveal the date of the law. of the series. It's clever. Unfortunately, it took a long time. It took over an hour, and everyone was typing fire, and everyone was getting really frustrated. It turns out ice is really hard to melt. Even if you type Dracaris, which is a thing from the show, and it means that multiple
+
+[00:23:04] flamethrows fired, it still took more than an hour. And then the live stream broke. So they were just left with a big block of ice, and eventually Game of Thrones just tweeted the day that the series is coming out. Everyone hated it. I can't believe. Game of Thrones. fans, above anyone else,
+
+[00:23:20] couldn't be bothered to sit around for one hour and wait for that. Well, there was no nudity in that hour, so I don't think, yeah. That's the mistake, isn't it? It should have been like one of those mugs that when it gets hot, shows a naked woman. It should have been two shagging Vikings have gradually appeared.
+
+[00:23:37] I've never seen it. You've got a very good grasp of what the show is. Thanks very much. I was looking up ice stunts as well. Did you guys ever hear about the, the 2001 sort of ice contest launched by a Birmingham radio station
+
+[00:23:52] which it was on and he's looking horrified enough that suggests he definitely knows about this it was BRNB radio station and basically it got this cool idea from a New Zealand website
+
+[00:24:03] which had run a similar competition and this site said that they'd got a block of ice of ordinary ice and they'd had a contest to see how long contestants could sit on it and the winner got the prize
+
+[00:24:14] and so this Birmingham radio station decided to do the same thing. But due to what was reported as a breakdown in communications, they had people sit on a lump of dry ice, which is, of course, minus 78 degrees Celsius. So it ended up, it was to win tickets to go and see Jerry Halliwell and A1. Oh my God. They ended up going, didn't they? That's the worst thing I've ever heard. No, it landed three contestants in hospital for more than two months with severe frostbite. They got permanent scarring. Three of them had to have skin grafts and stuff. stuff.
+
+[00:24:48] And yeah, severe burns. The one who escaped with less serious burns only escaped with less serious burns because she was wearing 14 pairs of pants. Wow. Sort of the opposite of a Moulin Rouge performer. It's a really bad story. That is bad. And the thing is there was a St. John's ambulance team watching.
+
+[00:25:08] And they said, you know, you really shouldn't sit there for longer than 10 minutes. That would be dangerous. And they were there for nearly an hour. Still 10 minutes is too long. Yeah, completely. It's minus gone or what. How did one person not read like minus 78 degrees and say, this feels weird? Well, eventually there was a massive legal, you know, case over it,
+
+[00:25:26] and the radio station was fined £15,000? Yeah, pathetic. For getting three people permanent scarring for life. Wow, wow. Insane. But they got to go to the concert. Well, that's good. Yeah, and hopefully, although apparently it really hurt to sit down.
+
+[00:25:41] So you'd hope, I suppose, that they had mosh pit tickets. Well, you wouldn't be sitting down at a Jerry Halliwell and A1 gig. You'd be on your feet the whole time. Oh, you'd be being passed over the wave thing that people do in the audience with their arms in the air. Okay, guys, enough, enough. You know, the mosh bit. Yeah, what's it? No, that's not what it's called.
+
+[00:25:59] Yeah, you'd be crowd surfing. Yeah. There you go. Oh, wow. Do you remember David Blaine's ice thing? Oh, yeah. Not really. This was before he went up over the River Thames.
+
+[00:26:12] Yeah. He spent 58 hours inside a block of ice. In the year 2000. Oh, that's right. Yes. Yeah, yeah. Did he really? Yeah, he did.
+
+[00:26:21] Yeah, he was sealed in to two blocks of ice with a body-shaped cocoon in the middle. Right. And he had a tube to breathe through and he could drink water. I mean, he could drink water whenever he liked, I guess. But this was good mostly because of all the other magicians immediately giving him shit over it and being furious. So Penn, half of Penn and Teller, said, pumping hot air into a phone booth and putting ice around it and standing around without a thought in your head isn't a trick. And a spokesman for David Copperfield said, a spokesman for David Copperfield said, if you look at the physics of it, it's warmer than a downfilled sleeping bag in there.
+
+[00:26:56] Wow. They were really limited. Yeah. And they don't know he didn't have a thought in his head. He could have been creating the next Shakespeare. Yeah. Or his next trick. Like, I'm going to sit in a box next time.
+
+[00:27:07] Exactly. You know, come up with that kind of genius out of nowhere. Awkward if he did lick the size and then your tongue got stuck with it. Yeah. Just how long was he there? 58 hours. Just tongue stuck to the wall. Everyone watching. Okay, it is time for fact number three, and that is Chisinski.
+
+[00:27:33] My fact this week is that prehistoric babies drank from animal-shaped sippy cups. And this is a recent discovery. They've been doing some archaeology or checking out some sort of graves that were dug up a while back. And there are two, some Iron Age graves in Germany and a Bronze Age grave nearby. and they both turned up in children's graves, in like little toddlers and babies' graves, these vessels, and they had spouts, basically, and they've looked at the proteins that are in them, and it showed that they contained some kind of milk, either goat's milk or cow's milk or something like that. And it's really interesting because we didn't know that women weren't just breastfeeding their children exclusively at that age,
+
+[00:28:13] and it turns out that they were obviously using cows milk and stuff. But they think it might be the cause of a big baby boom. so the first baby boomers were prehistoric and they happened basically because people stopped having to breastfeed their children for so long and so much because they maybe had these sippy cups and they shared childcare a bit more because they'd settled down into group communities
+
+[00:28:33] and so when they weren't breastfeeding they then menstruated a lot more and got pregnant a lot more, had loads more kids. It's all about the cups. So it's a good news story. It's a great news story. It's all I'm trying to say. Yeah. And just to clarify in the fact,
+
+[00:28:47] similar vessels have been found. that are shaped like animals in the same region. So we now know that these animal-shaped cups were used for babies. Yeah. Which makes sense. Got it. This is, would I be right in saying? It's not just a good news story.
+
+[00:28:59] It's a sort of seminal human existence story, right? This is a big moment in how, there was a big boom of life that came off the back of it, where suddenly we were farming humans, basically. As in, what you mean by that is we were humans who farmed. We were farming humans. Or that we were humans who were farming humans. Farmers are a human, farming humans is what I mean. Because suddenly you could have way more humans than you were capable of with just one pair of breasts.
+
+[00:29:28] I wouldn't necessarily call it farming humans. Oh, I definitely went too far. Yeah. I've got a side of it was out there. Got a cannibalism implication, I think. What do you do? I'm a human farmer. But yeah, collective parenting was a thing.
+
+[00:29:41] I didn't realize. Like you had creches, basically. And I think that it makes sense that you would have had crushes because they were presumably going out into the fields to work. work. And so you could leave one person to babysit the kids while everyone else went out to work, which, yeah, we didn't know. It's quite cool how they detected the milk in the vessels as well, because it's essentially because they had these cups, but they weren't glazed. And so that means they've got like tiny, tiny little indentations in the surface that you couldn't possibly see. But they happen to be the perfect size, these little pores, to fit fat molecules, lipid molecules.
+
+[00:30:12] And so they've just filled in these little indentations. So we can just get them out and go, oh, I have some milk. That's amazing. The amount of technology you need to be able to do that compared to the amount of technology you have to have a cup. Yeah, I know. It's so weird, isn't it? Are you gloating that we're better than those people?
+
+[00:30:29] No, I don't think so, really, because those kind of technologies finding tiny bits of lipids is not going to cause a massive baby boom, is it? You never know. It doesn't feel like it. Maybe everyone will hear this, go home and shagg tonight. They might. It was a sexy fact. But yeah, animal-shaped cups.
+
+[00:30:48] have been a thing throughout history, actually, for adults and children. There was a Harvard museum exhibit last year, which took them from all over the world. And it was like rams and bulls and lions. And they came from ancient Greece, and they came from Persia. And, yeah, in Greece, they would have a donkey-shaped cup, which I think had the spout at the back end. So that it was the shape of a donkey's head, sorry, spout at the back end. So when you drank from the spout, it looked like you're wearing a donkey mask on your face. Oh, that's cool.
+
+[00:31:17] Really clever. They used to have human head-shaped cups, as in they were actually made from human heads. Oh, really? Yeah, quite around the world, people have drunk out of human skulls, but the oldest ones we have are from Somerset in England. Oh. Really?
+
+[00:31:34] Yeah, we were the origins of drinking out of human skulls. Wow, something to be proud of. That's why my human farming analogy has gone wrong. Lord Byron had one of those. Did he? Yeah, he was very proud. proud of his skull cup, yeah. I think it was set in gold. I think it was just
+
+[00:31:51] the top of the skull, you know, was the main bit, and then he had a proper handle on it, and base. Yeah, because you couldn't get the face in, because then it's full of holes, isn't it? It's going to come out the eyes. Yeah. Because I can only think of a skull as being more like a saucer than everything else, I suppose. Yeah, but if you think about
+
+[00:32:07] old cups, like what they had what do they have in Greece, Kyrickses or whatever they call? They're more like saucers, aren't they? Yeah, that's true. And you do have a very flat head, actually. So I can see, Well, it's more of a dinner plate, yeah. There were, on Greek cups and receptacles and things like that, there were mixing bowls called craters, craters, with the quay.
+
+[00:32:31] And the Greek poet, Eubulus, wrote that after three craters of wine, all the sensible guests go home. And he was describing what happens next. This is in a, I think, in a national geographic article. With our parties, it's after three crates of wine. Well, he said that the fifth crater leads to yelling, the sixth to prancing about and the seventh to black eyes
+
+[00:32:50] the eighth brings the police the ninth vomiting the tenth insanity and hurling the furniture I reckon that's a slightly different order to how we do it now it's essentially the same but we've just slightly evolved to tweak it
+
+[00:33:05] I think vomiting actually comes before black eyes now and I think police comes last yeah exactly unless they've got involved because there's at least two more sessions there because you know you wouldn't get the police just for yelling or for prancing about.
+
+[00:33:18] Maybe for black eyes. But insanity and hurling the furniture is a definite public order offence. Yeah. Yeah. You're right. And as you say, once the police have come, the party shut down.
+
+[00:33:27] It's weird. In fact, under what circumstances did the police come and then leave and then the furniture hurling happened? Yeah, it's true. Terrible police forces. In the Persian Empire, they had like cool,
+
+[00:33:39] fun-shaped cups. And if you threw a banquet, if the king threw a banquet or something, then everyone would get a different animal-shaped cup and you took it home at the end of the night. That's great. party bag. That's really awesome.
+
+[00:33:48] It's good, isn't it? Yeah. But quite, it's quite an expensive habit. Did he say it was the king of Persia doing it? Yeah, so he could afford it. He's fine for a bottle too, yeah. I've got some stuff on children,
+
+[00:34:01] looking after children and feeding children. Yeah, I do too, yeah. So the first infant formula, like powdered food for babies, was invented by a guy called Justice von Liebig in 1865, and he is also the man who basically invented oxo cubes and Marmite. Wow.
+
+[00:34:20] Isn't that cool? He's amazing. He's feeding babies. Oh, so these are two separate processes that he came up with. But he came up with loads of processes. So one of them was getting cows, milk, wheat, malt flour,
+
+[00:34:31] and potassium bicarbonate and then mixing together. So it became like a powder with milk in it. And then the other thing was a way of getting beef extracts out of beef. And so you could get, you could squeeze this beef so much
+
+[00:34:44] that it was a really concentrated bit of beef. And then that big. became basically Bovro and that oxal cubes. And this guy, no one's heard of him, but he's done so many, like... But sorry, is that, so Marmite is just sort of like someone's taking that a steak and they've squeezed out like a sponge? No. Marmite is more yeast-based, but it's the same process.
+
+[00:35:01] So you take some yeast and you squeeze it. Yeah. Bring it out. But was, I thought, was there baby food that was beef related? I think babies did get given, there was, I think called, was it Pap or Panada? Oh, Pap is like bread and milk, isn't it? I think it's just bread and milk mixed or something. I think it covers a few different things.
+
+[00:35:22] So you could be milk and flour or melted butter. And then sometimes children were just fed a kind of meaty broth. I think no one really knew what came after milk for a long time. People just experimented with different. Like meaty broth. Yeah. It must be nourishing because it's meat, you know. I was reading that in the 1700s in Paris,
+
+[00:35:41] not many people actually breastfed their own children. It was a big thing of. outsourcing wet nurses. So there was a survey that was conducted by the police chief of Paris in 1780. Another creepy policeman. He'd been promoted from looking at knickers to looking at boobs. The survey revealed that of the 21,000 children that were born annually in the city, 17,000 were sent to the countryside to a wet nurse.
+
+[00:36:10] Wow. There's a huge amount. And then it was a condition that if you were sending your kid to a wet nurse and you had money, you would pay them to exclusively breastfeed and look after your kid. But these wet nurses had kids. So they had to outsource their kids to poorer people out in the country. Yeah. So there was a lower rung of wet nurses who were the sort of more, yeah, for the poverty-stricken.
+
+[00:36:32] Yeah. So kids were just being pushed further and further into the country of France to suck on a boob. It was. I had no idea. It was so widespread. Yeah, like 90% of people were not breastfed by their own mother. And also you have this image of wet nurses as being for a rich family And you know you pay for the wet nurse
+
+[00:36:49] But largely especially when people started industrialising It was for poor families and it was for people going and working in factories And then you know you'd nothing you could do with your kid It's a rough gig though They were very looked down on the wet nurses Yeah it seems very unfair because women would really They're doing a proper job they're doing an important job It's a really important job
+
+[00:37:08] And if you've insisted that you latch your own baby onto another woman's TIT Then teat Tete Teet. Well, either. Indeed. Synonyms.
+
+[00:37:17] Yeah. The least you can do is show some gratitude. I think you're absolutely right. Thank you. I was looking up weaning and breastfeeding and things like this. I didn't know that there was a big study of this in the 1950s by a scientist called Ian Wicks. And he found that Renaissance Europeans had fed their infants with a cow's horn with a leather nipple attached to it. Which is a pretty cool way of being fed.
+
+[00:37:40] Yeah. Yeah. I mean, I think also in Europe around that time they were going. directly from the cow, weren't they? Like you would just attach your child to a cow or a goat or something. Yeah, the goats. They used to have goats in orphanages.
+
+[00:37:51] So the Moulin Rouge might have had the goat out during the matinee performance for kids. The goat would just go around the audience. It's like a shot girl. Okay, it is time for our final fact of the show, and that is my fact. My fact this week is that the reason movies include that all person's fiction.
+
+[00:38:15] Dictitious disclaimer at the front is because one of Rasputin's assassins successfully sued MGM for not accurately depicting the events of Rasputin's murder. What? Yeah, I mean, that is... What's amazing about this fact, I think, is Rasputin feels to me or felt to me like about 500 years ago. Yeah. And movies, like Moulin Rouge was so recent. Yeah. They feel like a modern day thing.
+
+[00:38:40] But they're connected. They're connected. It feels insane that such a historical event. is, yeah, has... So when was the... So, Rasputin died in what, 1916? I believe it was 1916. The movie came out in 1933.
+
+[00:38:54] That's a relatively early movie. It's an oldie. It's in the first 20% isn't it? Yeah, oh yeah, yeah, yeah. It wasn't the first 20%. No? No, I'd say it's the second 20%. But I think within the first half.
+
+[00:39:08] Oh, certainly the first half. Oh, yeah. Depending on when you're listening to this podcast, actually. If you're... Sorry, Dan. So, Prince Felix Yusupov, he was a Russian aristocrat, and he was one of the people who helped to kill Rasputin. He didn't get in that much trouble other than to be exiled from the country.
+
+[00:39:30] So it was while he was exiled and he was living with his wife that this movie came out, which was based on a few biographies and so on, called Rasputin and the Empress. So in it, they name him differently, but it's clearly him who they are depicting. and he wanted to sue them because he thought, oh, you're depicting me really badly. Obviously, he couldn't.
+
+[00:39:49] He was an assassin. He was a guy who killed the lead character in the movie. So what he had to do was sue them via his wife because in the movie, they create a scene, deliberately falsified where Yosupov's wife is raped by Rasputin after being hypnotized, and that never happened in real life. So she ends up suing them for a lot of money.
+
+[00:40:08] They lose the case, and MGM is part of the court case and part of losing it generally. they have to put this on the front of movies, which all other movie houses do as well to avoid being sued by real-life characters and movies. It's astonishing. Yeah.
+
+[00:40:22] You know, this country, the BBC documentary, it's not a documentary, it's kind of a pseudo-documentary comedy about this brother and sister couple who live in this really rubbish bit of the country and their lives are horrible and have a grim time. Anyway, they forgot to rename their teacher. So they gave the character in this
+
+[00:40:41] same name as their teacher. and now everyone shouts at the teacher in school and it's apparently ruined his life. Yeah, I'm not surprised. And she recently apologized from an award ceremony saying, yeah, sorry, ruined his life. Whoops. What, sorry, not that.
+
+[00:40:54] Sorry, check out my trophy. That basically wasn't. They used to have that thing called the small penis defense. Do you remember that? And the idea is you put someone in your book and you make it so it's obviously them, but you say this character has a small penis
+
+[00:41:08] and then when you go to court, you can say, well, it's obviously not this person because my character has a very small penis. It does feel like a crowbar in certain novels when it popped up in Pride and Prejudice midway through, I was extremely surprised. When it was Harry Potter. Tiny wand.
+
+[00:41:27] Well, one person who didn't have a very small penis was Rasputin. Nice. Well, allegedly he didn't have a very small penis. Well, some people said he did. One doctor's report from 1912 or 13 said he had completely shriveled testicles. Really? That's completely different.
+
+[00:41:42] Literally a different ballgame. I think you just assume if they've said shriveled testicles, perhaps you assume that the other part is shriveled as well, but you're right, it didn't specify. No, because you would have referenced that. You're right. And perhaps the testicles just look shriveled because his member was so enormous.
+
+[00:41:59] You're absolutely right. It's a compliment in disguise. His penis is in various different museums in Russia. Apparently, Polino's time my wife was telling me. Really? Yeah, there's lots of different like small towns with their own little museums and lots of different ones have his penis. So he's basically things that aren't his penis.
+
+[00:42:15] But not so large that they were able to actually chop a healthy chunk out for each. That's what I thought you meant. Should we say who he was? That's Putin. He's a guy from that song. Yeah, that's right. Sort of monk believed to be a mystic who had this weird relationship with the last Tsars of Russia, Zahar Nicholas II and his wife and their son,
+
+[00:42:37] and could allegedly cure their son's hemophobic. failure and was eventually off for have, you know, for this very dodgy influence he seemed to have over the whole court and over the Tsar. Yeah. Also, he had had a phone call earlier that day, Rasputin, with a death threat. You don't think of Rasputin receiving phone calls, do you? He loved the telephone. Did he?
+
+[00:42:55] I think of him with phone calls because that was famously how he used to the Tsarevich. Oh, yeah. But he loved phone calls. He and his daughter used to make nuisance phone calls all the time, where she used to do dirty voices to the men who would answer the phone. And whenever he ever was on the phone, he would always do squats, twirls and stamps while he was on the phone. He'd always dance around while he was on the phone. Whoa. It's great, isn't it? And just to add, because you just said earlier, the circumstances of his death, which have now been debunked, and you talked about the cyanide,
+
+[00:43:26] but just to give the full story of how he died, the story goes of the myth is that he was fed enough cyanide to kill him several times over. He was beaten severely with clubs. He was then shot. He was then stabbed repeatedly. He was then shot twice more. But after that, when he should have been dead, he got up to strangle his attackers and they eventually
+
+[00:43:47] threw him in a river, rolled up in a carpet. Yeah. And not only that when his body, and I think this was the case, when his body resurfaced a few days later, his lungs were a fill of water, which showed that when he was landed in the river, he was still alive and breathing in the water. I think it was the carpet that did it.
+
+[00:44:04] and the sorry are we going to say what actually happened like well yeah well yeah but just the account of the poisoning because this is all used to post account as well so when he arrived they gave him loads of cakes which were poisoned with potassium cyanide it had no effect so then they gave him a glass of wine laced with potassium cyanide that had no effect then they gave him a second glass of wine laced with potassium cyanide and they said are you feeling unwell and he said yes my head is heavy and i have a burning sensation in my stomach so they thought great we're well on the way so they gave him a third glass of wine laced with potassium cyanide, at which point he perked up and said, oh, thank you. I'm feeling much better after that.
+
+[00:44:38] A third glass of wine. Then the police were cold. Then the black eyes. At this point, they've run out of potassium cyanide. They're really wondering what to do next. But there are all these theories about why the poison didn't work. One is that they just had old poison. One is that he was given sugar.
+
+[00:44:55] It was cakes and wine given to him. And that binds with the active ingredient, which makes it much less poisonous. And then there's another theory that you have often made up all of this and actually they shot him and threw him in the river. I think that that's the one that we kind of think that because there was a confession by one of the conspirators later on who said now we didn't poison him at all. Yeah. Just shut him.
+
+[00:45:15] But it fed the myth, didn't it? Of this crazy, invulnerable monk. Who was sinister and has some weird malign influence over the Tsar? And sort of really sordid. And it's really difficult reading about Rasputin now because we know that he was such a victim of propaganda of his time. So all the first-hand accounts about how sex crazy he was. was this weird
+
+[00:45:35] nymphomaniate guy we don't know I mean I think there's a new biography that Francis Welch wrote I think but even then I think at the time
+
+[00:45:44] there was such a hardcore propaganda drive against Rasputin should we not just go with the rumours though because it's going to be funnier like should we not just say that the reason
+
+[00:45:54] the women of St. Petersburg loved having sex to him so much is he had enormous water on his penis that met whenever he had sex with them they got an immediate orgasm should we not say that kind of thing
+
+[00:46:03] We can say it. We can say it. I'm going to kill everything you say. Oh, actually, James, have you actually seen this war yourself? You can have a, like, various things are not true. Like, he did not get out his willy in a restaurant
+
+[00:46:16] and wave it around to prove that he was respute in. Where are you? We think that did not happen. I've never heard that one, actually. So this was when, this was in 1915. This was shortly before he died, you know. He was under observation by the police, and he goes to a restaurant with a group of followers
+
+[00:46:30] and starts bragging about his relationship with the Tsar's wife. and implying that he's slept with the Tsar's wife and someone asks him, are you really Rasputin? And he replies by getting his penis out saying, this is what Rasputin does. Therefore, I must be Rasputin. But it's a bad proof because it's him saying, look, if I wasn't Rasputin, would I really be getting my knob out in a restaurant?
+
+[00:46:51] Who is the president we spoke about that did that as well? Lyndon Johnson liked to get his penis out a lot of all the time. But he did it in response to journalists, didn't he? Yeah, I think so. It's not a good way of proving it because it's such an easy trick to imitate It's true Maybe you've got to have the big penis to do it And the massive what
+
+[00:47:07] It's so hard to tell from the other side of the restaurant Equally hard to enjoy your meal afterwards Can you imagine Lyndon Johnson on the Andrew Marshow On a Sunday morning Well I'll tell you this much Andrew Anyway he didn't do that He didn't do that He didn't do that as a myth about the restaurant
+
+[00:47:26] But there were all these rooms about his genitals And people kept on wanting to pull them off I think maybe the two are related though I don't know, but there was a monk called Iliador who, first of all, he claimed that he'd got 120 bombs that he was going to use to kill Rasputin and then by some course of events he apparently lost these bombs and ended up chasing after him with an axe and telling him he was going to castrate him. I don't know what happened with the 120 there. There was another holy man who was called Blessed Mitya who ended up punching Rasputin in the face
+
+[00:47:55] and then trying to pull off his testicles manually, which didn't work. There was a bishop called Hermagun who grabbed Rasputin's penis, screamed that he was the Antichrist and proceeded to beat him with a huge crucifix. Do you know who almost got the gig before Rasputin? Which, what do you mean the gig? So the gig was basically the countess, sir. She was spiritual advisor. Yeah, spiritual advisor.
+
+[00:48:19] She was very into. So it must be someone we've heard of. It is definitely someone we've heard of. George Bernard Shaw. No. It's a great guest. Lovely guest, but no. Yeah, lovely guest, but no.
+
+[00:48:30] Harry Houdini? Harry Houdini. What? Yeah. Oh my God, what a guess. That's an incredible guess. What? Yeah.
+
+[00:48:36] Harry Houdini was over doing shows there and they met up. And there's that famous thing of Arthur Conan Doyle not believing that Harry Houdini wasn't really magic. Same thing with the Tsar and the countess. They thought he was genuinely doing magic tricks offered him the roll. What an alternative universe where Harry Houdini is Rasputin. That would be amazing. Yeah, he probably could have got out of the river. That's the terrible time.
+
+[00:48:59] Yeah. Roll me up in a carpet. No problem. that's insane yeah and he was he was I read this in a Harry Houdini book he was offered the role afterwards as well so we've lost our advisor I don't know if you saw the papers but we're looking for someone new
+
+[00:49:16] and Houdini was asked once again if you said no the first time I think that second time if you had read the papers it would be a pretty hard no yeah that's true do you know why they think Rasputin was so efficacious in curing the Zazes hemophilia
+
+[00:49:32] Right. So hemophilia is a disease where your blood is very thin, and if you cut yourself accidentally, you don't stop bleeding for a very long time. So very, very dangerous. It's possible that Rasputin just said, in his kind of holy mystic way, chuck away all the medicine you've been given. I'm going to be looking after you. And it's possible that some of the medicine was aspirin.
+
+[00:49:54] Oh, really? And aspirin thins the blood as a side effect. So it may be that there was a grain of truth. in Rasputin's advice, but not for the reason, obviously, that he was mystical. I like that. That's cool. Also, there's a thought that maybe when he was hypnotising over the phone and sometimes in person, it has a relaxing effect, which it does, like meditating.
+
+[00:50:16] And then if that lowers your blood pressure and lowers your heart rate, then you're going to bleed less. So it helps dissipate it in that way. Interesting, yeah. But, you know, conventional medicine is probably advisable these days. Oh, you square. We were talking earlier about Maria Raspiator. his daughter and the phone calls.
+
+[00:50:33] So after this happened, she moved away and became a lion tamer in a circus. Yeah, she did. That was one of her jobs. She was also a dancer in Paris in the beginning of the 1900s. Tell us what. Yeah. No, no, unfortunately, I've not seen if it was there. But yeah, so that's what she did for a living.
+
+[00:50:54] Wait a minute. Rasputin, everyone said he smelled like a goat. Yes, didn't they? They did. That was one of his things. He never washed. He once didn't change his underwear for six months. Everyone who met him said he smelt like a goat, who was with Lagulu.
+
+[00:51:07] So you're saying maybe she, Maria Rasputin, was the goat? No, I'm saying Rasputin, the elder, was disguised. He was disguised as a goat. Survived. They never pulled him out of the river at all. Exactly. And that goat was just Rasputin in a carpet. Huge.
+
+[00:51:22] It's such a fool from grace, isn't it? This actually makes... Ending up entertaining the children at the Sunday matinee. Does anyone here have hemophilia? Put it away. We believe who you are. Okay, that's it. That is all of our facts.
+
+[00:51:43] Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, Andy. At Andrew Hunter M. James. At James Harkin. And Chisinski.
+
+[00:51:55] You can email podcast at QI.com. Yep. Or you can go to our group account at no such thing or our website. No such thing as a fish. We have everything up there including our previous episodes. We have upcoming tour dates and we even have a behind the scenes documentary that you can find a link to to buy. Do that please. Okay, we'll see you again next week.
+
+[00:52:11] Goodbye.

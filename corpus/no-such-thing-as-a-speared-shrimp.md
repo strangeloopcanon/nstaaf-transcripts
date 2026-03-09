@@ -1,0 +1,193 @@
+# No Such Thing As A Fish - No Such Thing As A Speared Shrimp
+
+- Episode date: April 15, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-speared-shrimp
+- Slug: no-such-thing-as-a-speared-shrimp
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I am sitting here with Anna Chazinski, James Harkin, and Andy Murray. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that in 1921, the news of the world offered a free T-Tray to any mother on the birth of her 10th child. Right.
+
+[00:00:42] Why was it doing that? Well, the reason was it had just been the war. And also there was contraception widespreadly available now, which there wasn't before. And the newspapers had a bit of a kind of moral crisis about there being not enough children in the UK. And so they wanted to encourage children. Right. The Daily Express, for instance, had a Britain's largest family competition at the same time.
+
+[00:01:04] But the idea of the news of the world. was that a woman would genuinely be induced to think, actually I won't stop at three. I'll go all the way up to 10 children because once I get to 10, I'll get a tea tray. It's interesting, isn't it? What stage? After how many children do you go, I might as well carry on for the tea tray now? I have a theory that the, unless tea trays have massively depreciated in value, that the cost of rearing a child would not be offset by the value of the tea tray. I think that's pretty solid theory actually
+
+[00:01:37] Do you think that's solid economics? I wonder how often they made, I wonder how many tea trays they had to give away. Do you think they just, no one actually went for it because in the end it's only a tea tray, and when the news of the world shut down, what they had to clear out of their offices were 50,000 tea trays from 1920s.
+
+[00:01:50] That's a good point, though. When did that deal expire? If they're running the competition for a year, say, it only applies to people who realistically got nine children and can get pregnant within the next three months. Maybe it was running all the way until the news of the world closed last year or the year before.
+
+[00:02:06] Maybe that's what sent them down. Yeah. Someone finally claimed the T-TRA. No, it was massive phone hacking. Yeah. Let's be clear. We should, we should for overseas listeners. News of the World was a massive newspaper here.
+
+[00:02:17] It came out every Sunday. And they got caught for a big hacking scandal of people's mobile phones. And so Rupert Murdoch had to shut it down. There was so much pressure. I was looking into things that have been given away for free. Here's one free thing that was given away that I'm very annoyed to learn because I've found out it's no longer going. But Etty had had a promotion whereby if it rained while you're in Abu Dhabi, you would get a free trip off the back of it. It had a
+
+[00:02:46] guarantee sunshine or your next holiday free. You're going to Abu Dhabi soon, aren't you? Yeah, I'm going in about two weeks. Well, maybe if you say Etty had enough time, you said, well, you get a free trip. I do love Eti Hadd. So who was the company? Etty had. What do they do? They're an airline. They're the best out there. Actually, they've been voted number one airline. I think they're awful. Good luck getting that free trip down. Have you guys heard of newspaper insurance? No.
+
+[00:03:13] If you subscribed and you got a medical condition, the newspaper would pay you some money and they would print massive columns full of people who had won money or been given money. So in 1922, if you got appendicitis and you were subscribed to the Express, you get a tenor, which is quite a lot of money. Wow.
+
+[00:03:32] Yeah. When? How long ago? This is the 20s. And a tenor of today's money or... No, back then. They wouldn't have known how much today's money was. They'd time travelled into the future. They were so rich in those days.
+
+[00:03:45] Actually, you say, one of the earliest newspapers was called Iqabod Dork's newsletter. And I think this... Dorks? That's one of those things I wrote down. It was completely fine. It's D-A-W-K. So there's nothing funny about that at all, actually. You can't get many Iqabods these days.
+
+[00:04:02] I think it's a very nice name. I think so as well. If you're about to have your 10 child, why not call it Iqabod? We will send you a free, no such thing as a fish mug. We'll genuinely do, we can promise that, right? Yeah, we can promise that. Okay, we need evidence. We need a birth certificate.
+
+[00:04:17] The price of rearing the baby, do you think that's going to be offset by the price of no such thing as a fish mug? They are extremely valuable. There's definitely worth it. There's one in the world, yeah. I should finish this off. So Mr. Dork's newsletter was one of the first newspapers, and it came with a blank space in every edition so that you could buy it. And then the blank space was for you to write your own personal news because then you'd send it to your friends and relatives.
+
+[00:04:39] That's a really good idea. Yeah, it's such a good idea because people would share newspapers. It used to be that one newspaper, people estimate it would be read by about 20 to 30 people. Yeah. Yeah. Because often it was read out loud as well, isn't it? I don't miss those days because I didn't actually live in the 19th century. But I would, if I had, miss those days when there would be a literate person and then people who couldn't read as well or people who just wanted to hear the newspaper read out.
+
+[00:05:02] and they'd all crowd around and clamour to have the news read out in the 19th century, and then someone would read it out. Wouldn't that be great? I can't imagine sitting down in the 19th century with your grandfather on his chair and he opens up the newspaper and says, gather around everyone, gather around. Towie Star in three in a bedroom. Yeah, true. This is the thing about the news of the world is that it was a crime newspaper for the first few decades. What was it?
+
+[00:05:28] Well, they specialized in, you know, gruesome murders and also in Vickers court in impropriable. propriety and things like that. Yeah, News of the World was always trashy and scandalous. It wasn't because I thought maybe you'd read back into its history and you find out that it used to be a well-respected paper, but it was always, yeah, really gossipy and full of lewd things and murders. And at the very start of the 20th century, the editor of the Palmaal Gazette, I think a more highbrow paper, who was called Frederick Greenwood, went up to the editor of the News of the World and said he'd looked at the paper once and then he'd immediately put it in his waist paper basket, it and then he thought if I leave it there the cook may read it so I burned it
+
+[00:06:05] there was a bloke who a couple of years ago found a first edition of the news of the world which was 1843 he was called William March age 72 and he found it in his attic and he said I was just clearing stuff out and I just found it there I was going to dump it but then I saw the date it cost just three pence and it's just eight pages I have looked through it and it is a bit boring they used to be new newspapers or magazines, which were exclusively for Lonely Hearts Adverts all the way through the 19th century. So the first one was called matrimonial news. And then it was followed in rapid succession by the Marriage Gazette, Matrimonial Times, matrimonial record, matrimonial herald,
+
+[00:06:49] aristocratic matrimonial, marriage envoy, marriage advertiser, matrimonial chronicle, matrimonial world, matrimonial courier, honeymoon, matrimonial intelligentsia and matrimonial register. Ironically, all bought by people who weren't married. Exactly. What a misnomer. Why aren't they saying desperate singleton gazette? Okay. Time for fact number two.
+
+[00:07:14] And that is Andrew Hunter Murray. My fact is that Belgian fishermen go fishing on horseback. And they drown in their thousands. Do they? No, they don't. Yeah. No, they fish just on the coast. and they're fishing for shrimp.
+
+[00:07:30] Okay, so they're not on like big boats. I'm not on the horse. I'm honest, I thought in the river rather than on the coast. I'm even surprised that it's on the coast. Yeah, yeah, yeah. And they have really, really strong horses because the horses are up to the top of their legs in water.
+
+[00:07:42] And obviously that's quite hard to wade through that, especially if you're a horse and you've got more legs. And then once you're dealing with the vast weight of shrimps on top of that. Yeah. Yeah. And so they pull a net behind them and they also pull a chain in front of the net. And the chain stirs up the shrimps and it frightens them a bit. And it means they flee into the net.
+
+[00:07:58] and then you have, yeah. Not many people do this anymore, unfortunately, i.e. 12 households do it still, because it's not very profitable anymore. And are they using rods or spears? No, they're using neither. Why would it be rods or spears? Oh, I thought they would be looking at the fish swimming past them and they would, or they would sit there with a rod just fishing. Have you ever tried to spear a shrimp? You've got to have really good aim.
+
+[00:08:26] That's true, yeah. You know all skewered kebabs? That's how they make them. It's really annoying because you have to wait for them to line up in just the right order and then you spear them. So some of the ways of catching fish? Yeah. There's some good ones in America.
+
+[00:08:40] They had a thing called telephoning. What you would do is you would take a telephone off the wall. They had like a magnetic coil in there and you would kind of ramp that up and so it got electric. And then you would put the wires in the water, stun all of the fish and then just grab them. And then what people would do was then get the phone, put it. back on the wall and ring their friends up and say, guess what I've done today? No.
+
+[00:09:01] Another one is called catfisting. What? No. Yeah, catfisting. And that is exactly what it sounds like. I don't think it can be exactly. Is it? Is it?
+
+[00:09:10] You put your fist into the water and the catfish kind of grabs onto it and then you pull your fist out and the catfish is on your hand. So you're using your fist as bait. I had the opposite in my head in that you fist a cat. You put that under the water and the cat then catches a fish. So I was really close. I was so close, Dad, yeah. But cats love fish.
+
+[00:09:32] Yeah, that's what I was thinking. So they're kind of jointly hating it and loving it at the same time. It's a roller coaster of emotions. That's also noodling, isn't it? And I think it's really dangerous because it often involves diving to quite low depths because the catfish live in holes and you dive to low depths. And I think people drown or they get. I think it's got a high injury rate.
+
+[00:09:53] Well, it's a good thing that cats have nine lives in that case. You can catch eight catfish. I have a couple of things on Belgium, and I really like this. Now, I think, like how you're saying, there's only about 12 families left that do this kind of fishing. I don't know if this is a national sport, but it's certainly been documented. It's called shit yourself rich. And it's a really cool idea. The sport involves.
+
+[00:10:16] You divide a field up into an imaginary grid, and everyone starts having a bet where the cow in that field will have a poo. And whoever gets it right, then gets the money. So it's basically a lot of Belgians watching a cow in a field waiting for a tapu with money riding on the spot that it's going to go in. I have a feeling that might have happened in Britain as well. I've heard about it a few times. Yeah. And it's just basically a lottery kind of thing, isn't it? Yeah.
+
+[00:10:40] Also, I've read that Belgium is the largest exporter of billiard balls. Quite cool. 80% of the world's billiard balls are made in Belgium. Really? Wow. Yeah. That's bizarre. It's huge.
+
+[00:10:51] It reminds me of that fact that most of the world's false teeth come from Lichtenstein. Really? I was reading a adventure book for boys that was written in 1890 and it recommends goose fishing. Oh, I think you mean goose fisting, I know. And yeah, so you use goose fishermen, they're called, and it recommends that you just tie a fishing line and hook to a goose's leg and then you drive the goose into the water and that works as a fisherman
+
+[00:11:21] and it just swims along and it's got bait on the end. And as soon as the goose feels a fish pulling on its leg, it gets a bit distressed because the fish is trying to pull it under water and it swims back to the shore and it brings the fish with it and then you unhook it and there you go you haven't had to do anything wow that's pretty ingenious do you know um it's really hard for us to tell how fast fish swim what well it's really how do you know what the fastest fish is how can you measure speed of fish i guess it's hard to see them under the water and then you'd have to be going at the same speed as them otherwise they're just you know two miles away and you're still sat in your boat and you don't know
+
+[00:11:55] where they are. Yeah. So what they do do is this is a thing that's been set up amongst professional fishermen is that when they've caught something, they start measuring how fast the reel goes out. So the speed of the reel. And then they log that time. So they found so far in any of these experiments that the fastest fish is the sailfish. And it took out 300 feet of line, a fishing line, in three seconds. So it went from zero to 60 in 2.6 seconds. That is incredible. Although I guess these fish, they've just been caught, haven't they? And they're trying to escape.
+
+[00:12:30] So it's not like a normal fish would go that fast, maybe. Yeah, so maybe we could improve human 100 metre times by... The guy shooting the gun to start, starts pointing it at it. That's the way to do it. But yeah, that's interesting. I had no idea. I assumed that we just knew what the fastest fish was. Yeah, I would assume we'd tag them.
+
+[00:12:48] Yeah. Well, they are swimming faster fish in response to human fishing. So... Yeah, sensible. I would. If you are chasing a fish with a net, which sometimes happens, you've got a, you know, fish are trying to out swim a net, basically. The slower fish will be caught, and then the faster fish will survive, and then they're more likely to breed. So we might actually change fish physiology just by fishing for them.
+
+[00:13:11] Might they get stronger because the stronger ones manage to wriggle out of the nets and the weaker ones get caught? And then eventually you've got massively fast, super strong fish. Eventually the fish will be catching us. Oh, no. They'll be fishing for humans. We'll just see these rods coming out of the water and onto the land dragging us in. The dystopia I see before me. You see her a cat, just an adorable cat and you go over to pet it.
+
+[00:13:39] Then you see it's got a fin poking out at the end of it. Okay, it is time for fact number three, and that is my fact. My fact this week is that 68% of mountains don't have pointy peaks. So what does that mean? Does it mean like Table Mountain? It has a flat top? Yeah, yeah. So I guess anytime you draw a mountain, if we were drawing a mountain, we would give it a pointy peak, right? And so this is why this fact really surprised me. I just assumed that it's going to have a pointy peak. Some guys at Princeton University, Paul Elson and Morgan Tingley, decided that they wanted to do a survey and see how many mountains do in fact have pointy peak. So they took satellite data from 182 mountain ranges around the water.
+
+[00:14:24] world and they looked at it and they discovered that 68% of these mountains didn't have a pointy peak. So that's a sort of... So I think the definition of pointy peak is important here because I wasn't that surprised at first because I thought, well, no mountain big is... Yeah, every time you climb a mountain, you're not kind of balancing on a little kind of point, are you? I always pierce my foot on top step. So it's actually more interesting even than it sounds, I think, because the guys who did the study define pointy peak or define a pyramid-shaped mountain as just a mountain whose area steadily decreases as it goes up, right? So as a mountain whose sides just steadily move towards each other.
+
+[00:15:05] So it doesn't mean that the peak has to be as sharp as a needle. So it could be a ziggurat rather than a pyramid. Exactly. What's a ziggurat? It's like a pyramid with a flat top. Yeah. Okay. Yeah.
+
+[00:15:16] So you could have a flat top, exactly. And what they found is, I think, that actually, mountains often had an hourglass shape, so their area would start off big and then it would get smaller as it went up, but then it would increase again. And then sometimes they'd be inverted pyramids where I think... Is that incredible? This is amazing. That is rubbish. Well, that's much less cool than it sounds, though, right?
+
+[00:15:40] Because it's not like an upside-down pyramid. It doesn't start at the point on the ground, yeah, and work its way outward. It's where it gets less and less steep. So it doesn't consistently go up like a pyramid. Oh, that's interesting. Yeah. Okay. But yeah, and there are...
+
+[00:15:56] So they found those inverse ones that you're talking about. 6% in the survey were these type. So that's where the land area increases. So the top, 23% had this hourglass shape. And then 39% had a diamond form, which is really cool. So that's less land area at the top and the bottom, so more in the middle. But where are these mountains that are shaped like diamonds? It starts at a point on the ground, then they spread out to this massive thing in the middle, then they shape.
+
+[00:16:23] They don't have much publicity because no one can climb them. So one of the things about this study, or one of the things that makes it relevant and not incredibly dubious, they're all these mountains of diamond shape. But the interesting thing is that as climate change happens, as the planet gets warmer, animals which live in a particular band on a mountain are going to be pushed. upwards because they're going to be pushed to where there's the same temperature. So some species will benefit where you actually have more surface area higher up, but some of them will, a lot more of them, I think, will suffer as a result because you get much smaller habitat for the species to live on. They have to hope that they evolve wings and are able to take off from the top, won't they, as they're pushed higher and higher up. There'll be a period where they're just waiting for that to happen,
+
+[00:17:09] I imagine. That's exactly how evolution works. Yes. Where are they going to go when they've grown these wings? They'll just live up in the air. I see. Is that what birds do? They just live in a cloud. If you'd like to subscribe to Anna's Extreme Optimism magazine. Have you guys been to the top of mountains?
+
+[00:17:27] Some of them. Well, I just want to do a quick survey. So how many of you done? I haven't. What, just I want to do a tiny survey. I've only been up one mountain. I've been up to Ben Nevis. Okay, so Ben Nevis, what's the top light?
+
+[00:17:40] It's a scree-like. What was that mean? The same escrow of it. Same as scarf. Loose rocks and then there's kind of a table thing that you stand on so people can take your photo so that it's like, yeah, I got to the top. And you're at the top of the top. The only mountain I've been on, which is Mount Kosovo in Australia. But you mean Kossi Kusko?
+
+[00:17:59] Interesting misconception of how that is said. It's actually Mount Koso. Please write in to tell me how correct I got that. They have that as well. They have a little platform that you stand on top of and, yeah. So have they artificially added to the height of the mountain? In a way. In a way. Yeah. Definitely. Just on mountains. Yeah. I assumed that we had climbed pretty much every mountain, partly because of the song. She was telling people to climb every mountain. The message has not got across because the chairman of the Mount Everest Foundation Committee, Lindsay Griffin, said a few years ago, there are far more unclimed peaks than climbed ones. So many more.
+
+[00:18:40] Highest point in Bhutan, you're not allowed to climb up. Really? And also, there was a thing about Kat and Chen Chunga, which was when people go up there, you're supposed to, there's like a local tradition where you're not supposed to stand on the absolute summit. So you're supposed to stop like two steps before or something. And the first people who did it definitely did that. And I wonder if everyone who's gone up has kind of stopped just before and whether it's never been climbed. Probably has, really.
+
+[00:19:04] The four highest mountains on earth, Everest, K2, Kanchunga and Lotzi were first scaled in 1953, 1954, 1995 and 1956, respectively. Wow. Why didn't we keep that up? Damn it. We could have counted down all the way to the lowest mountain in the world. That would have been amazing. And the suspense would gradually decline and decline and decline.
+
+[00:19:27] Eventually you're just climbing a little hill. 2,550. Yeah. This is the thing it would take so long because there are so many thousands of peaks. Yeah. I'm surprised that Chimborazo is not seen to be... Okay, so Mount Chimborazo, this is in Ecuador, is the highest point on Earth.
+
+[00:19:47] It's 2.4 kilometers higher than Mount Everest because of the shape of the Earth. It's further from the center of the Earth. Exactly. Because the Earth bulges a bit around the equation. Exactly. So it is by a long mile, well, 2.4 miles. That would be a long mile.
+
+[00:20:04] That is the highest spot on Earth. And I'm surprised that that's not seen as more of a... Because there must be with altitude and with the thinness of air, that must be more of a challenge. In the 19th century, they did think it was the highest for ages they did. And it was when like Nepal was kind of Westerners couldn't really go there.
+
+[00:20:22] And so everyone thought the Chimberatsu was the highest for quite a long time. Wow. That's really interesting. Yeah. So it had it stay in the sundown. Yeah. I don't feel bad for it. I've discovered a really interesting lady as was resulted looking into this stuff about mountains.
+
+[00:20:36] Her name is Elizabeth Hawley. She's in her 90s. She has lived for over 50 years in the Himalayas. And she has become the ultimate person for verifying summits that have been made by explorers. She put together the Himalayan database. And she's someone who's cracked down on whether or not people are lying about getting to the top because she has an in with all the Sherpas who tell her the truth about what's going on. Yeah.
+
+[00:20:59] So she's sussed out a lot of fraud. And she verified the first ever blind assent to Everest. And she's been living there 60 years. And every explorer, if they want to take it seriously, apparently track her down and tell her about their plans so that it can be verified in this database that she's been keeping for 60 years. I wonder if she has a guy called Morris Wilson on her list. He was a guy in the 1930s who thought that mysticism and prayer would help him to climb Everest. That didn't work. And so what he decided to do was to fly a plane and crash it just below the top of Everest and then walk up
+
+[00:21:34] the last few feet. What? How far did he get with that? Well, the first time he got as far as Bradford where he crashed into a field and so then the air ministry banned him from flying but he just did it anyway and he managed to get as far as Darjeeling and actually he did fly his plane to Everest and he did crash it but unfortunately it seems like he died before he well he definitely died so yeah when was this
+
+[00:22:00] at 1930s did he have a get-out plan for getting out of the plane before it crash into the mountain I think so I think he would kind of just jump out with a parachute or something but then kind of thought, well, I'll just walk up to the top then, that'll be fine. And then the way down, I mean, how hard can it be to go down? Where is the largest mountain, so far as we know, in the universe or the solar system, let's say? Mars?
+
+[00:22:23] It was. It's been taken over now. Olympic mons in Mars like that was. Yeah, exactly. It's been taken over. So it's now Ria Silvia on an asteroid called For Vesta, and it's about half the size of the moon. So it's traveling, hurtling through the universe, the tallest mountain. Wow. Cool. Is that awesome?
+
+[00:22:42] That's very cool. I hope it doesn't impale us on its sharp point. Do we know what kind of shape it is? I mean, the odds are actually 68% that it doesn't have a sharp point. It's probably a diamond or an oblate spheroid or a rhombus mountain. Okay, it is time for a final fact of the show, and that is Anna. My fact is that the oldest your mom joke appears on a 3,500-year-old Babylonian tablet. And it's an absolute cracker.
+
+[00:23:14] Is it your mum so old she appears on a 3,500-year-old bundalonian tablet? So what is the joke itself? Well, there's a minor problem in that we don't have the first half of it. So does it not begin with your mum? It doesn't. Your mom features actually a little bit later. As a punchline. Yeah, so we have a missing part.
+
+[00:23:35] And then we have the words of your mother is by the one who has sex with her. Who is it? Wow. It sounds like a mixture between the first ever your mama joke and the first ever knock-knock joke. Of your mother is by the one that has sex with her, who? So are they known to be full of jokes, cuneiform tablets? Hilarious, yeah. Everything in cuneiform is a joke.
+
+[00:23:59] No, but there is this tablet that was found in the 70s, I think, but has only recently been analyzed, which is full of these riddles and these jokes, which are quite difficult. If anyone can understand the humor in them, then write in. Another one reads, the deflowered girl did not become pregnant. The undeflowered girl became pregnant. What is it? And the answer is, auxiliary forces. See, that kills.
+
+[00:24:25] You should open with that one. I'm obviously missing something here. That's too highbrow for me, clearly. Do you know there's a your mom joke in the Bible? Yes, sir. It's the book of kings. And I'll read it out. It's when Joram saw Jehu, he said,
+
+[00:24:42] Is it peace, Jehu? And he answered, what peace, so long as the harlot trees of your mother, Jezebel and her witchcrafts are so many? Whoa! That is a good one. Yeah. Didn't get much from this side of the table. We're more into our Babylonian your mama jokes.
+
+[00:24:58] Yeah, it's not really a your mom joke. It's a your mom insult, I suppose. Yeah, yeah. It's a fine line, isn't it? There's another, is this ancient Egyptian joke? So I'm going to test this material on you guys now. Yeah, yeah. How do you entertain?
+
+[00:25:09] aboard Pharaoh. I don't know. How do you entertain aboard Pharaoh? Is it with a pyramid of a... For a Roshay? Yes, but it's a pyramid
+
+[00:25:17] that's shaped like a parallelogram like most mountains in the world, as we know. No, it's... You sail a boatload of young women dressed only in fishing nets
+
+[00:25:25] down the Nile and urged the Pharaoh to go catch a fish. That's the way I tell him. How do we know about that joke? Was that just an extremely long hieroglyphic that we've worked it out from?
+
+[00:25:37] Most writing wasn't in hieroglyphics. in their heads. Hyratic. Oh, they had, yeah, of course. Sorry. Sorry, ancient Egyptians. Okay. One more ancient Egyptian.
+
+[00:25:45] One more ancient Egyptian joke. Man is even more eager to copulate than a donkey. His purse is what restrains him. Oh, it's a prostitution joke. Yeah. Okay. I'm not, I'm dying here. Shakespeare has a young joke as well.
+
+[00:26:01] Does he? Yeah, yeah. It's in Titus Andronicus, which is not a very funny play. It's pretty serious. And people get eaten in pies and things like that. It's incredibly gory. It's one of the early tragedies. And I think there's a body count of about 11 by the end.
+
+[00:26:13] It's so unpleasant. But there's a bit where someone says, I have undone your mother. And then the other person says, villain, I have done thy mother. Ooh. And that is a proper your mum joke. That is.
+
+[00:26:26] Yeah, that's straight down the line. Someone also said that he has the first knock knock joke, which is in Lady Macbeth. Yeah. But it's very hard to see the joke in it, so I'm skeptical. Does it have the word knock? It has the word knock in it.
+
+[00:26:38] That's pretty much. It has the word. It has it over and over again. There's a scene with the porter. Yes. It's the comic relief in the middle of the play. Oh, yeah. So it's more like the comedy comes just from the words knock, knock, knock, not.
+
+[00:26:49] Doesn't it? The joke hadn't really developed further than that. So he hadn't got to who's there. No. He had to reach that. You know, everything starts somewhere, isn't it? I was going through a long time ago on Museum of Curiosity, the radio show we make. Jimmy Carr came on and he gave us, his donation to the museum was a book
+
+[00:27:09] that contained all the jokes in the world. So we did a lot of research on jokes. Well, James did, and I went through the scripts, and I've stolen all his research. So I'd like to read you out some of the best bits of research. I'll pretend that I've never heard it before. Yeah, exactly. So here's one that James found. So Bob Monkhouse, a very famous comedian in Britain, passed away.
+
+[00:27:27] He wanted to write the ultimate joke, and he told us to Dennis Norton, another massive name in British comedy history. And Norton kept checking back on him every few years to say, how far have you got with the ultimate joke? and years and years down the line, he did say, not very far, I do have the opening line, though. I know what that is. And the opening line for the world's ultimate joke
+
+[00:27:46] was a man walks into a chemist. That's as far as he got. So we never know if he made it any further than that. I can see that works because halfway through you think it's going to be bar and then suddenly chemist. Yes. It does work. I'm already laughing.
+
+[00:27:59] Yeah. On the inside. But I'm off balance enough to really laugh at something in the next line. Yeah, yeah, yeah. Here's another one. James found. So a German psychologist found that we laughed more in the 1950s than we do now. So in the 1950s, we used to laugh for 18 minutes a day. And these days, we laugh for six minutes a day. And then James added in the notes, by the way, if you don't find this interesting, this might get a laugh.
+
+[00:28:24] The psychologist was called Dr. Michael Tits. 18 minutes a day. There's a lot of time to spend laughing. Yeah. I spent 1,440 minutes that day laughing at the name Tits. Exactly. James brought the average for the whole year. Has anyone seen the jokes written by computers? No. So there's a website. I don't know what the site's called,
+
+[00:28:50] joking computer, I think, but it's abdn.ac.ac.ukesl-joking computer. And the computer comes up with jokes, which are terrible puns that don't really work. How is a tender food different from an additional support? One is a sore meat. The other is a more seat. It does work as a joke Kind of does
+
+[00:29:12] You would never say This is too sore This meat That's true I wouldn't say it in a restaurant No You'd probably get kicked out This is one I don't really understand
+
+[00:29:25] What do you call an aquatics With the Saints John A swift main Okay So there's a button where you can press Why is this a joke So I clicked on that button And it says, swimming is a kind of aquatics.
+
+[00:29:40] Do you agree or disagree? And I agree with that. And then it says, Maine sounds like the end of swimming. Almost. I put disagree with that. And then a Saint John can be a part of a Maine. I really don't understand that at all.
+
+[00:29:56] Is it a town in the state of Maine or something? Oh, that's possible. Yeah. Anyway, it didn't really work for me. Yeah, that's where it falls down. Someone needs to explain to that computer that if you tell a joke and then you immediately need to explain it. It's not a good joke.
+
+[00:30:09] It needs to remove that button immediately. That's true. Although I think by me disagreeing with those things, it helps it to make jokes in the future. Oh, that's so good of you. You've done it a service. Well, I like to do my bit. I was looking into,
+
+[00:30:23] there's a famous joke that St. Gregory made where he was in Rome and he saw some angle boys, as in Angles and Anglo Saxons. Okay. And he said, non-Angli, said Angeli, not angles, but Angel. because they were so fair-haired and so pretty-looking and all of this. And supposedly, he said, well, let's go and convert England
+
+[00:30:41] or let's go and convert England to, you know, Catholic Roman Christianity. So this got me on to reading about things that were sins in the 8th to 11th centuries. And there were big sins that you could commit. It was a sin in the 8th century to see your wife naked. Really? Yep. There was an Archbishop of Canterbury called Theodore, and he had a penitential, which is basically a huge list of sins and punishments for sins.
+
+[00:31:05] So lots of them are sex related. So sex are behind, not allowed. Oral sex, really bad. The worst of all sins is oral sex. But, right, if you have sex with a nun, you have to go on a fast for four years. If your wife cheats on you and you divorce her and you remarry, you then have to do a hard penance of seven years for remarrying somebody else. But even if you forgive your wife, you either have to not have sex with her until her penance is over or you have to do penance for two years. two years because you're having sex with someone who's an adulteress.
+
+[00:31:39] Do you think, so whenever someone's wife or husband cheated on them, did they have to open up this vast law book and work out exactly the course they'd take to avoid being arrested? Wait a minute. So when you cheesied on me, did you do it from behind? Because that's subsection 8B. Actually, speaking of the angles, they had some good jokes. The oldest Anglo-Saxon joke, I think, might be the best old joke I've come across.
+
+[00:32:02] Oh, yeah. Okay. And you're building it up a bit there, Anna. Actually, that's a real error, isn't it? Yeah. Yeah. So the oldest anglo-saxon joke is, what hangs at a man's thigh
+
+[00:32:12] and wants to poke the hole that it's often poked before? A penis, a penis, a penis. I would have said a key. It's a key. Oh, Andy. This is why I keep leading to ring the emergency locksman.
+
+[00:32:25] Can you grind me on the other one that looks exactly like this? Yes, it is a troub, actually. Okay, that's it. That's all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things we said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland, James. At Egg Shapes. Andy at Andrew Hunter M. Jazinski. You can email a podcast at QI. Yeah, or you can go to our group account at QI podcast. You can also go to no such thing as a fish.com. That's our website. We've got all of our previous episodes up there. Thanks so much for listening. We'll be back again next week. Goodbye. I'm going to be a lot of

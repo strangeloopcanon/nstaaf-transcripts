@@ -1,0 +1,247 @@
+# No Such Thing As A Fish - 298: No Such Thing As An Emotional Support Amoeba
+
+- Episode date: December 6, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/298-no-such-thing-as-an-emotional-support-amoeba
+- Slug: 298-no-such-thing-as-an-emotional-support-amoeba
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from New York City! My name is Dan Schreiber, I am sitting here with Anna Chazinski, Andrew Hunter Murray and James Harkin and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order here we go. Starting with fact number one and that is James. My fact this week is that when race horses travel by airplane they're allowed to bring an emotional support goat for no extra cost.
+
+[00:01:04] So this is absolutely true. It was an article I read in USA Today about a company called H.E. Text Sutton and they are the only company in America that has a specific aircraft that it uses to fly horses. That plane is known as Air Horse One. So I read that the pet goats keep them calm when they're flying because they are friends. They're mates. But they're free, they're basically hand luggage for them. But also there are human grooms who are accompanying the horses and you don't have to pay for
+
+[00:01:41] them either. So they're also hand luggage. The humans are basically the carry on luggage of the horses. And who goes up in the overhead compartment and who goes under the seat of those two? Goat in the overhead? Goat in the overhead. It's not always goats actually, is it? It's anything that makes the horses feel chilled.
+
+[00:01:59] So chickens quite often come with them. Basically they try to recreate the atmosphere of their stable exactly because these race horses are very precious. So to make them feel comfortable they do that and they have constant grooms, don't they? Is that like the proper race horses, the big guns will have sort of 12, 15 grooms constantly and they're not a very good flyer, are you? No, yeah. Would you like it to have like 15 men just stroking you throughout the journey?
+
+[00:02:23] They can only help, right? Yeah, exactly. They do get separated by according to how much they pay. So if you don't pay very much, there are three of you in a stall and that's basically the economy. And then if you're in first class you get a whole stool to yourself and they're separated by sex. Are they?
+
+[00:02:40] Yes. The fillies, the lady horses are loaded at the back so the colts which are further up don't smell them and get excited because the wind is going this way. Why is the wind going that way? Well, you're flying, I imagine. No, no, no. I'm pretty sure. You have fundamentally misunderstood how the air plays out.
+
+[00:03:01] The air is rushing past this way, so that... They don't wind the windows down. I think Andy flies in convertible planes. So there's no mile high club in the horse world? Nothing, no. Imagine it would be mayhem. There must have been at some point. No, there's no.
+
+[00:03:18] Come on. They don't have free time. It's not like a seatbelt sign goes off and the horses can wander around the plane. Right. I bet sometimes one at the back is like, oh, this toilet's taken. Do you mind if I just pop up front and use the girls? Maybe not. This air horse won.
+
+[00:03:35] It's not just horses that go in it. One time someone took their miniature cow in the airplane, and apparently once they took five dolphins in the airplane, but I have no idea how that works. How does that work? Well, they just need... They just have an emotional support crab with them, and then they're fine. Did you say you did know? Yes, because they did this another time.
+
+[00:03:58] So in 1965, they flew with dolphins for the first time, and this was from the US or the Netherlands. I'm not entirely sure why. Maybe they were just going on holiday, but they had hammocks for them. So you can see pictures of these dolphins in these hammocks with little holes for their fins, and each dolphin had a groom next to them, covering them with water at all times, so they had to be constantly flanneling them down. Wow.
+
+[00:04:20] I read about this dolphins, the dolphins going on Air Horse One, and the operations manager was interviewed about the trip, and he said, everyone involved with those dolphins was very hush-hush. They had a police escort, and no one would say anything or answer questions, which made you think they were probably military dolphins. Okay. You know, they get the pilots treat these animals better than they treat us when they're flying. They fly more carefully for the animals.
+
+[00:04:51] So the horses, they're so boring, because the horses are really expensive, much more expensive than a human, and so they really don't want them, these resources, to be damaged by falling over or whatever. So the pilots do extremely wide turns in the air, and very, very gentle ascents and descents to the extent that the aircraft can actually detour for more than 500 miles in order to just not disturb the horses. No. Because they do a massive loop instead of just going and then turning straight left.
+
+[00:05:17] Yeah, exactly. What have you been in a plane that's turned straight left? Do you really fly economy? What do you mean fly economy? It's not like the economy people go one direction, the business class go another direction. We've already established that Andy thinks there's a gust of wind blowing. So emotional support, animals on planes, this is obviously a big, huge thing, and the stories keep cropping up and they keep on being funny because animals on planes just doesn't work.
+
+[00:05:47] So I don't know if you guys saw this, there was a British flight from Gatwick to Austin, this was last month, and it was delayed by an hour and a half because two emotional support bulldogs, which were wearing tutus and were there to help their owners get through the flight, they themselves became too distressed to be on the plane. Oh really? Yeah, the dogs needed emotional support. And did they get it? No, of course they didn't.
+
+[00:06:14] Oh, no. It might be, well, it does make sense because animals with anxious humans become more anxious, don't they? That's been proven, I think. So really, if you do have an emotional support animal, they should have one and it should go smaller and smaller and smaller. Yeah, exactly. An emotional support amoeba of, I don't know, one of the first ones that kind of became
+
+[00:06:36] big online and was a bit of a meme was someone called Carla Fitzgerald and she had a duck and she was getting on the plane and someone took a photo and put it online. I do remember that, but what I didn't remember is that the duck's name was Daniel Turducken stinkerbutt, one of the first ever emotional support animals. Turducken. Turducken, yeah. And then he put a, is the duck chicken side a turkey? And then a chicken inside the duck?
+
+[00:07:02] Sure. I think so. I think it's a, all I'm saying is that if I was a duck and my middle name was Turducken, I would be concerned about what the future held for me. That's why, but maybe that's the incentive to be emotionally supportive to your owner, otherwise it's sort of a warning about where you might end up. This is my pet duck, Donald Hoisin Murray. Yeah.
+
+[00:07:25] This is crazy. So that was 2013, I think that story happened. 2011, so there's a national service for animal registry and they're the ones who will sort of issue a vest that the animal will have to wear and they give the certificate as well. 2011, there was 2,400 animals that were issued with that. Now we've got over 200,000, so it's exploded into, but I've never seen a duck on a plane. No, me neither. All the articles you read imply that they're creating havoc on all of our flights.
+
+[00:07:55] Has anyone ever seen an emotional support animal on a flight? Yeah. Oh, yeah. Wow, they're all here. That's what we've learned. Okay. That's not them. They are controversial though, because they have exponentially increased, as you say,
+
+[00:08:08] and there is almost no evidence to back up the idea that if you have a genuine mental illness that having an emotional support animal on the flight can make you feel better. As in there hasn't been the studies done, but obviously for individuals, it does seem to work. But there is this industry cropping up to make money, so you can get these certificates really easily off Amazon. You just click a button and you get a certificate saying, this is an emotionally support certified frog or whatever, and it's actually really weird researching this, because I was reading
+
+[00:08:37] all these articles about how it's being so fraudulently used and how no one should do it, but because the Google algorithms are sort of idiot sometimes, in the middle of these articles I kept getting advertised, do you want an emotional support certificate for your dolphin in three easy steps? Can I just say, we went to Google the other day and I think some of our friends from Google might be in here, so I'd just like to say they're not idiots, are they, are they? They're very smart guys. They're very vocal.
+
+[00:09:01] Do you know one of the first, in my opinion, emotional support animals from the early 20th century? Okay. So in the early decade, in the first decade of flight, a lot of people would fly with an animal called a spotted cockpit terrier, and this was a special breed of dog that didn't really get upset if you put him in an aircraft, and also it gave off a lot of heat, and so it would keep you warm in your cockpit. So for instance, in your kind of planes where the wind is coming past you and you're getting
+
+[00:09:32] cold, you have this little dog and it keeps you warm. Sorry, is this real? This is real. Wow. There's loads of photos of them. If you go on Smithsonian, you'll see loads of pictures of these early pioneers of flight with a little dog next to them. That's not emotional support any more than really wearing a jacket is emotional support,
+
+[00:09:48] is it? I was looking into the history of flying horses. So, it's just like from Pegasus. Pegasus on. Yeah. Let me rephrase that. I was looking into the history of horses that have been made to fly, and surprisingly, it goes back to the 17th century, actually more the 18th century.
+
+[00:10:14] I found this, and I can't believe this is true, but I've seen numerous drawings of it. They used to do hot air ballooning with horses back in France, and there was an image, and so initially, it's not like the horses even in the basket, they attached the strings around the horse, and it was a person called M. Potovin who used to ride the horse up into the air as it was attached to the balloon. What? The horse was the basket, and he just used to go up and just wave, and then land and trot off into the distance, which is crazy.
+
+[00:10:47] And then there was this other guy, Pierre Tetsu Brissy, who had a basket, but he had a horse in it, and he did over 50 flights with his horse. Wow. He is amazing, that guy, but he did a lot of experiments in the early days of ballooning, and one of the things that he did is people didn't really know what happened with electrical storms and thunder and lightning and stuff like that, and so he went up into clouds where there was thunder and lightning with a metal rod to see if he could get the lightning to strike it.
+
+[00:11:15] Wow. And presumably it didn't, if it did, it only happened once, actually. So this is not an animal, but I was looking into what are things that aren't allowed on planes, and if we're allowed all these animals on, what can you get on? And there was a lady called Jan Bevin a few years ago, so she's in Switzerland, and she was going to Baltimore to do a concerto, and she plays the cello. The cello was too big for it, she was worried about it being checked and blown, so she bought the cello as seat on the plane, which is actually done quite a lot.
+
+[00:11:43] So she signed it in as Chuck Cello, she gave it a name, and she got to the airport, and they didn't let her fly to America because the cello did not have a visa to get in. They then, well, it's got a seat, so it has to be a thing, and it hasn't got a visa. So she got kicked off the flight, she never made it, yeah, never made it to her concert. I think it's really dangerous to call your cello Chuck Cello when airport staff are handling it. It sounds too much like an instruction. It is time for fact number two, and that is Chazinski.
+
+[00:12:22] My fact this week is that the French can't decide how to say the word pencil in their own language. So I couldn't believe this, a lot of us learn French when we're growing up, and I guess we're just taught to say crayon, but there's an article about how basically France is split up into regions, depending on their word for pencil, and I counted seven different words for it. It is insane, and if you talk to people from the individual regions, they think the guy next door is an idiot who says it a different way.
+
+[00:12:50] So, and I actually, I called my French friend and said, okay, well, what do you think of this article? What do you say? And so he said he would call it crayon à papier, as in a crayon for paper, or a crayon à mien, and which seems to mean crayon of the mine, which is very weird. But then he said, but also apparently you can call it crayon de papier. Now my friend who's from Provence said, if someone asked me for a crayon de papier, I would very politely give him a pencil, and I would ask him to go and draw some stick
+
+[00:13:21] figures, you functional illiterate, because that means a pencil made of paper. Wow. But apparently not to these guys, he speculated that it was on the east side of France, he speculated maybe it was something that came over with the Nazis. That was his theory. That feels like a stretch, doesn't it? They did a lot of bad stuff. That feels like a longer term destabilisation project, doesn't it?
+
+[00:13:49] Now what did cause the second French Revolution? Well, wow. It is weird. So I mean they are, the crayon gris is another one, a grey crayon, which my friend said, maybe I heard that, if I read a book from the 50s, I might have read it like that. Crayon de bois, a pencil made of wood, maybe to distinguish from those little plastic ones that have the lead come up through the middle. And yeah, seven different words for pencil, don't know how to say it, don't know how
+
+[00:14:13] they've got anywhere in life. Discuss. Discuss. They probably just use pens. Good point. They're always having furious rouse about their language though, the French. And they have this body, the Académie Française, which is very ancient, it was founded nearly 400 years ago, and its job is just to rule on French language disputes, and especially
+
+[00:14:36] if an English word makes its way into the language, they have to come up with a French equivalent for it. And they, so, they're generally very elderly. Once you joined, you're in for life, in 2010 they made a big decision, they voted that new entrants must be under 75 years old, there's too many over there, and they didn't make it retroactive because they would have had to kick out almost everybody in the Académie. And they're called immortals, aren't they? Yeah.
+
+[00:15:05] Which I don't know if that can't be true. They're not, they frequently die. They, they have a special uniform, they have an official uniform, which is known as l'habit ver, which I think translates as green clothing, because ver is green. But then ver also means worm, it also means towards, and it also means glass, okay? So if, in French, you want to say the green worm goes towards the green glass, it's translated as la ver ver, la ver, la ver ver. No, poor.
+
+[00:15:40] That's amazing. So, do they, do they at home have the habit ver, which is the green clothing? Yeah. Do they next have a worm costume? So, oh no, I've turned up in my habit ver, what I meant to turn up in my habit ver. I'm sure that has happened on numerous occasions. It's too, it's too far fetched, I regretted conjuring up the image as I said it. Yeah, they are also almost exclusively men, there have only ever been nine female immortals,
+
+[00:16:10] although there have already been 730 in the last 400 years in total, but that is still a low percentage. Yeah, that's, that's, sorry, can we just establish that as definitely a low percentage? They also, there's a thing, I've been trying to actually find out if this is true, so I wonder if you guys have heard, but, so when someone passes away, that's when they have to refill a seat, right? So each seat has a different number assigned to it, and so you fill a pre, you fill someone's a predecessor's seat, and as part of filling it, you need to make a speech about how great
+
+[00:16:40] they are, and there's currently a bunch of empty seats, because no one is willing to say nice things about the person who was their predecessor. And I looked into the list, there's about six empty seats, and there's no reason for it, because it's an elite, they say this is the most, this is the greatest elite secret club that you could be a part of in France. They're commanding the language, some of the greatest writers in the history of France have been a part of it, and the six empty seats, because the last six were dicks. A lot of the great writers didn't get to be part of it, right?
+
+[00:17:09] So Bolzac tried to get in, Zola tried to get in, none of them could. Wow. Yeah. They do sound like a kind of a bunch of assholes do, I don't know, they're slow, if you go on their website, their slogan is dear ne pas dear, as in say and don't say, and it was basically created to stop the English invasion of the French language. And they've done quite well, it was 1635 by Louis XIII chief minister, and yeah, because they didn't like the idea that English might be, you know, might start encroaching on their
+
+[00:17:39] territory, but it does mean they have these weird words, so they have a word for a podcast, in fact, which so most countries would sort of go with podcast for the French. Well, yeah, it's a French podcast, it would be German. Yes. Pilkast, Russian. Italian. Podcast. Yeah.
+
+[00:18:03] Let's try Nigeria. No, I don't think we should. We've reached my limit. Thank you. Let's move on quickly. So their word for a podcast is Diffusion pour Balladeur, which is a broadcast for Walkman. Wow. And this is where the Academy members age, I think, really starts to show.
+
+[00:18:29] But the French language has, just the size of the whole lexicon is smaller than the English language, so this causes problems for translations, for example. So the Harry Potter books are long, even longer in French, so Voldemort, he who must not be named, is Salouid de Dua Papponose Le Nome, and they have really fun times translating those books. So Hufflepuff is Pouf Souffle, nice, so good, and some of them, they're really literal, so Neville Longbottom is Neville Longdupat, or Neville Long in the bottom, but the Hogwarts, the school, is Poudlard, which means pig lice, so Hog Warts has become pig lice.
+
+[00:19:24] Ah, nice. Yeah. So they've taken two words for pig and put them together, and then two words for an STD and put them together. Very cool. Yeah, no, you're right, yeah. So there is a letter in French, which is a letter U, and then it's got like a grav accent, so it's going down from the top left to the bottom right.
+
+[00:19:44] And that letter is only in one word in the entire language. Wow. And that is the word, which means where, and the only reason it's there is because there's another word, which means or, but they're pronounced exactly the same, but they put this extra letter in so you know which one you're talking about. So it's only in a single word, and yet on a French keyboard, it still has its own key. That's awesome. Isn't that amazing?
+
+[00:20:09] And you know that key, it feels so cocky, because it is not nearly as rubbed off as any of the others. Did you know the French didn't have a word for French guessing until 2013? Did they? No, they didn't. Did they not? No. But what did they say when they were like, oh, let's do the, let's do the, put my, I
+
+[00:20:33] believe your face thing. I believe, well, look, they don't, like fish don't need a word for water, you know, like... I, I believe that what I've found is that they had phrases like kissing at length in the mouth, which is so sexy. But they've changed it to galochée, which is a word that also means an ice skating boot. So the idea is that you're kind of sliding around. Don't shoot the messenger.
+
+[00:21:10] The word to kiss is actually another disaster for the French. They have seven different ways of saying to kiss, as in just the peck on the cheek, depending on where you're from. So like fair la bise, bise, bise, and then there's one which is bise, which I think embellishment means kiss, and comes from the origin kiss. And in like the thirties, you would use it to mean kiss, but now means very explicitly to have sex with. Like if, like that word starts with an F, and, but if you come from Belgium and you
+
+[00:21:41] just say that, like give me a kiss, then someone, books a motel room for an hour. Do you know you're allowed to say the word fuck in Canada? On the radio in Canada, we got some Canadian fuckers in tonight. In Canada, you're allowed to say the word fuck on the radio as long as you're on a French language station. And the reason is because they think the French speakers don't have the same connotation of the word as English speakers, isn't that interesting? Just coincidentally with that word, I was looking into, in China, they have a lot of
+
+[00:22:14] censorship, obviously, from the government about what words they can use, particularly online. And one of the things that you can't say are swear words. And so they've managed to get by that by using fuck, the English word, but using Chinese words to sort of use that to appropriate it. So what they'll say on Chinese, on the Chinese website is fuck you. So wait, so fuck you. Yeah, yeah, we got that.
+
+[00:22:42] Thanks, mate. Yeah. Fuck you, too. That doesn't, that's not Chinese word. Great. Thank you. Okay. Yeah.
+
+[00:22:54] But what does that mean? Oh, well, it literally translates as French Croatian squid, which is a mythical creature in China, a squid that was simultaneously found in both France and Croatia. And they thought we'll call it fuck you, because hence that. So yeah, that's how they get by. And that's really great. What are you talking about, this mythical squid? The French Croatian squid.
+
+[00:23:16] Do you want to hear some French phrases and just see if you can get what they mean? Let's do that. Okay. So, Avoire, I'm Pet de Travere, you're farting sideways. Farting sideways. It means that you're not doing anything right. You're doing something really simple that normal people will be able to do, but you're doing it sideways.
+
+[00:23:38] That's much better. It just means you're grumpy. Oh. Okay. All right, all right, all right. Piscé dans un violon. This is like pissing in a violin. This is like pissing in a violin.
+
+[00:23:50] Is it something to do with bringing musical instruments onto a plane? Yes. You need a lot to fill up a cello. It's like, this is fun, but I feel like there's strings attached. I've got my penis out and I feel like I need a fiddle. Yeah. These are all much better than the real ones. End this.
+
+[00:24:14] End this. It just means something's useless, just useless. There's no point to this. This is like pissing in a violin. If you need the toilet, I think it's because it's got holes in it, no? No, no, no. No, no, no. Anna's right.
+
+[00:24:29] If you, in extremis, and you've got a lot of violins spare. You only need one. It depends how fully bladder is, but two max, I would have thought. This is why they had a revolution. Louis XIV kept wasting priceless transferences. The French do really protect their language. This academy really shows that. There's a rule that I think they're going a bit lax on now in France
+
+[00:24:51] and sort of talking about it. On radio, 40% of all music needs to be French. Yes. That's the thing. But this other thing that I discovered is that at the Olympics, there was someone who was hired specifically from the French side to go around all the events of the Olympics to make sure there's enough French going on in them.
+
+[00:25:09] Okay, what do you think about that? They go to the javelin and they make sure what person's throwing a baguette. It's all to do with language. The language needs to be, the commentary needs to do it. If there's a sign to the toilets, it needs to say, you know, Pisset d'Alcetvilleau. And the person whose job it is for every Olympics to do that is called the Great Witness.
+
+[00:25:35] And the Great Witness goes around going, not enough French, not enough French, because it's the official language. English and French are the official Olympic languages. I've never heard Olympic commentary and heard them shout out French words. They're like, you know, you don't hear that. It's all in English.
+
+[00:25:50] I mean, being a prostitute is not an event in the Olympics. So, French didn't get the way on that one. Shall we move on to our next slide? You better, yeah. Okay, it is time. It is time for fact number three, and that is Andy. My fact is that there is a gravity measuring device in Maryland so sensitive that it can tell
+
+[00:26:12] whether or not the scientists working on it have had lunch. I can already tell if I've had lunch. Don't even need this thing. No, you're right. Well, that's several million dollars. They have really chucked away. Okay. This is an amazing thing.
+
+[00:26:30] So, this is NASA's Goddard Space Flight Center. It's in Maryland, and they have built a machine that... I can't tell if the place is the punchline or my pronunciation of it is the punchline. Say it again, and let's see when they laugh. Guys, fuck you. I don't ask you to pronounce Lefster and Chumley in all these weird English words.
+
+[00:27:05] Right, so in Maryland, there is a machine that says it's just written there, it's just Maryland. Right, great. Can we plow on? You know, I've got to be out my knife. I can't read anything out anymore. I'm too nervous.
+
+[00:27:28] Look, it doesn't matter where it is. The location is not important of the machine. It's in America. So, it uses quantum mechanics. There are 100 billion cesium atoms in a column, and it times how quickly these individual atoms fall from the top to the bottom. Basically, it weighs nearby material,
+
+[00:27:51] and the scientists noticed they were getting different readings when they came back after lunch to this machine than when they were working on it before. So, it's sort of the most expensive fat-shaving device in history. Yeah, it's an incredible thing. The reason it is useful is not just because it can tell you if you've had lunch, but they want to put it in space.
+
+[00:28:15] There are already a couple of amazing gravity-sensing satellites in space, but this one is 10 times better than the existing ones, and what it means is that you can point it at individual places, and you can measure the size of a glacier, and you can say that glacier shrunk by that much because the gravity has altered around it, or you can observe changes in aquifer levels,
+
+[00:28:34] even underground. It's insane stuff. Because glaciers are changing the way of the world, aren't they? Constantly melting glaciers. England and Scotland, or England and Wales versus Scotland, are on a seesaw right now with each other because of glacial melting. So, basically, this weird thing happens where,
+
+[00:28:53] whereas glaciers melt, which is happening a bit more due to, suppose, climate change. You've got to play to your audience! Yeah, play to the coast! I don't mean that. But, basically, Scotland, which is much colder, used to have a huge weight of glacial ice, which has been melting over tens of thousands of years,
+
+[00:29:16] and so as it melts, the water dissipates, and Scotland's losing weight, whereas comparatively, England, getting a bit fatter comparatively, and so England is sort of sinking, so it's like a very gradual seesaw, a very boring seesaw, where if you're at the Scotland end, you're on your way up. At the England end, you're on your way down. Oh, well.
+
+[00:29:35] And at some point, I think we should just jump off the seesaw and give Scotland a broken coccyx. What do I say? What a difficult child you must have been. On these kind of measuring devices that are really, really sensitive, there are seismograph stations at Yellowstone that can measure the flushing of toilets at the Old Faithful Inn. That's amazing.
+
+[00:30:00] They're trying to get the geysers and they see something on the scale, and it's actually someone flushing the toilet. That's insane. I would feel like my privacy had been violated if I used the toilets at the Old Faithful Inn, and I knew that a scientist was watching that and judging. They're not watching. I've misunderstood.
+
+[00:30:21] I've put the radio through to the scientist's mate outside the Old Faithful to point at the guy leaving the loo and be like, I don't know what you've done. I was just looking at weighing things. Do you guys know the first person to weigh the world? Oh, no. Oh, sorry. Take a guess. Is it someone ancient Greek or...?
+
+[00:30:43] No, it wasn't actually. Newton told us how we could weigh the world. But he didn't bother doing it. And 100 years later, Henry Cavendish, scientist Henry Cavendish, decided to try and weigh the world. And the way you can do it, basically, he did it by... So he knew that objects with larger mass will attract objects with smaller mass. And even if you're on Earth, if you've got a big lead ball and you suspend a little lead ball next to it,
+
+[00:31:06] it will very, very slightly be attracted to it. And basically, because of the gravity equation that Newton worked out, if you can measure exactly how much that little lead ball moves towards the big one, you can work out the mass of the Earth. So he weighed the Earth. It was pretty amazing. He came within just by balancing two lead balls together. He came within 1% of what we know the Earth weighs today. But he was a real weirdo.
+
+[00:31:30] So he was terrified of women, Henry Cavendish. He'd never addressed strangers directly, because he was cripplingly shy. So he had a house and servants, but he had a private staircase built in the back of himself... His hat, not of himself. No wonder he didn't like strangers if they climbed up the back of him all the time. The other private staircase built in the back of his house for himself,
+
+[00:31:56] because he was so terrified of meeting servants on the stairs. And he was a really smart guy, and he went to Cambridge, and his final oral exams that he had to take to pass his degree, his natural philosophy degree, he just dropped out altogether, because he was so terrified of talking in public in this oral exam, didn't get his degree. He was insane. When he got introduced to people,
+
+[00:32:17] sort of gatherings, his famous scientist, he introduced, and sometimes he used to just be introduced, turn away, turn his back on the person, and sprint out the room as fast as he could, and hail the nearest carriage, and just gallop off into the sunset. Wow. Do you guys know, just on gravity, do you know that people have a phobia of gravity? There's a word for that.
+
+[00:32:36] Is that people who are scared that they might fall over? Yeah, there's different versions of their fear. So it's called barophobia. So one thing is that their fear is that gravity will get really strong and just crush them all of a sudden. Well, I wasn't scared about that until now. Yeah. So just a sudden change in the universe,
+
+[00:32:56] and we'll all just go squat. Oh, no. I think it would be quite funny for a few minutes when everyone walking around like... Yeah. The other version is that you're on a high place and gravity suddenly pulls you off, so that's a sort of fear of falling, basically. And then the third one is that gravity kind of just goes away,
+
+[00:33:15] and we'll just float away like a horse on a hot air balloon. And these are genuine fears that people have. Wow. Yeah. Hey, I was reading... So obviously the best example that we have of understanding how gravity works for humans who aren't on planets are astronauts and how it plays with the body and so on.
+
+[00:33:34] And so I was reading that the bladder of humans is a really interesting thing when you go to space because we don't know... Because everything's floating around, we don't know that they need to go to the toilet. They have no idea. Well... So they've been told...
+
+[00:33:48] Well, it must have come obvious at some stage. Yes. So John Glenn, when he was up there, it became obvious when his bladder had a full 27 ounces in there. That's 7 ounces more than a bladder is meant to take. So he was expanding, basically, with urine, and the problem is that when it gets too full, the urethra gets covered, so it's a problem with actually peeing.
+
+[00:34:09] So astronauts just have to go every two hours, just to get rid of the urine. Sorry, there was a bit in there that I didn't quite understand. Yeah. Your urethra gets covered. Yes. By urine? I didn't read the whole article, but...
+
+[00:34:25] But yet that's the bit that I'm going to wake up in the middle of the night, remember it? You can't need to go too much to go. Yeah. That's not because the urine is blocking off the entrance to your... The urine hasn't solidified at the entrance and then stopped the rest of the urine getting through. I assume not until Dan said that.
+
+[00:34:45] So if we ever get to Mars and live on Mars, that will be a problem for the people who grow up on Mars because gravity is much lighter there, so they will probably be taller, but when they come back to Earth, if they ever do, they will not be able to get out of bed because the gravity is three times stronger. Oh, right.
+
+[00:35:04] So it's like, is it Superman who comes to Earth and then the gravity is different on his planet to our planet and so that means he can fly around. Is that right? Is that why he can fly? Yeah. According to one person in the audience who I am going to believe, the original mythology was that he could leap a building in a single bound, that was the thing,
+
+[00:35:23] because they couldn't quite work out with the movies and the animation how to make him fly, and then they worked that out and then it turned into... Okay, is that because the gravity is so strong on his planet that he's developed incredibly strong legs to counteract in so he can leap really easily? I think that is true. But the thing is about humans...
+
+[00:35:39] No, no, no, no. Is everyone on his planet just walking around normally? Well, I think his planet got destroyed. I don't really know anything about it. Andy Krypton's no longer, I'm afraid. Oh, man. Anyway, back to the real world, the amount that humans can manage on other planets
+
+[00:35:59] about depending on how big their gravity is, people have looked into that. That was such a strange sentence, I'm going to start again. Scientists have looked on other planets that have more gravity and tried to work out how much we would be able to manage. And they've looked at that by seeing how much people can squat and what they can lift when they're squatting. And they reckon the absolute maximum that anyone will be able to do
+
+[00:36:22] is 4.6 times of our gravity. If you couldn't do that, you wouldn't have enough strength to even lift your legs to walk around the planet. And the way that they found that out is by looking at a guy called Hathor Julius Bjornsson, who was also Sir Gregor the Mountain Clegane from Game of Thrones. Oh, cool. And he has the world record for squat lifts.
+
+[00:36:45] He was the world's strongest man, and he did that this year. And they worked out how much the gravity would they be able to work so that the mountain would be able to walk. And it's 4.6 times. So if it was Dan's world where gravity suddenly got really, really strong and we all got squashed, if it was 4.6 times, he would be the only person able to walk on the whole planet. Wow.
+
+[00:37:08] That's the TV series I would watch. It's just Gregor Clegane walking around a load of pancake people. OK, it's time for our final fact of the show, and that is my fact. My fact this week is that the pirate who mentored Blackbeard once attacked a ship purely to steal all of the hats of everyone on board because his crew had drunkenly thrown all of their own hats overboard the night before. So this is a guy called Benjamin Hornigold, and he was a pirate. Can I just say, Hornigold is a great name for a pirate, isn't it?
+
+[00:37:50] Yeah, Hornigold. It's the two things he's after in life. That's true. Is it Hornig, first name, surname, gold, middle name, four? Yeah, I'm Hornig for gold. Yeah. Yeah. No, it's not.
+
+[00:38:05] So Benjamin, let's just call him Benjamin. No, so this was in the 1700s, 1717, and basically they had this massive night out on their ship. They threw their hats on, you know, into the ocean. Yeah. And so, and we know about this because we have reports from the ship that was robbed and basically terrifying a bunch of pirates come on. They said, please don't hurt us.
+
+[00:38:27] And they went, okay, cool. Can we have your hat? Took the hat and left. There was money on there. There was everything on there. They didn't need it. And yeah, so this was Blackbeard's mentor. Blackbeard was his second in command for many, many years.
+
+[00:38:40] Wow. Yeah. It's weird to think of pirates having mentors. You sort of assigned an older pirate student to look after you for your early years. Yeah. So Blackbeard, so did he teach Blackbeard all of his trademark shit? Like Blackbeard was very famous for having sort of fireworks sewn into his hair. Wasn't he?
+
+[00:39:00] He had this huge head of black hair full of fireworks to scare people. So he did, sorry, because you're mowing over that as a fact. That was a crazy thing that he did. This was a pirate who put fireworks in his head as he was robbing people and he didn't have, he had a beard. Fire hazards are everywhere in that situation. Yeah. And that's how he scared people.
+
+[00:39:24] It is, although no record of him ever killing anyone, I don't think. But he just, yeah, he's sort of ruled by fear. And in fact, I think the reason that we romanticize pirates is because of this thing that was written in 1724, a general history of the robberies and murders of the most notorious pirates. And this described Blackbeard and it said, his beard was black, extravagant length, as to breath, it came up to his eyes. Which I didn't even know Beards could do that. And he was, I don't know how you grow it that way.
+
+[00:39:53] And he was accustomed to twist it with ribbons in small tails and turn them about his ears, which suddenly sounds actually much less threatening. Yeah. It sounds like his mentor is just there doing pigtails. Yeah, he, this, just to go back to Hornigold for a second. Yeah, yeah. Do you know how he was got rid of from his ship? He got voted out by his crew.
+
+[00:40:17] Right. Like X Factor. Yes. It was quite a placid. So he didn't want to attack British ships. And his crew said, look, we're missing a lot of opportunities here. And they deposed him in a vote. And then he was just a passenger on board their ship.
+
+[00:40:35] As they were going around attacking other people, he was sitting in the break going, well, I wouldn't do it this way if I were you. But, you know, we've had a vote and fine. People do use pirates as a good example of sort of early democracy because they were weirdly egalitarian. And yeah, they had this democratic system and there was quite a lot of equality, income equality, or like spoils equality, pillage equality, whatever on board. So, you know, the lowest mate didn't really earn very much less than the captain. And it was basically to prevent yourself being overthrown, literally thrown over.
+
+[00:41:07] They had compensation as well. If you had an injury at work, you would be compensated. There's a list. We have numbers. If you lost a right arm, you'd get 600 pieces of silver. If you lost a left arm, you'd get 500 pieces. So much more important to lose that one if you're looking for money. If you lost your right leg, you got 500.
+
+[00:41:25] Lost left leg, 400. Lost either eye, same amount. Lost a finger, 100. Like every bit of your body had compensation. Well, and also, and this is where I think the real scammers would come in in this health insurance system, if you lost a leg and then you, after that, lost your peg leg, then you got the same amount of compensation again. No.
+
+[00:41:44] Oh, there's a loophole in that half. Have you been in an accident at work that was not your fault? Although Robert Louis Stevenson made up almost everything. He made up Chevron, my timbers. He made up the song 15 Men on the Dead Man's Chest, One Leg of Pirates, Pirates. It's all... Well... It's all made up.
+
+[00:42:08] Pirates? I have found some evidence that pirates and parrots did hang out together. So the... You had an emotional support, parrot. Yeah. So the biggest pirate stronghold was Port Royal in Jamaica. And actually, this was in the 1600s and it was being fought over between the English and the Spanish. But it was the second largest European city in the New World.
+
+[00:42:32] So it was second only to Boston, Port Royal. And pirates controlled it. And it was a great laugh. So a quarter of the buildings were bars or brothels. It was a massive frat boy kind of drinking culture. So the pirates used to dump a massive fat of alcohol on the street and force all passers-by to drink from it. Wow.
+
+[00:42:51] And apparently it was great fun. And apparently, according to a Dutch explorer who visited, he said that the parrots drank as much as the pirates there. He said the parrots gathered a drink from the large stops of ale with just as much alacrity as the drunks that frequent it. That's amazing. Yeah. So funny.
+
+[00:43:09] Another place that's associated with pirates is Pittsburgh. Oh yeah. Of course. This is a sporting thing. Yes? It is. Yeah, well done. Yeah.
+
+[00:43:20] So the Pittsburgh pirates, they weren't always called the Pittsburgh pirates. They were originally known as the Pittsburgh, and I'm going to let you try and read this. Oh, God knows. It's a mountain range. Alleghenies? Alleghenies. All right.
+
+[00:43:38] Redeem yourself. So they were the Pittsburgh Alleghenies. And they got renamed. In 1880, they stole away a second basement from another team, and they got called in one of the newspapers a bunch of pirates, and they took the name from that. And that's how they got called the Pittsburgh pirates. Wow.
+
+[00:43:58] Allegheny, right? Allegedly, yeah, yeah. Allegheny. No, no, no. Yeah, that was strong. Sorry. I only want to say, because the reason I brought this up is because I have a fact about the Pittsburgh pirates,
+
+[00:44:10] which I really want to say, because I want to know if you guys have heard this. This is amazing. So the Pittsburgh pirates had a scandal in 1985 when it turned out that some of their team had been buying cocaine from a giant parrot. Whoa. What?
+
+[00:44:25] So I can think of two ways that is. Either a giant parrot, which has been trained as a, I guess, a mule. Yes. Or a team mascot who is unbelievably brazen about the way he sells his drugs. You're absolutely right. It's the second one. What?
+
+[00:44:43] Yeah, they had this giant parrot mascot, and he was kind of taking the cocaine from the street and giving it to the players. Wow. Cool. And it wasn't an actual parrot. It was a human in a parrot suit. It was a human in a parrot suit.
+
+[00:44:53] Yes. Sorry. That's a bit obvious in an alleyway when there's a giant. You'd never suspect a guy in a parrot suit. Yeah. But if you're buying drugs and then some guy in a massive parrot suit comes up to you, I think you're...
+
+[00:45:09] I'd be like, these drugs are fucking working. Wow. Wait a minute. Ah! Polly wants some crack. Can we wrap up? We can wrap up. Yeah.
+
+[00:45:23] Okay. That is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter account. So I'm on ad Shriverland and...
+
+[00:45:36] At Andrew Ondra. James. At James Harkin. And Chazinsky. You can email podcast.qi.com. Yep. Or you can go to our group account, which is at no such thing,
+
+[00:45:44] or our website, no such thing as a fish.com, where we have everything from upcoming tour dates to previous episodes, really cool, sexy new books like this one sitting here. Guys, thank you so much for being here tonight. That was absolutely awesome. We'll see you again, New York.
+
+[00:45:57] Good night!

@@ -1,0 +1,295 @@
+# No Such Thing As A Fish - No Such Thing As The Jam Of Entertainment
+
+- Episode date: December 19, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-jam-of-entertainment
+- Slug: no-such-thing-as-the-jam-of-entertainment
+
+## Transcript
+
+[00:00:00] Hi everyone and welcome to the last episode of No Sixth as Fish before Christmas. We're getting really close to Christmas now, so obviously very, very much in the last minute stocking filler area. But if you have very odd-shaped stockings, then maybe you would like to buy some of our books because probably from some online retailers you'll be able to get them just in time if you're listening to this on Friday or Saturday. So let me remind you what we have. Andrew Hunter Murray has written a number of novels but his latest one is a beginner's guide to breaking and entering. It is a book that shows off everything you love about Andy
+
+[00:00:40] is very funny, very witty and at the same time has his classic thriller structure as they all do, all of his books. Dan Schreiber has a book called Impossible Things. It is a children's book and it is a way to get your children to think like Dan Schreiber. Is that the kind of thing you want? Well, let's be honest, it is.
+
+[00:00:59] He has a unique brain and his book are absolutely amazing and it really gets kids interested in everything that's going on around them. And if you're an adult, which you probably are. If you're listening to this, then you can get the theory of everything else, which is his adult's version of that book. When I say adult, I mean it's for adults, not that it has anything naughty in it. It is complete family-friendly fun. Of course, Anna and I also have a book. It's called A Load of Old Balls. Doesn't sound very family-friendly, does it? But it is our look at the world of sports. If you've got any to buy four relatives, but you know that they like any kind of sport, then this is the one to get
+
+[00:01:35] for them because it is a classic QI thing of all the kind of weird facts that even the biggest sports fan in your family will not know. And actually, even if you don't like sports, we know that you will like this because there's a book full of facts and it really gives you an idea of why humans like this thing that a lot of us really find quite impenetrable. Anyway, so that's the books from the three of us. Get them now. They're the perfect present for any fish fan in your life. But don't worry if you can't or don't want to get those, it's absolutely no problem. All we really want is that you listen to
+
+[00:02:07] and enjoy the podcast which is free and which will always be free. So there's nothing more to say, I suppose, then Merry Christmas. Hope you have a great time over the next couple of weeks. And on with the podcast. Welcome to another episode of No Such Thing as a Fish, a weekly podcast
+
+[00:02:44] this week coming to you live from Melbourne. Petysinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Anna. My fact this week is that to get a good close-up photo in the early 1900s, your camera had to be 20 feet long. Which was tough to take in hand luggage.
+
+[00:03:24] We've got a photo of it up on the screen, a black and white photo. We do. So there's a picture here of the two people who had to operate this camera, who were David and Marion Fairchild. I think we mentioned them briefly on the show before. She was Alexander Graham Bell's daughter. And this is around 1913. And David really wanted to take some close-ups of insects. He thought they were very, very beautiful creepy crawlies, and he was annoyed that the only way you could look at them close up was by killing them, squashing them, drying them out and putting them in a book. So he was like, let's try to take some pictures. but in order to get the magnification,
+
+[00:03:57] you need this incredibly long extension tube, or you did when the tech was a little bit simpler. And so you've got the lens at one end, which person number one is having to hold, and then at the very other end of the camera, you have the person who takes the photo, and eventually you get an insect in very high definition. Were these insects living, can I ask, Anna?
+
+[00:04:19] They were not. It was actually quite amazing what they did. So, yeah, so it wasn't, I thought, at first, how lovely he wanted to keep them alive to photograph them. No, he just didn't want them dried out. So Marion actually came up. Because I already needed an exposure of 80 seconds. Yeah.
+
+[00:04:32] No insect, no matter how well-trained, is going to sit there. I can't sit there. They might be asleep, right? They might be asleep. They might be asleep. I've seen insects stay still for long periods of time, but these ones were deceased. And the way they did it was Marianne would cover a block of wood
+
+[00:04:46] with a layer of candle wax, and then she'd put a leaf on top. So it looks like it's in a realistic position because insects hang out on leaves. and then with a little pin made a few holes for each foot of the insect in the leaf and the feet would stick to the wax underneath and so then it would look like they were naturally
+
+[00:05:02] just standing on this leaf. Okay, there are some of the ways of doing it these days if you go on forums of how to photograph insects, they come up with ideas. One idea is to put them in the freezer for 20 minutes and that will keep them still but it won't kill them. Right. Which is good.
+
+[00:05:17] Another one is if you, let's say it's one that doesn't fly, if you put it on the table and then put vapor rub fix vapour rub around it, then it won't be able to get out of there, and so it'll just stay in that little... I thought you were going to say, they're superstitious, and they won't step over. It's like summoning a demon.
+
+[00:05:33] They just slip around. And one of the earliest, this wasn't photography, but one of the earliest close-up books was Robert Huck's micrographia, so that will have been, what, 17th century, I guess. And he drew lots of pictures of tiny insects that he could see through these new lenses that had been invented,
+
+[00:05:50] and the way that he did it was that he would give a fly a quarter of a pint of brandy. Oh. No. Sorry. What do you give a flight? That's a lot of brandy.
+
+[00:06:00] All right, lightweights. If even Anna is quibbling over the, you know, I'm not sure I can. Would he drop them in it? Yeah, he would put them in it. Oh, nice. He probably could have gone for a bit less brandy, but. Maybe they'd be groggy. The photos, by the way, that they took, so published in the book called The Book of Monsters,
+
+[00:06:18] and they are terrifying. And what it really gives you for the first time, anyone really had it was the sort of point of view of, say, like an ant coming up against a giant cockroach or a worm, and it's terrifying. The insect world is, it's scary in black and white when it's big. They named their camera, which is quite nice. Oh, what's they called? Long Tom. Did you guys come across Frank Percy Smith? No. Okay, I was looking up pioneers of insect photography. A crowded field. I think Frank Percy Smith is the other one. 1880 to 1945 was his lifespan.
+
+[00:06:55] And he got, okay, I'm just going to read out a quote I found. Frank Percy Smith got his big break after he was so bored at his day job that he adopted a pet blue bottle, keeping it on a tiny lead and feeding it milk. That's so amazing. Now, do we mean feeding it or submerging it in milk? I was just thinking we were chatting today, Anna, because I've been playing golf and there's loads of flies everywhere.
+
+[00:07:17] And you said that a single fly followed you for about 45 minutes when you're walking to the... I didn't know the information about my private life was going to be brought to the table today, but yes. It was trying to domesticate itself. I think it was. And you were rejecting its overtress. That's very sad.
+
+[00:07:32] All the way down St. Kilda Road, it's very annoying. But he genuinely, he had a pet fly. Yeah. He just had a pet blue bottle on his deck. I mean, that's... I feel like people should be more staggered about this. Yeah. I mean, he had it on a lead, and he had it on a lead.
+
+[00:07:43] Anyway... How long did it live? Source does not relate. But he took close-up photos of the fly drinking its milk in the morning. And he showed it to a film distributor who specialized in insects, a guy called Charles Urban. And this was in the 1900s, so he was a young man at the time. And he would film amazing footage of a fly juggling, like a ball or a piece of cork or some twine.
+
+[00:08:06] Really big. Bigger than it was, like much bigger than it was. And it turned out the way he had done this. Okay, it's not great, but what he had done was he had glued it upside down to something. So his legs were all sticking in the air and then put a... little piece of fluff or whatever on it, and it just bats it around with its legs, and it looks very, very amusingly like it's struggling.
+
+[00:08:28] The fly would be dead by now anyway. I think it's important to say that. Wait, how is it batting something around with his legs if it's dead? No, no, no, it was alive at the time. He glued it upside down to the thing, so it would... And he's just saying that it's not offensive because the fly is dead, but he will have hundreds and hundreds of thousands of relatives.
+
+[00:08:44] Exactly. Many of them in tonight, but... They're all waiting for you at the stage door, But this was the thing he said about his work. He said, I have always endeavored to administer the powder of instruction in the jam of entertainment. What a good motto for, isn't it? The powder is the medicine, like giving your dogs some medicine or whatever. I see.
+
+[00:09:03] When he was a child, Frank Percy Smith, he was so into nature that he lay down on a frozen lake with his head in a hole looking at the things that were happening underneath the water. And his friend found him like that and he'd become frozen to the ice and had to be freed. No. Really? My goodness. That's terrific. That's amazing. I've got a thing on early photography here, and I have a little riddle for you.
+
+[00:09:27] And I guess all are you as well, which is 1837. The first ever photo is taken. It's called Boulevard de Temple. And in it, you see the photographer is looking down over a sort of promenade. There's a big road, and there's just one human there. Okay? So that's all you see. It's the first photo, so far as we know, of a human in a photo.
+
+[00:09:49] However, the photo was basically taken during rush hour. So, there should have been horses, there should have been lots of people. Why is it just one man? Vampires, I guess. I've got it. I've got it. Hang on out, please, guys. Well, actually, I don't really mean to you guys.
+
+[00:10:07] Let's see if the guy with the microphone can get it first. Right. The man who did appear in the photo was a scuba diver who was stuck in a tree. Yes. So it's because of the exposure. Exactly. It took seven minutes to get the exposure done, right? He still living statue.
+
+[00:10:27] He wasn't a living statue. He was having his shoe polished. So he's standing with one leg up, which is clearly having the shoe polished, and everyone else, all the horses, all the everything that was going, the people, they just didn't connect with the photo because they weren't in one spot for so long.
+
+[00:10:40] Can I ask the guy who was polishing his shoes, was he sort of doing this? You get a bit of him. He's slightly there, so he almost makes it into the first. ever photo of a human, but that's it. It looks like a desolate area with just one person, and it's not. Wow.
+
+[00:10:55] You see, the charm of entertainment was the quiz, and the powder of instruction was the information. I think that's right. It's what we do. It's what we do. The largest camera on the planet, we're doing a very long camera here, long Tom. The largest camera on the planet was built in 1900, specifically to take a photo, the largest photo in the world, large camera, large photo, what was it to photograph? Oh, okay. Was it a large building?
+
+[00:11:22] It was a large object. The galaxy? A moving object, smaller than the galaxy. Okay. What was new and sexy and cool in 1900, more or less? Motor cars. A bit older. But moving, but moving, I think, yeah.
+
+[00:11:35] It was the handsomest train on the planet. Oh. Was that its name or its nickname? Yeah, it was blurbed as like, this was the PR around it was, this is the coolest, most gorgeous train. You'll have to see. And it was called the Alton Limited, built in Illinois. The big deal was, it was symmetrical.
+
+[00:11:50] That apparently, I have no idea what previous trains look like, apparently completely bulging on one side and flat on the other. They fell off the tracks a lot, didn't they? Basically, everything was the same length and height in it, and that was amazing. And they had to make a single photo plate, you know those plates that old photographers have dipped in, it was eight feet wide and four and a half feet tall. It was like, it was as if a giant needed to drop it into the camera. And the camera was 20 feet long as well.
+
+[00:12:13] And they got the shot. That's very cool. That's awesome. Yeah, love that. Good shot? It's fine. That doesn't say much for the handsomest train. Here's a little quiz.
+
+[00:12:25] Quizlet for you. There is a thing called the Nikon Small World Photomycrography competition. And it's a competition where you take photos of very, very small things and whichever is the most beautiful wint. Okay. Okay. So in 1975, the winner was a photo of oxalic acid crystals that were magnified 100 times.
+
+[00:12:45] Okay, so that's 1975, 100 times. in 2024, how many times magnified was the winner? So it's 100 times in 1975. It's either going to be 50 quadrillion, or it's going to be like twice as magnified. 102. No, 100 times magnified in 1975. Yeah.
+
+[00:13:05] I'll say 100,000, I'll say half a million, 500,000 times. It's in between of the two extremities that you were going for because it's actually still 100. So it was 100 in 1975, and it was 100 in 2024, and they haven't been able to improve it since. No way. What? Really? And the reason is physics.
+
+[00:13:23] It's just physics. These are not like electron microscopes or scanning tunneling microscopes or these special things that physicists have. These have got to be light photographs. And once you get smaller than 100 times magnified, the very light itself starts to diffract into each other and you can't see things clearly.
+
+[00:13:42] And even if you push your fingers outwards and outwards on the screen of your iPhone. Eventually, believe it or not, you will reach a limit. Wow. That's so funny. That's so as much an annoying quiz. Which is why you said it. I understand.
+
+[00:13:59] Here's another early form of photography that was experimented with. Have you guys heard of thoughtography? Thought. Thought. Thoughtography. Picturing parts of your brain and working at what people are thinking about from the neural activity. No, it's basically psychic photography. You have to stare at what you want to be appearing on the photo
+
+[00:14:20] and then gradually it comes onto the photo. Except it doesn't. Well, tell that to Yuri Geller, who is able to photograph himself with the lens cap on the camera. Although for some reason he only takes photos of his forehead. I can't work out why that is. Is Yuri Gellas our source, is he? Yep.
+
+[00:14:41] Oh, no, something's which source? Cool. Well, how about this one? Optogra. Octography. Octography. Yeah, octography. Okay. Okay.
+
+[00:14:50] So eight-sided photographs? This is, no, I didn't actually look up the etymology. This was something that was actually practiced in the late 1800s that they thought might be a thing. It was when someone, if they'd been murdered, you would take a photo of their eyes because they believed that the eyes captured the final image it ever saw. And they would see the murderer sort of like in the in the... in the eye going, ah, or whatever. And they would then go, that's Martin, and bust. It's optography, I think, with a pee, right?
+
+[00:15:24] That would make more sense, wouldn't it? Unless people had eight eyes back then. Only spiders, it worked with. And it's always either an old woman or a bird. I remember reading about this, and I think so many people believed it that there were murders where they removed the eyes because they thought the eyes would give them the way.
+
+[00:15:43] Yeah, yeah. Murder is dark. Well, it would be, wouldn't it? It is time for fact number two, and that is my fact. My fact this week is that in America there is a secret society called The Order of the Occult Hand,
+
+[00:16:05] whose sole mission is to sneak a very specific phrase into newspapers, and we have no idea what that phrase is. So this started back in 1916, An American journalist called Joseph Flanders put into a report that he was writing about where there was a murder and these words came up and said it was as if some occult hand had moved porn after porn until they were in the right... That's porn with a W, I think.
+
+[00:16:36] Yeah. How does it make sense when it's the other one? It doesn't. It could have been murdered in a newsagents. Oh, true. It just moved porn after pawn. How did they get the corpse onto the top shelf? Man found dead in Penthouse, the other kind of penthouse.
+
+[00:17:00] Gone. So it was as if some occult hand had moved porn after porn until they were in the right place and then tragedy. And so that phrase made it in there, that little phrase about the occult hand. And he went to the pub and his buddies were giving him crap about this saying, that was such a funny, ridiculous thing. And they decided, we're going to start a secret society where as many journalists are going to try
+
+[00:17:20] and slip that exact phrasing. It was as if some occult hand had dot, dot, dot, dot, into it. And that was because it was so pretentious. Yeah, exactly. It was just such a ridiculous thing to write. And so for 40-odd years, it kept appearing in newspapers, and it started to be a thing where editors would find out that people were doing that.
+
+[00:17:40] And so when it came to a final proofread of the articles that were going out, They had to do an occult hand check to make sure that the phrase hadn't been slipped into it. And we only know what the phrase is because in 2006 it got properly outed. So instead of it dismantling, they have a new phrase now
+
+[00:17:56] and we don't know what that is. So in the newspaper globally, there is one particular phrase that will still be appearing. And until we know what that is, it's going to be their secret. It's not Trump has won the election, is it? Imagine.
+
+[00:18:11] Yeah. It is fantastic. And newspaper language is very specific about this kind of stuff. So obviously the headlines, you miss out a lot of conjunctions and prepositions, you miss out anything which slows down the phrase. Ideally. So it's like dog bites man, not a dog has bitten a man. Exactly, exactly that.
+
+[00:18:27] And so obviously it makes it spicier and more exciting and draws the reader in, which is the whole point. But sometimes you get headlines which don't quite work as a result. So there was a headline from 2014, Patrick Stewart surprises fan with life-threatening illness, which... Yeah. What a bastard.
+
+[00:18:50] I'm afraid you won't live long and prosper. I like there are lots of things that are sort of concealed in newspapers, aren't there? Lots of kind of within Fleet Street jokes. Often they happen when there's a bit of a disagreement between the journalists who are writing their stuff and the owners of a newspaper, and often those journalists don't like those owners. So in 2001, for instance, Stephen Pollard was sacked from the express, and the express had recently been taken over by a guy called Richard Desmond. And Pollard's last article was just a very innocuous commentary on organic farming. But the first letters of each sentence spelled
+
+[00:19:28] out, fuck you, Desmond. Which is very good. And I also, James May, do you guys have top gear? James, yeah, James May of Top Gear fame. In 1992, he was, he was, fired from Auto Car Magazine because he'd been asked to write 42 pages of like a roundup of the cars of the year and he had to do a little review of each car and I think he thought this is a very tedious task but it's 42 pages of reviews so he had to come up with a very long kind of a cross stick so the first letter of each review spelled out so you think it's really good yeah you should try making the bloody thing up it's a real pain in the ass Wow. We had to read quite a lot of old articles for this and one of the ones that I get, this is a bit non-sequitator, but I read this amazing article in the New York Times
+
+[00:20:17] about the grunge movement in Seattle. This is in 1992 and it had a list of grunge terms and I just thought I could do a little quiz and see if you could say what they are. So in Seattle in the 90s, early 90s, what was a Cobb nobler? Cobb no.
+
+[00:20:34] Oh, Shushana. No. Didn't really have so many shoe shines in Seattle in the early. Not really a cop for a dime sir. Is it what you call the little thing that you stick into the corner of the cob? Like it's a little knob that you put in to a so. It's just a word for a loser. Okay.
+
+[00:20:58] Lame stain. Lame stain. Sounds like another word for a loser. It's another word for a loser. Wax slacks. All right, James, we get it. You don't like hanging out with this. The trousers, some kind of trousers.
+
+[00:21:11] Yeah, old ripped jeans and swinging on the flippity flop. Oh, that's just being a cool guy, hanging out. It is, hanging out. That is, honestly, that is amazing. Andy, you could have been in early 90s Seattle in the grunge scene, apart from the fact that they were all made up. Oh. They were made up by people who didn't like the fact that their scenes,
+
+[00:21:37] was getting into the national press. And so they did a fake interview where they made up all of these words. And it got into the Times, and it was years later when they found out that these were all fake. And the New York Times dismissed the prank as irritating.
+
+[00:21:52] They really care about the sort of accuracy of everything. They sort of check everything so many times. I do think what this phrase might be is interesting. Because they'll have been smuggling it in. They will have been concealing the powder of instruction. in the jam of entertainment. Yes.
+
+[00:22:10] It would be my way I feel about it. Yeah. It's a food for thought, isn't it? That's what's called purple prose. That's what journalists often refer to. So this was a thing, it's a style off the back of a quote of a Roman poet, Horace. Someone would basically patch purple onto their clothing in order to make them look more rich.
+
+[00:22:27] But it was so badly done. It was so obvious and so trying to be pretentious that you would notice it immediately. and for journalists uses purple prose. I just know that was where it was from. Yeah. We should talk about Australian hackery as well. Okay.
+
+[00:22:42] Because Australia is home to, you know, great newspapers. And... And a great newspaper family. Yeah. I'm so glad to he's like that. No, sorry. Who was that? Was that you're Elizabeth Murdoch? That was...
+
+[00:22:57] Great Australian headlines. The Northern Territory News. I imagine it's mostly red in the Northern Territory, but, you know, if you do subscribe, you will have doubtless been delighted by the 2013 headline, Why I Stuck a Cracker Up My Clacker, which was a first-person account by a man who put a firework up his bottom. And it won its writer, a Walkley,
+
+[00:23:26] which I gather is the highest award in Australian journalism. It's the Aussie Pulitzer, as far as I can tell. It won. What is? I haven't heard of that. Walkley. Oh, wow. So this before was about putting things into newspapers or tricking a newspaper. Of course, newspapers can trick their readers as well, and it often happens on April the 1st. Usually quite irritating, I think, actually.
+
+[00:23:53] There's someone who fell for the old spaghetti tree. But some of the worst April Fool's tricks, in 1998, on the 1st of April Fool's tricks, In 1998, on the 1st of April in Iraq, the newspaper that was owned by Saddam Hussein's son Uday said that President Clinton had decided to lift all sanctions against Iraq. Can you watch? Guys, it was funny if you were there. It's a difference in the moment.
+
+[00:24:21] It is mental. That's amazing. And then the next day they had to admit they were joking. Ah, got you. No goods. In 1927, Princeton, their internal newspaper, the Daily Princeton, they revealed that the university was going to begin admitting women. Oh.
+
+[00:24:41] Can't believe anyone felt for that one. And then in 1864, there was the evening star of Islington. They announced there was going to be a grand exhibition of donkeys at the Agricultural Hall. And so the next day, everyone went to see the donkeys. and of course they were the donkeys themselves. Oh, I thought it was good. That's quite a good one. That's very good.
+
+[00:25:02] I thought it was going to be that people all brought their donkeys the next day. Like a lot of donkeykeepers were felt for it as well. But it doesn't sound like that happened. No. If you've got a donkey, you probably can't do things at one day's notice. You probably have to win. If someone announces as an exhibition of something, you can't bring your own version.
+
+[00:25:17] If you see there's an art exhibition on. Make to disagree. I frequently take my sketches to the gallery. And he turned up at Cole play with his guitar. No one could tell the difference. It is time for fact number three. That is James. Okay, my fact this week is that 18th century King of Sweden,
+
+[00:25:45] Gustav III, was into LARPing. Hmm. Oh. So, LARPing, live action role play for the uninitiated. But that is where you pretend to be someone from history. So what's his excuse? because he's from history. Ah, interestingly, at the time he was from the present. Yeah, right.
+
+[00:26:07] Right. So who was he dressing? He was dressing up as someone further back from history. Can't hold it. That's how time works, really. I mean. That felt like something I should have asked. I don't know what happened there.
+
+[00:26:19] How's a weird glitch? So this is something I read at the Museum of World Culture in Gothenburg when we played Gothenburg quite recently. And he was a king who was really into the arts, and he knew that it would be good for promoting the monarchy. And so he started these festivals where there was loads of jousting tournaments and masquerades and stuff like that. That wasn't new, but what was new is that he and his other royals would take part
+
+[00:26:48] and they would act out battles from the past and show how great the monarchy was. Right. And it's not that I made up, I didn't sex it up by saying, LARPeng. No, how could you? It was, that is specifically what it said in the Gothenburg Museum that it was LARPING.
+
+[00:27:05] Okay, but he didn't call it LARPING. No, no, he probably didn't. Because the initials would be different in Swedish, wouldn't they? Yeah, it's making sense. Do we know who he dressed up as specifically, or... It will have been his former
+
+[00:27:16] relatives. Relatives? Yeah. Ancestors. Yeah. Okay, right. And this is the really, so he was such a Thespi king, basically.
+
+[00:27:24] I mean, you know, royalty is already full of pageantry and flammary. And, you know, we know, I know you guys loved that, but his love of Larp killed him. Ooh. Oh. He was a, I mean, really genuinely did. He was at a...
+
+[00:27:38] Look out, nerds, is what are you saying? Very good on. He was at a masquerade ball, which he was excited about throwing. You know, everyone was in masks and dressed up and all that. He was in costume. He was clearly identifiable as the king, because he had a very notable star medallion on his breast, so he was clear who he was. He had received multiple warnings not to go by letter saying,
+
+[00:27:58] someone's going to kill you, slash, we're going to kill you, slash, don't go. Oh, really? Yeah. He's had loads. He got at the very end of supper just before the ball started. He got one final letter saying,
+
+[00:28:07] someone's going to try and kill you, disregarded it, went along anyway, and was attacked. Who's delivering the letter? Like, as in... I think it was a spy's warning that I've uncovered some kind of plot. Everyone's in masks, though, aren't they?
+
+[00:28:19] So it could have been anyone. Yeah. That's true. Except that we know who it was. Yeah, we did well. We know who was killed for it, don't we? Point.
+
+[00:28:27] A, it was. Jacob, Johann, Ancastrom, whoa. It's always the one you least suspect. CSI, Stockholm, 1792. We can't keep making encouraging noises after every fact that we say. Yeah, that's my thing. Back off.
+
+[00:28:44] No, B, the assassination itself was extraordinary. I'm actually kind of obsessed with Gustav III, and I think he's an amazing person, if a bit of a weirdo. And one of the things I love is how the assassination went down. So it's 1792. and this guy, Jakob, comes with a cavalry pistol, a big pistol, and it's loaded with two balls or bullets, a bunch of nails, 14 assorted scraps of lead and iron,
+
+[00:29:09] and he put the muzzles straight into Gustav's back. It was, you know, it was point blank, poured the trigger, Gustav staggered but didn't even fall over, and the assassin was so shocked, he dropped all of his weapons. He had two guns on him and a knife, and he dropped them all, and Gustav had a hole so big in his back you could put your whole fist in up to your wrist but he still lived for two more weeks
+
+[00:29:34] he did and what's cool about it he tried to walk to hospital to start with as well and then he was like fuck and they got him a chair and he was still Australian he was a man I'm so right
+
+[00:29:49] put a fist in that he wasn't to role play but not that much into role play. God. And then he sat back down on his chair and they carried the chair to where he was getting medical attention. And it's one of those things
+
+[00:30:07] where because it was such a documented moment, you can go visit the masquerade clothes that he was wearing in a museum and they've still got supposedly the chair, which is blood-stained and so on that you can visit as well as like relics of Gustav. And have you heard what he said when he was told who did it?
+
+[00:30:23] Oh shit, mate. It was it him? Yeah. What was that? Bonsa. What did he say? He was told who the culprit was, because they caught the assassin, and he just said, and he's got a fifth-size, wrist-deep hole in his back at this point,
+
+[00:30:40] and he just says, I don't want to know the names. It's only their political plan I should like to know about sometime or other, because I'm curious to see whether there was anything sensible in it. Wow. What a guy. And Kastrom was publicly flogged, his right hand was cut off, His head was removed and his corpse was cut into quarters. Wow.
+
+[00:31:02] Until he apologised. And he had two accomplices who were stripped to their titles and expelled from the country. And they were called ribbing and horn. What? Ribbing. Ribbing. Ribbing. Ribbing.
+
+[00:31:16] And horn. Good. No further questions. One more thing on masquerade bowls really quickly just because we're on the topic. There was a moral panic in the UK, even about masquerade bowls. 18th century because they become really, really popular in the upper class. And the Bishop of London said that it was a plot devised by the French to neutralise the beauty of English women.
+
+[00:31:41] Okay. So it's the only way those disgusting French people can get any sex in the UK is by everyone wearing masks. Yeah. It makes sense. What are you saying? What is the tone of sarcasm that I send us here? I think it's an interesting point because I, in my singing,
+
+[00:31:57] If you go to a Halloween party, right, everyone looks so hot, but they would be not who they were, right? It'd be like, wow, look at that skeleton. She's awesome. And if she took up her outfit, you put on a lot of ways. But there was a study that showed that people found during the COVID pandemic times that wearing a mask enhanced the hotness of a face. Oh, wow. Mistig. Oh, really?
+
+[00:32:27] Glamour. Yeah, exactly. Mystery. Hygiene. Sanitizer. I genuinely, I scored a date at a Halloween party and then we went on the actual date and, like, unfortunately...
+
+[00:32:42] Ironically, she was frightened. More on the date. Yeah. And I preferred her as a Tetris block. Which one? The square? No, she was the L. Nice. Yeah.
+
+[00:32:54] Yeah. Yeah. Just a little bit more of Gustav III, please. Sorry to go. Sorry, no, we're doing Dan's dating history. He was incredibly interesting. He was the third Swedish monarch to die of being shot in 160 years. Right.
+
+[00:33:11] Apart from his father, who died after eating 14 helpings of semla buns, just loved buns. But he did so many different things. I mean, he was a despot. He took over, and he, he, he, he, rolled government back. He was anti-democratic, but he banned torture and contributed to culture, so he did a lot of self-promotion. And one of the most interesting things he did was he was engaged at the age of five, too young. To be married. To be, sorry, here, to be married, to another five-year-old.
+
+[00:33:42] Right. That's not too bad. Yeah, Princess from Denmark. Princess Sophia Magdalena of Denmark. And then when they were 20, they got married, but he wasn't there. So you could do this thing of getting married by proxy? In the old days, if you were marrying another ruler, then they were busy because they were on a campaign or something. You would just have someone else step in. So the bride's half-brother, Frederick, played the role of the groom just sort of in a purely ceremonial function.
+
+[00:34:08] And only half-brother. Yeah, exactly. And then she came to Sweden and they properly got married. But they did have to have a kind of love tutor, as in they needed to be slightly taught facts of life. because for 10 years they did not consummate the marriage. And they had to have a coach
+
+[00:34:25] who was Count Adolf Frederick Monk Alfulchila who was the... That sounds like a sexy Dracula. Count Fulcula. I want to suck your... Never mind. But there were rumours that Count Adolf was the father.
+
+[00:34:49] When they eventually did have a child. And spread by his mom. So, Perrault, Gustav's mum, Gustav's mum thought he was impotent, was like, he can't perform sexually, no way did he father that child, and spread the rumour where even in his own diary,
+
+[00:35:03] Count Adolf, unfortunate name, said that he was obliged to physically touch and guide them to the right positions because somewhat mysteriously, he said, they both had anatomical problems, which caused some trouble. What were they? I must know.
+
+[00:35:19] But yeah, the mum was like, My son is bad in bed. There's no way he's father of that child. I bet it belongs to the count. Gustav III, he gave us the swede. You know, the vegetable, the swede. It came from him because he's Swedish. What do you mean when you say gave us?
+
+[00:35:38] Well, I'm going to explain, but it's literal. So there was a guy called Patrick Miller who invented a new kind of paddle steamer and he tried to sell it. It feels like a start of a very long story. Now we have to go back to Patrick Miller. You'll see why he's important much later. So Patrick Miller.
+
+[00:36:04] I'm on Tanto extremes, even if that one else is. He tries to sell his paddle steamer to Denmark. And Denmark said, we don't need your paddle steamer. But Denmark was at war with Sweden at the time. And so Miller went to Sweden and said, do you want a paddle steamer? and they said, yes, great, we love paddle steamers. So he sent the paddle steamer over to Sweden, and by the time it got there, the war had already finished.
+
+[00:36:26] This is like Grandpa Simpson's story in the Simpsons. Does he go to Shelbyville with an onion in his pocket? It was the fashion at the time, Andy. Okay. So they got this pointless paddle steamer, but he was really happy, Gustav, and so he sent Patrick Miller a gold snuff box, and a painting of the paddle steamer,
+
+[00:36:51] and a Swedish flag, and a swede. And the Swede came with, finally. And the Swede came with some seeds that said, plant meat, and he planted them, and from then on, the UK could grow its own Swedes. And because they came from Sweden, we called them Swedes. And is anyone still here? Because I'm not sure.
+
+[00:37:20] It is our... It's time for our final fact. And that is Andy. My fact is that some people have tattoos on the inside of their bottoms. This is really interesting. Yeah. So, fashion? Not fashion.
+
+[00:37:37] The reverse. Necessity. Is that the reverse of fashion? Controversial. Yeah. Okay. But it's really interesting. There is a thing called endoscopic tattooing.
+
+[00:37:47] And it's colon tattooing. So it's tattooing right inside your bottom. And the reason is that some people have lesions, they have areas of unusual tissue inside their bottoms, and they might become dangerous in future years. They're not now, but they need to be monitored. You know, if they change, it's like having, you know, a mole that you're keeping an eye on just in case it changes or anything.
+
+[00:38:07] So they need to be kept an eye on, and for that, they need to be marked. And so this, in 2022, the American Chemical Society launched a new ink that was going to be used for endoscopic tattooing. So that's why I found this fact. And basically, it marks just sort of next to it, because you can't mark the area itself, but you mark, look, here's the size, here's the shape, here's, and there's a kind of whole code language of what you are showing with this tattoo, so that any future doctor can have a look at it and say, oh, that's okay, it hasn't changed, or, oh, it has, we need to,
+
+[00:38:35] might need to do something here. So it's just a brilliant area of, do you know, how do they get the pen up there? Like, is it, how do they do it? It's very hard to draw the dolphin with, I actually don't know. I think, I think, I think it's. Like endoscopes. It's up the Endoscope, yeah, endoscopies. And it's very common, and it serves a few purposes. It's, you know, it's sometimes marks a site for surgical removal, if there's something that's been decided, it has to come out anyway. Sometimes it says, like, here's a place for follow-up to just check this out.
+
+[00:39:06] We've done some surgery, just check it out. But it is very cool. I was very surprised to find a Reddit thread about it from a surgeon, who I guess operates on areas that might have been previously tattooed to take away certain things. And a big thing in this industry is not tattooing the rectum. So you tattoo further up the colon,
+
+[00:39:28] but rectum don't need to do it. And the Reddit thread, the headline was, please don't tattoo the rectum. Don't worry, we will find a tumour if it's there. The tattoo gets in the way and makes everything hard to see and dissect, please. Which I was just very surprised that surgeons are using Reddit
+
+[00:39:42] as a way to say to other surgeons, please stop tattooing people's rectum. That's so interesting. There is, I mean, there are, people who will have tattoos down there for fashion reasons. Yeah. There's a guy called Randy Candy. Of course.
+
+[00:39:57] Who will link you anywhere you want. And he'll give you a discount if you choose to do it on your bumhole. But I don't want it. Yeah, but sometimes if you don't have quite so much money, beggars can't be choosers, can they, Andy? You want to have I love mum somewhere. He's done like an enormous spider exited. someone's body.
+
+[00:40:21] Oh, cool. That was extremely cheap. He says basically the weirder it gets, the cheaper it becomes. Did you guys hear of the project, Whole Glory in 2016? No. Whole Glory. It's not as bad as it sounds.
+
+[00:40:34] There's a tattoo artist called Scott Campbell who said, anyone who puts their arm through this hole will get a tattoo. Oh, right. You can't decide what it's of. Which, oh, I see. Thank God. You get no communication.
+
+[00:40:46] And it was in an art gallery that it happened. So you would just put your arms. through and he was a sort of very famous and decorated tattoo artist. And did he do it like sometimes it was good and sometimes it was bad? That's right. Some of them were spelt well, some of them were just... One in five was like swastikas. I don't think he did that. On swastikas.
+
+[00:41:08] Oh yeah. It's always good to drop them in. If you were given the chance of having a swastika face tattoo or losing your dominant hand, having it amputated, Which would you choose? Are I allowed to put a big eye patch on over the tattoo, for example? Is it over your eye? It's your whole face.
+
+[00:41:27] Your whole face? I'm sorry, it's the whole face. I think a balaclava, I think. Really? The mystery that Dan was talking about. Who's that guy? Why do you think most people would say? I don't even think I've read a study.
+
+[00:41:40] 70% of people would rather have their dominant hand amputated than have a swastika face tattoo. That's fascinating. And it makes sense. And what a weird thing to cheer? But yes. Yeah, yeah. It does make sense. Yeah, okay.
+
+[00:41:52] Well, how about a wrong tattoo? I really like these. So this year, an England football supporter was so confident about England's chances in the Euros football that he got England Euro 2024 winners and a picture of the cup tattooed on his leg. He's called Dan Thomas. He's a data consultant, ironically.
+
+[00:42:12] And he predicted a win for England in the final. He said they're going to win 2-1. Anyone might remember England. lost to 1, and he said he will get it altered after they win in 2028. Jesus Christ, that's good. You can always get the word not tattooed above that phrase, that sounds like. The person I've read about is probably a mate of this guy, but this is a guy called Tom Washington.
+
+[00:42:36] He's from Grinsby. He got a lifetime ban from the airline Jet 2 as a result of exposing his Pinocchio penis tattoo on the plane. And I've seen a photo of it. It's actually really funny. So I don't see what the concern. He just showed like the topic. So he didn't take out his member.
+
+[00:42:55] What's his name? What you want me to doubly name him? No, no, Washington. Yeah, yeah. I think that's very funny. Are you like Tom, they call him. But yeah, there's an amazing thing. So we're talking about medical tattoos, basically.
+
+[00:43:08] Medical tattoos have been happening for basically since we've found properly preserved humans. So Utsy, we've mentioned this before. So he was the ice man that was found in the Alps. Yeah, exactly. And we found tattoos all over his body, and they think that it was almost like acupuncture spots. Like, it was so that they could spot where he needed to have things done. But all over the world, tattoos are used for similar reasons. So there's a tribe in Burma called the Pakoku, and they do a thing where they're a snake society. They play with snakes and they use them for rituals and so on all the time.
+
+[00:43:41] But they're poisonous snakes. And so what they do is they tattoo themselves once a week where they mix the ink with the venom of the snake. and it inoculates them to make sure that if they do get bitten, their body already has it inside so that they're again, they have to do it as a weekly ritual to do that, so they get tattooed every week. Because it is mad that our bodies don't destroy tattoos, even. You know, a tattoo is, any foreign object that you inject into your body
+
+[00:44:05] is bad as far as your body's concerned. And it was quite confusing for a long time that our bodies don't just get rid of the ink. And the reason is, much like a lactose intolerant person who loves pizza, The microfages, the white blood cells, love the taste of tattooing, but can't digest it. What?
+
+[00:44:24] It's so interesting. So if they could digest it well, they would literally just eat the ink up. You know, they'd be like foreign body inserted it into you. Eat the ink, digest it, get rid of it. The tattoo would disappear. But they eat the ink, and their bodies can't digest it, and so it just sits there.
+
+[00:44:38] So when you're seeing a tattoo, you're seeing the stomachs of millions and millions of bacteria with ink inside them, the bacteria with terrible indigestion, going, how do I get rid of this? And then they die, and another bacteria quickly eats the thing that they found in their stomach. And it keeps on happening.
+
+[00:44:55] That's amazing. That's so good. And makes them even more sexy, if anything. The word tattoo comes from Tahitian, and we've got it from Katten Cog's first voyage, so we got it in English around 1760, 1770. And according to the OED, the word is onomatopoeic,
+
+[00:45:15] so it comes from the sound. So the tat comes from the tapping of a tattooing instrument into the skin and the ooh comes from the cry of pain from the person being tattooed. Brilliant. That's amazing. That's so good. Have you heard of 3D tattoos? No.
+
+[00:45:34] These are brilliant. And these are another medical innovation. They're so good. So I was reading about a woman from the Isle of Wight who she had to have a hernia operation and she lost her belly button. Okay? So she felt a bit self-conscious and she decided to, get a 3D tattoo, the photos of it are unbelievable.
+
+[00:45:49] I wish I could show you all now. I wish I brought a bit of paper with it printed out, because it looks so, so realistic. Isn't there a model with a fake belly button or not, maybe? I thought there was a model with no belly button. Or there's a model with three belly button. No, there can't be able to three belly button. There's something.
+
+[00:46:04] But the recipient said it was so good that her son wanted to sort of put his finger in it because he couldn't believe it wasn't real. And it looks unbelievably good. I think the thing is about belly buttons as well is, depending on how high or how low they are, it can be like a visual illusion of how long your legs are or how high your torso is. So you could deliberately get your belly button a little bit higher
+
+[00:46:24] or a little bit. Well, maybe not right up there. His legs go all the way up to his nipples. So hot. Because there was that claimed trend, wasn't there, in somewhere like China, people having belly buttons put on their stomachs higher up. Yes, that's what we're talking about.
+
+[00:46:39] Unless you have any regrets, Andy, I think you'd brought an A4 printout of this belly button here tonight. it wouldn't have made a difference to anyone's lives. Right. You didn't. Good point. Another weird, interesting new tattoo that I've never seen before,
+
+[00:46:53] but someone showed us the other night. We went out drinking with one of the old wiggles a couple nights ago. Sam, the former yellow wiggle. And he's got amazing tattoos. He's got a tattoo on one arm, which is every country he goes to. Whatever is stamped into his passport, he gets tattooed onto his arm while he's in the country.
+
+[00:47:10] So his arm is covered in passport stamps. But on his right arm, you can't see it. It's in UV. You get UV tattoos there, which I hadn't heard of, but that might be very obvious to a lot of people. I've heard of that. Yeah, so you have to go under UV light in order to see it, and it comes through, but it's invisible during the day.
+
+[00:47:27] Really awesome. So you have to keep going clubbing. Yeah, well, he showed me as we were shooting up heroin in a public toilet. And it really pops when you see it. But that is it for now. That is all of our facts. Thank you so much for listening.
+
+[00:47:49] Melbourne, you've been amazing. We will be back. We'll see you next week. Goodbye.

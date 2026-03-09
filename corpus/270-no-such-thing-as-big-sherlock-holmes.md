@@ -1,0 +1,241 @@
+# No Such Thing As A Fish - 270: No Such Thing As BIG SHERLOCK HOLMES
+
+- Episode date: May 24, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/270-no-such-thing-as-big-sherlock-holmes
+- Slug: 270-no-such-thing-as-big-sherlock-holmes
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast. This week, coming to you live from Moorish! My name is Dan Shriver. I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting this week with my fact, fact number one, and that is, for the last four years, there has been an annual academic conference dedicated to the archers. Yep, where speakers present lectures on big unanswered questions such as, how is it possible the characters can eat so many cakes and pies, but never suffer from diabetes? Do we know the answer to that?
+
+[00:01:20] Well, the lecture, I haven't actually heard the lecture. I actually do know the answer to that, so I looked into, this is called the Ambridge Paradox, and the scientists who presented the paper made some guesses as to why this might be. So firstly, fitness levels are very high because, as she says, birthday cards are always delivered by hand. Messages that could be texted or emailed are always related face to face, and residents quite often walk long distances, just to ask when a relative will be home for tea, or if they would like a coffee. Did they not also say, it's all made up? That wasn't a feature of this lecture. I think they said as well, lemon drizzle is a cake that they eat a lot, and there's something about what's in lemon drizzle that means that it knocks out the, I know, I know.
+
+[00:02:10] But it's worth saying that these are not just fans who were comedians or whatever trying to make a point about, you know, a comedic lecture. These are real lecturers. This is a genuine thing. This was set up by three people who love the archers. One is from the Tate Modern called Cara Courage, and then there's an Oxford University person. There's a Stirling University person. There's an Oxford, the Oxford University person. Yeah, Nicola Hedlem.
+
+[00:02:36] Talking about the arches. Wow. There's a university education gone downhill. It's just, it's, it's, it's brainy people who happen to listen to the archers and be academics. Yeah. But they have, they have genuine academics who will present an idea or a lecture. And this is the fourth year that it's going to happen. It's happening April 5th.
+
+[00:02:54] So this podcast will have gone out by then, most likely. And yeah. So I saw some other of the lectures that they had there. Big telephoto lens, small tick list, bird watching, class, and masculinity in Ambridge. That was one of them. And my parsnips are bigger than your parsnips. The negative aspects of competing at flower and produce shows. That's really good.
+
+[00:03:20] And they go through, because it's obviously such a, you know, it's been going 60 plus years, the archers. And so there's so much to pick on. Should you say what the arches is for Americans who are listening? Absolutely. I think we just plow on and don't explain. See if you can possibly piece it together by the end. Yeah. It's an extremely long running series on Radio 4.
+
+[00:03:41] It goes out twice a day. Shall we say what Radio 4 is for Americans? Oh my goodness. Which is a great radio station, which does radio. I don't know how to make it. It's a long running drama and it's been going for 60 plus years. And yeah. So they do pick up on.
+
+[00:03:56] So the talks do also include the absence of primary education in the archers. Why is there no primary? There's stuff about the flower rotor at the local church and who is doing all the flowers. Who could possibly do this? Why do so many of them not die is another one. Oh yeah. It's like the antidote to all other soaps. So yeah, it was started in 1951.
+
+[00:04:18] So that's so long ago. No one has ever been murdered. Now as someone who watched these tenders as a kid, I find this extraordinary. Yeah. Because it's based on a village, isn't it? In Worcestershire called Ink Barrow. Yeah. Which is a tiny little village where nothing ever happens.
+
+[00:04:35] But actually the crime rate in this village is much, much lower than in the archers. So for every hundred people, the amount of crime in the village of Ink Barrow, which is real, is 1.8 crimes. Right. And in Ambridge it's 0.9 crimes. So it's you're half as likely to have crime against you in Ambridge as you are. No way. The fictional place.
+
+[00:04:56] Yeah. That's great. Whereas EastEnders, if you live in Walford, you're three times more likely to be murdered. There have been sort of killing-offs. So there was a big controversy, this is way back when, on the very night that ITV launched, which was the 50s, I think. Yeah, 55. 55.
+
+[00:05:17] Grace Archer, one of the main characters. This is one of the members of the Archer family, her character was bumped off. And it was to draw attention away from ITV so that people wouldn't watch it. And obviously that worked really well. You know it actually wasn't because of that. Because, well, they always denied it. And this thing came out recently. So the woman who played Grace Archer is a woman called Esan Churchman.
+
+[00:05:42] And she kept on being asked after 1955, why has your character been killed off? And she always said, dead girls tell no tales. And then, aged 90, in 2015, she spilled the beans. And first of all, she said, Radio 4 had no idea it was going to be such a big thing. So everyone thought it was to overshadow ITV. And maybe it was, maybe they're still lying. But they said they had no idea it was going to be such a big deal. The reason they killed her was because she'd been asking for equal pay.
+
+[00:06:08] And they tried to exile her already. She'd been exiled to Ireland the year before. I mean, within the show. Within the show, sorry. I don't think Radio 4 has the power to exile people. Yes, for the Americans, the producers of the arches also make the laws of England. So what do you mean they tried to exile her? Was she just the actor walking back into the studio, improvising lies?
+
+[00:06:35] I'm back! They sent her to Ireland in the show and the public outcry was so much because she was such a popular character that they were like, I don't want her back in but we've got to off this one. So this used to happen quite a bit. So there's a guy who, he plays a doctor. Or until recently, I think he played a doctor on the arches. And he was originally rejected.
+
+[00:06:52] He auditioned for the role of a doctor and he was rejected because they said he didn't sound enough like a doctor to play a doctor. So he said fine. So he was given a different role on the show. But he could only do Thursday afternoons and weekends because he worked as a doctor. So anyway, so there were times when he needed kind of to be in a scene but he wasn't available because he was busy in a GP surgery.
+
+[00:07:14] So the way they got around it was they just had his wife ask questions and he was supposedly in another room and didn't hear them and didn't answer. Simple times. But they do have characters who never speak, don't they? I mean, I've never listened to it. But apparently there were more than 500 characters who are known to the audience who have never spoken a single word in the show. So there's a guy called Shane who has never said anything
+
+[00:07:38] but is known to the audience as someone who did the cooking at Nelson's Wine Bar in the 80s and was famed for his legendary quiche. There was a person called Mandy Beesbara. She had a daughter called India whom Oliver and Caroline's foster child Carly described as having an arse the size of a continent. She never spoke. And there's a guy called Derek Fletcher who's an incomer. So he came in from somewhere else and he never ever speaks.
+
+[00:08:07] They always describe him as excessively talkative. Very good. Very funny. There was a guy who's actually got a Guinness world record for playing a character so long, so consistently on the arches. His name was Norman Painting and he played a character called Phil Archer. And he'd been doing it. The Guinness record was for doing the same role without a break for more than 50 years.
+
+[00:08:30] So he passed away in 2009. But he clearly really wanted a break because he started penning Archer's episodes himself under a pseudonym, which was Bruno Milner. And in them he kept writing his own character out. Did he keep trying to kill himself to Ireland? Exactly. Not kill himself. Just like, oh, he's gone off to Ireland this week or whatever.
+
+[00:08:52] Just to give himself a break from the show. Well, because it's such a stressful job. Well, yeah. It probably is. We know someone in the arches asked for. We do, yes. I contacted him today. So one of the QI elves, her husband, played a character in the arches.
+
+[00:09:08] I think he's called Paul. So the character's called Paul. The character's called Paul, yes. Who was getting off with Lillian, if you guys know Lillian. Again, the character is getting off with Lillian. The character Lillian, yes. And what he said about this was, when we had to do sex scenes, Lillian's this perennial sex bomb, he says, in the arches.
+
+[00:09:29] Didn't realize they had those. Whereas the actress is in fact gay and happily married, whereas she plays this heterosexual sex bomb. So Mike, our friend said, when we had to do sex scenes, we both preferred to actually kiss rather than kiss with our hands and try to come off and make kissing sounds at the same time. It's much easier if you just kiss. So they did the actual, instead of sound effects,
+
+[00:09:51] they did the actual snogging. Did they actually have sex? No, they didn't do that. Sexual sex, penetrative sex, they're in the studio. Okay, it is time for fact number two, and that is James. Okay, my fact this week is that a company in New York has invented coffee cups that grow on trees. So yes, this is amazing.
+
+[00:10:19] So these are reusable cups that are made from goods, which are a plant, which is like pumpkins or marrows or something like that. And they're grown inside 3D printed molds. And so they grow on a tree and you can literally pluck the cup off the tree and use it as a coffee cup immediately. It's absolutely amazing. And of course the problem is that coffee cups are really bad
+
+[00:10:40] to recycle, hardly anyone recycles them. So this could be the future of recyclable coffee cups. I read that they got the idea from this from how the Japanese have been breeding watermelons because it's very hard to pack a watermelon in the shape that they are. So they've been breeding them to be rectangular shaped or box shaped, so you can actually stack them now
+
+[00:11:00] inside cargo ships and so on to get them out there. So they've managed to do it on actual trees outside, but the problem is obviously you're going to have pests and the weather, you never know what's going to happen. So they've done it in a laboratory now, but they think that this genuinely could be a future thing. And obviously they are 100% biodegradable. So that's the main thing about them,
+
+[00:11:19] because the coffee cups that we get, they're made of paper, but they have like polyethylene I think on the inside, which means that basically you can't recycle them at all. Yeah. You can, but it's almost impossible. It's crazy. Here's a bit of a bummer of a fact. 2.5 billion coffee cups are thrown away each year
+
+[00:11:37] and 99.75% of those are not recycled. So that's just in the UK. Fuck! And actually those are 2011 figures and it may be more like 5 billion a year by now. And also most of these cups are made from virgin paper pulp, which means they've never been used for anything else. They haven't been recycled from something else.
+
+[00:11:59] So a tree gets cut down, you turn it into a cup, you drink half the coffee and throw the rest away because it's cold, and that's the last time it ever gets used. They last for 30 years. I mean, Dan was already bummed out by his fact. You've now been at 70 times worse. Poor guy. But the future is maybe biodegradable.
+
+[00:12:18] Another thing that's obviously quite bad for the environment is bottles and we chuck a lot of bottles away as well. And other countries have this great system of bottle recycling where you get kind of bottle anti-vending machines where you put your plastic bottles in and you get money out. And so Germany has this, for instance. And it's very clever. So you take an empty bottle to one of these machines,
+
+[00:12:38] put it in, you get 25 cents. And so people have started gaming this system as you would. And a man in Germany last year was sentenced to 10 months in prison after he installed a magnetic sensor within one of these machines and then this kind of wooden tunnel that redirected the bottle. So usually the bottles are shredded when they go in so that you can't get hold of them again. He created a little wooden tunnel that redirected the bottle
+
+[00:13:02] so it came straight back out again and he got 44,362 euros by inserting one bottle, 177,451 times. Imagine being right behind him in the queue. He did say, the judge actually at his court case said this was a logistical masterstroke and said, you must have done nothing else every day other than attend to the machine.
+
+[00:13:30] And he did reply, I had a radio next to it because otherwise it was really boring. I've been looking into coffee cups. So there's one, there has been invented, a self-stirring mug. That's cool. So it's got a propeller in the bottom that goes at 3,000 revolutions per minute, which feels... No way.
+
+[00:13:52] I don't know how much. No, no, no, no, no, no. That's what it says. It's a small propeller, but nevertheless it just stirs it. So say goodbye to that sludgy hot chocolate misery. Is that not like 50 a second or something? Yeah, it's fast, it's fast. I'm not saying it's not fast.
+
+[00:14:06] Say hello to coffee spilled everywhere. Yeah. How can you? I don't know. I don't know how it stays in. And there's another one which sort of heats up and it's connected to an app. So it keeps your coffee at the same temperature all the time.
+
+[00:14:21] But it's quite expensive and it only lasts for... You have to recharge the battery every hour. Right. And you need to use an app on your phone to set the temperature you want your drink to be at. So there are some heating problems. Yeah. You could just use a microwave, couldn't you?
+
+[00:14:34] I agree. Can we talk about gourds? Yes, please. Gourds I'd not heard of really. I've seen... You know what a pumpkin is. I know what a pumpkin is. Never heard of the word gourd up until researching this.
+
+[00:14:49] And it's one of the most fascinating things I've ever read about, I have to say. Did you want to say anything specific or just... No, I just want to marvel in the beauty of it. No, they're incredible. Gourds have been used for virtually everything throughout history. They're one of the first domesticated things that we've... Before we domesticated...
+
+[00:15:08] Domesticated. It's true. It's true. We had pet pumpkins before we had pet dogs. Yeah. You don't want to come up against a wild gourd, though. Very dangerous. You might get God.
+
+[00:15:22] Oh! Very forgiving audience. That's how old they are. That's the very first pun ever made. What's your favourite use? I really like when you see old Victorian people's smoking pipes. That's a gourd. That's the top of a gourd that's been attached
+
+[00:15:44] to the rest of the bit that sucks in. But the bit that Big Sherlock Holmes looking bit, that is a gourd. So the Big Sherlock Holmes. This is a sequel, wasn't it, to Sherlock Holmes. And Young Sherlock Holmes. Big Sherlock Holmes. Elementary, my dear Watson.
+
+[00:16:04] Holmes, smash! He's not clever, but he is strong. You don't want to make him deduce. Yeah, so gaws are... They have uses. Yeah, they've got great uses. That's my favourite one. In China, they use them as cricket boxes.
+
+[00:16:27] Do you mean boxes to keep insects to crickets? I do, yeah. You don't mean cricket boxes that you put over you? No. They use them to keep crickets in. It's quite a statement if you turn up with a massive gourd over your box when you're playing cricket, isn't it? It implies a certain swagger.
+
+[00:16:41] Although that is a thing, isn't it? Penis gods. Yeah. Quite in different places around the world. All over the world. They use it for a lot of like hunter gatherers who don't wear clothes. They would always cover their genitals with a god.
+
+[00:16:53] Yeah. I think somewhere where they were... What's still worn, actually, is in Papua New Guinea, in New Guinea, and they're called Koteka, and they're made of the Kalabash, which is a type of gourd, and you can identify different tribes by the way they wear their gourd.
+
+[00:17:07] So sometimes they'll be pointed straight outwards. Sometimes they'll be straight up. Sometimes they'll be at a specific angle and the direction of the penis gourd. Like a sundial. Like a sundial, yeah. What? You wouldn't tell...
+
+[00:17:19] What time is it? Oh, let's just see Barry's penis gourd. Oh, yeah. It's not like the hand of a clock. It just stays in the one place. But can you deduce things about the wearer from the way they're wearing it? Oh, I'd show a lot of combs.
+
+[00:17:36] You can deduce whether they're working or playing. If they're working, they'll wear smaller ones, and then... Really? Oh, come on. I mean going to a party or a ceremony or something. But what they do not use is bigger ones to show status or anything like that. You'll wear one similar to your friends.
+
+[00:17:53] So if you're part of a group, you'll all wear a certain type. So we would all have the same type? Oh. No. Yeah. Like I'm from the north, so I would have a slightly different penis gourd to you guys from the south.
+
+[00:18:05] Oh, yours would have a whip it attached to... Apparently some of the gourd are so capacious that travellers on long journeys would keep cigarettes or money in them. In their penis gourd? Well, you don't have pockets to you if you're naked apart from a penis gourd. No, true.
+
+[00:18:21] So it's a good place to keep it. Which we didn't say but they would usually be naked apart from penis gourd. It is quite hot there, it's fine. But this was thought to be a problematic thing in the 70s to the Indonesian government who thought in 1971 to 72 the Indonesian government launched Operation Penis Gourd,
+
+[00:18:38] which was... They tried to encourage the locals in Papua New Guinea to wear shorts and shirts, but they didn't succeed because people didn't know how to wash their clothes and they didn't really know how to wear them. So there were people who went, missionaries who went and reported people men wearing shorts as hats
+
+[00:18:53] and women using the dresses as shoulder bags. It is bad and also if you can't find a gourd then you kind of improvise. So people in the past would use coconuts or shells or leather or grass or something like that. But in modern years they've been using toothpaste containers, Kodak film cans and even sardines tins. Wow.
+
+[00:19:18] Well... It's not the only... Everyone else was holding that laugh in. Those Kodak film tins are not very big, are they? I don't know what your status is if you turn up with one of those. Well, let's see what develops. In modern times, gourds are used on the other head,
+
+[00:19:51] the actual head. That's what you call yours, isn't it? The other head. Yeah, in Nigeria there was a law that was passed where all motorcyclists had to wear a helmet and unfortunately helmets are very expensive for a lot of people there. So what they did was they cut a gourd out and you would wear the gourd as your helmet.
+
+[00:20:11] It was not seen as a legal thing, but it was very effective. You know, because they're amazingly sturdy, they're very wooden, the gourd. You're making your own jokes now, guys. Well, the main reason that they're so amazing is because they were used for carrying water and food and stuff like that,
+
+[00:20:30] and that's why we domesticated them tens of thousands of years ago. Like, that is... Cultivate it, we didn't domesticate them, we cultivated them. You domesticate crops, don't you? They're not wild animals. In Hawaii, they had a game called kilu, and what you did is you would cut the top off a gourd and then you would spin it
+
+[00:20:49] and you would try and hit your opponent's kilu, a bit like Conker's, almost. But it was taken really seriously. If anyone disturbed the silence that was supposed to prevail during the course of a game, his clothing was set on fire. What is...? Sorry, when you say his clothing, do you mean his single penis gourd?
+
+[00:21:05] Because that's all he's wearing. This is in Hawaii where they wore no clothes. Oh, I'm sorry. OK. God, that is harsh. But it does apply here today, audience, so take note. Shall we move on to our next fact? OK, it is time for fact number three,
+
+[00:21:20] and that is Andy. My fact is that the Mona Lisa effect is where a painting is looking directly at you. However, it has just been discovered that the Mona Lisa effect does not apply to the Mona Lisa. She's not looking at you. She's looking through you.
+
+[00:21:36] Isn't she looking just over your shoulder at someone more interested? And that's why she's so enigmatic and brilliant. Yeah, so this is the effect that's been known as that for years, and then researchers at a German university, Bielefeld, they actually were studying directional gaze, and they thought, let's do an experiment on the Mona Lisa.
+
+[00:21:55] And they gave people images of the Mona Lisa on a screen and rulers, and they said, can you just map where she's looking with the ruler? And none of them thought that she was looking at them. Yeah, and then if you look at it, she is obviously just looking a scant, isn't she? She's giving side eye. Yeah.
+
+[00:22:14] Amazing. So the laughing cavalier is one of these things. And actually it's quite easy to do this kind of thing. If you do any painting where someone's looking out directly in front of them, then that will have the effect of the eyes following you round the room. It is undeniable that the Mona Lisa has
+
+[00:22:31] a flickering enigmatic smile, though, isn't it? Even though a lot's been made of it, because you look up the picture again when you're researching for this, you're like, oh yeah, that is an elusive smile. But there has been a study done recently, which has given quite a convincing explanation for how that enigmatic smile is achieved. And it's really interesting.
+
+[00:22:50] So it's not about her eyes, it's about our eyes. And what it is, is that around her mouth, it's quite blurry. So Da Vinci painted it quite blurry and quite shadowy. And if you look at her eyes, then your peripheral vision is controlled by the rods in the edge of your eyes. So you've got rods and cones.
+
+[00:23:07] The rods are in the edge. And they're much better at making out shadows and there for night vision. So when you're looking in the Mona Lisa's eyes, the mouth looks like it's smiling because you see more of a blurry shadow there. But as soon as you look down to the mouth, the smile vanishes.
+
+[00:23:21] And you can try it. You look at the eyes, the smile's there, you stare at the mouth, it's gone. It's very annoying. You feel like she's flirting with you and then she doesn't give a shit. We all know that feeling. There are so many theories about what causes the Mona Lisa's looks.
+
+[00:23:34] They're crazy. And they're not very flattering to her either. So there are all these interesting features. So one theory is she's got slightly yellowed skin. And rather than just that being the age of the painting, some doctors have said, oh, she's got a thyroid problem. And she's got psychomotor retardation and muscle weakness,
+
+[00:23:50] leading to a less than fully blossomed smile. Another theory is she had a goiter in her neck, a sort of swelling due to a lack of iodine. She's got heart disease, said someone else. Another person said she's smiling because she's got enormously high cholesterol. Does that make people smile? Not traditionally.
+
+[00:24:08] So the cholesterol thing, I think she has slightly fatty eyes and they think that maybe that's it. It's not to do with the smile. Build up with fatty acid. She's smiling with her eyes because of high cholesterol. There is a theory that she's got syphilis. So this is really interesting
+
+[00:24:22] because we know about the woman who was in the, who was the subject, who was the model for it. She was called Lisa Del Jacondo. And we know a little bit about her spending records, her, the actual woman. So for example, we know that she bought in August, 1514, seven lira of medicinal snail water
+
+[00:24:40] from the nuns at St. Ossola. And so snail water was a treatment for sexually transmitted diseases. However, we also, she did buy it 10 years after the painting was actually painted. So we had to be in especially. Yeah, but we've all had the thing where we feel a bit that we put off going to the doctor.
+
+[00:24:59] So I guess you put it off for 10, 15 years. And she finally went and got us snail water. I didn't realize that she's painted on a wooden board, not on canvas. I had no idea. She did not know that. Did you not? Yeah. It's not a canvas.
+
+[00:25:14] That is a plank of wood that she was painted on. Wow. Cool. Yeah. I am just on the weird stuff that's attributed to her. There was a headline in Discover magazine, which was really the epitome of, I think there's a word for headlines that ask questions.
+
+[00:25:28] And the answer is always no. The Betteridge Law or something. The Betteridge's Law. Yes. So the Discover magazine headline was, Was Mona Lisa's smile caused by Bell's palsy or a punch in the face? The answer is neither.
+
+[00:25:45] But yeah, there was a theory that it might have been Bell's palsy where the facial nerve has undergone a bit of degeneration. So it looks a bit limp. Or as someone thinks that this is an academic study that was done that says that a close-up shows a scar suggesting the application of blunt force. And also there are changes in the periol area that occur when the anterior teeth are lost.
+
+[00:26:05] And a scar on her lower lip that suggests her teeth have pierced her face. So what you're looking at is someone who's been in a huge fight. Send for Big Sherlock Holmes. I think we might have said before that Mona Lisa wasn't all that popular until it got stolen, right? And then it got stolen and it was a big cause-celebrity and it became really famous after that.
+
+[00:26:29] When it was stolen from the Louvre in 1911, the number of visitors to the gallery actually rose and people just went to look at the blank space in the wall where it had been. And it was the first time anyone had ever had to queue to get into the Louvre. And that year, 1911, was a record year for the gallery. And all because people just wanted to see where it used to be.
+
+[00:26:48] Wow. Isn't that amazing? They should steal it again from themselves. Well, it kind of was stolen by themselves from themselves because it was a guy who was working for the Louvre who stole it. So there had been a threatening letter the year before. I don't know what it said, I'm going to steal your paintings or something.
+
+[00:27:06] But Louvre officials had then hired a Glaziers firm to put dozens of the paintings under glass. And one of the people working for the Glaziers firm, Vincent Vincenzo Perugia, an Italian man, he was annoyed because the French always insulted him. They called him things like macaroni eater. And I know, other slamming insults. And he stole it.
+
+[00:27:31] He walked out with it under his coat. But he thought that the painting had been stolen from Italy, didn't he? Yes. So that's why he thought he wanted to bring it back to his own land. Right. And there is a theory that during the two years that he had it, he made a copy of it and then he gave back the copy to the Louvre
+
+[00:27:47] and then he's still got the original or someone still has the original. He's still aged 180. There was another theory that, and I think this has been discounted at this point, but he was asked to steal it by someone else who planned to make a lot of money off it. And they made six copies, which they shipped around the world. So shipped at a time when it would not have been suspicious.
+
+[00:28:09] And he never wanted the actual Mona Lisa. What he wanted was for it to go missing so that he could then sell to private buyers these six who would never admit to owning it. And that's the plot of the most highly rated Doctor Who episode of all time, City of Death. There you go. So that's facts there, right there.
+
+[00:28:27] Yeah, people have been obsessed for a long time, even though it generated a lot of publicity, the 1911 thing. Napoleon, for instance, was in love with the painting and almost when the moment it was painted, Leonardo da Vinci knew it was a big deal. He spent something ridiculous like 15 years working on it and after his death, it was massively critiqued. And then in 1800, Napoleon took it and hung it on his bedroom wall
+
+[00:28:48] for a few years, which I find very weird, the idea that he was there looking at it for a few years. I believe that he dated a woman, an Italian woman, called Teresa Guadagni, who was a descendant of the real-life Mona Lisa. No way. Oh, wow. Imagine someone taking you back to their place.
+
+[00:29:06] They take you up to their room and you're great, great, great, great, great, great grandmother's on the wall. He had a type. We're going to have to move on very shortly. Just some things about other effects that paintings have on people. Oh, yeah. The weird effects paintings have.
+
+[00:29:26] So there was in 2007, there was a 32-year-old woman called Rindy Sam who was wearing lipstick when she kissed a painting by the American artist Cy Twombly and she left this big red smudge. And so he's a very famous modern artist. She kissed this painting, left this red smudge, and she went to court and she explained,
+
+[00:29:46] when I kissed it, I thought the artist would have understood I was overcome with passion. And the court disagreed and she was sentenced to a tender horse on good citizenship. Oh, wow. Well, also in America, Marth Rothko, his paintings are said to be such a confrontation of emotion.
+
+[00:30:03] And this is particularly. He's the one who does the big blocks of colour. Yeah, the ones you can buy in IKEA. Yeah. I can't go in IKEA anymore. I get too overcome by emotion whenever I go in. He has, there's in Texas, the Rothko Chapel, which has a lot of his paintings
+
+[00:30:20] and outside of the security guards that they have there, they also have on standby counsellors who can comfort you if the emotions become way too much and you need to talk about it. Wow. That is an easy job, I bet. So it's the guy who just paints big rectangles. Yeah.
+
+[00:30:37] And Andy will be appearing on BBC Four in his new series, Modern Arts with Andrew Hunterbury. Just a fucking block. All right, we need to move on to our final fact of the show and that is Chazinski. Yes, my fact this week is that in ancient Rome there was a job which was to deal with infected ear lobes and this was specifically because people were really
+
+[00:31:10] into earrings in ancient Rome and they had big, heavy earrings that sort of, well, actually any of us who've had our ears pierced, they get infected at some point. And so there was a job, it was always a woman who did it. They were called the auricular or natrix and she would deal with the infected lobes or she would also, so either she would work in a salon,
+
+[00:31:32] so there are a few sources which describe them working in the hairdressers and the man would do the barbering, the manly barbering and the auricular or natrix would do the ear lobing or they would be employed as slaves in a household where their specific and only job was to look after their mistresses' ears and, you know, take care of their earrings, put earrings into their ears when they needed to be put in, take them out when they needed to be put out.
+
+[00:31:54] Now that's an easy job, isn't it? That's a pretty easy job. Very much the Mark Rothko, Texas chapel psychiatrist, attendant of its day, yeah. Barbers were weird as well, actually. Barbers in ancient Rome had various other jobs. So first of all, being a barber was quite different to today. So treatments for hair involved applying things like decomposed leeches,
+
+[00:32:14] not just leeches, rotting leeches, urine and pigeon droppings to your head. So if you went to get a haircut, that's what you got. And they also performed teeth extraction. Did they? Ah, isn't that like the old thing about, I don't know if this is true, but the old thing about the pole for a barber's being white and red is because they did a lot of surgery as well.
+
+[00:32:33] It is, they did bloodletting. But that was actually the new and improved sign for a barber's because before that, the sign was a bowl of blood. And at some point, I think authorities got involved and they said, maybe the bowls of blood are going a bit off. Can you replace the bowls of blood? And actually about the decomposed leeches, according to Pliny, the best way to get black hair colouring
+
+[00:32:55] is to apply leeches that have been rotten in red wine for 40 days. Oh, really? And with the juice of that, apply it to the hair. So you have to put it in the red wine for 30 days, presumably drink the wine afterwards because it's waste not one lot. Absolutely. And then you put the little bit on your hair. Any product today, sir?
+
+[00:33:14] Just another quite weird job that there used to be in ancient Rome. There was the urine tax collector. Well, collected tax in urine or taxed you every time you weed. Both are equally ridiculous. No, it was. This was for the bathing houses. If the toilets were there, they would overflow with urine. They would have to be taken away.
+
+[00:33:35] But the urine was very necessary for a lot of chemical products at the time, as you were mentioning with the leeches, might be used there. So many things. Mouthwash and ancient urine. That was another time, ancient urine. In ancient Rome, mouthwash was urine. You'd go with some urine and that would, in theory, clean your teeth. Would you?
+
+[00:33:59] Well, I wouldn't, but if I was in ancient Rome, yeah. So they collected the urine tax. They collected from the people who were purchasing the urine that was taken from this collective pool. You need to purchase urine. For your mouthwash. I can make mouthwash. I have read that about mouthwash,
+
+[00:34:17] but I reckon mostly for bleaching things. For bleaching hair, you could bleach that with urine. You could tan leather with urine. Lots of things you can do with it. Wash clothes, maybe? It's a job of being a fuller, where you had to stand in a big tub full of dirty clothes and urine and just stamp on them. Fun. That makes more sense,
+
+[00:34:36] because I do think that if you are using mouthwash more than you're urinating, then you've got a problem at one end or the other, haven't you? OK, some more jobs. Shall we do some more jobs? Yeah, sure, yeah. There was a job in the ancient Rome called the Fistulata. What?
+
+[00:34:56] I can't do it now, darling. I'm sorry. But I will do it later. It's like an IOU. A Fistulata was someone who played a flute. And there was a very particular guy called Gaius Gracus, who played a flute. And he was an orator,
+
+[00:35:13] but he always wanted his oration, his speeches to be at a certain pitch. And according to Cicero, he had this guy who was a flottist, who was playing the flute, and he would play the pitch so that whenever he spoke, he was always, he was never too high and never too low. Wow. Really?
+
+[00:35:30] I read that that guy, specifically that guy, would blow a note if he was over-exerting himself too much. He would blow a note if he was over-exerting himself too much. Or speaking with real strained efforts, who might damage his voice. So just to kind of... Turn it down. One second.
+
+[00:35:49] I mean, I say it's a job. Cicero said it happened to one guy. Sounds legit. A lot of the information we have on the weird jobs in ancient Rome seemed to come from this guy called Yan Gruta, who doesn't seem to be referenced at all anymore, but he was this late 16th century Flemish scholar. He was a son of a guy called Wuta Gruta. And...
+
+[00:36:11] He published... He published all these volumes of inscriptions, which I just think is good to note. There were guys who went around looking at all the bits of Latin on bits of stone all over the empire and piecing them together and working out what jobs existed. But for instance, I think it was him who wrote about in the Columbarium of freedmen of Livia.
+
+[00:36:33] So this is a place where all the slaves of Livia were buried. So Livia was the evil woman from I, Claudius, if you've read that. And there were 600 slaves that she had all buried there. And she had slaves, for instance, that were labelled as keeper of the armchair, specifically. Keeper of the family portraits was one whole job. And the cura catelai, which is caretaker of the lap dog. Full job.
+
+[00:37:00] Yeah. There was also an umbrella, which is mentionation text, which is literally an umbrella carrier. Sounds useful. Which I also found that amazing etymologically, that that is a thing today. A word that has come completely wholesale. But it would mean shade.
+
+[00:37:23] Umbra means shade, doesn't it? So if you're in the sunshine, they would cover you but you weren't being somber, so... Carry the thing that will shade you. Yeah, so it's more like a sombrero carrier, I guess. And a flabby leffer. A flabberlifer, sorry, a fan bearer. Fan bearer?
+
+[00:37:41] Oh, fan bearer. Oh, no, I've confused my fan bearer and my fan bearer. Oh, I'm too hot. I'm just smacking you in the face with a quiche. There was the orgy planner. That's a cool job. Well, yeah. What did they do? They just got people in or...?
+
+[00:38:01] You, in. Out, in, out. Shake it all about, I guess. It's what it says on the tin, basically. It was organising the parties and it was by someone who wasn't quite fit, let's say, socially, to be a part of the orgy, the rank became such an important role
+
+[00:38:24] that you would then be invited to the orgy as well if you'd organised it. Okay, all right. And often you'd be a slave of the person who then... I guess it was like being a PA, wasn't it? You're their slave and you do various things, like book their dry cleaning and also you plan their orgy. Probably quite a lot of dry cleaning after that.
+
+[00:38:45] Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us that we have said over the course of this podcast, you can find us on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter M. James. At James Harkin. And Chazinsky. You can email podcast at qi.com.
+
+[00:39:02] Yep, or you can go to our group account, no such thing. Or you can go to our website, no such thing as a fish.com. We have links to our upcoming tour dates. We have links to all of our previous episodes and if you want to buy any of the things we've released, that's on there as well. Thank you so much, Norwich. We'll see you again. Goodbye!
+
+[00:39:21] .

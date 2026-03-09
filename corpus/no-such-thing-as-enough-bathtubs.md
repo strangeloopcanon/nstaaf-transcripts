@@ -1,0 +1,351 @@
+# No Such Thing As A Fish - No Such Thing As Enough Bathtubs
+
+- Episode date: August 13, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-enough-bathtubs
+- Slug: no-such-thing-as-enough-bathtubs
+
+## Transcript
+
+[00:00:00] Hi everybody, Andy here just with a quick exciting announcement before this week's episode of Fish Begins, which is that we are going on tour. If you haven't seen this already, we are heading around the entire UK and Ireland with our tour, Nerd Immunity. It's going to be so much fun, we're going to be stopping off all over the place. Think of a town near you, we're probably playing it. Names to stir the imagination, chill the blood. Names like Peterborough, Barnstable, Chesterfield, Birmingham. Ipswich, Canterbury.
+
+[00:00:31] We're doing a whole raft in Scotland. We're doing Edinburgh, Glasgow, Inverness, Aberdeen. We're going to Cardiff. We're going to Belfast in Dublin. We're playing the London Palladium itself. We cannot wait. Every single show, we're going to be doing a brand new podcast in the second half. And there will, as always, be a first half stuffed with stupidity.
+
+[00:00:50] Facts, us teasing down about the Mongolian deathworm. You name it, it's going to be in the show. We cannot wait to be out there and we really hope to see you there. We know that it may feel strange being in a theater, a room with actual other people, but we cannot wait and we're looking forward to it. So if you would like to come and see nerd immunity, all you have to do is go to QI.com slash fish events, see which is the nearest to you, and snap up your ticket now. All right, on with the show. Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Streiber. I am sitting at a great distance from Anna Tashinsky, Andrew Hunter Murray and James Harkin.
+
+[00:01:49] And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, that is Andy. My fact is that for the 1921 Buster Keaton film The Boat, two prop boats will build, one designed to float and one designed to sink. Unfortunately, the one meant to float persistently sank and the one designed to sink repeatedly stayed afloat.
+
+[00:02:16] Okay, I have a question. Why didn't they just relabel them? You know what? You would have been much use on this film, James. Absolutely. It's so weird. It's such a weird story.
+
+[00:02:25] This is from a book called Buster Keaton's Silent Shorts. The film is the boat. There was a boat in it called Damfino. And the movie's technical director was a guy called Fred Gabori and he built two boats
+
+[00:02:36] and they were for different shots to be filmed, basically. And yeah, the one which was designed to sink, refused to sink. It had several holes bored into it. It had a broken stern, deliberately broken stern, and 1,600 pounds of dead iron weight in it. It just would not sink. Stayed afloat.
+
+[00:02:52] And the floater, on the other hand, just repeatedly sank. And it had to be stuffed with pumps all the way through the bottom of it to keep it to float. Has anyone seen the boat? I haven't actually. Anna has. Yes, I have. And it's dated. I will say it's dated.
+
+[00:03:04] Oh, really? Okay. Yeah. But it's perfectly good. I do think that it's probably pronounced Damn Fino the boat, although obviously you don't hear them say it, but there is... Do they rhyme it with Rhino halfway through the film in a note? Is that how you know? It's really similar. At one point when they're sinking and they're about to drown, they
+
+[00:03:22] call the Coast Guard and they say, I'm on this boat and the Coast Guard says, what's it called? And they say, damn, Fino, and the Coast Guard mishears it is damned if I know. And it's a hilarious exchange of misunderstanding. So back then that would have killed, just because misunderstandings have been plowed to death in comedy since. You've got to put yourself 100 years back and go, wow, that's the first misunderstanding that's ever happened. Do you remember that advert where I think it's for a beer? It's these sailors radioing into a coastal station or something and they're saying, help, help, we're sinking, we're sinking. And it's a German guy on the receiving end and he says, listen to this, we're sinking, we're sinking.
+
+[00:04:00] And he says, yes, what are you thinking about? No, that's a good joke. That's a classic. So it's about how you deliver it I'm just not sure they nail the delivery in this In the silent comedy I watched another movie this week Which was the General
+
+[00:04:16] Yes Which is one of his big ones Although at the time It got very bad reviews Because it's a movie where he plays someone In the South during the Civil War And all the reviewers were from the North And they thought that he was
+
+[00:04:30] Kind of giving some kind of skewed version of history Where actually the people who were in the South were heroes who were kind of a little bit misunderstood and maybe they should have won the war after all and stuff like that. But actually, Buster Keaton, he was part of this kind of weird, I would say conspiracy, but there was almost like a cult of people believing that the South was badly done to in the Civil War. The story sounds really cool of the general because it's based on a true civil war story and the idea was the Union of Spies in the South and they decided to basically hijack a train and this happens to the film, right? And the idea is they hijack a Southern
+
+[00:05:05] train and they take over it and then they speed it along towards Chattanooga which I like even though the Chattanooga chattanooga chattanooga is totally unrelated to this train but by coincidence speed it towards Chattanooga and it's like a reverse Wallace and Gromit because they're tearing up the rail and all the telegraph holes and stuff behind it right every scene you look at it and you think this could be Wallace and Gromit yeah all the way through it's brilliant it is amazing there's the scene one of Buster Keaton's most famous stunts is where there's a huge sleeper lying across the track a huge log of wood basically, and he's holding a huge sleeper in his hands. He's sitting on the cowcatcher at the front of the train,
+
+[00:05:39] and he has to throw a sleeper, which is like tossing the caber, basically, at the other sleeper to knock it off the track. It's a real shot. The train is actually moving. Yeah, it's amazing. And he manages it. Honestly, I watched it this week.
+
+[00:05:52] It was made in 1927, and I didn't know it was going to happen, and I just went, whoa. It's incredible. That's the thing, like, Buster Keaton, so he was part of that big movement of silent comedy that came out with Harold Lloyd and Charlie Chaplin. But this is a guy who, born 1895, basically from the get-go, literally from birth, was into physical comedy.
+
+[00:06:13] Literally from birth, lunging out of the vagina. He basically did. I mean, his parents were both in vaudeville, and he was on the side of the stage every single night, jumping in on their act. And he used to go on stage, and his parents just used to throw him across the stage. So he was known as the human mop, or Mr. Black and Blue, or the little boy who can't be damaged. People would be so concerned. Sounds like a misery memoir title,
+
+[00:06:37] The Little Boy Who Can't Be Damaged. It really does. But in those days, it was entertainment. Well, there was a lot of questions about the fact of whether or not there was abuse from his dad as a result of this. He always claimed there never was, but a lot of people said, yeah, but come on, you were chucking your son around the stage. But he went on stage at the age of one day old. Yeah, well, he was his first appearance. You both say, yeah, that was a story.
+
+[00:06:56] There were lots of stories that they kind of put across because they were a mother and father and child sort of group of three. and there are lots of amazing stories about things that happened in their early days. I know the one that you're thinking of times, I think. One, for instance, where he caught his forefinger in a clothes ringer, lost the first joint, then gashed his head near the eye with a brick that boomeranged after he threw it on a peach tree,
+
+[00:07:21] and then, in the same day, he was sucked out of an upstairs window by a passing cyclone that carried him through the air and deposited him in the middle of the street a few blocks away. And that was supposedly the story for why he started going on stage. And that's all one day, isn't it? That's all one day.
+
+[00:07:37] I've got his autobiography here. It's called My Wonderful World of Slapstick, and that is an entry in it. He said, I had rolled and revolved about a block from the farmhouse when a man saw me, rushed out, scooped me up and carried me to safety of the nearest storm cellar.
+
+[00:07:49] A pretty strenuous day, as anyone will admit, but superb conditioning for my career as the human mop. So my question is, when you read that in someone's autobiography, do you think, well, it's in the autobiography, so it must be true? Or do you think maybe the
+
+[00:08:01] rest of the stuff in this autobiography isn't true. True. I believe it's all true. No, I think... He was 20 months old at that point, we should say. No, exactly. And there are stories, like, he includes in this book that he was named Buster after he fell down a staircase, and Harry Houdini, who was in a partnership with his family,
+
+[00:08:17] saw that and said, you know, they named him Buster, basically, off the back of that. There's so much literature to say that that wasn't the case. I don't think the dates work out. Yeah, the dates weren't work out. They were in a show with Houdini. Oh, they definitely were in a show with Houdini. And the thing is, and the thing is that he knew Houdini as he was growing up. There's stories in this book of him hanging out with him
+
+[00:08:36] and going to shops and stuff when he was a bit older and when they could converse. So, you know, he claims it's true, but there was a newspaper report that claimed it was a guy called George Purdy and that was published, you know, in Buster's early life. And so it predates it. And that's from his dad giving the story. If you've been in showbiz your whole life, then you're going to have a few little stories about you, aren't you? Exactly. But what's amazing is it turns out from reading this book that Buster Keaton is the Brian Blessed of American Hollywood, Every story is just unbelievable. I think that it looks like the best biography of him is by a woman called Marian Mead,
+
+[00:09:07] who mainly I love it because I love her. She did a biography of Dorothy Parker that's amazing. But she had a lovely line, which was something like he layered the stories upon the myths of his life, like layers of a lasagna or something. But she did look into his life and looked into the stuff that happened at his early age. And it was very violent. So she said by age two, his brushes with death had included near incineration, suffocation falls mutilation and natural calamities
+
+[00:09:32] and there was one time when his parents kept him in a suitcase backstage and at one point a stagehand walked by thought someone left that suitcase open shot it and they came out at the end of the night and found that he had almost suffocated but he was fine and then that suitcase kind of came in useful afterwards didn't it because they took the handle and they put it on his back attached it to his clothes and they would hold onto the suitcase handle and throw him across the stage yeah They used to just, like, the stunts, they'd throw him across the stage. They used to drop him into the orchestra pit when he was like two onto a bass drum.
+
+[00:10:07] His dad once apparently threw him at a heckler. We're thinking about doing that to you on the next live tour. We all get together. But then the father would get arrested, according to Buster Keaton. He said they would get arrested every other week. Or rather, his old man would get arrested. And the police would basically come over and say, why are you abusing your son?
+
+[00:10:29] And then they would kind of look at Buster Keaton and see if he had all bruises and stuff and he didn't apparently because he could fall so well and so they kind of let them off every time. It's weird when you read about him because you find yourself on the side of Buster Keaton against the first ever child protective agency and you wonder if you're reading it right.
+
+[00:10:49] It was the Jerry Society. It was the first ever protection of children, organisation in the world. It had just been set up and it was chasing down these people who it did seem like we're abusing their son. But he remembers them as complete bogeymen. And the thing about them that's kind of interesting is they were set up by Elbridge Jerry, who was the grandson of Vice President Elbridge Jerry,
+
+[00:11:10] from where we get the word. Gerrymandering? Jerrymandering. Really? Yeah, he's the guy who first fingered around with the districts. Oh, I was about to ask what that means, but I understand now. How rude. It's where they change the shape of the districts
+
+[00:11:24] to mean that your voters in a place. where you want them to be. But another interesting thing about the Jerry Society is that they were started when there was a church worker called Etta Agnal Wheeler and she'd noticed that a child was being mistreated and she wanted to try and get
+
+[00:11:41] someone to help this child but there was no one to help him and she realized that there was no charity that was there to look after children but there was an American society for the prevention of cruelty to animals and she's like how can we have a charity for cruelty to animals but not cruelty to children And so she went to the person who was in charge of the American Society for Preventional Cruelty to Animals and said, why don't you set up a children's charity?
+
+[00:12:06] And that's what they did. So actually the children's charity grew from the animals charity. Really? I thought you were going to say they reclassified children as animals for the benefit of. They got some protection. You know the really famous stunt, I mean, the really, really, really famous stunt is where the house falls on him. Yeah. Around him and there's a window which falls in.
+
+[00:12:26] exactly in the right place that it lands around him. He had two inches of clearance on either side of him for that start. It's just incredible. I can't believe they made it work. And he supposedly was nailed to the ground. I can't quite believe that. He was nailed to the ground. His shoes were nailed to the ground to keep him exactly on the right.
+
+[00:12:42] So that's where the window's going to fall. I watched that scene yesterday and I'm sure he walks away. The shot changes. I believe the shot changes and then he leaves. But maybe, I mean, possibly it doesn't that I'm wrong. That's what I say. No, I think you would go with nailing to the ground. because you can't look up and check
+
+[00:12:58] because otherwise that ruins a scene. But I wouldn't want to be nailed to the ground if they're going to drop the house. As in you might think... Once it hits you, there's not much you can do about it. Surely you'd want to be nailed to the ground rather than risk getting your boots on and then thinking, oh God,
+
+[00:13:10] did I just accidentally step to the left of it? Yeah, exactly. So he was very, very successful for a very long time, had a lot of money and he used to invest in real estate and so on. And one of the things he invested in was a yacht. And he was very proud of this yacht. and one day he was going through troubles in his marriage.
+
+[00:13:31] He went to take his yacht out and... He tried to sink it to end it all, but unfortunately he was using the damp I know. No, he went to try and take the yacht out and the sort of boatmaster or the person who looks after it said, I'm sorry you can't. It's only your wife who can take it out and she's told me not to let you. And he suddenly discovered that their marriage had fallen apart and they were getting basically a divorce. So he lost his yacht.
+
+[00:13:56] So in retaliation, he bought himself what he called the land yacht. Do you guys read about the land yacht? I read a one-line reference to it, but I didn't find it anymore. Yeah, yeah. So I read into it. So he bought a land yacht, which basically he dressed as a captain, and he used to drive around. And he would go to all sorts of, like, he would go to hotels, and he'd make a scene of it by saying, we're going to rent out a room, but actually, we're just going to rent out a car park space, and we'll stay in our land yacht.
+
+[00:14:21] Is it like a big sort of vehicle that looks like a yacht? Yeah, it's basically a big bus that had been. converted into what was known as a land yacht. It does sound awesome on one level, but on the other, he is after divorce sleeping in his car. Like, there are two ways of looking at the situation. He did say,
+
+[00:14:38] I had as much fun with my land yacht as a man can whose purpose is to forget his whole private world has fallen apart. So, yeah, it was not a good time for him. But then he ended up in a sanitarium, didn't he? Yeah. And he was in a straight jacket. But unfortunately, it's very hard to keep someone in a straight jacket
+
+[00:14:53] if they're friends with Harry Reid D. So he just got him. straight out. Yeah. Was he really in a straight jacket? Yeah. Yeah. Wow.
+
+[00:15:00] And the Harry Houdini thing is, I think, falls into the Buster Keaton myth. Yeah. The great tales. But he ran away, didn't he? And he got married to the nurse who was looking after him at the time. While he was still married to the original life. Yes. Really?
+
+[00:15:14] Yeah. I mean, he was very drunk all the way through this time. Well, that's fair enough. He might have said, that was very big of me. Yeah. Yeah? Yeah. That'll be another one of those mishearing jokes.
+
+[00:15:25] That would have worked brilliantly on a silent film In his later years he mostly did TV adverts And his grandchildren didn't know him from any of his films They knew him as the singing puppet advertising Alka Seltzer on TV Really? Yeah But he loved it He would turn up and do the adverts and then go away again
+
+[00:15:42] And other silence sounds like Charlie Chaplin I don't think did telly They thought it was a bit beneath them They hated telly Yeah So he did limelight which is one of the great silent comedy scenes Because it's in the talkies at this point and it's two old men, Charlie Chaplin and Buster Keenan coming together to do a routine on a vaudeville stage.
+
+[00:15:59] And it's just such a beautiful moment because Buster Keaton still wasn't making movies. And Chaplin gave him this moment again to sort of shine, which was really, really wonderful. Because Chaplin, I think, also felt like all of those silent stars, they sort of became much less famous very, very quickly during the Torkies and then had his big renaissance. So he did get Buster Keaton to have a slightly happy ending. He got an honorary Oscar in the late 50s, I think. And all of his films were re-shown in the 50s. and 60s and film buffs are suddenly like, this is genius. And Chaplin as well got, I think he was put up for an honorary Oscar in 70s, in the early
+
+[00:16:32] 70s. And when he was told about that, he said, God, does anyone even remember who I am? Wow. Well, because he'd been exiled to Sweden or somewhere like that. Exile. Yeah, he got kicked out of America. Chaplin had a huge period for. He was a commie.
+
+[00:16:44] Yeah, communist. Are you kidding? Yeah, yeah. I think he left on a holiday and was told he couldn't come back. Wait, what's black and white and red all over? Charlie Chaplin. Very good. Yeah, yeah, yeah, I'll buy that.
+
+[00:16:57] That's great. Stop the podcast. Astanovitia podcast. That's a clue to who's sponsoring us this week. It's Russia. We're sponsored by Russia. No, we're not really. We are sponsored this week by Babel.
+
+[00:17:16] Yes, indeed. Babel are the amazing language learning company that can teach you all the words you need to know in Spanish, in French, in Italian, in German, in another eight languages including Russian. That's right. It's so much fun learning a language. You feel like you have another entire identity when you do.
+
+[00:17:38] And a lot of us learn languages in school, and we may not have thrived or enjoyed it at the time, but now if you travel, when you get to travel, it's so much fun to try the local language and express yourself in there and learn all the weird quirks. Babel is the perfect way to do it. They have 15-minute lessons you can learn it on the go. It's practical.
+
+[00:17:55] It's built with real-world conversations in mind. Yeah, it's a really, really good app. I do use it myself. And I think, Andy, you've used it to brush up on your German? Yeah, Dasist Gar. Dasist Gar? Well, I think I might have said that is a garfish. The point is that I'm near the beginning of that journey. You can start your journey by going to babble.com. That's babble.com forward slash play. And if you go there and use the promo code fish, then you can get six months free with a purchase of a six month subscription. Yeah, just just straight out,
+
+[00:18:30] and you are the first address bell, b-a-b-b-e-L-L-com slash play and enter the offer code fish and you'll
+
+[00:18:39] get an extra six months free. That was genuinely really, really impressive. Prodolcheate your podcast. Off with the podcast. Uber,
+
+[00:18:49] with the, no, never mind. Okay, it is time for fact number two, and that is Anna. My fact this week is that in 1993, America learned that Kazakhstan had enough uranium to make 24 nuclear bombs
+
+[00:19:08] when a US diplomats car mechanic tried to sell it all to him. Oh my God. It's very cool. Well, it's like, you know, you get your car done and they're always like, what do you want your wheel trims doing or do you want this doing? It's upselling. Yeah. It's major upselling.
+
+[00:19:24] And he bought it as well. So this was a guy called Andy Weber. And he was sort of in charge of. of defence and nuclear programs under Obama, but in the 80s, he was working at the US embassy in Kazakhstan, and his car mechanic, who was also kind of a fixer, an all-round wheeler-dealer kind of guy, basically said to him to fancy some uranium. And so this guy called the US government and said, look, this bloke just offered me a bunch of uranium, and they didn't believe him. But eventually he had a series of meetings and was set up with other people to lead him
+
+[00:19:55] to the uranium. And he met with this general, this Kazakh general, who just slowly, flipped him a bit of paper which said U-235, as in the uranium, that can make a nuclear bomb, 90% 600 kilos. So for comparison, the Hiroshima bomb used 64 kilos of 80% enriched uranium. Okay. It was hardcore stuff. And so what did he do with this uranium when he bought it? I just kept in his back pocket useful for rainy day.
+
+[00:20:23] No, he told the US government and they chatted to the president of Kazakhstan and they agreed that the US should take it in case Iran got it basically. Same old fears. And so he was taken to it and shown it. And it sounds incredible. He went to this warehouse, basically, and he found it all in buckets. And the buckets were spaced apart. So they were on this big table. And they were spaced apart because if you have uranium two close together when it's that highly enriched, it does create a massive nuclear explosion. So it literally spaced apart to avoid criticality issues. Oh my God. Isn't that terrifying? What if you've got a small table?
+
+[00:20:57] He did specify it was a very big table. It must have been a very big table. 600 kilos in buckets. Yeah, it's quite heavy, I think. Maybe they had a few trussle tables, that kind of thing. They probably set up some, yeah, trussles. Yeah. Pushed some together.
+
+[00:21:09] The extraction process was pretty amazing. You had to carry it in a really large plane. So it was some of the largest planes in the world that were sent over from America to Kazakhstan to pick it up. Is that because it has to be kept at a certain distance from itself? I think there's a table, isn't it? It's a big table. Wow. Now, you can now turn down your in-flight tables.
+
+[00:21:30] Why not just take them in separate, like do a bunch of trips? Why risk them getting too close to each other? More likely of problems if you take them on loads of flights. If you take them on one flight, hopefully nothing goes wrong. It's like that old thing. Put all your eggs in one basket. It was four baskets. It was all your uranium and it was four baskets slash planes.
+
+[00:21:50] And then they weren't allowed to fly over any countries because basically they're carrying this massive nuclear bomb. I think Kazakhstan is landlocked. So yeah, they had to go. get to the nearest sea possible. So they had to literally jump from like Caspian Sea over hardly any land. And because of that, it ended up being the longest flight ever that the US had done. And they had to do loads of in-flight refueling. Because obviously they didn't have enough fuel to do this massively long flight.
+
+[00:22:15] Because they were taking such a roundabout route. For four planes. For four planes. Oh, God. Yeah. What a nightmare. Yeah. Hell.
+
+[00:22:24] That's a nightmare situation. You wouldn't want to be project manager on that, obviously. Obviously. Yeah, it's not a very can-do attitude that Andy I don't think. What you really need to be doing is, okay, guys, this is what we're going to do. Oh, God, this sounds hard, doesn't it? This is why we're podcasting and not in nuclear material. Have you guys had about the missing Nazi uranium cubes?
+
+[00:22:47] No, this is amazingly cool. That's like an Indiana Jones fly. It genuinely is. It's amazing. So Berlin was working on nuclear fission in the late 1930s. Lots of people were working on it at the time, obviously, because it would have been a big advantage. and the German scientist made this really weird cube nuclear reactor, which was 664 cubes of uranium, all hanging up near each other,
+
+[00:23:06] I guess to prompt the kind of reaction that Anna was talking about. So it was not a proper reactor in the way that we'd understand it, but it was all uranium. And when the Allies invaded, they took the cubes, which the German scientists, as they left, had tried to hide by burying in a field. So the Allies had to dig up these cubes and take them away, and it was a chaotic attempt to get hold of them.
+
+[00:23:25] So in April 1945, there was a retreating military truck with the cubes on them. And a bunch of boys in a town called Garmish Partenkirchen. Oh, yeah. They nicked a load of the cubes and discovered that when you threw them, they would spark when they hit the ground. And so they just were chucking around uranium. You know what? I've been to Garmish Parton Kierchen. Have you?
+
+[00:23:43] Yeah, I have. And when we went there, there was like, it was Christmas time. And there was a big sort of marketplace. Yeah. And there were a load of kids and they had these little cap things and they kept throwing them on the plot. Genuinely, that was happening. No way. Yeah, that's really, that's bizarre.
+
+[00:23:58] You probably should have confiscated those. But lots of them are missing now. I think I do suspect there is loads of this stuff still lying around. Even though everyone claims weapons inspectors blah, blah, blah, they've sorted it out. I mean, there's no way. Hans Blicks his ears is going to be spreading around now. Get back on it, Blix. What are you doing?
+
+[00:24:18] In the 90s, there were US inspectors in Russia who were basically saying Russia was full of these warehouses that had little bits of uranium in them. He said there was one warehouse stuffed with very highly enriched uranium, and it was locked with a bit of rope and a wax seal, which, and I've opened wax seals on the occasional old-fashioned letter, and it's not difficult. Now, this is really raising a few more questions than it's answered. Who's sending you wax sealed letters, Anna?
+
+[00:24:44] I exchanged letters with the past. Are you going out with a count from the 17th century or something? We send wax seal. Do you? Yeah, we do, yeah. I mean, he uses wax seal a lot. Really? James and I always correspond that way
+
+[00:24:56] That's why I find out when the podcast So he has to write to me What does she use them for Just kind of cool Like cool seals Well she just thinks it's cool and Instagrammy So you have your own like Hark and Seal that goes on it
+
+[00:25:09] I can't remember She has her own seal But I don't think it's a Harkin Seal Right Yeah that's very cool Yeah that's awesome But yeah no I agree with you Because it was all paper trail
+
+[00:25:17] Wasn't it back then We've lost the paper We don't know where stuff is 50% of this podcast Use Wax Seals That should be the headline fact It's got to be unpromportional. And it's not you.
+
+[00:25:27] I mean, that's insane. Yeah, but like Dan says, it was kind of paper trails. And they basically relied on, they just had fences. They had ropes. They might have had the odd wax seal. But mostly it was just intimidation that stopped people from stealing this stuff. It was basically like with a secret police, you better not steal it because you know what will happen. And that's basically their only kind of way of stopping people from stealing stuff.
+
+[00:25:53] But the problem was that if you lost any uranium, you get in so much trouble, people just kept it off the books. And so that's the reason we don't really know how much of anything there was. Interesting. Yeah. Yeah, you wouldn't want to be reporting that back to Stalin, would you? No, no. I've lost a bomb. And Britain, third nuclear power.
+
+[00:26:12] And you don't hear that much about us, do you? And also in this year, the UK has raised the number of nukes that we have, which didn't get in the news that much. but we've gone up from the previous cap of 225. Our cap is now 260. So in a world where like ostensibly at least we're saying, let's get rid of all the nuclear weapons. I think there's a lot of re-arming happening around the world at the moment. It's very interesting.
+
+[00:26:38] I mean, it doesn't feel like those extra 45 are going to make all the difference of one way or the other. No. Like if you can think of 220 places to attack and you still want 45 more. I don't know. I mean, it's what your priorities are. Yeah, like because what? America and Russia are going to have.
+
+[00:26:53] have what about 6,000 each, 10,000 each, something like that. So our extra 40. Might make all the difference in that war. 40 more than Australia have. I think, you know, it's not necessarily, you don't have to go fighting the big boys. Well, I think the idea is not to fight anyone. I think the idea is fight, fight, fight. Please God no. I think most people think the idea is a deterrent. Yeah, I think welcome to the very confusing Cold War philosophy of mutually assured destruction, which obviously didn't make any sense at all. But yeah, we've got enough to destroy the universe.
+
+[00:27:26] But 17% of British electricity comes from nuclear sources. And I say, well done. You know? The positive spin. Yeah, me too. Not weapons grade, though. Not weapons grade, no, no, no, no. But Sellerfield, nuclear power station is obviously one of the places where it's generated.
+
+[00:27:43] And Sellerfield's a really interesting place. They have their own magazine, which I didn't know. How interesting. How often is that issued? That's not a weekly magazine, is it? It is weekly, but every week there are half as many painters as in the previous week. But that's not all that Sutherfield has, Dan, because I sense you're being sceptical that that's the most interesting thing.
+
+[00:28:06] I'm just surprised you open doing that. What's coming next? They've got a freezer full of dead seagulls, which is cool. Yeah. Because any mammal that dies in Sellerfield, birds are mammals. No. No. All right.
+
+[00:28:19] It's a free single. If animals go into Sutherfield and they get too close to the nuclear stuff, then they are considered hazardous, radioactively hazardous. And so that can be a gateway to poison the wider area because obviously you've got these radioactive seagulls flying off, creating mayhem. Yeah. So they're considered putrassant nuclear waste.
+
+[00:28:40] This was reported in 2010. They had 350 birds and small mammals in their freezers. That's quite a big freezer. Yeah, it is. That'll keep you going in a lockdown. Yep. it's quite a big freezer that's hilarious
+
+[00:28:49] what that's the most interesting fact about that story picture the freezer side you didn't want me to be interested in project management before
+
+[00:28:59] now when I show it in a freezing capacity just on just on nuclear bombs and sort of the sort of hazards of them America seems to be a bit clumsy with those
+
+[00:29:11] sometime I've read a few stories where you think Jesus you guys got lucky there really So in 1961, there was a plane and it had a mid-flight situation where all the pilots had to jump out of the plane, evacuate, ejector seed out of it, and the plane actually crumbled in the air. And two nuclear bombs dropped from it over North Carolina. And they should have gone off, basically, but they found one of the bombs hanging from a parachute off a tree.
+
+[00:29:40] And they looked at it. And basically, for this bomb to go off, four things needed to be activated on it. So it's a four-tier system. Three of those had been activated in the process of it going down, but the fourth didn't go off for some reason. None of them should have gone off, should they? And yet somehow three of these extreme safety triggers had just gone, yeah, we're ready to go.
+
+[00:30:00] That's why you have far, I guess. That's why, thank God. But if it went off, each of them had 253 times the power that the little boy bomb had that was dropped over Hiroshima. Can you imagine? Just one thing didn't go off. It's kind of mind-boggling. We had one in Britain as well in the 50s, didn't we?
+
+[00:30:18] In Lake and Heath Air Base in Suffolk. That was a plane crashed into a nuclear weapon storage facility. It was a miracle that the bombs didn't explode, but if they had, we probably would have lost Cambridge. Wow. One US official. Andy's looking happy. No great loss.
+
+[00:30:39] One US official said it's possible that part of Eastern England would have become a desert. Wow. And we only found out about this way, way later. But when we look back, the reports said that there was a mass panic when they realized this has happened. And when the fire services were going towards Lake and Heath, all they saw was a convoy of Americans just leg in it. Just cars full of people just panicking and people getting taxis and just saying, take me anywhere away from here as quickly as you can. Would you take on that taxi ride as a cab driver? I think I'd say, do you know what, you're a little bit out of my zone, actually.
+
+[00:31:14] I think I might put a search charge on, for sure. It is just unbelievable nothing ever happened. My God, we got lucky. There's so many cock-ups. In 1983, there was this other one, which was when in the Soviet Union, there was a computer malfunction, which meant that the guy on duty, Stanislav Petrov basically received information that the US was launching a missile strike on the USSR at that very moment. And he was under very strict orders that he should tell his superiors and they would launch
+
+[00:31:42] a retaliatory nuclear strike. And so he watched this siren go off And go like, strike, strike, strike And it said, this is actually a hundred percent Reliable information we've got A second siren, a third, a fourth, a fifth went off. And he, for some reason, decided not to tell his superiors
+
+[00:31:58] Thought, I do you know what, I think something's gone wrong here And he said the only reason he kind of thought that was because the system was too certain And he thought how He thought it had to pass 28 or 29 security levels To be totally sure that there was a strike And he was like, I'm not even sure it would do that if there was a strike. So he didn't report it.
+
+[00:32:18] 20 minutes went by. Nothing happened. So he thought, okay, it was a computer cock up. But he was the only civilian person. That's a stressful twist. Not even the best episode of Frasier could take your mind off that. Okay, it's time for fact number three. And that is James.
+
+[00:32:41] Okay, my fact this week is that frog hopper insects can shoot their urine away from their body. 20 times their own body length. If they didn't do that, they probably drown in their own piss. Well, good for them, that they develop this. Bad for frog copper toilet makers, I guess. 20 times quite far, though.
+
+[00:33:03] So how, yeah, give us more. How would that work? 120 feet for us. Because they must be pissing a hell of a lot for it to stack up enough that it could drown them. We all make really, really good points. So this was an article that I read recently on IFL Science.com, and it was about frog hopers.
+
+[00:33:23] And what they do is they drink sap from trees. But they drink xylem, whereas most insects drink floam. So phloem's got loads of sugar, really easy to get to. For some reason, they drink xylem, which is really hard to get to and has very little nutrition. And because it has so little nutrition, they have to drink tons and tons and tons of it. And I don't need to tell you that if you drink lots and lots of stuff, you need to pee a lot. So they create loads and loads of urine.
+
+[00:33:50] And really, they piss pretty much all the time. And if they didn't get rid of it somehow, it's going to get in the throat. If they had a throat, do they have throat? Let's not discuss whether they have throats or not. Anyway, so what they've come up with is a bum-mounted catapult. What happens is they can urinate out of their bodies and this catapult fires the liquid away,
+
+[00:34:15] about 10 centimetres away. which might not sound that far, but they're only about five millimeters in length. Okay. That's so cool. But if you're parked at that exact distance from another of these frog hoppers, it's effectively a war, isn't it? You're sort of drowning each other in battle. What would you do?
+
+[00:34:33] Would you move? It could be. Yeah, I mean, you'd move. You'd move to the side, don't you? Yeah. Yep, it's good. Solve that. And they're having to go to all of this effort, I think,
+
+[00:34:41] just because they didn't pay attention in GCSE biology, the xylem carries the water, the floem carries the sugars. You idiot. Exactly. I mean, why are they doing it? But the amount of urine that they produce, particularly when they're babies, they're nymphs, they produced between 150 and 280 times their own body weight in urine every single day. Every single day.
+
+[00:35:02] It's so gross. It's nuts. So I was talking to Ethan, one of the elves about it. So I weigh roughly 80 kilograms, roughly that. So that would be me producing 22,400 liters of urine a day. That's what they do. so basically 74 bathtubs worth of urine. Wow, is that full baths?
+
+[00:35:21] Full baths, yeah. Gosh, 74 bathsubs full of urine. An arresting image. Where do you get that many bathtubs? You'd have to go to a showroom. You'd have to go to John Lewis. And they won't be happy about it. I see you coming.
+
+[00:35:35] Oh, no. Here's Dan. Here's pissy shriver. Frogbers. Frogers are amazing. They're amazing. Like Hannah said, they're stupid, because they suck out xylem, which is really hard to suck out.
+
+[00:35:48] It's not only got no nutrition, it's really hard to suck out. So it means they have to be really, really good at sucking. Oh, yeah. They've got record-breaking sucking powers, haven't they? Biggest suckers in nature. I think 80 times more powerful than an elephant sucks, I think. I mean, yeah. They're incredible jumpers as well.
+
+[00:36:06] Their jumping is extraordinary. So they can get to the heights of 70 centimeters, and they're only 6mm. So that's a huge jump. and what's amazing is is that they use their back legs in order to do the jumping but the back legs are basically
+
+[00:36:21] specialized to be used for that so when they're walking around normally they're just dragging them along not being used they're just sort of coming along and then as soon as they want to jump they cock them into position and then just fling themselves they can sometimes ratchet up
+
+[00:36:35] the strength in their back legs so they kind of prepare a jump in advance and then they don't jump you see what I mean they have a locking mechanism in their legs, which means they can keep the potential energy high. So they are a coiled spring. And then they just walk around on their front four legs and drag along these heavily loaded back legs with them so they can make a getaway, I guess.
+
+[00:36:57] And then they exert massive amounts of G force on themselves, don't they, when they go flying through the air? So they exert a G force of over 400 G. That's what they generate when they jump up. And for comparison, an astronaut who goes into orbit gets G force of about 5G. and so that's a lot. If it was a human, we wouldn't survive. And 5G is very bad for you, isn't it?
+
+[00:37:19] Sorry. Gives you COVID? Yeah, yeah, I've been watching a lot of David Ike stuff. So people might know frog hoppers as well as spittle bugs, another name for them. And that's because if you ever walk out in the countryside in the middle of spring, you might see little bubbles of spit on bits of grass or bits of plants. And that is made by these frog.
+
+[00:37:42] coppers. And basically they eat all of this xylem stuff into their body. And then they poo it out into little bubbles. And then those kind of bubbly poos is where their children live. It's a beautiful start in life. Well, they're just lucky to have, you know, the bank of mum and dad these kids to rely on. But they're sort of suffocated in there. So they've got to like shove a little bit of their abdomen out to breathe in.
+
+[00:38:09] Otherwise, it's a snorkel. Yeah, it's a snorkel basically. Yeah. It's a fernacle. But then if you kind of scare their little baby as you're going past, I don't know how you would do it, I guess. Boo! That'll do it. Very easily scare, actually.
+
+[00:38:21] It'll kind of retreat into its little bubbly foam nest and it'll stop breathing and then just hope that the threat goes away and then it'll come back out again. Yeah, I think sometimes they can use them as emergency oxygen tanks. So sometimes if you freak them out, they'll retreat into the bubbles and they'll pierce a few bubbles. So they bond together into a bigger bubble and use it as an emergency tanks. It's really clever that the cookies pit. It fights predators because I think it tastes horrible. And it also stops the larvae from drying out. It's come out of their bum, hasn't it?
+
+[00:38:51] It's come out of their bum, you know? Self-respecting predators is not going to have that. And it stops them from drying out. But obviously, when you then become born, you don't want to be soft anymore. You don't want to be wet. So what do you do? Well, you blow an extra large bubble inside of your bubble. And so more air comes in there.
+
+[00:39:08] And then your exoskeleton can dry out. And then you can come out of the... spitty bubble and you're fine and you can be an adult. They're such amazing creatures. They really are cool. Why am we learning about these all the time? They're also. Because they are also when you walk around the countryside,
+
+[00:39:23] I always thought it was sap. In fact, I'm pretty sure my mum once told me it was just sap when I said, why is there loads of these globules of saliva sitting on all the plants? My parents always said it was cuckoo spit, which is what it's cold, but they never went on to say which is made by an insect. It's possible they hadn't looked into it and they hoped you wouldn't inquire further.
+
+[00:39:41] I must just say thank you to Claire Harkin. Not my sister, Claire Harkin, but another Claire Harkin with the same name, who is one of the experts on frog hoppers in the UK. And you can help her by going to her website, which is spittlebug survey.co.com.uk, UK, if you see any cuckoo spit in the spring. And the reason is we need to know where these froghoppers are because it's possible that they can start spreading disease.
+
+[00:40:08] There's a bacteria called Xylella. which originated in South America. And when they go into the plant to get this xylem, they also can sometimes put the bacteria into the plant, and it means that the plants can die. They basically die of thirst, really. And if you find this bacteria in a tree, then all the plants within 100 metres will need to be destroyed
+
+[00:40:30] because it's so catching this thing. In Italy, basically, centuries-old olive groves have had to be wiped out. Oh, is that what caused the massive olive wipeout? Some of them for sure. Yeah. Yeah, that was bad. Oh, froghop was not so great after all. Is the bacterium's fault?
+
+[00:40:45] I guess so. Yeah. But yeah, so if you do find any cookie spit in your garden, then go to spittlebug survey.com. UK and let them know where it is, and then we can test it. And we should say we think the bacteria is not in the UK yet. Yes. So if you find cookies spread in your garden, don't destroy 100 meters around everything. It's just important to report the presence of it, so it's known where it is.
+
+[00:41:06] I spoke to Claire Harkin and she sent me loads of the material I've got for the came from her. I said from one hark into another, can you send me all of your frog hopper stuff? I really hope in the future all your emails get mixed up between what you're meaning to send to your sister and what you sent to her. I'm just terrified now because I remember the last time something horrible came to Italy and we said but it hasn't come to the UK yet. That went extremely badly. Stop the podcast. Stop the podcast. Hi everybody. We wanted to let you know.
+
+[00:41:42] that this week we're sponsored by Wondrium. Yes, Wondrium is, formerly, the Great Courses Plus, the go-to place to find all of the most amazing lectures and talks about the world of history, science, environment, pop culture, bizarre, mad as shit theories. Those are the ones I go to. Yeah, it's even got something for Dan, so it's definitely got something for you. So many interesting courses on there, so if you want to learn about the crimes of the century, for instance, or if you want to learn about notorious London, really delve into Jack the Ripper, things like that, that's great. I'm currently learning how to be a medieval knight.
+
+[00:42:20] Are you? Of course, on that. I am. I'm offended you haven't noticed. How far have you got? I have won some jousting contests. I have slaughtered some peasants. It's early days. I haven't. So yeah, you can learn that and more if you go to wandrium.com. It's got thousands of hours of amazing video. and audio content, and you can download all their coursebooks alongside that. So if you go to onedrium.com slash fish, you'll get a free month trial of unlimited access.
+
+[00:42:50] That's right. So go to wandrium.com slash fish. That's W-O-N-D-R-I-U-M dot com slash fish, and you can get that free month trial of unlimited access immediately. Okay. On with the show. On with the show. I haven't really murdered anyone.
+
+[00:43:07] On with the show. Okay. Okay, it's time for our final fact of the show, and that's my fact. My fact this week is that the person credited as official consultant about the future for the movie Back to the Future 2 is the Great Grandson of H.G. Wells. Very nice. Very nice. Author of.
+
+[00:43:30] Author of. Time Machine and War of the Worlds and so on. But obviously, time machine, very relevant to the movie. He's not a sort of futurologist, though. He's not a scientist. He actually works within the movie world. So he's a director. So he's a director of a great childhood favorite movie of mine,
+
+[00:43:47] an American tale, Fival Goes West. Yes. Yeah, he did the Prince of Egypt. He worked on Who Framed Roger Rabbit when he started his career. Kung Fu Panda, he worked on. He worked on all the greats. Kungthru Panda 3. But no, so he's, you know, he's a big Hollywood guy,
+
+[00:44:03] and he got brought on to Back to the Future, too, and he did some consulting about the future. What's his name? His name is Simon Wells. Simon Wells. Yeah. H. Wells. Yeah. What an interesting man. Oh my goodness. Incredible futurist and novelist and everything.
+
+[00:44:19] You know, he wrote so many classic works. So he wrote War of the Worlds, Time Machine, as we've said, the island of Dr. Moreau, which is an absolute classic. The Invisible Man. I mean, and almost all of it was in this really short period quite soon after he became an author. He's stayed an author for 40 years. He wrote dozens and dozens of novels and, you know, hundreds of short stories and all this. Yeah, he came up with so much cool stuff. He came out with Wikipedia. Long, time before it was made. Which is super fun, the world brain. That's a book, right, that he published.
+
+[00:44:47] Yes, exactly. In 1936, it was a lecture. And in 1936, he presented it as the world brain, which I think is what we should rename Wikipedia. And his idea was that it was an encyclopedia that was constantly changing and alive and maturing and being revised by brains from around the world. And he said, you know, everyone should be able to refer to this for their knowledge of everything, schools and colleges and anyone who needs to fact check anything.
+
+[00:45:11] And basically the only difference is that it would be delivered in the form of reels of microfilm being dropped on demand from aeroplanes as opposed to on laptops. We might get there in the future. Fingers crossed. He thought it would prompt world peace, didn't he? Yeah. He thought if we all had access to the same information, its creation is a way to world peace, his words. And he was saying it's in 1936. I think also it depends when you got him whether you want to take his futurism because in the early 20th century he wrote anticipations was at the.
+
+[00:45:41] massive bestseller and it was what he thought the future was going to be like and almost kind of what he thought it should be like because he'd read a lot of Darwin and a few other things and he thought this is the way we should go and he thought basically half the population should enslave the other half of the population he thought that racial and social homogeneity should be enforced he thought that certain groups shouldn't be allowed to have children and certain groups should be told that they should have children arthur conan doyle said it was vile and villainous any man who knows who knows science and medicine knows this book is muddle-headed. Any man who knows humanity knows the book is horrible. I knew James was going to do this. George Orwell. I knew he was going to knock him down.
+
+[00:46:22] George Orwell said it was politically naive and that it was a terrible book as well. It was a really, really, really, like basically a nasty piece of work. It really, really was. But as he got older in life, he definitely changed. And in the 20s, he started to meet presidents. He met Fyodor Roosevelt. He even met Lennon as well. John Lennon? He started trying to talk. He started trying to talk them into a much better world And actually in the end he was probably quite influential In the Universal Declaration of Human Rights
+
+[00:46:53] That the UN came up within 1948 So when he was really young He had all these ideas which were really quite bad But then as he got older he kind of mellowed And he had a much better idea of I had no I'd never heard of that anticipations thing That's extraordinary And that would have been after he started writing novels
+
+[00:47:09] Because I think he started about 1895 And Orwell was a big fan, even though there were disagreements. I mean, he was very mercurial. He had fallings out with basically all of his mates in the end. But Orwell basically said that anyone who had been alive and literate between 1900 and 1920 was affected by H.G. Wells more than anyone else. And, you know, what a brilliant guy he'd been. But later in his life, so it seems like he started bad from what James said.
+
+[00:47:32] He got extremely good. And then he sort of descended into literary shitness a little bit again. And so Orwell said in the 1930s, now he seems a bit of a shableness. Gallo inadequate thinker. But mostly he was saying, but look, I think he was a pretty good guy. And Wells just replied to Orwell with a note saying, you shit. Wow. What a great writer. Such a way with words.
+
+[00:47:56] Jumping back to young H.G. Wells. He was actually born from interesting stock. His dad was a professional cricketer who was sort of famous in his own right. So he's a cricketer who took four wickets in four balls for Kent against Sussex, apparently the first time that's ever been done. Wow. Yeah. So he was really cool. That, by the way, it's huge.
+
+[00:48:15] Yeah. It's like, for me, when I read that, I was like, that should be the headline. I've had that is incredible. That has only happened 43 times in the history of cricket. And there's been over 60,000 matches of first class cricket in history. And it's only happened 43 times and he was the first one to do it. And he was the first one to do it. And one of the people that he got out was a guy called Spencer Austin Lee, who was the great
+
+[00:48:36] nephew of Jane Austen. Wow. Amazing. So his father. than ran a crockery shop which sold all of this crockery and also sold sporting goods because his great uncle was Timothy Duke and cricket fans will know the Duke's ball, which is the cricket ball that English teams use. And whenever the Aussies come over here, they always complain about the Duke's ball, it swings too much and all that kind of stuff. So he was part of that
+
+[00:49:00] kind of family. So they opened this shop. But apparently the location was very poor and they didn't do very well. Although today there is a prime mark there, which I have to say does very well indeed. So I don't know if it was the location or not. But then I read an article in the Oxford Dictionary of National Biography, which you all know, and is often quite dry that book. But they talked about Joseph Wells, who was his father, and they said that he once broke his thigh by falling from a ladder in his backyard on a Sunday morning while the rest of the family were at church. Officially, he had been pruning a vine, but local gossip alleged that the church service ended earlier than usual, and that he was caught helping a lady friend escape over a back wall.
+
+[00:49:43] Oh, my God. Is that amazing? Are you sure this wasn't a bust of Keatonfield? Anna, your thing about him writing to, who was it? Orwell. Orwell, saying, you shit. He was quite good at grudges and rivalries. So the War of the Worlds came out in, I think, about 1895 or 6.
+
+[00:50:01] And obviously, huge success. It was serialized, as was common then. Really popular, right? It was illustrated by an artist called Warwick Goebel. And Goebel's vision of the tripods was these kind of ovoid pods standing on the metal beams. And Wells hated it so much, right? He hated this illustration so much that when the first collected version of the book was released, not serialized, he added some new material.
+
+[00:50:26] And halfway through the book, he's in the middle of describing a blasted planet Earth. And, you know, it's in the middle of a full war. And he describes the first pamphlets to give a consecutive account. of the war, so he's writing about a text within this fictional story. He said, the artists had evidently made a hasty study of one of the fighting machines, and there his knowledge ended. He presented them as tilted stiff tripods without either flexibility or subtlety, with an altogether misleading monotony of effect. The pamphlet containing these reddings had a considerable vogue, and I mentioned they here simply to warn the reader against the impression they may have created.
+
+[00:50:57] What? Inside the next edition. So good. So good. I love it. I think that's incredibly unprofessional. That would ruin my enjoyment of a book if suddenly the author stepped out of it to bitch about his illustrates. I love it. No, I'm into that. Another thing he would have hated while we're on things that he hated would have been his great-grandson's credit in the movie. Why? Because he didn't like credits. He didn't think credits should be part of movies. So in 1936, he wrote a movie called Things to Come. And one of the things he tried to eliminate from the movie was the credits because he thinks all movies shouldn't have them. He thought instead, when you were sitting watching the
+
+[00:51:34] film, little booklets should come around and be handed out that would have the credits of the movie in them. I think it's a nice idea. No, it's not. So you pause the film at various moments to check your booklet and see who the casting director was. Not during the film, I guess, but I've often wanted some explanatory notes at the end of a film. You know what it's a bit like, which I think is a really good idea. You know, if you go to the theatre to watch a comedy show, it's like having a program, isn't it? Yeah. Yeah. I think if I was to go and watch a podcast, doing a live show maybe later this year. I probably would buy the program if there was one.
+
+[00:52:04] Yeah. It would have to be very well written and full of interesting jokes and funny. It's behind the scenes, photos and yeah. I wouldn't buy it. Just one other thing, just to show his influence on this movie, there was an actor in it called Ernest Thessinger and all the scenes that he was in were shot. And then Wells decided, nah, don't like him. Let's get a new actor.
+
+[00:52:24] So they reshot it with a guy called Cedric Hardwick. But they didn't tell Ernest Thessinger, who showed. up to the premiere, sat down and discovered he wasn't in the movie. That's a good prank. He should have read the little booklet, shouldn't he before it started? He would have known. You'd have a breakdown.
+
+[00:52:43] You'd have some kind of psychotic break. Yeah, you'd think you were going insane, wouldn't you? You'd think you'd invented a memory. Someone is on screen with someone else's face saying your lines. To an actor you'd filmed a scene with. Yeah. Yeah, you'd end up in the asylum. Gosh.
+
+[00:52:55] His skin smelt of honey and walnuts. Okay. What a great. Lovely. How do we know? One of his lovers said so, and he had many lovers. Oh, good. We're getting to the sexy video at two wells.
+
+[00:53:08] This is the juice. Yeah, he was a great womanizer, and he wrote one. No, the adjective great, and that usually isn't said the way that you said it. Sorry, he was an esteemed and wonderful womanizer. There was actually a lovely great lives on Radio 4. It was from 2001, and it was, I don't know if you remember Humphrey Carpenter, who was hosting, it, yeah, and he was interviewing Fay Weldon, the author, and she
+
+[00:53:33] must have been about 70 at the time, and she loves H.G. Wells. And Humphie Carpenter said, so would you have slept with him if you'd lived at the same time? And she just said, I dare say I would. Yeah, he claimed to have an open marriage, right, but it sort of sounded like he had the open marriage and his wife had no choice
+
+[00:53:51] but to be in an open marriage. Well, he had a few marriages, didn't he? First was to his cousin, and second was not to his cousin, I believe. But he What he said was he wanted encounters with, I'm quoting here, free, ambitious, self-reliant women who would mate with me and go their way. Was that in his newspaper ad? Non-smoker preferred.
+
+[00:54:14] Can I tell you a woman that was a bit like that, his final partner in life, who was Maurer Budberg. Now, she was a Russian whose first husband was murdered in the October Revolution. She later married Maxim Gorki, who is like the great. author and she was almost certainly a double agent between Britain and the USSR. At one MI5 informant said of her, she can drink an amazing quantity, mostly gin. She sounds absolutely amazing. And her older half-sister is someone called Alexandra Ignatyeva Zakraskaya,
+
+[00:54:49] and she was the great grandmother of a certain Nick Clegg. Oh! Whoa, that is the same. sexiest thing I've ever heard about Nick Clegg, which I know is not stiff competition. Yeah, she was super cool. Although Virginia Woolf used to call her bedbug, I think, a nice play on her name, which was harsh. But she was like... It's everywhere Virginia Woolf. I know. She had her things and a lot of pies. Comment on everyone. Yeah. She liked a comment. That was kind of her game. But yeah, old bedbug, or Murrah Budberg. She dated loads of cool people. She dated Maxim Gorky. She dated Robert Bruce Lockhart
+
+[00:55:27] who tried to assassinate Lenin whilst also spying on him. John Lennon? So she was madly... He gets everywhere. Had a finger in a lot of pies at John Lennon, didn't he? Sorry, Anna, can you break that down for me? But Robert Bruce Lottkart tried to assassinate Lenin while also spying on him? No, sorry, Lockhart tried to assassinate Lenin.
+
+[00:55:45] And this woman, Budberg, was totally in love with Lottkart, but also spying on him for Russia. So she was all over the place. She had a gold laundering scheme in the 1920s, I think. and then there was a massive house fire that destroyed all papers and files about her. Hmm. How convenient. Nothing. But she kept turning Wells down, didn't she?
+
+[00:56:05] I think he proposed lots of times to her. They never married. They were just kind of life partners at the end. Because there's a theory that she was pretending to be in love with him, certainly at the start, to gain access to his large circle of friends. Because if she was a Soviet double agent, he was a very useful man to know. Except that he kept falling out with all of his friends, which must have really pissed her off. Another person, Wells had an affair.
+
+[00:56:27] with was a novelist called Elizabeth von Arnim, who is very cool. She is a really great 20th century novelist. Her works are highly recommended. But he came in through a hidden entrance apparently to her gaff. Oh, I see. And they went at it so hard that they broke her hotel bed twice. Oh my God. That is actually, that feels like too much information about H. That's from his memoirs, all right? Is it? Yeah. It's just the way you worded it, I think. They went on it so hard. He wrote two autobiographies. One of them was clean and one of them was dirty. One of them was about his sex life.
+
+[00:57:03] Really? And he said, hold this back until all the women involved are dead. Andy, can I ask, when they were at this hotel and they were at it so hard that they broke the bed, did the housekeeper then come up and fix the bed while they're presumably sat around waiting for that to happen? And then they started having sex again and broke it again. I don't know if it was the same night. What your questioning is, was it a bad fix? of the bed or was it separate beds?
+
+[00:57:29] Yeah. Is the housekeeper to blame? Here's what we're wondering. What was his trip advice review afterwards? This book sounds amazing though. This book of all his exploits. I think he was kind of criticized because in his first autobiography
+
+[00:57:42] he didn't mention any of his lovers. But did it come out in his lifetime? No, he said to his son. He gave it to his son to edit and publish, which is weird. Wow. His son could have got in there with my dad wrote a porno years before, right?
+
+[00:57:56] He said, keep this. Back until all the women are dead. That meant 1984. Ironically, for someone who knew George Orwell. Yeah. Yeah. And lots of it was excised. Lots of details were excised from it.
+
+[00:58:07] Probably, you know, bed stuff. Things like that. Can I just fill the last 20 seconds with another fact? Yeah. Yeah. He basically invented Warhammer. I'm saying hobby war gaming. The practice of hobby war gaming.
+
+[00:58:20] He invented. He invented a thing in 1913 called Little Wars. It was so much more serious than modern tabletop wargaming because you had to have... Okay, there are a lot of people listening who are very offended by the idea that anything is more serious than that.
+
+[00:58:31] You had miniature cannons which you had to fire at the enemy's soldiers in this game that H2 Wells invented. And this is also a man who had sex with lots of people. Stop giving people full soap.
+
+[00:58:43] I know. Okay, that's it. That is all of our facts. Thank you so much for listening if you'd like to get in contact with any of us about the things that we have said over the course of this podcast
+
+[00:58:56] we can all be found on our Twitter accounts. I'm on at Shriverland. Andy at Andrew Hunter M. James at James Harkin and Anna you can email a podcast at qI.com. Yep, or you can go to our group account at No Such Thing or our website. No Such Thing isafish.com. All the previous episodes are up there. Check them out. Also check out our tour dates. We're back on the road as of October 2021 and we're going to be playing 26 places all over the UK and Ireland. So see if we're coming to a town near you and do come along. It's going to be awesome.
+
+[00:59:24] All right. We'll be back again next week. We'll see you then. Goodbye.

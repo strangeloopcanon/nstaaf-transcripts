@@ -1,0 +1,271 @@
+# No Such Thing As A Fish - No Such Thing As A Courgette In Your Ear
+
+- Episode date: May 26, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-courgette-in-your-ear
+- Slug: no-such-thing-as-a-courgette-in-your-ear
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here with Andrew Hunter Murray, Anna Shazzynski, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with you, Andy. Thank you for that incredibly forgetful introduction. My fact this week is that chickens eggs turn from pointy end first to the blunt end first just before they come out. Like a baby. Like a baby.
+
+[00:00:58] I don't know if babies have a pointy end, but when a baby's getting ready, yeah, I guess the head is a pointy end. So when you're getting ready to be born, babies will go into dive position. Well, most babies do. Although I was a breach, as was my brother. So I wonder if chickens have the same thing where sometimes you get a breached one where... Awkward eggs.
+
+[00:01:17] Awkward eggs, yeah. And sometimes they have to cesare in it out because it's the pointy end first and it's just too difficult. Yeah, which seems counterintuitive, doesn't it? So why do they come out that end first? I don't know. Once you get past the most rounded bit,
+
+[00:01:31] it probably just fires out. It slips out. Yeah. It's exactly like a baby. That's why it's harder with a baby when they come out legs first because you have to push hardest right at the end, don't you? Baby should come out like, you know, like in the pencil position.
+
+[00:01:43] Like a pencil dive? Or like a diver the other way around. Yeah. With the hands in a diving position. That'd be good. That's how I imagine Tom Daly was born. My waters are broken and there's lots of them. Judge is hot off an eight.
+
+[00:02:01] I was talking about Tom Daly the other day. I have a theory that, and it might not even be a theory, it might be a fact. But if you were diver and you dive off highboards, half of your training must be just walking upstairs. No, it's not a fact. No, I think that's a fact. What do you mean by training? Well, because if you're not used to walking upstairs,
+
+[00:02:22] like Anna and I walked up some stairs the other day and I almost died, you lose your energy and he's got to now do a dive once he's at the top of there. And those boards are really high and they're really steep stairs. But they are elite sports people, not like you walking up the stairs at Cover Garden. But they must, part of their training must be like climb up some stairs. It must be. there's no possible reason why you wouldn't train them to climb stairs all the time. Actually, Dan, elite divers have chairlifts so they can conserve their energy.
+
+[00:02:49] There we go. Dan, do you understand that if you get fit at one thing, sometimes that means you're fit at loads of other things? So if I become like a champion runner, I'll also probably find it easier to go upstairs. I don't. I disagree with that. I don't think that's true. I think it uses different muscle groups.
+
+[00:03:04] Yeah, but have you seen these divers? They're like super fit. I'm not saying... They're not like flabby-ass. people trying to get up the stairs, are they? I'm annoyed that I've been bounced into the position now supposedly saying that divers are not fit. You know, because all those competitions
+
+[00:03:19] where they take a rest halfway up, don't they? They have a sit down. Now, if the whole point of diving was to make the biggest splash possible, then you would have a lot of out-of-shake people climbing up. And then that would be a problem. Yes. Because they might not make it to the dive.
+
+[00:03:35] Well, that would be part of the... That's part of the competition then. So you have to be big. enough to make a massive splash, but not big enough that you can't get to the top board. And that's the two tensions. Sumo diving. I'm surprised this isn't a big. You're right.
+
+[00:03:49] Yeah. So hang on. You're saying that do you mean half the time that divers been training? I'm just saying I didn't factor in that that's half the gig getting up to the board. But then I think if you wanted to be an elite diver and you spent half of your training time climbing up and downstairs and only half of your training time learning how to actually dive. probably you would but no Dan's right they must do how long does it take to get up those tests
+
+[00:04:13] 30 seconds once you're at the top how long do you spend faffing around getting ready for the dive probably about 30 seconds they're probably catching their breath again they're not all that's not why all training happens of course with divers they do a lot in mats
+
+[00:04:26] and stuff like that it's a lot of gymnastics and stuff they didn't know that oh so you're just saying they spend half their time because to practice they do have to go up the stairs whereas Dan's saying they actually need to practice going out of the days If you got there and you'd only had time to complete the first half of your modules, if you just got to the top of the stairs.
+
+[00:04:43] Just look down, holy shit, I am not doing that. Anyway, eggs. Eggs, yeah, thank you. Something about the man who discovered this. The man who discovered, I'm just to remind you of the fact that chickens eggs turned from pointy end first to blunt end first just before they hatch. He was an egg scientist. He studied birds and birds' eggs.
+
+[00:05:04] and he was called Heinrich Wickman, or Vicman, and he found out by marking the eggs with a pencil up the birds just an hour before they laid the eggs. So he inserted a pencil into the birds cloaca. I know. Anyway, I got this in a book called The Most Perfect Thing. It's a book all about birds' eggs by a guy called Tim Burkehead, and I do recommend it.
+
+[00:05:27] It's a really interesting book. An egg shape is, that specific shape is the most pleasing shape that it could be to her. So they've done some brain tests that look at the kind of surface curvature that humans find most pleasing. And across all societies, it's that exact curvature. So if it goes more pointy or more squash, then we don't enjoy looking at it as much. And I think it's because we've evolved to think that that's what a healthy bit of tissue development would look like. But what's interesting is that different eggs are different sizes for different birds, aren't they?
+
+[00:05:57] So is this a chicken egg you're talking about? Chicken egg, yeah. Interesting. But they're often quite, you do get more rounded eggs, but you don't get like really long. very often. Because then the bird that was born in them, like maybe a snake's egg would be like that. A stick bird.
+
+[00:06:13] A flamingo egg would be like that. Yeah. But you do get round ones. You do get round ones. Yeah. Who do round ones? But some other birds. Some other birds.
+
+[00:06:23] There was a theory. I don't think this might not be true anymore, but the idea that the egg-shaped ones don't really roll out of nests very well. And the ones which are more rounded are ones that lay eggs on the floor. So they might not fall out of trees as likely. Are you going to debunk that theory?
+
+[00:06:40] I've read a debunk, but I didn't look into it properly. There is something in this book about it as well, actually. I can't remember chapter and verse. They could have done in order to find it out with modern technology a sort of x-ray video. Because do you remember there's that incredible photo of what a kiwi bird
+
+[00:06:56] looks like just before it gives birth? I used to have that picture on my wall. I found it so... Did you? We just love the curvature so much. Well, it's because you're looking at it going, is this a kiwi with an egg in it, or is this an egg with a kiwi over it? It's both, they're both the same size. Are you inside your clothes or are they outside of you?
+
+[00:07:19] I think it's James, it's both. Is it? But yeah, that's right in my mind, that. The equivalent, if a kiwi bird, when you see this picture, and I highly recommend Google this picture, Kiwi bird, yeah, I'll put it on my Twitter. I'll put on ACUI podcast as well. It's the equivalent to a human giving birth to a four. year old.
+
+[00:07:36] That's how big the egg is inside them. And they're often wearing jumpers and things. That would be especially scratchy and difficult. Lego. Lego jamming into your way out. Did you know that mammals evolved milk in order to wet their eggs? I don't even understand that. Yeah, I know.
+
+[00:07:55] Like cooked chicken eggs? Wet it. Not. We didn't evolve milk so we could poach a good egg and hit. What eggs? So millions of years ago, when our ancestors were still laying eggs, they didn't have shells. So they had quite a porous membrane. And that meant that they would dry out really easily.
+
+[00:08:18] And so we evolved milk, people think now, in order to put it over the eggs and make sure that they didn't get dehydrated. And then we realised, evolution realized, that quite a good use of this milk would be as a way of transferring some nutrients into the offspring in our egg. And so we developed more and more nutrients in our milk and then kept putting that in the egg. And then eventually that our milk became so nutrient-filled that it became just something we could nurture a baby with. That is cool.
+
+[00:08:50] Wow. I was reading that you can know what colour an egg's going to be from a chicken by looking at its ears. Chickens don't have external ears, do they? They have earlobes. Do they? Yeah. Prominent.
+
+[00:09:04] you'll have seen them. I think maybe you just didn't think of them as being earlobes. Yeah. So if they have white earlobes, they'll have white eggs. And if they have red earlobes, they'll have brown eggs. This, the article stresses, is not always the case. Right. Right. Okay. But they do say that it's something that people have noticed more often than not. It's almost always the case, I think. You can tell. It's going to be a color similar to the earlobes. Are you, I cannot be imagining a chicken with human ears. Yeah, and it's disgusting. Yeah.
+
+[00:09:37] You ever seen a chicken? Do you know what a chicken is? Yeah. Okay. Yeah. I just was, because this is your fact. So I was just checking you had Googled chicken before you came in here. Yeah.
+
+[00:09:47] I think it's not the first thing you see when you look at a chicken, though, is it? You see the feathers and you see the beak. It's not the initial. And sometimes the little feathery trousers, you know, the little spurs they have. Those are pretty cute. Oh, yeah. Those are really the big, yeah, cowboys tug. But it's not like elephants where.
+
+[00:10:04] first thing you see is the ears. The first thing you see on an elephant is the trunk, James. Well, I'm looking from the side. Yeah. It's facing away from you. Crockettishly. Okay, it is time to move on to fact
+
+[00:10:23] number two, and that is James. Okay, my fact this week is that the former Prime Minister of Georgia has started taking famous trees from around his country, digging them up, and then planting them in his own garden. He's, like, he's,
+
+[00:10:38] personally digging them up. He's digging them up. It's amazing. So I was, so for our book, which is coming out in November, I was reading about the world geopolitical situation. And there's things happening in Georgia. There's elections in Abkhazia, where they're trying to get out of Georgia. And while I was reading that, I came across this guy, and I can't believe I've never heard about him before. He's called Bidzina Ivanovili, and he's taking trees from around the country, and either driving them or putting them on a ship, and then taking them to his house and planting them. And he says, it's my hobby. I really love big trees. Giant trees are my entertainment. How many famous trees are there in Georgia?
+
+[00:11:16] Not as many as they used to be. So this is a thing. He reckons that it's a good idea because before the people who have the trees on their land might not have been properly looking after them. And so if he puts them on his land, then he'll be able to look after them on his arboretum. But ecologies are skeptical. Well, he does say, doesn't he, though, that he'll plant 10 trees for everyone that he takes away or I think at least he did that for one of them. He did that for this giant tulip tree. It was a 650 ton tulip tree. Whoa! I thought tulips were like small. Yeah, I thought they were as well. I guess this is just one 650 ton tulip. Yeah, well, you know, it's context, actually. It's all in the way the photo's done. So you know the fields of tulips you see in the Netherlands. Those are actually all massive.
+
+[00:11:59] Well, you do see the odd windmill, though, so maybe Dutch windmills are absolutely massive. They're even bigger. Maybe he's just chooping them all. Maybe he's just chooping them all. Maybe he's told them it's a tulip tree so he's like oh I'll just give you these extra tulip seeds you can have 10 of them have as bad as you want um this guy does sound amazing though he is incredible and he's got this mansion hasn't he which is kind of disgusting if you look it up and it's basically it is the james bond mansion it's like a giant glass spaceship yeah and it um it's it's on a mountainside isn't it so it overlooks the capital of his country from a mountainside yeah cool so the indy when it interviewed him and uh when he went there um
+
+[00:12:37] He said, there are eight different breeds of peacock, and I have them all. So he does, he really likes collecting loads of stuff, basically. Yeah, he has loads of animals, doesn't he? He has, uh, zebras. Um, what else do you have? Kangaroos. Kangaroos. Penguins.
+
+[00:12:53] He is also rumored to have a shark tank. He does. Yeah. Yeah, he does because he has to keep importing loads of salt for it all the time, I think, like gallons of salt. Apparently, in the hallway of his house, he has a work by Gilbert and George with the slogan that says, say fuck off to rich bastards. His net worth is $4.8 billion. Yeah, I think his net worth is like 50% of the GDP of Georgia, isn't it? It's between a third and a half, depending on which
+
+[00:13:20] source you read, but it is, yeah. Well, he sounds like the right man to be the former leader of the country, doesn't he? If he is basically the GDP of Georgia. Well, indeed. Yeah. Just quickly on trees in Georgia, because I don't think I'm going to get another chance to get my trees in Georgia fact out. We'll have one next week. Yeah, it's possible. You could put it in the buck. Oh, yeah.
+
+[00:13:39] Well, just in case I don't do that. So basically, Georgia breed Christmas trees, and you know the tree that we call the Nordman fir, and it gets called the Caucasian fur. It's basically the famous Christmas tree in Europe, as in 45 million gets whole all around Western Europe each year. These trees are grown elsewhere, but they're originally from Georgia,
+
+[00:14:01] as in the seeds that grow them are all from Georgian Christmas trees, and people in Georgia climb up them and they're massive. Okay, so it's quite dangerous. There are fatalities every year. They collect the cones, which have got the seeds inside them, and then they sell the seeds to places like Denmark, and then Denmark actually does the work of growing and selling the trees. But Georgia misses out because, obviously, you need loads and loads of pine cones,
+
+[00:14:22] and then they get sold for much more. It's like drugs, you know, it starts off quite cheap. But the street value of these trees is massive. So the Georgians, I think they want to break into that and start growing their own trees. Say no to pine cones, kids. Yeah. Hey, while we're just on Christmas trees, did you guys know that elephants floss using Christmas trees?
+
+[00:14:43] Have you guys heard that? No. I don't think that's true. It's true. Elephants floss using Christmas trees. At least that's what I read. In Germany, they've got this tradition every year. So they give their Christmas trees to the elephants at the zoo and people just hand over
+
+[00:14:58] their trees. And the elephants eat them. They can get through like three trees a day. But they also have been seen flossing with them. So I guess flossing. the tree out of their teeth. Holding it with their trunk and then in and out between their teeth. Yeah, I mean, I haven't seen any pictures myself.
+
+[00:15:11] They must be because they don't have opposable thumbs, do they? So it must be with their trunk. That's the only prehensile part of their body. But it's weird that you would try and get a tree out with a tree, and how would it not be that that tree would get stuck? Oh, yeah. Then you get a slightly larger tree. There's the elephant version of the old woman who swallowed a fly.
+
+[00:15:29] It's the elephant who flossed with a Christmas tree. Yeah. Eventually has to swallow a tulip tree, which is just the biggest on earth apparently. Speaking of trees, by the way, very quickly, we have just discovered that there are more trees on Earth than we thought they were. So there are now 427 million hectares
+
+[00:15:47] more trees than we thought that were on Earth. How many did I think they were? 427 million hectares less than the number you've got in your head. Yeah, so minus that from whatever you've had. To put it into context, by the way, that is if all that tree, the new tree was put into a place, a single place, it would take up 60% of the surface of Australia. That's actually kind of less than I thought it would be.
+
+[00:16:11] Yeah. But no, is that only the bonus trees that we've got? It's not all the trees in the world, is it? Yeah, yeah. That's the extra bonus trees. So we can't just go nuts and start cutting down all the trees. Because we're the Prime Minister of Georgia, or the ex-Prime minister of Georgia. Yeah, what it does mean is that he's got a lot more to collect now.
+
+[00:16:28] But he's not collecting every tree. He's just collecting individual examples. Is he collecting all the trees in the world? just the famous trees. Oh, we don't know, do we? Because we only know where he's got two so far. We don't know where he's going to start. Because maybe he's starting with the most famous,
+
+[00:16:40] but his list includes every single tree on the planet, and he's just working his way down. Down to the least famous. Exactly, yeah. What is the least famous tree? Nobody knows. Well, only he knows and his mother. Did I ever tell you guys that my dad,
+
+[00:16:56] I used to live when I was born in Hong Kong. We lived in an island just off Hong Kong called Discovery Bay, and my parents lived in this house, and next door to them, their neighbor had a tree in their front yard. And my dad used to love this tree. He just used to think, I want one day to have a tree in my front yard as well. And so he went out, he got really drunk one night. And he came back and he doesn't really remember what happened.
+
+[00:17:19] But in the morning, my mom went outside, opened the doors and went, Roger, what have you done? And he quickly jumped up and he saw what he must have done in his drunken state, which is clearly he was walking home. He saw the tree, thought, God damn, I want that tree. So he dug it up and he brought the tree over and he planted it in our front yard. But what he had failed to do was to cover up his tracks. So he saw the tree planted beautifully at our yard with a huge trail of debris and dirt leading to a gigantic hole sitting in our neighbor's front yard. Amazing.
+
+[00:17:54] Do you know, I think actually even without that trail of earth, your neighbor might have just about figured out what was going on there. I know that swing. One of a second. You're saying that your dad, when drunk, Kay, on his way home, dug up a tree. Presumably he was just on his way home, so he wasn't carrying his spade with him. So the implication is he dug it up with his bare hands.
+
+[00:18:15] Also, I can only imagine Dan's dad likes trees that are tree size, so it must be pretty big, right? Yeah, so he dug out this tree. All he thought of that tree, went home, got the spade. Well, home was just next door, so it was very convenient. He could have dug it up with a cat and he got his cabab in. Yes, you're right. Because in Australia, all...
+
+[00:18:36] In Hong Kong, sorry, in Hong Kong, all cabab cartons are made of reinforced steel in case of, you know, burning your hands. Well, anyway, he put the tree back, so no one needs to suppress criminal charges or anything. I don't know if the guy ever noticed, by the way. My mom woke up really early in the morning. Unless he was a very late riser, I think he probably noticed.
+
+[00:18:54] So your dad may be replanted it before this guy woke up. Did he maybe wake up and he's like, this is orientated in a slightly different way? That swing was on the other side. That poor guy has had mental health problem for the rest of his life, just had a nervous breakdown. He actually invented the character of Groot for the Guardians of the Galaxy film about a mischievous tree.
+
+[00:19:17] Just quickly, while we're talking about moving trees, whether illegally or legally or, you know, with a polystyrene carton, if you don't have a polystyrene carton to hand, you can get these unbelievably cool things, and they're called tree spades. So they're these massive boxes, right? They look like a big sort of space egg. And you surround the tree with it.
+
+[00:19:36] I don't know quite where you uncouple it and surround the tree. And then what it does is it has these massive round-edged blades which dig into the ground, very carefully lift up the entire tree, roots and everything. And then they can tilt it sideways and put it onto, for example, the side of a van or whatever. That's so cool. Or probably on the back of a van, not the side of a van. Yeah, yeah. That's amazing.
+
+[00:19:59] That sounds like it's given it a pot. Like the egg shape underneath has just created the pot for its standard. And the really cool thing is they've been doing this for hundreds of years, or at least, I think, 150 years. As I only were doing this in Brooklyn, but just without the big mechanical element. But they still had these cool devices to... So without the mechanical element, it's just a spade. Well, yeah, it is.
+
+[00:20:20] They had spades. They had spades. The spade goes back 150 years. Not a lot of people know that. No, they have these big tree-moving wagons. Oh, right. Wow. So they put them onto the wagon sideways, do they? Yeah.
+
+[00:20:32] Because the Prime Minister of Georgia, the ex-Prime minister of Georgia didn't do that. He sent his sticking upwards. No. Yeah, so there's some amazing pictures online. I'll try and put them on my Twitter. There's one where he has a tree on a kind of a raft. And he's taking it on the black sea and it's just sticking up. That's amazing.
+
+[00:20:50] They look incredible. You should look up the pictures. It's incredible. If you took it from someone's land, you wouldn't necessarily know he was stealing it. It just might look like, oh, it looks a bit further away today, my tree. Exactly. So then he took them along the coastline of the Black Sea, but the coastline of the Black Sea is really shallow,
+
+[00:21:07] and so it got stuck there. And so he then had to make a new road to take the tree along. And then that road collapsed, so he had to make a new road. And also one time he took a tree on the highway, and it was a magnolia tree, and when he was taking it, it got stuck on a eucalyptus tree
+
+[00:21:25] that was growing on the side of the road, so it got entangled. Did it take the eucalyptus tree with him? Was it just like a tree chain? Buy one, get one tree. It's a hell of a lot of hassle this hobby of his, isn't it? Yeah, his wife's probably saying you need to collect something smaller. Or maybe he's just getting drunk every night and finding these trees in his garden everyone.
+
+[00:21:45] Just because you mentioned Christmas trees earlier, I was reading this amazing story about the Christmas tree shipping industry, which used to be huge in the US. They used to ship hundreds of Christmas trees on ships, and there was this particularly famous ship called the Rouse Simmons ship. and it used to carry thousands of trees and then in 1912 it had this very famous accident and it sank so it was carrying 5,500 trees from Michigan to Chicago across Lake Michigan
+
+[00:22:12] and it was captain by this guy called Sherman who was so famous as a Christmas tree importer that people called him Captain Santa and he used to go he used to land in Chicago and he really like giving out Christmas trees to the poor and people who couldn't afford Christmas
+
+[00:22:26] what are you laughing? It doesn't quite make sense because Santa arrives after the tree has been sorted out. Basically, Santa doesn't bring the tree down the chimney. Maybe Captain Santa comes and sorts that out. Captain Santa's like Santa's boss. Yeah, exactly. Santa's just Lieutenant Santa is his full title.
+
+[00:22:42] They should give him his full title. It's very confusing, isn't it? That's so cool. So Captain Santa, yeah, used to do this. And then there was this awful. There's a storm that sunk the whole ship, and it killed everyone on board, and all the trees sunk. So for years afterwards, fishermen on Lake Michigan would catch huge Christmas tree. But what I quite like is, first of all, his business partner who would always wait in Chicago with him was called Claude Winters. Quite a nice normative determinism.
+
+[00:23:10] Wow. Yeah. And also Captain Santa Claude Winter. It's one letter away from Santa Claus Winters. Yes. Yeah. Okay. Anyway, just the other bizarre thing about this accident was that the Captain Santa left a message in a bottle when he knew the ship was in trouble.
+
+[00:23:26] And he corked it using the small piece of a cut pine tree. from one of the trees that was on board. And he left this message and it got picked up. And the message just said, everybody goodbye. I guess we're all through. Leaking bad, God help us. Leaking bad, that sounds like the new Netflix show, doesn't it? It's about the White House.
+
+[00:23:53] Okay, it is time for fact number three. And that is my fact. My fact this week is that U.S. military medics use longer needles than normal because soldiers are often too buff for the regular ones. I think this sounds like a boast by the American Army. Yeah, it does, doesn't it? You should see the size of our condoms.
+
+[00:24:13] It's just a bit too convenient. That is a common thing, isn't it, in armies that they send, like, enormous condoms. We saw Jimmy Car the other day, and he told us that story about Churchill. Oh, yeah. There was a gun where they had a sheath kind of thing put over it, and it was made by Jurex. And so it was like a condom, but it was the size of a machine gun. It was to stop the gun jamming or freezing in cost of conditions. And so what they did was they got a big consignment of them.
+
+[00:24:41] And then Churchill supposedly said, well, let's label it British condoms small. So let me give you a bit of background of where I got this fact from. I'm reading a really good book called Grunt by Mary Roach. And she went around looking at all innovations going on in the military and classic Mary Roach investigation finding out very much what we love, you know, the quirky facts about certain things. So this book's military and she spent time with a bunch of medics and this was told to her that basically a lot of the soldiers are so muscular, particularly around the pecks and they often need to give them injections when they're out in the field for collapsed lungs.
+
+[00:25:20] And they were finding in autopsies when they were doing it later because in autopsies, they all get an autopsy. Any soldier that dies gets an autopsy. When they were going to check out the collapsed lung and putting the needles in, none of them were reaching. And they thought, ah, this is no use for the field. So needles, I don't know if it's all the needles, but certainly there's a lot of needles
+
+[00:25:39] that are extra large long needles. That's amazing. Yeah. They also have to make bigger needles for obese people, I think. Do they? Right. They did a study with some obese people. They put the needles into their buttocks.
+
+[00:25:53] to see if the stuff would get to the muscles and they found that in less than a third of the patients what they injected was getting through to where it needed to be. So they need to start making needles which are now longer for obese people as well. It's terrible if you've got a fear of needles. Yeah. Although, so a good way of combating a fear of needles
+
+[00:26:13] has just been developed. It's never have any Western medicine. Is that it? Because if you get acupuncture, you've really got it to learn. No, if you've got a fear of needles, the scientists have developed this thing, which is a pill that's covered in needles that you swallow and that injects you from the inside. What?
+
+[00:26:29] And that's to get you over it. And this is really cool. So I think this has been tested. It was tested on pigs the last time I read about it, but it might have been updated and it was to administer insulin. And basically it's these little pills and they cover them in tiny needles and then they have an outer coating of the pill. And when the pill gets into your stomach, then the outer coating of the pill dissolves.
+
+[00:26:48] And all these tiny needles prod the lining of your stomach and they administer the drug straight into your bloodstream. But do you have to pass the needles out later on? I think so, but we're talking like one millimeter, less than a millimeter. I don't know. That still sounds painful. Maybe they dissolve. Maybe they do dissolve.
+
+[00:27:06] Maybe they're really tiny. Well, okay, here's a less painful one if you don't want to swallow needles. This is used. I don't know if it's, if it was, this is just the trial I was reading about, but they definitely have developed this and it has been used. So instead of having a morphine, needle, let's say, in order to numb you, you can instead now have a lollipop.
+
+[00:27:28] Wow. Sticking into your... No. Yeah. That sounds like it'd be more painful than a needle in many ways. Yeah. I would rather have morphine if I were in pain than a lollipop. Well, interesting.
+
+[00:27:38] On any day of the week, I'd rather have morphine than a lollipop. Interesting. It's not your classic lollipop, obviously. It's, they call it the fentanyl lollipop. And it's basically the drug. So it's got a drug in the lollipop. You eat. it and it absorbs through the tongue and the mouth and that's really fast apparently so it spreads
+
+[00:27:58] really quickly and they can also tell when you've had too much so because you're sucking because you go those hand them exactly because if it does go into you know it's a painkiller it first goes into your tongue it's going to be like at the dentist isn't it where you can't talk yes exactly yeah it must numb numb your tongue but they can obviously if they see that enough of the drug has been put into the patient they can stop putting more by simply just just taking the lollip away yeah that And then you're just going to be crying. Because there was that, there was an art installation once
+
+[00:28:29] of a guy who gave babies lollipops and then took them off them and took photos of them crying. Oh, yeah. That's quite controversial. Well, insurprisingly. Unsurprisingly. Have you heard one of these lollipops? Yeah.
+
+[00:28:45] Do you know where the word syringe comes from? Syrinx's thing in a bird. which makes it like a larynx. Oh, it is from the word syrinx, but I didn't know that bird thing because Syrinx was in Greek mythology. She was, no, he, no, she. Syrinx, she was an imp.
+
+[00:29:06] And she was being chased by the god Pan, right? And then she disguised herself as some water reeds. Okay, clever. But not clever enough, because Pan then chopped the reeds off and blew into them to make a whistling sound. And that's where he got his pan pipes but it's also where the word syringe was taken from
+
+[00:29:26] because it's a long thin tube of something. That must be where the syrinx of or a syrinx of a bird comes from because it's the whistling sound and that's what they use to make their tweets. That's so cool. I have some things on muscles. Oh, cool, yeah. So there's a guy called Zhang Jingquan in China
+
+[00:29:45] who holds a world record for pulling the largest vehicle by pressing a rice bowl onto his abdomen. nominal muscles creating a suction and then attaching it to a vehicle and pulling it. How large was the vehicle? It was 3,305.5 kilograms and he pulled it for 10 meters. Wow. Just through suction that adhered? It adhered to his muscular abdomen.
+
+[00:30:11] I would have thought that they would always, because you're not flat enough to be able to, for the suction. That's incredible. I'm really impressed by that. That's incredible. Yeah. I think he did it to impress people. It's worked like a trial It's half worked I'd say Anna
+
+[00:30:26] And then it's worked on you I'm not impressed You're not impressed He's pulled a three-ton vehicle Using suction on his abdomen I think that's a very bad way Of trying to pass your driving test I think if only he did
+
+[00:30:40] I told you he wasn't trying to do that He was trying to impress people Oh I see Well he hasn't done that either Okay Did you guys know One fact about the US military Yeah sure
+
+[00:30:49] And their pens do you know they all use the same pen? Just the one pen. They're sharing this. Sorry, General McMaster's got the pen today. Do you mean pen as in a thing you write with are that you keep animals in? Yeah, the pen they write with, it's called a skill craft pen.
+
+[00:31:11] It's the same company that's been making their pen since I think the 1920s. But apparently every American listening will apparently know what it is. It's used in war zones. It's designed to. to fit into US military uniforms and apparently... It's designed not to be so impossibly large that it doesn't fit into a normal human pocket.
+
+[00:31:30] All right, yeah. So they've got this pen that fits snugly into their uniforms specifically designed that it can do that. It can stand in for a two-inch fuse. Apparently it's designed for that. I don't really know how a pen does that. What? It comes in handy during emergency tracheotomies,
+
+[00:31:47] which I think a lot of things can do that. No, pens can't do that, you know? Oh. Oh. Yeah, there's a study done and actually most pens are not suitable for trachyoptimies. Well, guys, you better get the skill craft if you feel like you're going to need one. So is it where you put a pen, okay. You'll see it in, yeah, you'll see it in movies sometimes.
+
+[00:32:02] Someone's choking and then someone goes, ah, I'm a surgeon and here's a bireo and I'll stick it in your neck and you can breathe through the pen kind of thing. But anyway, if you're ever in that situation, it probably won't work. Oh, but it would be quite a sad. Yeah. Unless you have one of these special skill craft. Exactly. Anyway, more legends about this pen. So the main thing about it is they're all manufactured by blind workers.
+
+[00:32:25] So it was set up, I think, during the Great Depression, as a way of giving work to people who would otherwise find it really difficult to find work. So everyone who works in the factory who makes this doesn't have sight. And there are 16-page specifications for exactly what the pen has to be able to do. It needs to be able to write continuously for a mile and in temperatures of up to 160 degrees and down to minus 40 degrees. All quite important for.
+
+[00:32:49] the army if you've got secret messages that you need to get. I don't know when you're going to be in the army and you have to write a line that's a mile long. Well, maybe you need to show your troops the way to the nearest base. Yes. And it's a mile away. Wow. It sounds amazing. It's surrounded by legend.
+
+[00:33:07] Apparently the length of the pen is equivalent to 150 nautical miles on Navy maps. And that makes it easy for people in the Navy to navigate because they use that pen and they know that that equals 150 miles. on the map. Sure. I mean, they could just look at the scale of the map, I guess. But sometimes... Because 150, if it was 100, I could see that almost, but 150 isn't that round a number.
+
+[00:33:28] Do you know what I mean? But they need to stay quite mentally alert, so it's important to test their math skills at the same time. But presumably they're two inches long, because they can be used as a two-inch fuse. Yeah, maybe there's a bit that's detachable. Sure, but actually two inches is quite a small... 25 centimetres long,
+
+[00:33:46] and that obviously would fit snugly inside the average soldier's uniform. five centimeters is about that long, which is a short pen. It is. It's more like a labrooks pen or an Argos pen. Yeah. So they're not that short. Right. It must be a detachable bit.
+
+[00:34:04] Okay. Okay. I just thought I wanted to know about the skill craft pen. It's great. It's great. I have one more thing about needles. So you know how mosquitoes bite you? Yeah.
+
+[00:34:14] Yeah. They've got six different needles. which I didn't know. Really? Yeah, so they have this really complicated multi-part drill bit. So they have two which drill through the skin, right? They have two more which hold the edges of your skin apart. And there's a fifth one which drops saliva into you
+
+[00:34:33] to stop your blood clotting. And then there's the sixth one which actually sucks the blood up. Wow. But that's not even the cool thing. The cool thing is, how much volume would you say, a mosquito can fit inside it? Well, the hand gesture you're making is about large melon size. Okay.
+
+[00:34:49] So I would say it could fill 50% of its body. 50% of his body. Okay. Four year old child. Okay. So if you look at ticks on pets, then they get about 1,000% of their own body worth. Well, here's the thing. Mosquitoes can fit 10 times as much blood into them as the size of a mosquito, not through swelling up.
+
+[00:35:17] Wow. What they do is, as her gut fills up, the female mosquito separates the water in the blood she's sucking up from the actual red blood cells. And she squeezes the water out of her bottom so she can fit more red blood cells, which is the good stuff that you can get. So does that mean that when a mosquito's biting you, it's also pissing? Well, it's your blood, though. It's the water from your blood that it's increasing. It doesn't matter when you're urinating, it doesn't matter. It's like, though, this isn't urine because I was drinking orange juice earlier.
+
+[00:35:47] right? Yeah. It's orange juice officer. It's just orange juice I'm pouring away here. Please turn to rest me. Also, at that point, is it a mosquito with blood in it? Or is it a lot of blood? It's... With a mosquito around.
+
+[00:36:03] It's actually both. Is it? Yeah. Okay, it is time for our final fact of the show, and that is Chisinski. My fact is that if you drew a dot in indelible ink on your eardrum, it would appear on the outside of your ear within a few weeks. Are you using the skill craft pen? So beloved by the US Army.
+
+[00:36:27] Yeah. Also, I was just thinking the skill craft pen would be good if you wanted to put it in the cloaca of chickens. Specifically designed to fit in the chicken cloaca. Yeah. And in a human ear. And also a chickens cloaca, if you put it on a map, it's exactly 150 kilometers. If you don't have your pen.
+
+[00:36:48] God, it messes up the map. So how's it work? What do you mean? This is amazing. What in the ear? So the way the eardrum works is that the skin grows outwards in a spiral because it needs to carry dead skin out away from the eardrum and then to the outside world where it falls off. And so it grows at about the same rate as fingernails, I think. What?
+
+[00:37:09] And so the skin starts off in your ear drum and then it's carried out, picks up earwax, picks up all the dust, transports it outside the ear, falls out. Same speed as continents move. Oh, yes. Because they always say that's the same as a fingernail, don't they? I do. Wait, so, and also it's a bit like a conveyor belt system. Exactly. It's exactly like conveyor. And is all the skin on your body, does that originate in the ear? Or does it start? Is there a barrier where it stops growing outwards? If you drew a little dot on your eardrum, then it just moves around the body.
+
+[00:37:43] You'd have it if you want to get a tattoo very slowly. How did you get that? I'm not a tattoo. saying that the body is built from the ear drawn out. It just falls off and you leave it behind. But it must fall off at a certain point. Yeah. How far out of your ear before it falls up?
+
+[00:38:00] On your foot. At the end of the big toe it falls off. That's why your socks were always full of loose skin. With dots on them. Yeah. That's right. No, just actually, most of it is reabsorbed actually. I think
+
+[00:38:15] most earwax is reabsorbed back into the body before it reaches the outside. So I'm confused about this because obviously you get earwax in the ears and this is related to the eardrum. Is it produced at the eardrum? Earwax? But ear wax is actually mostly dead skin. Yeah. It is.
+
+[00:38:31] Okay. That's what was confusing me because, yeah, I didn't know what it was made. So it's got this kind of waxy stuff but it's basically the big mass of it is bits of dead skin from your ear drum. So it's produced by these glands inside your ear, which I think are in the sort of outer ear. So the dead skin spirals up a bit and then picks up. the sticky substance from these glands and it's got like fatty acids in it, it's got cholesterol in it,
+
+[00:38:54] other fats and it also has alcohol in it. So I really wanted to find out what the exact alcohol content of earwax was and then work out the equivalent of a pint. Yeah. How much earwax would you have to eat before you went over the legal limit? Yeah.
+
+[00:39:08] Poor policeman who pulls you over. You just got a mouth full of earwax. You know those medical trial things that people go and do to test things out? Imagine being that the gig you get. How much would they have to pay you to agree to eat enough earwax to get you drunk? Well, we don't know how much it is, you see. For all we know, it's just like one little tiny bit of earwax is enough to put you over the limit.
+
+[00:39:31] Let's say a shop glass full of ear wax. Right. Well, I will negotiate, but I'll start at 10,000. 10,000? I'd do it for probably a tenor. Come on. What? I was going in the other direction.
+
+[00:39:45] Too late, we've agreed that my one's the one. Okay. Martin Cana's currently leading the bid at the moment. I reckon we can crowd fund 10,010 pounds. And then you can both do it. So Japanese mothers clean out their kids' ears with these ear rakes. They're called mimicaki. And then when Japanese people grow up, they really like the feeling of it.
+
+[00:40:10] And so you get ear salons where you go and you pay quite a lot of money to go and have your ears cleaned out. Same kind of thing. But the thing about this is, if you start, which all of you would have read, when you start looking up earwax and ears, there's not a single medical professional worldwide who doesn't say straight away, do not put anything in your ear. It's really, really bad for you.
+
+[00:40:28] Yeah, but then weirdly, we're all putting our fingers in our ears while we're talking about this. Yeah. I mean, you just did it then. I put my finger in my ears whenever any of you talks to me. I wonder if people listening to this
+
+[00:40:39] are also putting their fingers in their ears and it's a kind of thing that you just automatically do, like, you know, some kind of social things that are catching. You know, like a yawn kind of thing. Yeah, I bet. I spoke to a doctor once.
+
+[00:40:53] He said you should never put anything smaller than a corsette in your ear. And the thing was, obviously, you can't fit one of those in, but you shouldn't put anything else in. Right. That is exactly the case. That's probably true of most, like, holds in your body. You shouldn't put anything smaller than a corset in. Yeah.
+
+[00:41:10] A couple of years ago, they found a cat abandoned in Norfolk, right? Some people found it an abandoned cat, and it had three ears. Really? And... Were they all belonging to it, or had it just... It was just eating and mounts as it. It had this extra ear on its left-hand side in front of its other ear.
+
+[00:41:28] Can you guess what they consider calling it? Oh, um... It's really good. Okay. Ear, kitty, kitty. That's very good. That's very good. Ear kitty, kitty, kitty, surely.
+
+[00:41:41] Yeah. Well, no, it'd be ear, ear, ear, kitty. Shall I tell you? I'll tell you what they called it and then you see if you can guess why. They thought about calling it Captain Kirk. Okay. Because he had a wild frontier or something.
+
+[00:41:59] There's an old joke, isn't there? Where do they go in Star Trek? The final frontier? The final frontier. The final frontier. And they considered calling it that and then they called it Brian. After three-yeared Brian.
+
+[00:42:14] Was that the worst? Handbrake turn on the name. Speaking of cats, in 1968, New York vet Robert A. Lopez wanted to discover whether it was possible for the ear mite, which you're getting cats, to infest humans. So he removed some mites from a cat's ear, mix them with his ear wax, and then introduce them into his ear. And it turns out they can infest people's ears. Really hoping for a know in this study. So it was extremely painful. You know, it was loads of sounds in his ear all the time.
+
+[00:42:54] They travelled deeper into his eardrum and they got louder and louder. By the third week, he was completely deaf in the ear. In the fourth week, the mite activity was 75% reduced, which is good. But he could feel the mites crawling across his face at night. On the inside or the outside? across the yeah outside of his face probably trying to find
+
+[00:43:18] the new ear and so he finished that and then did the experiment two more times with his other two ears and found that the effects diminished which he said that maybe his body found an immune
+
+[00:43:35] reaction against the mites that's good so there are two ways of avoiding suffering from cat mite infestations either infest yourself repeatedly or just don't do it in the first place. There was a woman who, she had a spider in her ear, didn't she? She had a live tarantula in her ear.
+
+[00:43:51] You're thinking of the nursery rhyme, I think. Yeah. Because it was the fly first. There was an old lady who put a fly in her ear. I don't know why I. Now she can't hear her. No, there was. There was a woman who had a live tarantula removed from her ear.
+
+[00:44:06] She inserted the corgettes to get rid of them. Okay, that's it. that is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland, Andy, at Andrew Hunter, M, James, at Egg Shaped, and Anna. You can email a podcast at QI.com. Yep, or you can go to our group account, which is at QI podcast, or go to our website. No Such Thing as a Fish.com. We've got all of our previous episodes up there. We have a link to our tour, which is happening in October and November, and we also have a a link to our book, the book of the year, which is coming out in November. Check it all out. We'll be back again next week with another episode. We'll see you then. Goodbye.

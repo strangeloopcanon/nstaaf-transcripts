@@ -1,0 +1,333 @@
+# No Such Thing As A Fish - No Such Thing As Lemming Atlantis
+
+- Episode date: November 11, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-lemming-atlantis
+- Slug: no-such-thing-as-lemming-atlantis
+
+## Transcript
+
+[00:00:00] Hi everybody, just before we start the show, we have a dreadfully exciting announcement to make. That is right. The announcement is there is a new book out from QI Towers, The Mother Firm. Now, if you're familiar with a book that we published a little while ago called Funny You Should Ask Again, which was a book of questions and answers all based on the elves appearances. We all appear on Zoe Ball's Breakfast Show on Radio 2. That was a book stuffed with questions and answers. And this new one is the souped-up enlarged red-hot edict. edition, which has even more questions and answers, it is called 2-2-2-QI answers to your
+
+[00:00:36] quite ingenious questions. All right, you've got any examples of these so-called ingenious questions, Andy? I've got so many, Anna. Can dogs tell the time? If Rome wasn't built in a day, how long did it take? Why do songs get stuck in my head? Where is last Wednesday? There you go.
+
+[00:00:51] So, we're not going to tell you the answers to any of those questions that have spouted from listeners and QIL's bizarre minds, because you're going to have to go out and get the book to find out it's peppered with interesting facts throughout as well. It's called 222 QI answers to your quite ingenious questions available in any good bookshop or on the interweb. So do it now. That's right. And in fact we have another exciting announcement to make, which is that QI, the mother show, is returning. Today, the day this episode goes out, which is Friday the 11th of November. QI is coming back to BBC 2 at 10pm. The new series is the letter tea. That's right. And of course, if you don't happen to be free tonight at 10pm, there's this
+
+[00:01:34] news thing called iPlayer, where you can catch up on it. It is based on the research that we churned out over about five months, all of the Koi elves on everything beginning with tea, from trash to teeth to tunnels to tits, to, by the birds, obviously, to toast. It was a really, really fun series to do. Hope you enjoy watching it. Okay. And now, without further ado, on with the show. On with the show. And welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver, I'm sitting here with Andrew Hunter Murray, James Harkin, and Anna Tyshinsky. And once again, we have gathered around the
+
+[00:02:32] microphones with our four favorite facts from the last seven days, and in a particular order, here we go. Starting with fact number one, and that is my fact. My fact this week is that Not long after Benjamin Franklin invented the lightning rod, it took off as a fashion. A lightning rod's very tall metal objects. Yeah, and very sexy when combined... You could dance around them, I suppose. Exactly. Yeah.
+
+[00:02:59] Now, this was in Paris in 1778. If you were walking the streets of Paris, you would have seen women with lightning rod hats. So this is a hat that would have a sort of protruding rod. As far as I can see in the drawings of the time, they might dress that up a bit with a bit of sort of floral stuff going around. Yeah, something to disguise it. But what you didn't really disguise was the big chain
+
+[00:03:21] that came out of the hat that ran to the ground so that should you be struck by lightning, you could then ground the lightning via this big chain. Umbrellas did it as well. So you had an umbrella with a giant lightning rod on top. How long do these women tend to survive during thunderstorms? We don't know. They all went out and never came back.
+
+[00:03:38] The interesting thing is, like, Was there any use for it, do you think? Do you think they deliberately had them to try and get the lightning away from this? Yeah, yeah. I think, no. Or is it just for fashion? Well, I think, you know, if it functioned as it was meant to, then yeah, absolutely. They wanted it to function, definitely.
+
+[00:03:55] No, hang on, if you were hit by lightning wearing one of these rods, which... It would work. It would ground it to the ground. It's just, I think it should work. It just that it would probably be too close to you. You'd die. You would die. Yeah, yeah, yeah.
+
+[00:04:05] If your hats had this and then you had a Faraday cage all the way around you, then that would save you. I've seen the pictures and it didn't. Maybe your sedan chair was a Faraday's sedan chair and then you're laughing. I've got to say, I empathise more and more with the French Revolution hearing what was going on in Paris in the 1780s. You know, I think that's pretty extravagant, outlandish stuff. I don't think this was to do with Franklin, by the way, but I think it was his specifically the French Benjamin Franklin. It was his translator who then turned it.
+
+[00:04:36] So he was a guy who was a botanist, a physician, and he was called Jacques. and then he has two French names after that's how they go Babur de Bourg Yeah, that'll do Yeah, looks good to me Jacques Babir de Bourke And he was a physician
+
+[00:04:51] Bromis, Rattor, translator Are you gonna do the rest of the book? Are you gonna do the rest of the book? Because he was the guy who translated all Franklin stuff into French, didn't he? Yeah
+
+[00:05:01] And because he was friends with Franklin he was also supposed to go to America and then be kind of you know helping the revolution in a way, but he never went because no one liked him. Oh, really? Well, like he asked the Americans, do you want my help? And they said, we're okay.
+
+[00:05:18] Well, they were between a couple of different people, and he was really brash and people weren't really sure about him. So he never got to do that. That's tragic. That is, my... But thank God, because otherwise he might not design this umbrella. Yeah, and the UK might have still owned America. And, oh, well, on that, the America project thing,
+
+[00:05:38] I have a fact about George the Third, related to this. And Benjamin Franklin, because they had a disagreement about lightning rods. Guess who was right, George the Third or Benjamin Franklin, considering the scientific backgrounds of the two guys? So one of them famously mad. One of them, one of the greatest scientists who's ever lived. Yep. And a fashionable guy. And a fashionable guy.
+
+[00:05:58] I guess you wouldn't be asking us if it wasn't the... No, exactly. George the Third was right in their disagreement. So Franklin thought that lightning rods should be incredibly sharp tipped at the top. sharp tops. George III said, no, I want blunt ones. And he fitted the palace with blunt ones. And he was right, they are more effective at earthing lightning.
+
+[00:06:17] Okay. For the reason that the field above blunt rods is stronger, and I think that means it intercepts lightning more. It helps to draw the lightning down. So actually I didn't know that lightning rods were to stop lightning happening. Not the secondary purpose initially was to ground it, but the primary purpose, according to Franklin and his people, was stop it happening by this sharp rod,
+
+[00:06:37] attracting this charge, so dissipating it before it all built up in the cloud. But it turns out that it's just not nearly big enough a field, so it doesn't really matter. So yeah, George III was right. You can have a knob. Have a door knob. So another thing about the bulbus versus the spike, right,
+
+[00:06:51] is that basically because Benjamin Franklin was, you know, one of the signatories of the Declaration of Independence, he was like a real patriot and he invented the lightning rod. Basically, this was a symbol of the new country. And so Britain did not like this upstart. having its new symbol.
+
+[00:07:08] And that was another reason why Georgia Third said that you had to put a knob on every single lightning rod in the entire empire. Do you think it was a bit of a sly, you know, Franklin's such a knob kind of gesture? Almost certainly. Really must have. Yeah, definitely that kind of way. That's a George the third move. Yeah.
+
+[00:07:26] Can I tell you something about Benjamin Franklin getting in trouble for inventing the lightning rod? So there was an earthquake at Cape Anne, which is off the coast of Massachusetts. Oh, yeah. And it was soon after the lightning rod was invented. And the pastor who was there was called Reverend Thomas Prince. And he said, the earthquake happened because everyone's been putting up lightning rods. Basically, man has been thwarting God by trying to, you know, harness the lightning or channel it. So God has reacted by sending an earthquake.
+
+[00:07:54] Well, his idea was, since God can't send down lightning bolts, kill us anymore, he's going to have to go from below instead. Exactly. And it's like, you don't, you're not showing much faith in your God. he'll be able to zap wherever he likes. But people were very anti, weren't they? Because of that, you know, you're trying to prevent God from doing his work. If he wants to strike you with lightning, he should strike you with lightning. And there was a big push among scientists to try and convert people to it.
+
+[00:08:19] There was a guy in Germany called Johanni Jacob Hemmer, and he was a big lightning rod advocate in Germany. This is in the 18th century. And he designed a cross-shaped one, which you can still see on the Mannheim Palace. And he had it so that each bit of the cross was detachable, so that whenever lightning struck any bit of the cross and caused a bit of damage, he would then detach it,
+
+[00:08:38] bring it down to the masses and put it on display to say, look, the lightning struck this and damaged it, but it didn't damage the building. So it must work. That's clever. Because what people thought was that, like Andy said, that maybe God was sending down lightning bolts to punish people.
+
+[00:08:54] But the problem is, the tallest building in most towns was a church. Yeah. Whereby the brothels were quite like that. and so if anything got struck by lightning it usually was a church and the brothels usually got away Scott's free so no one could really explain what the problem was that. Yeah, right.
+
+[00:09:12] The church's thing was an issue. There's another reason why it's good the lightning rod was invented because the way they repelled lightning before the rod was to ring loads of church bells. And so being a bell ringer was an extremely dangerous job. And they were often hit by lightning. I think many of them used to die because you'd be sent up to the church tower
+
+[00:09:32] to ring the bells when there was a storm when you're most likely to get hit and there was actually in 1769 there was a church in Brescia which was storing 100 tonnes of gunpowder in its vaults
+
+[00:09:42] for safekeeping and it got struck by lightning because of the church spire and it blew up a sixth of the city 3,000 people died Oh my God! I know! Unbelievable.
+
+[00:09:52] It has just started raining quite hard outside from where we're sitting all this god chat and then you've got a massive spike coming out of your head It's all the fashion, darling. The church bells, they had written on them or, you know, inscribed on them the words
+
+[00:10:06] Fulgara frango, meaning I chase lightning. Wow. And the idea, I think, was that demons would kind of send down the bolts, like God would send the demons and that bells would scare them away. Yeah. We have actually mentioned them before. How interesting, though, that they would go and ring the bells during the storms, because in my head, the wind was kind of doing that anyway. Oh, yeah. Like, I would always have thought this.
+
+[00:10:28] Maybe those big church bells aren't. too worried by wind so much. Yeah, yeah. So you can't get a good rhythm going, maybe. The wind's very bad at getting, exactly, getting the right beat. You can't get a Canterbury Peel, Vicar, pleasure going.
+
+[00:10:42] Whatever the first Canterbury pleasure, that's a bell ringing thing. Is it? The first Canterbury just sounds like a porn film based around the Archbishop of Canterbury. That's why I didn't say it. That's why I didn't say it, because I thought it sounds too weird, but I think it's a question from the very earliest QI episodes.
+
+[00:10:57] Right. You know. I was thinking it was what the wife of Bath did. Yeah. I read that they were also... A pretty dated joke there. Look, if I can't do jokes in the 40th century, what jokes can I do? In the age where Lightning Worlds were becoming fashionable and people were skeptical,
+
+[00:11:13] there was one really famous trial. And this was in 1783 in France. And it was a guy who'd installed a Lightning Rod on his house. He was like an early adopter, the first person to get an iPhone in the village. And the villagers didn't like it. They said, you know, God's not going to like that. We didn't like it. we don't believe it works.
+
+[00:11:31] And the alderman told him to remove it. And he hired a lawyer and took the ottoman to court saying, I'm allowed to keep my lightning rod. And they won the case, and he was allowed to keep it. And his lawyer was Maximilian Robespierre. The sort of one of the leading figures in the French Revolution. Responsible for a lot of heads getting chopped off. Lots.
+
+[00:11:51] Yeah. And he made his name in this case as the standout lawyer. Wow. This was 1783. But he didn't electrocute. And he actually saved maybe a lot of. lives by defending this guy's lightning road to compensate for the head shopping off. But you're saying he was like a planning dispute lawyer.
+
+[00:12:07] Everyone's got to start somewhere. Yeah, absolutely. Yeah, but he also loved physics. Like he was a science. He was like one of these, you know, men of the century and he really liked science. They called him the barometer when he was younger because he was so good at science. That's a cool name. I presumably knew what the weather was going to be like.
+
+[00:12:25] Always under pressure. Always under pressure. Yeah. I got another cool nickname for someone. So barometer, Benjamin Franklin's grandson, do you know, he was called? The thermometer. Lightning Rod Jr. Was his name.
+
+[00:12:41] Okay. What? Yeah, Lightning Rod Jr. Not his real name. His nickname. He was his grandson, right? Yeah. Okay.
+
+[00:12:49] You would think it would be Lightning Rod the third. Maybe his dad didn't want the Lightning Rod nickname and said, you know what, let's just hold this for my son. Yes. That's a cool. Do we know why? Does he like lightning rods? No, no, no. He was, I think he was a journalist.
+
+[00:13:03] I think he ran a magazine or a newspaper. I think possibly the nickname was a bit of a slur on him. But I am just riffing off. Because he attracted controversy. I like that. Could be. I like that. Could be.
+
+[00:13:16] Because he always used to sit on the top of people's houses. Yes, and he had a knob on his head. Okay. It's time for fact number two, and that is Andy. My fact is that every time the UK delays a decision on expanding Heathrow, the head of Skippol Airport in the Netherlands sends Heathrow a congratulatory cake to thank them for all the extra custom. Ouch.
+
+[00:13:45] I love it where you pronounced Heathrow two different ways there. I want to... Heathrow and then Heathrow. Heathrow. It's Heathrow, isn't it? It's Heathrow. I was so worried about how to pronounce Skipol. I forgot how to pronounce Heathrow.
+
+[00:13:58] This was reported in 2016. And so Skippel is the main Dutch airport. It's huge. It's really, really massive. And Heathrow has been having a debate for about 70, 80 years about whether it has a third. It's insane how long this debate's been going on. The third runway. Yeah, exactly.
+
+[00:14:15] And so Skipal keeps sending them cakes. I find this very funny. And they said it was to congratulate Heathrow with the positive advice of the airport's commission on London Heathrow's third runway. It's sarcastic. It's a sarcasm cake, basically, that they're sending. What kind of cake is it? Do we know? Well, they showed a photo of the last one they sent,
+
+[00:14:32] and it was one of those, it was a slightly fancy, you know, bake coffee cake. It looked like a flower, like a lay, if you were looking, Ariel shot over a flower, it's very beautiful. Really? Like a flower, like a beautiful, it looked like a cake.
+
+[00:14:45] It was different kind of cakes. Yeah, it was very pretty. Is there any chance we keep delaying this Heathrow runway decision because the people at Heathrow love this cake? It's very possible. It wouldn't make much less sense than anything else. But they've been doing it for years in 2016,
+
+[00:14:58] this year of this article, Heathrow finally sent their own cake back because of the approval of the third runway. So they said, thanks for letting us borrow your runway, Amsterdam. We shouldn't need it much longer. And then cakes on the way. Six years ago. That's hubris, I'm afraid. We haven't quite said this, I don't think.
+
+[00:15:19] But the reason that they're sending them this cake is because of the lack of this third runway means that the planes have to pit stop on a bigger journey at this airport. so they're bringing them business. Is that right? Do they? Okay. Because I didn't know that. I just thought it was maybe people couldn't go to Heathrow so they were going to Amsterdam instead, but that's not right.
+
+[00:15:38] It's a bit of both, basically. It's just a capacity thing. Heathrow uses about 99% of its all available capacity, which sounds great. But actually, if there was more space, there would be more flights going through there. So, yeah. So it's definitely advantage for them. Yes. Skipphole.
+
+[00:15:53] It comes from a word meaning shiphole. That's what they're. That's a real shiphole. Well, the reason it was called shiphole is because it used to be in the water, skiphole. In fact, there was a sea battle there in 1573 where the airport is today. That's so good. And that's because it's all reclaimed land. They basically, they wanted more land.
+
+[00:16:18] Obviously, it's the Netherlands. There's lots of kind of, a lot of the area is below sea level. So they created this massive steam engine and they sucked all. of the water away. That's great. It was the largest steam engine of all time when it was built. Was it?
+
+[00:16:35] That's awesome. The sup dry the airport? It was named after a guy called Nicholas Creek. Okay. And it was called the Creekwee engine. And they didn't drain the lake for the airport, did they? They just drained the lake to reclaim the land.
+
+[00:16:45] To reclaim the land and it became later on the airport. It's a really old airport. It's been used to a civilian aircraft since 1920. Oh, okay. Which is very old. And because of that reclaim thing that James just said, the runways are 11 feet below.
+
+[00:16:58] sea level. Yeah. So cool. When the airline, KLM, so that's the Dutch national carrier, isn't it? Yeah. Yeah. When they turned 100 years old in 2019, it was given a really cool salute the KLM flight arriving in Edinburgh.
+
+[00:17:12] Have you seen this before? It's when a plane arrives for a special occasion. It gets a water cannon salute. Oh, yeah, yeah. And it means that, so airports have these huge, powerful water cannons. It's like fire engines, basically, or water jets. And they fire them in an arc over the plane as it's a arriving.
+
+[00:17:28] That feels dangerous to me. I guess, but they used to rain on the thing. And it's sort of a nice celebratory art. And it's if a captain is retiring or if a plane is retiring or, you know, there are all these occasions where they have a lovely little water cannon saloon. You wouldn't want to do it at the Shippell Airport where it's sort of refilling the reservoir. Oh, yeah. Yeah, true.
+
+[00:17:47] Yeah. There was a thing on Shippel Airport website, which was, it was like frequently asked questions and things he might have wondered about. It said, you may have noticed a plane on fire while you were taking off from. shiphole, which I would have thought would be so terrifying and they need to make a bigger deal of this, but apparently it's nothing to be scared of is what we call our firefly, and
+
+[00:18:06] it's a plane which they regularly set on fire for the fire department. They claim it's used by the fire department for training every day, which I can't believe that they need to come every day to re-practice a plane being on fire. But there must be different crews from around the country and how many places in the country are going to have a... Every day, though.
+
+[00:18:24] You're right. It's a lot. It's a lot. It's suggested not getting it right. Okay, we'll do this again tomorrow, guys. See a load of clowns with a chain of buckets going to the plane. Skipple has, did you know this? It's experimenting at the moment with guard pigs. Okay.
+
+[00:18:41] Do you see this? Guarding from what? Well, exactly. Invasion? They did a terrible quiz. I wanted to create a bit of suspense. So last year, Skipold did this experiment with installing pigs. around the runways.
+
+[00:18:59] Real pigs. Real pigs. To scare away the geese. Or in fact, not to scare away the geese, but to eat the food that the geese love to eat. Because there is farming around and they grow sugar beet and geese love sugar beet. And so when they land there, eat the beet, then they fly off. They might fly into the entrance of a plane. That creates a big old problem.
+
+[00:19:20] And so there's a place called the Beetting Gawonga Vakens, Piggery, which translates as extraordinary pigs. Did they give up for the final word? We'll give up segment in our own language I just go to English God our language is hard It's so hard to say Just put piggery
+
+[00:19:41] Yeah But they're a piggery which regularly Hires out pigs for various purposes Mostly to eat stuff Which people want to eat and Very gig Because you never hear about pig strike With planes do you
+
+[00:19:53] You never do No pigs don't fly No I've got some cool stuff about airports, which are neither Skippole or Heathrow. Okay. Would you like to hear a fact about Moss or golf? Golf? Mos please.
+
+[00:20:11] Moss please. Yes. Wait, no, but you'd get a vote too. I don't think so. Pittsburgh International Airport. They have a place called X Bridge, which is an innovation center. And in there, they have a giant sea moss. air purifier, which does all the air purification in the whole airport.
+
+[00:20:32] Cool. So what you're breathing? It holds 125 gallons of spirulina algae, which is also known as sea moss. And this seamos takes in the CO2 and it kind of works it through its body and then sends out the oxygen. Oh, clever. Amazing. Isn't that? So you're breathing in that, yeah, the moss has breathed it out.
+
+[00:20:51] The se moss has breathed out and they're breathing out. That's nice. That's a filter. That's awesome. Yeah. Like having a Brita filter. Yeah. That's wicked.
+
+[00:20:57] Golf? The thing is, you know that we have to ask about the golf now. It's a trick question, wasn't it? Yes. It was great. So there's an airport called Don Muang International in Bangkok. It used to be the main airport in Bangkok until another one opened quite recently. But it has a full golf course between two of its runways.
+
+[00:21:17] So you're playing golf and there's planes literally taking off on your left and on your right. You have to pass through security before you get to the golf. course. So you have to take all your clubs through the metal detectors and stuff like that. Is there a golf test? As then I'm bad enough at golf that I can imagine myself accidentally, you know, walloping a 7-4-7. Yeah. Hitting it out of the sky. How hard are you hitting that ball then? I'm arguing, I don't think you would, if you've never played golf before, you wouldn't be able to do that. So you have to be good enough to be able to hit it a long way, but bad enough that you hit it in the wrong direction. But actually, one of the people who plays there said, in theory,
+
+[00:21:55] you could hit one of the aircraft, but it would have to be a very deliberate act. Okay. Yeah, yeah, yeah. So you basically have to turn in a different direction that you're supposed to be playing and just whack the ball at it. But then it also said the article I read that, you know, a jet engine, it's kind of designed to hit geese and, you know, birds and stuff like that. So little golf is not going to hurt it anyway. Right, that'll just be crunched up. It's a weight of effort, Andy, for you learning how to play golf really well.
+
+[00:22:21] Moving to Bangkok. Yeah. Yeah. There's another airport near Heathrow called Northolt Airport. Northall's a very small airport. It's more like an aerodrome, really. And they used to have a gasometer in front of Norfolk Airport right next to the runway. Gasometer is like a huge sort of cylinder that keep natural gas in.
+
+[00:22:45] There was also one right next to Heathrow. And people used to use these things to guide their way into Heathrow Airport. And so one time in 1960, an airplane who thought they were landing Heathrow accidentally landed in Northolt. Oh, God. Okay. It's only like a bus ride to get back to Heathrow. So they got off. The passengers got off.
+
+[00:23:06] They realized very clearly they were in the wrong place. So the passengers all got the bus back to Heathrow. No problem. Okay. However, it's one thing landing a plane in Northolt Airport. Another thing taking off because you need a certain length of runway in order to take off. Yeah. And Northolt did not have a long enough runway.
+
+[00:23:24] Oh, my God. So there was no way to get the airplane out of Northall airport. Yeah. Did they still drive it down Oxford Street? What happened? Well, what happened was a maintenance team came along. They removed all of the seats, all of the carpet, anything in the cabin that they could get rid of,
+
+[00:23:42] pretty much all of the fuel, apart from the tiny amount they needed to get back to Heathrow, and managed to make it just about light enough that it would be able to just about making it for that thing. The calculations are extraordinary when it comes to that. Apparently, the captain was immediately fired by Panam once he got it back. Fair. I don't know if that's true.
+
+[00:24:01] But probably not fair because it happened two more times after that. So that was the first time it happened. And two times after that, airplanes landed in Norfolk when they should have landed in Heathrow. And in the end, what they did was they painted letters on these giant gas canisters. Go away. The NH was painted on top of the one next to Northolt. and LH was painted on the one next to London Heathrow.
+
+[00:24:24] Why? I know. For the age of both. It's so stupid, isn't it? They painted one of them blue, and the other one wasn't painted blue. It feels like you could have done more. Like, it's not tinsel there, do anything. Do you know the airport that was the Heathrow before he throw?
+
+[00:24:41] Galwick. Croydon? Croydon, yeah. And Croydon Aerodrome has quite a cool history. So it was the UK's first international airport. It was 1920 until basically. Heathrow became the big deal in 1946 and it was like
+
+[00:24:55] that's really exciting 1920 passengers would just come for the sake of seeing it. It had a five-star restaurant up the viewing tower so that people could sit and watch planes take off. 1928 was the world's biggest airport. God's good old Croydon. Is it still there
+
+[00:25:11] in its shape? It's obviously not an international airport. It was eventually decommissioned. I think it just about went on until the 50s. But there used to be so many checks. If we think it's rough going through security now. In the 20s, if you went to Croydon Airport, before you departed, you were assessed by a customs officer, normal, and then you went to an exam hall. And you were in your pants. And he didn't know what any of the questions were going to be. And you were investigated by the
+
+[00:25:39] criminal investigation department and then an immigration officer and then a medical officer. And then you were weighed. What? For the plane's distribution of waste. I've been weighed before getting that. on a plane before. Yeah, small planes, I think. Yeah. Wasn't that where you were told that you had to know all the different times?
+
+[00:25:56] Have I ever said this on this? No, sure. But yeah, I did get a plane once. Where was it? Maybe in Hawaii or somewhere, or somewhere like that. But yeah, it was a very small plane and they made me move
+
+[00:26:06] to balance out the aeroplane. And I thought that was a bit insulting, actually. It was only supermodels and children, wasn't it, on the rest of the plane? Okay, it is time for fact number three. And that is James. Okay, my fact this week is that in the 16th century, hundreds of lives in Portugal were saved by a special sausage. It must have been a very special sausage. So this is 16th century Portugal. The Spanish Inquisition has been going on for a while in Spain, especially, hence the name. I actually began in Italy. But it has gotten to Portugal. And basically, if you're Jewish or Islamic and
+
+[00:26:53] you claim to be a Catholic, but you're not really, then they're going to try and find you out, and they're going to try and try and burn you even. But one thing that would identify you as a heathen would be a lack of sausages by your front door, because people used to hang their sausages to dry out. Yeah. And the sausages would often contain pork. And obviously, if you were Jewish, for instance, then you wouldn't eat pork. So you would not have these sausages. So what can you do? Well, you can get a decoy sausage. This is according to a book I was reading called Gastro Obscura. And they wrote about this thing called an Alhira sausage.
+
+[00:27:34] And it was made to look exactly like one of these pork sausages, but it was actually made of chicken and bread. So clever. So it was a fake pork sausage, and it saved people's lives because the Inquisition couldn't find them. Food-wise, it must have been a very rough time because of these Islam and Judaism have very strict rules about pork and shellfish and rabbits and other things.
+
+[00:27:54] And so there would be some village feasts in Spain and Portugal where they would serve up paella, paella, paella. Paella. Paella. And they would add mussels and pork. And then they'd watch and see who said, oh, I don't want any paella, thank you. And then those people will be on the suspicious list for being inquisited. And it was very, so Jewish people who were the majority of the victims, really,
+
+[00:28:17] in the Spanish Inquisition, I think. Jewish people did have to practice Crypto Judaism for a very long time which was concealing I know it sounds more exciting than I think it was They just bought everything with Bitcoin so ahead of their time because a lot of Jews had fled to Portugal
+
+[00:28:34] from Spain when they thought the Spanish Inquisition would just stick to its namesake and then it came to Portugal and so they did things like they wrote Hebrew prayers but in Catholic prayer books and I think in the Roman alphabet and so people wouldn't know they would observe their
+
+[00:28:49] like pass over in Yom Kippur, but a slightly different days so people wouldn't catch on. And they, yeah, they all hung these sausages. Yeah. And there was this amazing story that one community was found in Portugal in a little place called Belmonte in 1917, which had kept its faith completely secret since the 1490s. Wow.
+
+[00:29:09] Whoa. It's been crypto-Jewish since then. That's like that Japanese soldier, isn't it? In the Sakamabar War. Yeah. All of you kept fighting until 1975, I wonder if it was. Heru something on order. Because a lot of it was food related,
+
+[00:29:22] it meant there was a high proportion of women who appeared before the tribunal in the Spanish Inquisition because of course they did a lot of the cooking. And when you look at the wordings of people being tried, they're quite often active. So it's like you prepared this food, you know, you lit these candles, you did this.
+
+[00:29:40] Whereas the men who were tried were often like you allowed yourself to eat this food. You know what I mean? The Tetris. It was Eve's apple all over. again, isn't it? I was a bit of that, I'm afraid. Well, I wonder as well with the Jewish tradition of, let's say, children born to be Jewish,
+
+[00:29:56] it's through the bloodline of the mother as well, isn't it? So I guess they're more prime target as well. That's true. But a few other things, like basically cooking a really big meal on a Friday was a shore fire. You must be Jewish. Because the Sabbath. So, even if you just were hungry. It's hungry.
+
+[00:30:15] Just hungry on a Friday. You often are a long working week. I know. and also cooking with olive oil and the reason is that olive oil was a lot more expensive than like lard or pork fat but obviously Jewish people couldn't use the lard or couldn't use the pork fat
+
+[00:30:30] so they would use olive oil and that was supposedly a sign that they were to be tried so many rules kuscuscus was also a danger food was it seen as being more Islamic you know as a sort of North African brain if you yeah it was introduced by the moors when it was all the moorish
+
+[00:30:47] Yeah. It's very morrish. If you refuse to eat a conga eel, trouble. Really? Yep. If you... Whenever you hear conga eel, you do just think of a bro of eels, don't you. They don't have many legs, how do they do it? Exactly. Refusing to eat a strangled bird. Okay.
+
+[00:31:06] That was apparently a worrying sign or, you know, a sign that you might be secretly Jewish because apparently there are rules against strangled birds. I see, right. I didn't know that. Specifically strangled? Specifically strangled. Really? It could be decapitated or boiled alive. There's an old, old QI fact, which is quite possibly one of my favorites, which is that everybody
+
+[00:31:27] expected the Spanish Inquisition. They were required to give you 30 days notice. Was part of the 30 days notice, the idea that there's a sort of printed menu of things that you would be expected to, like, how much did they help out people to, because as they say, and I have to say, I don't know much about the Spanish Inquisition, and a lot of what I've read to prepare for this fact has been really kind of. kind of like they were actually really polite and yes, 5,000 people were killed overall, but actually they were dissolved in 1834, which is an incredibly recent time for when I would
+
+[00:31:58] think about when the Spanish Inquisition was, but it was a period of hundreds or hundreds of years that they insisted for. 5,000 deaths over 400 years. It's still a lot. It's still a lot, absolutely, but it's not yet. The figures are so disputed. Yeah, some people say that, you know, tens of thousands or hundreds of thousands were killed. Yeah, okay, yeah.
+
+[00:32:15] Exactly. So it's really hard to know. And then all the accounts are sort of saying what they didn't want to do was kill you. What they really wanted to do was change your moral compass and make you more Catholic and make you believe more religious. There's so much that then say they're really brutal. Yeah, I mean, obviously forced to conversion. And it was also forcing people to leave the country if they refused to convert and things like this. They used to have proper, they made a proper big thing of it when they burn people.
+
+[00:32:42] The Inquisition. They didn't sort of just sort of keep it quiet. They wasn't just slip it under the carpet. it, don't want to make a big deal. It was very attention to you. It was the auto de fe ritual and you, and this is when the people who have been sentenced were paraded through town and you'd go and look and
+
+[00:32:58] you would book a seat. It was announced a month beforehand. Have you time to book your spot. Everything was booked a month beforehand. Everything was like the Inquisition's arriving a month beforehand. We're going to kill you a month beforehand. The people who were accused didn't know until the morning, I don't think, what they'd been found guilty, what their sentence was.
+
+[00:33:14] So I think there were largely three kind of options and you had it revealed by what you were wearing. So you'd be given clothes to wear that represented what was going to happen to you. Were they sort of betting things on the side where people were trying to guess, you know, Prisoner number three, what's it going to, yeah. Hang on, are you saying they give you, for example, a green cloak, but you don't know what the green cloak means until they announce it? Or do you do think, oh, no, they give me the green cloak, that's a burning.
+
+[00:33:39] You know, once you've got the cloak. A yellow hat is an admonition or something. They whip the cloak out. They walk into your cell and they say, oh, what have I got behind? my back and then they whip the cloak out and then you know. And it's, um, so the first one is the Samara and that's the worst one. And it had, uh, it's amazing tunic and then you wear a very, very tall hat. Looks like a Dunce's hat.
+
+[00:33:59] Right. Um, it looked really stupid actually. They're like the ones they were in the festivals in Spain, right? Yes. The Holly week ones. Because they look a bit KKK. Yeah, yeah. Um, but they're not.
+
+[00:34:09] And that means you're being burned alive at the stake if it's got dragons and devils and flames on it. And a picture of view as well. They put a little picture of you on your tunic. Nick. Oh, that's a nice touch. Isn't it? Yeah.
+
+[00:34:21] It's bits personalised. Is that so that you can't like accidentally swap your tunic for someone else? Maybe it is. Yeah. Yeah. Well, I don't know how good the pictures were. Someone sewed this on at the last minute. So that meant you were being burned alive at the steak.
+
+[00:34:33] They had the Fuego Revolto, which was flames pointed downwards. And that was you didn't get burned at the stake. Great. You got strangled beforehand and then burned when you were dead. So that's much nicer. Okay. Okay. Yeah.
+
+[00:34:45] I think that you've got to be grateful. And then you had the San Benito, which had some red salt tires on it. And that just meant you had to do some penance. So that's the one you're really holding out for. Red salt tires. Look for the red salt tires. It's a big leap. Salty is like a cross, right?
+
+[00:35:01] Yeah. Yeah. But it's a big. Yeah. It's a big difference between the second best and the first best, isn't it? It is. Yeah. You don't want them to be trying to choose between the two of them and going,
+
+[00:35:12] oh, I've got one of each left. I can't decide. Oh, God. I didn't know that. It's still kind of going on. It's not the Spanish Inquisition. No. There was, in 2015, Spain passed a law which was related to the Spanish Inquisition, which I find amazing.
+
+[00:35:25] And they passed a law saying that people who were descended from Sephardic Jews, who were the people who lived in Spain and Portugal, they could request Spanish nationality if they could prove certain things about their ancestry. So, and this was a law of atonement, basically, for the expulsion of the Jews in the 15th century. If you could prove a family connection with medieval Spain, and if you were competent in Spanish or Ladino, you could come back. Loads of students are playing.
+
+[00:35:55] You're fluent in Ladino, mate. I've never heard of Ladino before. Latino Lad. It's the Judeo Spanish language. It's an old Spanish language, and it's mostly spoken in Israel these days. Right. And it's called Ladino.
+
+[00:36:08] I'd never heard of it. So this is your set for anyone listening, your second route into getting an EU passport, right? If you don't have that Irish connection, that we're all try to prove. Absolutely. Brush off your Ladino. If you're Jewish and you've got, yeah.
+
+[00:36:20] Yeah. And they had 127,000 people applied. Wow. Yeah. It was a big, yeah. First task, 10 shots of Sambuca and then you're in. Can I give you some other sausages that were in this book? Yeah.
+
+[00:36:31] And the caccio cavello del emigrente sounds like the most delicious thing in the world. So in the early 20th century, if you were an immigrant to America, you're allowed to bring cheese in, but you weren't allowed to bring meat products. but a lot of the people coming from Europe were big fans of salami and other cured meats and so they invented this thing where it was salami
+
+[00:36:53] hidden inside cheese Oh Crypto salami I practice crypto salami I practice crypto salami And another one This is a Finnish sausage called Macara
+
+[00:37:07] M-A-K-A-R-A And how do you think that's cooked It's an unusual way of cutting Oh, Finland, they have a lot of saunas. You got it. They have a special soapstone holder, which is like, it's like, it's basically a tube that you stick your sausage in. And then you put it on top of the coals in a sauna and then it cooks it up. How cool is that?
+
+[00:37:33] The last thing you want that when you're sweltering in a 60 degree sauna is someone to go, all right, boiling hot sausage straight off the salt goes. I think that's so good. Because you could run around outside with it in the snow. That would be nice. What, brandishing your sauce? Absolutely. You plunge it into a snowdrift to cool it down. And then get to it.
+
+[00:37:53] That sounds like something from carry-on film. Okay, it is time for our final fact of the show, and that is Anna. My fact this week is that if you count the number of lemmings at their peak somewhere, and then you go back four years later and you count them again, there will be a thousand times fewer. often. Whoa. Wow. A thousand times sure. Yeah. Well, that to me says that there's
+
+[00:38:22] going to be a lot of lemmings in the first place. How many lemmings? I can't even imagine a thousand lemmings. That's, wow, you can't even stretch that far. You're a little imagination. A hundred is maximum, but that might be the video game. That's a tenth of a lemmings is left when you come back. You can't criticize James's imagination.
+
+[00:38:36] Last week, you couldn't imagine a draw big enough to fit a human skull. Oh, yeah. My imagination is two full of lemmings to fit anything else. How many lemmings would you have in a group to match your percentage here. No, any number of lemmings. So basically this is this.
+
+[00:38:51] It must be in the thousands. It's in the thousands. Yeah. Yeah, yeah, yeah. Well, when lemings are at their peak, I guess they're going to, like, lemming communities are going to peak way, way over a thousand. And then if you come back four years after they've plummeted, exactly four years after that, there'll be a thousand times more again.
+
+[00:39:05] Okay. And they have this, these amazing population cycles, which some animals have, but they just do it in a much more pronounced and extreme way than. And others. And also they're proper mammals, right? Their actual, like sometimes you might have a load of flies that you get loads of flies or loads of crickets or something at once. But like to have thousands of mammals, it's like impressive. And to have it that regular, literally every four years.
+
+[00:39:33] They're like the cicadas of the Arctic. They are. Yes. Indeed. And this was, we still don't really know why this happens. There's, it's kind of the obvious two options of either they, um, when the lemming numbers go up and up, then their predators numbers increase as well, because they've got lots of lemmings to eat.
+
+[00:39:52] So eventually their predator numbers get so high that they can eat all the lemmings. Or it's like the opposite thing where the lemmings, when there are hardly any of them, they have loads to eat because they're hardly any of them. And so they eat loads. But as their numbers go up and up, then they don't have as much food. So eventually they suddenly starve to death. Or that they jump off cliffs. Or they help themselves off cliffs.
+
+[00:40:14] Let's get into it. Sure, right. Should we address the elephant in the room straight away? The lemming on the cliff? The lemming on the cliff. Christ. Who wants to talk us through that then? Well, that's the theory, isn't it,
+
+[00:40:25] that lemmings would just follow each other off the cliffs. Commit mass suicide. Yeah. Yeah. I believed it for a long time when I was a child. Yeah. I think we all did. It is such a gruesome story.
+
+[00:40:35] And it's so the mass suicide lemming myth from 1958. It's from the Disney film White Wilderness, which won an Oscar for Barming. White, sorry, won an Oscar for best documentary and I think we'll all agree after this it should be retracted and I'm afraid Jeff the Leving isn't here to accept his award but we've got oh they're not here either oh not them oh no I love the idea of the the anti- Oscar awards where it's retracting you guys a really fun idea nominees for this year's retraction of best
+
+[00:41:10] actor include that's a lot of people thank you to Harvey Weinstein I would like to unthank you can unthank you can unthank whoever you like in your speech. So basically what I was saying is that Disney made this film called White Wilderness in 1958, which showed the lemmings. It showed hundreds of thousands of lemmings, you know, crowding along and them jumping off cliffs to their doom, which they were suddenly, were they migrating? They were trying to migrate. The idea was.
+
+[00:41:34] The idea is they're trying to migrate and they jump into the Arctic Ocean and they all die. And they don't know where they're going and then they drown. And then the truth is that they had, they put them on a, the Disney cinematographers have put them on a, Turntable. Yeah. Like a lazy Susan. Yeah. Revolved them around for a bit and then throw them off the cliff.
+
+[00:41:50] And they revolved them around so it looked like there were loads more. This species of lemming didn't even migrate. So they just had to pretend they were loads more. And they had, the really horrible thing is they bought them from some Inuit children. They basically took some pet hamsters from some children and threw them off a cliff. And just threw them literally off a cliff. Yeah. It's the least Disney act you could do.
+
+[00:42:09] It's probably this. After shooting Bambi's mom is this. Yeah. Yeah. And we believe it for you. I thought they never did that. I haven't seen it, but I'm sure they definitely didn't do that. But we believed it for years and years and years and then suddenly...
+
+[00:42:21] Until the 80s. Yeah. Yeah. And there was a scat of the Canadian broadcasting company did an expose on a 24-year-old Disney film. It's so strange. Yeah. They called it cruel camera. It was about animal cruelty, basically, in films.
+
+[00:42:33] Yeah. So in the Disney film as well, by the way, they use a species of lemming that you don't find where they were filming it. So it was filmed in Alberta, Canada. It was in Calgary. But they presented that it was being filmed in Lapland. And the lemmings that they got for the filming, which they got north in the Arctic, you don't find them in Lapland. So it's just a completely wrong species anyway in the film.
+
+[00:42:53] Yeah, and the species they show, they don't migrate or anything like that, do they? That's right. It's completely implausible. Yeah. And Calgary's nowhere near the Arctic Circle case you're wondering. Oh, really? So, well, it's near in global terms. It's in the north in the hemisphere.
+
+[00:43:07] It's certainly quite far north. But, yeah, you would not find them. But the other thing is that people say that the myth comes. from Disney and certainly that didn't hurt the myth, but the myth existed well before that. Oh, did it? Oh, right. Yeah, so for a long time, people thought that Lemmings jumped off clips to kill themselves. And presumably because of these population cycles, they must have thought about.
+
+[00:43:29] Exactly. So there's a book called the Arthur Meese Children's Encyclopedia, which was first published in 2008, and it mentions this myth there. And that was one of the most popular kids' books of the time. So it was a thing that people already knew, even though it's not true, at but then Disney really, really perpetuated that myth. That makes loads of sense because otherwise, it'd be a weird thing to make us.
+
+[00:43:51] Yeah, yeah, yeah. So your directors out there, he's going, why are they not running off the cliff? Let's make them do the thing that they definitely do because we read it in a book. And then it might have been something of that, yeah. There was a thing that I read that, because Lemings can swim.
+
+[00:44:03] And the problem is, is when they get too, if they go under the water, I think their fur takes on too much water and they drown, but they can swim if they don't go fully under. And so the ones that would drown, would then later on wash up to shore and people would be like, what are they doing here? And that helped with the myth as well
+
+[00:44:20] that maybe they jumped up a cliff and that's why they're in the water at all. Do you think there was a moment? I'm trying to imagine being in that film crew. There must have been 20, 30 people there all pushing thousands of glennings off a cliff. Like, well, not some of them are going, this is definitely a good idea.
+
+[00:44:35] Yeah, I probably shouldn't have signed up for this internship. There was a bit of a mayor culprit from Disney. when the expose film came out in 1982, Roy Disney. Oh, the son or the... I think nephew of Walt Disney said, we may have lost a few lemmings. We call him Lemmingchucker Jr. these days.
+
+[00:44:57] Yeah. Just on them swimming and on them swimming in migratory terms, which they do. So this was being considered even in the 19th century. So I was reading something from Popular Science Monthly in 18th. 177 and there was a writer called W. Dapper Kroach. Who was writing about? Was his first name, sorry? W.
+
+[00:45:21] Unclear what his first name, but his initial was W. And then Dapper, Dupa, D-U-P-P-A, crotch. W. Maybe he was called Willie. It could be Willie Crotch. What's Dubber-Dubber-Croch? I've Willie Dapper-Croch there. And basically he was writing about, you know, the extraordinary swarms that you got.
+
+[00:45:40] And, you know, they just, nothing stops them, nothing stops this huge hoard of lemmings as they proceed. And that some years they were exorcised by the church and they were anti-lemming prayers allegedly. And Croft wrote that sometimes so many lemmings took to sea to swim to new lands that in 1868, a ship had sailed for 15 hours through a swarm of lemmings. A swarm, hey. Imagine that. Wow. Just not as far as the eye can see.
+
+[00:46:07] Oh, my God. Probably. That's amazing. Exaggerated. But he was trying to work out. out why they were doing this, you know, what they, what, because it is true that populated the lemming, some of them will strike out for a bit of new land and they might get confused and drown. He reckoned, crotch, this is, he said they maybe were looking for a kind of
+
+[00:46:25] lemming Atlantis. So that's somewhere which had sunk into the sea, but had been a landmass that had food on it. Yeah. And that they had, oh, the memory is stayed. Instinctual species memory. Amazing. And that they, they were looking for it and kept, you know. That was his theory done, by the way. No, I know. And it's a, yeah. But like if, you know, swallows fly to Africa for the winter. Yeah, no, that does happen.
+
+[00:46:48] If Africa sank, would they keep doing it? Would swallows keep going? What would they do? Well, we spoke about monarch butterflies and they migrate over a lake. And for no reason at all, they take a turn and then go around. And it's because supposedly a mountain used to exist there. And it doesn't anymore. But in their path, genetically, that's been handed on.
+
+[00:47:06] The map. Crazy. How exciting, lemming Atlantis. No, kill it. Kill the myth now before someone makes the film. I'm on it already. Did you guys see that a really incredible photo, which was taken in 2014 in Canada in the Nunavut Territory?
+
+[00:47:24] And it was of a lemming... Yes, I saw hundreds of photos from that specific time in place. Narrow it down. Go through your photos in your head. It was a snowy owl nest. Oh, yeah. I didn't see this. This is insane.
+
+[00:47:36] So it's basically a snowy owl nest that is lined with over 70 dead lemmings and it's extraordinary. Oh my god and it's late the lemmings are laid around the nest all dead um they're so cozy so cozy it looks Andy not dissimilar to one of the uh cakes that have been sent over if you look down it looks like a beautiful flower exactly it really does like a big furry flower with these these eggs in the middle I mean it's a astonishing pattern that they create around it I mean, there's no, there's no planning to the pattern. It's just dead lemmings laying down. You squash enough dead lemmings together.
+
+[00:48:15] It looks quite neat because they're very tightly fast. That's incredible. And they've just got eyes bigger than their stomachs. And it's like, obviously, a lemming bus period. And the owl is like, well, I love eating lemming. I'm just going to pick up as many lemmings as I can and catch them. Presumably it insulates the nest that's lovely and warm. Yeah.
+
+[00:48:29] So it's like a fur coat, but that you can eat. It's like fur coat with meat in every pocket. But it doesn't look tight enough that it's the birds would benefit from that. To me, when I saw the photo. It looks like it's just ringed around. It's like if you had insulation in your house, but it was made of sausage rolls. The dream.
+
+[00:48:45] Imagine piping huge sausage rolls into your roof space. Do you know where they live? Lemmings. Yeah. I mean, up north, yes. They live underground. They live, this is really cool. They have these tunnels.
+
+[00:49:00] They have these nests, which are made of grass and feathers and ox wool, which I didn't know was a thing. I guess of course it is. You know, discarded wool. from an ox. But the young lemming pups, they grow up between the ground and the snow.
+
+[00:49:15] So there's the snow layer across everything. And there is this, because the ground radiates heat, but melts the snow directly above it. It's incredible. There's this tiny gap and the lemmings live in that and it's called the Subnivian space. I think it's so cool that.
+
+[00:49:30] It's mad. It's incredible. There's this whole world. And this is where the adults live in like the frozen winter period, isn't it? Running around in this secret world. between the snow and the ground. So how thick is the snow above that if you were a human walking across it?
+
+[00:49:44] Is it so packed tightly? It's quite thick. And that's kind of the point because they don't hibernate. So when it gets really, really cold, you think a lot of animals would kind of dig a little hole and hibernate. But they don't have to because the snow is such a good insulator that, like you say, it's warm enough to melt that little layer. And so they can live in there and run around. That's incredible. But I do, maybe one of you guys did more research on this than me, what's the snow resting on? Is it floating?
+
+[00:50:08] It's melted. It must be tunnels, right? Tunnels, yeah. So you would have an arch, which is where they were existing. That makes more sense than hovering. Levitating snow. It's resting at two very precarious points. That's how lemming Atlantis operated.
+
+[00:50:26] Gravity had a different set of rules. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, We can be found on our Twitter accounts. I'm on at Shriverland, Andy.
+
+[00:50:45] At Andrew Hunter M. James. James Harkin. And Anna. You can email a podcast at QI.com. Yep. Or you can go to our group account, which is at no such thing. Or our website, no such thing as a fish.com. All of our previous episodes are up there. Do check them out.
+
+[00:50:59] Also, have a little wander around the website. You'll find interesting things like our new membership club, club fish. Very exciting place. It's an exclusive membership area where you get access to all the extra bits of content that we've been making from episodes where we discuss all your facts and all the letters that you've been sending into us, as well as fun little quizzes that have been devised by James Harkin, things like that. It's really fun. Do check it out. Otherwise, just come back here because we're going to be back with another episode next week and we'll see you then. Goodbye.

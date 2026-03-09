@@ -1,0 +1,241 @@
+# No Such Thing As A Fish - 202: No Such Thing As A Deadly Birthday Cake
+
+- Episode date: February 2, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/202-no-such-thing-as-a-deadly-birthday-cake
+- Slug: 202-no-such-thing-as-a-deadly-birthday-cake
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Coventry! My name is Dan Schreiber and I am sitting here with Anna Chazinski, Andrew Hunter Murray and James Harkin and once again, so I'm going to still clapping, what is going on there? And once again we have gathered round the microphones with our four favorite facts from the last seven days and in no particular order, here we go! Starting this week with my fact, my fact this week is that in the annual Lady Godiva parade which famously celebrates a lady who rode naked through Coventry, not only does the rider
+
+[00:01:05] always wear clothes, but one year even the horse wore trousers, it's a trousered horse. How did the horse wear the trousers? Did it wear them over its back end or did it wear them on all four legs? It had all four legs, there's a photo, you can see it. So it actually wore two pairs of trousers? Yeah, it wore two pairs of trousers, yeah, that's true. That's amazing and it was in the early 20th century, right? It was 1919, yeah, it was a Lady Godiva parade and amazingly there's these beautiful photos
+
+[00:01:40] that you can see of the event. They are, I think she was an actress called Gladys Mann, which is ironic because she's a woman and she... But actually, wasn't it true that the first Lady Godiva's who did these things were all men? Were they? I think they were, yeah, the first one was, we know he was the son of James Swinnerton, don't know what his name was.
+
+[00:02:01] Wow, do you know who it was? What an irritating thing to be called going through life. Hello, I'm the son of James Swinnerton. Do you have a name? Yes, that's my name. He was paid 15 shillings to do that. But it's been kind of sporadic, hasn't it, the Lady Godiva parades throughout history and they've been variously banned and then dropped and they've come back.
+
+[00:02:23] In the 19th century, I think they really caught on and people were paraded through the streets and in the 1840s, they really became a big thing again and there'd be someone cast as Lady Godiva every time and at first it would be someone who was made to appear like she was naked. So in 1842, there was an actress or a performer who was wearing a tight fitting flesh-coloured dress, like a kind of a onesie, but to make it look like she's naked. And then people were outraged. There were all these complaints and I was looking in the British newspaper archive and
+
+[00:02:51] they were saying, it's depraved, you know, it's encouraged the profligate youth of Coventry to gratify a depraved taste. Any profligate youth of Coventry in tonight? They referred to her as a brazen harlot, the poor, poor woman who dressed in a onesie on horseback. And then someone referred to, it was a bishop of Worcester who referred to her as a Birmingham whore being paraded through the streets. And it seemed like he was more bothered that she was from Birmingham than anything else.
+
+[00:03:22] We should very quickly say who Lady Godiva was or wasn't. So the idea is just for anyone listening overseas, she was a noble woman and in protest against her husband raising taxes, she rode through the streets of Coventry naked except for her very long hair, which she had woven into a kind of hair bikini, no, that's not true. So that's the idea and that she was trying to persuade him to lower the taxes. But we don't think it happened, no. It's probably a myth. It was in the 11th century, but I think the first reference to it was about 200 years
+
+[00:03:53] later. But it's a myth that's, you know, very much still celebrated. For the Olympics, there was a 20 foot tall Lady Godiva built and it travelled on a purpose built 50 seat bicycle because it was transported down to London and then back again. It briefly got stuck going around the ring road on a tight bend. And the woman who ran the company said that Lady Godiva had suffered a little bit of whiplash from tree branches and suffered rain damage and some scratches. And she added, she looked like she'd had the best night out.
+
+[00:04:29] The other thing about it being a myth is that basically it was against taxes or people have looked back at what Coventry was like back then and probably the people who were here weren't really bothered about taxes. One person said that in those days Coventry was just an inconsequential group of serfs living in single story hovels. Whereas Coventry now has two story buildings, I think. Very bold. I know.
+
+[00:04:57] So brave. I literally was about to pack my stuff up and go, OK, that's the evening over. So you were saying about the skin tight clothing being seen as a bit of a disgrace. I read a story that it was it caused a lot of chaos because people thought that she was naked. Therefore, everyone who came to see the parade suddenly really wanted to get close to see the parade and riots sort of broke out and people fought each other because they thought there was a naked person on a horse.
+
+[00:05:24] Yeah. Yeah. That was one of the reasons I think it was considered so immoral in Victorian era. Yeah. Because these riots started, everyone got really pissed and they stared at this, maybe naked women. And then they all got really drunk and descended into debauchery at night, apparently. Wow.
+
+[00:05:39] And every year they'd be like, this year she's definitely going to be naked. And she never was. Have you heard of Prue Peretta? No. Have you ever heard of Prue Peretta? Yeah. So for 25 years in a row, she was the same Lady Godiva. She was the Lady Godiva, more than the original Lady Godiva, who only did it once.
+
+[00:05:56] Prue Peretta did it 25 times. Or even no times. Lady Godiva didn't even do it. Prue Peretta is the real Lady Godiva and she got an MBE for her troubles. Really? Yeah. She's only recently retired from the game. What did they pin it to?
+
+[00:06:13] I guess that there might be quite a lot of Godiva businesses in Coventry. So I checked on the internet and I was not disappointed. There's Godiva fire extinguishers, Godiva granite, Godiva insurance, Godiva windows, Godiva fish shop, Godiva dentists, animal care, chiropractors, glass, wines, hypnotherapy, plumbing, fencing, cafe, news, gun shop, barbers, carpets and Godiva tailoring. Wow. Which I love. But someone who has no clones, I think is brilliant.
+
+[00:06:47] Yeah. Yeah. Let's get your clothes off to get those measurements. You're done. Yes. I also think a very clever thing. I don't know if Godiva windows has done this, but what I would have done is the whole point of Godiva was that all the people who lived in Coventry had to go inside and not look
+
+[00:07:03] at her. Right? And the story of peeping Tom comes from the Lady Godiva story because he snuck out and did try to catch a glimpse and then he was blinded. And so if you were making Godiva windows, you should actually make opaque windows. And I don't know if they do that as a business. I don't know if that would be particularly fruitful, but that's what I would do. Like doors, basically.
+
+[00:07:28] Those door windows. Maybe that's what they call doors in Coventry. I did a little bit on naked protests. Oh, OK. OK. So because people keep on protesting as Lady Godiva, so this May in Gloucester, a woman called Anna Dart, rode a horse dressed only in body paint. She was dressed in body paint, not the horse.
+
+[00:07:51] The horse didn't even bother wearing body paint. Disgusting. To protest against Gloucestershire County Council's planned new incinerator. In 2011, a man dressed as Lady Godiva, and he rode through the Lancashire village of Holton to protest against new Haitian to M6 link road. And my favourite one, in 2006, a dozen people in a Canadian town, it's called Lida, in Saskatchewan. They posed naked in potholes on a local highway and then made a calendar, a nude calendar of themselves, in these potholes to spread the message that they wanted the council
+
+[00:08:27] to fix the potholes. And the local organiser, the organiser, the guy behind it, said that most of the people in the calendar were very reluctant, but he did add, there was one guy, we couldn't get him to keep his clothes on. And the Guardian reported that just four years later, the highway was repaired. It absolutely worked like a charm. I read a thing about in France, there's a small town that has been having a problem with their naked hero, which is Heracles.
+
+[00:08:58] And basically they have a statue of him naked, but the town seems to have a lot of cheeky vandals who keep chiseling the penis off of the naked God. And so what they did was they kept replacing it, and then they'd come back a few days later or whatever. And then again, cheeky chiseler comes along and takes away the penis, and they were like, we don't know what to do. So what they ended up doing, because it was a very important spot where they do a lot of ceremonies, they made a sort of extra special penis that they then, whenever they do a ceremony,
+
+[00:09:31] just before the ceremony starts, they come up to it, put the penis on, and you're like, oh, there's going to be a ceremony today. And they guard it, and then they do the ceremony. And once whatever the ribbon's been cut or whatever, they go, thank you all, good night. And then they take the penis off again and bring it back to the office. So it's a ceremonial penis that is constantly attached for important days. Did you say that was in France? Yeah, it was.
+
+[00:09:52] It was a town called Arcachan. Sure. Just because I just have just a coincidence about France and Germany, and that is that the pioneers of the natures movement in France were called Albert and Christine Le Coq. And one of the leading lights of German natureism was called Adolf Coq. No way. And they're both basically the most important natures in France and Germany are called Coq and Le Coq.
+
+[00:10:22] Wow. That's great. Do you know how she's speaking of Adolfs? We've reached the Hitler point in the show, ladies and gentlemen. I'm trying to get it into every live show of our talk. Hitler banned nudism and then immediately reintroduced it. So it was quite a big thing in Germany in the early 20th century, and the Nazis thought that it wasn't very good.
+
+[00:10:43] And so they banned it in 1933, and then they shut down all the nudist clubs across Germany. And then in 1934, they immediately changed their mind and allowed people to just attend Nazi-approved nudist clubs. So even he softened on that one, one thing. What? Yeah. I think it's a bit late to reclaim the representation, Anna. Yeah.
+
+[00:11:03] OK, why don't we move on to our second fact of the night, and that is James Harkin. OK, my fact this week is that the worst basketball coach in the history of the University of Kansas is James Naysmith, the man who invented basketball. It's amazing. He is the only coach of that university who has a losing record. Every single other person was a winner, and he invented the game. Yeah. Oh, but he was just learning how to do it.
+
+[00:11:33] I mean... Yeah, but so was everyone. Yeah, that's true. He was against coaching, wasn't he, which Bartley explains it, so one of his students went on to be one of the greatest basketball coaches ever, someone called Fogg Allen, and when he told his tutor Naysmith who invented basketball that he was going to try and coach it, Naysmith just said, you cannot coach basketball, you just play it. And so, yeah, he didn't believe in it.
+
+[00:11:57] It was a slightly different game in those days. It was nine against nine, and they used a football, a soccer ball, instead of a basketball because they hadn't been invented yet, and dribbling wasn't allowed, so it's a bit more like netball, actually, and there was no hole in the bottom of the basket, was there? Yeah. They just put a load of peach baskets up there, and they put it through it in, and then he had to climb up and get it out and then play again. Yeah.
+
+[00:12:21] And did you know, he thought, Naysmith thought the introduction of the hole in the basket was a grave error. What? He thought that was a mistake. Yeah. Michael Jordan getting a ladder every time he gets a point. The first ever game of basketball ended in a massive brawl. In fact, it had a brawl after about five minutes, so he invented it because he was teaching
+
+[00:12:39] schoolboys, and his class were really badly behaved, they were very naughty, and the weather was bad, so they couldn't go outside and let off steam. So he invented the game, and he just gave them one rule, so the only rule is to get the ball in the basket, and immediately they started a fight with each other. He said they started tackling, kicking, and punching, and before he managed to intercede, several had black eyes, one had dislocated his shoulder, and another had literally been knocked out. Oh, my God.
+
+[00:13:09] So in America at the moment, there's quite a lot of controversy with basketball in schools, and the reason for that is coaches keep getting fired for their teams winning by so much. What? Really? Well, one thing in American sports where once you're winning by a certain amount, you should really stop trying, and you shouldn't keep, what they call it, is running up the score. So there was a guy who won a hundred nil recently, who was the head of his team, he got fired. There was someone who won a hundred and sixty-one-two, and they got fired as well.
+
+[00:13:41] And it's the idea that you're not teaching them to be good sportsmen, basically. Exactly that, yeah. I love it. I really like that. Yeah. So you were shit at Spartan school? We think of basketball as an American sport, predominantly, but there are so many countries around the world that play it.
+
+[00:13:59] In a very big way, and the one that surprised me most when I was looking into this, is Bhutan. The royal family of Bhutan are obsessed with basketball, and I read an article where the current queen of Bhutan, they followed a match that she played. So she's in a team, and when she comes to the match, when she comes out through the locker, to the locker rooms, to the main court, they roll out a red carpet, and they have a like a throne-like thing that... Do they have to roll out the red carpet all over the court as she moves around? Yes, they got to stay in front of her, just peddling it out.
+
+[00:14:30] Yeah. No, and so she played a match, this is the match they observed, and she scored 34 points in that match, three rebounds and four assists. If you know the scoring system of basketball, that's incredibly high. And so they were like, either she's incredibly amazing at basketball, or it may have something to do with the fact that Bhutanese custom forbids citizens from touching the royals without any invitation. Therefore, anytime she's got the ball, people have to be like, oh, no.
+
+[00:14:59] But isn't basketball a non-contact sport, anyway? Oh, no, it's very... I mean, you're hitting... Technically it is. Yeah, technically it is, but you're... It's a very aggressive sport, and there's a lot of blocking, and there's a lot of stuff like that, and there's a quote from someone who they interviewed afterwards saying, you know, the queen's really good, and how did you find it?
+
+[00:15:16] Because the one person they interviewed actually fouled the queen, which goes against the rules of the country. And yet, as she said, I fouled the queen once. I was a little scared, but she said it was okay. And she said she wants us to check her, and she gets mad if we don't. She thinks we're scared of her. We are very scared of her. But do you know that that's not the Bhutanese royal family's favorite sport?
+
+[00:15:38] Oh, yeah. Their favorite sport is darts. Is it? Yeah. In Bhutan, darts is like the national sport, but they are massive darts. They're about... You hold them in your hand like this. I mean, not great for a podcast, is it?
+
+[00:15:50] But you hold them with your full palm, and then you launch them, and it's about the same distance as this stage, and you throw it from one side to the other, and they have like an archery target that you have to throw it into. And one team stands next to the target and tries to insult the other guys before you throw it. Why don't you do that? I don't do that at all. I know.
+
+[00:16:09] It's unbelievably dangerous. Encouraging things to them, to encourage them to keep on aim. Yeah, but then you want to win as well, right? Yeah, I can think of a way of winning. Kill the other guys with your darts. What are they going to do? At worst, that's a foul, you know. Do you guys remember the film Space Jam?
+
+[00:16:25] Yeah. Michael Jordan. Michael Jordan and Bugs Bunny. It's a Looney Tunes film with some humans in, like who friend Roger Rabbit. Last year there was a journalist called Jaylin Cook who analyzed the Space Jam film through actual NBA rules, and it's just a very funny writer. So he said, one minute 31, Sylvester the Cat tries to swallow Tweety Bird, his own teammate whole.
+
+[00:16:48] There is nothing in the NBA rulebook that explicitly says you can't eat your teammates while a game is in progress. One minute 50, Foghorn Leghorn is incinerated by Barry. That is easily a flagrant two foul. It is also attempted murder. So Michael Jordan was in that film, obviously, and as people say, the greatest basketball player of all time, but he's also a great leader in basketball fashion, because if you watch basketball now, they've all got these really baggy shorts on, and that's because
+
+[00:17:19] of him. So until he played, then everyone wore quite tight shorts. And then he thought that it was good luck for him to wear his old uni, his old college shorts underneath his basketball shorts. So he never played a single game without wearing two pairs of shorts. And I imagine Boxers, which I count the shorts, so three pairs of shorts Michael Jordan's always wearing. And that meant that the NBA had to make his shorts baggier so they could fit these two
+
+[00:17:43] other pairs of shorts underneath it. I am wearing three pairs of pants now. Yeah, two, right. Otherwise, people aren't safe. I was reading about someone else called Jason Terry, who is an NBA player, and there is a lot of superstition in sport, obviously. And Jason Terry plays at the moment, but he has to sleep in his opponent's shorts the night before a match, and they need to be shorts from the opposing team that have been
+
+[00:18:14] played in. And so apparently he has contacts throughout the NBA. So he can email them and be like, sorry, could you send me your shorts? You know my thing. And he has shorts from all the opposing teams, so he can sleep in them before the match. I'd like to clarify, I'm not wearing anyone else's pants right now. Is it kind of so that once he's been in their shorts, he knows how to beat them? I don't know.
+
+[00:18:36] Let's not talk about beating in someone else's shorts. I don't know. He didn't justify it. Wow. Just quickly, a weird thing that I saw. In Canada this year, a basketball player finally got the right to use his surname on his jersey, which has been very contentious. He's from Brazil.
+
+[00:18:56] He got transferred over, and there's been huge problems with it. And yeah, he's been in the news for it as a result. The quote he said is, it's my last name. I'm proud of it. It doesn't matter if it means something bad. He says it's pronounced fuki, and that's how he's trying to get. I mean, maybe it definitely probably is, right? I think he knows his name, but he was censored for ages, so he wasn't allowed to wear a jersey.
+
+[00:19:22] And finally, because the team's doing well, they're like, okay, you can have it. So now that's going back and forth on a basketball court. Wow. Yeah. It's funny. It just reminds me, just slightly off topic, but there is a college footballer who will probably go into NFL soon in America, whose name is Lion King. Oh, that's so cool.
+
+[00:19:40] Imagine if you're Mr. and Mrs. King. Yeah. What should we call our son, Mufasa? We should move on to our next factor, right? Okay, it is time for fact number three, and that is Andy. My fact is that blowing out the candles on a birthday cake increases the number of bacteria on it by 1,400 percent. Yeah.
+
+[00:20:04] Next time you have a birthday, think about this. So there were a load of scientists who wanted to test that, you know, what happens when you breathe out and whether, as they said, bio aerosols in human breath expelled from the mouth may be a source of bacteria. So they simulated a birthday party among themselves, which I would kill to have been at. They ate some pizza to get their salivary clowns going, and then they had a cake set up, and they blew all over it, blowing the candles out.
+
+[00:20:35] And that's just the average was 1,400 percent. So that's not the worst. In one case, someone breathing out and blowing out all the candles increased the bacteria on the cake by 12,000 percent, 120 times as much. I mean, how is that guy blowing? Yeah. But then we don't think that this is that dangerous, do we? No, we don't.
+
+[00:20:59] Yeah. Well, just because basically these are bacteria, probably that unless someone's got the plague or something, or, you know, someone's really ill, these are just bacteria that we all have that kind of, you know, just because there's more bacteria on something doesn't necessarily mean it's more dangerous. No, you're right. Obviously, the scientists who were told about this said, actually, you know, the fact that you're eating a lot of cake is a lot more important than the fact it's a bacteria.
+
+[00:21:23] Right. Yeah. Like obesity is obviously more of a problem than just the odd little bacterium. Yeah. But there is a solution to it, which there's a lady in America who's selling this now, and she was at her aunt's 100th birthday. And as a result, when they were blowing a lot of candles, and as a result of the lot of candles, they had three generations of family members blow out the candles.
+
+[00:21:44] And so she was stood watching it. And as a result of watching it, she just saw a sort of tidal wave of spit just come over the cake and thought, oh, that's the piece of that. And then later thought, I need to solve what this thing is. And so what you can buy in America now is a sort of before you blow out the candles, it's like a cake plastic sheet that you put over your cake. Yeah. So what you do is you place that over the cake, you blow out the candles, and then you take
+
+[00:22:09] that off. But it's see through so you can see your cake underneath it. So it stops all the bacteria from going on it. That is, I know people say health and safety go on mad, and they're annoying, but I find that that is health and safety go on mad. It's not dangerous. I mean, so it's something like 12% of bacteria are related to being harmful at all to us, isn't it?
+
+[00:22:29] And a lot of bacteria are good. You have in the average hair brush, you have 3,500 bacteria colonies per square inch. So different colonies of different types of bacteria. One hair follicle contains 50,000 individual bacteria. Wow. But they're mainly fine. They are fine. They are fine.
+
+[00:22:49] The important thing to remember is the bacteria are basically fine. So there were loads of headlines this year saying, beards are full of fecal bacteria. So do any beard owners in the room, the kinds of bacteria they're finding are absolutely not harmful. They're the kind of bacteria that might be found in the gut, but they might also not be found in the gut. And also everything is covered in fecal bacteria. There's one message you take away from tonight.
+
+[00:23:12] That's true, actually. I read that study about toothbrushes. Do you know when they say, don't keep your toothbrush in the bathroom because you might get fecal bacteria stuff on it? Well, it turns out that the fecal bacteria is everywhere anyway. It's all over the place. You can keep your toothbrush in the toilet if you say the truth. That's the other thing.
+
+[00:23:29] It always says there is more bacteria here than in your toilet, like on the chopping board or something like that. But you don't use bleach on your chopping board, do you? You use bleach on your toilet, so you're basically killing all the bacteria all the time. Yeah. But a lot of people use bleach on their bum, and so probably it's removed bacteria before it's just...
+
+[00:23:47] Sorry. Whoa, whoa, whoa, whoa, whoa! Who has ever put bleach on their bum? Oh, these guys hugged up the rope! What are you talking about? I thought that was a thing, you bleach. It's an only way as Essex thing, isn't it? Yeah, I thought...
+
+[00:24:05] That's completely different, Dan, to just having a bottle... There's not why there's a bottle by the loo, you know that. Oh, my... I mean, bleach is very toxic. Don't do that. It's not a loo role replacement, I think. No. I'll stop, Jesus.
+
+[00:24:23] Actually, if you're going to take anything away from tonight's show, that's the thing you need to take off. James told me a fact ages ago, and it's probably my favourite fact of all time, we're talking about bacteria in the gut. Apparently, bacteria inside your gut are farting all the time. They lit out little farts, tiny little farts, and when you, I'm talking about everyone listening and everyone here in the room, when you fart, you're not farting, all you've done is collected a huge batch of bacteria fart, and you've just released it in one massive go.
+
+[00:24:56] Isn't that insane? Isn't that nuts? That's like the scene in The Death Star when they're about to shoot and kill a planet, and it's all those lasers going, brrrrrrrrr. That's that, inside you, just fart, fart, fart, fart, fart. What are you talking about? And there you go. And you let out.
+
+[00:25:12] It's true, James told me. Don't applaud that. Don't applaud it. James absolutely denies telling you the Death Star bit of the fact, which need to sleep a little bit. We get it. It's like sweat, I mean, yeah. So bacteria are the things that make us smell not ass, it doesn't go down well on a date
+
+[00:25:29] when you explain that, so it's a pointless piece of information for you to have. There's these little things farting at you, and then just you collect it and then you release it. Sure, sure. Has anyone got stuff on birthday cakes? Literally nothing. Let's hear it. So okay, here's the thing.
+
+[00:25:47] When you blow out a candle, what is the mechanism that's making it go out? You blow and the flame falls over and it dies. You're ejecting carbon dioxide into the air and sucking the O2 away from it. It's a good guess, but it's not right. Okay. Dan, let's hear your extremely intelligent guess that's definitely going to be correct. What's the Samuels analogy that's like blowing out a birthday cake? It's like the reverse of a lightsaber whereby you're bringing, no, I don't know.
+
+[00:26:20] It's pretty simple actually. So fire needs three things, it needs oxygen, fuel and heat, and when you blow is the temperature going down enough. So the air pressure is causing the temperature to go down, which causes the fire to extinguish. So how come when people do that thing where they go, wha, and they can put it out with just like a judo chop? Again, it's just moving the air, isn't it, which changes the pressure levels. And the idea of blowing out candles, it has happened quite a lot, but it only really became
+
+[00:26:47] a proper thing after a Kodak advertisement showed some people blowing out some candles. I think it was in the 50s or 60s. Really? Yeah. That's only when it became absolutely massive. That's amazing. Oh yeah, because there used to be those sort of candle thimbles that you would sort of say goodnight, and you would put out the candle one at a time.
+
+[00:27:05] Are you saying that at a birthday party people would ceremonially drench each candle in order on the candle? No, no, you know, it's like on a stick. No, no, no, no, no. They still talk about that. We still use them. What? Well, that's the thing, you're advised to use them because it's less dangerous.
+
+[00:27:20] You're advised to use them? Yeah, by like fire safety officials. I've read that somewhere. I mean, not on a birthday cake. Yeah. And fire safety, fire officials don't use that to fight fire. I do that. Oh, that's a big one.
+
+[00:27:33] We need longer sticks and bigger thimbles. Just one more thing on birthday cakes. Most expensive birthday cake of all time, $75 million. It was bought by an unnamed buyer in the United Arab Emirates for his daughter's birthday party. It was a joint birthday and engagement party. Also, really, it was only $37 and a half million each time. Great.
+
+[00:28:01] Yeah. But it's a bit of a trick because the cake is pretty big and obviously did cost a little bit of money, but it also has 4,000 diamonds on it. So I mean, if you're just going to pour diamonds on something and say, that's the most expensive, you know, this is my most expensive shoe of all time because I poured a load of diamonds in it. Yeah. It's not part of the cake.
+
+[00:28:20] If you can't eat it, it's not part of the cake. Yeah. But there's a fish you can use as candles. What? What? Yeah. There's a fish called the eulacon fish, which some people say is where the word hooligan comes from, although that is quite dodgy etymology.
+
+[00:28:35] I don't think so. Yeah. No, it's not. But it's also called the candlefish and that's because it's got so much fat in its body and during spawning that you can literally light one end of it and it burns like a wick, like a candle. So like when we first went to North America, it existed in North America and when it was first discovered by Westerners, then people used to catch these fish and use them as candles.
+
+[00:28:58] Imagine the kids' birthday party where you come into the room with that, ate fish, a light on the top of your cake. But didn't they also have birds that they used as... Yeah. Are they fulmars or...? No, Venezuela. In Venezuela. And they're called oil birds and they used to just light one end because they're so fatty.
+
+[00:29:18] Oh, is that because Brian Blessed told me about this because he explored Venezuela and he said if you run out of water or anything, you grab one of these birds and you ring them like a wet cloth and they leak the oils and then you light. So you don't actually have to hurt the... You probably hurt the bird in the ringing process, actually. But that's doable. I have a fact that combines birthdays and bacteria that's not the original fact. Wow.
+
+[00:29:43] All right. There was a doctor being interviewed by the Telegraph, this was a few years ago, but he was giving health advice for how to avoid the spread of bacteria. He recommended that the best place to sneeze is into your sleeve because that's hygienic and also that while washing your hands, you should sing Happy Birthday twice over. And I can confirm that if you do that in any kind of public bathroom, you get really weird looks. But when it gets to the bit, Happy Birthday, dear, what did you say?
+
+[00:30:16] My hands. That's great because the second time round, the guy next to you could be like, my hands. It's both of our hands birthdays on the same day. What the chances? We should move on to our final fact. Oh, OK. Do you want to go for something before we do? I've got some interesting stuff.
+
+[00:30:41] OK, let's move on to our final fact. Yeah, go for it. Well, there's a bacteria called palagibacter ubic. And there are so many of these things, it is unreal. If you take part of the ocean, at least some parts of the ocean, half of all the living cells will be this particular bacteria. OK, there are two times 10 to the power of 28 of them in the world, which means if every grain of sand on earth was a planet, which contained the same number of humans as there
+
+[00:31:13] are on earth, that would be how many of the bacteria there are on earth at the moment. If every grain of sand on earth was a planet, which had seven billion people on it, then the total number of all of those people on all of those is a number of bacteria that there are of this species in the world. Well, you're saying he's saying that it's a lot. Thank you, Anna, for putting it into terms I could understand. Can I just... My favourite bacteria is this... We've all got one.
+
+[00:31:44] Well, bacteria are amazing, but they're quite hard to envisage sometimes. But this is the second largest bacteria on earth. People usually think it was the largest. It's about the size of a full stop, if you're reading a word document. So you can imagine that, which is quite exciting. And it's called the official sony bacteria. It's called Epilopiscium official sony. And the reason it's called Epilopiscium is because it only exists in the intestines of
+
+[00:32:10] surgeon fish. So bacteria are very specific. They only live in very specific environments. So this one only lives in fish. So that's why it's called Epilopiscium, because piscase means fish in Latin. But its other name is fischl sony. And by sheer coincidence, that's because it was discovered by a man called Lev fischlson. So it's the bacteria that lives solely in fish.
+
+[00:32:33] And then it was named by someone called Peggy Pollock. No. That is amazing. And did you know this first paper that we were just talking about, about the birthday cakes? One of the authors of that paper was called Jonathan Baker. Oh. Really? What a nice bookend to this fact part.
+
+[00:32:51] Yeah. It'd be nice to have had a laugh, but... Oh, there we go. All right. OK. It is time for our final fact of the show. And that is Chasinski. My fact this week is that the first person to swim the Atlantic said, never again, as
+
+[00:33:08] soon as he was finished, he is now planning to swim the Pacific. This is amazing. It's this guy called Benoit Lecomte. And this is, in 1998, he swam the Atlantic and he came ashore in Brittany. He'd swam 3,800 miles, basically, from Cape Cod in Massachusetts. And literally his first words are, see, emerge from the water were, never again. And now he's planning his Pacific trip. It's going to happen in the next couple of years.
+
+[00:33:37] Now, do we think he actually did the Atlantic thing? It's a little bit controversial, isn't it? How far is that? It's literally the number of miles that Anna just read out. So if you rewind quickly on the podcast when you're listening back... Yeah, that's a lot. Or if you just listen in the first place, then that will also tell you how far it is. It's 3,800 miles.
+
+[00:33:58] Thank you, Anna. There's a bit of controversy about whether he swam the whole thing. Because obviously there are currents, which might have helped him along a bit. And his average speed was eight miles an hour the whole way, which is about three times as fast as other swimmers manage over long distances. He did it so fast. So he may have been helped a bit. But he was definitely in the water for a very long time.
+
+[00:34:17] Yeah, he did well. And he was raising money for charity. So he's raised a huge amount of money for charity, and that's what he's doing again now. And the way he does it is that he stops for the night. He swims about eight hours a day. He stops for the night. The boat takes a GPS position of where he was. And then no matter how far the boat's drifted,
+
+[00:34:35] it has to go back to the position he was at and then drop him in the next morning. Because there was a guy called Guy Delage, who was the first to swim across with the help of a kickboard. And a kickboard is one of those floats that you have in the swimming pool and you hold them and then you can't do the arm bits of your swimming, but you just press in the leg bit. So he did it with that. But when he wasn't swimming, he was sleeping on a raft,
+
+[00:34:58] which didn't have this GPS thing. And the raft would just float towards where he needed to go all the time. And basically the longer he was sleeping, the longer he didn't have to swim. Which if it was me, I would just have slept the whole way. That's so cool. And he had a, I think he, Guy, had a small sail on his raft as well. Yes. But he was still cool.
+
+[00:35:20] And I think he's great as well, a bit of a hero, because he did it to escape debt. So he basically had no money left. And he was like, what can I do? What's the obvious way I can raise money? Swim the Atlantic. Oh, he wasn't just leaving the country to escape. That's what I thought.
+
+[00:35:35] Yeah. Sorry. No, he was good. And he had a shark phobia, Guy Delage. So I don't know. I think shark phobia is the wrong way of putting that, isn't it? Because a phobia has to be something that, you know, there's no real reason you should be scared of it.
+
+[00:35:48] Or sharks, if you're swimming in the Atlantic, you're quite right to be scared of sharks. Yeah, if you don't have shark phobia, you would say, he is an insane man. Do you know how marathon swimmers keep themselves going during the race? No, you mean because they get tired? They get tired.
+
+[00:36:06] And so if you're swimming in marathon, you know, it's lots of kilometers, there was an interview with a Russian open water swimming champion called Yevgeny Bezhrychenko. And he wrote an article sharing the secrets of marathon swimming. And he revealed that you need food, and you normally need a concentrated gel, you know, a really, really massive dose of sugar.
+
+[00:36:26] For the only place, obviously, you're swimming, you're in trunks. There is only one place you can keep it, and that is inside your trunks as you swim. So all the swimmers you see doing marathons have little packets of food basically tucked into their pants. No way! And they have to get them out over the course of the race.
+
+[00:36:41] That's awesome. They should invent, like, trunks with pockets. Yeah. Do they not have pockets? Yeah. There's normally a little one for your locker key, but I think at the competitive level, they may not even have those.
+
+[00:36:54] Did you know that the U.S. Navy have their own secret military swimming stroke? What? Yes. They do. They don't. They do. They do.
+
+[00:37:04] They don't. They do. They don't, mate. So U.S. Navy SEALs, they have this stroke called the combat swimmer stroke, and it looks so daft, but it's a combination of breaststroke and freestyle, which I did not know was a thing, but...
+
+[00:37:19] Is it breaststroke legs and freestyle arms, basically? Basically, you have to go on your side in the water, and then you kick in an odd way, and then you use your arms in another way, but basically, it makes you harder to spot underwater, and it's called the combat swimmer stroke. And it means that if you're trying to infiltrate... Are you harder to spot because you're basically sinking
+
+[00:37:37] because you can't swim like that? Yes. Can I just say a combination of breaststroke and freestyle is just freestyle, because the whole point of freestyle is that it's anything you want. That's true. But freestyle is the fastest stroke.
+
+[00:37:48] So if I'm swimming breaststroke, am I also swimming freestyle? You sure are. If you're swimming that in a race, you're swimming freestyle and be an absolute idiot, but, yeah. In a freestyle race, you're allowed to go anywhere you want. Really? So what you're thinking of is front crawl. That's what I thought.
+
+[00:38:02] I thought freestyle was front crawl. It is front crawl, because that's the fastest, but why do you think it was called freestyle? You're not going to go, I'll do breaststroke on this one. Can I stick up for breaststroke? What, as the fastest swimming staff? Yes, but as the nicest.
+
+[00:38:17] Yeah, but when you were in the Olympics, there's no points for niceness. You're joking. You were shit at sport at school. Do you know bats, when they swim, they tested to see if bats could swim. First of all, yeah, I didn't know they swam. Yeah, so bats can swim.
+
+[00:38:36] Obviously, they don't do it out of just a daily exercise. They do it in circumstances where they're suddenly in water for reasons they shouldn't be. Right. Have I explained myself well enough? Perfectly. They do the butterfly, so with their wings, bats do butterfly.
+
+[00:38:51] Can butterflies... Do bat, do the bat. They do bat stroke, yeah. Yeah. So the longest-ever journey swimming was 5,268 kilometres, and it was down the Amazon River, through Peru and Brazil,
+
+[00:39:09] and it was done by a guy called Martin Strel, who's from Slovenia. And he is pretty awesome. After he did it, they asked him about it, and he said, you know, they're like, how did you manage this? And he says, well, my body's pretty special. Wow.
+
+[00:39:24] He says, I've never hurt or sick, and if everyone were like me, all of the hospitals around the world would be completely empty. And he says he drinks either one or two bottles of wine every day, but it's special Slovenian wine that you can't buy outside Slovenia,
+
+[00:39:40] and it just helps you be an awesome swimmer. Does it? Yeah. And he said, do you know what the worst thing is if you're swimming the Amazon? What the biggest danger is? Getting your legs chewed off by piranhas. By piranhas? So he was attacked by piranhas a few times,
+
+[00:39:57] and he found a good way of preventing them by pouring buckets of putrid blood into the water, and they went for the putrid blood instead. He also said, and I don't really believe this, because he said, I learned not to pee in the water and you guys probably know Candiru. They're the tiny fish that are supposed to swim up
+
+[00:40:14] into your penis if you're swimming. But they don't, do they? But they don't, so I think he's been told a bit of a... I thought they did. I thought the thing they didn't do was if you're having a pee into the Amazon, off the bank, they don't swim up the urine. I think we can all agree they definitely don't do that.
+
+[00:40:30] OK, so it's common ground. But anyway, he said the Candiru was bad, but the worst thing apparently was the women of the Amazon. You can often see 15 to 20 times more women than men, and the women are very aggressive, and they try and catch you and marry you. This... And they're worse than the Piranhas.
+
+[00:40:51] This guy has, I must say, a very high opinion of himself. My body's great, I've got magic wine, and the ladies of the Amazon cannot get enough. Hey, we need to wrap up shortly. Do you guys have anything before we do? Can I just say a fact that we got sent, actually, in the interval, and it's amazing,
+
+[00:41:10] and it's about swimming. And it's from a guy called Theo, who all I know is you're called Theo, and you're aged 12. Yeah. Are you here? OK, great. Hi, Theo. So this fact is incredible. Tigers always get in the water backwards
+
+[00:41:26] because they love swimming, but they hate getting their eyes wet. Isn't that amazing? I've checked it. I was like, that must not be true. Do they put their paws up on the bank and then just kick with their back legs? Yeah.
+
+[00:41:42] Like old ladies at the swimming pool. That's what they do. All right, amazing fact for you. Should we wrap up? OK, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast,
+
+[00:41:58] we can be found on our Twitter accounts. I'm on at Shriverland, Andy. And Andrew Hunter M. James. And Shazinsky. You can email our podcast at qi.com. Or you can go to our group Twitter account, which is at no such thing. You can also go to no such thing as a fish.com.
+
+[00:42:14] That's our website. We have the links to all of our previous episodes. We also have a link to our book, The Book of the Year, which is out now and we're about to give a copy away to one of the members of this audience here in Coventry who sent us a fact that we have picked out. Who's got the fact? I have it.
+
+[00:42:30] It's a shame after you just read out that really cool taiga one but I can only blame the people of Coventry. And it is that places in Canada include Shaggers Cove, Dildo and Boles Falls. Come and see us after the show and we have a book for you. Yes, come and collect your free book. We'll have some words of advice about your vocabulary.
+
+[00:42:59] Thanks so much, guys, for being here. See you next week. Good bye!

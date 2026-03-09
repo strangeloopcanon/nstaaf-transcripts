@@ -1,0 +1,341 @@
+# No Such Thing As A Fish - No Such Thing As Bin Day On A Nuclear Submarine
+
+- Episode date: April 24, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-bin-day-on-a-nuclear-submarine
+- Slug: no-such-thing-as-bin-day-on-a-nuclear-submarine
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hoburn. My name is Dan Shriver. I am sitting here with James Harkin, Andrew Hunter Murray, and Anna Tyshinsky. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, and that is James. Okay, my fact this week is that the first submarine to go around the world was only seen by one civilian, a Filipino kayaker who saw the periscope and thought it was a sea monster. It's pretty amazing because we have a photo of that man. Yeah.
+
+[00:00:56] Did they take the photo? So we'll get into the big story, but there was a photographer on board. And so any time the periscope went up, they took a photo of what the periscope was seeing. And in this shot, you had a man sitting there called Rufino. Yeah, we also know more about him because National Geographic went out looking for him. Yeah. And they found him and interviewed him. And that's when they found out that he thought it was a sea monster.
+
+[00:01:16] He immediately went home and painted the names of St. Peter and Paul on his boat for protection against a sea monster. Sensible. And by amazing coincidence, this submarine they're about to talk about started and ended at St. Peter and Paul archipelago in the Atlantic. It's incredible. What a coincidence. They've blown it wide open. Further evidence that we are living in a simulation. In a very unimaginative matrix.
+
+[00:01:42] So yeah, this is 1960. We're talking. Middle of the Cold War. The Americans and the Soviets are not getting on very well, but maybe there's going to be a peace summit in Paris. But before they do that, the US decided to show off a bit and say, we've got a new submarine that can go all the way around the world
+
+[00:02:00] with no one noticing it. And so that's why they did it. It's called Operation Sandblast. They could just say they'd done it, couldn't they? Like literally, we sailed all the way around the world underwater without anyone noticing us. Yeah, but you're still here. That's because we went all the way around the world. Yeah, finished.
+
+[00:02:14] They just should have sent it underwater and then just had it coming through a big tape at the end. Yeah. They were really hardcore, right? So there were a couple of moments where it looked dodgy, where really they should have come up. And they didn't. There's one instance where there was a member of the crew who had kidney stones, and they did have to get him off the submarine sort of halfway. through the mission.
+
+[00:02:34] They fired him out of the torpedoes. Basically, that might have been an option because what they ended up doing was putting up a bit of the submarine out of the water for him to be collected from it while keeping the main hull underneath. And they didn't know, like none of the crew knew what they were doing, did they until they were out at sea, under sea. There was just their captain, Captain Beach,
+
+[00:02:52] which is quite nice given it with Sandblast. Amazing. And given they were at sea, and what's the sea surrounded by, the beach? Yeah, and it's got a beach under it, arguably, as well. Well, let's discuss that. shall we? Where is the beach?
+
+[00:03:04] I don't want to go on your package beach holiday. Yeah, exactly. I'm not going to go for a picnic on the beach. Everyone, get your scuba gear on. But yeah, he didn't tell the crew until they were out seeing underwater
+
+[00:03:14] and I think the crew had just been told to prepare to be away a little bit longer than usual and then they're going around the world. Yeah, they were told to get all their tax details in order because it was going to go over the tax year while you're away. Really? So you're like, whatever you do,
+
+[00:03:28] make sure you pay your tax because you're not going to be back in time for it. It's a good excuse though. It's a very good issue. I really like this. So the submarines these days, nuclear ones, have their own way of making air on board. But this one didn't have that capacity because it was an early nuclear sub. It had to have its own. It had to have a snorkel, basically.
+
+[00:03:48] It would stick up the periscope and go and then go back down again. Every night. I actually, honestly, this might just be a blind spot for me. But I didn't realize what a nuclear submarine was. I thought a nuclear submarine was a submarine. had nuclear bombs on it. I think because the British trident ones are, that's why I thought they all were.
+
+[00:04:08] I just want to say the missiles are tried at the submarines of Vanguard. Sorry. Sure. But yeah, no, will it can be a sub with nuclear missiles on board? It can be, but by definition, a nuclear submarine is something which is powered by nuclear reactor. And what that means is you can just stay underwater for way longer. And these days, you can make your own oxygen using the nuclear reactor
+
+[00:04:27] by taking in the seawater, separating the hydrogen and oxygen. And that means you could stay underwater for, months and years. It's so cool. There are various problems with the fact that we can now have submarines underwater forever, essentially. There are various reasons where you can't do that. So one of which is like all your clothes get so dirty in the end, you run out and people get claustrophobic and upset. And another is rubbish. I didn't know what they did with rubbish. On submarines. Oh, okay. Yeah. On sort of all submarines now. They bring on board lots of metal sheets and then they have a special machine on board that turns the sheets into a cylinder to be a
+
+[00:05:02] bin, because obviously if they just brought on loads of bins, they take up too much space. Yeah, yeah. Space is in a premium. Space is a premium. And then the bins all get secured once they're filled with rubbish, and then they just jettison them out of the submarine with weights on them to take them to the bottom of the sea. To the bottom. To the beach.
+
+[00:05:19] To the beach. The people sunbathing down there are pissed off about it. That's crazy. Because the whole point of a submarine is that, I mean, the whole game of being in a submarine is that you're being quiet and undetectable. And enormous efforts have gone to to make submarines quiet and undetectable. but if they're just pooing out metal bins wherever they go.
+
+[00:05:35] But you're not going to see it. The ocean is, it's big, Andy. No, I know, but the whole thing is, I mean, the amazing lengths they go to not to be spotted. Can I just say about the bins? Given that you've raised the issue. Oh my God, you sound like my neighbours. What day do they go out again?
+
+[00:05:52] It's Tuesday this week is a bank holiday. Some people on submarines say that they're so careful about not drawing attention to themselves that eggs, old eggs they haven't eaten, are pre-broken before they're put in the trash disposal unit because if they broke after being released, they would generate enough sound that they would be detectable. What? That's how sensitive other submarines are to noise. Really?
+
+[00:06:15] Other submarines are constantly, they don't. They can hear an egg break? They absolutely get so quiet down there. It's not that quiet under the water. There's tons of animals down there. How about the engine running the submarine? What are they doing about that? That's very heavily buffered.
+
+[00:06:30] They put, you know, the egg boxes, they put them around them. No, it is nuts, how quiet they are. And so, for example, bubbles. Oh, yeah. Okay. They put their bubbles through a diffuser to spread them out before they release them. Oh, wow. Because otherwise, there's a big plume of bubbles at the surface.
+
+[00:06:47] It's very obvious, oh, there's a submarine down there. Is that like if you feel a big fart coming and you somehow managed to let it go out in a very slow little... It's exactly like that. And spy's, my five spies are trained to do that. Just in case. They're the only ships that fly Jolly Rogers, which I should have actually phrased as what flies are Jolly Roger? Summaries. I've screwed it up now, yeah, but if you hadn't done the research and I hadn't just said that, what would you have said?
+
+[00:07:13] Well, I've known that for years. Okay, but if you weren't in QI researcher. I just can't imagine a world where I would have found out by now. I have a question. It would be quite soggy. I'm trying to fly a flag under water. It's a good point. They display it flattened.
+
+[00:07:29] I guess they fly it when they come up. In triumph. So I think traditionally, if they've had a triumphant sojourn, what do you call it, expedition? I don't think they call it sojourn, yeah. I think they're pretty sure in most wars, they go. Subs you're going on a sojourn into the Baltic Sea now. It's amazing. There's no space on somebody because most people are wearing cravats.
+
+[00:07:49] The number of cigarette holders you have to have on board, it just takes up loads of space. And then the actual battle itself is called a box social. Whatever they're called mission. Yeah. When you come back and you've had a good one, you fly the Jolly Roger. If you've sunk somebody else. I think if you sunk someone else, but now I think they quite often do it, because sinkings happen very rarely these days.
+
+[00:08:11] And it's because it's a like middle finger to first sea lord Admiral Sir Arthur Wilson, who complained in 1901, as I'm sure you'll remember, that submarines were underhanded, unfair and damned un-English. Right. And then in 1914, there's someone sunk someone else in the war. the great one and they came back flying the Jolly Roger to say
+
+[00:08:34] screw you you think we're underhand and pirity than what we've done yeah yeah we have so many correspondence in the fish inbox fin box about nuclear submarines almost all our listeners seem to be on nuclear submarines
+
+[00:08:46] it's stunning I didn't know the Wi-Fi was that good down there amazing yeah they must pre-download it they do take a plunge yeah what are they telling us okay well in state secrets we've got some secret correspondence
+
+[00:08:58] actually I'll say Tim W writes. It's okay because his friend's brother is learning to operate a nuclear submarine. But you should not flush the loo at sea. Why? Well, there was once a U-boat that was sunk because they flushed. It was Colonel Schlitt. That's it.
+
+[00:09:16] And yeah, the whole thing went down. So that's a good reason not to do it. But basically you shouldn't dump fresh water at sea. Okay. Because it has a different sonar signature to seawater. it refracts sound waves differently and so it shows up as a massive blob. Oh, come on.
+
+[00:09:34] Gives you away. Gives you away. Why don't they just keep samples of different ocean water that they are traveling in? Because space gets put into the cister and whatever they... It's limited. No, that's a good idea. That's a really good idea.
+
+[00:09:45] Well, it's actually, it's quite interesting. I didn't realize this about oceans. This story of the submarine going around the world has taught me this that four days after they were thought to be a sea monster in the Philippines, they were going in the Lomboc Strait and then they were making the way into the Indian Ocean. And then out of nowhere, they plunged from periscope depth height to 125 feet in 40 seconds
+
+[00:10:08] because the density of the salt water is different in the Indian Ocean than it is to the Lomboc Strait that they were coming through. Hang on. So it wasn't, it's not like there's a wall there and they hit it and suddenly drop like on the sky's crazy. I feel like it is. I think it is because it came out of nowhere that they just plunged. I have a feeling that when you go from one ocean to another, you do get those. like quite solid blocks. Really?
+
+[00:10:30] Yeah, because there's such different densities. Cool. They can't mix. Isn't that wild? It's crazy. I have a riddle for you. Yeah. The first people to successfully escape from a submarine did it in 1851.
+
+[00:10:45] It was called Le Plongeur Marine Diver. And it was operated like a pedalo. So there were three crew, two crew on the pedalo bit, cycling along. And then one bloat was the captain. Anyway, they sank. a test dive in Keel Harbour, and they waited five hours for someone to rescue them. No one came. There's an escape hatch, but they can't push it open because they're underwater, so the water pressure is too much.
+
+[00:11:08] And then the captain, who was the inventor, and he was a guy called Wilhelm Bauer, he grabbed a small valve, unscrewed it and whipped it open. So water started coming in. And his crewmates were like, what have you done? You've gone mad, Wilhelm. You're going to kill us all. Why did he do it? Is it the same reason as if you hold a straw, the top of a straw, and then put it in water, the water stays in there because it releases pressure,
+
+[00:11:32] which means then there isn't pressure holding the door closed. Yes, because what does the valve do? It lets water in from the outside. So as the water came in from the outside, then it equalized the pressure. So suddenly you've got water inside as well as out. So there's a really horrible moment where you all have to hold your breast
+
+[00:11:45] as the whole thing fills up with water and you're suffocating to death because the CO2 levels are so extreme. And then suddenly it hit the pressure equality and it went open and it fired them up onto the surface in the middle of their funerals. What? Yeah, they were doing an impromptu service
+
+[00:12:00] because it had been over seven hours. That's pretty quick. I'm sorry, I would like more efforts to be made for me. He's been in that toilet 20 minutes. Should we have the funeral? That doesn't make any sense, Anna. The ones are with their new partners. They were having a service. They assumed they were dead.
+
+[00:12:17] The coffins weren't out yet. Have you seen the other way that you can escape a submarine if it is sunk? You disguise yourself as an egg. I know this. No, what are the lifeboats? of a submarine if it sinks. Like smaller submarines? Torpedo?
+
+[00:12:31] No, it's a suit that you wear. It's a life raft, but you're in the life raft. You are in the raft. Picture Homer working in the nuclear power plant with that big helmets on, but it's all fabric and he can see through a window in his face. You could have said a picture a Haskem suit. And there's no need to bring the Simpsons in the years. That's another way, a more bland way of giving the picture to the audience.
+
+[00:12:56] So you go out of the submarine and you slowly rise and then you're just bobbing up there waiting to be rescued. I think a lot of the time if you're stuck, you're stuck, right? Yes, it's not foolproof this. Yeah, I think it's almost never that you can get out. We have one other person who actually was a sonar operator on a nuclear submarine. This is so cool because with sonar, right, what you can do is it lets you count the number of blades on a propeller. So you can guess what kind of ship something is by your knowledge of the propeller. Because you fire your sonar at the propeller and sometimes it hits and sometimes it misses.
+
+[00:13:30] Pretty much. And then you can make an educated guess as to the kind of propeller and therefore what kind of submarine you're observing. So the whole game is to cover up the propeller when you're in a public port for secrecy. So no one knows how many blades you've got on your propeller in case someone spots you. And this, I should say, it's a diesel electric submarine as well. So it's slightly different. But it's for sneaking around the Norwegian fjords and for that kind of stuff. And I love this.
+
+[00:13:53] I'm just going to read this. The snorkel has a valve at the top that all. automatically closes if a wave goes over it, right? The snorkel bit. But then when that happens, the diesel engines suck loads of the air from the rest of the submarine. And that means the air pressure drops. So it really hurts everyone's ears on board. But what that means, if the air is moist, the air spontaneously condenses and it starts raining inside the submarine.
+
+[00:14:17] Because of the pressure changes that have happened. So he says that's an amazing experience. Wow. On propellers, this is going from memory. So it might be wrong, but I think it's right. there was an episode of I think Doctor Who where they needed a submarine. They got this model of submarine and they looked at the propeller and it was exactly the same as one of the most secret submarines that the UK had. And the UK defence were like, holy shit, where did they get the designs from?
+
+[00:14:44] That's absolutely ridiculous. And they brought these people into questioning and said, well, where did you get it from? And it turned out they'd been to Woolworths and just bought a towie submarine and used it and just buy it. And just by coincidence, it had the exact same specifications as this British nuclear system. Oh, my God. That's amazing. Okay, it is time for fact number two. And that is my fact.
+
+[00:15:11] My fact this week is that the original Little Mermaid production was almost delayed because all of their underwater bubbles got caught up in the Tiananmen Square incident. And tell me, Dan, what exactly was the Tiananmen Square incident? for all of our global listeners. It was a sojourn by the Red Army. This is quite a surprising fact that The Little Mermaid, which was the last entirely hand-drawn and hand-coloured movie that Disney was producing, decided that rather than photocopying drawings of underwater bubbles, they would have each individual bubble, millions of them, drawn by hand. And they couldn't do that on their own. So they farmed that out to a company that was called Pacific Rim in China.
+
+[00:16:02] Great film. Great film. And the offices of Pacific Rim happened to be right next to Tiananmen Square. And when suddenly all the chaos broke out in Tiananmen Square, all the protests and all the military coming in, the bubbles were still being drawn. And they were locked up in a safe there. And the producers didn't know whether or not they were going to be able to get them out. They didn't know how long this was going to last. And they're so fragile bubbles
+
+[00:16:26] I mean that will pop at the slightest tweak, won't it? And you'll give away their location if one goes off as well. If you look carefully, a lot of the bubbles in the Little Mamet are actually eggs that have been just something used it in. Yeah, yeah. But they did manage to get them out of the building. They got them onto a ship.
+
+[00:16:40] So it's quite interesting there to ship their bubbles back over to the States. And then it made it into the film. But it's, yeah. If you look at the film, so I was watching lots of clips. And once you know this, there are shedloads of bubbles every time they move. there's bubbles all over the shop. To be honest, like that's one of the best things
+
+[00:16:57] about the movie is the way they animated the water. Yeah, it's very good. And it would have been worse, I think, if they had done the photocopying. Agreed. Because it was quite interesting. So it's the Xerox process,
+
+[00:17:08] they called it, which is a bit like photocopying but for animation and for film. And they should have used that because that's what people had been using. I think the last film to use the hand-drawn method was Sleeping Beauty, which was ages before that. But when you photocopied stuff,
+
+[00:17:24] gives it a black outline. And this was so interesting because if you watch any Disney film that was Sleeping Beauty in before, so like Sleeping Beauty, Snow White, Pinocchio, Bambi, there's no black lines
+
+[00:17:35] around the cartoons. So they're all like realistic. Like I'm wearing a yellow jumper. There's no black line around it. There's just yellow jumper then air. And that's if you watch Sleeping Beauty, you'll see that. Every film after that
+
+[00:17:45] has black lines around the cartoon. So they look more cartooning and less realistic. And if you do want to sound like a big old snob, you can just say It was a very inferior period of animation for Disney before they fixed it and sweetly that was for beauty in the beast. They brought the beauty back.
+
+[00:18:03] The co-director of The Little Mermaid John Musker said because he was interviewed about the what, what? The bubble thing. And he said, yeah, no, we cared about the guy in front of the tank and that democracy might take root there, but we were wondering, what's going on with our bubbles? In the next paragraph he reveals he was joking. Yeah, yeah, yeah, yeah.
+
+[00:18:23] Because this was an incident where, well, there was loads of protests in China, pro-democracy protests, and the Chinese government went in and killed a lot of people. Yeah, yeah. Yeah. James and I, you and I met Kate Adie, who was there at the time. Oh, yeah. And the footage. The Little Mermaid Premier.
+
+[00:18:39] Yes. Wow. Yes. She's always been heart-hitting, but I had no idea. Right in the thick of it. Yeah, she's bubble obsessed. She was there and the footage that was taken, I think, James, am I right saying? It's particularly the footage of the man standing in front of the tank.
+
+[00:18:53] She had to get that back to a British embassy and she had some Chinese guards trying to take the camera at reels off her so that she couldn't get through. So she ended up kicking one of them in the nuts and climbing over a wall in order to get into safety. And yeah, so that's how we have the footage. It was gay eight on. I didn't know that. I believe that's right. I remember that. Yeah.
+
+[00:19:14] Just a fact for Dan about that. The Simpsons. They have an episode where they go to China. and in the middle of it there is a picture on Tiananmen Square on this site in 1989 nothing happened which is obviously about the fact that references to it
+
+[00:19:32] a band in China but then Disney decided to omit that episode of The Simpsons so you can't watch that in China anyway What's the Disney film that they made about a mermaid? Little Mermaid Andy The first Disney film about a mermaid was Splash
+
+[00:19:49] You didn't say it's special if I first. Yeah, you didn't. You just said, what's the film name is? Oh, what was the first time? It was splash. Darryl Hannah. Darryl Hannah and falling in love with Tom Hanks. Who wouldn't? Walking out of the water with her bum out. Yeah. I was a teenager when that came out. That must have been formative. I think they've re-edited it, so she's got longer hair now. So I'm afraid, James, the next time you, you know, you want to see Darrell Hannah's bum, you'll have to do it some other way, basically. Because, yeah, they've, as the ways to do that on the internet these days. I don't believe so. No, yeah, so they made Splash way before they made The Little Mermaid, like five years before.
+
+[00:20:25] They were trying to make films for grown-ups, and this was their first one. You know, she's a Bermage, Tom Hanks is a man, and they fall for each other. Look, we've all seen Splash. It's the story of The Little Mermaid. I can't believe you're leading with that, rather than the fact you just dropped in that they've extended Daryl Hanna's hair in the modern version to cover her. Oh, they didn't give her a hairy bum. They extended. I'm misunderstood.
+
+[00:20:48] You didn't say which hair they extended in Bess. They've extended her back hair. They've extended her bum hair and then they platter into her head. Oh, God. The British Board of Film Classification have some things to say about the Little Mermaid. In the additional issues section of the website, it says, in one scene, a female character comically shakes her bottom while singing about the importance of body language in attracting a man. And what's the issue there?
+
+[00:21:19] Ban it. Not woke. I had a look at a load of other Disney movies on the BbFC to see what their additional issues are. In Frozen, there is some very mild humour, including reference to picking your nose and eating it. Which is offensive to do children? It's on there.
+
+[00:21:40] In Brave, there are moments of mild, rude behaviour, such as a Scotsman bearing his behind by lifting his kilt. Well, they've extended his hair, And in Honey I Shrunk the Kids, which was also a Disney movie, there are upsetting scenes when a friendly aunt is killed. So just beware. Wow. Because there are those terrific Christian websites which do this kind of forensic detail.
+
+[00:22:05] This is on the BBFC. Wow. I quite like how they did Ariel's whole look, because Daryl Hannah played a part in how Ariel looked as well. So she is the Little Mermaid. Yeah. So Ariel is the Little Mermaid. Splash had come out. And so they changed her hair color, Ariel's hair color, to red because the original hair color was too similar to Daryl Hannah's.
+
+[00:22:25] So that had a very immediate influence on their movie. The actress Alyssa Milano was the face model for Ariel. There was a different body model who they had come in, who was a comedian improviser who came in and would do all the scenes. So you can see the footage of them doing the scenes. So all the body movements were called. Sherry Stoner. Sherry Stoner. Well, there are hardly any people alive with the body of The Little Mermaid, aren't there?
+
+[00:22:48] It was actually very little competition for that. You're right, they used half of her body. A lot of her material as a stand-up is about the fact that she has a massive tale. Yeah, exactly. But the most interesting one is the hair and how it moves in the water. And that was inspired by the space shuttle astronaut Sally Ride. They looked at her hair in zero gravity to create the water look that they needed. So, yeah.
+
+[00:23:11] Someone who gets a lot of shit is Sebastian and The Little Manmade. The crab? Yeah. The friendly Jamaican crab. Oh. Under the sea. What's Sebastian's accent? Jamaica.
+
+[00:23:21] Jamaican. Incorrect. Caribbean. Well, I mean, you just broadened it. So it's not fair. It's false. So Sebastian, he was originally going to be called Clarence and he was going to be like a posh English guy. And they made a good mood because you can imagine he's really strict, that Zazu type character.
+
+[00:23:39] You can imagine why they wanted to do that. Rowan-Ackinson style voice. Yeah. Exactly. And then they thought, let's make him more fun. So they decided to make him Jamaican. but then they found the person to play him, Samuel E. Wright, who'd just been in a film playing Dizzy Gillespie. And Samuel E. Wright couldn't do a Jamaican accent, but he could do a Trinidadian accent. So actually, tell everyone you know, he doesn't speak with a Jamaican accent.
+
+[00:24:02] That's really interesting. With a Trinidadian accent. Because a few years later, when they made cool runnings, they brought in these four Jamaican actors. And they said, OK, can you do these lines? And they said, well, you don't sound Jamaican. And they're like, well, we actually are Jamaican. This is how we talk. And they're like, no, no, we need you to sound like the crab from the Little Mermaid.
+
+[00:24:21] No way. James, we've pieced it together. It's amazing. Their producer basically said, if you don't sound like Sebastian, I'm going to get fired. And so they all put on these kind of like fake Jamaican accents. That's amazing. That was bizarre. Wow.
+
+[00:24:36] Okay, so the reason that the crab was made Jamaican, let's say Jamaican, despite the accent, was the songwriters were working literally in the room next door to the animators and each other were influencing how the movie was going along. And one of the songwriters came in and said to the filmmakers, tell me about Sebastian the Crabb. They said, he's this British posh guy. They said, can you make him something more Caribbean? Can you make him Jamaican?
+
+[00:25:01] Because I think this song under the sea will be great as like a Calypso-style song, and the accent will go great with that. And they changed it for that reason because they were working in tandem together. So if you find a VHS of The Little Mermaid and it has a drawing of the penis on the cover, could be worth up to 30,000 pounds.
+
+[00:25:18] Really? And it doesn't work if you just get a lot of your own yourself. Is that true? Yeah. This is true. I thought it was a sort of urban myth. There are mythy parts about it. So there's a guy called Bill Morrison who was drawing all the artwork,
+
+[00:25:33] A Little Mermaid, he's doing all the different things. And they said, can you do the VHS? And they said it really last minute. And it was the middle of the night. And his deadline was just coming up there. And he just sort of scribbled something together. And it had to look like, this sort of castle in the background.
+
+[00:25:48] And castles have turrets. And turrets can look phallic sometimes if you're not concentrated. Your penises all have crenellations. Yeah. Yes, they do. Okay. How do you think we fire arrows out of them? Where do you think the boiling oil comes from?
+
+[00:26:06] So he rushed to do it. And then he made this thing and no one noticed it. Parades. So was it deliberate? No, no. It was just. Yeah. The myth goes that it's something.
+
+[00:26:15] pissed off employee of Disney who put a penis in there to piss everyone off. In actual fact, it was this guy who was doing his best and just happened to accidentally draw a penis in the thing. And then it basically came about that someone noticed it once it had already been imprinted and Disney were furious. They're not being so relaxed about this kind of thing. They said, if we find out who did that, they're never going to work for us again. And this guy's company was, this was most of their work doing stuff for Disney.
+
+[00:26:42] So in the end, you either kind of pretend that. you don't know anything about it, or you say, look, it was us, but it was an accident. And that's what they did. And eventually Disney sort of realized that they were, it was an accident and they carried up. Imagine the Dick Mountain Rider Disneyland had that have been very, very, very, very steep up, very, very, very steep down the other side. Good. And Bill Morrison, one for Dan, he left this company and went to work for the Simpsons. Where he did some drawing for them.
+
+[00:27:11] So there you go. Is that why Homer Simpson's head also looks like a penis? And this was about bubbles in The Little Mermaid In Frozen, which is another princess movie, obviously not bubbles but snow. Snow flakes, stuff like that. And there is a thing down which I'm sure you know about called the Diatlov Pass incident. It's a conspiracy theory thing about a load of kids who went walking just outside of Kattenberg. And disappeared or something, isn't they?
+
+[00:27:40] They disappeared. And we never know what happened to them. And last year, thanks to Frozen, we might have found out what happened to them. And that's because the technology they used to make the snow in Frozen was so amazing, like the computer programs, that you could use that to work out what happens with avalanches. There was a scientist called Johann Gaum, who was from the Snow Avalanche Simulation Laboratory in Switzerland. And he saw Frozen and he thought, what they're doing is amazing. And he went over and he said, can I borrow your technology to show what happens. with avalanches, and he tried it.
+
+[00:28:14] And using the lie of the land in Dietlov and stuff like that, he showed that it was possible that these kids might have been taken away by an avalanche as opposed to a Yeti or aliens or whatever everyone else thought. Wow. And that was Frozen. That was Frozen that did it. Because I thought you were going to say the other sort of wild theory about Frozen is the reason that that title was picked for the movie was to stop everyone from spreading
+
+[00:28:38] the idea that Disney was Frozen cryogenically. So if you went on Google and you put Disney Frozen, you get the movie now as opposed to Walt Disney's head. Walt Disney's head has been frozen phygenically. Yeah, that is a theory out there. Okay, it is time for fact number three, and that is Andy. My fact is that the longest road tunnel in the world is so long that the builders recruited a team of psychologists to stop people crashing halfway through. So this is a tunnel called the Laudal Tunnel in Norway, and it's a tunnel. is 24 kilometres long
+
+[00:29:16] so what's that, 17, 18 miles? It's quite, it's long. Yeah, it's the longest. It's been over 25 years now and it helps people drive between Oslo and Bergen and it's partly because Norway is so crinkly and it's hard to get around and it's perilous crossing the mountain passes in winter so you either fly little distances in small planes which is a big way of getting around there or you drive
+
+[00:29:38] but this allows you to drive much straighter because you're in a tunnel. That's how tunnels work. It helps good skate through as well. Completely, yeah, yeah, all of that. So it was a very impressive engineering project, but... Do we know the effect of the psychologist, like what they said and what happened? Yeah, that's the important part. Sorry, yeah. What's what they doing?
+
+[00:29:56] They were consulted on how people can drive through this tunnel and not go crackers, because it's 20 minutes of the same lighting, the same panels passing you, that's hypnotic, you're driving. I'm already going crackers just from you saying that. You've crashed into the wall, James. There we go. You've hit the wall. And no radio signal.
+
+[00:30:13] Can't get Radio 4 in the middle of a tunnel, can you? Always the annoying thing about tunnels. That's true. It's like being in a nuclear submarine, basically. You should pre-download before you go through the tunnel. Pre-download before you go through. You've got to tell me about this pre-downo thing. So the shrinks, basically, they were, like, a crack team of shrinks, were called in and said, oh, yes.
+
+[00:30:30] And they said, they were the people who were originally cast to play Sebastian. Yeah, they were. And they said, well, you've got to break it up for people. You've got to make it feel more varied. I'll be honest, Andy, I think without any psychological training, I reckon breaking things up so people don't get bored is pretty root one. Like this bit of me speaking. And you've just helped to do that by breaking up to the people at home haven't crashed themselves. That's what this podcast is, is us breaking up Andy's monotonous words.
+
+[00:31:09] Okay, that's enough, Anna. Okay, let's do another five kilometers, Andy. Thank you. So basically there are these mountain caves, as they get called, strategically placed along it. And every five minutes, you get to another mountain cave. The lighting all changes completely. The road opens out. And it looks like you're driving into a sort of beautiful mountain past.
+
+[00:31:27] It looks like there's daylight above you. It's really gorgeous. I think it looks quite true. I would feel like the drugs had kicked in as soon as I got to certain bits of it. It's like avatar in there all of a sudden. It is a bit. It's like you're in an aquarium, like you're in the actual water with it surrounding you. It's this like mountainousy, dark blue, trippy as hell.
+
+[00:31:46] I would want, like, because you're expecting a tunnel. I'd go into that tunnel and suddenly you're not really in a tunnel anymore. I agree with that and that would freak the fuck out of me. You've had a lot of tunnel already. You're filled for the back teeth with tunnel. What you want is a bit of variety. I don't know. I mean, I don't think people frequently go do Lally halfway along a tunnel.
+
+[00:32:02] So it clearly works. It is a good idea. And I think one of the reasons it's a good idea them doing this is because for the longest road tunnel in the world, not many vehicles drive through it. So a thousand vehicles a day. So basically the chances are you're going to be driving through completely on your own,
+
+[00:32:17] which is what would freak you out, right? Like if you're going behind a bunch of cars, it's fine. Have you ever been driving and like a place which is so the same that you think maybe I have died? Yes, I have. I have. I have done that. Oh my God.
+
+[00:32:28] I was driving down the coast of Croatia and there's all these inlets and you kind of go on an inlet and you come back around again and you drive for a bit and you have another inlet, another inlet and they're almost all identical. And after about two hours of that, you're just like, maybe I have died.
+
+[00:32:44] Maybe one of these times I missed the corner. And I'm doing this forever. It's fractal. Yeah. Do you have that thing when you're driving where you sort of come to and you realize, oh, I just drove half an hour there. You know, and then your conscious mind reasserts itself. And you've got a bloody knife next to you on the last year.
+
+[00:33:03] That's right. And there's bags full of money. I'm in the boot. But not that bag. Oh, no. I once, in fact, more than once, when I worked in an office as an accountant, would sort of come to at the desk and not remember how I got there. Like as in I just sort of, I got up, got out of the house, got dressed, drive the car
+
+[00:33:27] all the way to the office, sat down, started work without even realizing it really, yeah, promise, yeah. Yeah, I see that. Have you ever worked up midway through a fact on fish? I'm hopeful it might happen eventually on this. It's called Highway Hypnosis. And people noticed it all the way back to 1921 when it was called Road Hypnotism. And basically what it is, is even when you're looking at something, your eyes are making very slight movements all the time.
+
+[00:33:54] Like your eyes are always darting this way and that and whatever. And normally their response to something that's happening outside is a bird go past or whatever. But what happens when you're driving for ages is your eyes start to go in this sort of predetermined pattern. they start, they're still moving but they move left then right, then up, then down then left, then right, then up, then down and whatever. And the thing is, they don't really alert the brain properly. The brain
+
+[00:34:18] starts thinking that not really anything is happening and then you start losing concentration. So you should roll your eyes round and around and around. Well, you should take a break. Or watch something on your phone. That's another. As long as you've pre-downloaded it, though, that's the part of that. This tunnel, in 2000,
+
+[00:34:37] I love this. Someone got married. in the middle of the Laudal Tunnel. Did you read this? No. It was a young couple, young Norwegian couple, and the groom was called Ronnie Linda, and he said that his mother-in-law
+
+[00:34:50] had attended the wedding, but she had been slightly skeptical about it. And I just love this. He said, she's scared of two things, dogs and tunnels. We've recently bought two Alsatians, and now we've got married in the tunnel.
+
+[00:35:03] And I would say maybe the psychologist should have gone involved there too. Another thing they have in this tunnel is a rumble strip in the middle of the road. And the idea is if you're driving along, you slightly fear off to the middle. You hear it rumble, it wakes you up. These things were invented in 1955 by a guy called Harold Griffin. And they were originally called Singing Shoulders.
+
+[00:35:29] That's better. But they cause a 44% reduction on head-on fatal crashes if you have them on a road. These are US figures. Wow. They should be the same in most countries. So head-on collisions are hugely caused by falling asleep or losing concentration. Absolutely, yeah. Right.
+
+[00:35:45] And there are large areas of Michigan with no rumble strips. So most places in America, they have to have them now on highways, but there are large areas of Michigan with no rumble strips. Porcoa. Why? Ooh. There's no double-lane roads. That's good? In Michigan.
+
+[00:36:03] No. They have to transport something which is delicate, like egg. like eggs to market and if they hit the rumble strips they break all the eggs all of their eggs with you and they're happy to have a full head on collision as long as they don't break a few eggs is that actually weirdly
+
+[00:36:19] more eggs get lost by the rumble strips than end the full of collision yeah no it's a certain group of people who didn't want them at the Amish the Amish who the Amish the Amish yeah or Amish
+
+[00:36:34] I never in my knowledge called the Amish really Do they not like It's the horses. The horses don't like them and they refuse to cross rumble strips because it makes them hard to set their feet down
+
+[00:36:47] because of the way that they're Really? You can step over them. I mean, they're not that broad. Yeah, but the horses just don't like it. And so there are certain areas. I was trying to do a rumble horse name. That was really good.
+
+[00:37:00] Didn't come out right. It wasn't. You saw it though. What you're doing with your lips there? So in any location in Michigan where horse drawn buggies utilize the roadway You're not supposed to use shoulder corrugations, which is what they call them, unless a crash history exists. Right.
+
+[00:37:14] London has a new tunnel. In the week we record this. No. Yeah. Have you guys been reading about the Silver Town Tunnel? No. It's so good. It's great.
+
+[00:37:22] It's just next to the Blackwall Tunnel, which is very, very trafficy tunnel in London, basically. It has to shut down, I think 700 times a year. It gets shut down because the traffic just gets too crazy. Right. So they've just opened another tunnel next to it. But bikes can't go along it because it's for cars. So they're running a sort of. bike bus for it.
+
+[00:37:39] But it's amazing how they built it. So, you know, TBMs, tunnel boring machines? Okay. The one that built this tunnel was called Jill after Jill Viner, who was London's first female bus driver. Okay. And they wanted two tunnels, right? Because it's really big.
+
+[00:37:55] Stop yawning, James. They wanted two big tunnels, right? Normally it's really hard to build two tunnels with the same machine. Because turning it round down there is a bastard. You know, it's really difficult. So reverse, just get some wing mirrors on there. Or don't they famously come out the other side? Didn't they, sorry to interrupt, but for the channel tunnel, I think the boring machines, they just kept boring down.
+
+[00:38:21] They sometimes do. They buried them under the ground or something. So this one, they wanted to use it. They wanted to use it again. They wanted to get good use out of this machine because it's a massive factory. It's huge underground thing. So they put it, I just love this, on nitrogen skates. they put it on compressed nitrogen
+
+[00:38:38] like some skates which rest on compressed nitrogen like a hovercraft and that allowed them to turn it round in a special underground chamber and then go back the other way they must have had to build a massive underground chamber because these things are up to 170 metres long I don't know what that chamber was like but it's crazy
+
+[00:38:56] yeah they are awesome and I think they do like to reuse them now or they break up into little parts because everyone is like the width of the tunnel it's specifically made for that one tunnel so you can't really reuse the whole thing, but you can take it apart and use it. But yeah, in the olden days, they did random shit with it.
+
+[00:39:11] Like, as you say, in the Channel Tunnel, one of them was just like buried. Another one in 2004 was... So great. I can't wait for archaeologists to find that. That's going to be a great day for them. So they literally just changed its directions and it bore its way down to the bottom of the...
+
+[00:39:24] I think it's going to come out in Australia sometimes soon. It's going to split the world and half. I think it actually went into more of a layby. Oh. It is buried on the... Yeah, and then they bricked it. They bricked it up. It reminds me of that really sad Thomas A Tank Engine episode where they brick one of the engines.
+
+[00:39:40] Henry. Henry, he's very sad. Why did they do that? He's been naughty. Oh, wow. He won't come out in the rain. Anyway, we'll save that. But there was another one in 2004.
+
+[00:39:50] One of the TBMs using the Channel Tunnel was sold on eBay. There were obviously loads of prank bids. But then it was actually sold for 39,999 pounds. What was postage and packaging? That's such a good question, Dan. You've hit the nail on the head. I never thought I'd say this, but if only the buyer had been as smart as you are, because he bought it and he signed the contract and everything,
+
+[00:40:11] and then he got an email from him who was called Stedem, called him his name. Guess how much it was going to cost him to collect it? I mean, an insane amount of money. So he paid how much for the thing? He paid 40 grand. Which is a bargain? Is it?
+
+[00:40:25] For a big tunnel machine? Yeah. Secondhand. Vintage. That's a really nice car secondhand. You know what I mean? Yeah. Or you get a machine that could dig a channel.
+
+[00:40:36] I don't think they're that road worthy. But yeah. Okay. It cost a quarter of a million pounds to move it. Gosh. And can you back out on that sale? Sometimes they're really strict on eBay. You can't back out of the tunnel even.
+
+[00:40:50] You can't do anything. Okay. It is time for our final fact of the show. And that is Anna. My fact this week is that walking backwards is healthier than walking forward. Wow. With some caveats, like, you know, don't do it at Russia on a main road. Don't do it through a railway tunnel.
+
+[00:41:14] Railway tunnel. This is just sort of a raft of stuff that's come out in the last 20 years, I guess, about the various advantages. Most crucially, burns more calories. So, like, the metabolic cost of walking backwards seems to be significantly higher. I think the first study was in 1995 that found this, and it found the oxygen intake and heart rate of the various, I think it was 27 subjects, increased between 38 and 119% walking backwards compared to walking forwards.
+
+[00:41:43] Okay, I have to say, I'm not massively surprised by that, given that for two million years we've been evolving to walk forwards. Like, doing something hard is harder than doing something easy. It's like doing press-ups constantly is harder than just lying there. But that's because I'm involved with just lie there. You might as well say that walking like a kangaroo is healthier than walking like a human. Basically, doing anything really difficult that feels unnatural is better for you. Yeah. I think so a lot of this stuff makes kind of perfect sense because it's doing stuff that you're not used to doing, right?
+
+[00:42:14] So this is why it's often used in rehabilitation for things like osteoarthritis because let's see you've got knee problems because you put too much pressure on your knees. You go for runs, you're walking on tarmac a lot. You start walking backwards. Suddenly you're putting pressure on different parts. So your quads are taking a lot more pressure or if you've got plantar fasciitis in your heels. Oh my God, it's a pain, isn't it? I feel for you. But if you start walking backwards, then you don't have such an impact on your heels. Did anyone do some walking backwards for this? I did 15 minutes in my garden.
+
+[00:42:44] Did you? Fifteen minutes? That's a lot. Yeah, well, I couldn't be bothered doing any research. I meant to say you look fantastic today. Thank you. Well, you should see my heels. So how was it?
+
+[00:42:57] Well, to be honest, I didn't really see much difference in the 15 minutes I did. Apart from, I would say it works slightly different muscles in my legs. like my Achilles probably and my calf that normally wouldn't feel it after 50 minutes walk, I could feel it after. Also, your neighbour's author, you're a witch now? There's no doubt. I did, because quite a lot of my neighbours' houses overlook my garden. And I did think they probably think of a bit weird.
+
+[00:43:25] They already know. Yeah, I'm sure you've done worse things on that garden. Where did those bags of money come from? But it's quite good. I read a few articles where it said that backwards running, as opposed to backwards walking, is quite good in warming up if you're an athlete because it uses slightly different joints and tendons as you would normally do. Also, there was another person, an orthopedic specialist called Nicole Hass, who in one of the papers, she said that actually one of the main things is it's using your brain in a slightly different way. Yeah.
+
+[00:44:01] Because like one of the things you're doing quite a lot when you're walking backwards, as I know, is working out where everything is and what you're not falling over. Because my garden is not very big and I had to do lots of laps of it to do 15 minutes. And all the time you're thinking, where did I leave that barbecue? Yes, yes. Well, next time you do it, you should do what a man called Patrick Harmon did when he took on a challenge to walk from San Francisco to New York, which is he walked backwards, but he had installed near the front of his chest a car mirror. so that he could see everything that was behind him. I mean, it makes perfect sense, doesn't it? He said it was good for him.
+
+[00:44:37] So he did this in 1915. Yeah. It took him about a year. Yeah, 290 days in total. Yeah, about a year. A big chunk missing from the whole year. The bulk of a year. I'm really looking forward to going to your 60th birthday.
+
+[00:44:56] Yeah, it's going to be like 52. And he claimed, that it had made his ankle so strong, it would take a sledgehammer blow to sprain them. So he clearly felt some kind of benefits. Yeah. It's interesting that he, because he did that 1915, did you say. Yeah. Because there was a guy called Plenie Wingo, who, he's the one in the Guinness World Record Book
+
+[00:45:18] because he walked 8,000 miles from Santa Monica to Istanbul, so a bit further. But I think he believed he was the first person to come up with it. Twice as long, just to... When you say a bit further, and almost a year. A bit further. Well, fact-checkers Shriver today. You don't want us doing down the backwards walkers to you. They need to get their justice.
+
+[00:45:39] Some respect, please. Pliny Wingo. He lost his business. In the Great Depression. In the Great Depression. I don't sound so excited about it. We're going to be seeing lots more of this kind of great stuff soon. So right, we're topical.
+
+[00:45:54] Limber up. He had the idea because he was listening to his daughters, his 15-year-old daughter, her birthday party chatting to her friend saying, everything that could ever be done has been done now because it was this age of stunts. We've talked about flagpole sitting before. Everyone was sitting on flagpoles and crawling up mountains, pushing peanuts up mountains with their noses.
+
+[00:46:14] And he said, not everything's been done. No one's ever walked backwards around the world. And then he thought, bugger, now I've said that, I'll have to do it. And he tried to do it. And he got his first turkey and then they kicked him out and told him to go home. I don't think he did make his fortune. It's very hard to tell. He didn't.
+
+[00:46:30] He didn't. He didn't. They said when he got to Turkey, they said he had to leave the country for his own safety. Because I think the idea was that people were throwing things at him quite a lot. I'm surprised you got as far as that. Apparently, according to one article I read about him, he was in New York City walking backwards,
+
+[00:46:47] and he agreed to walk backwards along the top ledge of a 12-story building in return for money. Gosh. And then loads of people paid him to see him do this. And he did it. But the guy who was working with him and collected all the money off the onlookers just did a runner and took all his money off him.
+
+[00:47:05] Forward a backwards runner. Well, if you're walking backwards, it's hard to catch anyone, isn't it? Yeah, that's crazy. His wife left him, Mrs. Wingo. Oh, no. I mean, I understand why she did it. Absolutely. But he was still walking backwards for decades.
+
+[00:47:19] So in 1976, he appeared on the Johnny Carson show, one of these American talk shows, saying, I'm doing it again. And he claimed he was going to do another round-the-world thing. I think that suggests that. he didn't make his fortune the first time. I think it does, sadly. There is a profession
+
+[00:47:37] who walk backwards maybe more than any other. Maybe. I'm not certain about this, but it's a good, I think it's a good. Photographers? Nice. Yeah, that's good. That's good. I was reading a paper about sports people and they said rugby league players, handball athletes
+
+[00:47:53] and soccer referees do a lot of. Yes. Baseball referees is the one I saw. I think there is, is there not a famous one I think we might have even mentioned it before about at the White House, it's people who are doing the tour guides. They walk backwards. Pentagon, I think it was. Yeah, where they have to memorize where, like, the corner is so that they can go around it.
+
+[00:48:14] Why? Is it so they keep an eye on people? Yeah. Oh. Just get the mirrors. Yeah, the mirrors, exactly. But I've trained as a football referee and for sure, as part of the training, they teach you how to run backwards well.
+
+[00:48:26] To me. Yeah. Or they don't teach you, but they just say, make sure you know how to run backwards. I used to do it quite a lot I'd say when I was a nipper Yeah I was running backwards
+
+[00:48:37] So a refereeing Was that avoiding the wedgy As they chased you Okay Okay You can't be wedgied That way round They could be a front wedgis
+
+[00:48:51] The front reggae It makes it look like a Disney Tower There's another group of people who are becoming expert backward walkers in recent times, and that is celebrities. So Taylor Swift spends a lot of her time walking backwards so that she can avoid the paparazzi taking photos of her. Is it so that they can't sell the photos because they're trying to sell those photos of her walking forward? Now, as in the paparazzi stood in one particular place,
+
+[00:49:21] and you need to have your back to the paparazzo so that they can't see your face. I saw a quite a recent news article about her walking through the woods, right? Yeah, she went to a whole mountain trail, basically, walking backwards so that the paparazzi couldn't get shots of her, yeah. Bag overhead she should do. Bag overhead and holes for the ice. That's a good idea. Absolutely.
+
+[00:49:41] But someone's walking backwards. So she's walking backwards towards the paparazzi who are facing her. Let's say she's come out of the building. There's paparazzi waiting outside. She faces the other way to get in the car. But I would film that. And that's, like, but it could be anyone. It could be anyone with blonde hair.
+
+[00:49:55] Oh, please. I don't know Taylor Swift's ass anywhere. I wouldn't even recognise her face, but there's an amazing woman called Justine Galloway, who I think we might have mentioned in our sports book that we happened to write semi-recently. She's a runner. She's 44, and she used to run loads of marathons.
+
+[00:50:13] And then in 2011, she was running her third Boston marathon, and she got really good times. And she suddenly her left leg started staying up in the air too long, sort of swung out to the left a bit, and it just wasn't working properly. And she basically got what is called runners dystonia, which is a bit like the yips in golf, where you just suddenly kind of can't do it.
+
+[00:50:37] And within a few weeks, she couldn't run at all. It's like this weird neurological issue where your brain and your body will not connect at all. And she was obviously devastating, like running was her life. And then she realized if she ran backwards, she was fine. Crazy.
+
+[00:50:52] And now she's got the world record for running a half marathon back Does she do mirrors? Or does she do... She does mirrors? When you do a half marathon with her, does she start at the end? Go to the start. So she passes everyone halfway. Yeah, she gets moaned down in the bedroom.
+
+[00:51:09] So it is a competitive sport. Yeah, I mean, there are all sorts of records. There aren't many full races of people running backwards. But there's a guy called Aaron Yoda, who's the world record holder he is. Runs backwards, speaks backwards. He's done a mile in five minutes 54 seconds backwards Which I'm quite sure is faster than I could do a mile for sure Yeah, yeah, yeah
+
+[00:51:34] So walking backwards, right? Imagine you're walking backwards and stuff is happening in your peripheral vision Some people are better at noticing those things than others Only if you're walking backwards. Only if you're walking backwards, yeah. Can we guess this? Is it like football? It's a class of people.
+
+[00:51:53] I'd be a studist if you weren't in that. Is it a profession or a nationality? It's a hobby group. Oh, is it like Birdwatchers or train spotters? Not them. Think of a hobby that slightly more normal people might do and the tunnel boring machine enthusiast. What was a normal hobby? It's something that cool people might do.
+
+[00:52:18] It's slightly more cool people than you. It's people who play video games. Oh, yeah. Those jocks, those bloody jocks. So there was a study that was done. Are they cool? Sorry, come in question. I was just thinking cooler than boring enthusiasts. Oh, yeah.
+
+[00:52:33] On a par for me. I actually was thinking I'd love to write a film script set on a tunnel boring machine. I just think that would be a really cool. Like a really slow version of speed. We've got to keep going at 0.25 miles an hour. Or she's going to blow! So the thing is, right? They wanted to find out, do people who play video games have better perception?
+
+[00:52:57] And especially people who play, you know, like first person shooter games. Okay. So they tried that and they realized that actually people have equal perception. If you, Andy, as someone who plays video games, are walking straight down a road, then you equally can see things in your peripheral vision. But for the people who play video games, when you're going backwards, they have much better perception. And that's because in video games, often these shooters, they are moving back.
+
+[00:53:22] Like when you move backwards on your joystick, your character is so easy to do. Yeah. So they're seeing that quite often in their day to day hobby, whereas we hardly ever see it because we hardly ever walk backwards. That's cool. I thought you were going to say it so that you had a peripheral view on seeing whether or not your mum came in to tell you to stop playing video games. Oh yeah.
+
+[00:53:42] So you just built a better... So video games are prolific wankers. ...nature's joystick. joystick. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us
+
+[00:54:06] about the things that we've said over the course of this podcast, we can all be found on our various social media accounts. I'm on Instagram on at Shriverland. James. My Instagram is no such thing as James Harkin. Andy.
+
+[00:54:18] I'm on blues guy at Andrew Hunter. Yeah. And if you want to get to us as a group, Anna. You can go on Instagram to add no such thing as a fish, Twitter at no such thing or emailpodcast.cure.com. Yep, or you can go to our website. No Such Thing as a Fish.com.
+
+[00:54:32] All of our previous episodes are up there. You can get a link to merchandise to our live shows. We've got a gig coming up in Sheffield in July. Come and see us there. Or join Club Fish at a steal. Two pounds 99. While stocks last. While stocks last.
+
+[00:54:47] We have lots of bonus episodes up there. Add free episodes as well if you want that. Do check it out. Otherwise, you just come back here next week. We'll be back again with another episode. We'll see you there. Goodbye.

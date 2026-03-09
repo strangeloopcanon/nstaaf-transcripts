@@ -1,0 +1,225 @@
+# No Such Thing As A Fish - 11: No Such Thing As A Door Knob In Vancouver
+
+- Episode date: May 17, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/11-no-such-thing-as-a-door-knob-in-vancouver
+- Slug: 11-no-such-thing-as-a-door-knob-in-vancouver
+
+## Transcript
+
+[00:00:00] We ran it on QI a few years ago, which was, there's no such thing as a fish. You think there's no such thing as a fish? No, seriously, it's in the Oxford Dictionary of Underwater Life. It says it right there, first paragraph, no such thing as a fish. Hello, and welcome to another edition of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Convert Garden. My name is Dan Shriver, I'm sitting here with the regular three elves, James Harkin, Andy Murray and Anna Chazinski,
+
+[00:00:36] and once again, we've gathered around the microphones with our favorite facts from the week, and we're about to go over them in no particular order. Here we go. Starting with fact number one, and that is... Andy's. Yep, my fact this week is that the words Tory and Prime Minister both started out as being insults.
+
+[00:00:56] Wait, so how would you... What was a Prime Minister called prior to a Prime Minister? Well, Prime Minister was originally not called that. He was called the First Lord of the Treasury, and the term Prime Minister was thought to be an insult because it was as though the First Lord of the Treasury was putting himself above other ministers and marking himself out as in some way better.
+
+[00:01:18] So the one we called the First Prime Minister, Robert Walpole, didn't actually call himself Prime Minister ever in lifetime, and it took a very long time. I think it was 1905 before the phrase was actually officially recognized. So I really like... I just like that a lot. Yeah. And Tory used to be a word for a brigand or an outlaw in Ireland
+
+[00:01:37] who were noted for outrageous and savage cruelty. Well, that's quite a change of meaning, isn't it? Yeah, most of them are not Irish anymore. But it was... yeah, Tory is older than Conservative, which I always thought was strange because Tory sounds like the slang term for the Conservative. WIC was also an insult, I think, wasn't it? What's that?
+
+[00:01:56] Yeah, WIC meant a cattle driver. So it seems like all the names that we give to our politicians and political parties are actually negative... have negative connotations. But this got me onto unparliamentary language and what you can and can't get away with in the House of Commons. So MPs should not call other members liars, suggest they have false motives,
+
+[00:02:16] misrepresent what another person has said, use abusive or insulting language, or describe another member as drunk. You can't do that. But you can get away with loads of stuff. So, Tony Banks, Labour MP, said that Margaret Thatcher acted with the sensitivity of a sex-starved boa constrictor.
+
+[00:02:35] He also described Tory MP Terry Dix as living proof that a pig's bladder on the end of a stick can be elected to Parliament. Which is pretty rude not to be... Yeah. ...cooled up on a... There was the famous one, was it Dennis... Dennis Skinner said that half of Tory MPs
+
+[00:02:53] are thieves and criminals, and he was told to take it back, and he said, alright then, half of Tory MPs are not thieves and criminals. Oh, boom. I don't know when we don't have more fun political... I guess we have the Monster-Aving-Luney Party,
+
+[00:03:05] although I don't know what's happened to that. But other countries have some super fun political parties, like the Polish Beer Lovers Party. Poland actually has some really good parties. But yeah, which won 3% of the vote in 1991. Could you accuse that party of being drunk in Parliament? I guess that was the best thing. I do like it when,
+
+[00:03:23] just to take it away from politics for a second, of taking a word that was meant as an insult, and suddenly it becomes the main thing. And famously, that's what happened with Fred Hoyle when he was told about the theory about how the universe began, from an explosion of a singularity and so on. And he coined the term Big Bang.
+
+[00:03:44] But he said it in a sort of, oh, I guess it was some sort of Big Bang. And he didn't agree with the theory, but everyone went Big Bang. I'm going to write that down, got down to the press, and it not only helped give it a name, but it actually popularized it as a theory generally,
+
+[00:03:59] because it was such a lovely term. So the newspaper is picked up on it. And I've got his obituary up here. He died in 2001. It's a BBC News. This is the opening paragraph. The English astronomer who coined the term Big Bang to describe the academic theory.
+
+[00:04:12] So immediately, it's the top line of his life. That's one thing that he didn't want anything to do with. Do you think our insults have got worse over the century? I think, like, when you look back over Shakespearean insults and age-old insults... Do you mean less proficient and beautiful? Yes, less interesting, less imaginative. What's the thick of it?
+
+[00:04:29] I mean, there's always been a market for people who are really good at coming up with insults. Actually, that's a good point. That is a good point. There's a Dutch insult. I can't pronounce it. Volgishet in Palingvel, which translates as a shit-filled eel skin,
+
+[00:04:42] which means a skinny person. Such an elaborate way of calling someone skinny. I think we're slightly running low on insults at the moment because we're all becoming quite aware of how actually insulting they are. I've got loads here. All right. All right, then.
+
+[00:04:58] Top three insults that you've found. Oh, blimey. All right. The Micronesian island of Yap, and in the Yappy's language, only about 6,000 people speak it, one of the most serious insults you can dish out is saying,
+
+[00:05:09] you have no foreskin. They have very big stones, don't they, in Yap? Do they? Yeah, they're famous for... Instead of currency, they have these massive, massive round millstones, and you can buy a house with them or whatever. And they never move
+
+[00:05:24] because they're far too big and heavy to move, but the ownership of the stone just transferred from one person to another. Brilliant. The cool thing about these stones as well, they're absolutely massive. We'll put a picture up on the website. It's not always the biggest one that is most valuable.
+
+[00:05:38] It's the one which was the most difficult to get. So if someone died when they were trying to get this stone, no matter how big it was, it would be worth more than a massive one which was easily got. Wow. Size doesn't matter. So, and the second...
+
+[00:05:51] Okay, so, yeah, first one, Micronesian, I don't know the app, you have no foreskin. Second one, I do like the Farsi curse, which translates as, may a fart be on your beard.
+
+[00:06:03] So... That's great. That's brilliant. So graphic. And last one. Oh, can I have... Okay, can I have a tie for the last one? Yes.
+
+[00:06:13] It's either the Hungarian insult, lofaz as segedbe, which translates as, may a horse's penis make its way into your bottom. Or, and this is one of the very worst insults in Argentinian Spanish, which equates to calling someone's mother a prostitute 16 million times over.
+
+[00:06:30] Wow. It translates as, your mother who gave birth to you twice was a whore 2,000 times over squared. So, it's... Well, it's a mathematical insult as well. I always think that learning insults in a language would be a good way of starting to learn.
+
+[00:06:47] Yes. I have this theory of learning languages as in learning the vocabulary, which is, first of all, you go for the insults because that's the one that everyone wants to learn. You know, as soon as you know what your mother is a whore in a language,
+
+[00:06:59] you want to use it all the time. The next one is you learn words that sound slightly rude in English because you're going to remember those all the time. And then you go from there. And I think that's a really good way of learning vocabulary in languages. It's a very good way of learning.
+
+[00:07:11] It's not the most appropriate way of starting a conversation in the early stages. That's why the guidebooks begin with like, where is the bang? Yeah. Hello.
+
+[00:07:20] Nice to meet you. It's not, your mother had sex with 2,000 squared. Yeah. Okay. Time for fact number two. Anna. My fact this week
+
+[00:07:38] is that in a 2005 questionnaire about substance abuse, almost one in five respondents admitted to taking a drug that doesn't exist. That's brilliant. Taking drugs will do that to you. Yeah.
+
+[00:07:50] So it's this drug called Derbysoul, which is a fake drug. It's existed since 1974. And it's basically inserted into surveys to test if respondents are lying. But it's kind of interesting because it suggests that people who respond like students who are responding
+
+[00:08:04] to questionnaires about how many drugs they take just love to claim that they take all the drugs. Just constantly taking drugs, even fake ones. I'm not sure if they take all of them because I saw that it said like 5.6% of people in one of the surveys I saw took this Derbysoul drug, but only 3.6% used heroin.
+
+[00:08:22] So it's more popular than heroin. Yeah. But I guess that's because heroin is more dangerous. Yeah. Well, much more dangerous than something that doesn't exist. Yeah. In fact, Derbysoul is probably one
+
+[00:08:30] of the safest drugs you can take. Anyway, yeah, it's been in questionnaires for like 40 years, more than 40 years because people noticed that there were some fairly implausible results coming through and kids seem to be taking loads of drugs and they didn't see the effects
+
+[00:08:44] of those drugs in school. They were working perfectly okay. They seemed kind of compass-mentus, but they claimed to be taking heroin six times a day. So they suspected something dodgy was going on and so they inserted this drug to see if kids were just lying about what they were.
+
+[00:08:55] Yeah, that's very, very funny. So has anyone actually made the drug? What's it called again? Derbysoul. Derbysoul into an actual drug now because it's obviously that's quite a nice open market, isn't it? They've had free advertising already
+
+[00:09:07] in all these surveys. Yeah. It could be anything because what's annoying about drugs is that you're only going to get like one brand of effect, aren't you? It's a stimulant or hallucinogenic, but this could be all of them,
+
+[00:09:16] whatever you wanted it to be. As used by 5.6% of American teenagers. Yeah. There is something is not to be confused with Derbysoul, which is a wound cleaning spray for pigs and sheep that dissolves pus. You don't want to get those two mixed up.
+
+[00:09:29] Yeah, but I imagine that would get you really high. Yeah. The only other explanation for this drug, I should say, for the people who are ticking the Derbysoul box. In South Korea, Derbysoul is one of the trade names for a drug which is used to treat
+
+[00:09:43] eczema, psoriasis, skin diseases. So maybe all the people at this school just had some serious skin problems and were Korean, but it was in Texas. I guess it's hard to do surveys because people just lie all the time, don't they? Yeah.
+
+[00:09:57] Self-reporting is a massive problem and especially all kinds of slightly naughtier things like drugs or sex or drinking or whatever it is. People misreport wildly. Yeah, I remember reading a survey of how many sexual partners people have had
+
+[00:10:11] and apparently the average man has had something like 30 sexual partners and the average woman's had only seven, which means either everyone's lying or there's one very promiscuous woman. Carl Sagan was a pothead. Wait, so he was. Andrew Yan, his widow
+
+[00:10:29] who made the latest Cosmos series is the head of a movement to get it legalized in the States. Does that mean everything he's told us is just a drug-induced fantasy? I'm going to have to scrap some IQI facts. The same sort of thing. Winston Churchill had the image of him
+
+[00:10:46] always having a tumbler of whiskey with him, but I think a lot of people reported that it was very, very watered down. There was so much ice in it and he drank it so slowly that he may as well not have been having whiskey at all, basically. That supposedly was the same as Dean Martin.
+
+[00:11:00] His whole stage persona was to be this quite drunk, slightly slurry kind of character, but apparently apple juice was what he had to say to you. When we're talking about how it's difficult to do surveys and stuff like that,
+
+[00:11:14] something came into my head. I don't even know if it's related, but Andy, do you remember the thing where people had to do a survey about how they'd react if they were in terrible danger and they were on an aeroplane and they were told the aeroplane
+
+[00:11:27] was going to crash? Oh, yes, yeah, yeah, yeah. I'm sure you researched it. It was to test the response to stress, I think. A lot of soldiers were loaded into a plane which climbed to 5,000 feet and then stayed level for a few minutes and then just shook the passengers around, lots,
+
+[00:11:46] and then told everyone that they were going to die, that there was endermal failure and that they had to fill out forms for any member of their family to get any benefits after they died. And so they did their best, but they then compared the forms
+
+[00:11:59] to ones that they had filled out on the ground when they didn't think they were going to die. And we don't really know what they were using this data for. Some of them got wise to it and they wrote messages on the air sickness bags saying, don't be afraid.
+
+[00:12:12] This is an experiment. You're not going to die. What are other people on the plane saying? To later subjects, yeah. I reckon if I got onto an easy jet flight and I looked at the sick bag and it said, don't be afraid. This is an experiment.
+
+[00:12:23] You're not going to die. I'd probably be more worried than if I hadn't seen that message. Okay, time to move on to fact number three. This is my fact. I stole this fact actually from James Harkin who's writing the new QI book. I saw it over his shoulder.
+
+[00:12:43] It is that sea otters have a secret pocket in their armpit which they like to keep their favorite stones in. That's so sweet. This can't be a secret pocket, can it? Because they lack the capacity to tell anyone. Yeah, it's not specific at all. Yeah, so the stones thing is really interesting
+
+[00:12:59] because they use them. It's an actual tool to smash stuff open. They eat tons of different kind of foods but there's some shellfish-y style foods where they need to like smash it open which I think is not quite rare. Yeah, not many animals use tools. No.
+
+[00:13:14] Let's think who uses tools. Crows and jackdaws have been tested and they definitely use them. Is it a tool to use the ground? I don't know because there's a bird called a lamiguy which lifts up tortoises into the air and drops them onto the ground.
+
+[00:13:30] That's why they're called a ischolus, isn't it? Yeah, onto a particular patch of rocky, stony ground. So I don't know if that's using tools. Yeah, I would say so. You said a name just then. That was the philosopher who died. Ischolus. So did he genuinely die from a...
+
+[00:13:43] Well, we don't know exactly how he died but the only evidence that we have is that someone wrote that that's how he died. Nobody, he did supposedly die that way, didn't he? Yeah, yeah. Is that the only case in history of that having happened? To my knowledge. There was a different case of an asteroid
+
+[00:13:58] killing a dog in Egypt in 1912 but that's completely different. That is... The only link is something falling on someone. There were always rumors that you could die from effluent flushed out of aeroplanes. That's not true, is it? Frozen effluent.
+
+[00:14:13] It's not true. No, it can't happen in case anyone was scared. Well, what happens is that people who live under flight paths will sometimes find blocks of ice and it's slightly miscolored and they think it's going to be frozen urine. But what it usually is is the planes have been flying very high.
+
+[00:14:29] They get ice on the wings and then when they come down the ice melts and it falls. Okay. Does that make you wonder if you've got terrible food poisoning on a plane if they have to, on a long haul flight, if they have to make an emergency landing halfway there to unload? Do you see that thing where 100 children
+
+[00:14:41] had like vomiting and diarrhea sickness on a flight the other day? It wasn't 100. Was it not? No. I think the choir was 60 but I think a lot of them did go down with it. It wasn't all of them. They dispatched about four ambulance teams and paramedics.
+
+[00:14:54] But imagine being on that flight. Oh my gosh. I probably conflate in it with another fact which is there was a Baltimore food safety conference a couple of weeks ago and 100 people who went to that got food poisoning. Brilliant. Wow.
+
+[00:15:09] So let's talk about otters. Otters? Shall we? Hold hands. That's all I know. They hold hands, yeah, so they don't float away. Well, they sleep. Yeah, let's put that up on the website
+
+[00:15:18] because everyone loves that video, don't they? That's really cute. Not so cute is that they peel the skin off poisonous toads in one piece before eating the flesh so they don't get poisoned from the skin. But that is a party trick. It's like I can peel an orange with one hand. Here's the thing.
+
+[00:15:34] If you get an orange and put it in a bowl of water, it will float. If you peel it and put it in a bowl of water, it will sink. Wow. Well, baby otters can't dive. They're too buoyant. Really? Yeah.
+
+[00:15:45] That's a thing that comes with age that they can suddenly dive. There's been a bit of anti-otter propaganda on the internet recently. I was reading. There was a magazine article on a magazine, online magazine called Vox. And it was entitled,
+
+[00:16:00] The Case Against Otters, Necrophiliac Serial Killing Fur Monsters of the Sea. It was written by a guy called Dylan Matthews and he said that otters are jerks. He's missed the chance of calling them rotters. They kill baby otters. They have attacked people, monkeys and alligators. And they sometimes copulate with dead otters.
+
+[00:16:22] Attacked alligators? How did that go for them? Successfully? Okay, it's very interesting that he says that because the ancient Greeks had a theory or a belief that otters killed crocodiles by scampering into their mouths and then eating all of their entrails and then running out again when the crocodile was dead.
+
+[00:16:38] Isn't that a great idea? It's a brilliant idea, but it's definitely not true. Yeah. I was reading about wombats. And wombats have a pouch so similar to a kangaroo. Okay. But wombats dig through the ground and so their pouches are upside down.
+
+[00:16:56] What? Yeah, so that they don't get any of the stuff into their pouches. Wouldn't the baby just fall out? No, because unlike a kangaroo, they're not vertical. Oh, yeah. The one wombat fact I remember is that they have cubic feces. They do have cubic feces. They also have incredible butts.
+
+[00:17:12] Like, their asses are insanely hard. No, no, they're very interesting. No, they're very interesting because if they're chased by a predator, they run into their burrow, their hole, but they purposefully leave their butt out and nothing can penetrate it. No, it's true.
+
+[00:17:29] Yeah, Chris Clement, who's a biologist from Australia, came on the Museum of Curiosity last year and I'm sure he mentioned this. He did. This is this is where I first have it. They have a reinforced rump. When a predator attacks a wombat, it runs into its burrow
+
+[00:17:42] and uses its tough cartilage filled bum to block the hole. I've also found that they apparently, they're further is very coarse and wide. So it would feel like bristles to eat, which must be pleasant for a predator. So try and bite. Yeah, I take it all back. Yeah, super butts.
+
+[00:18:00] Speaking of butts, I read that turtles breathe through their butts. Not all turtles, but a lot. Yeah, some of them do. Don't they urinate through their mouth? They do. The whole system is gone haywire there. Are you sure you just weren't holding the turtle the wrong way around?
+
+[00:18:17] Animals collecting stuff. Bower birds. You guys are familiar with bower birds? Bower birds build these amazing structures like these homes for their potential mate and then they collect shiny objects or like nice looking objects and they adorn it and it's amazing.
+
+[00:18:33] So you see them trying to seduce ladies and they'll bring them like anything they can find. There's one, I think there's a video of one keeps bringing this lady like a shiny stone or a bit of sandwich or a bit of cloth and the lady keeps rejecting them and then eventually he brings her a ring and she goes, oh yeah, right then.
+
+[00:18:49] Go for it, yeah. I'll put that on the website. Sounds very familiar. Yeah. The number of times when I was carting my wife bringing her a little bit of sandwich. Okay, and now it's time for a final fact of the show and that's your fact, James.
+
+[00:19:09] Yep, my fact is very simple this week. Nobs have been made illegal in Vancouver. Quite right too. My wife is going for the cheap laugh. Yeah, so doorknobs, obviously. Doorknobs, of course, yeah. And illegal is a slight stretch. It's when you make a new house in Vancouver now,
+
+[00:19:27] it's illegal to put a doorknob on rather than a doorknob handle and that's to make it more accessible, which I think is quite interesting. Is it going to be the first place? Is it going to be the rest of the world? Are we going to be losing the doorknobs? No one will know what a doorknob is in 500 years. Yeah, but that's weird of how recent doorknobs are.
+
+[00:19:45] I mean, Victoria and Abraham Lincoln would not have known what a doorknob was. Really? Yeah, doorknobs only came in in the late 1800s. Yeah, the latches weren't there, things like that. Yeah, yeah, yeah. So if this works in Vancouver, it could be that there was only a 150-year period
+
+[00:19:59] in the whole of history where people had doorknob. Yeah, we think we're... And we were lucky enough to live in that area. I'm blessed. That's your theory about landlines, isn't it, James? Yeah, the idea of having a telephone in your house was it didn't happen until the mid-20th century. Then hardly anyone had it until the 70s and 80s.
+
+[00:20:16] And then everyone had it for a few decades, and now everyone just has mobile phones, no one has landlines. And so in 100 years, they'll look back at only a 20-year period where everyone had phone lines, and it's going to look really weird. Yeah.
+
+[00:20:28] And they're still going to ask in 200 years, why are they still putting this on surveys? Please insert your landline. Stop putting that there. So that's... I mean, that's a really good point. Doorknobs are effectively going to be a blip. It's a bit like...
+
+[00:20:44] So that legislation reminds me of... It's like Shabbat elevators, isn't it? In Israel now, all new builds have to have Shabbat elevators. What about? Because under Jewish law, you're not allowed to operate electronics on the Sabbath. They're lifts that go automatically. They also have Schindler's lifts,
+
+[00:21:00] which they can use as well. That's one of the world's three biggest lift manufacturers. Really? Really? Schindler's lifts, yeah. That is... I can't believe I didn't know that. That's amazing.
+
+[00:21:08] It's amazing. It's great, isn't it? Genius. I read from the ignoble reporters that supposedly lift music, if you have a cold, it's a great cure for the common cold. Lift music is a scientific report published. First of all, we don't have any cure for the common cold.
+
+[00:21:24] Second of all, lift music. I'm only reporting science, guys. People who listen to lift music got better in two weeks. People who didn't took as long as 14 days to recover. On the hand... On the doorknobs thing,
+
+[00:21:37] I found a quote from someone who was hostile to the idea, because the reason they did it was for the elderly and an aging population. A lot of people have arthritis, and the sort of the twisting action of a turning corner is difficult. Yeah, 67 million adult Americans will have arthritis by 2030, according to one survey.
+
+[00:21:53] So that's very interesting. And I found someone opposing it, saying, well, bears will be very appreciative of this change as an unlocked lever door is an invitation of a snack time. Those round knobs are tricky with tools, which kind of compares
+
+[00:22:06] people who suffer from arthritis to bears. I was reading this in The Economist, and one of the censuses they had was, the rules have provoked grumbling about the nanny state, much of it from doorknob manufacturers. Yeah. Well, I found another guy who was objecting,
+
+[00:22:23] who was the president of the antique doorknob collectors of America. Oh. Yeah. But presumably he should be happy, because more of them will be antiques. Yeah, exactly. Yeah. It makes his collection all the more valuable.
+
+[00:22:34] Yeah. Literally everything will be an antique. I was looking at weird laws. Oh, yeah. And it's quite hard to find weird laws that are actually laws rather than internet myths, obviously. But I do like the fact that in Denmark, it actually is a legal requirement to check under your car
+
+[00:22:50] for sleeping people, or for people before you start driving it. Really? And if you do run somebody over because they were sleeping under your car when you started, then you're going to be in trouble for it with insurance. Wow.
+
+[00:23:01] I don't know if this is a common habit in Denmark, if people fall asleep under cars all the time. No, that's very interesting. But it's a thing. And the other thing is it is actually illegal in Thailand to go out in public without wearing underwear. That's a thing. Wow.
+
+[00:23:13] And I also like places where it's illegal to die, which it isn't in the houses of parliament, although a lot of people think that it is. It's not illegal to die in the houses of parliament? No. Wow. You are free to go there and do that. But it is, you know, just if you want to.
+
+[00:23:27] Yeah. It is illegal to die in Longyear Bayen, which is in Norway. Yeah. It's in Svalbard. Yes. When you say it's illegal to die there, what are the ramifications for you once you've done the act?
+
+[00:23:41] I think they're ramifications for your family. Oh, OK. So it's a little bit like that aeroplane moment. How much do you really care about the family who are going to be punished after your death? It's because they found out their bodies don't decompose there. Corpus are preserved by permafrost, which I think James, you might know more about this,
+
+[00:23:55] is just to do with their climate. Yeah, it's really, really cold. Yeah. Because it's about as far north as you can get. Right. So basically, they're like cryogenically frozen, if you will. Do you think Mount Everest is our permanent sort of, it's the most likely spot that future civilizations
+
+[00:24:12] will find people of our time? Because they're frozen. They're fully, like when they found Mallory. Oh, yeah. This whole body was there. Yeah. It's just laying there. Yeah.
+
+[00:24:21] The Look Desert as well in Iran, I think. Maybe it gets so hot that things won't decompose there. Maybe. I might go. That's amazing, though. Yeah. Because you often think, obviously, in cold things won't decompose.
+
+[00:24:32] But of course, microbes are going to not be able to live at a certain heat. I was reading a guide to what to do after civilization ends yesterday, and it recommended plastic bottles to, you know the phrase, sunlight is the best disinfectant. Talk about openness. It turns out that sunlight also acts as a disinfectant by killing microbes.
+
+[00:24:52] So if you want to have cleaner drinking water, put it in plastic bottles, let the light shine quite fiercely on it, and the light, and all the heat, I'm not sure, will kill. When microbes. Knowledge. That's good, eh? That is good.
+
+[00:25:05] Why are you doing that? Were you having a rough day yesterday, Andy? I'm just finishing my plans. Speaking of survivals, if we don't have door knobs anymore, then there are some things that they've been useful for in the past that we won't have anymore. So after the tsunami, the famous one in Southeast Asia, there was a guy called Rizal Shahputra, and he got lost at
+
+[00:25:26] the sea, as many people did, but he survived because he ate coconuts, which he cracked open with a door knob, which was also floating past. So that was a really useful door knob. That's great. If only he had a little pouch in which he would be in that knob at all. Yeah.
+
+[00:25:43] Between 1830 and 1873, over 100 US patents alone were for door knobs. Oh. Slight improvements on the door knobs, or? I guess there would be like the latch. They would be in the toilets when you do just that little turnover, little bar goes over. I mean, I guess they count as door knobs, don't they?
+
+[00:26:02] I think a knob has to be knob shaped. Yeah. God, then that's going to be an exciting afternoon looking into what those patents were. There are still a lot of innovations happening though. I think they're working on ones which, in hospitals, which dispense hand sanitizer as you go through. Although presumably they wouldn't do that every time you
+
+[00:26:18] open the door. Otherwise, you just have loads of hand sanitizer on the floor and a lot of people slipping and falling. But I think they have developed a way of doing it. So you can also give yourself a quick hit of hand sanitizer as you go through from one room to another. Right. It's pretty cool.
+
+[00:26:31] At least when you're falling and bleeding and your wounds are all open, you've got a very sanitized surface to land on. Yeah. In the absence of Derbysole. OK, that's it. That's all our facts for this week. Thanks so much for listening, everyone. If you want to get in contact with us to ask us about any of
+
+[00:26:55] the things we've been discussing in this episode, you can reach all of us on Twitter. I am on at Shriverland. James. I am at Eggshaped. Andy. I'm at Andrew Hunter M. Anna, what's yours?
+
+[00:27:07] I'm on at... Anna's still not on Twitter, but if you do want to get through to where she can be got on at Quikipedia. Outside of that, if you want to find out anything more about the stuff we've been talking about, we've got a page that goes up on qi.com slash podcast, which includes links, photos, videos, any of the stuff that we're talking about that we can find extra additional interesting stuff
+
+[00:27:27] is going to be up on there. So go have a look and check out all the other podcasts as well. And we'll be back again next week with more facts. See you again next time. Goodbye. You

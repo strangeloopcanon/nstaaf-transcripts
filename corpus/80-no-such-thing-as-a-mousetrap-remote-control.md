@@ -1,0 +1,159 @@
+# No Such Thing As A Fish - 80: No Such Thing As A Mousetrap-Remote-Control
+
+- Episode date: September 25, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/80-no-such-thing-as-a-mousetrap-remote-control
+- Slug: 80-no-such-thing-as-a-mousetrap-remote-control
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the Edinburgh Fringe Festival. My name is Dan Schreiber, and joining me as ever is the three QILs. Please welcome to the stage Andy Murray, James Harkin, and Anna Chazinski. And once again, we have gathered around the microphones with our four favourite facts from the last seven days, and no particular order. Here we go. Starting with you, Andy Murray.
+
+[00:00:44] Andy, my name is Andy. My fact this week is that the first ever pencils were used to draw on sheep. That's the fact. I found this out last month at the Cumberland Pencil Museum, which is an amazing museum. If you're ever in the area, you have to go. It's in Keswick, and it features, among many other things, a giant collage of Chris Evans made of pencils, which is the most nightmarish thing you could. It's so amazing.
+
+[00:01:12] Yeah, so first pencils were used for sheep. Why? So why? Well, the story is, and I'm not sure how much this is sort of half myth, but the story is that some shepherds found a load of graphite, which had been turfed up in a storm, a tree had been blown out, and there was this sort of black, shiny stuff in the roots, and they realised that it made marks and stuff, and so they started using it to draw on their sheep.
+
+[00:01:33] And the first ever pencils were just lumps of graphite wrapped in sheepskin. OK, that's good. I did slightly have an impression that they were sort of writing novels on there stuff. Just hand your sheep into a publisher, there you go. So when did someone decide that we can now take it off sheep and put it into other uses? Well, that, I mean, that initial discovery was in the 16th century, and there are some people who say that it went back earlier. People say that the Aztecs might have found it and used it as a market a few hundred years
+
+[00:01:58] before, but there isn't too much evidence about that. Yeah, but it was a massive market, wasn't it, the graphite? Like, if you stole graphite, you would be sent to Australia as punishment. Yeah, and they used to have like armed guards, chaperoning their horses and carts with a graphite down to London, didn't they, from Cumbria? Yeah, and even the miners, as you were mining it, you would have two men with blunder bosses next to you to make sure you weren't slipping it into your pockets. It is kind of extraordinary that, so there was this naturally occurring graphite that
+
+[00:02:24] was found in Borodale in the Lake District, and that is the only big source of solid graphite that's ever been found. So we, I mean, Britain controlled the pencil industry for some time. Yeah, we were nailing that. It was huge. That was a massive deal. Yeah. And, right, now the Cumberland pencil museum says this, and I can't quite believe it.
+
+[00:02:43] They say that in 1650, graphite was briefly more valuable than gold. But what they did was they deliberately only mined it for short amounts of time in the year to kind of keep the price up, because we have this monopoly on it, and we send it all the way around the world, and they just wanted to keep the price as high as possible. Oh, clever. But now, hasn't it now turned once again into one of the most expensive materials in the world? Yeah, pencils are more expensive than gold.
+
+[00:03:07] Yeah. Yeah. No, no, but so... I'll have a few here. I'll sell to you after the show. We met, James and I have actually met a guy who's, his name's Andre Geim, and he discovered, so he's a scientist, but he does all sorts of interesting science things. For example, they had the biggest, what was it, the biggest magnet in the world.
+
+[00:03:27] Yeah, he made a frog levitate. So basically, he was passing the biggest magnet in the world, and he thought, oh, that's a pretty big magnet. I wonder what would happen if something went into it. So he threw his ham sandwich into it, and it floated. It just floated inside this magnet, and then he won an award for floating a frog inside it. The sheep and frogs have a mutual support group where they discuss what people have subjected
+
+[00:03:48] them to, like, and they drew it all over me for 300 years, while I was levitated between magnets. Will you say he chucked a ham sandwich in there? Yeah. That's an amazingly cavalier use of what is presumably a really expensive bit of equipment. I know, it was a pole move. A ham sandwich! Yeah, he won a Nobel Prize for that, but then he won a Nobel Prize for discovering graphene.
+
+[00:04:10] Yeah. Yeah. Which is done. You know, when you write with them, that bit that comes out? Back to you, James. Yeah, it's a layer of carbon, which is basically one atom thick, and they think it's going to be the future, and they'll make all sorts of things out. And it turns out that it's the strongest material that we found in the universe.
+
+[00:04:30] Graphene is so strong that if you had a sheet of it, I think I read this, you could balance an elephant, a grown elephant, on the elephant is standing on a pencil, and the pencil is going to point down on a sheet of graphene, and the graphene won't break. That's how strong it is. Wow. How are you lifting the elephant onto the pencil though, I think that's the question. So you were saying about how long was it until we had pencils. Well, actually graphite is kind of okay, but it wasn't quite good for pencils, because
+
+[00:05:00] it kind of fell apart a little bit, and in 1843 an artist called William Brockenden invented a machine which could press graphite so that you could have actual lead, like you would have in pencils, but that machine actually has had a much better use. They found out you could use it to make pills, and all the pills that you eat today. All the pills, all the many, many pills I have, I have some in my pocket which I'm going to sell to Dan after the show. Yeah, all the pills that you take today have come because of the invention of pencils. Wow.
+
+[00:05:31] That's interesting isn't it? Really? Yeah. Oh, and tabloids used to be pills, didn't they? Oh yeah. That was the origin of the tabloid. That's where tabloids come from. Pills used to be much harder to swallow.
+
+[00:05:39] Back in the day. That's, I wanted to use this as a main fact for the show, but bubble wrap was not used as bubble wrap. It was originally designed as wallpaper, and they for years were trying to get people to buy their futuristic wallpaper, and no one liked it, and it sat in an office for ages, and then suddenly someone just went, why don't we put it in this box and it worked, and suddenly that's how the industry grew, but they sat there for years just going, what do we do with our...
+
+[00:06:02] They sat there with ears just popping the wallpaper. This is amazing. No one getting any work done. Yeah. The 2013, they had a thing called the Diagram Prize. They have it every year, and it's for the weirdest book title, and in that year, the prize was won by a book called Goblin Proofing One's Chicken Coop, but what came second, or what it beat to the prize, was a book called How to Sharpen Pencils.
+
+[00:06:27] It's by David Rees, and I went on to Amazon to see if I could buy it, and they have a deal where people who buy the sharpening pencils book also buy pencil sharpeners and a set of 12 pencils, and you can get them all for £45.87. That's not bad. That's actually just the shorter version of the title of that book, so the longer version is a practical and theoretical treatise on the artisanal craft of pencil sharpening for writers, artists, contractors and flange turners, and it has unbelievably high ratings, so it has 82 ratings on Amazon, and more than three-quarters of them are five-star ratings, so one rating,
+
+[00:07:06] the top five-star rating is headed sharp and to the point. Which was nice. He also runs the guy who wrote it, David Rees, now runs a pencil sharpener sharpening business where you can send your pencil to him, and he'll sharpen it. Wrapped in bubble wrap. There's a quote from him, he says, I'm sure there's probably somebody in India who could sharpen your pencil for less, but if you want authentic American craftsmanship... Is it true the thing about them using pencils in space?
+
+[00:07:39] It's true that they did, but the thing that isn't true is that America spent billions making a special ball pod pen, and the Russians just took a pencil, actually they all just took pencils. And then the space pen was developed, which was that great pen that you can buy commercially now, and a really interesting thing, it was down to that pen that both Neil Armstrong and Buzz Aldrin were able to get off the moon, because, yeah, no one knows how important this actually was. So as they were on the moon, and it was time for takeoff, they had the ignition switch,
+
+[00:08:09] which had to go on to set the boosters off to launch back into space, and as Buzz Aldrin flicked it on, it broke in half, and he thought, oh, that's, I reckon he didn't say, uh oh. What was he saying? Uh oh, Spaghetti-O! So what he did was he took out his pen, and he put it into the switch, and he used that as the switch to get them off the moon, yeah. Wow, that's amazing. I did not know that.
+
+[00:08:35] Wow. The world's largest pencil has a 250-pound eraser on the end, the lead is 4,000 pounds in weight, and the exterior is a perfect yellow hue of these typical American yellow pencils. It's from Pennsylvania. No. No way. Sorry. Is it really?
+
+[00:08:56] The graph out is from Pennsylvania, yeah. Is it really? Yeah, and I'd never noticed that. Oh my God. Oh my God. Because it's that spell pencil thing here, is it? Yeah. Wait, did you just notice when he said it out loud just then?
+
+[00:09:09] I noticed it when everyone laughed. Ah. It'd be a really cool sort of cartoon character of a vampire with pencils for teach from Pennsylvania. That'd be great. Amazing. They, yeah, the one problem with this massive pencil that they didn't think of while they- They can't be lifted by any human. Is that the one problem?
+
+[00:09:31] There was one more problem. They said, we thought about making the world's largest pencil sharpener, but we ran out of money. Do you know that, speaking of having rubbers on them, the guy who discovered that rubber could erase pencils, so before that people used to use wet bread, didn't they? Yes, breadcrumbs. But the guy who discovered that rubber, first of all, that rubber could be used to erase pencil, also discovered oxygen. It's priestly.
+
+[00:09:58] Yeah, yeah. He was the first person to write, oh by the way, this rubber thing I'm using to write down all my chemical theories is really useful for erasing the wrong ones. That's amazing. Yeah. The guy who thought of first putting a rubber on the end of a pencil was a guy called Hyman Lipman. This, what are you laughing at? Well, Hyman is a perfectly normal name, absolutely.
+
+[00:10:21] This was in 1862, and he came up with this idea, put a rubber on a pencil, brilliant idea. He sold his patent to a guy called Joseph Rockendorfer for $100,000. And then Rockendorfer thought, ah, I've got the patent now. He started suing everyone else who was making them. But the Supreme Court of the United States ruled against him saying that the patent was invalid because actually he was just taking two other inventions and sticking them together. And so he paid £100,000 for nothing. So two inventions stuck together doesn't constitute a new invention?
+
+[00:10:51] No, why? Nothing. Don't get excited about the mousetrap remote control anytime soon. OK, time for fact number two, and that is my fact. My fact this week is drinking alcohol makes you more attractive. It's something that they discovered fairly recently that, and they did this with test studies with students. So if you drink a glass of alcohol, it makes your face more attractive.
+
+[00:11:18] But then if you drink another, then you reduce yourself again back to... Oh. No, it's, yeah, so it's basically, they say that it just relaxes your face. A glass of alcohol relaxes your face, it makes you seem more sexy. You can't see me back home, but the audience is going, whoa. I didn't know Captain Sexy was in the room. So the thing about faces that the more relaxed they are, the sexier they are. That's why Slack George people are famously gorgeous.
+
+[00:11:42] Well, there are a couple of theories, aren't there? Because it could be that your pupils get larger after a glass of wine when people, that's a sign of attraction, so you look more attractive if you have very large pupils. Or it could be the other theory is possibly that your cheeks get a bit rosier, and that's a sort of sign of vitality and health and all of this stuff. It is weird that it's only one glass of wine though. I mean, I can't believe people's physical appearance changes that much
+
+[00:12:04] between one glass of wine, one glass of wine, and I've had too many actually myself. Your glasses are very large though, aren't they? There was a study done about beer goggles as well that they gave people alcohol and they asked them to rate people's faces. They said it was a roughly 10% increase in ratings of attractiveness when you got drunk compared to when you were sober. Really? That was supposedly to prove that beer goggles exist.
+
+[00:12:29] There was also a study where people were split into four groups. So basically this study showed that people when they're drunk think they're more attractive. So they're asked to look at pictures of themselves or videos of themselves and if they're a bit pissed they're like, yeah, I'm really hot. But people who think they're drunk but aren't drunk still think they're more attractive. So they gave people what they said was six shots of vodka and then it wasn't vodka, it was just water that smelled a bit like vodka. And then they asked them to watch a video of themselves
+
+[00:12:56] and they operated their attractiveness because they obviously convinced themselves they were drunk and then thought, well, when I'm drunk I become more attractive. So isn't that interesting? That is really cool. I mean we said some of the animal experiments were quite cruel but I think giving people water and saying it's vodka is about as cruel as you can get.
+
+[00:13:14] I'd be suing. Six shots is an awful lot, isn't it? Oh, Andy. Who's with me? Temperance guys. But what if all alcohol was just replaced by placebo alcohol and no one told us? It would just be exactly the same. If we think we're drunk when we're not,
+
+[00:13:36] they could just save all that money making alcohol and just give us stuff that smells and tastes a bit like alcohol. They've been doing it for the last ten years. I was part of the committee that decided. Mine is real, but you're guys. There's also a study that showed that men rate pictures, so yeah, we think people are more attractive when we're a bit drunk and men even rate women more attractively when they look at pictures of them
+
+[00:13:59] and when they are read alcohol-related words. No. If you say the word beer to a man and then put a picture of a woman in front of him, he's like, oh yeah, she's hotter than she was five minutes ago. So if you felt like you were slightly unattractive in life, you could just rename yourself whiskey or... Hello, I'm beer. Lovely to meet you. Hello, beer. Lovely to meet you.
+
+[00:14:21] Really? Yeah, I think that's a really good idea. Oh, my God. I found out about another study. It was a 19 study by a group. I think it was of German scientists. It was for how to get a bartender's attention. The results revealed that Barstaff responded to a set of two non-verbal signals. Exciting. What are these signals going to be?
+
+[00:14:39] First, customers position themselves directly at the bar counter. And secondly, they look at a member of staff. Because I've been doing it wrong for years. You've been stood outside looking at a horse. So fruit flies use alcohol as medicine. They are often attacked by parasitic wasps who kind of lay eggs in them and then eat them from the inside when they're born. But what they can do is they can drink loads and loads and loads and loads of alcohol
+
+[00:15:14] and the alcohol kills the wasps, but it doesn't kill them because they're not like you, Andy. They can take it. But even better is when they'll even see a parasitic wasp they will ply their children with alcohol to save them as well. That's what they're telling the social workers, is it? I read another slightly interesting science report which is that our faces look better from behind.
+
+[00:15:41] So apparently when you see someone from behind you picture what their face looks like and you project this face onto a person and ultimately it's usually disappointing when the person turns around according to scientists. And so they've said the best view for any human is from behind of a face, yeah. Also, I found this just quite funny. You know there's that whole concept of wingman.
+
+[00:16:06] Frogs invented the idea of wingmaning. So I read this report where apparently, and they did this test on, I think it was 120 female frogs and a couple of guys, a couple of male frogs, you mean? A couple of man frogs, yeah. And so the man frogs would come into the bar and one of the man frogs would bring an ugly mate, as the scientists call it, and the ugly mate would come in and it'd make the other frog look better looking
+
+[00:16:34] and then all the other female frogs would be like, oh, who's the good looking? Wow. Yeah, I always take a slug to a bar. It works pretty badly. Everyone who's getting off with this slug, it's really embarrassing. We're going to have to move on. OK, it's time for fact number three and that is James Harkin. OK, my fact this week is that the National Giant Vegetable Championships
+
+[00:17:03] had to move venue in the mid-80s as the pumpkins started getting too big to fit through the doors. Sorry, I just find that so funny. Do we know how big the doors were? Yeah, it was a pub, it was called the Mill Tavern, it's in Cumbrand and so it's a proper double swinging door and in the mid-80s, yeah, they had to move it and then it moved to the Cumbrand Working Men's Club
+
+[00:17:29] which presumably just had bigger doors. Where is Cumbrand, sorry? It's in South Wales. OK. So how big were these pumpkins? Oh, well, I'm not sure how big they were then. The heaviest pumpkin in history weighed 1,054 kilograms which is about the same weight as the Ford Fiesta.
+
+[00:17:47] But less practical for the commute. Just at midnight going, this hasn't changed at all. It was grown by Benny Meyer from Switzerland and it was, according to the Guinness Book of Records, it was authenticated by the great pumpkin Commonwealth. I was reading today on pumpkin.com that apparently this is new thing for Halloween now whereby people actively want ugly looking pumpkins
+
+[00:18:16] and they've been trying to breed out ugly looking pumpkins for a very long time because anyone buying a pumpkin wants a good looking pumpkin. Now a sort of warty looking, disfigured pumpkin is all the rage and so they actually, it's very lucrative business at the moment to mess up your pumpkins to make them look a bit odd for one day of the year.
+
+[00:18:35] The ugly warty pumpkins are very popular with the good looking pumpkins who take them to bars. No, these giant pumpkins, they are amazing. They grow them on pallets and they put a pallet underneath the ground while it grows so that once it's got big enough they can get a forklift truck down and put it under the ground and lift it up
+
+[00:18:55] because otherwise it'll just burst or explode. I read an account of a guy who managed to, he put a forklift truck fork through his pumpkin as he was taking it to the competition. Disaster. Oh my God. There's a guy called Clive Bevan. He grows giant pumpkins and in 2011 he donated some to be crushed by a monster truck
+
+[00:19:16] at a charity event. And I don't think there's a better evening out than watching a giant truck crush a giant pumpkin. Isn't that amazing? And he went to, he was sort of poached by the Malaysian government to grow giant pumpkins for them and the ones he grew there, they're about 20 stone and they have to be removed by helicopter.
+
+[00:19:34] There was a study done about how big pumpkins can get and they put a lot of pumpkins in like this weird vice instrument and they saw how much pressure it could get and they worked out that in a perfect world you could get a pumpkin that was 20,000 pounds which is the size of two elephants and that's what their skin could hold before it would just give up. That does sound like a perfect world James.
+
+[00:20:01] This is why I never won Miss World. The longest carrot ever was 19 feet long. Whoa! And the longest beetroot, 21 feet. Longest parsnip ever, 18 feet 5 inches. What they do is they grow them in pipes so you get a very long pipe and you grow it along that and it's very, very hard to get them out of the soil
+
+[00:20:27] without breaking them. You just have to figure out how well you've done until you pick them. That's the exciting thing about growing. So they're like icebergs now. They just continue to grow. Oh, that's the lettuces. Do you know who grew those? Because there's one man who's held the world records
+
+[00:20:50] for the largest broccoli, kale, carrot, cabbage, red cabbage, celery and beet fruit. And I don't know how he holds down a day job. But he's called John Evans from Alaska and he's broken all of those records. Alaska is the place to grow giant vegetables because in the summer months you get 20 hours of sunshine a day and so they grow really large because they do more photosynthesizing
+
+[00:21:14] so if you want to beat records, move to Alaska. It's amazing it started in Wales which gets about half an hour of sunshine a day. Can I turn the conversation to doors? It's relevant, right? It turns three days on doors.com. Not go wasted. So one thing that I found out which I found amazing
+
+[00:21:40] is that we always have the impression that people were smaller back in the day because of the height of doors. You would go to old British pubs and the doors would be quite low and we thought, wow, everyone was so small back then. That's not true. It's in fact it's that it was just doors cost a lot. Doors of shrunk. Yeah, the doors are shrunk.
+
+[00:21:55] No, doors were quite a costly material back in the day so why would you have a ginormous door in your house? You would just build something quite small that you could get into and... I guess also if it was smaller it would be less heat escaping so maybe a better... The revolving door was invented by a man who hated holding doors open for women. Really? Yeah, he was called Theophilus van Kennell
+
+[00:22:18] but the great thing about this guy, he has a Wikipedia page he has loads of articles about him in all sorts of newspapers but in only one place could I find that he had only one arm and no-one else mentions that he only had one arm. Wow. You think that would be the first thing, right? Yeah, especially as it explains his aversion to opening doors for people. Actually a conventional door took his other arm.
+
+[00:22:45] There is a... I have read a manual on taxidermy which says do not make sure the doors of your taxidermy workshop are large enough to get out the animals that you... because there was one guy who had a bad experience with an elephant he genuinely stuffed an elephant and then could not get it out of his workshop. How did he get it in there? I don't know.
+
+[00:23:06] I think maybe he raised it in there and then killed it in there. Do you know that the automatic door was invented a very long time ago? So we think of it as probably quite a modern invention and absolutely the sort of modern... Because it's electric, you would think. Yeah, the electric... The motion sensor thing where you would say... Yeah, exactly.
+
+[00:23:28] But there's evidence that hero slash heron of Alexandria actually invented an automatic door using pneumatics and using water and so on in order to get it open and closed. He was an amazing guy. This guy was extraordinary. He was the guy who invented... He invented the first vending machine. It was a coin-operated vending machine.
+
+[00:23:46] It was a teach in the libraries of Alexandria. So this is how old it is. And the first ever vending machine, you put a coin in it and it gave you some holy water. How cool is that? That's what this guy did. He was like the Steve Jobs of his day. I once hit the Mars bar.
+
+[00:24:01] Okay, it's time for our final fact of the show and that is Chazinsky. Yes, my fact is that the beaded lacewing insect incapacitates its prey by farting on it. So the beaded lacewing is... lacewings are those little insects which are really understudied. Hardly anything is known about them and they have those transparent wings.
+
+[00:24:20] So when it's fully grown, it just is a vegetarian vegan but as a larva, as a baby, when it's less principled, it is really carnivorous. And so these larvae go around and they live in like termite nests and they go around and stun termites with a vapor-phased toxicon which they release from their anus. The larva raises its anus up in the air in the termite's face
+
+[00:24:45] and excretes this scent and the termite feels okay for a little bit. Then it becomes immobilized and then within a couple of minutes it's kind of fainted and then it dies after about three hours and it makes it much easier to pull apart and eat which is quite an impressive way of killing your victim, I think. The other thing I read is that these lacewing larvae
+
+[00:25:05] are 30 times smaller than the termites that they're eating. Wow! Yeah, it's a real David and Goliath situation. I can't imagine what your Bible class was like. Well, and they can incapacitate six termites in one fart. Wow. So very efficient. On the flip side of using something as a weapon, using your bum as a weapon, I read about a slug in Canada.
+
+[00:25:35] Careful, you may be talking about a friend of mine. So, apparently, this slug, when it gets scared, when it gets frightened, its bum falls off. It's just like... Yeah, it's called the Canadian blue-gray tail dropper slug and, yeah, its bum just falls off. There was a study about whether farts contain germs and there were a couple of scientists from Brisbane
+
+[00:26:03] to study this. They asked a colleague to break wind over two different petri dishes, firstly, fully clothed, and then with their pants down. And the second one, trousers down, developed kinds of bacteria that you can only find in the gut or on the skin. And the clothing-filtered one didn't grow anything. So the conclusion was, don't fart naked near food that you want to eat. I've got everything my dinner party strategies.
+
+[00:26:32] I'm really sorry about last Friday evening, guys. Are farts, human farts, travel at seven miles per hour on, like, a good fart? That's about double walking speed, isn't it? That's why if you've ever tried to chase a fart, but at walking pace, you can't catch up with it. Someone's farted that way and you've gone after it like a greyhound. Yeah, I think those were greyhounds, too.
+
+[00:27:05] So there was a study done that looked about how embarrassed people are and how little they would like to fart in public given the set of circumstances. So they were told you could either do a silent and not smelly fart and most people were like, well, I'll do that one, please. And they were like, the one I least want to do is the really loud, really disgusting one.
+
+[00:27:24] Well, that's very different to your dinner party strategy. I was an outlier. They had to discount me from the study. But people are much more averse to making a noise than doing the smell, I guess, because the noise is more obvious that it comes from you. But people would much rather omit what is actually much more unpleasant for everyone else around you, isn't it? Because no one minds hearing a noise.
+
+[00:27:45] Well, the interesting thing about that is humans can't really tell where smells come from. It's really hard. Yeah. Because you smell in, like, one dimension. But then there are animals that can smell in a stereo, like moles. And so if you had a mole sat there next to you, Anna, it would know exactly where the smell came from. But it couldn't tell anyone. That's the tragedy of the mole.
+
+[00:28:08] So, farts are caused by oligosaccharides, the little molecules, and they're eaten by bacteria in your gut. And the bacteria then make tiny little farts, which turn into human farts. So, actually, a human fart is thousands of little tiny bacterial farts. That's honestly the best fact I've ever heard in my life. Are you kidding me? We have a collection of life farting on us,
+
+[00:28:30] and then we just release it as one big waft. You got it. So that kind of technically means it's never really your fault. Exactly. You can always blame it on someone else. Yeah. The 1956 Grand National is quite famous. There's a horse called Devon Locke. And just as it was coming down the final straight, it was miles ahead,
+
+[00:28:49] and it just collapsed on the floor. But actually, according to the head lad of the stable, he tightened the girth, which is like the strapping around the belly of the horse just before the off. He tightened it with one more notch and then another one for good luck. But also, the owner of the horse had already done exactly the same thing. And one theory is that the horse that was miles in the lead collapsed because it farted a massive, massive fart and then collapsed.
+
+[00:29:19] Imagine someone doing your belt loops up four notches tighter than you're used to. Like, I'm almost breaking wind, even thinking about that happening. Poor horse. OK, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things we've said over the course of this podcast, you can find us on Twitter. I'm on App Shriverland.
+
+[00:29:43] Andy at Andrew Hunter M. James at Egg Shaped. You can email a podcast at qi.com. Yep. Or you can go to nosuchthingasvish.com. That's our website. We have all of our previous episodes up there. You can go to atqipodcast on Twitter.
+
+[00:29:58] We'll be back again next week with another episode. Thank you so much for being here, guys. Thank you so much for listening. Have a good night.

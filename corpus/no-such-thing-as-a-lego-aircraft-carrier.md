@@ -1,0 +1,193 @@
+# No Such Thing As A Fish - No Such Thing As A Lego Aircraft Carrier
+
+- Episode date: May 6, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-lego-aircraft-carrier
+- Slug: no-such-thing-as-a-lego-aircraft-carrier
+
+## Transcript
+
+[00:00:02] Welcome to another episode and no such thing as a fish, a weekly podcast this week coming to you from Edinburgh. My name is Dan Shriver, and please welcome to the stage. It's Anna Chisinski, Jane Tarkin, and Andy Murray. Once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Andrew Hunter Murray. My fact this week is that Antarctica exports used... toilet paper. Who wants it? I see why they want to get rid of it. I want to know who wants it at the other end. Well, it's not so much that anyone else wants it, but it's that they can't
+
+[00:00:55] leave it there. So there are loads of different research bases in Antarctica. They used to do very bad things. They used to just dump it into the sea and that can obviously be very bad or it introduces foreign microorganisms which can then have knock on effects on the whole ecosystem. So some people incinerate it now, but there are companies which do tourism to Antarctica, and they export feces and urine and use leaf paper. Hang on, so that's part of the holiday you sign up to as you go to watch them picking up used toilet paper. It's not a big part of the itinerary.
+
+[00:01:28] But if you are doing an expedition to the pole or outside a research base, you basically have to carry your own poo behind you on a sled. Wow. Yeah. But the good thing is it freezes, so it's better. Well, right? It's not the most silver of lining. Do you guys remember that story? Just speaking of it freezing, a poo freezing,
+
+[00:01:51] there was a story told by an explorer called Wade Davis, a big anthropologist, amazing guy, and he was talking about a guy who lived, I can't remember where exactly he lived, but there was a lot of ice, and he refused to move. There were people trying to say, you should move out of here, and he said, I don't want to move out of here. So what he ended up doing was building up weapons
+
+[00:02:09] that he could use against them, and what he did was he made a poo knife. so he froze his poo and he positioned it in its shape to be knife-like and when it froze he had a dagger and it was for attacking people not for eating with uh well mate it probably doubled up to be honest did he ever get to wield it quite a weird story he ended up saying that he had a few huskies and he said he actually eventually escaped the place and what he did was he had to have a sled so he killed one of his huskies with the poo knife. He then ate the
+
+[00:02:44] food of the dog in order to survive. Then he crafted the inside bones of the rib cage into a small sled. He tucked his poo knife into his belt and he rode off into the distance. This is made up. I promise you, this is a dream. I promise you, Wave Davis, Google it.
+
+[00:03:02] Wave Davis, poo knife. I reckon if you Google just poo knife, it's not going to be like a hundred different things. It's like, I'm going to have to narrow this down. So when Shackleton went to the South Pole, they ran out of toilet paper very quickly, but what they did have was two full editions of the Encyclopedia Britannica.
+
+[00:03:23] Yeah. And so when it got desperate, that's what they used. They used it also for smoking tobacco, as well as for toilet paper. But Dr. Alexander Macklin, who was a surgeon, tore out the entry on scurvy because he didn't want anyone wiping with it, because he thought it was really, really important. Really? Yeah.
+
+[00:03:41] And there was a physicist there called Reginald James who saved the section on geometry. Why? What if we get to the pole and there's a test? I think books have been used through the centuries, haven't they? As you'd imagine, really, because toilet paper wasn't invented until relatively recently. And so, yeah, the inability would use pages of books to wipe their asses with. I think a popular thing that people used as Looroll in a moment.
+
+[00:04:10] America was corn on the cob until toilet roll was invented. Isn't it the case with corn on the cob that it's one of those foods that actually comes out as corn still on the other side? So you'd be wiping it and you're just putting it back on
+
+[00:04:21] to the thing you just ate. So there's an almaniac called the Farmers Almanac which still exists today, I think. And from 1818, the Farmer's Almanac in America came with a hole punched in the top
+
+[00:04:40] left-hand corner, I think, and that was because it was known that people would use it once they'd read it or mid-read or whatever. They'd pin it to their wall and they'd use it as l'u-roll. And so it came with a hole pre-punched in it so that they could bang it into the wall and use it his toilet roll. That's really interesting. We write books for QI. And when we did a fact book, we got a request from the Netherlands and they said, we want to put a hole in the top corner. They said it was for the shower.
+
+[00:05:07] So they could read it in the shower. but that never made sense to me. No one reads in the shower. No, they don't, do they? No. But they do wipe their bums with things. Yeah. So the world's most expensive toilet paper
+
+[00:05:20] is 825,000 pounds a roll. Okay. It's personally delivered to you with a bottle of champagne. And as you use it, 24-carat gold flakes will fall to the floor and you're behind,
+
+[00:05:37] taking you to another level of sophistication. That's according to their website. They've only managed to make one role at the moment, and I don't think they've actually sold it. But if you've got 800 grand to spare. Why the hell not? Yeah. Saddam Hussein had a solid gold toilet roll holder, actually, didn't he?
+
+[00:05:56] Did he? Yeah. I was actually, speaking of world leaders, I was looking into what Obama has. I thought the White House must have some interesting toilet paper. and actually, and they do. But it's not incredible. It's just got the presidential seal on a bunch of the toilet paper.
+
+[00:06:15] Surely that's disrespectful. Yeah, you'd think, actually. Yeah. So I was thinking about the Pope as well. I thought, what does he use? Because I just wanted to... He uses the doves. I know this.
+
+[00:06:30] It just has a whole box of dubs in the loop. That's lovely. I've got a fact about the Antarctic, but I feel we've... No, let's go back. Let's go back. Let's finish off your thing. Yeah, yeah, I was just going to say about the Pope. We know a bit about the toilet paper, not in his actual papal in the Vatican,
+
+[00:06:49] but he has a summer house, and we know about it because Mylene Class, the singer, stole the roll of the toilet paper. She hands it out as Christmas presents now. She collects weird things from around the world. Let's go back to the Arctic. It sounds like hearsay to me. See?
+
+[00:07:08] Niche early 2000s reference. Sorry, Andy, go on. How can I follow that? So there's a thing, they have a holiday in the Antarctic. People are staying there called Midwinter Day. And I got this from an interview with a woman who'd been living there for eight years called Kerry Nelson. And she said, it feels like a real holiday. And people actually send e- greeting cards to each other from other stations saying things like, happy midwinter.
+
+[00:07:36] Come stop by our station for dinner. Which nobody can, because we're also. isolated, so it's kind of a joke. Sounds like the worst holiday ever. I know, and they're so isolated. You can't get to another station for most of the year, and they're so far apart from each other, because it is massive. So the one thing they have had, they have darts tournaments over the phone,
+
+[00:07:57] where you throw a dart, tell the other person what you've scored, and then they throw a dart, and then they tell you. I might be wrong about this, but something in the back of my head says that in the, let's say it's in the 20s or 30s, they used to. to have darts on the radio. And what they would do is you'd get a professional darts player who'd throw his score and then they would say he got, let's say, 180 or whatever, and then they'd have a gap of complete silence while you threw your darts.
+
+[00:08:26] And then after about 30 seconds, then he'd throw another three. That did happen, didn't it? Wow. Yeah, that did happen. So they basically hadn't done what cricket's done, which has worked out during those bits, you have to have someone actually talking nonsense. Yeah.
+
+[00:08:38] You can't just leave silence Well cricket doesn't leave a gap for you to take your own For you to have it over That's true Should we move on to our next next act? Yeah Okay, it is time for fact number two And that is Anna Chisinski
+
+[00:08:56] Yeah, my fact is that Plains are launched off aircraft carriers By catapult So they're catapulted off aircraft carriers So these are when we see those massive aircraft carriers and you've only got that tiny runway and they suddenly just gain momentum
+
+[00:09:12] really quickly. Yeah, exactly. The runway is much too short for planes to gain the right amount of speed necessary for them to take off, so they just go crashing into the sea if they just used what planes normally use, which is their own acceleration.
+
+[00:09:24] So yeah, they've got these catapults set up and they call them catapults and they're controlled by a catapult officer which is the coolest dog in the world who sits in the catapult control pod which, if you look it up, Look up an aircraft carrier. You've got the floor of the ship
+
+[00:09:39] and then the catapult control pod is just this transparent disc that pops up in the floor and he sits with his head just above floor level so he's at the level of his heads at the level of the plane's wheels. And yet how it works is that it's by a system of pistons so the plane's sitting there
+
+[00:09:56] and it's got these two cylinders attached to it and these cylinders are about as long as a football pitch and there are pistons in the cylinders and the catapult officer builds up lots of pressure behind the pistons and at the moment the plane needs to take off
+
+[00:10:11] he releases all of that pressure and so of course the pistons are released and the force of that catapults the plane into the air hopefully and it is the most terrifying thing I've ever read about the cool thing about these pistons is that they're steam powered
+
+[00:10:25] it's so weird thing fighter jets being launched by steam power but that's what the pistons are full of the steam that's generated by the ship but they're trying to make new ones aren't they? That are like electro-magnets. Yes. And they'll use those instead. And they're going to be much better because you need fewer people to work
+
+[00:10:39] them. And also you won't have to have like massive steam pipes going on the side of your ship that can sometimes blow up. Yeah. Right. Yeah, they do. It's very dangerous. Things seem to blow up all the time on aircraft carriers. And people, recently, someone who was working on one of the US Navy's aircraft carriers, I think,
+
+[00:10:55] got sucked into the jet engine as he was walking across the boat. And he was rescued actually before he got sucked into the propellates. I think he got stuck. I haven't actually watched the footage. Thank God he was wearing his enormous hat. The new electromagnetic ones, they are so... So the normal launch, the normal catapults that we have at the moment for aircraft carriers, they accelerate a plane from no miles an hour to 165 miles an hour in two seconds. Whoa! And the new ones, they're going to be able to launch a plane every
+
+[00:11:29] 45 seconds from a ship with this electromagnetic thing. And while it's happening, it's using the same amount of electricity as a town. What? Yeah. That's amazing. And it's very short. It's only three seconds that it's using it, but it's exactly the same electricity consumption as a town. Wow. Wow. I was reading about, because I was looking at pictures of the aircraft carriers and they're ginormous, and I was trying to work out how big they actually are. So the largest aircraft carrier that we have, if you took it out of the water and you flipped it up vertically, it would be taller. This is the USS Enterprise. It would be
+
+[00:12:04] taller than the Eiffel Tower in its verticalness. Now, that's not even the biggest boat on earth. Right? So just to give you those, to give you the numbers of this, the longest boat on earth, which is an oil tanker, is 458 meters long.
+
+[00:12:21] If you flip that up on its side, that's taller than the Empire State Building. Oh. Yeah. A boat is taller than the Empire State Building. I read once that the biggest boats in the world are so big they can't get through the English Channel. What? I know.
+
+[00:12:35] It's so... Did you read it in Dan's Book of Thoughts? No, and it is... And it turns out it is true, because it's the depth. It's not the width. Oh, that's cheating. No, it is. Like, they displace so much water that they actually can't fit through because it's too shallow.
+
+[00:12:53] Wow. Do you know how many parts there are in the largest aircraft carriers? This is the US Nimitz class, which is apparently the latest lot. They have a billion individual pieces. Wow. A billion. That's a billion things that can go wrong. Yep.
+
+[00:13:07] And they're put together like Lego. It's so cool. They make... Buy a four-year-olds. And if you tread on one at night, it hurts so much. So another incredible thing that everyone has to know about is how landing happens on aircraft carriers. So, in fact, question for you guys, if you were landing an airplane on an aircraft carrier and you know you have to stop as soon as possible. as soon as your wheels touch the ground, what do you think you're going to do as the pilot?
+
+[00:13:40] Slum on the brakes. What are those brakes on? Absolutely incorrect. You put on the accelerator, rev the shit out of that, and go as fast as you can. What? Because the reason you do this is that it's so likely that something will go wrong that all you're doing is the pilot is preparing to take off again off that aircraft carrier in the event that something goes wrong. And the only thing that slows you down is you've got this hook, a tail hook, that's hanging off the, back of your plane as you're landing. And then you've got these kind of wires that are sort of made of steel and they're attached to our hydraulic motor. They absorb the kinetic energy. So it's
+
+[00:14:15] sort of like getting an elastic band to fly your plane into. And that stops the plane fast enough that it doesn't go flying off the end of the aircraft carrier. But so often they don't hook onto these wires that all you're supposed to do is as a pilot as you land on the aircraft carrier is go, right, foot down, ready to lift off again. Wow. That's amazing. That is amazing. That's cool, isn't it? Was it on QI? I can't remember. Years and years ago, the idea that one of the first planes, the way that it landed on an aircraft carrier, is that the people on the aircraft carrier
+
+[00:14:44] actually pulled it down from the sky? I feel that might have come from the Dams Schreiber, big book of thoughts, actually. No, I think there's method here. I think there's something... Yeah. I don't think it's exactly that. I think it was a really early Wright Brothers style thing,
+
+[00:15:00] possibly. Yeah. The Wright brothers did use catapults sometimes as well. first ever planes. They're catapults on it. Certainly the first one that did a full circuit was sent up by Caspals. It's amazing. It's really cool.
+
+[00:15:12] Very cool. Oh, can I tell you one extraordinary fact as well? Yes, please. This is the fact that really took me over the edge. Is that when you are landing on an aircraft carrier, some aircraft carriers, so specifically the Navy's E2 Hawkeye, avoid that if possible. The margin of error as you're landing is one foot. So if you are one foot, two, one foot.
+
+[00:15:35] early in your landing, you smash into the back of the aircraft carrier, and if you're one foot too late, you go crashing off the end of it into the sea. Oh, my God. This is why I'm scared of flying, because every pilot has this kind of cowboy attitude where you just die at any moment. I flew out from Salzburg, right? If you ever go to Salzburg Airport, you're looking at the runway, and I was looking at it going, oh, that's really interesting. I'm sure we're not taking off in this path, because there's a ginormous mountain cliff face at the other end. And we started going that direction. And there was a pilot sitting next to me who was just flying
+
+[00:16:08] back as a passenger. And I was like, what happens if we don't get enough height? And he said, we'll go straight into the mountain. And I was like, so why would you build it like that so that that's a possible thing? And he went, just don't hit the mountain, mate. That shouldn't be a thing.
+
+[00:16:27] I got a flight from Paro, I think it's Paro Airport, which is in Bhutan. And that one, you go, it's quite a short takeoff and then right in front of you there's a mountain and so what he does he goes down towards the mountain and the last second he banks and then he turns round and there's another mountain and then he has to do another bank away from that
+
+[00:16:48] mountain because it's in the Himalayas and there's nowhere that isn't mountains. And there's only a few qualified pilots are allowed to do that right to fly into there just on landing on aircraft carriers taking off from aircraft carriers so do you guys know about Eric Winkle-Brown? No. He flew in his life 487 different types of aircraft
+
+[00:17:09] And that's more than anyone else ever has done It's more than anyone else ever will do, almost certainly. And he had loads of firsts And he just had sort of he was the first to land a jet aircraft On an aircraft carrier. He interrogated senior Nazis after the war He crashed 11 times And he said he often survived because he was short He could tuck up his legs in the cockpit
+
+[00:17:27] Rather than having his legs sheared off Yeah, as happened to other part of it. Yeah, yeah. He did a motorbike wall of death With a lion cub What? Don't say that casualty like it's a thing There was a very linear job He got a new sports car
+
+[00:17:46] At the age of 95 He was amazing Hang on, no no, hang on He The motorbike wall of death I think the lion cub was in a side car Sorry I can trust that answers your question
+
+[00:17:58] I'm just clarifying On with his CV Yeah Okay, this is one other thing about him, which I find completely unbelievable. He flew in the Battle of Britain. That was the time that he was flying a lot. He flew in a biplane in the Battle of Britain against planes which were not biplanes. They were really good planes.
+
+[00:18:15] But when they launched the V-1, the flying bomb, he found that he overtook really close to them in a particular kind of plane called a Tempest 5. And he would clip the wings of the flying bomb with his own wings and send them plunging harmlessly into the English Channel. What? Wow. He's lucky that stuff worked, because otherwise you've just described Mr. Bean.
+
+[00:18:41] Oh, I've got to get a lion cup in my entire car. Oh, I've got a hollow. That's... He was amazing. Well, he was an amazing guy, and he passed away just... It was this year, wasn't it? Or was it last year? It was, yeah.
+
+[00:18:53] January or February. Yeah, right. Incredible guy. Time for fact number three, and that is My Fact. My Fact. is that Apple used to give an annual award to the employee who bested up to Steve Jobs. So he didn't fully know about it, I'm sure. I found this fact out, by the way, in the movie Steve Jobs, the Michael Fastbender movie
+
+[00:19:15] that came out. And if you've seen that movie, you'll know from the portrayal of him that he was an incredibly difficult guy, that he was always yelling, that he was always angry, that he had no time for employees that weren't doing things right. So the idea was that sometime in the course of his time at Apple, occasionally a few people would step up and say, no. And if other people saw that, they'd be like, oh my God. And then they'd hold an annual award and say, you stood up and you get this award. Great. Yeah.
+
+[00:19:44] You're obviously fired, so you might as well take something away with you. Interestingly, those people who stood up to him, most of them were promoted because he actually loved the idea of people standing up to him. But then why did not everyone just do it all the time? Well, I guess you needed to be passionate about the thing that you were talking about. So his personal secretary, it was the person who won in 1981 and 1982. We don't know the examples that won it for her, but we do have a few quotes of what she was like with him. And she used to say stuff like, I'm going to take a knife and stab it into his heart. Wait, wait, wait.
+
+[00:20:15] Is that a poo knife or is that a normal knife? She also threatened to pour her coffee into his lap if he didn't buck up. So it was that kind of stuff. really forceful and he would listen to her. She was there for his whole career. Joanna Hoffman was her name. There was a fact doing the rounds about Apple recently and about aircraft carriers, so I thought
+
+[00:20:37] this is a combo fact which is that Apple's the amount of cash Apple has in the bank if they wanted to spend that, they could buy 40 aircraft carriers. Wow. Although they wouldn't have any planes to put on them because they'd spend all their money on 40
+
+[00:20:53] aircraft carriers. But if they just bought like 39, They could have a load of planes as well. Yeah. That's what I would do. Well, they don't call you James' strategy hawking for nothing. James' wife, Helena, actually told us a really cool fact, which is that, so like you're saying, aircraft carries, if you've spent it all, that's all you could afford. Super yachts, when people buy Super yachts, it costs so much money when they get it built, that it ended up going way further than what they thought they could afford.
+
+[00:21:22] And the thing with Super Yachts is that there's a helipad at the top. It got to the point where people couldn't afford helicopters. So there's a company that builds the shell of a helicopter that sits on super yachts to give the impression that, whoa, they've even got a helicopter. And they're all fake. They're just fake helicopters. What if there's a fire on the yacht? Someone says, don't worry, he's got a helicopter.
+
+[00:21:45] Jump in the water? Or solution to a ship being on fire. Just to jump into the water. You're not a long-term think of it, then. That's your problem. I would say, though, it is a bit. better solution than jumping into the fake helicopter. He can't be that much of a twat.
+
+[00:22:01] I'm sure it's a real one, really. I would think about really good employees, amazing employees. This is someone in 2013 in America, who was working at Duncan Donuts, the Donuts shop, and I think she won, maybe she didn't win an award, but she certainly deserved to.
+
+[00:22:23] So she foiled a wrong. robbery by throwing a pot of hot coffee at a robber who was trying to climb in through the cashier's window. And then, as the robber fled, she shouted the company's slogan after him. What's the slogan? The slogan is, America runs on Duncan. And she shouted, go run on Duncan. I have some things on employees who were fired for things. Okay, so Jake Hoover apparently used to fire people because their heads were too small.
+
+[00:22:54] That's why they took to where. wearing enormous hats whenever. Really? Why? Well, it was kind of a status thing. He thought that people with bigger heads were smarter. He said he was a notoriously horrible boss, wasn't he? Jay, Gave. Yes, he was, yeah.
+
+[00:23:08] Yeah, so the first head of the FBI. And, yeah, so there's a couple of stories about him. He once found a poo on his patio, and he became convinced that he was being stalked by wild animals. So the priority that day was he got all of his top dog FBI employees to get this poo taken off to the lab. analyze it to see what kind of creature it belonged to. They sent it to the Smithsonian, you know, the biological research aspect of it, and it identified it as raccoon poo. And so this word got
+
+[00:23:35] back to Jayah Gahoover and he built a trap to destroy that raccoon. And the next morning, the neighbor's cat was spread all over the wall of the house, according to his assistant. What was this trap? It was a catapult. The good thing is that they managed to turn the poo into a wonderful set of six teaspoons of you, so that's something. There was someone, there was a chap in India who, he was an electrical engineer, and he was
+
+[00:24:01] fired, his name is A.K. Verma. And he was fired for not turning up for work for 24 years. Oh, yeah. Some people. Just the smallest little thing. This is the amazing thing about it. Okay, he was sacked in January 2015, right? He had
+
+[00:24:18] gone on leave in 1990. And in 1992, they said, we'd I'm going to start investigating where Mr. Vermeer is. Formal proceedings only started in 2007, and it took another seven years to fire him. There was someone in America, also in 2013, who was sacked after he just outsourced his entire job to China.
+
+[00:24:42] He was a software engineer. Oh, wow. And he just paid them 20% of his big salary and let them get on with it and just did nothing. And the sentence on the report about it said, the software developer in his 40s is thought to have spent his work days, watching cat videos on YouTube and browsing Reddit. So he was a QI researcher. We should move on to our final facts, yeah?
+
+[00:25:05] Okay, it is time for our final fact of the show, and that is James Harkin. Okay, my fact this week is that there are Japanese rock bands called Abingdon Boys' School, mass of the fermenting dregs, and Siegel screaming, kiss her, kiss her. Very good names. That's good.
+
+[00:25:26] I just found a list of Japanese rock bands on Wikipedia, and they were my three favorite ones. Abingham Boys School, they were originally called ABS, and they were named after an anti-lock breaking system. Cool. And then they back-formated their name. They looked on Wikipedia for other things with ABS as the initialism, and they found that, and it's where Radiohead were founded, apparently, that school.
+
+[00:25:49] Oh. The Seagull band are named after a track by the 80s band, XTC. Oh yeah. And the Dregs band, they asked them what that meant, and they said, it doesn't have any particular meaning.
+
+[00:26:00] We just lined up a few words that we liked. Cool. Mass of the fermenting Dregs. And I think that's probably also true of a couple of other bands, McDonald Duck Eclare, and school food punishment.
+
+[00:26:13] I imagine they're just like names that sound nice in Japanese and they decided to go for it. Wait, so are these in Japanese, their names, or are they in English? They're in English. Yeah, but they're kind of, they're a little bit transliterated,
+
+[00:26:23] They're not exactly as we would say, but pretty much the same. Speaking McDonald's, I saw a band the other day that is both a McDonald's tribute act as well as a Black Sabbath tribute act, and they're called Max Sabbath. And they come out dressed as hamburger and Ronald McDonald's. And they, yeah, it's really fun. There's video footage online in them. They're really cool band. All the songs are just changed to be McDonald's themed.
+
+[00:26:45] That's really exciting. Well, I just love about this fact. I said this a few times, actually. I just love going on the internet and finding lists of stuff and then finding bits and pieces from it. The other day I found the most recent list of baby names in the UK. These are from 2014. And there were 10 girls in that year called Pebbles. There were three boys whose name was name.
+
+[00:27:08] Wow. That's a mistake on the form. And there were 31 girls called ISIS in 2014. Wow. 2014. I mean, they only really kicked off halfway through 2014. Oh, you think that's what it was? I hope that's what it was.
+
+[00:27:26] Yeah. And there were three girls called Bowie and five boys called Bowie. So it's kind of a mixed gender name. Oh, that's really nice. Yeah. My favorite fact about David Bowie's name is that he was originally called David Jones. So that was his birth name. And he started becoming a musician.
+
+[00:27:44] And then suddenly out of nowhere, Davy Jones of the monkeys, suddenly became massively famous. So he thought, oh, I can't use that name. So he changed it to David Bowie. However, before he changed it to David Bowie, he named himself Tom Jones. And then a few weeks later, this new singer kicked off. And he was like, oh, Jesus.
+
+[00:28:05] And so then he went to David Bowie. So David Bowie was called Tom Jones and Davy Jones before he was David Bowie. Do you think there's another universe where Tom Jones, our Tom Jones didn't become famous, or did become famous under the name David Bowie? and our David Bowie became famous under the name Tom Jones If it is, it's a magical universe And I wish we were all there right now
+
+[00:28:29] It's almost impossible to conceive All right, I've got some Japanese pop music facts Great Well, I've got a couple more bands Which I'm surprised didn't make your list change So there's the sex machine guns Pretty cool Very good
+
+[00:28:43] And my favourite is the, as in the Shakespearean for you The Michelle Gunn Elephant Which is brilliant Do you know where they got their name? So they misheard a song by the Damned, which is Machine Gun Etiquet. And they thought it was Michelle Gun Elephant. Ah. That's very cool.
+
+[00:29:03] That's good, that isn't it? Very cool, yeah. So this thing you're talking about where in Japan, English words are taken and they're sort of repurposed, there's something called Guy Rigo. That is the Japanese rendering of English words that have now fallen to common parlance in Japan. So for instance, Japanese words that are used now are Maiku, which is for microphone, at supa, which is supermarket. And I really like this one.
+
+[00:29:28] Abeku is a word for a romantic couple, like a couple and a relationship. And that comes from the French Avec, and that's just become a Japanese word that means a romantic couple. I thought you were going to say it was from Posh and Becks. No, it's much more sophisticated than that. They're more highbrow than you are. Well, I wouldn't say that Posh and Bex are not sophisticated. I think he's got a tattoo of Victoria's name, Victoria Beckham's name, in Sanskrit, but it's misspelled. Yeah, you're right, that is sophisticated.
+
+[00:29:59] So the biggest selling song in Japanese history, not including digital downloads, so it's a bit of an older one. But this is genuinely the best selling song in Japanese history. It's called a yoghayaki kun, which translates as, swim, you see, bream-shaped pancake. What? That's true. It was, apparently, it was used in a children's TV show, and then it became massively popular for people to buy for their kids, and yeah. There is a band called Machikado Kiki Japan, whose name means street corner economic conditions. Right, and their debut single, they're quite a recent band.
+
+[00:30:36] It mentions quantitative easing and construction bonds, and the big gimmick of this band, they're a girl band, and they promised that the length of their skirts would correlate with the country's stock market conditions. So that when the Niki, the Japanese stock market, was doing well, their mini-skirts would get shorter, and when it was doing badly, they would go down towards the ankles. That's actually a real thing, isn't it? That people do use the length of people's skirts to say whether the country's doing well or badly. Hemline index, that's what it's called.
+
+[00:31:04] Yeah, yeah. And in really good economic conditions, all women tend to wear shorter skirts. Yeah. Which is strange, because you'd think that in bad economic conditions, you'd be wearing shorter skirts because you have to save cloth. Yeah, you would think that. Yeah. That's true, yeah.
+
+[00:31:18] Whereas in the good times, there's cloth going. Because I was reading a lot of lists on Wikipedia, like I do for my job. I found one list which is lists of nicknames used by George W. Bush, which was quite good. So Tony Blair, he called him landslide. I think because he had such a really good kind of election one year. I know you'd think that. No, Tony Blair delights in causing landslides. That's a funny thing.
+
+[00:31:44] They keep it out of the papers. The director of the CIA Counterterrorist Centre Kofa Black was known as Flies on the Eyeballs Guy by George W. Bush. And Vladimir Putin was known as putty-poot ostrich legs. I can see that with Putin, though? Yeah, can you? He's got a sort of big strong arms and stuff. But, you know, he never shows, he never gets his legs out. What's he hiding?
+
+[00:32:18] Okay. That's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James, at Eggshaped, Andy, at Andrew Hunter M. And Chazinski. You can email a podcast at QI.com.
+
+[00:32:35] Yep. Or you can go to our website, no such thing as fish.com. We have all of our previous episodes up there. Thank you so much for listening at home, people at home. Thank you, you guys, for listening here in Edinburgh. So awesome. We'll be back again next week with another episode. Goodbye.
+
+[00:32:49] Yeah!

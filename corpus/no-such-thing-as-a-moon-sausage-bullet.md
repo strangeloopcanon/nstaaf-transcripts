@@ -1,0 +1,181 @@
+# No Such Thing As A Fish - No Such Thing As A Moon Sausage Bullet
+
+- Episode date: November 20, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-moon-sausage-bullet
+- Slug: no-such-thing-as-a-moon-sausage-bullet
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the Lyric Theatre in London's West End. My name is Dan Schreiber, and please welcome to the stage, the three regular elves. It's Andy Murray, Anna Chazinski, and James Harkin. Once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. starting with you, Andrew Hunter Murray. My fact this week is that Lord Byron's nickname for William Wordsworth was William Tirdsworth. He had away with words. He was an literary genius. They were living in the same time. They were mates.
+
+[00:01:00] Yeah, yeah, well, they weren't mates. They weren't at all. Yeah, Byron thought Wordsworth was very boring, and so he called him that. There's this whole cache of letters they've just found from Lord Byron to a friend of his who was a clergyman. And, yeah, he happens to slag off Wordsworth as Tersworth. And there you go. I was quite surprised at the word turd existed so far back. Really?
+
+[00:01:20] Oh. Yeah. I thought of it as more of a modern thing. I don't think of it as a word like hyperlink or... I thought they were exactly the same thing. I had a look on Hansard, which is the House of Parliament kind of transcripts. And nobody has ever directly called another MP a turd in the entire history of Parliament. The closest anyone came was in a hunting debate a few years ago when the MP for Worcester, Michael Foster,
+
+[00:01:50] was described as a nasty snide little turd. But in that case, the MP was quoting Harry Enfield, so he didn't do it directly. I think you're still calling someone something when you're quoting someone else. Yeah. He was saying, isn't it bad that they called him this, basically? You're a real dickhead, said Rick Mail in Bottom.
+
+[00:02:10] You're still calling the guy a dickhead. The world record for uttering the word turd in Parliament. What? World record. Well, it's not really a world record. Most world records, you have to bring someone to record it officially in. So that must have been a phone call where they said, I've got a big idea I want to do in Parliament today.
+
+[00:02:28] Are you up for coming? Is it frequency or volume? It was frequency. Frequency is Tony Banks, the former Minister for Sport, and he said it three times in two years in the late 80s. So it's very beatable. Yeah, he could say it 10 times in 10 seconds if he wanted to. It's true.
+
+[00:02:46] All I'm saying to the current MPs that there is a chance of breaking that record. There was one time where he said, I've read every time an MP has ever said turd. And there was one when Tony Banks said it, and he said, there was an occasion when I walked around the corner and was faced with a terrible dilemma
+
+[00:03:02] of seeing a one pound coin embedded in a dog turd. And then he said, I managed to find a small boy who for 50p was prepared to report What bill were they debating at the time? It was about dog mess on the streets. Okay. George Bush used to call Carl Rove Tud Blossom, didn't he?
+
+[00:03:29] Did he? Yeah. Chief of Staff Carl Rove, but it was a compliment. So Tud Blossom is a flower apparently in California or whatever that grows out of shit. And George Bush said, you know, you're so great, Carl Rove, you can turn a back. bad thing into a good thing. So you're
+
+[00:03:44] turd blossom. Also, I reckon that was an emergency meeting with the biggest minds of America going, okay, I just called Carl Rover, turdblossom. Someone turned this around on its head. I just got one more thing from Hansard. I was so hoping to talk about Lord Byron, about romantic verse.
+
+[00:04:01] Yeah, well, tough. The first time that ever anyone said twat in Parliament was a guy called Bill Cash, and he described described field marshal Lord Carver as a boring old twat in 1986. And the second use of the word twat was immediately afterwards
+
+[00:04:22] with an unnamed MP shouting, He said twat! Does anyone have anything on Byron? And Byron liked to insult his fellow poets a lot, didn't he? And in fact, all romantic poets had all these rivalries between them. But he said about Keith that he wrote pisser bed poetry, which I don't know what that means. Like, if you wet, did it mean you wet the bed when you read it?
+
+[00:04:50] an old name for dandelion, so maybe it was another... It just doesn't feel, judging by the tone of it, I mean, he goes on to say, no more Keats, I entreat, flay him alive, if some of you don't, I must skin him myself. There is no bearing the driveling idiotism of the mankin.
+
+[00:05:06] So I don't think he was calling him a flower. I don't know a plank called that, I must say. He also said that his writing was a sort of mental masturbation. Wow! I think he meant it, yeah. Yeah, yeah. I have quite a good thing on a literary feud. happened. So A.N. Wilson is a famous author, and he was writing a book about John Betcherman decades ago. And so was another person called Bevis Hillia. And A.N. Wilson was so rude about
+
+[00:05:34] Bevis Hillia's book, which came out first in a review. And when he was writing his, a little while later, he got this letter from a mysterious Frenchwoman, which included this, like, gold dust for interviewers. It was a hitherto unknown copy of a letter from John Betchaun to one of his mistresses, and Wilson was so excited, and he printed the letter in full in his book, only for Bevis Hillier to reveal that he had sent the letter, and that it was an acrostic and that the first letter of every sentence spelled out, A.N. Wilson is a shit. And he put it in his own book. I found out something really rude about Lord Byron. When he died, he was buried in a really odd way. They removed his organs and they put them in jars and it was in a different country. And when he
+
+[00:06:24] came back, he was buried and they weren't quite sure if it was definitely him. And so someone wanted to find out. And they made a discovery that not many people have spoken about. So this was the sentence basically. Before replacing the lid, the vicar, who was the person who was looking for him, noted that his sexual organ showed quite abnormal development. He began to tap the spot just above Byron's knee and he said, he was built like a pony. That was in the tomb. That's... It's not a horse.
+
+[00:06:58] You know, if we were being really critical. Picky, picky, picky, picky, picky. So when they got his body out of the tomb, there was seven people present. So there was Thomas Gerard Barber, who was the canon of the church. There was an unnamed doctor. A surveyor called Nathaniel Lane,
+
+[00:07:15] a local archaeologist, a photographer called Mr. Bullock, and the local MP was there and I promise you this was his actual name he was called Frederick Seymour Cox No I promise honestly That's his name
+
+[00:07:32] Honestly You know what they say Seymour Cox my name Byron didn't wear underwear Apparently And apparently this is what was fashionable Just couldn't find them in his size Do you have that in pony
+
+[00:07:48] No, that was, and the reason was, and it was common people like Bo Brummel and other fashionable people in Byron's era weren't wearing pants either, it was because tight trousers were in fashion at the time, and it was to avoid VPL. Do people still say VPL? They used to say when I was at school. What's VPL? A visible panty line.
+
+[00:08:09] They didn't say it was to avoid that. The historian who's book was reading said, the line of the trousers was not to be interrupted by underwear. And so he largely didn't wear any. He bought white linen trousers in batches of 24 at a time. Wow, what was he doing to them? Going through them. I did not think this fact would be this penisey,
+
+[00:08:31] and I'd like to put that on the record. We're going to have to move on very soon to our next fact. Oh, really? Yeah, yeah. Do anything before we do? I have a fact about nicknames. Okay, yeah. At least ten kings of Serbia had the nickname the crowned. That's all they could think of for them. It's imaginative.
+
+[00:08:52] My favourite nickname of all time, there was a guy called Leo the second. He was a Roman emperor, and he was known as Leo the butcher. That's not my favorite one. He was called the butcher because he killed the patriarch of Alexandria's supporters, and he was called Timothy the cat.
+
+[00:09:07] But that's not my favorite either, because Timothy the cat had replaced another guy called Timothy Wobble Hat. And nobody knows why he was. is called Timothy Wobble Hat. There's two main theories. One of them is that he flip-flopped between religious positions, and the other one is he had a wobbly hat. Okay, let's move on to our second fact. It's time for our second fact, and that is James Harkin. Okay, my fact this week is that if you grow a coarse lettuce on a spaceship, it tastes like rocket.
+
+[00:09:51] Yeah, so this is the first ever lettuce. that's been grown in space. It was a red-remain lettuce, which is also known as a cos lettuce. An astronaut, Scott Kelly said it tastes good, kind of like arugula. In this country, we call arugula rocket. It's weird that he didn't manage to make that leap,
+
+[00:10:08] though, from arugula to the word rocket, as someone living on a rocket. They called it, apparently, at the time, a giant leaf for mankind. Also, when they ate it, apparently, because they had to freeze half of them, I think, for sort of to return to Earth for study, see if they picked up any radiation
+
+[00:10:26] or any microorganisms or anything. But they also, they ate the other half, and they were really happy of it. And they put extra virgin olive oil and balsamic vinegar on the leaves, but they had already cleaned the leaves with sanitising wipes. I don't know why they bothered mentioning that
+
+[00:10:40] because that's just normal, isn't it? Do you know the thing that astronauts most like to eat in space? Almost every single astronaut who comes back from space says, so there's a bunch of staple meals that you get given in space. base and you have, I think they have their meals repeated every eight days. So you've got
+
+[00:10:56] eight days worth of meals and then you have to go back to the start. And the one that they all love is prawn cocktail and they all rave about it. So Chris Hadfield, Jim Riley, Jim Lovell, they all say that shrimp cocktails is their favourite. There was one astronaut who said that he, because the astronauts choose their menus before they go out into space. So if you're out there for a year, you have to write down what you want. It's a big commitment. And he said he has a word with the astronauts before they're about to go out to space sort of saying, you know, make sure you do the prawn cocktail because I'm not going to be. going to be giving you any of mine in space and you're going to really, really want it.
+
+[00:11:27] But apparently it's delicious. One thing they do like is really spicy foods or very flavoursome foods. And the reason for that is because the blood goes into your sinuses because there's no gravity as such. And you can't really taste things properly. I did a radio show which we had Helen Sharman on earlier this year. Helen Sharman first British astronaut into space. Yeah. Back to you, James. and she said that when she went into space she was warned basically the Russians are going to have loads and loads of garlic and the Americans are going to have loads and loads of chili
+
+[00:12:00] and when you go up there it is going to smell bad and apparently you're warned not to say anything from when you go up there just pretend that you can't smell it because these people haven't seen a human for you know months and months and the last thing they want to do is you come in and go fucking out someone open a window You know how if you go into places like the Science Museum or anywhere that has astronaut-based products, you always buy astronaut ice cream? Astronaut-based products? Astronaut-based products?
+
+[00:12:30] And Sainsbury in that section. Can you tell me where the astronaut products are? Well, try Isle 10. Nine. So anyway, so you know, astronaut ice cream is a massive thing, and everyone buys it, and we all eat it, and we go, this tastes horrible. and they eat it in space. It turns out that astronaut ice cream was used for one mission
+
+[00:12:55] and it was in 1968. No one liked it. It was too crumbly. It's never been up back again. And so the makers of it went, well, what do we do with this? Let's just pretend it's still a thing. So every time anyone eats it
+
+[00:13:07] and goes, this tastes terrible, but doesn't it feel like space? No one's eating it. It didn't work. It's a failed product. When you say everyone buys it and eats it out of interest. You come to my family for Christmas.
+
+[00:13:20] There were plans. to farm in space. One of the advantages, apparently, so it's good at the idea of farming in space for various reasons, but one of them is that the veggie project, which is what this is part of, could be used by astronauts in space for recreational gardening during the long-duration missions, which I quite like. So they all have their own allotments. NASA once shipped a specific bit of fruit up into space because they wanted to do an experiment and a tribute to Isaac Newton. So they sent up a bit of the tree that, Newton had the idea under, and they sent it up with an apple because they thought, oh, this would be
+
+[00:13:55] great to film a video of not only the bit of the tree that taught us about gravity, but also an apple. So they brought it up, and they were all set to film, and it was looking like it was going to be an amazing video to put online. And as they were about to film, they forgot to tell one of the astronauts that they were doing that, who suddenly saw this floating apple going, oh, God, there's an apple. She ate the apple. And they went, where's our apple?
+
+[00:14:17] And she went, where's our apple? And she went, and then they had to. to film the video with a pair. You can see on YouTube there's a pair floating in space. And they don't mention it. They're like, wow. The first ever Swedish astronaut
+
+[00:14:34] was a guy called Krista Fugelseng. And he tried to take reindeer meat into space because it was around Christmas time and it's a delicacy. But he was told it wasn't very Christmassy. What? To eat reindeer. Yeah, it's like bringing a piece of Santa Claus
+
+[00:14:48] to eat. So on Lettuce, Lettis has been an aphrodisiac for 3,000 years, apparently. And the reason is, I didn't realize this. So part of it is because of its upright kind of phallic structure. So it was considered an aphrodisiac in ancient Egypt and continued to be considered that throughout Rome and Greece. And it's because it's got this upright structure.
+
+[00:15:11] And also it secretes a latex at the bottom of it, which, so it oozes like white liquid when you cut it. Wait, hang on. Did you say it secretes it at the base? Yes. Well, that's one point of different. If you're listening to this and that sounds like you
+
+[00:15:27] you need to contact a doctor immediately. Of course it's green. But supposedly we've bred it so it's much more domesticated and we sort of tamed the wild lettuce which did have all these sort of sexy connotations and we've now got really boring iceberg lettuce and things like that which are not sexy at all
+
+[00:15:45] because it was too rude before. It was post curfew stuff. I've found a couple of foods in space that are not food. Okay. Explain. So the process of falling into a black hole is called spaghettiification. That's an actual scientific word.
+
+[00:16:04] And the idea is that when you fall into a black hole, as you may do, you get stretched out longer and longer like spaghetti. And so some scientist just said that spaghettiification. Yeah, the tidal forces end up stretching you like spaghetti, yeah. So that's what spaghetti is. Yes. That's what spaghetti is. That's how we get spaghetti.
+
+[00:16:21] giving up. The other one I found is that in the US Army, there was a program back in the day a future weapons office for in case we colonized the moon and they invented a sausage gun. Wait, what? It didn't shoot sausages, but it did a process whereby you make sausages coming out of the gun. And there was an actual thing that the Pentagon worked out and said that once the war gets way enhanced and we're all on the moon fighting, you're going to need your sausage gun. Isn't that exciting? So does it have anything to do with sausages? There's no sausage.
+
+[00:16:53] It's not made of a gun. The gun's not made of sausages. To be honest, I stopped reading when it says sausage guns. Sounds pretty exciting though, does it? Sausage guns on the food. It's time for our third fact of the evening, and that is my fact. My fact this week is that scientists have grown an ear using Van Gogh's DNA. Yeah.
+
+[00:17:23] Okay, so this is what it was. It was an artist decided that they wanted to do a project where they could regrow an ear. And they found, on the back of a stamp, some saliva from Van Gogh. And they used it, and they contacted one of the nephews, great, great, great nephews of Van Gogh, and they managed to get some of their cells off them.
+
+[00:17:44] And they created a kind of scaffolding, and they've regrown the ear, the left-hand side ear, that would have been sliced off. when he sliced it off. That's amazing. Oh, we're totally 100% sure that whoever it was that stole Van Gogh's ear in the first place hasn't been bearing this burden of guilt for the last 150 years and thought, I've got to let it out and they've just put it on the market and said, I grew it. But no one knows what happened to it, right?
+
+[00:18:09] Wasn't it not supposed to be given to a prostitute or something? Yeah, so it's thought that he gave it to a prostitute, but there's another theory that Gogan chopped it off. So I think Gogan was living with Van Gogh at the time, and I think Van Gogh liked Gaghan more than Gaghan like Van Gogh. And Gagin was also like an, you know, ardent fencer. And they used to have a lot of fights. And so people have pieced together this information and thought, what happened is
+
+[00:18:30] they had a fight. Gogan chopped Van Gauph's ear off. And then Van Gogh is such a needy, weird housemate, and Gagin wanted to move out anyway. And he was like, it's all right, I won't tell anyone. I'll just say that I chopped off my own ear, and I sent it to a prostitute. Is that, will you stay, if I do that? And that's a genuine theory.
+
+[00:18:46] Yeah. I've had arguments with housemates before. And it sounds plausible. You know you can get a disappearing ear Van Gogh mug. When you pour in hot water, his ear disappears. It's replaced by a bandage. It's really cool. Oh, that's really cool.
+
+[00:19:04] I think what I'm saying it wrong, it should be Van Gogh, well, something, but... Van Gogh. Yeah. Yeah, so it's very hard to say his name. A very old thing that happened on this episode was that I once said, in effect, Van Gogh, because that's what I thought his name was. And I got a tweet when the show went out. And I just want to read you the tweet.
+
+[00:19:25] Episode 28 at 10 minutes, 55 seconds. Why did you incredibly stupidly and ignorantly say Van Gogh instead of Van Gogh? And I wrote back to him because I got really angry. But I wrote back to him saying, sorry, and wait until you hear how I say Covent Garden. What I wanted to say was fuck yourself So on ears A woman
+
+[00:20:00] recently grew an ear on her arm And that was Because she'd had a kind of skin cancer That meant her ear Had she didn't have an ear anymore And she wanted to regenerate her ear And so it was grown on her arm As does sometimes happen
+
+[00:20:14] So there's another guy in China I think who had a nose groan on his forehead which if you Google image it is very impressive and it was used to replace his nose a couple of months later. Anyway, this woman had an ear grown on her arm and it was in order to be transplanted back onto where her ear should be a couple of months later. So the surgeon who did it said,
+
+[00:20:32] she had some fun with it. If the kids got into trouble, she'd roll up her sleeve and say, tell it to the arm. In 2009, this is a news article. Doctors have saved a woman's severed lobe by stitching it to her bottom. Julia Schwartz's right here was bitten off by her best friend in a fight over a lover
+
+[00:20:54] and they stitched it onto her ass and kept it there until they could put it it because she had too much scarring there they couldn't put it on straight away so they stitched it onto her ass. But why the ass? It's about availability of blood vessels and availability of skin and it's a lot of skin on your ass. All right. There was someone else who...
+
+[00:21:13] There was someone else. I really enjoyed this and I can't remember what paper it was in. but it was someone who'd, someone who, like a design, a mechanic or something, who cut off the tip of his finger or half his finger, and we had to have it regrow. Again, they thought, let's try and regrow this on a part of your body, so that it gets fed by the blood vessels, and so that the muscle can regrow and the skin can grow around it. And so they sewed his finger onto his stomach. But I think I read this article on maybe the Huffington Post,
+
+[00:21:43] and on the picture of it, they've blacked out like you would, if someone was showing their penis or something. They blacked out the bit where you see the finger grafted onto the stomach, and then you can only see it if you scroll right down to the bottom, and there's a big black box over. And I think it, because it does look a bit phallic, but it, I mean, it's not a penis, it's just a finger on somebody's stomach. When you say it looks like a penis, does it have white stuff coming from the base?
+
+[00:22:09] I was, when I was looking into Van Gogh, there's a, Van Gogh, there's a theory, there's an actual theory that he used to paint at night, with candles on his hat so that he could see in the evening. And his nickname was Flamey Hat. There are many theories as to why. Can I mention another thing about this ear,
+
+[00:22:31] which is really exciting. So because it was done by an artist, you can actually visit the ear that's been grown. It's in New York City, and they've done it in a way that you can talk to the ear, and I don't fully understand the science of it, but... It can't hear anything, but...
+
+[00:22:46] Well, from what I gather, when you talk to it, the ear kind of slightly moves in a way that it's going, no. It responds to what you're saying. And the first person to speak to this ear when it was initially debuted in Germany was Nome Chomsky. What? Yeah, so Nomechomsky went, and then the ear went, what? And we don't know what he said. But the really cool thing about this work of art is that it's called Sugar Babe. The idea is that it's about the, there's a philosophical argument called the Ship of Theseecea.
+
+[00:23:16] which is if you replace every bit of a ship one by one, at what point is it no longer the original ship? And this applies to the band The Sugar Babes. Can I just, I have something so cool on acoustics, which I didn't know, and which sounds only tenancy related, but you know hearing trumpets, ear trumpets that they used to use before hearing aids were invented. The reason they were invented, it was in the 17th century, and it was because Puritan couples in America,
+
+[00:23:48] when they went out to dine with each other, they wanted to have private conversations, but they had to sit opposite each other, because there was no intimacy allowed. And so they sat opposite each other, but they wanted to have private conversation, raunchy, you know, chats or whatever. And so the ear trumpet was apparently invented
+
+[00:24:03] in order that you could be sitting there with your boyfriend and he could be saying into this end of the trumpet, you know, I really want to have sex with you. What? I wish that all adult chat lines were staffed by women, with ear trumpets. Can I tell you one cool thing about ears? Yes, please.
+
+[00:24:24] Butterflies have ears on their wings. Okay. And complete with eardrums, their proper ears, but they use them to hear bats' ultrasound. And when scientists play ultrasound to butterflies, they start flying in crazy patterns, sort of doing evasion tactics to get away from a predator. And butterflies evolved at the same time
+
+[00:24:43] that bats developed the ability to use echolocation and develop their big ears. and the theory is that butterflies started flying in the daytime to avoid bats, or in other words, bats invented butterflies. Let's move on to our final fact of the show, and that is Anna Chisinski. Yeah, my fact is that the larger Pacific striped octopus catches its prey by sneaking up behind it and tapping it on the shoulder. Yeah, this has only just been documented.
+
+[00:25:17] this behaviour. Well, it was actually documented once in the 1970s and a biologist wrote a report on it. No one believed it. And it was ignored and it's only just been rediscovered the behavior for the larger Pacific Strait octopus. But the way that it hunts is, it sneaks up. It's called a slow bounce. So it's like a grandmother's footsteps and it like sits there hiding on the sand. It's only, you know, it's only small. It's only a few inches big. And it's chasing a shrimp and it will like sneak a bit further and further up behind it when the shrimp can't see and eventually when it's close enough, it gets one of its tentacles or its arms or its legs or whatever you want to call them and it gets its leg around the front of the shrimp and it prods it here and then the shrimp's like
+
+[00:25:59] oh fuck there's a predator here and it rebounds right back into its mouth and that's how it does it that's amazing it's so good look it up there's a video of it which is excellent of an octopus sneaking up on a shrimp another thing octopuses do this is so cool they fling sand or debris in each other's faces when they're fighting. So you know scenes in films where the villain throws some sand into the hero's eyes. They do that.
+
+[00:26:22] When in a movie does that have? Oh my God, damn. Every movie. You not see the good, the bad in the octopus. But they do it with shells and dabri like hard shells and debris as well. So they have a kind of water ejector system which means they pick up a shell and they propel it with this water ejector system
+
+[00:26:44] at their enemies and knock them unconscious. So yeah, this is actually amazing. You mentioned this ages ago in the office. So they throw a shell, and then they have this water pistol that launches the shell behind it, so it picks up speed like a bullet towards... Like a sausage bullet.
+
+[00:27:02] Like a moon sausage bullets. They also, by the way, they carry armor with them. So if they're going into battle, or if they predict battle may happen to them, they carry coconut shells often two at a time and they will travel on the seabed.
+
+[00:27:20] So their enemies think they're a horse. Yes. But they genuinely have coconuts and they have the shells and then as soon as the enemy start attacking they'll bring the coconut shelves up over them like, I swear to God this is true. It is amazing to watch.
+
+[00:27:36] Again, videos of that aren't there and they pull the coconut shells in to create one coconut. But if you try to drink the milk from inside it, there's an octopus. They seem to have personalities, octopuses, and lots of scientists say that if you watch an octopus, it watches you back. One scientist, he had teased the octopus, he'd offered it a fish, and then he'd really quickly taken it away again, right? And then when he got into the office the next day, as soon as he walked through the door, the octopus had been waiting in its tank and squirted him with this water funnel, with a huge jet of water.
+
+[00:28:03] However, there were already loads of splashes of water on the wall, which implies the octopus had been doing target practice at the scientist's height. and were just waiting for him to come in in the morning so he could get him with water. Isn't that incredible? Yeah, that's amazing. Well, the endless conundrum with octopuses is, that they hate each other, they like to be solitary, except for the larger Pacific striped octopus,
+
+[00:28:27] by the way, if there's one here, they're really sociable, but that's really weird. They're the first species that's been seen to be sociable. So actually, there was in the experiment that my fact was about, one of the scientists said, it was really amazing watching them. They're so sociable. I put two in a tank together,
+
+[00:28:42] and they didn't kill each other. But most of them hate each other, but they have to have sex in a very intimate way, which is quite unusual for animals like that. So the way they have sex is they insert their sort of penis arm into the woman's head-off. They have a penis arm. Yep.
+
+[00:29:02] Everyone has a penis arm. That's what right or left-handed means. So the world record for, an octopus opening a jar is 54 seconds. And this all kind of started. There was an experiment at Seattle Aquarium where they gave childproof bottles to octopuses to see if they could open them.
+
+[00:29:26] And the first attempt for opening one of these by a Pacific octopus as well called Billy, it took him 55 minutes to open it, or her, sorry, and within a bit of practice, she could open these within five minutes. But Roland Anderson, the lead researcher, said, these results do not imply octopuses are smarter than children.
+
+[00:29:48] It's easy to open childproof stuff once you've worked out the trick. As soon as you know to push it before you twist it, then you're gold... I can't believe it to them five minutes after that. There was an American group called Safe Kids who tried out whether children could open these or not. They gave the containers to the kids and said, we want you to open them, three, two, one, go.
+
+[00:30:06] And then the kids were asked to open them as quickly as they could. And every single child in the group could open at least one of the bottles that they were given. and Olivia, who opened two within a minute, was interviewed by a researcher. She said, I'm really fast because I'm a big girl. That's nice, isn't it? It's very nice. There's an Indonesian species of octopus where they sometimes build bunkers.
+
+[00:30:31] They don't build bunkers. They just dig in the sand. The male stays in a little hole in the sand that he's built, and it's lined with mucus. And he sends his arm over across the seafloor and down into the dead. of the female next door and has sex with her that way. But sometimes the females go out mid-sex on an errand or something.
+
+[00:30:53] If I had a pound. But we're never short of groceries in my house. They accidentally drag the mail along with them. Again, if James had a pound. An accident because it's a massive danger in octopus sex
+
+[00:31:20] of the female eating the male because they love to eat male octopuses. And so the best time, apparently, if you're a male octopus out there, to have sex with a female, is while she's eating, because then she's distracted or while she's foraging.
+
+[00:31:32] So maybe he's chosen to go for it that way. But that's why they go for the long-distance sex, isn't it, to try and make sure they don't get eaten? And sometimes she will suddenly leap out and propel herself towards him and swallow him whole. Or strangle him to death sometimes during sex, As in like Xenia Olatop, does anyone remember her in the 90s born films?
+
+[00:31:51] They'll have sex, get their sperm in them, and then strangle them to death and eat them. It's like an all-in-one kind of deal. Okay, that's it. That's all of our facts. Thank you so much for listening to our episode. I'd like to get in contact with any of us about the things that we've said over the course of this podcast.
+
+[00:32:15] You can find us on Twitter. I'm on at Schreiberland, James. At Eggshake. Andy at Andrew Hunter M. Chisinski. You can email a podcast at QI.com. Yep. You could also head to No Such Thing as a Fish.com
+
+[00:32:30] where we have all of our previous episodes. Also, as this episode goes out, it's a launch day of our vinyl, so be awesome if you could get that. We will be back again next week. Thank you so much for being here, guys. We'll see you again next time. Have a good night.

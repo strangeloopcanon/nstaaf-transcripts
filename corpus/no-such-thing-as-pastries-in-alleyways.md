@@ -1,0 +1,335 @@
+# No Such Thing As A Fish - No Such Thing As Pastries in Alleyways
+
+- Episode date: October 13, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-pastries-in-alleyways
+- Slug: no-such-thing-as-pastries-in-alleyways
+
+## Transcript
+
+[00:00:02] Hi everyone, before we start this week's episode of No Such Things are Fish. I just wanted to quickly remind you about our super special members area known by us and everyone who sees the name as Club Fish. It's a wonderful place where you get loads of bonus content. You get all the episodes without any adverts. You'll be the first to hear about any live shows we're going to do. And we have a thing called a Discord now for the uninitiated, such as myself, A Discord is a place where you can go and chat all things fish with like-minded fish fans. It's a really cool place to be.
+
+[00:00:40] Loads of fellow listeners on there and you might even see the odd member of No Such Things of Fish popping up from time to time. And when I say the odd member, I mean Dan, of course. Like I always mean when I say the odd member. Actually, while I'm here, I might as well remind you that Dan has a book out. It's called The Theory of Everything Else. It's absolutely amazing. it's basically all of Dan's brain printed in a book
+
+[00:01:04] and what could be more enticing than that. Let's be honest. So go out and buy that and join Clubfish if you'd like and the place to join Clubfish is no such thingsafish.com and all the information about how to subscribe to Clubfish through Apple Podcasts or Patreon is there. Okay, on with the podcast. Welcome to another episode of No!
+
+[00:01:41] No such thing as a fish, a weekly podcast this week coming to you live from Cardin. My name is Dan Schreiber. I am sitting here with Anna Tashinsky, Andrew Hunton Murray, and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, and that is Anna. My fact this week is that quassant-shaped quassants taste
+
+[00:02:17] worse than non-quissant-shaped croissant. Quassant? So... Actually, a pretty hard sentence to say. It feels more like a complaint to waitrose than a fact, isn't it? It's actually, it's more of a complaint to the country of France. So when you... When you say a croissant-shaped croissant, you mean like a crescent-shaped croissant?
+
+[00:02:40] Exactly. Yeah. Yeah. You're classic. A classic croissant. A classic. Yeah. Well, it's not actually a classic, but it is... The name, obviously, croissant, comes from the fact that it is... you know, in old-school sense, crescent-shaped, curved.
+
+[00:02:53] Why is it not classic? Well, just because today, so many of them are straight, and I couldn't believe... You can't redesign the classic. That's the classic. That's what that word means. They've updated the classic. It's a modern classic.
+
+[00:03:06] Modern classic. Oh, yeah. The modern classic is a straight croissant, and they taste nicer. Facts. Surely they're just a different shape, so how can they taste different? Oh, so glad you've asked.
+
+[00:03:19] Almost like I know the outside. You'll probably know this if you are French or if you work in a patisserie. But basically, you know, if straight croissant, so they're fat in the middle and thin on the outsides, but they go in a straight line, they are all butter croissants, okay? But curved ones in that little sea crescent-shaped,
+
+[00:03:41] croissant shape, they can actually just be made with oil or margarine, which, as everyone knows, tastes inferior. Right. But interestingly, a lot of French people prefer the margarine one because apparently it dunks better in coffee. Yeah, there are claims about this. I feel like that's people trying to be contrary.
+
+[00:04:00] Because let's face it, all butter quassette. They're more expensive, they're more luxurious. In France, you know, the adults will get the straight quassons and they give their kids the shitty cheaper curved quassons because they're made with margarine. I read that somewhere. And I think this is mad. There are some claims that it's actually by law
+
+[00:04:16] that, um, Margarine cuisons are not allowed to be straight, but I can't find that law anywhere, but it certainly is practice across France. Somewhere in the French parliament, they will have a croissant division who are looking into quasson-related legislation. But it's not the butter that turns the croissant
+
+[00:04:34] into a crescent. The butter doesn't do anything. There's nothing that's happening chemically here. It's just in practice, just the rule is if you work in a boulogé if it's all-butter croissant, it's straight. And if you want to make an all-butter croissant curved, you can, but if you want to make a margarine croissant straight, you're going to prison.
+
+[00:04:53] But fortunately, in French prison, the wine selection is very good, and you'll actually have a nice time. So there was a coup in 2016, and this is in the UK, a croissant-related coup, which Tesco replaced all of its curved cuisans with straight cuisans, and they did it, as in they just announced it, and they said, right from tomorrow, they gave people no notice or warning. Because you might have gone in and just bought the entire stock, might you? Well, you can't, you can't stock up, can you? Because you have to buy them fresh every day. So they knew that their customers would be snooker the next day.
+
+[00:05:26] But they just said, they claimed, okay, they made this claim, which I think is bizarre. They claimed it was due to the spreadability factor that they were actually making life easier for their customers. They said, if you cut open a straight croissant, it's very easy to put in your jam or whatever. Obviously, if you cut open a curve croissant, it's a nightmare and it takes hours. I, blah, blah, blah. Do you know, people took the piss? at the time, and it was the Botetesco, Harry Jones, who said this. But I genuinely agree with him.
+
+[00:05:50] He said, when the croissant's curved, people can take up to three attempts to achieve perfect coverage, which increases the potential for accidents involving sticky fingers and tables. But honestly, it is harder to spread a curved croissant. I want to, and I can't because he's not here, and I don't know him, pick him up on that sentence. Sticky fingers causes accidents and other problems.
+
+[00:06:14] What the fuck is he talking about? What on earth is that centred? And he said 75% of people who were surveyed wanted the straighter croissant because of, as Andy says, the spreadability factor. Am I the only one who doesn't cut open a croissant and spread jam in it? I just find that so weird.
+
+[00:06:35] The other interesting thing about croissants is in that kind of respect is, you know the idea that, especially when you go to France, you see them and they're cut in half and they put like ham and cheese and stuff in the middle of them. That's here as well, yeah. But that was only invented in the 1970s. Wow.
+
+[00:06:51] So the French, they decided to do this because they were worried that American hamburgers were coming over to France, and they thought, what can we do to stop? Holy the march of the hamburger. I know what we can do. We can put ham and cheese inside our croissants. That's the French hamburger?
+
+[00:07:05] I didn't know that. There are these places called croissanteries across France, and they were created in the 1970s as a big government, like, state. intervention in the market to deal with the scourge of what they call Le Fast Food. Yeah, yeah. I just can't imagine ever anyone's on, oh, it's 1am, God, it's McDonald's open.
+
+[00:07:23] But the croissant therries. Oh, fantastic. I stayed in a four-star all-inclusive recently. Bloody hell down. Yeah, and it was really interesting. They had this bit of new technology I've seen nowhere before, which is during the breakfast buffet, they had croissants, and you would select your croissant, of which they would select your croissant, of which they
+
+[00:07:43] was almond and just classic plain and chocolate. You get a plain one, and then they had all these pipes coming out, kind of like if you were pouring a pint, right? There was like seven of these pint-pulling things. And what they did is they take your croissant over, and one dispenses chocolate, one does jam, and so on. And what they do is they shove the croissant into the pipe, and then they pump it full of chocolate or jam or whatever.
+
+[00:08:05] Oh, my good. It was like seeing the future. I couldn't believe in it. I came back, and I was like, in Italy, they've got the future in the four-star inclusives. You know what? I was amazing. I was really thinking when he launched on this story,
+
+[00:08:15] I think I know more about breakfast buffet technology than Dan does, and I didn't. I'm stunned. You need to know where that is now, don't you, Andy? Because you are a bit of an expert on breakfast buffets. The last all-inclusive I went to on the breakfast buffet, they had Haribos. And I must admit, I did not eat a single croissant that week.
+
+[00:08:34] Well, the French, of course, traditionally put Haribot on their croissas. One thing about croissons is really interesting is that they're quite new, right? So the oldest recipe, as far as I could find, which is of a traditional classic or even modern classic croissant, is from 1906. And so that means that Napoleon didn't eat croissants,
+
+[00:08:53] Bolzac, Victor Hugo, Georges Sohn, they never ate a croissant in their life. Wow. Maybe that's why they were so productive. Maybe the quassons led to the downfall of France. Did you guys hear about Operation Cuisant? No. Operation Croson was something that was launched in 2016.
+
+[00:09:09] It was an Anglo-French operation. It was the day before the Brexit vote, and a campaign group tried to campaign on Brexit with Operation Crosan, which was giving out croissons, accompanied by pro-EU messages written by people in France on postcards, saying, please, you know, don't leave. And the croissons, get this,
+
+[00:09:29] they had been baked that morning, the 22nd of June, and they'd come to London on the first Euro star of the day, and there were 600 croissons, which... That's a lot of effort for something that ended up being completely, fucking useless, isn't it? It's very romantic, though, and very French, and they had 600 croissons ready to give out, and then the police interceded,
+
+[00:09:50] the police stopped them and said it's illegal to use food, drink, or entertainment to influence a vote. Oh, it is, yeah. And so they were all imprisoned, actually, for... Some of them are still in. No, they issued a statement saying, we are happy to fall on our baguettes
+
+[00:10:05] and stick to the right side of British law. Have you guys heard this is an America of the cronut? Yeah. Am I the only one who hasn't heard of the cronaut? I think it might be. Oh, okay.
+
+[00:10:19] Have you guys heard of the cruffin? Okay. Do you know, I reckon between us, even if we haven't, I reckon we can put it together. Go on then? It's a cronut full of stuffing, isn't it? Yeah.
+
+[00:10:33] Yeah. It's a Christmas crustal. Yeah. Full of stuff, yeah. So anyway, you guys must have facts. No, no. Hey, Dan, have you heard of the, the chromosa? Cromosa.
+
+[00:10:47] Someone gasped then, as if this is the greatest thing they've ever heard. It's basically a croissant with samosa filling and then deep-fried. Oh, lovely. Yeah. Have you heard of a, if we're doing this, which I think we are? A craigel. A craigel. Okay.
+
+[00:11:03] Yep. Yep. That's a croissant and a bagel? Anyone like to take the next one? Oh, have you got one? I'll go for one. Yeah. A townie. A town.
+
+[00:11:11] It's not very politically correct, James. There's no croissons involved. What is it? It's a half tart, half brownie. Oh. And finally one more. A doughnug. You know what that is?
+
+[00:11:22] A pug. A pug and a donut. A pug that's been turned into a donut. Yes. It's not so far off. It's a donut crossed with a chicken nugget. Ah. Which is basically just a donut-shaped chicken nugget.
+
+[00:11:36] Wow. That's pretty good. It still tastes the same. Yeah. The cronut, an interesting thing about the cronaut, is that this was made in 2013, and it was in America, and it was a bakery guy who wanted to do a donut meets the croissant, and it took off massively straight away.
+
+[00:11:53] So he released it on one day. The next day, there was a queue of 100 people trying to get access to the cronut. And the market value, the black market value, of the cronut immediately was massive. So you would buy it for something like, two or three, four or five dollars, right? It was selling for like $100. There were people in alleyways. Come on.
+
+[00:12:12] Yeah, it was such hot property. In alleyways. In alleyways. You wouldn't buy a pastry in an alleyway. You would if it was a cronut. Because cronuts were, they were so popular. And so it was a guy called Dominique Ansel, who was the creator of the cronaut,
+
+[00:12:25] and it was so popular that he trademarked it. So he owns it. No one else can make a cronut. They can't. They just can't call it a cron. Well, no, there's the dosant, which you can get. But you can't get the original. So, yeah, but there was a huge black market value for it.
+
+[00:12:39] God, people are stupid, aren't they? We should say just because otherwise people are going to write in that, and I never thought I'd say this, James turns out to be the most sophisticated of the four of us in this one metric, because in France, they never put filling into their croissants, which I didn't actually realize. But all Frenchers seem to concur on this.
+
+[00:13:01] They say that they've literally never in their whole life, met someone from France who puts jam or butter even worse, on their croissants. Because it's got all the butter is sort of in it already. Basically half butter. But people, it doesn't taste the same
+
+[00:13:12] as when you melt the new layer of butter into it. I've got no patience with people who say there's enough butter in croissants already. You can never have enough butter.
+
+[00:13:20] Do you know the Concord de Meil Coissant de Grand Paris? This is the French Cuisant Championships. Did you go to French? Sorry, I didn't, I didn't mean to it. I don't mean to. But it's what is the most French thing
+
+[00:13:33] you can imagine. So it's the greater Paris best croissant competition, basically. And there was a brilliant National Geographic piece about it. The judge's comments are just so French. So listen to this one. It's executed to perfection. If Marie Antoinette had offered these to the French people,
+
+[00:13:48] there probably wouldn't have been a revolution. He also says at the beginning, it's executed to perfection, which... It is time for fact number two, and that is... James. Okay, my fact this week is that Manchester City
+
+[00:14:13] women's football team has a menstrual cycle coach. Now, is that a cycling coach who is also menstrual? Or is it? No, it's a coach to get the best out of their players when they're on their periods.
+
+[00:14:30] Or, in fact, for all different parts of the month. So this was an article I read in The Economist and they were talking about this in general and then I found out that Man City have this. but basically, I mean, it really makes sense, right? So if you're an elite sports person, you're really always aiming for that extra like 1% that'll just make you better than anyone else.
+
+[00:14:49] And a load of studies have been done and more and more of being done that show that women's performance fluctuates at different times in the month due to their cycle. And so it really makes sense that you have someone on your team who can get the most out of your players by working that out.
+
+[00:15:03] Oh, so it's not like you'll be hauled off halfway through a match because the cycle coaches look at their watch and said, no, she's on, get her off. I should hope not. No, okay. I really hope that doesn't happen. I don't think it works like that, eh. I've seen those adverts.
+
+[00:15:21] Just roller skated along. But this is, the other thing that's really important is that women footballers are way, way more likely to get certain injuries than male footballers, right? So there's a thing called the anterior cruciate ligament. And like football fans will know that this is something that plagues like male footballers, but it's really, really bad for women. And apparently women are eight times more likely to get an ACL injury than men.
+
+[00:15:48] And a lot of people think that it's related to the menstrual cycle. So Arsenal midfielder Jordan Knobbs, she missed out of the 2019 World Cup because of her ACL. And she reckons it was because of the time of the month she was on, and that made her weaker. Yeah, apparently, basically your menstrual cycle is split, not yours, but half of our menstrual cycles are split into essentially two phases,
+
+[00:16:09] the follicular and the luteal phase. And in the late follicular phase, which I believe is week two, so you've had your period, and then it's kind of a week after that, that's when estrogen concentration is highest, and that's when you're just going to get injured. Your bones are going to snap,
+
+[00:16:24] your ligaments are going to break. You should basically stay in a padded room for a week. Right. Turns out. Well, the thing is that estrogen is anabolic, so you'll know anabolic like steroids that people take to build muscle. So Easton helps muscle to build, so that's
+
+[00:16:39] one difference that happens. But really what you do is you make sure that your diet is different at different times a month. You can change your training so you can work harder at one time of the month and less hard at another time of the month. That's what they're kind of doing in the city. I was also looking at other bits of sort of sports science in women's football.
+
+[00:16:56] I didn't realize the England women's team, they have personalized bra prescriptions. Did they? Yeah, they did this year. They got in a breast biomechanics expert or two to very, very personalized bras to ensure that they got the right, literally the support they needed. Do you have to go into a chemist and they say, we'll just make that up for you. It'll be 10 minutes. You've got a seamstress in the back.
+
+[00:17:18] The Guardian covered it and they said, if those cups could talk, slightly creepy wear a bit again, they might claim a share of the lioness's victory for themselves. Right. But it genuinely makes a massive difference and supposedly if you run in a poorly supportive bra, it can shorten a woman's stride by four centimetres, and that, and I'm going to need some help with this statistic, can add up to an extra mile over the length of a marathon. Now, that's what I read.
+
+[00:17:43] I don't understand how... Does that mean when you get to everyone else's run 26 miles and you still have to do another mile? Well, that's what I don't understand. I think it means that you have to do more strides to do the marathon. I see. But I don't think it means that you get to finish early. I like with the lionesses,
+
+[00:18:01] there's so many... like superstition is a big thing within footballers where they have to follow certain routines. We see it in sports where like Serena Williams will wear the same pair of socks throughout a competition. If she plays Wimbledon, she'll wear the same pair of socks just so it makes it sort of feel like she'll win. That's her thing.
+
+[00:18:17] With the lionesses, there's one player who always needs to have beans on toast. That's her thing. She thinks that's going to help me. It's just routine and it's what they do. And then another thing was there was one match where a few of them had a ponytail that was done by one of the players.
+
+[00:18:31] and they had a great game. They started believing that this ponytail was part of the sort of... Who the hell needs someone else to do their ponytails? I've seen the ponytails of the England women's team. They're pretty basic ponytails. When the Euros were on earlier this year, the Guardian newspaper had biographies of all 368 players.
+
+[00:18:52] Okay. So I read all of those. Nice. And I'll be honest, there wasn't that much in there. So Lena McGull, who plays for Germany, this is her fun fact. She was born exactly 225 days to the day after Napoleon Bonaparte.
+
+[00:19:08] 225 days? Yes. She's very fit for her age. She's very, very old. Wow. She will only have got croissants since the 1970s. She was 200 years old, and she's like, what is this?
+
+[00:19:26] Marie Leone, let's see if I could get this one, right? She's Spanish. She has lots of tattoos, but they're only on her left arm. Can you work out why they're only on her left arm? Is she right-handed, but she's a tattoo artist? Correct. Oh, wow.
+
+[00:19:40] That's really good. And another one, Vivian May Diemah, who's from the Netherlands, she always got upset because people called her the goat. So goats means greatest of all time. But she didn't know that's what it meant. And she just said, a goat is not the best animal to be. Why are they calling me a goat?
+
+[00:19:59] That's so good. I love that. So we mentioned ages and ages ago. There was a ban, the English FAA, they banned women's football in about 1920-something,
+
+[00:20:10] didn't they? They banned women from playing on their pitchers, which effectively banned it, didn't they? So it sort of shut down the game. But this was, this happened all over Europe.
+
+[00:20:18] So the French game was, their football federation, they banned it in 1933, West Germany, 95. Spain, 1930 to 75, it was banned. or it was all, it was banned all through, in the 20s and 30s, and then all the bands were lifted in about the very late 60s or early 70s.
+
+[00:20:35] Yeah, it's just, it's very peculiar. Yeah, it is very weird. Although some sort of underground matches did happen, socially underground, not literally underground, in the interim. And I think there was, it was the early 1970s, as you say, that it started to come back into the mainstream again. And there was the unofficial Women's World Cup in Italy in 1970.
+
+[00:20:58] And I think FIFA refused to play a part in that, but it did happen, and it was quite popular. And then there was a follow-up in Mexico in 71, and it was really popular. So I had no idea. The final in 1971 had a crowd of 110,000, which I think is the biggest women's crowd ever. And there have been claims made about similar crowds recently, but I think that's bigger than all of them. Yeah, and it was great. It was sponsored by Martini. So I guess you got free shots of fortified wine given out to you, the classic. football drink. And to make it, weirdly
+
+[00:21:32] to make it appeal more to the female audience, I guess, they painted the goal frames with pink and white and all the stadium staff wore pink outfits. Now there's an intake of breath, but I do think that pink gets a bad reputation, because it's not an objectively bad colour.
+
+[00:21:48] But, yeah. It feels like a bad colour for a football goal, though, right? A nice, bright white is what you want. That's probably the most contrast, isn't it? Yeah. better than painting it green. I read about what I think might be
+
+[00:22:02] the earliest example of a woman playing football. It was this woman who was born just after Nepal. No, it wasn't it. It was in 1773 in Yorkshire and it was a match between the married gentleman of the town of Walton and the bachelors of the town of Walton. And it said, in the report,
+
+[00:22:19] it said the game had many falls and broken shins on each side. And at one stage, the wife of one of the married men went to help him after he was injured. she then went after the ball and secured victory for her husband's team. Doesn't count though really. It's an illegal move, isn't it? Kind of a random player, come.
+
+[00:22:37] I'm stumbling from the crowd. Women's football basically has, just until recently, had just terrible, even internally from the football community, particularly the officials, just terrible times. 1991, FIFA didn't want to name the Women's World Cup, the World Cup. So instead, they got a sponsor.
+
+[00:22:57] so it was the M&M's Cup. They could have named it after Mars bars and called it the Mars Cup. So you have the World Cup and the Mars Cup. Oh, yeah. And then they could have done an intergalactic match against each other. And those games, they made the games 10 minutes shorter.
+
+[00:23:12] Just in case the women collapsed when playing for the full 90 minutes. That seems to be the reasoning. That's 91, right? 1999. And when Germany, West Germany lifted its ban in 1970, the games were only 70 minutes long and they were only allowed to be played in warm weather.
+
+[00:23:27] basically just in case Cold Weather killed the players yeah that seems to be the panic that there was and set Blatter who is the he's the president of FIFA right he was asked about women's football this was a while ago
+
+[00:23:43] and he suggested that he was a very progressive man so I'm looking forward to an extremely liberal and thoughtful comment here I hope we're not going to tarnish the good name of set Blatter in this movie absolutely not he said that he suggested to get more people watching women's football
+
+[00:23:59] that female players should wear tighter shorts to promote a more female aesthetic. He said they could, for example, have tighter shorts. Female players are pretty, if you excuse me, for saying so. And they already have some different rules to men, such as playing with a lighter ball. They don't play with a lighter ball. You did used to be, though.
+
+[00:24:20] I used to be played with kids' balls. In Japan, when they started playing women's football in the 80s, they played with a children's ball, I think. and the halves lasted 25 minutes, and handballs were permissible if it was players protecting their own breasts, which I actually think is a fine rule. I'm going to need to move us on in a second.
+
+[00:24:39] I was looking at world records for keepy-uppies. Oh, yeah. Because in 2003, there was a woman called Milene Dominguez, who's quite a famous-ish footballer. She's the ex-wife of Ronaldo, not the Ronaldo that you would know, Andy, but the Ronaldo that football fans would know. It's so nice that you presume I know any of the Rinaldos.
+
+[00:24:59] I'm really, like, I'm quite placid. Anyway, she was 17 at the time, and she did 55,187 Pi-Piopees, which was a world record. Now, according to the Guinness Book of Records, the current world record was made in 2009. It was by a British guy called Dan Magnus, and he did 24 hours of Kipiope's in Covent Garden. He did over 200,000 touches.
+
+[00:25:21] What? But he was allowed a few breaks to kind of... stretch his legs and stretches muscles and stuff, whereas Melaine de Minguers didn't have any breaks, and whenever she needed to do anything, whenever she needed to eat, drink, or go to the toilet, she did it by balancing the ball on the back of her neck and then backing up and sitting down and doing it.
+
+[00:25:41] So I reckon she should still have the record. Oh, my gosh. I think I will just have a main, actually. I'm going to skip the starter, thank you very much. Wow. And then there was a 12-year-old called Imogen Papworth Heidel, who last year did 7.1 million. and the Kie Piopees.
+
+[00:25:57] Sorry? But she had a lot of them donated by other people. So the idea was that she was going to do one for every key worker in the UK after, you know, COVID stuff. And she, in fairness, she did like over a million over a long period of time. But the rest were donated by Marcus Rashford, Lucy Bronze,
+
+[00:26:17] and Spandau ballet star Martin Kemp. Oh, cool. Go, Martin. It's been a dry patch since he left EastEnders, hasn't it? It is time for fact number three, and that is my fact. My fact this week is that
+
+[00:26:37] two of the leading archaeologists to dig up King Richard III's bones were called King and Richard. So, slight correction of my fact. One was an archaeologist, another was a geneticist, and this was two people called Richard Buckley, who's of the University of Leicester Archaeological Services,
+
+[00:26:59] and Professor Turi King, who's the geneticist, who was the person who went and did all of the DNA testing to prove that Richard III was who he was. So, can I just say, Dan, like, maybe about two months ago, you did another fact, which was that someone from the movie King Richard was called Richard King? Yeah, the editor of the movie. Are you just looking up Richard King? It's my new hobby.
+
+[00:27:25] I'm just trying to find anyone called Richard or King. So the big story that I'm sure everyone remembers episode one of no such thing as a fish in which we mentioned that the reason that King Richard III was found was because it was a screenwriter called Philippa Langley who was doing some research for the script that she was going to write. She was walking through Leicester. She passed a car park and she had a sudden feeling that Richard was there. And so she went away and she told her friends and she was like,
+
+[00:27:54] I just felt like he was there. and she kept telling this story, and eventually she thought, I'm going to go back and check if he's there. She goes back a year later. She walks into the car park. This time, she sees something that wasn't there last time, which is a giant R, which is painted onto the ground, which she thinks is like the helicopter sign,
+
+[00:28:12] which just means Richard is here. And so she puts forward a plan to Richard Buckley, who I've just mentioned, saying, I'd like to get a dig going here, and she helped to raise the funds. Anyway, the story is that they found the king underneath the end. R. But recently, while I was trying to do some research on a photo, a friend of mine was in touch with Turi King, Professor Turi King, and she said, oh, you're not getting in touch about the R underneath where he was found because he wasn't found underneath the R. So that's been a big
+
+[00:28:41] story. So I thought, okay, because probably it's very annoying as an archaeologist or a geneticist that when you've used actual science to find a remains of a body that someone else is claiming that they use psychic intuition to find it. but then she doesn't acknowledge the fact that there's huge synchronicity in the point that Richard and King, these two people, found the fucking body. Yeah, yeah.
+
+[00:29:05] And there's a third incredible nomenclature link to this, Dan. So after the bones of Richard the Third were found, they were then reinterred, there was a big ceremony for the re-burial of Richard the Third, and the man who made the lead-lined casket that the king was put in
+
+[00:29:20] was called John Castleman. And what is a king if not a man who lives in a castle. So true. And isn't that spooky? Having the hairs on the back of your neck gone up? There's one interesting sort of spooky thing about Richard III
+
+[00:29:38] and that is that I only learn this by doing this research this week and that is that there's a theory that Leicester City won the Premier League with the help from Richard the Third's Ghost. Oh yes! And on the Leicester City website they have a lot of evidence as to why this is the case. Really? So they won the league, but the season before, they were bottom of the league.
+
+[00:29:58] And they, you know, it's about Christmas, and they lost, lost, lost, lost. And then they laid Richard III to rest. And nine days later, their next game was against West Ham. And they won that game with a last-minute goal by Andy King. No! Dun, dun, dun! This is ridiculous. And Richard was actually, he went from the bottom of the car park to the top, didn't he, when they dug him up? So it's awful.
+
+[00:30:25] I'm just telling you from the Leicester City website. That's amazing. I'm at a conspiracy theorist meeting, and it's freaking me out. I just want to mention something that I like about Turi King that she discovered. So as you say, she's a geneticist, so she was one who said, look, this is Richard III,
+
+[00:30:40] and the DNA match was made by comparing people who were descended from his mother's side of the family to his DNA. But she then thought, okay, let's just check out the other side of the family. And they, first of all, she and her team of geneticists. They got relations of Henry Somerset,
+
+[00:30:59] who was descended from the same great-great-grandfather as Richard III, so they'd have to share DNA. They got people who were related to Henry Somerset, and it turned out they didn't match Richard III at all, which is very weird. It means there must have been a break somewhere in the line of succession. And so they thought that's incredibly weird. Does that mean someone was cheating and stuff?
+
+[00:31:20] It means that we suspect there's been some hanky-panky, and then there's also another guy today who's descended from Geoffrey Count of Anjou who's basically the founder of the Plantagenet dynasty and he's who it was named after and that person's DNA doesn't match either of the other two's. So basically everyone in this dynasty was shacking
+
+[00:31:37] around, affright and sentra as far as I can tell. That's really cool. Richard III himself he was born with a full set of teeth and he was in the womb for two years. Come on. Wow. That can't be true. Well these might be
+
+[00:31:53] propaganda claims from the era. Yeah, in fact, there's Shakespearean propaganda claims. I think it's in the play that he was born with a full set of teeth. Are they pro or anti in propaganda terms? What does it sound like a compliment? What do you think? It's pretty cool if you've bought a full set of teeth
+
+[00:32:10] and you're in a mum's... Yeah, that's pretty cool. And hair to his shoulders as well. Right. He was born with. And it wasn't... I think Shakespeare took it from historians who immediately after Richard died were coming up with this sloth.
+
+[00:32:23] Or maybe it was true, we don't know. Probably untrue, though. Can I, I just want to say one good thing about Richard the third because he gets a bad rep, of justifiably. He was probably a murderer of small boys, but on the bright side, he did introduce England's first legal aid system,
+
+[00:32:42] which I didn't know. Yeah, so he instigated in his, what was a very short reign. He was only on the throne about two years, isn't he? Was he? Yeah, because he got killed. Same time he was in the womb. That's insane.
+
+[00:32:52] Yeah. But yeah, he instigated this thing called the Court of Request that meant that if you couldn't afford legal aid or legal representation, then you could get it and be provided by the state, which is very ahead of its time. That's pretty cool. He founded a Council of the North to ensure that the North got representation in government. Great.
+
+[00:33:08] Yep. The only Northern King, really, that we've ever had, like proper Northerner. I got a really good fact, which I didn't look up, so it might be wrong. But it's so nice to set the expectations at the beginning of a damn fact. Yeah. So the third word of the third scene, of the third act, of Richard the third, is fourth. I love that fact. That's so good. If it's true. If it's true. Have you guys heard of Marmaduke Constable?
+
+[00:33:45] Sounds great, though. We were just on relatives of Richard the Third, and this is one of the really close descendants of Richard the Third, as in almost contemporary. In fact, he was contemporary. He was contemporary. He was... Yeah, his name was Marmaduke Bosworth. He fought at the Battle of Bosworth, where Richard was killed. Yeah. He also, and that was the year 1485, just to say, he also fought against the Scots at the Battle of Northumberland.
+
+[00:34:08] That was in 1513. He was aged 71 when he took actively part in that battle. He only died in 1518, aged about 75 years old, when he choked to death, drinking a glass of water which had a frog in it. So Richard III died, like you're saying, Battle of Bosworth. We've found, you know, we've checked the bones and we reckon that he lost his helmet
+
+[00:34:33] and came under a hail of 11 wounds at the same time, and that's what did him in. But traditionally, he's supposed to have been killed by a soldier called Ralph Rudyard. And Ralph Rudyard's family went on to own a lake in Staffordshire called Rudyard Lake. And Rudyard Lake, we've said before,
+
+[00:34:50] is where Rudyard Kipling's name comes from. Oh. Right? So his parents went there and they really loved it, and they thought we'll name him after the lake. So Ralph Rudyard's family owned this Rudyard Lake but they owned two lakes in the area one on each side of a hill Rudyard Lake and another one called Tittiesworth
+
+[00:35:08] So that means that Rudyard Kipling could so easily have been called Tittiesworth Kipling That's really great Can I quickly go back to Tury King a second Because I just want to say There's been an interesting thing that's been in the news recently So there's actually a movie that's just been made.
+
+[00:35:29] Steve Coogan has made a movie of the story of Philippa Langley finding Richard III. And in it, the sort of plot line is that she has this psychic intuition. And the scientists and archaeologists and geneticists in it are kind of portrayed in that classic way of being really rational and really unkind. And they're really pissed off because they weren't. And if you watch Churi King, just in case you see that movie and you think, oh, scientists are bad.
+
+[00:35:54] She's awesome. She's really cool. She's found incredible stuff as a geneticist. So she goes around doing DNA for all these finds. When she was trying to find out about Vikings, she found that many men just came in to give their DNA because apparently most men think they're a Viking. That's the thing.
+
+[00:36:12] She was like there was no trouble getting volunteers for people saying, are you Viking? Because people are coming and going, well, I definitely am, so let's prove this. Are we sure that a lot of men didn't do it because they thought maybe they'll give me an iPad and some free porn for half an hour? and that's how I'm donating my DNA. Was that how you donate your DNA?
+
+[00:36:28] No, I don't think so. I saw it was a cheek swab. I'm saying that's what they thought. Okay. Well, thank God you clarified that. Otherwise, you would have been straight down there. Yeah, and if I'm giving you a call when I'm in jail because I took my dick out during a...
+
+[00:36:42] It was meant to be a cheek swab. Swab this cheek. Okay, it is time for our... final fact of the show, and that is Andy. My fact is that to establish dominance, the sarcastic fringe head fish will engage in kissing competitions with rival males. And here's the fish. So there's a picture of it on the screen here.
+
+[00:37:18] The sarcastic fringe fish. The sarcastic fringe head. They're really bizarre fish. Oh, I should give credit for this. This was actually sent into us by at flock of words online, so thank you so much. They're called Neoclinus Blanchardy. They live off North America on the Pacific side, and they're really ugly-looking,
+
+[00:37:37] so they're kind of tiny little brown fish, and they live in holes, and they jump out, and they go, wah, at their prey, and they're just, like, they're sort of kind of these gross, awful fish. But the one amazing and beautiful thing about them, they have this enormous mouth, as in their mouth is wider than the entire body, because it's got these huge, sort of supporting struts,
+
+[00:37:55] and they've got big flappy cheeks, and they can just sort of go, Sounds beautiful. It's a bit like just to give a visual to the audience. It's a bit like, even though it's part of their mouth, remember in Jurassic Park when the dinosaur comes up and it suddenly looks, it's looking cute, but then it spreads those frills.
+
+[00:38:13] It's kind of like that, except that's its mouth, not frills. It's really like that. And they have this weird, weird ritual where if they are near a rival male and it's the mating season, they will both yawn open and kind of push their mouths against each other, to see who's got the bigger mouth.
+
+[00:38:30] And this is the intimidating thing. In my experience, that's not what kissing is. Maybe I'm doing it wrong, but it's not always like, let's see who has the biggest mouth. Well, I've got some apologies to make, because I'm like, undefeated champion. And the smaller male, the male with the smaller mouth, rather, will surrender and leave.
+
+[00:38:56] And they do, but they basically are sort of, But it does, because they're both about the same size, it does look like they're kind of making out. Yeah, yeah. So it's not proper, proper kissing. Although if one has a smaller head, sometimes the one with the bigger mouth will be able to fit the smaller one's head inside its mouth.
+
+[00:39:12] Oh my God, really? Which is my memory of year nine discos. What in this, one thing I couldn't get to the bottom of is, so they do the mouth display, the sort of dominance thing. Yeah, yeah. If they were to have a fight then, off the back of that, like, let's now have a fight. What is the advantage of having a bigger mouth?
+
+[00:39:33] Obviously, they're a bit bigger, but does that mean that they're going to win in a fight? Not really. They actually almost never have an actual fight. They might slightly bump into each other, but that's just not the way they do it, as in it's not in their repertoire. It's just like basically going at Year 9 disco to another guy and then doing your muscles and saying,
+
+[00:39:50] look, my muscles are bigger than you, but I really don't want to fight you. Okay. You guys have crazy Year 9 discos, you and Anna. I can't believe you. guys went to the year 9 disco, I wasn't allowed to go. But it's good news, it sounds like I missed nothing at all. But they do, I mean, these jaws, they have quite sharp teeth, so they can kind of bite and hurt you,
+
+[00:40:13] but they just tend not to do it to each other. Like if you go near their house, they'll do this kind of sort of scary, big open-mouth thing, but then if you don't go away, they'll actually go for you, and they are, you know, they do have a hefty bite on them. Yeah, they'll bite humans, weren't they? when you say you, actually you, divers. And that's where sarcastic comes from, by the way,
+
+[00:40:31] because we think, you know, does it have like some sort of like, is it like the Anna Tachinsky of fish? But no, it's sarcastic means that it's a Greek word, sarcasmus, and to bite or tear. Oh, is that right? Yeah. Yeah, right. It comes from, I think, sarco is flesh.
+
+[00:40:51] So it's to, and so sarcasman or whatever, to bite flesh. And it's where we get sarcophagus. which I'd never thought about, but sarcopagus, sarco is flesh, and then faggothocytes, it means eat, I eat. So it's flesh eating, a sarcophagus is something that's eating your flesh. Oh, gross. Gross. They have these kind of bright yellow lips, don't they?
+
+[00:41:15] The people in here can see them just about, I think. But for the people at home, you kind of have really bright yellow lips. And then on the inside, it's kind of a little bit colorful, but not really. But in actual fact, those bits on the inside, of the mouth reflects ultraviolet light. So to anyone under the sea that can see ultraviolet light, which is a lot and a lot of fish, can see it. Actually, that
+
+[00:41:35] also looks like there's a massive sort of disco coming out of his mouth. Right. They are so cool. It does look. I think that it's very beautiful with its mouth open. It looks like, it really reminds me of having your face painted at a fair. It looks like a kid's gone mad with face paint on them.
+
+[00:41:51] Their mouths are so big that it's possible they struggle to eat. And that sounds bizarre. Really? But there are a particular kind of fish called a blenny. There's a huge, great family of fish, and there are tube blennies, which live in tubes. And most tube blennies feed on small plankton.
+
+[00:42:08] But the male sarcastic fringe head, his mouth is so big that it can't suck anymore. So it seems to struggle a bit sometimes to eat plankton, sort of filter it in, because it's just got this huge... Yes. It's like when you're... If your toilet's clogged and you need to use a plunger, but sometimes the plunger head is too big
+
+[00:42:27] to get suction on the actual whole bit and so it's a pointless suction. I don't think anyone was actually struggling to grip the original point, but thank you so much. Glad to help. But now all you've done is connected our minds, opening our mouths with a block toilet, and we've all gone to the same place.
+
+[00:42:47] Blonies are, yeah, they're a huge family, aren't there? There are so many cool fish in the Blenny family, but one of the things they have is they have the only fish that suckles its young. So the only thing, I'm sure, that's like we do. Yeah, the Vivi Paris eel pouts. So Vivi Paris being, you know, they give birth to Live Young, hence that name. But when they're pregnant, and they have six-month-long pregnancies, which is pretty...
+
+[00:43:10] That's a quarter of the length of Richard the 3rd. Yeah, absolutely, yeah. Is that long for a fish? It's long, yeah, yeah. It's good for a fish. Usually the bigger the animal, the longer the gestation period. Okay, and these are like 30 centimetres, right, these fish? Yeah.
+
+[00:43:24] But the way they... Jay Suckle is inside, they sort of live in the ovaries, they don't have a separate uterus, and they've got ovarian follicles, and each little fish embryo suckles on a follicle, one inside the fish, and there are up to 400 of them.
+
+[00:43:39] So imagine it's like you've got 400 breasts and a baby on every one in there. Wow. That's amazing. A massive mouth. Yeah. There was a website called Worldwide Words. I don't know if you guys have seen it.
+
+[00:43:53] It's really, really good website. They've collected a list of animals with names that are suggestive of emotion, of which the sarcastic fringe head is one of them. Oh, yeah. So there's a few here. The festive midget. That's the species of moth that's found in North America. The confused flower beetle.
+
+[00:44:14] Oh. That's confused because it looks a bit like another kind of beetle, just walking around not knowing what's going on. And the depressed muscle. Wow. They call that because they have a flat shell. All muscles seem kind of depressed to me. I mostly see them actually on a plate, so that does make sense.
+
+[00:44:34] Have you heard of the tetra fish? I'm just going on general fish mating and aggression displays now. Tetra fish is unbelievable. Salefin tetras. So there are dominant males, and there are also smaller, more feeble males, okay? Both of them are competing for the attention of females. The dominant ones, you would think they just, you know, they're very active. in fact they do nothing.
+
+[00:44:55] They hide in some... Kelp. Thank you. They just hide. So the low-ranking males have the run of the place, right? And they do all these mating displays, and they're trying to persuade the female
+
+[00:45:08] that they're a good prospect and they're good to have sex with. And they do days and days of work persuading the female to have sex, right? Yeah. And when they have finally got the female to agree, and they're going off to the mating zone, a more dominant male
+
+[00:45:23] will just emerge from the... kelp and say, thank you very much, I'll take it from here. And the female just goes off with him every time. He's like, right, I'm now in the mood, and here's an even better offer. That was my year nine disco. And this is a thing called courtship piracy. And the dominant males are just good at finding good hiding places right near the mating zone and then just popping out of the last minute.
+
+[00:45:49] Why do they keep doing it, the little nerd ones? They just accept it. It's so weird. They never fight. Well, maybe occasionally they get lucky. Yeah, exactly. Yeah, they must hope that hope, hope, hope that somewhere in the kelp, there's no... It must just be like kind of looking in all the kelp and stuff just going on.
+
+[00:46:05] There's definitely not near. Exactly, yeah. Female brown trouts, they fake orgasms. Oh, yeah. So it's kind of a similar thing. So what will happen is if two... If a male and a female trout are having sex by which I mean like one laying eggs and the other one spawning over it, then another male.
+
+[00:46:23] or other males might come in the area. They might kind of turn up and say, I want a bit of that way. When you say come in the area, do you mean, they might... We might get to that. Okay. So what they'll often do is the female brown trout will kind of meet up with a male
+
+[00:46:37] who she's kind of not sure about. She kind of fancies but not sure. And then they'll do this sort of shuddering thing. You know, they'll both shudder. And usually when they both shudder, the females release the eggs and the males release the sperm. But actually, often the females will kind of hold onto their eggs.
+
+[00:46:52] onto their eggs while they're doing that because they know that other males in the area will turn up and then the other males will fight with the guy she was supposedly shagging and then they will all fight and then hopefully she'll end up with an even better male who she can then actually have sex with.
+
+[00:47:08] That is ingenious. Smart isn't it? That's really smart. I want to hear what a trout fake orgasm sounds like I want to see that when Harry met Sally of the trout world. I'll have what she's having what some plank Yes.
+
+[00:47:26] There's one in just sticklebacks. Male sticklebacks, also very territorial, males fight a lot. And when it's in mating season, and in mating season they go red on their undersides. So the way they spot other males to fight is they see a flash of red. But apparently they're not very good
+
+[00:47:40] at distinguishing fish from other stuff. So if you've got a pet stickleback, if like a red post fan goes by, they'll fling themselves at the side of their tank. If the Welsh football team goes past. Yeah, exactly. They'll attack them all. Wow.
+
+[00:47:55] Don't wear red around the sticklebacks. Speaking of going red, this is not in fish. This is in mandrilles, so the primate. But it is about like males attacking each other to try and get a female. So they will kind of try and become the alpha male. And if there's an alpha male, then you will fight against them. And if you beat them, you become the alpha male. And if you become the alpha male, immediately, just this biologically happens,
+
+[00:48:20] all the sexual skin on your face and genesis, Talia turns red. And the guy who you've beaten, his sexual skin goes kind of more bluey and less red. And your testicles increase in size and the person you defeated, their testicles decrease in size. Really? It automatically happens. So you should win the fight. Popping off to the mandrill tail of the next morning.
+
+[00:48:44] Congratulations on you're winning your fight last night, sir. I'll be expanding the crotch area of these. That's so good. Is that amazing? What's the sexual skin on your face? Do we have sexual skin on our face? Well, some of us do, Andy, but don't worry about it. It means it changed colour, so that it's secondary sexual characteristic.
+
+[00:49:05] Oh, like it's amazing. Like the emails find it attractive. Blushing, is that? Blushing, yeah, pretty much. That's our sexual skin. I don't know, man. If you've got nothing else to offer, maybe. Right.
+
+[00:49:16] True. Because we've got little bits of clitoris in our nose, don't we? What are you on about? Excuse me? Well, speak for yourself. You know how they say that men can't find the clitoris? I'm pretty sure it's in my own nose. Wait, I thought, yeah, the inside of the nose is...
+
+[00:49:39] You have erectile tissue in your nose, but I don't think that's quite the same. That's what it is. That's what I was thinking of. As in, when blood will go to it and it will get engaged, your poor wife, jamming your fingers up her nose every evening. Was it good for you? Well, it wasn't that God, I have to say.
+
+[00:50:07] Well, I feel like we've all learned a lot. Tonight, I'm going to go home and apologize to my wife. I feel we should all go home as well. That's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we've said over the course of this podcast,
+
+[00:50:27] but get the other three, maybe not me on this one. But you can get me on at Shriverland, Andy. At Andrew Hunter. And James. At James Harkin. And Anna. You can email a podcast at QI.com.
+
+[00:50:38] Yep. Or you can go to our group account, which is at no such thing. Or our website, no such thing is a fish.com. All of our previous episodes are on there as well as a link to club fish. This is our new exciting venture where we have awesome hidden places where you can chat to other fish fans as a community. There's also ad-free episodes, and there's, oh, shut up, James. Stop talking about hidden places.
+
+[00:51:02] I can't look at you in the face anymore. Yeah, or you can, what else can you do? You can have extra episodes like, drop us a line. It's our correspondence place where we chat about all of the facts that you're sending in and all the letters. Otherwise, we will be back here in Cardiff for another show sometime soon, I really hope. So thank you so much for having us.
+
+[00:51:24] For everyone at home listening to the show, We'll be back again next week with another episode. We'll see you then. Goodbye!

@@ -1,0 +1,319 @@
+# No Such Thing As A Fish - No Such Thing As Dudley And The Dippers
+
+- Episode date: February 20, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-dudley-and-the-dippers
+- Slug: no-such-thing-as-dudley-and-the-dippers
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hoburn. My name is Dan Schreiber. I'm sitting here with Anna Tashinsky, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Anna. this week is that ancient Rome had a secret name and no one knows what it was to this very day. To this day. To this very day. It's very cool. It is very cool. It also, when you're looking into it, it also seems like, did they? Was there definitely a secret name?
+
+[00:00:54] Why, you think they're all making it up? It seems like it might have been something that was written by historians a bit later. No, no, it was written at the time. There's a bunch of ancient sources that claim it from about the first century onward, so it's Pliny and Plutarch are the first. But they quote... She's quoting Paulinney. Yeah, yeah. It was about six or seven different writers throughout the ancient Roman period saying this was a thing
+
+[00:01:16] with varying different accounts of what exactly it was. But they mostly said it's a name that only very few people know like just really extreme dignitaries with the queen and her corgis basically. And then even though they know it, they're not allowed to say it,
+
+[00:01:31] even in special ceremonies, a couple of the writers said sometimes in ceremonies they say the name but no, there was... What do you reckon it was? There's a few ideas, right? There are some ideas which are bullshit. Amor.
+
+[00:01:43] Amor is the main one, first mentioned in the 6th century. An anagram of Rom. Indeed. It's Rome backwards. The palindrome. And they call the city of love, don't they? That is Paris famously. Syrap, I call it.
+
+[00:02:00] Yeah, there is that theory which is from a scholar called John the Lydian in the 6th century, who said, just confidently, it was called Amor. That was the secret name. We don't seem to have evidence for that. And why? For protection, I think so. There's also a lot of stuff alongside it saying there was a secret goddess who protected Rome. And the reason you can't say the goddess's name is that then your enemies will know her name.
+
+[00:02:24] And then they can use her and they can call upon her and say, help me instead. She would defect, was the idea, right? Yeah, and go with the enemy. That's quite a common thing, I think, with gods, right? It's like if you know their name, then you can tell them what to do kind of thing. I think that happened in Egypt quite a lot. Like in the Book of the Dead, for instance, when you go to the underworld, you have to pass through these gates. But the only way you can pass through is if you name the gods, because you name them.
+
+[00:02:48] And when you've got the name, they have to do whatever you tell them. Is that, I mean, I'm hearing Rumble Stiltskin, big time. Yeah. That's basically the same story, isn't it? Yeah. Except he's going to, what is it? He's going to marry you? If you don't know his name, he'll marry you.
+
+[00:03:02] which is a bigger, it's a more immediate threat. Yeah. Yeah. There's a lot of people who've come up with ideas about this. So the Roma Amour idea. There was an author called Dolores Prato. And she said that one reason for saying that this could be the case is a lot of early Romans used to read and write from right to left.
+
+[00:03:23] So they were very good at knowing... Palindromes. Basically. Why did they read and write from right? Early Romans according to Dolores Prato. Maybe Arabic influences, do I? Is that likely? In ancient, in the business.
+
+[00:03:39] I'm so sure, Andy. I've never heard that. I'll tell you one thing they did do is they used to write like secret squares, right, where you would write loads of five letter words one after the other. And then the last one would be the reverse of the first one. And then if you read them up and down or left and right or on the diagonals, they all said the same thing. Abricadabra is one of those words, where you can write it in a triangle.
+
+[00:04:00] So it's like one of those And that's very powerful There's a famous thing called the Sator Square Which goes Sator something, opera, something, Rotas. In fact, it sounds like Prato is a name that would fit in one of these mystical squares.
+
+[00:04:13] Delora's Prato. Yeah, and what is that? Prato must be an enagram that says gotcha. You know, something like that. Obviously not that. So there was someone supposedly who was executed for saying the name.
+
+[00:04:24] Yes. Yeah, no, it was terrible punishment if you said it. Sorrenas, he was called. Stop it. Well, well, what's he? He was called sorry. Now, people who listen to the podcast might remember sorenus. There was a guy called Soranus of Ephesus,
+
+[00:04:38] who came up with the idea of a midwife putting their fingers up your bum to orient the head of a baby before you give birth. But it's not that sorenous. It's a different sorenus. And this Soranus is, according to Pliny, he was the first writer to provide a table of contents in a book ever. Before that, if you wanted to look something up, you just had to read the whole thing.
+
+[00:05:00] But he invented the idea of putting a table of contents. And then he got into a barney with some of the bloke. And then he went to court and he said the name of Rome and he got executed. Yeah, right. But the main thing is the content thing. Which is a bigger contribution to history? Which serenus? Well, I think Sorranos, the midwife.
+
+[00:05:18] You say Serenus and I say Solanus. I think the midwife guy, because he saved quite a lot of lives with that. Does that work? It does work, yeah. I didn't know that. If you got a breach baby and not like a full breach one, If you're just trying to move the head in the right place. But if you don't have a table of contents,
+
+[00:05:34] how can you even read a midwifery book to learn that in the first place? Well, in fairness, Anus will be quite near the start of the book. That's true. I wonder, you know, that thing of, in ancient Rome, so many things would have been invented, so many amazing characters who've been lost through the footnotes of time. And do we have two sore anuses purely because their name is Soranus? No, you have so misunderstood classical historians.
+
+[00:05:56] I don't know where to start. There are a lot of these sort of mystery. cults weren't there. So this name of Rome was to be used in sacred rituals. Maybe, according to some. According to some. Okay. Well, if it's never used the bottle wheel doing here. I mean, but there was a place called the Cave of Rome. Did you hear of this? No. This is great. This is buried deep under the ruins of the palace of the Emperor Augustus. It was full of mosaics and seashells.
+
+[00:06:25] Right. Which is pretty cool. And this may, according to Lendez-E. This is where Rome itself came to be. Okay. I.E. Where Robulus and Remus got suckled. They were found there by the wolf, the twins. I didn't know they were the sons of the god Mars. That gets glossed over a lot in the story.
+
+[00:06:44] There were nepo babies, basically. There were just random twin babies who were left and then found by wall. I don't think they are in all stories, are they? Oh, okay. Maybe not. They might be. But there were ceremonies there for hundreds of years, and that's the secret cave of Rome. Do we know where it is? It's under the ruins of the palace of the emperor.
+
+[00:06:59] of the Emperor Augustus, as I said, 30 seconds ago. But it's a real thing. Yeah, it's real. Right. On these secretive cults, I think my favourite is Mithraism or Mithraism. The thing about secret cults is they were really secret, so no one was allowed to write anything down or say anything. So it was all just rumour about what happened there based on what people said. But they did stuff. Like, there's lots of archaeological sources of Mithraic temples where there's people killing bulls.
+
+[00:07:25] There's one in London. There's a Mithraeum in London. Yes. Yes. They found it when they were excavating. I can't remember what they were digging up. Yes. I think it was near the Museum of London, weirdly, it was found.
+
+[00:07:37] They've reconstructed what it would have looked like. At the end, there's the classic image of Mithra, slaughtering a bull. That was the big image of him, wearing a Phrygian cap and Anatolian trousers. Oh, lovely. That was his... I can picture it now. That was his look. I think Phrygian cap is what the Smurf's were.
+
+[00:07:52] Yeah, yeah, they do. And Anatolian trousers, I don't know what they are. They're just trousers from modern-day Turkey. I imagined black pirate pants. I remember, yeah, like whirling dervish pants, so quite wide around the thighs and then tight around the knees. Yeah. So like MC Hammer. Yes, exactly.
+
+[00:08:08] Yeah, yeah. It was a primitive MC Hammer cult, basically. That's what he's based on. My favourite place in Rome is Amethraic Temple. It is by far the coolest site. Forget everything else. Forget the Coliseum. About five minutes from the Coliseum, there's a basilica of San Clement.
+
+[00:08:23] Have you guys been to it? No. I think I might have been. Maybe. It's an 11th century church. You go in 11th century church. And there was a cleric who worked in the church in 1867, the friar who worked in the church, who just found that underneath it was hollow.
+
+[00:08:38] And so they excavated underneath. And they found a fourth century church. And now you can go descend down into that. So that's, you know, in the olden days, things were lower down because the ground hadn't accumulated on top of it yet. And that's incredible. And you're looking at fourth century stuff, artwork preserve. Wow.
+
+[00:08:53] And then bring it home. Here it comes. A layer below they discover, not one but two things. An ancient Roman house, which you can now wander through, deep underground, and the Mithraic temple. Which you can sit in. It's the coolest thing ever. And you can sit there and pretend to be taking, you know, sermons from the bull killer or... Wow. That's very cool. Yeah. That's really cool. We don't know much about these places because you weren't supposed to... You weren't supposed to go there if you weren't allowed and you often didn't write about them, right?
+
+[00:09:23] Yes, exactly. It was only for initiates. But there was one. There was a festival of the goddess of fertility, who's called... Bonadier. It was only women who were allowed to go. And since men were the people who write stuff down, we didn't really know anything about it. But there was a huge scandal because a guy called Publius Claudius Pulcher or Pulka. He disguised himself as a woman in 62 BC and went to the festival. And when people found out about it, oh my days. Pissed off. This is bad news. Oh, boy. I think that story is in one of Cicero's speeches. I think I've read the prosecution's speech from that trial. I think it exists. Wow. But the, well, the interesting thing is that
+
+[00:10:05] he was prosecuted for incest. What? Clodius was one of the sort of chief gang gang dudes in ancient Rome and he had a very, very attractive sister. And that was a big, that's no excuse, Andy. Absolutely not. But it was, your honor, but you're on her. Just look at her, your honor. Yeah. And that was, and that was his big. One of his big rivalries. But can I say, for the listener, even though he was done for incest, he hadn't had sex with his sister. It was like a technical thing because there was a thing about if you had sex with a Vestal Virgin, then that was counted as incest because they were kind of the children of the city kind of thing who looked after the city and all that kind of stuff.
+
+[00:10:49] And this was like an extension of this because he defiled this cult of women, it counted technically as incest, even though none of them was related to him. Hang on, so why do we know his sister? He also had, in his speech, I'm pretty sure I remember Cicero says, look at the sister on him, though. You know, he was very much implying that he had also, I think, slept with his actual sister. That was a sort of low trick from Cicero. It wasn't. Is that, James, what you said, is that unbiased history, or is that the defense lawyer's speech
+
+[00:11:16] that you read that you got those facts? I don't know. Like, I got it from Wikipedia, I'll be honest. No, I did read some of the, I read the Cicero thing. I don't think it's biased. I think this is stuff that actually happened. That's just he got in trouble for invading the woman's space as people shouldn't. But did he find out anything good?
+
+[00:11:32] What were they doing? Were they all teaching how to insert tampons and stuff? They were all reading scary stories and kissing each other. Killing up. Knew it. Hey, can I tell you very quickly, this is not ancient Rome, but it's ancient China. It's a pretty astonishing thing. I was just looking into general secrets that we still don't know much about.
+
+[00:11:53] For a good 3,000 years, there was a secret women's language called New Shepard. which is lady writing basically and it was for women who needed to pass on information to each other that they didn't want men to have any idea about and they created an entire script and so only in the 1980s that we even found out it existed it lasted yeah for close to 3,000 years so only in the 1980s you guys found out it existed we had actually known if you've ever watched ITV the show loose women is actually broadcast in that language and this language that women only speak is called new shoes Sex and the city's base on a lot of it's writing.
+
+[00:12:32] Yeah. Isn't that amazing? That is amazing. And it's coming back. The last writers of it died a couple of decades ago. Yeah. But they've worked it out and they're teaching it again. And so it's becoming a language again.
+
+[00:12:43] It's beautiful to look at. It's actually, as someone pointed out, very sexy to look at. If writing could be sexy, this is it. Yeah. Have you guys heard of boob slang? Oh, geez. This is not related to New Shoe, by the way. This is a modern thing.
+
+[00:12:56] This is New Zealand. we're in now. Okay. And what's an environment where you get a lot of slang? Sailors. Not far off. It's an enclosed space.
+
+[00:13:05] Prisons. Prisons. Not far off. I just want to say to whether you sailors listening. Yeah, we know what you did and you're very lucky that you haven't been banged up yet. No.
+
+[00:13:18] What are they going to do, James? They're at sea. I can just hear right now, set a course for London. Right now, ship's attorney. I just need to stay. I just need to stay in central Leicestershire and I'll be fine. Grand Union Canal!
+
+[00:13:38] No, boob slang is a New Zealand prison language and it has 3,000 separate words. So obviously, let's get into it. What is boob? It's the name of the language. Yeah, well, boob slang is the language. Oh, what is a boob? It's the name of a person.
+
+[00:13:56] It's prison. Prison. We're in boob. We're in boob. Okay. So what's a boob story? It's a story that you tell when you're in prison? Yeah.
+
+[00:14:06] Are they all, hang on. That's how they all work. What are boob handcuffs? I said, has anyone eaten boob lunch today? What am I asking? I think boob story is how you ended up in the big house, basically. All right, what's a double yoker? Oh, a double yoker.
+
+[00:14:25] Oh, a double yoker. Yeah. Is it two black eyes? Is it a bit of great luck? It's just an idiot. Oh, he's a double yoke. I don't know why. I would think a double yokel would be brainyer than the average.
+
+[00:14:35] Is it like a yokel? But then the doubley as yokely as a yokely as a yokel. It might be. It doesn't have an anal-it. Let's have one more. What's a good night kiss? Oh. No, it's one of those shower things that we don't think we should get into it.
+
+[00:14:47] Knockout punch. Get your hands off my boob boobs. It's a knockout punch. So be very careful if you ask someone in prison to give you a good night kiss. Do you think you would? I don't know. I think it would make you feel happy, wouldn't it? It would reassure you a bit.
+
+[00:15:06] To the guards. Yeah, the guards on night number one. Excuse me. My mummy always... Okay, it is time for fact number two, and that is James. Okay, my fact this week is that in 2010, Jaguar made a car that sounded like an actual Jaguar. Give us a idea of what that sounds like. Rahr!
+
+[00:15:35] Yeah, okay. It's very good. I had to do the hand gesture when I do that as well. Yeah, yeah. I sort of think cars sound a bit like roaring animals. It was easier than making it sound like a laughing hyena, for instance. Yeah, yeah, yeah. You know, there wasn't much to tweak.
+
+[00:15:50] But I did listen because you can hear a sample online, and it does start with the regular car sound. And in your head you're going, oh, that doesn't say. And then out of nowhere, a Jaguar sound. So it is distinctly different. Yeah, so this was debuted at the 2010 Paris Motor Show, and it was the Jaguar CX-75, and it was designed by a guy called Ian Callum. And then last year, he's started his own business now called Callum that makes cars, and he is making his own version, which is the original one was a concept one. I think it was in the movie Spectre.
+
+[00:16:25] Yeah. But he's making ones that are street legal, so they've got the basic safety that you need. and the right emissions and stuff like that. So if you want to give him a load of Dush, he'll make you one. So Spector, they were provided supposedly with about five of these cars, five to seven. No one actually knows how many of these have been produced as of yet because it's not on the road. Another one of those secrets. It's another secret, yeah.
+
+[00:16:48] And if anyone watches it, it's a chase scene. Bond is in the nest in Martin and he's been chased by someone who is in this January. Don't watch Spector just for that chase though. Are there other reasons to watch it? No. Right. Okay. Well, so if you're going to watch it, it should be just for that chase.
+
+[00:17:03] It sounds like. Oh, yeah. That's a good point. Can I just say one more thing about Ian Callum, by the way? When he was 14 years old, he submitted a car design to Jaguar in the hope of getting a job. And then later on he went on to work for them. Yeah. That's very cool.
+
+[00:17:17] That's cool. I just want to see that car that he designed because I'm sure, I mean, he's one of the great car designers. But for 14-year-old, it's going to look like Homer Simpson's car, isn't it? Have you seen a cyber truck? So on car sound, something that is added by manufacturers is the noise of car doors closing or is enhanced by manufacturers. Shook that, shuck.
+
+[00:17:42] Yeah. Because they think that, so cars used to be, you know, heavier, made of different materials, so they made that really satisfying deep clunk. And now car manufacturers don't actually need to use such heavy materials. They're a bit more efficient, but they think if people here are lighter tinny clunk, they'll think it's not as expensive.
+
+[00:17:58] So then they alter the design to make the car door thudding clunk sound. And they go to huge lengths. So what was it? Cadillac was saying that they listened to dozens and dozens of different cars and make notes on their sounds and then investigate all the cars to work out what's making that sound the way it sounds. And then combine them. I don't know if you've heard that. Cars are big business.
+
+[00:18:22] I've never seen one. What would you add to your car sound sonically if you could? One of those Proop boop boop horns A clown horn A clown horn A clown horn
+
+[00:18:32] Yeah that's nice Like someone grabbing a boob in the 1970s Yeah I do have a favourite Car sound now As a result of looking up this fact Which is pink noise Be heard of pink noise
+
+[00:18:45] This is a really fascinating innovation So this noise is something You would only ever hear If you're about to get into a crash And they're anticipating Is it Fuck Oh, you have heard it.
+
+[00:18:59] Yeah, pink noise. It's really interesting. So one of the things that happens to a lot of people who get into big crashes, the sound is incredibly loud and it damages their hearing. So when it detects a potential collision, it puts out this sound, which is at 80 decibels, which basically prepares your ear for this even louder 165 decibels that it's about to receive.
+
+[00:19:19] And so it's a way of getting your ears into a place where they're not going to get damaged. What? Yeah, it's really interesting. Because my car has a thing which beeps where it thinks I'm about to hit something. But that's not this, right? And it's going off all the time. I've actually had to rip it out.
+
+[00:19:34] That's incredible. And that protects your ears, but by warming your ears up to that. I didn't think your ears could be tricked out of mechanical deafness. No, it's so, okay, this is what it says. It says it triggers muscles in the ear to contract by reflex, automatically bracing the inner ear and the ear drum for extremely loud noise by the crash. You've all heard of Hans Zimmer. Of course. Yeah, invented the Zimmer frame.
+
+[00:19:57] That's right. So we're talking Inception. Pirates of the Caribbean, The Lion King, Gladiator, Dunkirk, Dune. He did the music for them. He did the music for all of these. Dune 2. He also designed sound of the BMW. So electric cars, they don't have an internal combustion engine.
+
+[00:20:15] They do not need to sound like a car. No. But you can't just have them sounding like anything because if you're driving close to someone, they need to know there's a car passing by. And they need to know it's a car. You can't do a horse noise or like a crazy bird noise. Exactly. That's a temptation.
+
+[00:20:29] Yeah. But Hans Zimmer was given the brief to define, what was it, to compose the sound of immobility for BMW. That is his accent. It's exactly exactly. It's really good. Yeah, yeah. And I listened to it and it just sounds like a car. Well, that's the idea, Andy.
+
+[00:20:45] No, but it sounds too much like a car. As in if I was getting Zimmer on the case, I'd want something at revolutionized. Yeah, but when you watched June, did you think, oh, that just sounds like a giant worm? Like he's just brilliant that making things sound like they're supposed to sound. Weirdly the worm sounds like a BMW. Very confusing. Yeah, no, and they haven't an in-help person, don't they, BMW, who is doing this? So Zimmer was sort of brought in to collaborate with a guy called Renzo Vitale,
+
+[00:21:09] who's already there creating these sounds. Because as we know, and we've spoken about on this podcast before, it is a time where the electric car is knocking out sounds, and people are finding that incredibly scary. In fact, Jaguar are saying that they're going to go entirely electric, by this year. And who knows if that's going to happen, but that certainly was said a while ago.
+
+[00:21:28] And so things like the British Library are starting to archive car sounds. So the Jaguar Car Sound, which is a notably famous car sound amongst car connoisseurs, is now part of the audio library in there because my children might never know that sound. God, imagine the bore.
+
+[00:21:43] If you see someone listening to that audio in the British Library of all the things you could be looking at, you're not talking to them, are you? Imagine you see an attractive person on the other side of the train and they've got their headphones. And you think, siddle over, hey, what you're listening to?
+
+[00:21:57] Hands on. Oh, I love, Hansel. One thing where this is important is in Formula E, which is like Formula One, but for electric cars. I read an article in the Washington Post that was talking about this, and they said that the cars were going around, and they sounded like electric toothbrushes going around, which when you think about the Formula One, it's like, meow. Yeah. But then I read another article. that said that the old F1 engines, they had a volume that would peak between 500 and 2,500 hertz,
+
+[00:22:30] which is about the same frequency as a human scream. And that's the reason people like it so much because it really puts you on edge. Right. You're watching the cars, but you're kind of on edge the whole time. You're really, like, excited about it because your brain is thinking, is someone screaming there or something?
+
+[00:22:45] Yeah, yeah. The drivers, it's always their first time. And they're very, very scared. Fun! Oh, they got pink noise in there. But even petrol car noises are fake is what I find so weird. Even these days, like the Cardor thing,
+
+[00:22:58] it's just thing, skeuomorphism. We've talked, maybe we mentioned this before is where you have a new technology, but you keep an element from the old technology for aesthetic reasons, like an app which has a picture of a bookshelf to trick you're thinking you're reading an ancient tome. You know, it's just that skeomorphism.
+
+[00:23:12] And all these modern cars, even petrol ones, still, they play fake engine noises. Some of them literally have speakers in the cabin. They do, wasn't it? I think a car journalist found this out. It was in the Ford Mustang, which has apparently an incredibly famous sound. He broke his speakers or something up,
+
+[00:23:26] he'll defuse that took his speaker around. He was like, oh my God, the engine's gone off. And it turns out that's just... That's great. I think so many sounds must be manufactured in a way that we don't realize. It's like secret sounds everywhere. Someone was telling me that they have an old mouse, which when you click, you hear a noise.
+
+[00:23:43] And apparently, it's a little speaker in there that is playing that. Yeah, it's a little tiny speaker. That when you click, it's playing a sound. It's not the... click itself that's happening because people found it quite disorientating to have a mouse that wasn't clicking anymore. And so they created a little. What is real? I have like a little speaker that I keep in my trousers because I can only do silent but deadly farts and it really puts people off. So never I know one's coming, I press the button and it makes the noise. Wow. Yeah. Oh, that's good.
+
+[00:24:14] Bows, because yours are very basic, basic. Yeah. Okay, it is time for fact number three. And that is my fact. My fact this week is that Queen Elizabeth I never visited Shakespeare's Globe. However, she did visit a venue down the road to watch bears fighting a dog and monkey. Oh. It does depend on the Shakespeare play, I would say. Right.
+
+[00:24:42] Some Shakespeare plays, way better than a dog fighting a monkey. Others. Yeah. I read this, by the way, in a book called London A Travel Guide Through Time by Dr. Matthew Green. I love this book and my wife actually was the editor on the book. And it's actually... Is this cool? Is this spawned?
+
+[00:25:01] It's like 8, 10 years old now, this book. She's still getting worldies. Anyway, if you could all buy it with three children to feed. No, it's a fantastic book where Matthew Green takes the reader as if they were a time traveler through different periods of London. The first one you start in is walking along the South Bank and you're heading towards Shakespeare's globe, but he makes the point that, surprisingly, Queen Elizabeth I first never went to the globe, but she did go to a venue that was very near to it to watch this extraordinary thing
+
+[00:25:34] where bears would be brought into an arena and they would have dogs that were let loose on them and they would just fight until either it looked like the dogs have had way too much and we're going to die or that the bear looked a bit injured because these bears were kind of like professional wrestlers. They were famous in their day. People knew their names. One's even named in a Shakespeare play itself. So this was a big deal. So yeah, it's a... Which is the famous one, can you remember?
+
+[00:25:59] Yeah, it's... He was called... Timon of Athens. I think. He was called Sackerson, I believe. He was a real celebrity bear. Yeah, there was Ned Whitting. There was Harry Hunks.
+
+[00:26:09] There was Blind Bess. And then Sackerson, yeah, in the Merry Wives of Windsor. Oh, okay. Yeah. Incidentally, the worst play. The worst of Shakespeare's plays, arguably, maybe the worst of all plays ever written. It's really bad.
+
+[00:26:19] So did they throw Sackerson in just to sort of boost up its... interest. I get some ratings. There's a theory that Shakespeare wrote it in nine days. It was a very, very rushed job play. Right. He had to quickly come up with something.
+
+[00:26:31] He just sort of said, oh, I'll pull this out. I'll chuck a bear in there. People will rock up. And it was, it was a fair fight. I think he said that it was bears fighting a dog and a monkey, but I think they would usually give him a few dogs.
+
+[00:26:41] Yeah, yeah, a bunch of dogs. Sometimes the monkey. The monkey was usually on horseback. Like it was... So it has an advantage there, doesn't it? Wait, who's fighting who? The monkey's on a horse? Who's the monkey on a horse fighting?
+
+[00:26:50] No, I think in that case, I think the monkey is just riding around on a horse as a bit of entertainment. Oh wait, so the bears didn't fight the monkey? I think monkeys did fight bears. But I don't think you could incentivize a bear to repeatedly attack a horse. Who's the horse fighting?
+
+[00:27:02] The horse is not having a good time. Yeah. It's just a day out. Horse is confused. It's just hanging out. It was confusing, wasn't it? Because this is gruesome entertainment. Yet when you read people writing about it,
+
+[00:27:12] it was like a great day out. I read a lot of articles about it for this. One thing I really liked about it is they sometimes did it in pubs. And they do seem to have had bear Gardens, which is where they did the fighting. Which is just like... Is that where we get beer garden? Well, I think.
+
+[00:27:29] But yeah, lots of play. There's a trollum. I think the way we live now has the Bear Garden as the Gentleman's Club they go to. The name stayed on. And Bear Garden was anywhere the Bears 4. And there is a road called Bear Garden now on the South Bike. And Bear Lane, yeah, near the spots where this happened. It's one of those sports which makes you think, oh, people in the past were just, just, I owe nothing to them.
+
+[00:27:48] I don't care about their civilization. I don't think their values are at all interesting to me. Well, let's not get into the cultural relativism. Is it better to tear foxes or shreds? Who knows? Who are we to judge? Yeah, like you do everything. Like you do?
+
+[00:28:03] Auntie, I've seen you on the hunt. Yeah, but it's so, oh, it's very grim. But the Puritans didn't like it. They're bores, though, weren't they? The Puritans carried out plenty of atrocious things in other spaces and times. Sorry, who were the bars facing? The Puritans bandit, I think part of their objection was that it happened on Sundays. Not that it's a bit grim.
+
+[00:28:26] One of these arenas collapsed on the South Bank. And the Puritans all said that this was because God was displeasureed about what was going on. But actually, they weren't that bothered about birds getting hurt. They just thought everyone was having too much fun. Yeah, that's the thing. It was encouraging odd ideas. Some of them cared about the animals, but majority of the Puritans didn't. And one of the places that collapsed is where Queen Elizabeth was.
+
+[00:28:48] Elizabeth went to the venue itself when it was rebuilt and had a French ambassador come and see a show. So it was a private showing. I asked Dr. Matthew Green about the globe thing. And he said, to be fair, Queen Elizabeth didn't need to go to the globe. Shakespeare came to her. So it's not as if she was against Shakespeare in plays. But she did go to one of the bear garden places. Because the bears wouldn't go to her.
+
+[00:29:09] They were drunk in the pub. They were all Republicans. Yeah. And the other thing is that this whole point of trying to ban it on the Sundays, Queen Elizabeth herself actually overturned a parliamentary motion to have it banned on Sundays because she was like, no, this is great entertainment. The bears, we should say, as you sort of did, they weren't killed that often. It was just a lot of dogs they got through.
+
+[00:29:31] They liked it. The Bears actually had quite a good time. Did you see what they were wearing? Yeah, yeah, yeah, yeah. But the Mastiffs, my God, they went through a lot. And there was actually the dogs. Yeah, the dogs. There was a master of the king's bears who was deployed from about the 1400s, I think. he was the person who was responsible for looking after the royal bears,
+
+[00:29:48] basically looking after bear fights. And they were constantly having to restock Mastiff. So I think in Queen Elizabeth's time and King James' time, it was a guy called Alain, who was an actor. So who acted in plays and stuff. But also he had to be always going around the country. And he had the right to take people's dogs, I think, if he needed spare ones or constantly negotiate.
+
+[00:30:07] And if anyone was doing a bear fight around or a bear dog fight around the country, then he got a cut, which is pretty sweet. It is wild. And apparently, bears were literally. walked past you in the streets, you know, they weren't like in cages. They're just on like a leash, like a dog, just sort of from the pub heading over to see, oh, watch out for the bear. It's just wild time.
+
+[00:30:26] Step aside, darling. Yeah. I'm with Andy that this is a bad thing. Yeah, actually. Guys, James and I are. We're not putting you two against us to on this one. Oh, look, I just say, I'm like, if anyone at home agrees with me and Andy, then, you know. Thanks, James. I'm really, thank you for the support there.
+
+[00:30:42] And I'm so glad that I'm so much. Oh, it's very brave of you. well done. Look, there was other stuff that was like peripheral to the bear baiting, which was actually quite fun. So I was reading an account by, I think, a foreigner who came to watch one of these, obviously, barbaric displays. But also there were...
+
+[00:30:58] Amazon board now. Feeling a bit cold now, Dan? Phew. That I thought I slipped that in. So there were dogs chasing horses around as one of the rounds. So this is in between the bear baiting. You know, you use the arena for other things. Dogs chasing horses.
+
+[00:31:12] Men and women were brought out in boxes to, fight, dance and converse with each other for entertainment. There was another quite fun thing where a man threw some white bread among the crowd. The crowd all scrambled for it. And then over the middle of the arena, a giant rose was fixed and then set on fire by a rocket. Lots of apples and pears fell down from this rocket while all the people were scrambling for the bread and scared the shit out of them. That sounds like hella gabalus, doesn't it?
+
+[00:31:39] Yes, it does. The Roman emperor who used to do weird things like that, like drown people in rose petals and stuff. Yes. I think none of these people even drowned in the raining apples and pears and bread. They just got a nice bit of white bread. It's just quite weird to imagine that a crowd goes that mad for some crumbs of white bread. I might have said this before, but I was in a cricket crowd once where people were throwing out bits of soreen maltloaf. And everyone went absolutely mental. Oh, I don't blame you. I would too.
+
+[00:32:07] That's nice. Elizabethan sort of hobbies in general? Yeah. Sort of that kind of thing. I got a bit distracted by things that Queen Elizabeth liked doing. All right. She liked going to parties, specifically large parties held for her around the country. Didn't you just have to go to those?
+
+[00:32:27] Do we know that she liked? Far from. No, no. So you know the thing of royal progresses? No. It's where the monarch would go around the whole country. And it dates back to a time when there wasn't a proper court and a proper castle. You might have a bit of a fortress, but basically to subdue your territory and show you're still the
+
+[00:32:42] the boss man, you have to go around quite a lot and the court is always on the move. And that still survived even when Queen Elizabeth was on the throne. You would progress to various different stately homes around the country and they would go into a huge tiz because the queen or king was coming. Is that the same thing as like certain stately homes have still have laws that if the monarch goes there, then they have to give them a bed.
+
+[00:33:04] I think it's that. It's exactly that. New toilet seats and all that. And there was one party which was hosted by the Earl of Lester who was Robert Dudley. Yep. Her fave. That's not all.
+
+[00:33:15] Her fave. He was constantly proposing to her. That was her other hobby, was turning down the proposals. Of Dudley. Of Dudley. He, and he threw this huge party, the Kenilworth Spectacle in 1575,
+
+[00:33:25] 19 days of partying. He built her her own micro palace on his grounds. And then she complained, I can't see the garden you've commissioned from my bedroom. So he had these gardeners build her a new version of the garden overnight under her window.
+
+[00:33:38] Crazy. There was a water pageant with an 18 foot long mermaid. There was a moving island. There were fireworks. There was hunting. There were plays. He was the least popular man in England, we should say. Really? He was incredibly unpopular because his wife he married when he was a teenager had mysteriously died two years after Elizabeth became the queen. Right. And there was a lot of talk that maybe he was responsible. I guess back then as well, you don't know so many people. Like there's like six celebrities back then, right? So he would have been one and one's got to be the most hated. It's not like you could have like some people hate Pierce Morgan and some people hate Elon Musk.
+
+[00:34:09] Like you basically everyone's going for the same one I got six people to pick from That's it Yeah Well he was so unpopular Probably because everyone knew that he fancied Elizabeth Right everyone always hates the person Who's trying to have the affair with the monarch
+
+[00:34:22] And might have killed his first wife I don't know like the first wife She might I mean She definitely died two years after she became queen So an old lady from Brentwood told her neighbours That my Lord Robert hath given her majesty A red petticoat Implying that they've slept together
+
+[00:34:35] New Zealand jail slang It's boob slang Yeah. She was jailed for even telling her neighbours that. Really? So they were cracking down on it. That's interesting. Was the kennelware thing that display he put on? That was where they accidentally burned a town to the ground, right?
+
+[00:34:51] That can only have not helped his popularity. I don't know that. It was 1572. It was one of the things that he put on for Elizabeth, and he staged this huge mock battle for her. And they had these amazing fireworks, and then they had cannons that they just fired randomly. into the air and they all landed on the adjacent town and burned down a bunch of houses and killed
+
+[00:35:12] at least one person. That's the most upper class English sentence ever. Is that the town I accidentally burned that? Jeez. Just so very quickly, Henry VIII, father of Elizabeth I first, also loved bear baiting and he used to go around the country as well. And one thing that he always brought with him was a locksmith who always put a new lock on the door that he was sleeping in of the room that he was in. Yeah, because you're so worried about assassination And then when they left the next day Or however many days later He would take the lock off the door again
+
+[00:35:45] So you just have this messed up door As a result of the stay And he would bring it to the next house And he would lock it onto the new door So it's one lock I'm sure he had multiple But he would always put it on and take it off So you left with the lock
+
+[00:35:58] That's quite good That's a good plot device I'm sorry Like the lock man is the assassin You know But he's got to be the first person Everyone suspects When suddenly the lock has been opened
+
+[00:36:07] I think of a good point Who could have done this It feels like someone who's got something to hide Doesn't it? If they rock up at your sleepover and they say I've brought my own lock Don't mind me What are you doing in there?
+
+[00:36:20] What are you doing in there That's so paranoid about it? Is lock going on the sleeping bag here? Wait, why would it? What? Sorry, you just said someone turns up at your sleepover And they've brought their own lock Yeah, because I'm a sleepover
+
+[00:36:29] Everyone gets their own rooms Yeah We're all going to go to bed In our separate rooms now Oh, we're all going to a different wig Yeah, yeah For the scary stories. Yes, perfect.
+
+[00:36:45] Okay, it is time for our final fact of the show, and that is Andy. My fact is that in Edwardian times, you could order a barrel of seawater to be delivered to your inland home so you could keep on enjoying the health benefits of your holiday after it ended. Now, do you have to get some sailors to come from their boats? Oh, no. I crack over my nice fresh barrel of seawater to have my bath. It's full of jacktars.
+
+[00:37:10] Yes, was it to have to have? your bath or was it to drink or to have your massage yourself with a bit of everything a bit of everything there's nothing that seawater couldn't do right um and this is from a great uh it's from a substack i subscribe to called reading on trains by andrew martin which is all about trains and uh it's mostly about trains that i got interested in this isn't about trains though is it no it's about seawater but it was seawater delivered by the great eastern railway oh my god um so in this was in abhorian time so early 20th century you would you would get a barrel of sea water from Loisoft to Liverpool Street
+
+[00:37:43] and they would pump it into these massive wagons at one end and then they decant it. They have a little spigot at the other end. They just decant it into a barrel. And then they send the barrels all around, you know, everywhere. And you would order a massive barrel of seawater and have a bath in the sea in your house. Were there any poor kids who said,
+
+[00:38:02] can we go on a beach holiday this year, Mom? I'll do you almost as good. We have the sea at home. Yeah, yeah. It was basically there. And this was all because people were obsessed with seawater. of being a really good thing for your health. Yeah, this is a matter.
+
+[00:38:13] So I now live in Margate, and there's still a ginormous hospital there, which was built as a royal bathing house, basically, using sea therapy as a way of fixing people. But ironically, at the moment, the trains don't really go from here to Margate, do they? Yes. And it's what, you're half an hour late in a second. It's all right, because once you get there, the seas full of poo anyway. So it's fine. I know.
+
+[00:38:33] This is the problem with sea these days. But it was, this is a big deal that kind of actually weirdly transformed the way that we visit beaches now because it was like a paupers thing and it was never part of holidays and then suddenly when this hydrotherapy thing came in suddenly everyone was going back to the beach and that's kind of created. We actually started much early didn't it like 1750s I think. Yeah, like 1700s, yeah, exactly. It's one doctor. It was a guy called Richard Russell.
+
+[00:38:57] Yeah. And he's basically responsible for Brighton existing. He thought that seawater was great for you and much better than like getting the water from bath or from an inland spa or Bugsden or something. and he got a big old house in Brighton, the biggest house at the time, because Brighton wasn't really a thing. And he got a load of people there,
+
+[00:39:16] and he cured them, supposedly. Of anything, as well. It was the usual cures in the olden days. You could cure scurvy or jaundice or TB, a lot of TB cured by just... And drinking or bathing in. I think Richard Russell advised his patients to drink seawater, and he said that a pint of it was sufficient
+
+[00:39:34] to give three or four sharp stools, which I think he meant as a good thing. Yeah, you know. Oh, and it's sharp, do you? It seems not today, but maybe it was sought after in those days. You dilute it with milk or honey? Yeah. Either way.
+
+[00:39:48] I mean, I did read that he variously included a few extra things. Like, he'd sprinkle in some... I read Crabs' eyes, which I can't believe was a cost-effective thing, because Seawater is quite cheap to get. Crabbs' eyes feels like quite labour-intensive. Yeah, it feels like they've got a little bit of grit in the bottom of the sea-watch. No, that's crab's eyes. Is it because basically medicine wasn't very good at the time
+
+[00:40:08] and sea water is at least relatively benign. Is that it? Is it fresh air? They just didn't know about evidence-based, and did they? Oh, but I imagine the fresh air. I think people just sometimes get better. Yeah.
+
+[00:40:19] Like from some things. Sometimes people will say, oh, you've got tuberculosis and actually you've got a terrible, awful cough. Right. And eventually it gets a bit better. And you're like, oh, I'm cured of my TB,
+
+[00:40:30] but they didn't do an actual test to see if you had TB. Right, I see that. Yeah. This guy, anyway, he sold his house to George III. and then George III invited the Prince of Wales to visit him, the big Prince Regent. It was originally called Bright Helmston and they decided to change its name to Brighton
+
+[00:40:47] because the Royals had started going there. So it literally was him that started Brighton. Brighton wasn't a thing before. Bright Helmstone is such a cool name. When I look at it, I bet the locals pronounced it Brighton anyway. Brick Helmstone. It's one of those English names. I did read that it was from about the 1600s.
+
+[00:41:03] Most people had been calling it Brighton, but it was still officially Brickthamstone. It's about 1810, I think, which is banging the period you'll talk about that. This was the same with Margate. So in 1791, this big hospital was called Margate Infirmary for the relief of the poor whose diseases require sea bathing. But then I got a royal patronage and became the Royal Sea Baving Infirmary. And if you go down to Margate these days, most of the houses have very randomly just a little porch on the first floor. And the idea was you would push out your elderly relative onto the balcony of your house and you just leave them outside. and then you'd come and get them after hours and hours
+
+[00:41:39] just to see how it affected there. So you see them all over these random balconies on all the houses there. Fresh air is good for you, right? And cold water is good for you, right? A lot of things about going to the beach are very good too. You get away from the stresses of daily lives, the pollution of London.
+
+[00:41:52] But being dunked, being dunked in cold water is definitely good for your health. It sort of triggers all sorts of adrenaline responses. I don't think. If you've got pneumonia, it's not really now. I don't think there's a huge, I mean, I'm a huge fan, as you know, big cold water bay there. But I don't think there's a huge amount of scientific studies have been done that definitively proved.
+
+[00:42:08] There are a few things like because you have this weird sort of reflex, don't you? Like a diving reflex. Yeah. So I think it's something to do with your vagus nerve. Yeah. And that was the idea at the time that it shocks you, shocks you out of something. So this is why women were dipped, right? And dippers were celebrities.
+
+[00:42:26] And they'd be... Again, there were fewer famous people at the time. This is a Robert Dudley problem. It was Robert Dudley and the Dippers. Dudley and the Dippers is a great 1960s. Yeah. Yeah. And the dippers were great.
+
+[00:42:38] So they were men and women. And if you were a male bather who'd gone to Brighton, and often you'd be someone who couldn't swim, because most people couldn't, then you'd need a dipper. And as a man, you'd have a male dipper. As a woman, you'd have a female dipper. These were beefy, musly people.
+
+[00:42:51] I think one of the most famous ones was Martha Gunn in Brighton, who did it from 1750 to the early 1800s. And the idea was that you have your client. Wow, she would have been quite old by the time. Yeah, she did it from, you know, 20 to 80 or whatever. She lived until she was 19. She just was constantly dunking. It's just standing in the water all the time.
+
+[00:43:10] Yeah. Rain or shine? Yeah? She must have had very wrinkly toes. She's 90-year-olds to start off with. And then she's in the water all day. It wouldn't be able to tell where it was natural wrinkle versus ocean wrinkle. Yeah.
+
+[00:43:25] But you did a lot more than just dunk, of course. You tailored your treatment to your client. So if, like, Diane came to me and was like, I want to be dunked, I'd say, why? What's wrong with you? I'd work out how long you want to be dunked for, how many times. how deep, which bit of seawater, whether you want to massage with it. We all know who wants to be dunked in lockdown until he's found the monster.
+
+[00:43:45] It's not seawater, though. It's going to do nothing. There's a cool invention that came off the back of people wanting to bring the sea to them, as Andy was mentioning. You could use normal water as well for this, but there was an item that was invented in the 1890s called the rocking bathtub. And what it was is it's a bathtub which is shaped in a sort of like crescent moon sort of shape. So like a, as if like a rocking chair. And you would sit inside, you would put three barrels of water inside with you. And then you would start rocking back and forth. You'd have to the water out of the barrels?
+
+[00:44:20] No, into your bath. Right. So you pour the water. Sorry, yeah, you don't hug the barrels. Yeah. It's not Donkey Kong. So the idea was to create the ocean to the waves. to make it feel as if you were in the ocean.
+
+[00:44:33] So not only do you have your salt water with you, you have the vibe of an ocean side. I quite like doing that. I think that's good to do in the bath anyway. It's just my bath is not a rocker. Oh my God. Whose mom has to come in and clear up the bathroom afterwards? Well, it supposedly didn't leak, but it did.
+
+[00:44:47] But supposedly it didn't, but it absolutely did. I just, Andy's bathroom after every time he has a bath, water all over the floor, isn't that? It's pretty bad. A lot of rubber ducks, a lot of accurate models of World War II battleships. Strude about the place. Do you know, it's still, so Andy, I know that sometimes you read these things and you think you want to have that in your own home. Yeah.
+
+[00:45:09] That's often how you are. You can get seawater delivered to your house still to this day. Yeah. I found a place if you want the details. I'll forward them on. You can get 20 litres sent to your house for 19 pounds. And it's sourced, it's seawater that's sourced off the Dorset coastline from a deep water supply. And so this is largely for aquariums and so on.
+
+[00:45:31] I need to have water delivered to them. I'm still interested. It's such a shame because I literally just watched Andy write down all those details he gave in. And now I've thought, I'm going to have to get a fish. I've written 20 litres, 90 pounds and sourced Dorset. It sounds great. Yeah, but yeah, it happens. Like deep sea water, I think, is like a trendy thing that's supposed to be good for you, right?
+
+[00:45:49] Oh, is it? Because the minerals go down to the very deep part of the water. Oh, really? And all the carbon goes down there and it can't really get anywhere out. So there's the minerals in there are really, really awesome, apparently. And it's supposed to be good for you. I think like some sparse people use it to rehydrate because it's supposed to have more chemicals in it.
+
+[00:46:06] Well, where's the evidence? Are there any healthier than the rest of us? No, I've heard that. I think that's plausible. And also, but shallow seawater, genuinely, there is a problem in the UK with lots of sewage. Yeah, but you, I mean, you would fish the turds out, wouldn't you, before you drink it?
+
+[00:46:21] And there's our slogan, we fish the turns out. May contain turns. prepared in a facility which contains turns. We've made our best efforts. I found some cool waters that exist out there. Melted water. Would you drink melted water? So melted, so it was frozen?
+
+[00:46:44] I've had water that comes from icebergs. Yeah, so this is Lithuania. But what's interesting is they grow and create the iceberg and then they melt them. So it's not natural icebergs. And then they put that. melted ice into a bottle. And so yeah, apparently it tastes like puddle water. But it won the Lithuanian product of the year 2013. It won gold for that. They don't have a lot going on in
+
+[00:47:06] Lithuania, do they? That must be a thin year. In thin year in Lithuania. Yeah. That's very funny. Also, interestingly, mentioned just a few minutes ago, Loch Ness water is now bottled. It's taken, it's put through filtration systems and they sell it. For example, the AIG Women's Open Golf Championship in 2024. It was the official sponsor. So all of their players were drinking Loch Ness water. Okay, now I wasn't interested in that until the very end. No, I am. Finally, the crossover of interest went you and Dan. Sliver. Yeah, the most famous person who would have done the sea bathing thing down in Margate is T.S. Eliot. Yeah, T.S. Eliot came down and he did it and he took time off from his bank job. He moved down there and his wife came
+
+[00:47:53] with him. And that's where he started properly writing the wasteland again. And, Is that based on Margot? Yeah, my house gets a shout out. It's quite cool. Yeah, and so in the wasteland, there's only one moment where you see through the eyes of T.S. Eliot, as in like, as in he's sitting in a spot looking up, and that's by a bus stop down on Margate Beach as he was there using the Sierra to recover. Has it got a plaque? It did, and that's down now, unfortunately.
+
+[00:48:19] And what's even more annoying for T.S. Eliot, we did a great fact that his name is an anagram of toilets. It is literally right next to the public toilets. So people see the plaque saying T.S. Eliot and they just think it's a massive typo. No, right next to his plaque is in block words, toilets. They put underneath in brackets waste land, but that didn't help anyone. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can all be found on our social media accounts. I'm on Instagram under the name Schreiberland, Andy.
+
+[00:48:59] I'm on blue sky at Andrew Hunter M. James? I'm on LinkedIn. Under my real name. Nice. What's your real name? And Anna? You can email podcast.q.i.com or you can tweet at No Such Thing or Instagram at No Such Thing as a Fish. Yep. Or you can go to our website. No Such Thing as a Fish.com. Do check it out because you'll find there all of our previous episodes. You will also find a link to our awesome.
+
+[00:49:29] private members club club fish where we put lots of bonus episodes down fun things happen there to check that out otherwise just come back next week because we will be back with another episode and we'll see you then good bye

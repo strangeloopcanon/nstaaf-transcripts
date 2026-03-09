@@ -1,0 +1,209 @@
+# No Such Thing As A Fish - 15: No Such Thing As A Bulge In Ken's Groin
+
+- Episode date: June 28, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/15-no-such-thing-as-a-bulge-in-kens-groin
+- Slug: 15-no-such-thing-as-a-bulge-in-kens-groin
+
+## Transcript
+
+[00:00:00] We ran it on QI a few years ago, which was there's no such thing as a fish. There's no such thing as a fish. No, seriously, it's in the Oxford Dictionary of Underwater Life. It says it right there, first paragraph, no such thing as a fish. Hello and welcome to season two of No Such Thing as a Fish. This is the QI podcast coming to you from our offices in Covent Garden. My name is Dan Shriver. I'm sitting here with Anna Chazinski, James Harkin and Andy Murray.
+
+[00:00:31] And these are our favorite facts from the last seven days. So in no particular order, here we go. James. Okay, my fact is the Aztecs wore necklaces made from popcorn. Was it unlike, you know, the necklaces, the candy necklaces that you have? Yeah, kind of like that on a string. Yeah, on a string. Was it like that?
+
+[00:00:53] But yeah, was it there so that they could eat the popcorn? No, it was there because they used popcorn as like an offering to the gods because it was an important crop. Did it wait? Did the Aztecs actually pop the corn? Or did they just eat it as corn? Yes, they heated it up. Yeah.
+
+[00:01:07] Wow. God, you don't, I think a popcorn has basically hasn't existed since before the Odian cinemas have existed. Yeah. And yet. It used to not be allowed into cinemas. No. Yeah.
+
+[00:01:16] In the early days, it was you had to buy it outside at a vendor and eat it outside. And then when the Great Depression happened and motion picture sound and all that came and they started selling it inside. That's when they noticed how popular it was inside of the building. What happened was that the first cinemas wanted to be like theaters, so they had very beautiful carpets and very beautiful walls and stuff. And they thought if they saw popcorn, people would just tread it into the carpets. Makes total sense.
+
+[00:01:40] It's another ridiculous item to have in cinema. They used to eat it for breakfast in America. They mixed it with milk and sugar and cream. So it was kind of like a Rice Krispie in a way. Yeah. Popcorn was also marketed originally as pearl or non-peret. Either French for without equal. Not nice.
+
+[00:01:59] Not classy. Yeah. Yeah. I have a cool thing about popcorn. It's called popcorning. This is chain reactions. So it happens in a popcorn bag, I think. But 1700 nuclear weapons have in the UK have design flaws,
+
+[00:02:14] which could conceivably cause multiple warheads to explode one after the other, which is known as popcorning. I like the idea of giving like really non-threatening names to really threatening things out. Well, mushroom. You know, a mushroom club. Well, you hate mushrooms though. Yeah, it's true. I find mushrooms on their own very threatening.
+
+[00:02:31] Yeah. Do you know that during World War II, they tried to ban the production of popcorn? Too noisy would alert German bombers to cities. They argued that popcorn production should be forbidden because it was just non-essential at the time. It was like we got more important things to do than popcorn. But this led to the creation of the National Popcorn Association
+
+[00:02:55] and they published a patent flick called Popcorn is a Fighting Food, which I argue that popcorn contained twice as many energy units as a pound of steak. And it was a morale builder. Popcorn was the first food to be cooked intentionally by a microwave. Was it? Really? Yeah, it was. The microwave was discovered by a guy called Percy Spencer.
+
+[00:03:16] He walked past a magnetron in World War II and he noticed that the chocolate in his pocket had melted. And so he thought, well, I wonder what that could have been. He realized it must have been this machine. And so then he got some popcorn, put it next to the machine, and then it did cook. And that was the first time they ever realized it. It's the most positive reaction I've ever heard
+
+[00:03:33] to someone having chocolate melt in their pocket. Yeah. Glad that he made the connection that you then put the thing in the machine as opposed to cooking everything in your pocket. Just by walking past it. Let's dive into it. Yeah, that could have been how we microwaved everything. So on Aztecs, I actually went to the Beyond El Dorado exhibition
+
+[00:03:49] at the British Museum recently, which was excellent. And I think it might be over now. So sorry, I probably shouldn't have mentioned that. But if a wealthy Aztec died and was cremated, then a dog had to be cremated with them so that it could guide them through the afterlife. Their relationship with their gods, you know, 20,000 people were sacrificed.
+
+[00:04:07] They did love a human sacrifice. Per year. There's 20,000 dogs as well, that means. Yeah, that's, yeah. They used to take hallucinogens, didn't they? The ritual leaders would take hallucinogens to get closer to the gods. And at this exhibition, they have these amazing masks.
+
+[00:04:20] So then they put masks on of certain animals. So they were called batmen. Or bat, you'd be Batman if you wore this bat mask. And they thought it transformed you into a bat. So they'd take a hallucinogenic, put a bat mask on, and I guess just run around the tribe going, I'm Batman. They also had Jaguar people, didn't they?
+
+[00:04:38] Yes. The Aztecs did the same thing. They would kill a Jaguar, get inside their flesh, and then they would be like the main warriors. So they're not actually, despite the fact that we call them Aztecs, they're not Aztecs. Well, they didn't call themselves Aztecs. Yeah, we've given them that name.
+
+[00:04:52] They called themselves Mexica. That's right. Yeah. So how did, how does that happen? That we were all cool, we're still calling them something they're not. Feels like another example of good old western ignorance. Yeah, it is.
+
+[00:05:03] The Aztec word for gold, do you know what that is? No. It is, I don't know if I can pronounce this. Teu quitlatl, which literally means excrement of the gods. The gods pooed it right out, and then they, I guess they offered it right back to them. Well, Montezuma had a nephew called Quitlahuac, which meant plenty of poo, or dried excrement.
+
+[00:05:25] Wow. Montezuma's revenge, have you heard of that? That's having a dodgy tummy, when you travel to Mexico. So this guy's name is just completely associated with trash. Montezuma now means lots and lots and lots of excrement. Speaking of excrement and old American languages as we were, so Des Moines, you know the city in Iowa.
+
+[00:05:45] Yeah. Bill Bryson's from there. Is he? Yeah. Oh well, perhaps he knows that a new linguistic study has been done, which shows that the name literally probably means shit face, and it was a mistake. So when they were naming it,
+
+[00:05:56] they asked the Native Americans what the place was called, and they said Des Moines, which was the insulting name that they called their rival tribe, which was shit face. And now, this island city is called shit face. Oh my god. And they've only just realized. You could say I'm feeling absolutely Des Moines at the moment.
+
+[00:06:10] I'm feeling so Des Moines. Let's get Des Moines. Yeah, that ruler we were talking about. Montezuma. Yeah, Montezuma. He had a zoo. Montezuma. Hence the name.
+
+[00:06:20] Yeah, Montezuma. He missed a trick there if it wasn't called that. He related to Jacob's Zuma by any chance. I don't know. Brother, I doubt it. But he had exotic animals, obviously, but it also included dwarfs, albinos, and hunchbacks. So a bit of a human zoo.
+
+[00:06:35] A bit of a PC nightmare, if he was still around. And if you tried to do that today, they wouldn't let you. Yeah. Political correctness gone mad. OK, let's move on to fact number two, and that comes from Yu Chazinsky. Yes, my fact today is that in 2011, China tried to pass up a scene from the film Top Gun
+
+[00:07:00] as footage of its own Air Force. That's amazing. Yep, it was a state broadcaster, China Central TV, or obviously, as we know, it's CCTV. And it was a news bulletin in a report about training exercises that were being undertaken by the Air Force. And it was showing an example of a successful strike on an airplane.
+
+[00:07:18] And this explosion, and we'll post it on the website, in slow motion. I mean, it's the explosion from Top Gun, with straight face reporter going, and this is them successfully blowing up an airplane here. Wow. Well, Top Gun was a propaganda movie for America anyway. It was partly funded by the Pentagon.
+
+[00:07:35] Was it? Yeah, in order to get people to sign up for the military. When it was on, in the cinemas, they had recruitment tables in the theaters so that people could just sign up. Yeah, and apparently that was the highest recruitment period they've ever had, because everyone came out of the cinema just buzzing,
+
+[00:07:51] just going, girl, America! And then there was a booth, and they were like, yeah! Yeah, and then a month later, they find themselves being shut at. And they're like, what? What happened? I thought it was a little volleyball and showers. Yeah, yeah, exactly.
+
+[00:08:04] I have not seen Top Gun. No, me neither. So please no spoilers. Sorry. But I have seen the live stage show of it, which featured no props except the guys doing planes. They held their arms behind them and went, and that was it.
+
+[00:08:16] They did all the dogfights. You're kidding. It was a very bad hour. Talking about the fact that recruitment went up, which it did, by 500%, I think, recruitment for Navy pilots. Also, sales of Ray-Ban's post-Top Gun. This is a bit of a spoiler, Andy.
+
+[00:08:28] If you haven't seen it, they wear a lot of Ray-Ban's. Oh, man. They went up by 40%. Did they? Yeah. I love it when something influences the market. When Fifty Shades of Grey came out, rope sales and hardware store went through the roof.
+
+[00:08:41] But also every cultural artifact, as I stated with it. So there's that. Is it Spen in Allium? There's a classical music piece, which is referred to quite a lot in the book. And sales of that absolutely rocketed. There was a news story when John Prescott was found playing croquet on his lawn.
+
+[00:08:55] And the sales of croquet sets went up by three times. Wow. I thought you were going to say they plummeted. Everyone returning their croquet set. No such thing as bad publicity for the croquet world. Well, China has got form on this, haven't they? Because at the Olympics in 2008, didn't they have one adorable-looking girl
+
+[00:09:13] singing a song at the opening ceremony? And it was revealed that she had not actually been the one singing. They had a slightly less telegenic girl behind a screen somewhere, maybe locked in an attic, just singing into a microphone, quite full. You mentioned China having form. There are a couple of other amusing Chinese news agency
+
+[00:09:30] stories. A few years ago, the state news agency published a health report, and it was illustrated with this x-ray scan of a human head. But they use an x-ray scan of Homer Simpson's head. And if you look at it, I mean, it's Homer Simpson's head. With that one where he has a very, very tiny brain. Yeah, exactly.
+
+[00:09:46] With two monkeys picking flames off each other. It's the tiny brain, huge head one. I'm just on the Wikipedia page for propaganda in the People's Republic of China. And there's nothing there. Well, that's, I remember when I first started out with QI. It was a fact I found. It was that when China realized the power of the internet,
+
+[00:10:07] they got really nervous. So they hired a man to sort it out, gave him a computer, sat in a room. He came out the end of the day going, this is a bit bigger than we realized. One dude who was meant to literally go to every forum going, hey, you guys, stop talking about that. There's just been a recruitment drive in the Chinese military.
+
+[00:10:29] And they've changed the rules slightly to get more people in the army. So they've introduced new height requirements, which have been reduced by two centimeters, so slightly shorter people can get in. They've changed the weight restrictions because actually most people have put on more weight because of obesity crisis.
+
+[00:10:45] They've reduced eyesight requirements so people who are more short-sighted can now get in. And they're allowing people with tattoos, which they didn't before. Wow. So the Chinese army will now be very short, fat, short-sighted, and probably running the wrong way because they can't see where they're going.
+
+[00:11:03] Um, haven't we just changed the rules for the British Army Reserve so that you can now have face or neck tattoos? Neck tattoos sound very painful to me. I did read a book about a guy who got one tattooed in the Second World War on the inside of his foreskin, saying, hi doc. Yeah, for medical examinations and things like that.
+
+[00:11:20] So there's a real top gun school, but supposedly you get a $5 fine if anyone in the staff quotes the movie Top Gun. So it's military training for... They should call it military planning. That saves time, which is vital in the heat of battle. You should be a soldier, Andy. Top Gun School, if you're listening,
+
+[00:11:39] I am free for consultancy work. Yeah, he has tattoos all over his face now, so I'm on the inside of his foreskin. But he did it in the mirror, so it says cod. In 2013, India's army spent six months watching Chinese spy drones violating its airspace, only to find out that they were actually Jupiter and Venus. That is embarrassing.
+
+[00:12:04] We were talking about media mistakes, and this is just my favorite one. In 2008, a Christian website was publishing a story about Tyson Gay, who, you know, the sprinter, Tyson Gay. So this Christian website in America wasn't allowed to use the word gay. It had an automated system, which, whenever it saw the word gay,
+
+[00:12:19] changed it to homosexual. So this website published an article referring to Tyson homosexual. All the way through, Tyson homosexual was a blur in blue, sprinting 100 meters far as anyone else has. It means a lot to me, the 25-year-old homosexual said. I'm glad my body could do it.
+
+[00:12:36] That's fantastic. It's called the skuntharp problem, isn't it? Yeah. When computers misrepresent something as being rude, because of the four-letter word in the word skuntharp, people living in skuntharp couldn't put their addresses into certain computer systems because it had that word in it. Another place with that problem is a penstone,
+
+[00:12:53] but it looks, it's spelt penis tone. What is a penis tone, I wonder? Can anyone impersonate that? Yeah, it's like, yeah, exactly. You need to bang a fork on it for tuning. Okay, time for fact number three, and that is my fact. My fact is that in 2003, somebody misplaced the master keys to the Lawrence Livermore National Laboratory,
+
+[00:13:22] which is the home of the fastest computer in the world, and it's a lab where they develop all science and technology for America's national security. Due to the loss of these keys, they had to replace the locks, and those locks cost $1,700 to change. I mean, that's a good day for a locksmith. But that's, I mean, it makes sense when you hear it, really, because obviously they've got the best locks in the world.
+
+[00:13:44] What's so great about these locks? What are they like? There's ones that, how my mum opens her car, where you can click them and it opens it for 10 yards away, because that's pretty amazing. I reckon they're better. No, they can't be. Yeah, I think they're probably...
+
+[00:13:55] They've got a deadbolt on them, because those are really good, those ones. You have to have them when you front door to get insurance. Top tip. They could be like chub locks, they're quite a good... Chub, there's a nice word as well, chub. Also a fish, of course, either a fish or a lock. Don't confuse them. And a lock, because a lock is part of a canal system,
+
+[00:14:12] which has water, which is also a place where fish can live. That's true. Yeah. That's probably where the connection happened. A bit, a chub lock, yeah, yeah. Okay, that's enough for that fact, so... I feel like no one's taking my facts seriously here. No, no, no, no, no, we're not.
+
+[00:14:29] Have you guys read about a Volvo's new... I think it was only announced this year, so they remotely unlock your car and deliver your shopping into it, and then leave again. But you'd call Tesco and be like, deliver my shopping to my car, click that option on your Tesco online shop. They arrive, give you a text, you go, okay, yeah, you can unlock it.
+
+[00:14:46] Isn't that cool? So you'd sit in the office, do your online shop, go back to your car, and it's just there. It's a bit. I mean, it sounds like we're heading to sort of like, I've ordered takeaway. They literally, they come through my front door and just put the food in my mouth.
+
+[00:14:59] I have a zip car in London, and you open, you can open those with your mobile phone. Yeah, me too, I always find it incredible. I have another example of that lock-changing disaster. Oh, yeah. This was a few years ago in 2006 at Felton Young Offenders Institution, and they had to spend £250,000 changing the locks.
+
+[00:15:18] Basically, a TV news crew had been in, and they had filmed a prison key, and as a result, all the locks had to be changed. What, in case somebody saw the footage and could recreate that key? In case somebody took a photo, printed the photo, made it a 3D model, pressed it into a cake of soap. You don't have a very high definition TV to get that key right.
+
+[00:15:38] Yeah, that's true. That's what also happens on TV when we want to put a photograph of a banknote or something. They make you put specimen on it so people can't take a photo of the screen, print off the photo, and then pass it off as money. Also, this is so cool. Banknotes have little things on them,
+
+[00:15:53] little circles in patterns, which stop photocopiers from photocopying them. Isn't it amazing? I read that, but then I got a banknote and tried to photocopy it on my photocopier, and it worked. Ah. In September 2012, you could buy a set of master keys for New York City on eBay,
+
+[00:16:11] and the newspapers went a bit crazy about it and said it was a terrorist dream come true, and it's supposed to be able to help you turn off elevators in public buildings. But of course, in order to do that, you'd have to get past all of the security to get into the building in the first place. Well, this is the thing.
+
+[00:16:28] You think that these places would have incredible security. Number 10 Downing Street has a phenomenal lock system in that it has no lock or no door handle. It's just nothing on the front of their door. You can only open it from the inside. Once you get inside, you can open the door any time you like. Yeah.
+
+[00:16:43] What happens if everyone goes out? This is the problem. That means that that house is never not occupied. How often do you think that screws up when David Cameron's left sitting on his doorstep? Well, apparently, I don't know how often someone's left outside, but apparently in the first five years
+
+[00:16:56] that Tony Blair was at Downing Street, 37 computers, four mobile phones, two cameras, a mini-disc player, a video recorder, four printers, two protectors, and a bicycle were stolen from the building. Oh, wow. How does that happen? It's bomb-proof, though.
+
+[00:17:10] Is it? It's made of bomb-proof metal. It was originally made of oak, and then there was an IRA attack. Mortar was launched into the back garden of number 10. In 1991. Do you guys remember when Gordon Brown got locked in a toilet
+
+[00:17:21] and had to be rescued by Tony Blair? I think it was in the early 90s, when they went to discuss the potential leadership in the early 90s, and they were having this meeting, Gordon Brown went to the loo. Tony Blair waited there for 15 minutes, like, what on earth is going on?
+
+[00:17:32] The phone rang. He didn't answer it, because he wasn't at his own house. And the aunt's phone came on, and it was Gordon Brown upstairs going, hello, Tony. I'm stuck in the toilet. Can you go and get me out?
+
+[00:17:42] Is it because the toilet in 10 Downing Street doesn't have a hand? Speaking of stealing things, there was an EU summit in the 2000s, and the catering staff went on strike because they weren't being paid. And so when all the politicians and the admin people and whatever
+
+[00:18:00] went for lunch, there was no staff there, and they raided the whole thing and stole all the cutlery. Wow. Okay. Does this maybe explain where all our forks have gone
+
+[00:18:09] from the QI office? I had a big scandal in the QI office at the moment. Supposedly, I've been throwing all the forks into the bin. That's the proof I got around. There is no proof. What's the proof? It's no proof,
+
+[00:18:19] because you don't remember doing it. I just want to quickly turn it to this laboratory, which looks after the supercomputers of the world. And there was an old fact I remember, which I think James, you found ages ago, which was that Deep Blue was the first computer
+
+[00:18:32] to beat a grandmaster at chess, but its subsequent career. Most people, when you win a major championship, you know, there's a lot of glory at book deal and so on. It now works as a reservationist for a U.S. airline,
+
+[00:18:43] so it just deals with reservations. Yeah, they split it into two pieces. One half went to a museum, and the other half worked for Panam or some American allies. Wow, I'm glad that doesn't happen with people. Actually, Magnus Carlson is currently in Oslo Museum. Half is a trolley dolly with Oslo.
+
+[00:19:02] I read as well that they've worked out that if you took all the information on the Internet, and you were to save it, do you know how many Blu-ray disks it would take to save the entire Internet? How many, if you fit it all onto Blu-ray disks?
+
+[00:19:16] Is it a weirdly small number? Yeah, weirdly it is quite small. 200 million, which is, I think that's quite small actually. I agree. Where are you going to put these? You're going to need a big shelving unit,
+
+[00:19:29] and the admin will be a nightmare, when you're trying to get your favourite cat video. Why didn't you alphabetise these? Well, do you know how many emails are sent per day? Many millions. No. How long is this going to go on? 247 billion.
+
+[00:19:44] Wow. The fastest ever Internet connection. This fax is a few years old, so it probably isn't anymore, but this was a lady called Sigrit Lothberg, and she had an Internet connection, which was 40 gigabytes per second, and it was put in by her son,
+
+[00:19:58] who was a Swedish Internet legend, Peter Lothberg. And what did she do with it? She dried her washing on it, because it gave off so much heat, and she didn't know what else to do with it, so she dried her washing with it. That's great.
+
+[00:20:10] Did you guys know that Internet on the Moon now is faster than in most parts of rural Britain? What? How do you get into like the... They called it Broadband, that's how it was released. Wow, imagine holding your phone up, and trying to speak to Siri through your helmet. Or it'll be very hard to tap your phone properly
+
+[00:20:25] with those gloves. OK, it's time for the final facts of this episode, and we head over to Andrew Hunter Murray. My fact is, did you know that Ken is officially an accessory to Barbie? Brilliant. I really like that. He says she's not a feminist icon.
+
+[00:20:51] Yeah, this is very weird. OK, so the Barbie and Ken, the original Barbie and Ken, Ken was named after the son of the inventors of Barbie, but Barbie was named after their daughter, Barbara. Oh, yes. Which is quite peculiar. Which is quite peculiar. A sort of brother-sister thing,
+
+[00:21:06] and Ruth, the wife of the couple who invented Barbie and Ken, argued for a bulge in his groin, but the design team refused to put one in. Yeah, he is famously bereft underneath those trousers, isn't he? Seven years. Yeah. There is a trailer trash doll you can buy in America.
+
+[00:21:23] It's called Turlene. It's a pregnant doll from 2005, and she's one of these talking dolls. And her catchphrases include, If the trailers are rockin', don't come a-knockin', and pour me a double, I'm drinkin' for two. Does she ever give birth in some kind of traumatic nine months down the line?
+
+[00:21:44] Can you imagine that doll? The giving birth doll. They've got to make it. Well, they were used for good dolls during Brown v. the Board of Education when civil rights legislation was overturned in 1954. It was one of the first cases where a Supreme Court cited a social study in its reasons
+
+[00:22:01] for making a certain decision. So this was when America agreed that segregation was a negative thing and had a negative effect on the people who were subject to it. And what they did was, in the experiment, they brought black and white dolls to schools that were segregated, so black schools,
+
+[00:22:14] and they'd show the kids a black doll and a white doll and get them to say, which one do you think is a good doll and which is a bad doll? And all the kids would go, oh, the white one's a good doll, I want to play with the white one, because that's what they even brought up to think.
+
+[00:22:23] And then they'd ask them, okay, and which doll do you think is more like you? And almost all the kids got really, really upset. Me and, like, cried or ran out of the room, because suddenly they were identifying themselves with a doll they just said was the bad doll. And that was cited by the Supreme Court when Brown v. the Board of Education
+
+[00:22:38] came to its conclusion. Yeah, that is really interesting. Yeah, yeah, yeah. Here's another good use for a doll, which is, it's a nice use, but perhaps not as worthy as your use. And there was a Chinese guy whose wife had died, and he became rather attached to his blow-up doll. And everyone started taking the mickey out of him a little bit,
+
+[00:22:55] and he got very upset. And so he decided to end it all. And eyewitnesses at the scene were horrified to see him plummet from the building, holding what they thought was a child, but was actually his blow-up doll. And he very romantically jumped off the building with his blow-up doll, landed on the doll,
+
+[00:23:12] the doll exploded, and he survived. Oh, wow. Wow. She gave her life for him. Exactly, it's romantic. Very romantic. That must have been a horrific moment, when everyone saw what they thought was a child
+
+[00:23:25] exploded on the pavement. You can get, this is slightly controversial, dope on a rope. Dope on a rope was Saddam Hussein with a noose around his neck, which was commemorating his death. It's from a website called Hero Builders, and they've got over 100 satirical figures
+
+[00:23:42] that you can get, including Tony Blair as an action man, you can get George Bush as a superhero, Michael Jackson holding a baby over a bowman. Well, that would be... Gordon Brown comes with his own pot-a-loo. That'll be the same company, probably, which, in 2002, Osama bin Laden dolls dramatically outsold Tony Blair dolls.
+
+[00:24:02] Really? I think it was a bit of an embarrassment. Really? Yeah. Well, that was not the only firm to make Osama bin Laden dolls, because, in 2005, the CIA made a custom-made bin Laden action figure, which they were thinking about distributing
+
+[00:24:16] to children in the Middle East, and the face would peel off and reveal a much scarier red face with demonic eyes, and, you know... Oh, wow. So, with usage of the toy, suddenly, Satan would appear. Yeah, exactly. With the feeling, wow.
+
+[00:24:28] Yeah, so that would apparently put children off. That would apparently make children support the war on Terremor. Put them off dolls. Put them off dolls, yeah. No, kids love that kind of thing, don't they? Yeah, it's true. It's like a one-way rubbish transformer, that doll.
+
+[00:24:42] Also, if you didn't explain the toy was going to do that, potentially, that was the most costly thing that they've ever done in the CIA, with all the recalls of people sending in the toy back, going, you realize there was a demon face underneath this? Dear CIA. Stay on the packet. I thought it was suspicious when the CIA was selling dolls.
+
+[00:25:00] Hey, by the way, just with the idea of Osama being turned into a doll, when I read that story, it made me think about sort of villain merchandise, or dictator merchandise, because they always, I just suddenly remembered that people like Saddam Hussein used to publish novels. Ah, he did, yeah. Yeah, he had four novels, and two of the novels actually were published in Japan, and sold in shops,
+
+[00:25:23] and a surprising number of people wrote, like Gaddafi wrote a novel. Well, it was a collection of short stories, and it was called Escape to Hell, and so did Kim Il-sung. The Turkmen dictator, Sapa Murat Niasov, wrote a book of his spiritual thoughts, which became required reading if you wanted to pass your driving test. Completely, completely Birkenberg.
+
+[00:25:44] There seems to be a genre of dictator-lit. I think she called it dick-lit. So I was, yeah, I was trying to find dick-lit online, and you came up with some terrible Google results, and it's got about 100 million Blu-rays of it now. But if you go to Goodreads, one thing that Goodreads has, so while Twitter has followers, and Facebook has likes, Goodreads has fans.
+
+[00:26:10] You've become a fan of an author. Oh, no. So Kim Il-sung has one fan. Moussey Tong has 40 fans. Masalini has 20 fans. Gaddafi has 34 fans. And Hitler, 390 fans. Yeah, loving his book work.
+
+[00:26:30] Mine Camp, obviously, very popular. And it's Sequel. How does Sequel? Mine Camp, how does Sequel? Sequel to mine, Camp in 1935, called Zwight Buch, which literally means second book. I guess you'd run out of imagination by that. Maybe the editor said,
+
+[00:26:43] I think we should remove that difficult from the title at all. Okay, so that's it. That's another episode of No Such Thing as a Fish Done, cracking start to the new series. And if you want to get in touch with any of us about the things that we've said, you can get us on our Twitter handles. I'm on at Shriverland, James.
+
+[00:27:06] At Egg Shaped. Andy. At Andrew Hunter M. And Anna. Ah, you can get me on at Quickipedia, the QI Twitter page. Yep, but if you want to get Anna on Twitter generally, hashtag Anna on Twitter. But also, if you head over to qi.com slash podcast,
+
+[00:27:20] we've got our pages up there with all the previous episodes, including stuff that will be specifically to do with this week's episode, video links, general links to other websites, anything that we can think of that kind of is relevant to the episode. That'll all be on there. You can explore the rest of the episodes.
+
+[00:27:34] And also, you'll see a button that can show you a way to visitingland.com, where we've made an entire World Cup podcast called International Factful. And yeah, we're gonna be back again next week with more No Such Thing as a Fish. We'll see you then. Goodbye.

@@ -1,0 +1,273 @@
+# No Such Thing As A Fish - No Such Thing As A Beaver Walking Backwards
+
+- Episode date: September 19, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-beaver-walking-backwards
+- Slug: no-such-thing-as-a-beaver-walking-backwards
+
+## Transcript
+
+[00:00:01] Hi everyone, welcome to this week's episode of No Such Things a Fish. We are slap bang in the middle of our tour right now, and that means that you yourself can come and see us live. Yes, you can. We love doing the tours. We're having a great time this time around. We record a new podcast every time we do a show, and we have lots of little nerdy, extra never-before-seen bits in between.
+
+[00:00:25] And we are going to be in Cardiff, in Londontown, and in Manchester very soon. We are in Cardiff on the 16th of October, London on the 23rd and the 24th, and Manchester on the 27th. That is correct. And one of the places we will be very soon is Gothenburg. We will be in Gothenburg on the 27th of September. That's a week on Friday and we'll be doing a live episode of the podcast there. So do come along. Search for the Gothenburg Book Festival and you'll see all the details about that. And of course, you can get tickets to that and all the others by going to no such thing as a fish.com slash live. Okay, Anna, I think it's time to sound check. We better get on with it.
+
+[00:01:05] Let's get on with the show. On with the podcast. Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Bristol. My name is Dan Schreiber. I am sitting here with Anna Tysinski, Andrew Hunter Murray and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. and in no particular order, here we go. Starting with fact number one, and that is Andy.
+
+[00:01:54] My fact is that the unauthorized release of beavers into British waterways is known as beaver bombing. That's exciting. Yeah, this has been covered recently. They're all over the place now, and they've been making their way back, so the river otter is now full of beavers. Confusingly.
+
+[00:02:11] Very confusing. Which pisses off the otters in the river otter, I suspect. Are there otters in the river otter? There are otters in the river otter. And I did read that someone was saying the camel river is another good place to introduce them, which I imagine will piss off the camels in the camel river. And there are hundreds of them out there now.
+
+[00:02:26] Is that really? In the UK? In the UK, yeah, yeah. In researching this fact, I spoke to someone who said, very secretively, they were related to someone who knew a thing or two about reintroducing secret beavers. Yeah. The sort of gorilla, confusingly. The gorilla's a furious.
+
+[00:02:41] Yeah, and so I've read an interview as well with a guy called Simon. basically it takes a lot of time and paperwork to release a beaver outside an enclosure you need to do an impact assessment sometimes on the Isle of White you have to do 100,000 words of impact assessment
+
+[00:02:56] 100,000 words, that's a novel that's a full novel and people are objecting aren't they because no one's got time to read that many words but why do we want beavers anyway because they build dams don't they and it creates this lovely kind of ecosystem for lots of other things to exist
+
+[00:03:11] they're like engineers so there are these people and it's such an exciting world If you want to get into crime, but feel like you're doing kind of a good thing, I think beaver bombing is the way. Interesting. There was a guy called Olivier Rubbers.
+
+[00:03:23] Did you really about him? He was one of the originals. In 1998, he just heard someone mention the reintroduction of beavers, and he decided, I'm going to do that, borrowed his dad's car, and he drove to Germany. I think he lived in Belgium, drove to Germany, picked up some beavers, crossed the border, back into Belgium, dropped them in a river,
+
+[00:03:41] went so well, he repeated it with 97 more beavers. Right. Did he do 97 different journeys? Or did he go, all right, lads, in the car? Yeah, it's like that riddle. You're not allowed to take a beaver with another beaver, otherwise they eat each other. Right, that's crazy.
+
+[00:03:55] Hey, do you know, if you let a beaver into your lounge room, it will rearrange all your furniture. Isn't that amazing? Oh, that's nice. That's lovely, along feng shui principles. No, this is a thing that was noticed by someone who wrote a lot about beavers back in the day. She was sort of a conservationist who wanted to raise
+
+[00:04:11] the idea that they're intelligent animals, that they're interesting to look at. She was called Dorothy Richards. And she was looking after beavers and they came into her house. And as soon as they walked in, they were like, no, let's put the chair over there. Let's get that over there.
+
+[00:04:23] And apparently, according to her, they are the only animals apart from humans that radically transform their environment. So it's all about safety. They want the room perfect. So if you put a beaver in your room, it will be different. And it will flood the room. Yes.
+
+[00:04:35] Crucially. What they do is they build the dams where they hear the water the most, right? Because they want to find the narrow part of the river where the water really flowing. So they listen out for loud water. When they find the loud water, that's where they build their dams. But if you get a tape recorder and put it in the middle of the room and put a beaver in there, they'll go around finding any bits and pieces in the room and then just put it
+
+[00:04:57] all on top of the tape recorder. That's very cool. So they make dams and this can help to clean the water, can it, in rivers. The ones in the river otter, they store 24 million liters of water, which is the equivalent of 10 Olympic-sized swimming pools. And they reckon it could have help our bills, our water bills, because they clean it, it means the water companies don't have to. Because I did find that between November 2019 and February 2020, sewage treatment works near Stoke illegally released sewage equivalent to 10 Olympic-sized swimming pools. So basically all those beavers just did the right amount of work to help that one sewage leak. That's great. So they're the sort of water company's friend?
+
+[00:05:39] Yeah. That's nice. I don't like them as much now. Do you know what a beaver deceiver is? Is that like catfishing? Is it like a... Oh, yeah. So it's someone who tricks a beaver in some way into building them a dam for their own use, though. Basically, you've got an area where you want to have beavers,
+
+[00:05:59] but you don't want the area to be flooded, and so you allow them to build their dam, but then you might put a little pipe in it, so the water can still go through, but they can still do their dam, and that's called a beaver deceiver. It's just nice to say. Yeah.
+
+[00:06:11] Was there ever a dog that was a beaver retriever? I don't know. Hey, I read a sentence about beavers and I wasn't able to find anything more about it, so I'm just saying it in case you guys did, but it was such a mysterious sentence in a review about a book on beavers. It said,
+
+[00:06:28] Beavours never walked backwards. Okay. Did you read the next sentence in the review? They eat their food twice. They do do that. They cannot. They have ever-growing orange teeth with which to know woody plants. Is this book review 10 weird facts about beavers?
+
+[00:06:51] No, it was an amazing, it's an amazing book about the point being made that beavers actually, they don't only make dams, but they made America effectively. America's fortunes were effectively down to beavers. And it was fur trading. Beavours were virtually extinct over here, right? Because they'd been hunted down, we'd used all the fur. And then we found out that in North America, there were all the wool. these beavers there. So all the ships went over and started hunting them down. And then you ended up
+
+[00:07:16] with billionaires of beaver fur. And it made America. I read that it literally created Canada, the beaver trade, basically, because you had all the people on the east coast, and they needed to find more and more beavers. And so they had to go inland and inland. And they set up all these kind of trading posts between all of the First Nations people and all those trading posts that came because of beaver pelts was what became Canada in the end. Yeah. Yeah. It's very hard to underestimate how totally essential they were. When New York was sold to the Dutch by the Native Americans, I read that actually it was mostly beaver pelts that were sold,
+
+[00:07:51] and New York was like a little bonus. They were like, we'll sell you 2,000 beaver pelts, and also we've got Manhattan as well. Do you want this on top? They were like, yeah, toss it in. But, yeah, crucial. And historically, it seems someone fair for such a crucial animal that the main thing they're famous for is taking off their testicles.
+
+[00:08:08] If you Google Beavers and their name... What? If you Google beavers with your safe search off, you do get a lot of testicles, I'll give you that. You wouldn't think testicles were the first thing. How did they take them off? Well, I mean, they didn't take them off at all. But since ancient Greek, since ESOP's fables, there was this idea that beaver testicles were very sought after, which they were for their medicinal qualities, which didn't exist.
+
+[00:08:32] And beavers figured out that if they tore off the testicles, threw them at the hunter, the hunter wouldn't chase after the beavers anymore. The reason this came about is because they hide their testicles behind this fleshy flap, the male beavers. Lovely. So, yes, I think fleshy flap is the term. And so people were like, where are their testicles? They must have torn them off because of this reason.
+
+[00:08:54] But it's where their name comes from. Castorium is the stuff they secrete. Their name is castor in their Latin name. And that's from castrated, same origin. Because the idea was they ripped off their testicles. When I was kid, in Bolton, we used to shout beaver in the street. if we ever saw anyone with a beard. You did beavering.
+
+[00:09:12] This is so exciting. Literally, we would walk down the road and there was someone with a beard, and the first person to spot them would shout, Beaver! Right. I read that this was a game popular in the 1910s and 1920s.
+
+[00:09:27] I believe that is the case in the rest of the country. What would beavering survived? What would the beaver do? What would they say? Well, they would be confused. Because they would be like, That game hasn't been popular since the 1920s. And did you... Were there variations for you?
+
+[00:09:45] I can't remember. I was really young when it happened. It wasn't literally in the 1920s, but yeah, I was really young when it... Because supposedly, there was things like if someone had a beard and a moustache, that was a royal beaver, or there was a king beaver, which is a red whiskered policeman riding a green bicycle. I just wondered if you knew the...
+
+[00:10:05] No, I didn't remember those. But my theory is that the use of beaver... for women's genitals is from that game. I'm pretty sure it is. Because the first citation of that is from 1927, and the citation in the Oxford English Dictionary says, she took off her clothes from her head to her toes, and the voice at the keyhole yelled, Beaver!
+
+[00:10:27] Right. So it genuinely seems like that might be it. Yeah. Well, I'll tell you what, Canada in 1920, that was the year that what is now their second oldest magazine ever was founded. It was called The Beaver. And it lasted all the way until 2010 until it needed to change its name,
+
+[00:10:45] which they've just changed to Canada's history. And it was largely because none of their emails were getting through to anyone because they were being filtered out by porn filters. So all of their emails, all their newsletters, nothing reaching it. People were confused anyway about it. Same as Beaver College in Pennsylvania.
+
+[00:11:02] They changed their name because, again, no one could get to their website. Plus, the applicants they got were, questionable, to say the least. So there wasn't an attempt before now to reintroduce beavers to the UK, because I think there were some hundreds of thousands in the Middle Ages.
+
+[00:11:18] Europe had about, between 60 and 400 million beavers, so I think that's a sign that no one really knows how many there were. But there were attempts to reintroduce them because they clung on in a few, and like really far eastern, sort of like, Central Asian step bit, there were a few beavers knocking around.
+
+[00:11:33] And in the 1860s, there was an attempt to re-beaver in Suffolk. Is that the technical term? Yeah, yeah, yeah. To re-beaver. Rebeaver, yeah, yeah. But they were de-beavered, they were destroyed. And the very final ones, I just like this,
+
+[00:11:48] were sent to London to be stuffed by Lady Gooch. That sounds like another euphabism, doesn't it? How was that not your headline fact? Beaver used to be stuffed by Lady Gooch. It is time for fact number two, and that is Anna. My fact this week is that in the 16-Henberg, the Spanish ambassador to England had a specially made chair
+
+[00:12:17] with a hole in the bottom to accommodate his anal fistula. Wow. Yeah, this is such a good article that I read. It was on history today and it was about a play called A Game at Chess which is the most popular play of the 1600s. Most of you won't remember it.
+
+[00:12:35] Still big in Bolton. The main villain in it is a guy called Diego Sarmiento de Acuna or Count Gondamar, who was the Spanish ambassador to England between 1613 and 1622, and he had an anal fistula that was very famous. And I just think if you've got an an anial fistula, you don't want it to be famous. It impacted his movement. It's hard to say how famous it was, isn't it?
+
+[00:13:02] Literally everyone knew about it. Their posters on their bedroom wall. It was... But how many people can even name the Spanish ambassador now? It's a job that has undergone a huge decline in press. in the last 400 years. Right. Yeah, it's since we weren't at war with Spain anymore.
+
+[00:13:17] Exactly. Yeah. Exactly. But I just think that's really tragic. I looked up the current... I'm not at war with Spain anymore. And I'm willing to say, Wow. Come and have a go. Hello?
+
+[00:13:26] No, I just think it's... As in, I looked up the Spanish ambassador to the UK earlier. I've forgotten his name. Right. Yeah. It's definitely Spanish. But I just mean... Yeah, yeah. I think it's a shame for him.
+
+[00:13:38] And when you say an anal fistula, I actually would like a quick sense check on what that is, because I like the way you said in your fact his chair had a hole in the bottom. Because as far as I can tell, that is what one of those is, right? It is an extra hole in the bottom. It's one too many. Right.
+
+[00:13:54] Right. much that they would attack him if he was carried, you know, if he walked. Plus, it was quite hard to walk. Well, like kick him in the bum kind of thing as a... I think that would probably be one of the tactics, yeah. Surely something to make you less likable is having yourself carried through the streets of London in a sedent chair. Surely just wear a hat and go out and just...
+
+[00:14:31] Can I, when you say it doesn't secrete... No. Well, it does. I mean, it does, and it is an unpleasant condition where... But not feces, it doesn't act as a second bumhole. It acts as a second bumhole. It acts as a second bum hole. Yeah, of course.
+
+[00:14:42] Because basically, it's caused by... some sort of infection, sorry for the gory details, but it's important to know if you have one. An infection somewhere in the anal tract, and there's a bunch of pus builds up, and then when it goes away, it leaves a little tunnel that goes from the anal tract out of the sort of buttock near the bum hole, and so it will leak things
+
+[00:15:01] from your bowels and other things. Most of my stuff is about Spanish foreign policy. Do you guys remember when my wife Fonella thought that my oldest son Wilf had a second bumhole? No. It was in the first few weeks after he had been born. It was our first child. And you have to change in the nappy every few hours, right?
+
+[00:15:19] So you're getting up at like 2 a.m. 4 a.m. I got up at like 2 or 4 and I was going to change the nappy. And Fenella said to me, don't forget to wipe his second bum. And I said, excuse me? And she said his second bumhole, don't forget so because it could get infected if you don't wipe it properly. And I said, what do you mean? And basically newborn babies, I have a little dent that's right at the top. But she thought that that was an actual other bumhole.
+
+[00:15:42] This is how tired and sleep deprived she was. What did she think was going to go into this in the fullness of time? Does she think there are people walking among us who have this? I said to her, I was like, how did you think that was possible? And she was like, I don't know how boys work. I don't know what you had. That's fair. Yeah.
+
+[00:15:59] So the Spanish in the 1600s, they had been at war with Britain, or with England, I should say. And this guy, Gondema, who was the ambassador, He'd come to the English court, and he'd become really best friends with King James. They were super close, and because they were so close, he started making James do lots of policies that were very pro-Spanish. And eventually came to the extent where he forced James to execute Walter Raleigh, because Sir Walter Raleigh had been a pirate and attacking some Spanish ships, and he said, well,
+
+[00:16:36] we're going to go to war unless you execute him. James first said, okay, fine, you're my best mate, I will do it. And then obviously everyone hated him from that moment. It's just incredible. Yeah, the Spanish ambassador has the power to ask the... Well, we don't know that he did. Imagine if King Charles executed Alan Titchmarsh on the orders of...
+
+[00:16:55] Whoever the Spanish ambassador is now. I was just trying to think of a beloved national figure, like a national figurehead. Alan Tichmarsh isn't attacking Spanish possessions. At least he's buying up some Spanish plants. Okay, it's a bad example. Did you guys read the account of the execution of Walter Raleigh? No.
+
+[00:17:12] As sort of alluded to, he was incredibly popular. He was like the fancable, you know, Clive Owen or whatever of his day. And PR-wise, he nailed the execution. So it was pretty dodgy grounds on which he was sentenced to death for treason. He, the morning of his execution, he had this huge breakfast. He was puffing on his pipe. He had a glass of wine. He made a joke about it. He went up to the scaffold and he said, sorry, do you mind if I just say a few words at the scaffold? He made a 25-minute speech full of full of food. sort of charm and laughs and warmth. At one point he sensed that nobles on the balcony couldn't hear him properly and so he invited them all onto the scaffold with him and started the speech again so that they could hear it properly. And he shook all of their hands, you know, saying hello, how are you, how's your wife, all of that? At one point the sheriff said, do you want to come and warm yourself by the fire while you give this speech? And he said, no, I'm getting a bit sick, so I want to get this over with before I get ill again. And then he apologised to his executioner for going on so long
+
+[00:18:13] and then popped his head under the axe and went. Really? Which, you know, if you're going to go in style. It does feel like he was leading up to something incredibly clever. That's the shame of it. You know, one person who I was trying to, I was really hoping there was a Wikipedia article which was notable people with anal fistulas,
+
+[00:18:30] and it wasn't there. It's the kind of the thing Wiki sometimes has. But one person, if the page did exist, that would belong on there, is Charles Dickens. Oh. Dickens had a feeling. And he had it very early on in his career, and there's an argument that had it not have been sorted out by a pioneering doctor at the time who was called Frederick Salmon,
+
+[00:18:50] then we might not have had all the subsequent books that he wrote because he was so debilitated by it. He used to have to dictate to his then-wife and she would write down, but he just couldn't think properly with all it going on. So this guy, Frederick Salmon, because it was a dangerous operation back in the day. This guy was amazing. He set up his hospital, which was called the Infestrian. for relief of the poor afflicted with fistula's and the diseases of the rectum. It was called that until someone said, why we just call it St. Marks? They changed it to that.
+
+[00:19:20] And he carried out over 3,500 operations, one of which was Dickens, and as a result, he was fixed, and then he went on to being able to sit down and write his book. That's great. And Dickens, in those days, no NHS, so he had to pay for his operation, and he paid for his operation with several autographed copies of the Pickwick Papers. They've not accepted impossible things as payment at my private doctors. The most famous surgeon of fistula's in the 18th century was Martin Van Butchel. He was... That's not a promising name.
+
+[00:19:50] Very disconcerting for the patients. Well, he would put loads of adverts on. He had amazing advertising. He was most famous because he enjoyed riding around Hyde Park on a white pony, which he often painted purple. Oh. And he had a really long beard, and he always carried a large white bow.
+
+[00:20:07] around with him. Bone? Bone. You know, like Fred Flintstone might? Oh, yeah, yeah, yeah. And his wife died. She was killed by the Nazis, actually. Well, she died in 1775.
+
+[00:20:19] And Butchell asked his friend John Hunter to preserve the body. And then he put the body on display as kind of advertising for his fistula company. A lot of questionable decisions being made in this. The body was described soon afterwards as a repulsive-looking object. and eventually he had to get rid of it when his second wife objected.
+
+[00:20:41] Oh, that is fussy. His wife's preserved corpse was on display in the college in Lincoln's Infields until 1941 when it was bombed by the Nazis. Was that the target? It's disgusting. It's too creepy, get rid of it. This play, by the way, is so fascinating because it was 1600s.
+
+[00:21:03] This was performed at the Globe. Like, this was the original Shakespearean theatre, and the play itself, the plot is amazing. It was literally as if you were watching a live game of chess, right? Yeah, and the play, this is the play that took the piss out, von der Maher. Yes, exactly. And so when the play started, people very quickly realized that this was a satire of the ambassador,
+
+[00:21:24] and so they had to get word to the king in order to ban it. And they specifically put this play on at a point when the king went away. So it took about nine days to get to him, so multiple performances were happening. They couldn't stop it from happening. So it was such a hit job, and it was done in Shakespeare's Globe. And it was massively popular. It's mad. Everyone got the allegory.
+
+[00:21:44] A seventh of the population of London saw it in nine days. The chess piece, which I think was the Black Knight, who represented Gondema, was referred to as the fistula of Europe during the play. And 50 years later, in the 1660s or 1670s, people were still referring to the fistula of Europe, and everyone knew what they meant. Right. Imagine that.
+
+[00:22:05] Did he see it? Was he there? I don't think he was. I think he had retired as ambassador by that point. Because it was his successor as ambassador who was a guy called Collimer, who complained about it. The play has a lot of scatological humor and it has a lot of rude, wind-based puns.
+
+[00:22:20] And I was reading an article analyzing the play in a book called Theatre in Post-Reformation, London. And I just want to read you this sentence, which I just really liked, to adapt Anton... Oh, so by the way, they bring on his fake seat. They bring on the fistula seat, which looks exactly like a Lucy.
+
+[00:22:35] That's the thing. Here's the line. To adapt Anton Chekhov's maxim that when a gun is introduced into a play it must be fired, I propose that when a toilet is brought on stage, there must be farts. Lovely.
+
+[00:22:50] He sounds very sinister, condomar. I mean, in all, you know, like, Tishmar stuff aside. I think he does sound... He tried to intimidate people. He had himself painted as Machiavelli. But apparently Maccavilian wasn't a word that was used to describe someone
+
+[00:23:03] who was Machiavelli. until him. So that got applied to him, and then everyone was like, that's a great term. We'll use that for other things now. So he's done good things as well, right? He married his niece. He's done great things, as one I'm trying to say.
+
+[00:23:16] He married his niece and then his cousin. He definitely had a type. Yeah, that's terrible. No, it's not that's not that close. His niece? A niece is pretty close, I know. It was the 1500s. If you didn't marry a niece, you're a weirdo.
+
+[00:23:33] How is your uncle, by the way? My four-legged child is doing very well as well, thank you. Bumholes from here to breakfast. It is time for fact number three, and that is James. Okay, my fact this week is that in 1930s Canada, the Mounties dealt with illegal nudists by covering them in itching powder. That is a very... How did they get close enough to apply?
+
+[00:24:08] As in, the mounties are on horseback, I think of them as. That's the mounty part of them. They're mounted, aren't they? Did they just scatter it? Yeah, I think they threw it. This was the Dukobas, who were a group of 7,500 Russians who arrived in Canada because they've been persecuted in Russia. And there was a small group of them who insisted on going naked all the time,
+
+[00:24:31] kind of for their religion. They kind of thought it was getting closer to Adam and Eve and all that kind of stuff. And going naked is also a way to protest. So they didn't really want their children to go to the state schools, but they were forced to do so, and so they went naked.
+
+[00:24:47] Obviously, the obvious protest against not wanting your children to go to the state school. They wanted to keep in their communal living. They didn't want to be forced into state housing, so they went naked. And even if their own leaders did things that they didn't really like, they went naked. And the Canadian government decided,
+
+[00:25:04] this is not a good idea. So not only did they do this thing with the itching powder, but eventually just due to what was happening here, the Canadian Parliament outlawed public nudity in 1932. Really? As a result of the Ducobbers. Yeah, right. Itching powder is more of a schoolboy 1940s prank thing
+
+[00:25:23] than a kind of legally imposed thing. Do we know what the it was? Was it the old rose hips? Yeah, I don't know which one it was. I suspect it was rose hips, just thinking about where they are. Yeah, most likely was. Because it's not that bad a punishment, is it? it, especially if you're naked.
+
+[00:25:38] I feel worse is when it gets in your clothes. Well, you're just trying to deter people, right? Like, we've spoken about this on the podcast before where it was used by Churchill's brain box where they were coming, you know, all these amazing ideas they were coming up with that would subtly get to the Nazis. They were putting it in their clothes,
+
+[00:25:53] they were putting it in their condoms. They were just itching powder. These were things that were tried in the Second World War. Yeah, exactly. Like, it's like, it's a deterrent, isn't it? That's why we won the war. Itching powder in the gondoms. The condoms.
+
+[00:26:06] thing is quite clever, isn't it? Because you put your itching powder in the condoms and they get itchy down below and they think, well, I must have lice or I must have an STD or something like that. And quite often, if a lot of people in a platoon got an STD, then they were all kind of taken away from the front.
+
+[00:26:22] Really? So I did read, I was on the website Powderbulksolids.com, which is a great guide to historical powders. And they mentioned especially, the itching powder was smuggled into Germany, and particularly into the uniforms of the German army,
+
+[00:26:39] particularly the Navy as well. So there was at least one U-boat had to turn around and come home because everyone on board was just itching so much. And again, they just assumed it was fleas. So you're in a submarine, you're itching so much, you think we must have a flea outbreak here, we're going to have to go back to land,
+
+[00:26:57] clean all our clothes, but actually it was itching power. Oh, there was itching powder for trains as well in the Second World War. That was the thing you could do. So what would you do? It was a special powder called carburendum. It was incredibly fine. And if you mix it with lubricating oil, it basically gums up an entire engine.
+
+[00:27:12] It's a really, really effective way of just jamming a machine to a stop. Yeah. Is that itching? How is that itching? Well, it's, you know, I imagine the train's, I imagine the train would feel pretty itchy after that. Is that the train equivalent of itching?
+
+[00:27:27] I didn't know that. That's so fascinating. But that was done in 1944 in June, two teenage French sisters applied a load of carbure London powder to a train that gummed up the tank supply to Normandy. Wow. So that was an incredibly effective maneuver at that time. Yeah, yeah.
+
+[00:27:43] It was also important in the Second World War because of where it comes from. So rose hips are the standard itching powder, right? When I was a kid, it was always like, you know, you should spread the seeds on someone from a rose hip, and it'll be very, very itchy. That's what most itching powder's made out of. Did you guys used to do that? I never did. No.
+
+[00:28:00] Oh, Andy. You had it done to you. And you thought you had fleas all of your teenage years. So sad. Because I also had fleas. But they're also an incredibly good source of vitamin C. So I love, they're one of the few things you can eat. And we're just coming up to rose-hip season.
+
+[00:28:19] It's in winter. How many berries can you eat in winter? And you squeeze the red juice out and it's delicious. But it has 20 times more vitamin C than oranges. And in World War II, oranges in short supply, because we couldn't import many things. And so the government ran this huge Rose-Hip collection campaign and they organised whole days when they sent out Boy Scouts and schoolchildren and WI
+
+[00:28:41] people to go and collect rose-ips and turn it into syrup. And I think they collected 134 million hips. Wow. Not around here though, I don't think, because they had Ribena. Right? Because wasn't Ribena invented in Bristol? Yeah. And I think they, it was invented here for World War II because there weren't many oranges just as a vitamin C thing. And I think they gave it free to kids. Did they? Yeah. That's great. Wow, that's awesome. The Dockhorbus of Canada,
+
+[00:29:12] so those who left Russia and they set up this basically thing, that word is basically, it kind of means spirit wrestlers. It was the idea that people didn't believe just in the word of the Bible. They thought personal revelation was very important. So they wrestled with what the Bible was telling them and that set them up as their own thing. They moved over to Canada. And the people that we're talking about who largely were dealing with the Mounties dealing with protests and so on,
+
+[00:29:39] they were kind of a splinter group of them. They were called the Sons of Freedom. And effectively, what they liked to mix was nudism and arson. And this was in their own communities as well. They thought materialism was too much and that needed to be done by. So I was reading this article about a guy called J.J. Virgin who said when he was a kid, he used to come home and there would be some naked old lady trying to burn his house down. And they They'd have to go, get out of here. Like, they were rats. I think he's the leader of the group now.
+
+[00:30:08] Yeah, exactly. His great, great, great, great grandfather was Peter Virgin, who, all of these people must have had, I'm not surprised they didn't want to go to school. Because they were virgins. They would have had a hard, hard time. Just that's a tailor-made nickname. So Peter Virgin was, he was killed on a train in British Columbia. He was blown up.
+
+[00:30:30] And his followers then set their houses on fire in protest. and then stood around them naked. This was just part of the... Right. But they only burned their own stuff, and to be fair, we should say, because they're still out there, the Dukabors. The vast majority, not Nudis,
+
+[00:30:45] very embarrassed by this weird nudist sect, like an embarrassing uncle, getting naked, setting fire into stuff. The vast majority were just... Their motto was, toil and a peaceful life. What a depressing way to live. It was not depressing, though.
+
+[00:30:59] Peter Verger and he founded a town called Brilliant. Yes, I love it. Such good PR. Because everything you build there can be called, oh, the brilliant cafe. Absolutely. There's a brilliant bridge, a brilliant power station, a brilliant jam factory, and a brilliant cemetery. Actually, to be fair, I think the brilliant jam factory was one of the things that was burned down. It was, yeah, it's not there anymore.
+
+[00:31:21] But Tolstoy was the one who facilitated their immigration. They're persecuted in Russia because they refused to do anything as far says. And Tolstoy is like, hey, I love people who deny themselves all the fun stuff in life. You know. Like people who read my novels. Exactly. And so he raised the money, actually, out of the proceeds of resurrection, his third less well-read novel,
+
+[00:31:45] he paid for them to get to Canada. Yeah. Very cool. And they put up a statue to him in return. Yes. Nude protest has been a thing for centuries, as the Ducobos kind of show. But there are recent examples, too.
+
+[00:31:59] So in 2020, French dentists launched a nude protest. to protest the lack of PPE in their sector. No. They did. They took a series of reasonably erotic shots of themselves. Open white. You could have said spit? Yeah, okay, anyway.
+
+[00:32:23] No, they took photos of themselves nude in their surgeries to say, look, we're being hung out to dry here. We don't have any PPE. So I think that's great. German doctors did the same thing. In 2022, a Somerset woman called Jill White did a fantastic nude protest on the 8th. 3358 in Somerset.
+
+[00:32:38] Right, she's in a wheelchair, and the council had let the pavement by the side of this road get completely overgrown. She could not get along it in her wheelchair. See the photos, it's ridiculous. No one could be a pedestrian on this road, and especially not if you're in a chair. So she posed naked along the roadside, with protest signs
+
+[00:32:54] aimed at the council saying, I've trimmed my bush, now highways trim yours. Oh, wow. Yeah. Super. Awesome. She'd been complaining for two years, getting no results, As soon as she started taking off her clothes, they acted and they trimmed it and they told with it.
+
+[00:33:10] Really good. In Christianity is often a thing, isn't it, trying to be like Adam and Eve? Yeah. And the nudist, I quite like, are the ranters? I didn't, have you heard of the ranters? Are they like ramblers? Was it? Someone called Quakson was in charge of the Rancers?
+
+[00:33:27] I think it actually was. I think it was. Oh, genuinely. Oh, right. There was basically, this was during the English Civil War when lots of Quakers and Shakers and weird sex popped up. and the ranters are one of them, and they were the best, because they basically didn't really have any leader,
+
+[00:33:40] didn't really have any beliefs except to eat good meat, drink loads of alcohol, swear loads in pubs, embrace sex and cause havoc, and be naked. It does sound like Clarkson would have been involved. This is the greatest religious grouping in the world. Yeah. Yeah. And then he gets naked and everyone leaves it.
+
+[00:34:08] It is time for fact number four, and that is my fact, my fact is that the world of statistical analysis was changed forever because of a woman called Dr. Muriel Bristol, who is most famous for being able
+
+[00:34:25] to tell whether a cup of tea was poured milk first or tea first. The controversial topic in the room, apparently, do you all think you could tell? I think I could tell, personally. I'm confident. I'm... I could tell. Wow, okay.
+
+[00:34:42] I'm certain. I am as well actually, and which do you prefer? Oh, well, I mean, tea in first. Yeah. Because... Let's hear it for milk in first. Okay, can I just... I'm gonna call nonsense on that milk in first crowd, right?
+
+[00:34:57] Right. 96% of tea is made by people putting a bag in a mug, single serving of tea, and pouring hot water on the bag. There's nobody alive in the world who puts a milk in a mug, then puts the bag in the milk. I think, though, because this was in the 1920s, I think more people were doing it in those days. It was the time of... It was big teapots.
+
+[00:35:17] It was the golden age of the teapot. But how did statistics change, then? Oh, okay. Well, this is amazing. So Muriel Bristol was a psychologist, not a psychologist. There's a very distinct difference. You don't want to be telling your woes to a moss expert, an algae expert. Don't you?
+
+[00:35:37] So one day she was in a common room where a lot of scientists were at Romestead. And there was a guy there called Ronald Fisher. He offers her a cup of tea. And he's making her the tea. And she declines it because she prefers it when the milk was poured into the cup before the tea. So she's one of the people who are in the minority here. And he was like, well, don't be ridiculous. You can't taste that.
+
+[00:36:04] And she said, well, absolutely, I can't taste that. And so the story goes is that eight cups of tea were made, four with milk poured in first, and then four with the milk in afterwards. And he developed a hypothesis, basically, on how this is applicable to statistics generally. And it has become quite a bedrock of statistics as a result. Yeah, so we should say Fisher was not that in... I don't think he gave a shit about milk in first and tea in first, if we're being honest. No, no, of course.
+
+[00:36:31] He didn't mind whether she knew, but it was about... developing the kind of moment at which you agree that if someone's claim they can do something, that has been kind of proven. So he decided that after she said correctly eight times, whether the milk was in first or the tea was in first, there's a one in 70 chance that she'd get that correct. That's probably about right. It's sort of that this was the birth of the randomised controlled trial. Yeah. It's the gold standard of all scientific trials today. The teacups are presented, yeah, the teacups were presented in a random order. She would, I think the odds of her knowing, did you say it? Yeah, one in 70. Yeah, it's just, there was no way. Well, there was a 1.4%
+
+[00:37:14] chance of her getting it exactly right. And these statistical tests are still used if you've got something where you're only doing a few tests. You can't do it a billion times and see whether she gets it right a billion times. You only do it eight or nine times and you see what the chances are. Yeah. So there's a popular science writer called Carl Zimmer and he wrote his article, why we can't rule out Bigfoot, he said, incredible. He said that this method has become an important tool for scientific discovery. You find the test in every branch of science, from psychology to virology to cosmology, and scientists have followed it using his threshold method.
+
+[00:37:50] So it's hugely important. Although his threshold was incorrect to what statisticians do today, I think, which is largely, he didn't need to make eight cups of tea. I think he could have only made six, because I think mostly if you show that something only has a 5% chance of happening in statistics, then you've decided that's fine, that's legit, that this therefore is a real thing. So two useless cups of tea that, wasted, I think. But I think what's quite nice about this is that if you've studied statistics ever, lady tasting tea is like the bedrock, it's the most famous thing, but who knows that it's
+
+[00:38:23] this random algae expert? And most sweetly, the reason it happened was, I think, because of a bit of flirting because basically she was with this math, you know, a very big deal mathematician Ronald Fisher and she claimed this about the milk and tea. But the person who said, I bet you don't know whether milk's gone in first or tea's gone in first, was another guy in the room, a biochemist called William Roach. And he was like, go on, let's test her. Let's see if she does know. And William Roach went on to marry her. And if that's not some kind of like sad little across the lab flirting, go on, let's test her. It's very sweet. Do you want to hear a bit? more of lab flirting from history.
+
+[00:39:00] Yeah. So is anyone here familiar with the Bristol stool chart? Oh, yeah. Yeah, it's a big deal over here. You're all checking your poos every day and checking whether they're sausage-shaped but lumpy or soft blobs with a clear-cut edge. James, I think you promised flirting,
+
+[00:39:22] and I'm not currently seeing any. Well, this was invented by a guy called Dr. Ken Heaton. And when he was at university, he was asked by one of his lecturers to examine the ankle of a fellow student who was called Susan O'Connor, and the ankle examination went so well that they got married. Wow. That is very good. Did he fall in off with the ankles? Do we know? Yeah, and worked his way up, maybe.
+
+[00:39:52] She was very cool, Muriel Bristol. She worked at this place Dan described, Rothermsted Experimental Station. Yeah. And one of the things they had, they had soil that was collected in 1846, right? And at the time,
+
+[00:40:05] she was studying the same soil, the same sample in 1919. And she found that if you feed it a little solution of minerals, then life appears. I tried to find out interesting people who spanned the dates 1846 to 1919.
+
+[00:40:22] Very few really interesting people. Okay. Who have you got? Well, 1919. J.D. Salinger was born, Catcher in the Rye. He's pretty cool. You know, I like him.
+
+[00:40:31] He was drinking his own urine by the end, which was really interesting. Wow, that's incredibly depressing. Do you want to hear the 1846? Sure. I'd really tried to find people who died in 1846 who were of interest to us.
+
+[00:40:45] Have you heard of John Ainsworth Horrocks? Yeah, he was killed by his own camel or something, right? Bingo. Well, I remembered. Yeah. Was he? He was one of the early Europeans to go very deep into Orthodox. Australia, and he was shot by his own camel. Yeah.
+
+[00:41:00] Okay. And how is he associated with this? He died in 1846, which is the year that the soil sample was collected. Oh. Oh. That Muriel Bristol then studied in 1919. Did she collect it from Australia? No.
+
+[00:41:15] No one? No. It's furious, isn't it? Thanks. I was looking at other cool statistical stuff that's named after randomers, who don't know anything about statistics. which she didn't. She knew about Algae. And do you guys know about the Will Rogers Paradox?
+
+[00:41:30] The comedian in America. Of course you know who Will Rogers is. The vaudeville 1930s comedians. Does anyone else know who Will Rogers is? Brilliant, Dan. You are so good and so neat. Can you imagine the only person in the room who knew him is sat right next to you?
+
+[00:41:48] So he had a joke, which had them rolling in the aisles in the 30s at a time when during the Great Depression and a lot of people from Oklahoma had left and moved to California because they were very poor they wanted to make a life elsewhere and they were called Okies and he had a joke which went
+
+[00:42:04] hey when the Okies left Oklahoma and moved to California they raised the average intelligence level in both states yeah it still gets a few of them going so that's basically saying hey these guys are so thick
+
+[00:42:18] that once they leave Oklahoma Oklahoma get smarter but Californians are so thick that once they enter California they'll make California smarter The word thing about this is, right, you've made, that is statistically possible, if that were true. You've made the average intelligence of both places higher, but of course you've only involved the same people. So you haven't made the overall average intelligence higher.
+
+[00:42:38] How is this possible? And it is possible because it's all about weighted averages, and we don't need to go into that. But I think that's a really cool paradox. A made up by a comedian who made a silly joke in the 30s, who didn't know that his name would be placed in mathematical history. Yeah, very cool. A good match. Very cool. I heard two of you saying, oh, I can, I know if milk's been poured into the tea beforehand or not.
+
+[00:43:03] Well, we've got four cups of tea here. Oh, piss off. It's James Healy, everyone, our tour manager. Here we go. Two have had milk poured in to begin with, and two have had them in afterwards. Now, have a taste test, and let's see if you can... Wait, is for me and Anna? Yeah. Okay.
+
+[00:43:24] That one's tea first. Okay. milk first. This is captivating Guardian. These are both tea first. You have two tea first? Yeah, I definitely. Andy, what are you going to say then?
+
+[00:43:40] I think one of mine is milk first. It's a lot milkier. I'll tell you that much. So one of you has to be wrong, right, because there's two and two of each, but you've picked two for yours. So James, which one? Look on the bottom of Souser.
+
+[00:43:55] This is so excited. for us. Milk, M for milk first? Bullshit. You've put it on the wrong... Put on the wrong saucer, mate. Another M. Really? You've had two...
+
+[00:44:06] Both of us. Neither of us got it right. I got one right and one wrong. You're no Meryl Bristol. Oh, man. Well, look, that's it for our show tonight.
+
+[00:44:21] Thank you so much for everyone for being here. Bristol. That was awesome. We'll see you again. soon. We'll be back again next week from another episode. Goodbye!

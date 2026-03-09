@@ -1,0 +1,285 @@
+# No Such Thing As A Fish - No Such Thing As The Three Little Pigs of Wall Street
+
+- Episode date: April 20, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-three-little-pigs-of-wall-street
+- Slug: no-such-thing-as-the-three-little-pigs-of-wall-street
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you for the first time from the new QI offices in Hoburn. My name is Dan Schreiber. I am sitting here with Andrew Hunter Murray, James Harkin, and here to cut the red ribbon and officially open the new Fish Podcasting headquarters is the founder of QI himself, John Lloyd. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. and in a particular order, here we go. Starting with fact number one, that is Andy. My fact is that there was a job in medieval times called the Municipal Swineherd, who was effectively a professional pig walker
+
+[00:00:54] for city dwellers who didn't want to walk their own pigs. Right. Yeah. It's just a job that you used to be able to get. Before we go any further, actually, I should say this fact was sent in to us at podcast.cui.com by a listener, sent in by Andrew Salamune.
+
+[00:01:10] So thank you very much indeed for it, Andrew. Were they on leashes? No, I don't think they were. That's a more difficult job, then, I reckon, because you're caralling the pigs as well as walking them. It's difficult in that way, but it's also very hard I imagine to keep a pig on a leash if it doesn't want to be. Is it?
+
+[00:01:27] Really? Pigs are very strong. But they're also very intelligent and can be trained. You know, you can teach a pig to dance. No, you're right. Well, yeah, I don't think they were. This was in the middle-aged. Sorry, John.
+
+[00:01:38] Can I just pick you up on you can teach a pig to dance? dance. Yeah, well, they're very intelligent. They're right at the top of the Animal League, smarter than dogs, sheep and horses. They can be house trained, taught to fetch, come to heel. They can pull carts, they can sniff out landmines. But can I bring you back to the dancing
+
+[00:01:54] point. Pigs can dance. Apparently they can, yes. Were they sort of like vaudeville acts or? It's mainly flamenco down. They'd click their little heels together like castanets, you know? They like watching television. They have their own favorite programs.
+
+[00:02:10] Pets? Pepper Pig? I don't know if Pepper Pig can watch television. No, I was wondering if Pepper Pig was one of their favorite TV shows. I'm sorry to be late to this, but the Fox Trotter would be an example of a dancer pig could do. And South Park would be a TV show they might like. Should we drag us away from these? Sorry, yeah, yeah, yeah. Back into the middle eight as we go.
+
+[00:02:31] Hooray! So these are the first professional pig husbands, I guess you would call them, in Europe. They were these village swine herds. And it was in a time when everyone had their own pig. A pig was an amazingly useful thing to have. It was a waste disposal unit, but it was a waste disposal unit made of pork. What a delicious... Go into that a bit more. Well, you feed it leftovers and scraps from the household, and then when winter comes, you eat the pig. It's like, if you can eat your wheelied in. Yeah, yeah, because no, in the Flintstones, that's what they, the trash is a dinosaur that eats the trash sitting in a drawer.
+
+[00:03:04] So it's kind of like that. It's probably based on these academic studies of medieval municipal swineherds. Yeah. And there was a pig daycare thing, though, because you didn't want to look after your own pig all day, being a busy middle class peasant in the middle ages. And you would have a village swineherd who was rewarded with a sucking pig each year and the entrails of any animal which have been slaughtered.
+
+[00:03:27] What did the sucking pig actually do, or is that a vulgar question? You said they could be trained to do anything, John, is that? But they are part of the animal. animals pigs. Some pig farmers keep lights on in the stye at night. When the farmers go home at the end of the day, the pigs don't settle down. They start eating, drinking and having fun for small hours.
+
+[00:03:49] That's actually their favorite show, the sty at night. Actually, I read one cool thing about lights in pig styes, and that is to get rid of the smell in pig styes, you can paint it with titanium oxide paint and then fire UV light at the paint. and that will somehow break down the chemicals, which will stop it from smelling. And it's even better if you put a disco ball in the middle of the pig's dye. It will fire the UVI light out in all different directions, and it will make it smell better more quickly.
+
+[00:04:21] And you know why the disco ball's there because of the dance. Yes, exactly. Medieval pigs don't look like our modern day pig. And this is something that has led to a lot of annoyance in the world of academia, because a lot of medieval scholars are constantly finding themselves. I say constantly, it's one guy as far as I can find, being pissed off by their representation within video games these days. So there's a lot of video games like Assassin's Creed Valhalla,
+
+[00:04:49] there's medieval dynasty foundation, where they represent pigs as a modern day pig. It's pink and it's hairless. It looks nothing like the pig is today. Minecraft? Maybe in Minecraft. There are pigs in Minecraft? Minecraft, yeah.
+
+[00:05:03] And so actually of the time, if we want to picture an old pig. It's long-legged. They're quite small, long snouts, very lean figure. They had arch-crested backs, and they had long-curved tusks as well, according to this academic. I suppose if you made them look like that in the video game,
+
+[00:05:21] people might not realize they were pigs. Yeah. What you've described as a stalk, basically, as far as I can tell. Wow. But you mentioned leads. Did you know the thing about Gerard de Neval, the 19th century French poet who had a pet lobster called Thibble,
+
+[00:05:38] which used to walk around Paris on a blue silk ribbon. So he did have a lead for the lobster. So he could walk on a lead. He was asked why he had a lobster as a pet, and he said, they are peaceful, serious creatures. They know the secrets of the sea and they don't bark. And it was a very... He know the secrets of the sea.
+
+[00:05:54] It was a very sedate job because I'd check this out. In lab tests, the maximum recorded walking speed of a lobster is 2.5 metres per minute or 144. meters an hour. That's a good easy job a professional lobster walker. It feels like at some stage you would end up dragging the lobster more than walking it doesn't it? If you've got to get back for
+
+[00:06:14] lobster dragging. I did the other day in a big railway station I saw someone who had a ferret on a lead. That was nice. Yeah, which you do see occasionally. You know, because they do need to be able to put it out of your trousers at will. I got sent a picture from my friend Emmy in Hong Kong
+
+[00:06:32] of someone walking a lizard on a lead. Like one of those big, big lizards. Like a commode dragon? Yeah, exactly. But not a commodeo dragon. No, no, no, but like, sizable. A real lizard or a shape-shifting lizard? It was one of the members of the royal family in a visiting Hong Kong.
+
+[00:06:46] Monitor, I guess. Yeah, it could be. Yeah. I went into my local, sorry, we're just bragging about animals we've seen lately. But I went into an aquarium shop the other day. Oh, yeah. I was trying to buy some... Fish?
+
+[00:07:02] Springtails, actually. You know springtails, there's tiny insects. Yes. Why do you buy those? I needed to fertilise some soil because I did a terrarium workshop and I made a terrarium. Anyway, I went in there to get my springtails, which are very cheap, three quid for a big box of springtails. Anyway, they had an axelotl in there. I was staggered. Because I, you know, they're very rare. Did you not buy it? Because, oh, really. I didn't have anywhere to put it. And the guy who ran the aquarium shop was quite annoyed because he said when he doesn't have an axolotl in, people only ever say, well, do you not have any act lot
+
+[00:07:34] And then when he does, they just come in and look at the axolotl and then don't buy it. You know, they treat like a zoo. That does feel like one person is going in there every week as a joke and asking for axolotles. Is an axolotl an amphibian? Yeah. I think it is. Yeah. Because they're extinct in the wild, apparently.
+
+[00:07:51] Yes, they're only in two canals in Mexico City now. Yeah. And apart from zoos. And the, because I ask amphibians, because another great medieval job was a frog stoner. They used to hire people to throw pebbles into ponds, shut the frogs up at night. Partying as well. That's so great. The Animal Kingdoms all parties.
+
+[00:08:13] But I did think it's a bit of boring job for a pig walker in the middle age. It's a municipal swineherd. And I thought we should come up with a better name. So there's some great walking words, plutch to flap the feet while walking like a seabird from Shetland. prol a short enjoyable walk that's from kent proper stroll i should think it stands for shawlv to saunter with extreme laziness from east anglia to spandle to leave wet footprints on a floor another kentish down a wall so do you think swine spandler i think it's actually a hog plutcher you know there was this thing later on after the medieval pig thing urban pigs were a big deal
+
+[00:08:57] basically in manchester everyone had their own pig and we know this partly because of friedrich Engels, who was writing about the conditions of the working class in England in the 1840s, 1845, and he wrote that that was the case. And another writer was describing North Kensington. And in the mid-19th century, in North Kensington, pigs outnumbered people three to one. Really? It's quite a lot. There's more pigs in Spain now than humans.
+
+[00:09:22] Really? Yeah. Pigs in Spain. In the 1820s, there were more pigs in Manhattan than there are. cars in New York today. Wow. Wow. Well, you know the movie, The Wolf of Wall Street? No, was it previously going to be called the Three Little Pigs of Wall Street? It should have been called that as a prequel. The prequel would have been that, exactly that, because the wall of Wall Street initially was a wall, right? This is when the Dutch were there. And they built, yeah, they built
+
+[00:09:52] this wall, and this was during the 1600s, so 1653 to 1699. As they were building the wall, there was a picket fence that was there before. A pig it fence. A pigate fence. And it kept getting knocked down by pigs. So it was a huge problem. And they brought in municipal swineherds to try and curb it. And that didn't happen.
+
+[00:10:11] So then they had to decree that you had to keep your pigs at home until the construction of Wall Street was built. So the Dutch thing, New Amsterdam, I happen to know that there's a Dutch word Utvain, which means to take a bracing walk in the wind. Isn't that a lovely thing to have a word for? Yeah. And then the Dutch for Peek is big. Is it really big?
+
+[00:10:32] Yeah, big. That's great. You're learning Dutch at the moment. I am, yes. Yeah. What was the phrase you gave us just before the show started? Who waiten we of de der in the de deer and do in the d'Euchy? Which translates as, how do we know if the animals in the zoo are happy?
+
+[00:10:50] Great. Very philosophical people. You know truffle pigs? You've heard of truffle pigs. Yeah. That hunt for truffles. And in the Middle Ages, they didn't, they did hunt for truffles. but they ate them
+
+[00:11:01] because nobody in the middle ages ate truffles they thought that was weird I agree foxes, badgers, wolves wild boar pigs and rats ate truffles and they only came back into favour in the Renaissance
+
+[00:11:14] so I got interest in truffles and Rossini the composer called the truffle the Mozart of fungi which is rather nice isn't it and he claimed to have only cried three times in his life
+
+[00:11:25] Rossini once when his first opera was booed once when he had Paganini play the violin in and once when he was picnic on a boat and the truffled turkey fell over board. Okay, it is time for fact number two, and that is my fact.
+
+[00:11:45] My fact this week is that the comedian Bob Hope was so reliant on his writers to come up with jokes for him. He even had them provide bespoke one-liners for his social life. So, we all know Bob Hope. A lot of people don't these days. Just in case. Just in case. It fell on Stony Grandin.
+
+[00:12:03] Let's move on to the third fact. So Bob Hope So you said comedian Yeah Bob Hope was possibly the biggest comedian in the world He was huge He was huge He lived to 100 years old
+
+[00:12:15] He hosted the Oscars 19 times He was a box office hit During the 40s Number One movie At one point in the 40s Was a Bob Hope movie He received its estimated 38,000 fan letters per week
+
+[00:12:28] During the 1940s This is how loved he was But he's the person Who effectively created the idea of the modern stand-up monologue, where he incorporated himself, the audience, the situation around him, the topical news of the day, and he used to hire so many writers. He was the first person to acknowledge he had writers as well properly. He would mention, hold the cue cards up higher, you know, during his act.
+
+[00:12:52] Be quicker on that. You wouldn't say that if my writers were here, those kind of lines. And yeah, and so so much was he reliant on it that, as I say, even if he was going on like a golf game. And he knew that he had some powerful CEOs there that he wanted to impress. They would write these jokes for him and he would memorize them and bust them out as if they were ad libs. Great idea. Yeah.
+
+[00:13:12] I'd love that. He'd gotten a lot of stick from other comedians, the Lenny Bruce's and the growing world of comedians who were autos and wrote their own material because they saw him as an actor as opposed to a comedian. But I'm a big fan of the way that he led his life. I think, and his comedy life particularly, I think that he innovated so many things. So if he was going to play in a town, he would send his riders ahead, days ahead, and they would scope around the whole town, they would look at the local shops, they would meet local people, and they would base the material they wrote for him on that. It would have been weird, though, if he's doing a joke about the local hardware shop.
+
+[00:13:46] No, I think that's... Well, do you remember, like, when we went on tour, we would do facts about the local town? Oh, yeah, but that was good. That was great. That was, you know. It was a completely different. John, did you ever meet Poppe? No, but I spoke to him. Really?
+
+[00:14:00] Yeah. One Christmas Eve. to produce a live radio two show called Late Night Extra when I was very, very young, sort of 24 or something like that. 23 even. And I was producing one on Christmas Eve. And I had the best address book in the world probably. It was amazing.
+
+[00:14:17] Everybody's singing, for some reason, I had Bob Hope's phone number. So I phoned him up in California on Christmas Eve and said, Hey, Bob, how's it going? He goes, who is this? Who is this? I said, it's the BBC in London, Mr. Hope. He goes, oh, hi there. Hi, Guy. How are you?
+
+[00:14:31] He was great. Have you still got the number? Let's call it that. But he was interesting that his attitude to write, he paid them very well. He did acknowledge them, but he didn't think the writing was the big deal. He said creating the character was the thing. And the lines were just something that the character said. Yeah.
+
+[00:14:52] Weirdly, a lot of people in recent biographies say that he was terrible at paying his writers. That was sort of an idea that he was really good. Jack Benny would pay two writers the same amount. Jack Benny being another giant comedian of the day, the same amount that Bob would pay 20 writers. What he'd do is he'd find young writers. Didn't you say that Jack Benny hated him because he had writers? Not Jack Benny.
+
+[00:15:12] No. Oh, I thought you said people like Jack Benny. Lenny Bruce. Lenny Bruce. Yeah, yeah. Jack Benny and Lenny Bruce are both double first neighbors. Yeah. Like Craig David or David Cameron.
+
+[00:15:22] Anyway. Do you know who Bob Hope's most famous writer was at least the one I'd heard of? No. Larry Gelbart. Oh, yeah. Who's that? When he was very young. He was the guy wrote Mash.
+
+[00:15:31] Oh wow, okay. And Bob Hope, one of the things he used to do was tour. He was basically, not only as you say, Dan, did he sort of invent stand-up comedy, but the touring American forces in the 40s and 50s was also a thing that was really, nobody had ever thought of doing that before. And he did a lot. And Larry Gelbart worked for him as a very young man, and he was inspired by a tour of the Far East to write Mash.
+
+[00:15:56] Yeah, Bob Hope famously used to do a Christmas show that he would do from the front lines of wherever a war might be going and after a war while people were still stationed out there. So most comedians and acts would go out while it was wartime and he kind of continued on. So he died age 100. He did 48 Christmases out on the road. So 48 of his Christmases were spent in a different country performing to troops. And one of them speaking to John Lloyd's. Yeah.
+
+[00:16:21] Yeah. In a way, like being in a war zone. Yeah. Sorry. Hope you Christmas. Should have been the name of the shows. Hope you Christmas. Never was.
+
+[00:16:29] Got to get 48 goes to get that. Yeah, never got there. Never got there. Exactly. Hope is a first name, by the way. Is it? Yeah, it's a woman's name. Bob Hope joins the ranks of...
+
+[00:16:41] But I was reading that about the wartime thing. Sorry. Jerry Lewis, two first names. Jerry Lewis, yeah. Dean Martin, two first names. Yeah. Did they all have first names? That's extraordinary.
+
+[00:16:53] Frank Sinatra, no. But he's not a comedian. Great point. All right, on we go. The thing about his war shows. Andy Murray. Oh, that's good. Yeah, yeah.
+
+[00:17:01] So it's not always comedians. John Lloyd. Yeah, fair enough, John Lloyd, yeah. I think John Lloyd and Andy Murray are in those weird category of Lloyd and Murray are kind of first names and kind of so-names. You know, they can be both. Yeah. It's not the pure simplicity of a Craig David. Agreed.
+
+[00:17:17] Okay. Did you have something? I did, yeah, I did. Well, no, I was just going to say what was particularly touching about the war shows is that for a lot of parents, brothers and sisters, whatever, friends at home, this was. the only time that they were able to see, possibly one of their family members who was off at war on camera during Christmas time. So a lot of the 38,000 letters that came to Bob Hope was from people saying, I got to see my boy sitting there in the crowd laughing at your jokes, and he didn't make it. He lost his life to the war. Thank you for giving me that moment where I
+
+[00:17:50] could connect with him. So they were really important shows to America at the time. His last military gig was in 1990 when he went to the Gulf at the age of 87. Yeah. And lots of the troops in the crowd for his final gig, they had fathers who had seen him in Vietnam. And some of them had grandfathers who had seen Bob Hope in the Second World War performing. It's mad the idea that you go to a gig and your grandfather saw the same comedian. Yeah. I mean, lucky that you managed to get two generations that they didn't die in the walls, to be honest. Yeah. That's true. Yeah. While reading about this, I found my favorite new Human.
+
+[00:18:26] Yeah, just like, it's an exciting character. So this is to do with the writers and so on. It's a guy called Barney McNulty. Bob Hope used to bring him everywhere with him. What do you think he did? He was part of that team. So not a writer. He's not a writer.
+
+[00:18:40] Was he a boxer? Because Bob Hope was a boxer before he was a comedian. He was, but no, he wasn't a boxer. Did he point out whenever he met anyone who had two first names? No, this is. I could do with one of those guys, James. Yeah. I'd love that.
+
+[00:18:53] I feel like you could be one of those guys, Andy. Oh, I dream, you know. What's somewhat like a just a personal, you know, assistant. Fuck, Batman. So what Barney McNulty was was the Q-Card guy. And everything was written on Q-Card. And Barney McNulty is acknowledged with having invented Q-Cards, basically. No one ever delivered monologues on TV before with Q-Card.
+
+[00:19:17] And Barney McNulty was the guy to do this. He said doing it was like it was like handling snakes. You had to work with the rhythm of the comedians. you had to have the font big enough in your writing and so on. Like a snake. Yeah. Because you said the comedians are wriggling around. They're improvising.
+
+[00:19:33] They're changing. You don't know where they're going to go. It's kind of an auto queue person. Yeah, like a modern day auto queue person. Because sometimes the auto queue can be done too fast or too slow. Yeah. Yeah. Auto cues are boring name.
+
+[00:19:44] It should be called a McNulty. Yeah. The McNulty, yeah. So McDolty was so important to him. Steve Allen, who's another comedian at the time, said that he was one sort of barbecue. Steve Allen. Yep, Steve Allen.
+
+[00:19:54] Oh, yeah. Oh, this is, you've uncovered a scene. The problem is once you start seeing them, you can't stop. Yeah. Yeah. I've been this way for years. So he was at a party, a barbecue with Bob Hope, and Bob came out and suddenly just did an improvised speech to all the people. It's nighttime.
+
+[00:20:14] He's, thank you for coming, and he's doing all these jokes. And Steve said, he's hearing these jokes, and he's thinking, this is a pretty worked-out monologue, but it's pretty topical. Turns around, he says he notices sitting in the bushes with a flashlight. and some cue cards is McNaughty, hiding away, giving him the cue cards to do it. So I haven't really said very much in this part because I don't really know anything about comedy, but I do know a lot about golf.
+
+[00:20:39] And Bob Hope used to love golf. And that's really kind of all I knew about him is that he was a golfer. I read that, you know, Alan Shepard, the astronaut. Yeah, he hit a golf ball on the moon. And according to Bob Hope, it was his idea. No. Really?
+
+[00:20:55] He said that he was once speaking to Alan Shepard, and he used to kind of always carry his golf clubs around him, kind of just to... That was his thing. He would... Yeah, and he reckoned that Alan Shepard got the inspiration by watching him swinging his golf club. He was on the Mike Douglas show when Tiger Woods first appeared on television when he was two years old. So Tiger Woods was a little dot, and he was kind of hitting golf balls, and everyone was like, look how amazing this little kid is at playing golf.
+
+[00:21:23] and Bob Hope was on the show when that happened. So he's there for the start of Tiger Woods. And apparently on his first date, he was so nervous he would just sit and draw golf holes on the tablecloth. And he did it so much that they made him pay for the tablecloth because he drew all these golf holes on it. Oh, that's so great. I certainly claim there were golf holes later on.
+
+[00:21:47] Oh, they're an Alan Shepherd with, of course, a job in the middle ages. I thought that was your job on QI, John. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that the unarmed stick insect has an infinite number of arms. Okay. I'm not saying anything else, that's it. it? Does it play golf? Infinite is a big word. That's a big word. It's a long word, yeah. It's a full eight letters.
+
+[00:22:32] I don't mean that. It's, no, the thing is, I would say stick and sets can regrow their limbs. Yeah. Theoretically, theoretically. Theoretically, possibly forever. You know, if you, if you keep chopping them off, they'll keep growing them. Yeah? The main body doesn't live forever, does it or does it? No, no, no. I think probably we would reach a time limit. The other thing Like about a week? Well, because they would die But the other problem is they can only do it when they're young
+
+[00:22:59] Okay But they could keep doing it and doing it and doing it If you kept chopping off all the limbs Yeah Hell of a shock to your juvenile stick insect The first time it chops an arm off And it doesn't grow back It thinks, oh no, now I'm officially no longer a juvenile
+
+[00:23:13] Yeah, it must be Because you must get used to operating with complete impunity It's a real coming of age moment, isn't it? Yeah So they can keep regrowing their arms Another question is, do they have arms or are they legs? It's called unarmed. Is there a reason why it's called unarmed?
+
+[00:23:29] Yeah, because it doesn't have defences. Yes, it's unarmed as in weapons. Yeah, to be honest, it's just a silly thing because I noticed it was called unarmed and I remembered that they could keep regrowing their arms. But I just thought let's talk about stick insects because stick insects are awesome. These ones, these unarmed stick insects are the most common stick insects found in Britain. Are they? Oh, wow.
+
+[00:23:51] Yes, they are. because we have no native stick insects in this country, but one of them accidentally got brought in some timber from New Zealand in the 20s. Right. And they reproduce pathogenically so they don't need more than one of them to create more and more and more of them. It's really pleasing that it came over in some timber, disguised as a small stick in a load of larger sticks.
+
+[00:24:15] That's brilliant. There was probably a guy at the port just counting all of these sticks and got, We've got one too many. So these were discovered in New Zealand in 195 by a man who also, like this misnamed animal, is called John Salmon, not a fish. That's amazing. He is responsible for discovering. So there's a Wikipedia list of stick insects of New Zealand, of which there are 23. John Salmon discovered nine of the stick insects of New Zealand.
+
+[00:24:45] You do find the same people come up again and again. when you look at all the different species of stick insects, it tends to be the same people. It's almost if no one else is looking for stick insects, right? Or maybe they're specialised because they're quite hard to see. They're so hard. So I was reading about leaf insects, which are similar, you know, they look, and they are unbelievably realistic leaf insects.
+
+[00:25:05] As in they attach to a tree where they look exactly like that leaf, and they have little bitten out edges. So amazing. But lots of experts on leaf and stick insects have never seen. them in the wild. It's quite tragic really. So there's a guy called Royce coming, who's a world expert on leaf insects. He's never seen one in the wild. Because what, you know, it's really hard. Because you can't just check every leaf. That's the problem. That's exactly it. Yeah. It's a nightmare. If you want to get a new cell. It's stupid. They should have gone for like. Yeah. Elephants. Sick insects feature in Maori myth. Yes. Right. Quite a few times. And just something I just happened to know about Maori.
+
+[00:25:48] the language, which is the Maori for nuclear warfare is umu pongy pongy. Right. You didn't think they would have a word for it, but they do. Your duolingo is very bold. This is a bigot. This is not duolingo. Other language apps are available. Memorize, etc.
+
+[00:26:08] When stick and sex feel under threat, they will play dead or be more like a stick than usual, basically. And I found an insect owning website which had a problem page. And the problem was, is my stick insect playing dead or has it died? Or is it, in fact, a twig? We used to have stick insects when I was a kid. Oh, really? Did you? Yeah, yeah.
+
+[00:26:36] And it is, I mean, they did die, I'm sorry to say, quite regularly. They didn't live very long. I hope that wasn't due to our bad husbandry. Or did they die very frequently? Yeah. Maybe they were just trying to get themselves thrown out. We usually check. I don't know what your FAQs will say, but for us it was usually when there weren't many poos for a few days.
+
+[00:26:54] That was a problem. What's a poo look like from a stick insect? It's just like a black dot. Right. Nice. Yeah. Well, this advice, basically, if they're threatened, they fold their legs up and they paralyze themselves and they often fall off the branch to the foliage. But that happens if they get surprised, if they face any surprise at all they'll play dead.
+
+[00:27:11] So you either wait to see if the colour has changed, because that is a sign that they can't do that by the, Can the leaf insects change colour in the autumn? I don't think so. Okay. And the other thing you can do, there's just a bit of advice, is to stimulate the insect's mouth palps, which are these small organs near the mouth, which are incredibly sensitive. And if you stimulate those, it will make a sudden movement because it hates that.
+
+[00:27:36] And if not, it has died. I'm slightly moved by all these, you know, pets and things dying because I was, my dad was in the neighbour who never had pets. So when the kids were small, we won a goldfish at a fair in Chipping Norton. It was called Chippy, the fish. I love this little fish, and it got something wrong with it, swim bladder. And I was really heartbroken, and I was very sort of anxious about it. And so I used to take it to the local vet in a bucket in Hammersmith.
+
+[00:28:08] And so I was sitting there in a bucket, this little goldfish in a tiny little thing, fair goldfish. Was it on a lead? No. And all these people would be there with salukies and parakeets and, you know, horses and things like that. And the vets assistant would come out and say, Mrs. Campbell Rouse and Montmorency the third. Somebody would get up with an antelope or something. It came to me and she go, Mr. Lloyd and fish.
+
+[00:28:39] And after about four visits. And what he used to do the vet was inject this goldfish. There was something wrong with the swim bladder. but the tiniest little hypodermic syringe you've ever seen about two inches long. And after the fourth time he said, Mr. Lloyd, I'm afraid there's nothing more I can do for fish. He's going to take his chances. Oh, because that is a problem with goldfish, isn't it? They get these swim bladder problems and they'll kind of float to the surface and sometimes go upside down.
+
+[00:29:05] And people think that they're dead. But actually, they're not dead. They can be, you know, they can have their swim bladder pricked and will come back. And so people flush their fish down the toilet, but they're not. not actually dead. They probably don't flush very well either because they are quite buoyant that stage. Oh no. Yeah. It's terrible. It's public service. Yeah. I was just thinking Mr. Lloyd and Fish is basically this episode, isn't it? Hey. Very good. Did you know that some children, human children can regenerate fingertips. Did you, I was a standard of an event. Yeah. Yeah. Yeah. I had heard
+
+[00:29:38] that. And many doctors don't know that so that they just grow back their fingertips if you cut them off. Yeah. Up to a sort of, it's kind of much like the stick. You don't want to, there's a, there's a color point, isn't there? And it's under, it's a certain amount of the finger, I think. It's not, it's not at the base, but it's the top joint. Yeah. Well, the fingernail, if there's only a tiny bit of the fingernail left, the whole rest of it can grow back.
+
+[00:29:57] Well, so human children have infinite fingers. Yes. And it's another, don't try this at home, isn't it? Speaking of children, have you guys heard of John George's children? No. He was a famous entomologist of the early 19th century. and there's a stick insect called Children's Stick Insects, which is named after him. No.
+
+[00:30:19] Yeah. He was as well as an entomologist. He was a biologist. And one amazing thing he did, in 1815, he traveled to the battlefield of Waterloo just after the battle. And he purchased a tree under which the Duke of Wellington had made his headquarters. And so he basically, what had happened was the battle had happened and everyone had gone away. And loads of souvenir hunters were going in and sort of just, chopping bits off this tree, but he actually went and bought the entire tree and had it made
+
+[00:30:48] into furniture by Chippendale, Thomas Chippendale. Wow. Isn't that amazing? Was it called a Waterloo tree? Was that what is that? It was called the Elm, Waterloo Elm. Waterloo Elm. That is, wow.
+
+[00:31:00] And I thought I'd see if John George's children had any children. And he did. He had a daughter called Anna Atkins. And she was the first person, we think, possibly to publish a book, illustrily. with photographic images. Ooh. She was a friend of Fox Talbot, who made one of the first cameras. And she made a book in 1843, which had photos in it.
+
+[00:31:26] Can you guess what the book was about? First ever book with photos in it. Insects, the Battle of Waterloo. Birds. Something slow-moving. Tortoises. Twigs. Children. Children, no.
+
+[00:31:40] But it was something very slow-moving. Tartis. Sluts. Rivers. Very leisurely rivers. Meandering river. Yeah. Something slow moving. Slugs. Smaller.
+
+[00:31:52] The big book of slug photos. Smaller than a slug. Lobsters. No, no. They're big of the slugs. Smaller than a slug. There are things. A snail.
+
+[00:32:00] Is that smaller? That's about the same size. Yeah. I mean much smaller than a slug. Oh, uh, worm. Worm. Tiny worms. Smaller on the worm.
+
+[00:32:07] Oh, um, parasitic wasps. They're tiny, tiny, tiny tiny. I think a bit bigger than that. I'll tell you. What those water bears? Tardigrades. Tardigrades. The big book of Tardagrade
+
+[00:32:18] Fottergrade photos. That was the first ever photograph. It was of algae. No, it was of algae. Ah. It was, um, her book was called photographs of British Algae, cyanotype impressions.
+
+[00:32:30] And it came out in October 1843. And that was the first ever book illustrated with photographic images. Right. Very nice. I'm still, my heart rate is still recovering from that thrilling. I was about to say,
+
+[00:32:39] great. How these quizzes really get your feeling like you're doing exercise. They pump me up. These things are always so when you do these dives into things like regeneration for example it's so miraculous isn't and all the all the creatures that can axolotles and salamanders and sharks regenerate teeth all the time and cockroaches can grow new legs did you know that? No and cockroaches have got a bigger genome than people okay and they taste inside the innards of a cockroach it tastes like blue cheese really amazing yeah um and axolotles they've got 30 billion base pairs in their genome
+
+[00:33:22] that's 10 times as much as we have that's amazing do you think that guy who was selling axlottles in your shop only had one of them and he kept selling it but keeping a leg so it would regenerate to a new one what a brilliant business model that's i'm thinking they're also the axolotle gets its name from the name of Quetzelcoatl's dog. Does it? Yeah, Quetzelkoetle had a dog called Axelotl. Did he think when he went to the vet, it was Quetzlothal and Axelof? Unarmed stick insects, obviously a badly named insect.
+
+[00:33:54] Oh yeah. And I just wanted to mention one I found the other day, which is the so-called whispering bat. The so-called whispering bats call is as loud as a chainsaw or a leaf blower. But the reason that's brilliant. It's called the whispering bat. It's because it's too high pitch for us to hear. Oh, thank God.
+
+[00:34:13] Other bats find it deafening. Yeah, right. There's so many classic animals that are completely misnamed. So, like, a few that I found, electric eel. Yes. Not an eel. No. It's a knifefish.
+
+[00:34:27] The horny toad. Yeah. Lizard. It's a lizard. Doesn't have much sex. Doesn't have much sex. Very sad. King Cobras.
+
+[00:34:35] Not royals. Not cobras. No, really? Wow. Skip Jack, tuna, not a tuna. Really? Is that really? That's the one that's always on all the tins, isn't it?
+
+[00:34:45] It's not a tuner. It's a completely different genus. Really? Huh. Mountain goat? Not a mountain. No, not a goat. Really?
+
+[00:34:53] The list goes on. Yeah, it does actually. Mantis shrimp, neither a shrimp nor a mantis. American buffalo is not a buffalo with a bison. Do you know the difference in a buffalo and a bison? No, I don't, Mr. Hope. What is that? You can wash your hands in a buffalo.
+
+[00:35:09] Okay, it is time for our final fact of the show, and that is Lloydy. So I still decide which fact to give to you, and I just want to give you some that I didn't choose in the end. Because I don't want to waste them. To keep warm in the 16th and 17th centuries, boys at British public schools burned the furniture. It was horrible, a bit like my school. John Denver's wife, Annie, claimed to have fallen in love with him despite his songs, not because of them.
+
+[00:35:45] That's very sad. And Toad Suck, Arkansas, recently won a survey to find America's most unfortunate place name, beating Beltshire Town, Massachusetts, Climax, Georgia, Hooker, Oklahoma, and Roachtown, Illinois. Well, I'm glad that you didn't do that lowbrow one, John. What is your actual fact this week? My fact is, 45% of Britons do not know where they're reckoned. rectum is. Now this was according to a poll of 2,000 British idiots, adults, commissioned by Palmao Medical Private Healthcare in January 2023.
+
+[00:36:24] Only 55% of men and women in Britain can confidently state where their rectum is, and only 50% know where their reproductive organs are. No. That is impossible. Now, I can sort of understand why this might be, because they don't know what. what the words mean, rectum and reproductive organs, but according to the survey also, an astonishing 37% of Brits
+
+[00:36:46] cannot say where either their heart or their brain is. Yeah. Well, my brain is in my reproductive system. Because there's that saying, isn't there? He couldn't find his ass with both hands. Yes. And what we're saying is that 45% of British people fall into that.
+
+[00:37:05] I don't think we're saying that, because to find your rectum with your hands is quite an invasive. thing. Well, I did look it up because I thought, okay, well, how ridiculous that is. But I didn't know until yesterday which part of the rectum is, but you know, you've all looked that up. So it's not actually what you think. It's not the anus.
+
+[00:37:25] It's in, there's the anal canal with the anus on one end and the other end of the rectum, which is basically the poo park where the stuff that comes down the colon is being digested all the way. And then it goes into the rectum, which is exactly. It's the storage thing. Is that a medical term? The poo park? Yeah, same with vagina, I think, as well. Like, people think it's the opening, but it's the, yes. It's the jeep.
+
+[00:37:50] So that's interesting. I thought the rectum was connected from sort of the bottom of the intestine right to the opening. I thought that whole thing. Okay, we've covered this. We've covered them. What do you count me as one of the 55? The interesting thing about the survey was it wasn't testing, can you find this? It was saying, are you confident that you could locate where,
+
+[00:38:08] organ X is. And so, and 8% of people said they could confidently identify none of them. None of them. They were really, they just said, no, I couldn't identify any. But surely the brain. The brain. Everybody must know it's rough. You would think so, yeah.
+
+[00:38:20] That's just people with no confidence. Exactly. Yeah, it's confidence. Although we have said before that there is this thing in, is it called Lizardman's constant or something like that? Where in any survey you will get a percent who will just give a ridiculous answer. I did wonder whether people, because it was an online, this survey. It wasn't a person asking my eye to eye. So you wonder people had a bit too much to drink.
+
+[00:38:43] They think, oh, I'll just put it. But there was another thing at the other end of the spectrum on this survey. Because, you know, people not identifying where their brain is sounds mad. I also would like to call a slight doubt over the 24% of people quite high who claimed they could confidently identify where their pancreas was. And I think, come on. Like, I know it's in the middle section. But where? But where? But where? Well, like the spleen, that was the one 20% claimed to know where their spleen was. I wouldn't have any idea. Give me a break.
+
+[00:39:15] Yeah. 20% are not spleen doctors. What's the term? Splenologists. What's the speleologist? That's a cave diver. Oh no, there's been a terrible mistake. Don't worry.
+
+[00:39:26] He's going to carry out the operation anyway. He says it'll be just like a cave, probably. He's never been in an anal canal before. I tend to do a lot of these things now when I'm trying to get access to a news article online. They often, a lot of websites will have like, just fill this quick survey in quickly and feed away your rectum. What kind of websites you're trying to get on to then? Please turn on your webcam. Show us your rectum.
+
+[00:39:53] I find it interesting that don't knows in surveys as well. And so YouGov always include their don't knows. And there was an article about this in Wired a few years ago by where I called Amit Katwala. And it's a great point because you gov did a survey about surfing, right? have you ever been surfing or not in which 3% of people said I don't know and it's a big thing to
+
+[00:40:13] to not know if you've tried surfing 2% don't know if they've lived in London They could be on the outskirts Possible Yeah I guess yeah Born in London but left straight away Oh I don't know if we lived there for a couple of months
+
+[00:40:27] Okay here's one from 2023 Do you and your romantic partner each have your own side of the bed that you sleep on okay And if you don't have currently have a partner Please think about the last partner 77% we each have our own side. 4% chaotic, we sleep on whichever side. Absolutely insane.
+
+[00:40:42] But 6% don't know. Yeah. How do you not know? I would say it would be different depending on which bed you're sleeping in. Like in our home bed, we sleep on the same size. But if you go to a hotel... Then it's anything goes. Completely.
+
+[00:40:54] Exactly. Well, it's not. It's whatever my wife wants to do. In 2017, a survey found that half of British gardeners cannot name a single shrub. And the next year, in 2020, 2018, a poll found that 80% of Britons couldn't pick out their own neighbours in a police line-up. I thought that was quite straight. That is interesting.
+
+[00:41:14] And how did they test that? Did they do some line-ups? I'd like to know that, yes. It wasn't a daily mail, though, so maybe it's. Can you name a shrub? Because I think shrub is that like a specific type of plant is a shrub. I agree. I mean, I garden.
+
+[00:41:28] And, you know, is it... I have something that looks like a shrub which is an azalea. Is that a shrub? Is it a little Leylandy, bush a shrub? A bush is a part of the body, isn't it? I think that. Most people don't know where that is. I don't know where their bush is. Well, let's think of a shrub. It must be a shrub. Is a laurel? Is that or is that a tree? I think that's a shrub. I think it's a size thing, isn't it? Over a certain size, the shrub becomes a tree. I think we've shown that this is a very difficult thing to know.
+
+[00:41:57] We always, always, John, when you're on the show, we get into the deep questions. Can I do one more survey? Just this is a silly survey. It's not really. that much on topic. But there was a poll quite recently about what Britain's aged 18 to 29, so this is young people, according to the survey. What is the least cool hand gesture a person can make? Oh, that's great. Yeah, okay, cool.
+
+[00:42:22] Okay, can I have a punt? Yeah, yeah, yeah. I think the peace sign is not cool. Oh, do you know, I do that all the time? I do it all the time, but I just don't, I don't think it's cool. Oh, okay. I love to do it. The horns, the rock horns.
+
+[00:42:34] Oh, that's like a, cool. Cuckold in Southern Europe. Oh, yeah. Yeah. No, it's not that. Careful at Southern European Metallica games, which I know you love to go to, Dan. Thumbs up. Thumbs up.
+
+[00:42:47] That was in the poll. It wasn't the worst, but a lot of people thought it was quite cringe. A-O-K. That was cringe, but not the worst. The phone. In fact, the double A-O-K is one of the most cringe-worthy sides. Oh, air quotes. Are they the most naf?
+
+[00:43:03] I actually think if anyone had thought of that, they would have gone for it. John, do you want to have a guess? Wanking. Sorry, Philippa Perry. She basically answered the word wank for every question we asked her when she came on. It is, and this is 38% of people said this. It's playing an air guitar. Oh.
+
+[00:43:25] Like a wild stallion's sort of villain's head thing. That is pretty embarrassing. Oh, come on, it's cool. Okay. How old are you, Dan? The right age. To know that's cool. Rectum.
+
+[00:43:39] Okay, let's talk rectums. The US Consumer Product Safety Commission every year do a list of things that have been found in people's orifices. Really? Yeah, the 2022 list include a monopoly piece, a reusable ice pack, a fishing pole. No. It can't have been the entire pole. Well, they're collapsible, aren't they? They collapse, yeah.
+
+[00:44:01] Oh, do they? Yeah. Yeah, okay. Well, it could have been that. and in other orifices, a golf ball in the vagina, an expensive coin from a coin collection in someone's throat and a USB cord in someone's penis. Oh, a USB.
+
+[00:44:16] Yeah. You've got to make sure you put it in the right way around. Yeah, exactly. Wow, that's brilliant. Yeah, there was a guy also, a 68-year-old man with hemorrhoids in Hubert province in China who had to have a 10-inch chopstick pulled out of his anus, which he put up there, he said,
+
+[00:44:33] out of curiosity. Fair play. I haven't listened to the Museum of Curiosity this series. John, is there? I like to donate this chopstick. And just while I was talking about emergency visits in 2022, I found a list of quite a few. Here are some.
+
+[00:44:53] This is in the US. Pain after rubbing penis too hard with a luther. Playing with pocket knife, accidentally stabbed penis, closed penis in fridge door. And watched football, got excited when team scored and accidentally punched self in penis. They were all ER visits in the US last year. That's amazing.
+
+[00:45:22] Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, James. At James Harkin. Andy.
+
+[00:45:35] At Andrew Hunter Ebb. and John? Oh, John Lloyd QI at Instagram. Oh, yeah, of course. I don't have a position account. Yeah, yeah, or at Quicopedia, I guess, for like the total hub. But yeah, find Lloydy on Instagram.
+
+[00:45:50] And we do Instagrams. Yeah. You've done that before. That's a good point. Well, I'm on at Shriverland. I'm on no such thing as James Harkin. Mine is private. You'll never find it.
+
+[00:45:59] And mine is at John Lloyd QI. All right. And we don't have a fish Instagram, but we do have a Fish Twitter account, which is at No Such Thing. Or you can go to our website, which is no such thing as a fish.com. Do check it out. All the previous episodes are up there. And that's it for now.
+
+[00:46:15] We'll be back again next week with another episode. Thank you, John, for officially opening the new QI offices and podcasting headquarters. And, yeah, we'll be back again next week with another episode. We'll see you then. Goodbye.

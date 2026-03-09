@@ -1,0 +1,199 @@
+# No Such Thing As A Fish - 93: No Such Thing As A Christmas Treenis
+
+- Episode date: December 25, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/93-no-such-thing-as-a-christmas-treenis
+- Slug: 93-no-such-thing-as-a-christmas-treenis
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here with Anna Chazinski, James Harkin, and Andy Murray, and once again we've gathered around the microphones this time with our four favorite Christmas facts because this is our Christmas Day special. And so, in no particular order, here we go. Starting with you, James Harkin.
+
+[00:00:34] Okay, my fact this week is that the oldest turkey in the UK is called dinner. That's great. And yet so cruel. How old is he? She? It's a he, and he is at least 16 years old, and they know that because for 16 years they haven't eaten it. Does it get to a point where a bird is too old to eat?
+
+[00:00:58] You could eat it, but I think birds tend to be nicer when they're younger. Right. Yeah, because usually we eat turkeys when they're about really young, right? 12 weeks old or something? Yeah. The chickens, especially very young indeed, yeah. They just fatten them up straight away and kill them. Merry Christmas, everyone.
+
+[00:01:15] This, on the farm that dinner lives, there's a farmer called Mr. Guy who sort of manages the farm, and he believes that dinner has lived so long because he's got a girlfriend, a turkey girlfriend, not a human, and he said he's got a girlfriend about five years ago, and it seems to have given him a new lease of life. He's certainly become a bit more of a show off. Wow. How old is she? It doesn't say.
+
+[00:01:40] I think it's a bit of a sugar daddy. Younger than him. Yeah. I think isn't she also the only other female turkey on the farm? I think it sounds... Wow, and she's gone for the old guy. The oldest pensioner. Well, it was either an old guy or a chicken, I think.
+
+[00:01:54] I reckon that her choices were pretty slim. They did say that one other reason for his longevity is due to him being too aggressive to catch. Wow. You know, so turkey hunting is a thing, and turkey calling is a thing in America, isn't it? And they have this with a bunch of bird hunters, actually, but I think turkeys can make 28 different, distinct sounds with their voices that mean different things.
+
+[00:02:18] They basically have a vocabulary of 2028, and turkey... You said it really impressed at that very large vocabulary. Wow, it's really eight. Well, I'm just wondering what... So, do you know what the words are? Gobble is one of the... There's a purr. They do a soft purr.
+
+[00:02:36] They gobble in various ways to attract attention. They've got gradations of alarm calls, so I think a certain type of gobble is sort of a... I think there's a bit of danger around, but don't freak out too much of your mid-meal, and then there's a different sound that says, really, guys, get the hell out of here. We're in trouble. Even people who hunt turkeys impersonate them, and it's a real skill. If you go online, there's...
+
+[00:02:54] In fact, I read a website online this morning that said something like, 20 reasons why you continually fail to attract turkeys with your turkey calling, and then a list of reasons where people completely screw up turkey calls. I was reading about turkey wishbones. So turkeys are related, people think, to dinosaurs, and if you look at the skeleton of a dinosaur, they have wishbones. Imagine, yeah, T-Rex-sized wishbones. God, and do we know if they broke them over dinner for love?
+
+[00:03:24] Yeah, who knows? But time travellers of the future, when they go back, have Thanksgiving at Jurassic times. That's very cool. You know the thing about sparing turkeys, so the president every year spares a turkey. Oh, yeah, yeah. Of all the turkeys that President Obama has freed, only one has lived past its second birthday because of the farming practices, which mean they have very short lifespans now.
+
+[00:03:48] Oh, dear. The last two that they pardoned. Do you know the names? No. Mac and cheese. So, Mac and cheese, they got pardoned, and they got to stay in a $350 a night suite a night before they were pardoned. Did they enjoy that?
+
+[00:04:03] Well, I don't know. But the hotel broke the rules for them, because there's usually a requirement that any pet over 40 pounds is not allowed to stay, and they were 50 pounds each. So... Wow. Yeah. Yeah, because some rules were bent. Why is everyone naming turkeys after food?
+
+[00:04:19] It's so mean. Yeah, I know. Well, they are called turkey to be fair. I mean, they are named after a food already. Do you know what their Latin name means? The Latin name that Linnaeus gave them in 1758 is Meleagris Galapavo Galapavo, which means guinea fowl chicken peacock, chicken peacock. Just touching his bed.
+
+[00:04:37] Yeah. I was reading the Economist's thing about it, and it said it was wrong five different ways. So, why is it called turkey, like the animal, not the country? Because we thought it was from Turkey. When they were brought over, they were brought over by Arab traders, who, and at the time, we just thought all traders from that part of the world swore allegiance to the Ottoman Empire, and the capital of that was in Turkey.
+
+[00:04:58] So we just thought, yeah, Middle Eastern equals Turkish. Yeah. Actually, something that we did do, because we were so ignorant about where they'd come from, when we decided to go back and properly colonize America in the early 1700s, we brought a whole bunch of turkeys with us on our ships, not we, the people who were going to colonize, to Jamestown, brought a bunch of turkeys from Britain to America saying, well, we'd better bring these turkeys so we can farm them in America, and they got off the boat at the other end, and we're like, this place is full of turkeys, guys.
+
+[00:05:24] That was a waste of space. So farmers used to walk their turkeys to London all the way from Norfolk, because that's where turkey farming really took off, and was still there today, obviously. And it would take months to get them along there, because they walk quite slowly. They walk at about one mile an hour, and in the weeks before, in the week leading up to Christmas in the 18th and 19th centuries, all the routes into London would just be clogged up with traffic, with queues of turkeys walking along. And the thing is, it's such a long journey.
+
+[00:05:52] They're not meant to walk long distances, or they're not really built for it. So they had to have special little shoes made for them. Really? Yeah. Wow. They would shoe them. Have you seen the shoes? Did they not like put tar on their feet? That is what they did with geese, because geese refused to wear shoes. Refused to wear shoes.
+
+[00:06:11] And that's apparently there's a saying, to shoo a goose means something really, really difficult to do. Oh, really? It's like shooing a goose. So they dipped their feet in tar, and then they covered them in sand to give them some protection. But the turkeys, they didn't do that, didn't they? No. Can I do a thing about old things?
+
+[00:06:24] Oh, yeah, sure. Yeah. OK, so there was an article in 2010 with Britain's oldest man that they asked him what his secret for a long life is, and he said he has five secrets, but he could only remember four of them. He said, good friends, a religion, looking for the best in people and being a vegetarian. There's one other, but I can't remember what it is. Actually, I also found the elixir of light 200 years ago.
+
+[00:06:50] Yeah, I always forget that one. Do you have more stuff? Shall we move on to our next fact? Can I just tell a quite a quick, funny turkey story about pet turkey? Yeah, sure. So this is about a pet turkey that went missing. It's quite a happy Christmas tale. A pet turkey that went missing for 10 days and then returned to its owner.
+
+[00:07:06] It was called Bernard, again, after Bernard Matthews, because we only named turkeys after finally we eat them. And it was kept as a pet by this family. It was taken by a fox. So there was a trail of feathers and blood and stuff left in this woman's garden. So she said, oh, bugger, it's obviously a goner. Turned out he'd escaped from the fox himself and he turned up like all beaten and battered at someone else's door.
+
+[00:07:26] And this other person had taken him in, in a nearby village, and looked after him for a bit. And then after four or five days, he ran away from her shed again and ran and someone else found him. He was attacked by a dog and the owner of that dog rescued him and took him in again. And then she put out a Facebook thing, I think, and the original owner was like, oh, that's my turkey. You've got my turkey.
+
+[00:07:45] By the time she'd shown up, the turkey had run away again to a different person's farm. And eventually this different person put a message up on Facebook going, I think I've got your turkey, mate. And 10 days of just Oliver twisting it from one house to the other, it turned up back at home. Isn't that nice? That's a great story. To end up on the dinner table.
+
+[00:08:03] I want to know how it escaped the fox in the first place. Me too. Turkey versus fox. I feel like I know how that goes most of the time. That's pretty big though, you know. Turkey. Yeah. Yeah.
+
+[00:08:13] They flat on it. They flap and kick and yeah. Yeah, they can be dangerous. Okay. They've been described as fluffy velociraptors. Have they? They've been described by you just now. Just the last thing they said about this turkey dinner, one of the things they said was he
+
+[00:08:27] normally keeps himself to himself. That's the sort of thing you normally say about serial killers. 20 dead foxes were found. Okay, time for our second fact and that is Chazinsky. My fact this week is that Kerry Grant and Clark Gable used to meet up once year around Christmas to exchange unwanted monogrammed gifts they'd received. That's so good. It's so amazing.
+
+[00:08:55] I really hope that Jeremy Corbyn and Jeremy Clarkson have the same arrangement. So I can't take credit for finding this. This was sent in by another QI researcher called Lauren Gilbert, but she has given me permission to mention it out loud on this podcast. So I am because it's so amazing. Yeah, that's incredible. And it just came out in this interview. I think it was an interview with Clark Gable and he said they'd call each other up after
+
+[00:09:18] Christmas and Clark would say, did you get any, any gifts with your initials on your don't want? And if he had, I'd immediately rush round to his house and claim them as my own and we'd do a swap. That's fantastic. Fantastic. Yeah. I find them really confusing as I mean, they're very similar in a lot of ways.
+
+[00:09:34] Yeah. Grant and Clark Gable, aren't they? Yeah. Big claim there. Oh yeah. I'm only confused because I did all the research for them. I forgot to put their names into each fact. I had to re-research everything to work out which one was Gable.
+
+[00:09:44] Did you just put CG for each one? You've made the same mistake a lot of other people have made. So we're both married five times, which since that's an unusual number of times to be married is quite a coincidence. Yeah. Wow. Did they swap wives? They did swap monograms, happy fifth divorce cards.
+
+[00:10:03] Kerry Grant actually weirdly is quite responsible for a lot of pop culture without probably him knowing it. So it's said that a large part of James Bond, the character, was based on Kerry Grant. Did Ian Fleming say that? Yeah. Ian Fleming was a big Kerry Grant fan. And Christopher Reeves said that he based a lot of his performance as Superman on Kerry Grant.
+
+[00:10:24] Apparently he turned down the role of James Bond. I'm not sure to what extent that's true, but according to the story he was 58 at the time and he thought that's a bit old to be playing this sort of relatively young spy. Not something that's held back other actors playing James Bond. He once got a terrier and he named it after his own birth name because he was born Archibald Leech and he got a terrier called Archibald and he called it Archibald Leech. But he should have called it Archibald Leech. Yes.
+
+[00:10:50] Kerry Grant also started the English Muffin Lovers Society. Did he? Yep. He was staying at a Hilton hotel in Istanbul and he only got one and a half English muffins for his breakfast. And so he wrote to Conrad Hilton saying, where's my extra half muffin? And they'd apparently done it as a kind of cost saving because most people only ate three quarters of their muffin halves.
+
+[00:11:13] But then he said, no, I want two and they changed the rules. And then he said, in the future, if anyone ever got only one and a half muffins for their breakfast, then they could become a member of his club. Wow. I would just wonder where the second half of the second muffin had gone. It goes on to someone else's plate. What goes to someone's other one and a half? I understand that, but...
+
+[00:11:30] I would go out in the cafe trying to match up my other half with someone else in the half. Oh, right. Yes. And that could end up being the love of your life or something. Yeah, yeah, yeah. Kelly Hildebrandt, who in 2009 married Kelly Hildebrandt. Wow.
+
+[00:11:44] They met each other on Facebook, found out they had the same name, met each other in real life and then got married. Just because they had the same name, they thought, that's enough. I don't like you at all. I find you repulsive. We have at least one thing in common. Clark Gable said one of the most famous lines in movie history, which is from Gone with the Wind and the line being, frankly, my dear, I don't give a damn.
+
+[00:12:11] So there was a rumor that they were fine for saying damn at the time and no one is quite sure that that's true, but they do have scripts of alternative lines that they had before they had that line and you can read them. And so these are a few. Frankly my dear, I just don't care. Frankly my dear, it makes my gorge rise. Better alternative. Frankly my dear, I don't give a hoot.
+
+[00:12:38] Frankly my dear, my indifference is boundless. That's a nice one, isn't it? I like that one. It was a fun afternoon coming up with all those lines. It also had very different names during the draft of the book when it was being written. I don't know if we've mentioned this before, not in our stars. And this is a weird one, Ba Ba Black Sheep. Yeah.
+
+[00:12:58] One of the versions of the titles was Ba Ba Black Sheep. What do you call the draft? Gone with the draft. Do you know how Gary Grant got his stage name because, as I said, he was originally called Archibald Leach and he was an acrobat as a child and he was, and he was, that's partly why he was so good at physical comedy is because from the age of about five or six he'd been walking on stilts, he'd been doing trapeze stuff. When he went for screen tests in America, somebody said to him, Archie just doesn't
+
+[00:13:27] sound right in America. And he replied, it doesn't sound particularly right in Britain either. So they went through a load of names and he was almost going to be Kerry Lockwood, but then the studio executives didn't quite like Lockwood either. And someone in this meeting just started reading out a list of names. And when they got to Grant, he said, that's all right. Did he say that's all right? Because he was like, I heard Clark Gable gets a lot of really desirable monogram Christmas
+
+[00:13:48] gifts. That's going to work for me. He used to do a lot of LSD. Oh yeah. Yeah. Kerry Grant. It's totally recreationally. It was a medical thing.
+
+[00:14:00] Doctors were trying to combat his depression and all sorts of impotence, wasn't it? I think it was a cure for him. Was it just impotence? I mean, he took a hundred courses at least of LSD. Isn't it true that Timothy Larry, who's like the great God of LSD, he decided to do it because he knew that Kerry Grant did it? Really? Yeah, I think that's right.
+
+[00:14:19] Groucho Marx did it as well. Did he? Yeah, he was 78. This guy, Paul Krasner, who's a writer, says that he did it with Groucho Marx. And weirdly, I've spoken to a lot of people who knew Groucho Marx, who said that they don't think it's true, but this guy has a really vivid account. And Groucho Marx turns out to be a collective psychosis. Okay, time for our next fact, and that is Andrew Hunter Murray.
+
+[00:14:50] So my fact this week is that when it gets really cold, Christmas trees can turn to glass. Bullshit. That's true. We've been doing 90 episodes, and this is the first time you decided to respond to a fact in that way. And it's the one of mine. I'm living.
+
+[00:15:09] It's the first time I've thought a fact is completely ridiculous. Okay, I will explain. So lots of Christmas trees, as in coniferous trees, evergreens, you know, whether they're spruces or furs, whatever they are, they live in forests where temperatures get really, really cold as in minus 60 degrees sometimes. So that's a massive problem for organisms, because if you have cells and the water in your cells freezes into ice crystals, they can burst through the walls of the cells and cause massive damage to whatever, to an animal, to a tree or whatever it might be.
+
+[00:15:39] So trees have this incredibly clever thing. They turn to glass. And when I say glass, I don't mean glasses in a glass of something like silica, which is what that's made of. So molecules all freeze into this sort of glassy state where they don't move around. So it's a state of matter is glass, so it's not quite a liquid and not quite a solid. So the atoms can move around a little bit, but they're not kind of fluid like a liquid, but they're not really, really stuck together like a solid.
+
+[00:16:06] So it's sort of pre-emptive going into a frozen mode, except without that freezing without the ice crystals. But so afterwards it unglasses itself and becomes a normal tree again. Yeah. That's crazy. It's pretty cool. Yeah, yeah. That's amazing.
+
+[00:16:21] There are some animals that do similar things, aren't there? What? The tardigrade, which is, have we ever spoken about tardigrades on this podcast? Not sure. Not sure enough. We don't have actually, so ordinarily. They are like one of our favourite animals at QI, aren't they? These little tiny things also called water bears, which can survive massive heat, really,
+
+[00:16:38] really cold temperatures, radiation, they can survive all sorts. They can go into space and still live. And one way that they survive very cold temperatures is they get rid of almost all of the water in their cells, and they kind of turn their cells into an almost kind of glassy state. Wow. And this kind of glassy state is something that hasn't really been seen much in nature or anywhere else, and they think they might be able to make new kinds of glass by studying it.
+
+[00:17:04] Wow. That's very cool. They are amazing tardigrades. Maybe that's the fifth secret of how to live for a really long time, is no water. Just dry yourself into a husk. Have we ever talked about the frog before, who, when it gets, I think we have on this book, hasn't we? What kind of frog is it when it gets really cold, it just freezes solid, and you assume
+
+[00:17:20] it's dead, because it can do that for months. Common wood frog. Yes. And then it can just thaw in summer. Turns into like a little frog sickle. Wow. And it has anti-freeze in its blood, and so it stops its blood from freezing, and it can go into really, really, really cold temperatures.
+
+[00:17:35] There are some fish which have anti-freeze in their blood, because they're swimming in water, which is sub-zero temperatures. And the water isn't frozen, because it's got salt in it, I think that's right. And so if they're swimming around in the Arctic, then that's how they do that. It's either crocodiles or alligators. When it becomes to a point where a river or a lake or whatever is going to freeze over, they stick their head near the surface, and they let it freeze over their head, except for their nostrils, which are sticking out, so that they can still breathe and survive,
+
+[00:18:08] so they effectively hibernate with a block of ice around their head and their body just flowing in the water below. Wow. Have I made that up? It does sound like a made-up thing. I really think it's true. It might be true. If that is true, that's incredible, and if it's not, then that's not surprising.
+
+[00:18:25] So you don't call bullshit on his stuff, because you'd be saying it non-stop, every show. It's a mighty episode. I've only got so much breath. In Antarctica, I was looking into their Christmas tree, and they obviously don't have a tree there, so they created a tree, which is made out of rubbish bits. It's all iron bars and so on, so it's in the shape of a Christmas tree, which looks really nice. I started looking into Christmas Day there, generally, things like they often get quite
+
+[00:18:52] drunk and they have a challenge whereby they have to get as many Christmas hats onto penguins as possible. Yeah, yeah, that's what they get drunk on eggnog, and the challenge is you have to using as many little Christmas hats, get them onto as many penguins, and the most penguins you get them on, you win the competition. And also, they don't have mistletoe there, so what they do instead is they hang a fish's head up, and you're meant to kiss under that very romantic image of a stinky rotting. But mistletoe comes from the German for Dungstick, so it's not that romantic in itself.
+
+[00:19:24] That's James's opening line whenever he catches anyone under him. Well, did you know that? He seduced his wife to kiss me under the Dungstick. There was a thing, Christmas trees always used to catch on fire, because before electric lights, you just stuck candles on the ends of the branches, and obviously that's an enormous fire risk. And so lots of people died in Christmas tree fires, but as a result, loads of people in the 19th century, especially, patented fire extinguishing systems, which you can then
+
+[00:19:54] attach to your tree. Oh, wow. So you've got bugs running all the way up the trunk, and you just sort of secreted that. And then instead of a star at the top, or the star is actually a sprinkler in the shape of a star. Wow. So when the tree catches fire, it's just sprays water everywhere.
+
+[00:20:07] Oh, that's a great idea. Yeah. That happened to my Christmas tree one year. Really? Yeah, we came out after we told Santa had just been, and my grandfather accidentally knocked a candle onto the tree, and the whole thing went up as we came out to get our presents, and it was a hard moment. Whoa.
+
+[00:20:24] Was it? It was probably burnt. It goes. That would ruin Christmas. Oh, it did. It was, yeah, it was petrifying. Well, that's not petrifying. That's a completely different thing that happens to trees.
+
+[00:20:33] Here's something, it's quite a scary little image that I had never heard of. Tarantulas live in Christmas trees. Oh, yeah. Yeah. But not the big, home alone guys. Yeah, it's the tiniest of all the tarantulas, and they're only a quarter of a centimeter in length. Yeah.
+
+[00:20:53] Where is that? Didn't they used to decorate trees in Germanic countries with little kind of spiders, Christmas spiders, and spider webs? In Ukraine, I think they still do that. Did they? Yeah. Christmas spider. Yeah.
+
+[00:21:08] Not very festive. One thing that you get a lot in the newspapers every year is this is the worst Christmas tree in Britain. They all love that story. There's a few this year. There's one in Stockport where the locals have said it's the worst Christmas tree in Britain. One of the residents says it's a disgusting tree that looks like it was found in a tip.
+
+[00:21:30] The other one is in Kempston in Bedfordshire, which apparently is so weedy it has to be propped up by a lamppost, but I just love these stories because you just see them and they're just like the weediest, rubbishest tree ever. Yeah. But it's not as bad as one. There's one in Noyabrsk in Russia, and their locals have demanded that they remove it because it has been nicknamed the penis fair because it has an extremely bulbous bottom and a shaft like top.
+
+[00:21:59] One local said, let's be honest, it looks more like a penis than a Christmas tree, which I've seen it and I think that guy needs to see a doctor. I call it my Christmas tree-ness. Put presents around the base. The presents are my balls. Jingle balls all the way. That year that it's set alight was pretty. Granddad tripped on it.
+
+[00:22:28] Fortunately, it does have a sprinkler system ready installed at the top. OK, time for a final fact of the show, and that is my fact. My fact this week is that one of the contenders for this year's Christmas charts is a Prog Rock album by Pope Francis. Have you listened to it? I have. I've listened to the whole album. It's weird, isn't it?
+
+[00:22:57] It's amazing. The opening track sounds like a Pink Floyd track. Yeah. It's got all these amazing noises. Is that a new Tio Vobis cardium magnum? Yes, that is. That means we announce with great joy, or we announce with joy magnum, I think. Set to be used in ice cream campaigns in the near future.
+
+[00:23:20] But it's the words that you use when you announce a new pope. OK, right. That's where that word comes from. So the background of this album is that they've taken speeches that the pope has made over the course of his tenure, and it's usually, you can hear the applause of crowds when he starts speaking, but they've hired an incredible team to make this Prog Rock meets Just Slash Metal. It's an amazing album full of incredible- Slash Metal.
+
+[00:23:46] There's shredding on it. There is shredding guitar, particularly if you listen to the single that he released, which is the title of the album, Wake Up, Go, Go Forward. That's the title of the single. Now check this out. According to a number of sources, this cannot be true, but the title track, which has been released as a single, has been downloaded over a billion times. A billion.
+
+[00:24:11] Well, there are more than a billion Catholics in the world. I looked into this, and according to the Guinness World Records, the best-selling single worldwide is White Christmas by Bing Crosby, with 50 million copies. Oh, OK. Yeah. So 50 million to a billion is quite. Well, is the pope just, is he just sitting there and the Vatican constantly downloading it?
+
+[00:24:31] If you got a billion downloads, you could probably afford to build another Vatican. Like a really classy one this time. Do you think it's cost that's stopping them from building a second Vatican? So I read an article about a formula for the ultimate Christmas single. Oh, yeah. Which is obviously always a bit dubious. And it's from about 10 years ago. It's from 2004.
+
+[00:24:55] It was on the BBC. And I don't know how many of these boxes the popes album ticks. OK. And apparently the recipe includes a reference to Father Christmas, sleigh bells, a children's choir, and a charity element. OK. OK. So.
+
+[00:25:12] Charity element tick. Yeah, this is a charity element, I'm sure. OK. Well, also the song should include Christmas in the title, wishes for peace on earth, it's probably got those, and lots of airplay at office parties. Well, at the QI Christmas party, I can guarantee there's going to be Pope Francis rocking out of the system. He downloaded it a billion times.
+
+[00:25:30] So he's going to have to play it a few times. You said that he might have been on iTunes just constantly downloading his song. He's never been on the internet in his life. No. So he couldn't do that really. He does have 20 million Twitter followers despite never having been on the internet. We've got two accounts as well, right? One in Latin and one in English.
+
+[00:25:51] He might even have a few more than that. But yeah, 20 million. Wow. Impressive for someone who's never even turned up. He's never watched TV since 1990 after making a promise to the Virgin Mary. So he wouldn't have seen loads of episodes of catchphrase. That's terrible. He's probably waiting for the box.
+
+[00:26:10] A few years ago, didn't two-minute silence get into the top 20 into the charts? I think in 2010, on November the 11th, the two-minute silence was in the top 20 most downloaded singles. Yeah. Weird. It was the Royal British Legion. It was them in particular being silent. There was those people in particular being silent.
+
+[00:26:30] I mean, we've got no evidence it was them because it was just silence, but they promised us when we downloaded the album. Because that always puts me in mind of the famous John Cage, four minutes 33, which everyone thinks is silence, but isn't really. It's ambient noise, isn't it? You always have to have an orchestra there not playing. And you need an audience there. And it's the kind of little cough and a little fart and a little kind of giggle.
+
+[00:26:55] Never go into a concert with you. Speaking of weird singles that were unexpected hits. The Singing Dogs, which was released in the 1950s and I think it reached number 22 in the singles charts, but it was really sold over a million copies in its first year. Anyway, so the idea came from this Danish recording engineer called Carl Weissman. And his job was actually recording bird sounds. And he kept getting annoyed because dogs kept, I don't know why he was keeping dogs in the studio, but dogs kept on barking and getting in the way of his recordings.
+
+[00:27:26] And then he thought, actually, I could put this to music and make them sing. And if you look up the Singing Dogs, it was a hit at the time and it's so good. They sing jingle bells. There's five dogs. They were stars. I've heard it. It's really good. I mean, it's okay.
+
+[00:27:42] I've only downloaded it 900 million times. This is completely off topics. But just while we're on Christmas, because I'm going to have another year until I can mention this. Yeah. I read an article last weekend about a Santa school that's being run. It's the world's largest Santa school. Okay.
+
+[00:28:01] It's called the International University of Santa Claus set in America. There's a guy called Tim Conahan who runs it. And his, the curriculum includes wardrobe, posing techniques, answering difficult questions, knowing the current toys and your ho ho ho's. And if you do one course, you get a Bachelor of Santa Clausology. If you do two, you get a Masters of Santa Clausology. And if you do more and you do a dissertation, then you get your doctorate of Santa Clausology. You don't get a ho ho ho level.
+
+[00:28:33] Oh, any cracker manufacturers, you can have that one. Yeah. That's very cool. Has anyone heard the 1980s album by Anthony Daniels who played C-3PO? No. That was Christmas album. It includes songs such as, what can you get a wookie for Christmas when he already owns a comb?
+
+[00:28:56] That's a great title. Yeah. And R2-D2, we wish you a Merry Christmas is another one. But this is a weird thing. There is a very famous rock star. And this album was the first time he was on anything. Ooh. Can you guess who it is?
+
+[00:29:11] Brian Ferry. No. Brian Adams. What year? What year are we talking? 1980. 1980. John Bon Jovi.
+
+[00:29:19] Correct. No. What? How did you get that? I don't know. I just went for an 80s. Yeah. Amazing.
+
+[00:29:27] His first ever recording on anything was on this R2-D2 C-3PO Christmas album. That's amazing. Yeah. And that springboarded his career, did it? That is so cool. That's weird that he did. Because the actors who played R2-D2 and C-B3PO hated each other, didn't they? No.
+
+[00:29:42] Yeah. I think they really hated each other. And so they obviously set that aside in order to... So you know when they're going beep, beep, beep, beep, beep, is that like swearing? They actually... The beeps was just... It was originally normal language. And they just had to beep over everything they said.
+
+[00:29:56] Do you know the first number one single that was banned? Was it The Blobby? Mr. Blobby Christmas single. What do you mean banned? Sorry. Do you know the first... Banned by the BBC. I mean banned by the BBC.
+
+[00:30:08] The BBC would have played. Was it Relaxed by Frankie Ghost Hollywood? It wasn't, although that was banned. It was Jetem, which no one... It's not very Christmasy. It's not Christmasy. It's number one. I don't think those are the grounds on which they banned it, though.
+
+[00:30:19] Oh, okay, right. This is not Christmasy enough. I'm not letting people listen to this. Even though it's released in the middle of the year, I still think it should have a few sleigh bells. But yeah, and apparently the Vatican hated it. It was denounced by the Vatican. There were rumours at the time that the Pope had excommunicated people who bought it, everyone
+
+[00:30:37] in Italy who'd bought the single because it was so rude. And then I think it was Jane Birkin, wasn't it, who sung it? And she said that the Pope had been her greatest PR man because obviously that made it super popular. Yeah, that's probably the best thing that can ever happen to a song. Yeah. Been banned by the Pope. Yeah, that's amazing. Any word on whether the Pope likes no such thing as a fish?
+
+[00:30:57] Just one more thing on Pope Francis that I really like. Have you guys heard of the politician Bob Brady in America? No. So Pope Francis visited America and he did a speech and while he was on stage, he drank from a glass of water and put it back down. And as the Pope is leaving, Bob Brady jumped onto stage and grabbed the glass of water and he started taking photos of himself drinking from the glass that the Pope had drunk from. And he was really open about it, saying that he was going to keep the holy water because
+
+[00:31:27] he said this is holy water and that he was going to use it for the blessing of his grand children when they were when they were born. And people pointed out to him that just because the Pope drank it, it doesn't necessarily mean that he's blessed the liquid. So it's not technically holy water. So that implies that every Catholic church which has holy water in the font of whatever has had the Pope come and lap at it. It's all papal backwashed.
+
+[00:31:50] That's why you're drinking holy water. But yeah, Bob Brady, go online and look at the photos. They're hilarious. He is just so, he doesn't care that he does it. He's not embarrassed by it at all. He offers to pay for the glass. He offers to pay for the glass. Yeah.
+
+[00:32:04] He's wrote to them, said I'll obviously. Yeah, but we know the Pope can pay for a glass because he's had a billion downloads of his song. They should call that scandal Watergate, shouldn't they? Another one for the cracker manufacturer. All right, that's it. That's all of our Christmas facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things we've said over the course of this podcast,
+
+[00:32:27] you can do so by getting us on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter M. James. At Egg Shaped. And Chazinski. You can email podcast.qi.com. Yep.
+
+[00:32:39] You can also go to knowsuchthingasafish.com, our website where we have all of our previous episodes. And have a merry Christmas. Have a happy new year. We'll see you in 2016. Goodbye. Bye.

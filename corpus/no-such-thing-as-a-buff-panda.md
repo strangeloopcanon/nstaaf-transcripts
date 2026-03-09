@@ -1,0 +1,189 @@
+# No Such Thing As A Fish - No Such Thing As A Buff Panda
+
+- Episode date: February 25, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-buff-panda
+- Slug: no-such-thing-as-a-buff-panda
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices and Covent Garden. My name is Dan Triber. I'm sitting here with Andy Murray, Anna Chisinski, and James Harkin. And once again, we have gathered around the microphone with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you. Andrew Hunter Murray. My fact is that until the mid-2000s, the best method for finding out how many pandas were alive was to see. sift through their poo. Was that where they were hidden?
+
+[00:00:41] You just had to look for the white bits. Yeah, what does that mean? Well, it's very, very hard to know how many pandas there are. We've got no idea how many there are accurately. And they do censuses every so often. And they can be very, very, they can be based on a lot of guesswork. So the best method in the early 2000 census, which came up with the total number of 1,596, which is very precise, was to,
+
+[00:01:06] go around looking for panda excrement, sift through it for undigested fragments of bamboo, and then find tooth marks on that, because tooth marks have a particular, they're like fingerprints, though, they're supposedly unique to the pandas. And that's how you find out how many pandas there are. So you were looking for pandas inside the poo. Yeah. Wow. In a way. Yeah, yeah, yeah. Well, you look for their tooth marks. It's a different, different tooth signature on every bite, basically. Every panda has its own individual tooth marks. So I guess with pandas, it must be particularly useful because bamboo is, like, has such hard cellulose, doesn't it? So it's very hard to digest.
+
+[00:01:37] I think do they only digest 30% of it anyway or something and the rest of it comes out? They're all wrong pandas. Yeah. Yeah. And they're carnivores. Totally. Pandas are carnivores. They're meant to be.
+
+[00:01:47] They gave up eating meat several million years ago, but they're still built as carnivores. They have a sixth finger, don't they? They have an opposable thumb or what acts effectively is an opposable thumb. And there's a theory. So it's for, it's actually just a protruding bit of bone. And it's mainly, it's solely used to hold bamboo for the, them to eat it. But I think now there's a theory that that evolved back when they were carnivores because it helped them. I think it helped them dig away at their prey to try and kill them.
+
+[00:02:16] They do sometimes eat like insects and stuff. And little rodents if they can get their hands on them. But normally they can't because they're pandas and it's very difficult for them to do anything. They're very slow moving, aren't they? They are, yeah. There's a theory that they're only slow moving because they change their diet. And because bamboo is so inefficient to eat, they then had to slow down, stop moving around, have less sex, become fat, eat as much as you can. All of these behavioural changes come from the evolutionary change, which is when there was bamboo everywhere, and it made sense. It's basically like getting married. I don't know if they were ever thin pandas. It's kind of disgusting to think of.
+
+[00:02:54] Just like really buffed pandas walking around. Sprinting incredibly fast. And maybe they used to hibernate Because that's the reason they didn't hibernate, isn't it? It's because they can't bloody take a pause from eating Because they eat such inefficient food. People have said that huge amounts of effort are focused on them
+
+[00:03:11] And they're an evolutionary dead end Which is not really fair Because we've removed all of their habitat So for us to go around saying Yeah, these guys are useless They've got, they eat bamboo And there's no bamboo anywhere at the moment What the hell?
+
+[00:03:27] It's not really fair. My buddy, Simon Watt, he's a scientist and he does a lot of stand-up, he knows, and he tells us great fact about the WWF and the Panda logo. Do you know why the Panda is the logo for the WWF? Was it because they thought they would die out? No. No. It was a specific panda, because it's a specific panda, isn't it?
+
+[00:03:48] There's all the basis. So this is Sir Peter Scott, who was the co-founder of the WWF, and who drew the original logo. He said, obviously, they're furry, and they're beautiful, and they're cute, and people respond to them. But there was also one major. reason. Is it a black and white printing costing? It's a black and white animal for black and white printing. That's good. Yeah. Pandas defecate 40 times a day. 40. 40. Yeah. I mean, they eat a quarter of their own weight in food every day. That's a lot of poo to sift through, though. Yeah. Yeah, there's a lot of evidence to gather your...
+
+[00:04:18] That's a lot of solid bamboo to be coming out of you as well. No. And people work... It's so sad. People work for years and they go out to China as panda researchers really excited and then they just don't see any. I read an article about the census and there was a guy called Dai Bo who's a wildlife biologist in the Chinese Forestry Ministry and he said to be honest I've been working in these mountains for 20 years and I've never seen a panda in wild. He's working at the wrong place isn't it? But you just never see it. Also when you're doing a census you're not looking up for them. You're looking at the ground desperately trying to spot their excrement. Yeah. So it's in time.
+
+[00:04:56] possible that you'll miss one because we're so focused on the ground. But also, like, these are, as you've said, fat, lazy animals. How slow is this guy that he's able to find their excrement but not find them? They're obviously close by. But after 20 years, if he's finding it, they're in the neighbourhood. They're very shy. They're very shy. Just imagine coming back to his wife each night.
+
+[00:05:18] Did you see one today, dear? No. He's got his panda spotting notebook with no entries in it. There's one guy every day who comes back into the office world going, I saw nine today. Every day. Pandapoo is, well, the world's most expensive cup of tea is made using pandapu. It's this guy called Anyanshi, and I think he started making it in 2013, and it costs 131 pounds for a cup, and he uses 10 tons of pandapu on his tea plantation to make his tea delicious.
+
+[00:05:56] So it's not in the tea itself, it just grows the plant. Yeah, yeah, yeah, it's used as the fertilised. That's a relief. Yeah. One lump or two. Apparently it gives it a rich a richer taste. Does it? I bet it does.
+
+[00:06:11] Yeah. I mean, we get a bit sniffy about it, but it's manure. It's using fertiliser. Yes, yeah. No, no, I thought it was in, because they do sell dried out pandapoo. You can buy it as paper, can't you, from certain zoos in China. So I just thought it might be. You know, why not?
+
+[00:06:27] They do flatten it, don't they? They don't just write on this. You get a really lumpy envelope. I think I know who it's from. They do that in... Just written on it. Still nothing. Do you remember, sorry, speaking of doing stuff to pandas,
+
+[00:06:46] we talked about that story of the Italian circus. No. An Italian circus a couple of years ago tried to pass off a pair of chow-chow dogs as pandas by painting them, and they're in serious trouble now for deceiving people and for animal cruelty. Skeptical customers were told that the two dogs, a male and a female, were actually half panda, half dog hybrids. So if you were skeptical, he said, I think these look a bit weird. They expected you to believe.
+
+[00:07:13] I imagine that guy who works in China goes on holiday to Italy, and he's like, you know what? We're going to go to the zoo because they've actually got pandas. You'll finally get to see one. The first two lines in the panda spotting notebook are then just crossed out a few days later. Bit tears named. I like this actually in the article about the, in the article about the disguised dogs, it finished with the line. The owners may be effacing additional charges for falsifying the animal passports.
+
+[00:07:46] The dogs from Hungary also turned out to be six months younger than the document's As well as claiming they're pandas. They're underage pandas. The Smithsonian got two pandas in 1976. And I'm not sure if these were the original panda diplomacy ones, but they were called Sing Sing and Ling Ling. And this was at the time when they didn't really know how to encourage them to breed properly. And the sentence is just this.
+
+[00:08:15] It's a wonderful sentence. Sing Sing failed at his early attempts to inseminate Ling Ling. not much of a surprise, considering he tried to mate with her ear, wrist, and foot. How do you, how do you try mate with a wrist? Okay, time for fact number two, and that's my fact. My fact this week is that since 2007, the Wikipedian Brian Henderson has made more than 50,000 edits, and all of them are exactly the same. Tracking down articles, using the words comprised of, and changing them to consist of.
+
+[00:08:52] dedication. I love it. Yeah. What a great guy who's definitely not wasting every minute of his life doing something that serves no purpose. He's not wasting every minute. He does all his edits on a Sunday night, I believe. Yes, yeah. And he's really, he's a heathen as well. This guy makes all of his edits on a Sunday night. He has a special program. He's written his own program, which identifies when people have newly written comprises of or comprised of. He finds it. And then he says, An edit typically takes about 10 seconds, but that's because I've gotten really, really good at it. I've actually put a lot of thought into those 10 seconds.
+
+[00:09:28] Some of them take a lot longer. Some of them take minutes. Do you know what the most edited entry on Wikipedia is? What? It's the page for George W. Bush. Is it? Which has been edited 45,000 times. Is it just, do we put a full stop after W or not?
+
+[00:09:45] Yeah, it's all that. Back and forth, back on. It's been edited three times for every word in the article. That says through November 2013. I'm not sure if it's only in that month it was edited three times for everyone in the article, or whether that's in total history. But either way, it's a lot. Here's a weird thing.
+
+[00:10:03] That guy, Brian Henderson, so who does these 50,000 edits, I kind of thought that he must have the record for most edits on Wikipedia. And so I looked into a list of the most edits ever made by Wikipedia. Actually, it's Josh W. Bush. There's no dot in Do you know what roughly? what number are the most edits by a single person. So how many is this guy done? 50,000. Okay. So he's been going every Sunday since 2007. So times that by seven. Yes. So 350,000. What's the answer? The answer is a guy called his username is Coalph, K-O-A-U-F, and he has done
+
+[00:10:38] 1,455,693 edits. Wow. That's amazing. Okay, so I went on to the Wikipedia page for pedant. and that has been edited more than 500 times and I just thought I'd read I wonder if that's below above average one of the things was there are some quotes about pedantry on there and one of the quotes is I am a pendant when it comes to written English
+
+[00:11:06] and that's a quote by Garty Vixters it's like a jokey thing but someone in the edit page wrote changed pedant back to pendant yet again so someone keeps changing that back. That must be really annoying. I remember looking at the Wikipedia page entitled The Reliability of Wikipedia
+
+[00:11:30] and finding the sentence, 90% of articles on Wikipedia exhibit superior quality and then in square brackets, unreliable source, question mark. Have you ever looked at the most popular Wikipedia pages for various countries? No. No. They're just quite bizarre. So, in Sweden in 2012, the top Wikipedia page that was searched that was clicked on was...
+
+[00:11:55] Okay, we should guess. Oh, okay. I think you'll guess this one. Sweden. William Shakespeare. Is there a clue in the way you're saying Will? William Shatner? No, there's a clue in the way I'm saying Sweden. Is it Sweden? Yeah. Okay. Yeah.
+
+[00:12:06] Got it. So that was Sweden. Can't believe I guess William Shatner. I feel like an idiot now. Adult video actresses page are best in Japan. The second most clicked on Wikipedia. page in Spain in 2012 was for the app symbol. Wow. And the most
+
+[00:12:21] popular Wikipedia page in Germany that year was the page on cul-de-sacs. You know that game that you do on Wikipedia, where you click on it and you're trying to get through the whole of the encyclopedia to get to a page? Wiki race. Yeah, so you start on...
+
+[00:12:38] They gave from one word to another. Yeah, yeah. Do you reckon in Germany, they get to cul-de-sac, and there's no links there? Yeah. Do you guys know what Jimmy Wales has said, his favorite Wikipedia pages? Was it Wales? No. The country?
+
+[00:12:53] Mm-mm. Oh. Was it William Shatner? Sweden? It's a very random one. It's a page called Metal Umlaut. Oh, yeah, I know that one. Yeah, a page devoted to heavy metal bands that put a decorative umlaut in their name.
+
+[00:13:09] Oh, yeah. Like Motley crew, Maximo Park. Motorhead. Yeah. Yeah, that's what he says. And then the other one is a page for chocolate chip cookies. All right. You know, I've got one more.
+
+[00:13:20] You know, speaking of Jimmy Wells, he and the Wikipedia Foundation cracked down a few years ago on US Congress and banned them, banned any IP address with any association with US Congress from making any Wikipedia edits because they were, it was during election period, and they were just constantly vandalizing each other's pages. You do get that still from the House of Commons and the House of Lords.
+
+[00:13:42] Lots of edits to Wikipedia pages for British politics. come from there. Dan and I went to a Wikimania event, which is for lots of Wikipedia's and lots of editors and things like that. And it was in London last year. Yes. And Dan was doing a speech about Wikipedia and did you make a page on the train? Yeah, so yeah, because one of the speakers at it, who's a comedian here in London and a scientist called Steve Cross, who runs a thing called Science Show Off, he came on and he, his whole talk was about how he didn't have a Wikipedia page. And you made one for him. No, I knew that he wasn't notable enough to make a Wikipedia page.
+
+[00:14:17] That's what the problem was that he was saying that he can't get one. So what I made was one of those list pages, and the list was called the title of the page was People Who Don't Have Wikipedia Pages. And I put him as the first name. And they deleted it. Within a minute. So can I read you? I have one more thing about this, which is that what I really, really like about the guy, Mr. Henderson.
+
+[00:14:40] And I think, yeah, I mean, I quite like his mission. I wouldn't do it myself, but it's quite sweet in a way. I think it's sloppy English. I don't necessarily think it's wrong. But the first edit he made was on the 14th of August 2006, which was for the article Central Processing Unit. Oh, yeah. Right?
+
+[00:14:57] Now, the next one he made, I think he made some other Wikipedia edits in between, but the next one he made for comprised of, was on the 4th of January 2007. So that's about four months difference. I just wonder... What he did in that four months? He must have been thinking about it. Yeah, I'm glad I did that.
+
+[00:15:17] I'll just do one more. I've done one. I'll do another one. There probably aren't too many more. There was a point where he had dealt with all of them. Every single one on Wikipedia. And then, of course, because people write more articles and it goes. Also, people get a bit proprietorial sometimes about their articles or articles that they've been editing a lot.
+
+[00:15:36] And so if he changes it and they change it back, he tries not to immediately correct that again. because he doesn't want to get on with his nerve. So I think that isn't quite a friendly thing. And the other one, the other one that he has is that obviously if you are quoting someone and they've used the words comprised of, you can't change that. That just sits there. And so he gets frustrated. He found like 150.
+
+[00:15:58] My favorite thing about this fact is that our show, no such thing as a fish, has a Wikipedia page in which all of our facts are put up on Wikipedia. And now there's going to be 151 because this will now be a quote that he can't change. Oh, yes. We're putting comprised of into our wiki page because it's a fact that we've just said. Oh, that's so cruel. And it's so cruel because it's a fact that that's going to have his name in it as well. Hi, Brian.
+
+[00:16:21] Great Brian. Okay, time for fact number three. And that is James Harkin. My fact is that the world's largest saw is used to cut through mountains in Kazakhstan. Why are they cutting through mountains in Kazakhstan? Mining. They're just mining for coal. Yeah, they're looking for coal.
+
+[00:16:39] It's a very impressive looking machine. It is terrifying. It looks just like a circular saw, only lots bigger. Do you know how big it is? Yeah, it's 145 feet in diameter, and it weighs 45,000 tonnes. And it just basically, anything in its path just gets sord out of the way. Can they change the axis of it so that it can cut at an angle? I don't know. I don't think they can.
+
+[00:17:05] Because you'd be very frustrated if the thing you wanted was horizontal, and you could only cut vertically. You probably can move it, but it is really, really, really heavy. Well, it takes like 27 people to operate it, right? Yeah. Yeah, so you've got one person sitting inside. Apparently, that's the prime position. What, 26 people outside?
+
+[00:17:23] Yeah, yeah. Yeah, I don't know why. Shotgun. Yeah. It can dig out 4,500 tonnes of coal an hour. And do you say it weighs 45,000 tons? Yeah. Bloody hell.
+
+[00:17:35] I know. That's really heavy. But I just love this, like, the whole thing of big machinery and stuff. Yeah. It's a nice subject. So the world's biggest boring machine, the tunneling, as in boring. Yeah. And they're using it to make a tunnel in Seattle at the moment, and it's got stuck.
+
+[00:17:51] So it's stuck underneath Seattle. Oh, no. That would be a great sequel to Sleepless in Seattle. I read the other day that Birmingham University has a bunch of diffused tunnels under it, which were built in 1902 for mining students so they could practice mining. So they're fake mining tunnels. Wow. Isn't that cool?
+
+[00:18:10] Do you think they built it only a little bit underground? Because obviously it would be a massive amount of effort to build a fake mining tunnel. Yeah, they were. 200 feet down. Yeah, I think they only went about 20 feet down or something. I have a cool fact about mines. Go on. The very deepest mines, you can't go down in just one lift.
+
+[00:18:26] Because the weight of the cable is so much that it would snap when you were in the capsule at the bottom of the cable. So you have to go down and then get another lift even further down. That's how deep into the ground it goes. Is that also true of like super towers? as well, because I know I've been up some of the tallest towers in the world, and you always are on more than one lift there. Definitely in the Kuala Lumpur, the K-O-1. Yeah, but there are two towers there, so obviously you're going to have two lifts. No, sorry. I have a thing about cables, which is that Alaskan whales use cables like fishing rods
+
+[00:19:03] and fishing lines to eat their fish, which is really interesting. I saw this in a documentary the other day. So these fishermen go out and they throw these huge cables down into the bottom of the ocean and they attach the side of it on hooks all these big fish. And so bigger fish come and latch onto and start eating it. And the whales have worked out that if you slide down this cable with your mouth open, you can eat all the fish. So when they come up, it's half-eaten fish. So they go fishing now. These Alaskan whales go fishing. That is amazing. Yeah, it's a very cool look. They've got all this documentary footage. Back to swords quickly. Do you guys know why the chainsaw was first invented for
+
+[00:19:39] childbirth, wasn't it? Yeah, I think it was. All for, so it was in 1783, I think, and it was just a little hand version of a chainsaw, handheld version of a chainsaw. And yeah, it was for symphysiotomy, which is a surgical procedure where you cut the cartilage to waive in the pelvis when a woman's giving birth. Yeah. So, that's nice. And to cut bones generally. So they were really useful in surgery in the 19th century, weren't they? They were mainly used by doctors to cut, to amputate bones. They were called sore bones. That was an nickname for a doctor I was looking at a list of different sores
+
+[00:20:13] And there is I know It was a great Saw 1, Saw 2, Saw 3 Apparently there is a saw called a cold saw Really? Yeah, which is quite nice Yeah
+
+[00:20:25] Do you know what it does? Is it cooled down to cut through hot things Or is it It basically transfers the heat To the thing that it cuts So the actual saw itself Doesn't get too hot That's very clever
+
+[00:20:37] But the thing you've sold into Is freaking boiling It's on fire. Hey, so I was looking into mountains. Can I bring it to mountains very quickly? I found the smallest mountain in the world. That's amazing. Yeah, because I just thought there must be one, right?
+
+[00:20:53] There must be the smallest mountain. I thought you had to be a certain number of feet to be a mountain. Well, okay, so this one is officially registered as a mountain. It's in Australia, and it's called Mount Wichy Proof. It's actually an Aboriginal word, which is two words, witchy and porp and it means grass on a hill and it totally makes sense because when you look the picture of this thing it's the smallest mountain it's a hundred and forty one feet high so why is it claiming to be a mountain it's just it's just registered as a mountain it qualifies as a mountain
+
+[00:21:22] i mean i guess a mountain must start at some height and yes it does the smallest that's where it starts oh that's it is 141 feet is when a mountain starts at something like 600 meters but i think that it's one of those things like the definition of a county which is quite fluid i You can get registered as a mountain by various dodgy, you know, organisation. Australia got an internet registry mountain service. I think it was a black market. You know, I got my licence in an hour online. Gillian McKeith.
+
+[00:21:50] For just 200 Australian dollars. Register yourself is a mountain. This is my cat who is a mountain. Mr. Tibbles. Many people have tried scaling him but died in the attempt. Yeah, there is a rule about how high they are in the UK, which is why that movie, the man who went up a hill and came down a mountain.
+
+[00:22:15] The best Hugh Grant movie ever made. Is that what it's about? It's about the registration of mountains. It's about him making the hill very slightly bigger so that it was a mountain. It's such a good film. It's so good. I remember it's really sad.
+
+[00:22:27] You watch the film and it's one of those films. It reminded me of rabbit-proof fence because you follow Hugh Grant on this struggle to turn into a mountain by adding a pile of rocks to it or something. I can't remember. And then the little write-up at the end which tells you what happened afterwards,
+
+[00:22:38] because I think it's based on a true story, says a few years later it was then reclassified as a hill again. Sorry, is that really what the film's about? Yeah. Wow. I was making it up. No, I thought you were just running. Because I knew the title of the film,
+
+[00:22:52] but I just couldn't possibly believe that that was what it was about. Basically, Hugh Grant goes up this hill and then goes on the internet and buys it. Wait, but so why does he add rocks? Because it's just missing out on a height. Yeah, it was like one metre shot. start of being a mountain. Why did he want to make it a mountain? Because the village was all proud of it. You've got to watch the film. It's a very touching kind of local story film.
+
+[00:23:14] Okay, and he's got weirdly floppy, straight hair. Sounds awful. I'm sure it's very good. It's very good. Good stuff. Okay, time for our final fact. The show, and that is Jasinski. My fact is that in the early days of race walking or speedwalking, the competitors were allowed to jog as necessary to relieve.
+
+[00:23:38] cramp? As in, could they jog forward or would they have to jog on the spot? So it's unclear, no, no, I think they could jog forward. So it seems to have been more of a gentlemanly thing to do was to admit when you didn't have cramp and therefore walk. And the understood rule was fair heel and toe, which, as you can imagine, is you have to have your toe on the ground at the same time as your heel of the other foot hits the ground. Right.
+
+[00:24:02] There was one football team. It was the one that W.C. Grace played for. And whenever they got a penalty, they always deliberately missed the penalty because they couldn't believe that the other team would deliberately fall under the area. That's great. So, yeah, race walking. Yeah, I know you were saying about the pedestrianism. Yeah, so pedestrianism was where we got the sport of speedwalking. And it started with British footmen in the 16th, 17th centuries.
+
+[00:24:30] And it became a kind of a thing that gentlemen liked to do is compete over how good their footmen were. So a footman obviously had to walk next to a carriage. That's also a good way that sport used to be, where you didn't have to do it yourself. You could get your slaves to get it instead. Exactly. And it was like a big gambling thing, as you can imagine, a lot of bets were placed on these people. Anyway, Britain in the early 19th century and the most popular in America in the late 19th, I think. And they were pretty easy going, rule-wise.
+
+[00:24:56] I really like the notion that, because they would do these walks, which lasted for six days. That's how long the competitions were. Yeah. And they would start on Sunday at midnight, basically. Wait, so this is the original. This is when it was turned into a sport. Just to put this in context as well, so this was in the late 1800s, it suddenly became the big sport in America. People were dying to see people walk.
+
+[00:25:18] The story that I read, which is from a book that you got this fact from, right? A pedestrianism by Matthew Al J.O. or Algeo came out last year. Yeah. So from what I read of it is that it kind of started as a craze when a person had a bet with someone else about who was going to win the presidential election. and the loser of the bet had to walk all the way to the inauguration, and that was a 10-day walk, I believe, from Boston to Washington, D.C. And Lincoln won the election, and this guy lost his bet.
+
+[00:25:48] He did the walk, and it got such press that all these people came to watch it, and he had such a success that he kind of just went, and it was a line that I read it, which I loved it, said, let's take this indoors. And he started walking around a rink, and he started making money for it. And then it turned into this big sport, where everyone started competing, and they ended up using the original Madison Square Garden and huge crowds came in to watch this event.
+
+[00:26:10] People, they wouldn't have had cars in those days, presumably, so people would walk from miles around to see other people walking. But they walked from what I read in this book, 21 hours a day for six days. It's amazing. It's insane. And they had a cot on the side that they would take naps in. Which must have been really hard with the thousands of screaming cheers.
+
+[00:26:30] The bands and the, yeah. But yeah, and they would cover about 600 miles, I think, in the six days, so about 100 miles a day. But if they were racing as well, I do love those naps as the kind of like Formula One pit stops, yeah. But you'd go in and have a three-hour nap and then you'd wake up and be like, oh, I'm still two laps ahead. While you were napping, people would come in and change your things, very slowly. Change your diapers. Because presumably you'd have to go to the bathroom at times.
+
+[00:26:56] Yeah. I wonder what you do there? Presumably there was a toilet there like a potterloo and they just have to be. Maybe in the con. Maybe in the middle of the... In the cot. possibly that's why they only really stayed in there for about three hours
+
+[00:27:08] good motivation to get out and get back walking I think you should ever have children don't I very much admire marathon walkers and runners for their ability to just have a shit and a piss wherever they goddamn like what was Paula Radcliffe yeah I think that I'm not dedicated to the sport I think you don't really care about that kind of thing
+
+[00:27:26] that's what I mean it's true the newborn babies are the most dedicated sports people I was just going to say the guy that Dan was talking about is called Edward Payson Western. And yeah, so they did have it before because it was very popular in Britain in the same kind of format in the early 19th century. But yeah, he was the first big star of it, I think. And he, I think, might have been also the first case
+
+[00:27:47] or one of the first cases of a doping scandal because he got in trouble for winning a race under the influence of coca leaves, which was not actually against the rules, but it was thought to be, again, very unsportsman-like and people were really upset in his outright cheating. He admitted that he used. used the coca leaves in the race in 1876, but he said it was under the advice of his doctor
+
+[00:28:07] and so perfectly okay. We've all used that excuse when found with cocaine at work. Do you know what the first doping offence in the Olympics was? Was it in ancient Greece? Was it not alcohol? Yeah. And the first one? Two beers and it was a guy, I think it was in shooting.
+
+[00:28:26] Yeah, it was in the shooting and he had two beers to calm his nerves. And they said that wasn't allowed. Wow. Of all the sports to be drunk and do, that's the most dangerous for the spectators. So there's one more thing about that guy, Weston, who walked to the White House. He didn't make it in time for the inauguration. He was several hours late. And then President Lincoln, and he met President Lincoln.
+
+[00:28:46] And Lincoln, he went to the first party at the White House. And President Lincoln offered to pay his train fare back to Boston. And he said, no, I didn't make it, so I'll walk back. Walk back? Another ten days. Yeah. Oh, my God. Isn't that fantastic?
+
+[00:29:00] That's true. Do you know who popularised or who was the first recreational sort of climber, rock climber, mountain climber in Britain? No, no, I don't. It was... Twiggy. I was going to say Twiggy. Yeah, genuinely was going to say Twiggy.
+
+[00:29:17] Because you get trees or mountains. It's a natural name. It's a Christopher Walken. Oh, very nice. That's good. Because he's climbing this guy. What about? Oh, climbing.
+
+[00:29:25] Rock Hudson? Yeah. That's good. The rock. Kid rock. You got older, though, I think. Okay. Stop being silly, boys.
+
+[00:29:32] Who was it? It was Coleridge. Oh. Is it because the word ridges in his name? Actually, there you go. We should have, if we kept going, we would have gone to an event. You said it's silly. Coleridge made the first recorded recreational mountain climb in the UK.
+
+[00:29:50] And he was... Is it a late district? Yeah, he was the first recorded person to climb up Scarfell Pike, which is the highest mountain in England. And, yeah, and apparently he took an extremely dangerous route down and nearly died. I know some things about him. He liked eating fruit while it was still on the tree. Yeah.
+
+[00:30:08] Okay. And he wore this huge gown which had stars and crescent moons all over it and it made him look like a wizard. Wow. Are you sure you're thinking of him? Yeah. No, I'm thinking of Dumbledore again. Okay, I want to do some FAQs from the Racewalking Association's website. Go on.
+
+[00:30:29] before we finish. Yeah. Okay, so the second question on there is, why not simply run? Fair. It's a good question, isn't it? Yeah, I can't think of an answer. Their answer is, running is certainly faster. But one of the interests of the sport is achieving good performances within the restrictions
+
+[00:30:47] of the rules. That's true. I mean, that's like saying, oh, netball, why not just let them go all over the court? Because that's a different sport. Yes, very good one. Why not let them play football? Yeah. Why not just pick up the ball?
+
+[00:30:59] This should have been the real answer to the FAQ what you guys are saying right now Sure, and why don't we just rob everything? Wouldn't that be easier than earning money to buy things? Why is there anything rather than nothing? Thanks Einstein. You need rules, idiot. Another question?
+
+[00:31:16] Yeah, just one more. Do people not make fun of you when you're racewalking? What's the answer? The answer is it can't be denied that there are some idiots usually overweight people in cars who think that race walking looks funny go on, go on. Don't take them on unless you're a judo expert or a lawyer.
+
+[00:31:41] They're usually driving too fast for you to catch them anyway. Don't try, Chaser, but you'll be disqualified. Read the rule section. Unless you've got cramp, then you can go. Yeah, there's your answer. Anyway, I've got to go take a shit in the streets because why not? signed Paula Rankleff.
+
+[00:32:05] Okay, that's it. That's our facts. Thanks so much for listening. If you want to get in contact with any of us about the things that we've said over the course of this podcast, you can get us on our Twitter accounts. I'm on Ad Schreiberland, Andy. At Andrew Hunter M. James.
+
+[00:32:18] At Eggshaped. Anna. Podcast at QI.com. We also have a Twitter podcast handle, which is at QI Podcast. And if you want to hear all of our previous episodes, you can head over to no such thing as a fish.com. Got about 40 odd episodes up there to listen to. And we'll be back again next week with another episode. See you then.
+
+[00:32:36] Goodbye.

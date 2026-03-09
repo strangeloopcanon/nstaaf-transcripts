@@ -1,0 +1,31 @@
+[build-system]
+requires = ["setuptools>=69", "wheel"]
+build-backend = "setuptools.build_meta"
+
+[project]
+name = "nstaaf"
+version = "0.1.0"
+description = "Transcript refresh, local semantic search, and static site export for No Such Thing As A Fish."
+readme = "README.md"
+requires-python = ">=3.11"
+dependencies = [
+  "beautifulsoup4>=4.13.5",
+  "faiss-cpu>=1.13.2",
+  "numpy>=2.3.5",
+  "openai>=2.26.0",
+  "python-dotenv>=1.1.1",
+  "requests>=2.32.5",
+  "streamlit>=1.49.0",
+]
+
+[project.optional-dependencies]
+site = [
+  "mkdocs>=1.6.1",
+  "mkdocs-material>=9.7.4",
+]
+
+[project.scripts]
+nstaaf = "nstaaf.cli:main"
+
+[tool.setuptools]
+packages = ["nstaaf"]

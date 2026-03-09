@@ -1,0 +1,241 @@
+# No Such Thing As A Fish - 247: No Such Thing As Footprints On The Sea
+
+- Episode date: December 14, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/247-no-such-thing-as-footprints-on-the-sea
+- Slug: 247-no-such-thing-as-footprints-on-the-sea
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Anna Toshinsky and I'm sitting here with James Harkin, Andrew Hunter Murray and this week we are with Ed Brooke Hitching, our fellow QI elf who has just written a new book, right? Yes, it's called The Golden Atlas, History of Exploration, just filled with that kind of sort of quirky QI style facts. Yes, it is a really beautiful looking book full of amazing looking kind of maps and little factoids about exploration. Get it now, go to Ed's Twitter feed or any bookshop.
+
+[00:00:53] After the show. After the show, sorry, get it in however long it takes to listen to this. It's available in any bookshop or online and for now, once again, we're gathered here with our four favourite facts from the last seven days in no particular order. Here we go. Starting with you, Ed. So my fact is the most experienced sailor of all Captain Cook's first voyage was a goat. But yes, she previously sailed around the world. So when you say she was experienced, she didn't do any sailing presumably, she was just on
+
+[00:01:24] milk provision. Yeah, I don't think she was too like nifty with the ropes, if that's what you mean. But yeah, she'd survived like a global, like a circumnavigation, you know, I think she'd survived three shipwrecks as well. Wow. That's pretty amazing. All for her milk. So she was, yeah, a really impressive. What's she called?
+
+[00:01:42] She didn't have a name, but she's known as the well-travelled goat. That is the first animal to travel around the world, and in fact, wasn't she the first female to travel around the world? Yeah. And they didn't even give her a name. They named her the well-travelled, and then they put her species name at the end. That's wrong with that. Yeah.
+
+[00:02:00] But they did, they gave her some jewellery, like when she returned, safe and sound, she went to live in Marlend, and they gave her a silver collar. She was quite a fancy goat. And then when she died, Dr. Johnson wrote her epitaph. Do you think they brought her on because she was so experienced as well as her milk stuff? Like, because you could get milk from any goat, but this is a goat that's been on two different expeditions. It's proven, yeah. She's probably there like a cigarette in her hand, like no worries at all.
+
+[00:02:26] But I guess, well, she could have been thought of as a lucky goat if she'd survived shipwrecks. Yeah, definitely. So that's something. Captain Cook actually once did chase a goat across an entire island. That's true. Was it a big island? I don't know. It was a stolen goat though.
+
+[00:02:42] So he, Captain Cook was making these voyages around the world, wasn't he? And the first one was scientific, and the other two were discovering, you know, botanical things and lamb masses, and that frequently things got nicked by the people he encountered, the Aboriginals, who he was meeting for the first time, because there wasn't the same sense of property rights and ownership and things like that. And some things he said, no, we should just let it go. This doesn't matter. And then, but other times, when it was an important thing for the mission, he was really
+
+[00:03:09] a stickler for getting it back. And he wanted the goat back because the third voyage, one of the missions was to introduce European livestock, so pairs of European livestock. So if you've lost one goat, it's very, very hard to get goat breeding. I can't remember if they didn't bring a spare, though. You'd assume that a couple might go. I would have brought five or six, I think. Yeah.
+
+[00:03:30] I mean, if we can just stock six ships worth of stuff, then that's fine. I think it was quite crowded for space on these ships, Anna. Fair enough. We've been the worst on Noah's Ark. Why have you only got two of them? One is $20. What if these two don't fancy each other? Well, a lot of room on the ship would have been taken up with sauerkraut.
+
+[00:03:48] They brought several tons of sauerkraut because Captain Cook was one of the first to realize that scurvy could be treated with, like, vitamins. And he didn't quite understand why. But he had to convince no one likes sauerkraut. So the way that he convinced his crew to eat it was to serve his offices like in a really fancy way. And so the crew would get jealous and think, oh, this must be something worth. Wow. It's not like a Neville cuisine sauerkraut.
+
+[00:04:12] Yeah, exactly. Sort of a nice sort of white tablecloth. Just a dump load of sauerkraut. That's really clever. Did you know that one of his expeditions, he had his ostensible mission and then his secret mission? So this is his 1768 expedition when he was officially going to Tahiti. He was supposed to observe the transit of Venus across the face of the sun and do a bunch of other scientific stuff. But the British government told him, do this, but here's a sealed envelope.
+
+[00:04:40] And when you've done that, you're allowed to open this sealed envelope. And that contains a secret information for what you're actually supposed to do. It's like Taskmaster. It was such an extreme long episode of Taskmaster. And yeah, he opened the envelope when he'd done his Tahiti business. And it said, please find the Great Southern Continent. Everyone was convinced there was a big continent down in the South Pole. And they were right, obviously, but he tried to find it and failed.
+
+[00:05:06] They knew, yeah, they knew something was there and it was all based on sort of like sightings of little islands and maybe ice flows. Yeah. But yeah, on the second voyage, they passed, Cook and his men passed within 70 miles of Antarctica and didn't find it. Wow. So frustrating. How do we know? Did they leave footprints in the sea? Of where they went.
+
+[00:05:28] Yeah. No, they had maps. Oh yeah, they were writing it all down. It's full of maps. A question to ask a man who's written off of atlases and maps. How do we know where any of the people went? It doesn't make any sense. I've been reading about the ship itself, the Endeavour.
+
+[00:05:44] This is a very famous ship, but it was such an unglamorous ship. So it was a coal carrying ship, which is not, you know, very glam. It wasn't very fast. It could only go about six or seven knots at nautical miles an hour. But nonetheless, it was incredibly hardy because it was designed to carry coal around and it was built to last. So it did all these voyages. It hit the Great Barrier Reef once. He just bumped into the Great Barrier Reef and it tore a hole in the side of the ship and they had to dump six cannon overboard immediately.
+
+[00:06:15] So it wouldn't sink. Probably damaged the coral as well. Oh yeah, but who cares? I mean, I was just thinking that's effectively a footprint of the sea, isn't it? Yes. That's how we know. So I didn't mean that about who cares its coral. I care a lot about the Great Barrier Reef.
+
+[00:06:29] Sorry. I get it. But scientists spent 200 years trying to find the cannon that he ditched overboard and they knew that he'd been around there because they left charts and maps saying where they'd been. But no one could actually find the exact cannon until 1969 when they went there with a magnetometer looking for the iron of the cannons and testing for magnetism as a barrier reef. Yeah. Very clever. We found them. We recently, quite recently, found the Endeavour itself, didn't we?
+
+[00:06:54] So the Endeavour was actually two ships in a way because he used it, 1770, 1760, 1770s, he used it and then it was renamed and repurposed. It became the Lord's Sandwich and it took place in the Battle of Brooklyn in 1776. It's one of the largest ships used there and we only found out in the 1990s that that was the same ship. So I find that really weird that ships are fully repurposed. But it was called the Lord's Sandwich. Captain Cook was killed on the Sandwich Islands. It all comes full circle. Like the world he travelled around.
+
+[00:07:29] Oh gosh. Yeah, he was... What happened to him? He was baked, was he? Or put in a big parcel or something? There's a big popular myth that he was eaten, wasn't there? But yeah, he wasn't eaten. He was just baked so his bones could be removed and treated respectfully.
+
+[00:07:44] Okay. He's a big honour to be baked. I don't think I'd like to watch the Sandwich Islands version of the Great Sandwich Island Bake Off. But yeah, he was chopped up into little bits as well, wasn't he? So this is when he arrived on Hawaii with his crew and they thought he was a god for a while. They thought the whole crew were gods because they were in the middle of their big festival at the time worshipping gods. And then one of their crew died which really screwed things up for them because they thought they were immortal. And then it turned out they weren't immortal and so relationships went a bit sour.
+
+[00:08:17] And then he sailed away and then rough seas swept him back and they got into fights and they ended up killing him. But the Hawaiians came and delivered all his bones in a sack, didn't they? I think one of his compatriots said... There's another weird link. You said that Dr. Johnson wrote the epitaph for the goat, the world travel goat. So this was after one of Captain Cook's missions. They brought back a kangaroo. They discovered so much new stuff. They brought back 30,000 botanical species, 250 new fish and five mammals including a kangaroo.
+
+[00:08:49] And this is a story of a dinner in 1773 where Dr. Johnson was so excited that Captain Cook had discovered a kangaroo that he did an impression of it for all the other guests. Despite the fact he'd never seen one. OK, so here's the account. He stood erect, put out his hands like feelers. This is Dr. Johnson. He put out his hands like feelers and gathering up the tails of his huge brown coat so as to resemble the pouch of the animal made two or three vigorous bounds across the room. What? I mean, considering he's never seen one before, that does sound like a kangaroo.
+
+[00:09:22] It's perfect. I would have been fooled. Why do we keep calling him Captain Cook when he wasn't a captain? Why do we call him Captain Cook when he wasn't a captain? I don't know. He wasn't a cook either. That man's a fraud. I assumed he was a naval captain. He was a lieutenant when he was on Endeavour. And then when he came back to England, he was given the rank of commander.
+
+[00:09:45] And then by 1775 he became a post-captain, which was even better than a captain, but he was never actually a captain. That's so funny. Yeah. So he just leapfrogged captaincy. Yeah, he didn't even need to be a captain, but we still call him Captain Cook. It illiterates, doesn't it? That's the thing. You're right. Could have been Corporal Cook.
+
+[00:10:05] Commander Cook. He was a commander. Yeah. Is it commander someone who's a captain of two ships, more than one ship? I think you are. If you're a captain of one ship, but you also have another ship under your command, you're then a commander. So it's kind of natural to call someone captain, even though they're a commander. I think so.
+
+[00:10:21] I think if someone said, where's the captain? They'd say, oh, we don't have a captain. How should I call one misconception? In a naval emergency. Pets on naval pets. So naval pets were a big deal. So much so that there was a sailor's zoo in the 19th century. It was set up in Portsmouth in 1893.
+
+[00:10:40] And by 1935, they had lions and various marsupials and birds in aviaries. And it was because people were always taking pets. So you mean that sailors had pet lions on their boats? Well, it seems like it expanded this naval zoo to incorporate things that possibly hadn't accompanied the sailors. But how did they get there, James? Yeah, they couldn't fly in those days. There was no Euro tunnel.
+
+[00:11:06] They did find a polar bear, some British sailors, and they just took it onto their ship and they took it to Whale Island. Yeah, they rescued it. It was a cub when they rescued it and it was on some ice off Greenland and they made it the ship's mascot and called it Barbara. Do you think? It's an inherently funny name for a polar bear. Alright, it's time for fact number two and that is my fact.
+
+[00:11:31] My fact this week is that for 150 years, Shakespeare's play The Tragedy of King Lear had a happy ending. Did they still call it The Tragedy of? No, they didn't. They slightly tweaked the title because they thought it might not work. So I read this in the conversation and I can't believe I didn't know it. But basically people didn't like the fact that King Lear had a sad ending, which spoiler alert, it does have a really, really sad ending.
+
+[00:11:55] It's a tragedy. So it was sort of adapted by this writer called Nahum Tate in 1681 and he rewrote it and he called it The Historical Play of King Lear and His Three Daughters to remove the awkward word tragedy. And yeah, at the end Cordelia saves King Lear. He puts her on the throne. There's a little love affair between her and remember Edgar in King Lear, who's kind of another nice guy.
+
+[00:12:19] But I don't think there's any flirting with Cordelia and Edgar in the original. And yeah, everyone lives happily ever after. So in the original Lear dies, Cordelia dies, everyone dies. Everyone dies. Almost everyone. There's a tiny closing speech. We all die, Andy. All right, it's a very concertinaed series of deaths that way.
+
+[00:12:39] It's a classic Shakespeare tragedy, isn't it? We're within the space of about five minutes, about 12 people drop dead one after the other. Very high body count. Do you think he just gets to the end and he's like, ah, I've only got 100 words left. Just gonna have to kill everyone. He's not doing an essay, James.
+
+[00:12:55] I didn't think he had a word count. I've gone way over. This is the way thing. The original that Shakespeare borrowed from was not a tragedy. I mean, it didn't have this incredibly tragic ending where everyone dies. So the rewritten version that you're talking about, Anna was kind of a return to the previous edition. There was an ancient version called,
+
+[00:13:15] which has a lot of stories of kings and Shakespeare got a load of plots from that. But King Lear, Shakespeare's version was in 1606 and it drew heavily on a play from 1594. That's crazy, isn't it? The play was called the true chronicle history of the life and death of King Lear and his three daughters. But that guy's still gonna be alive probably. He's still alive.
+
+[00:13:34] He's still alive. I mean, that is like remaking Die Hard. That was about 30 years ago. This is about half the time from Die Hard till now. Yeah, but Die Hard 2 was much closer than that. Yeah, but it wasn't a remake by the people. Did the Die Hard makers sue the makers of Die Hard 2 for stealing their idea? Actually, what about Mary Poppins?
+
+[00:13:53] They were about to redo that, aren't they? Or maybe they just have. That's true. That's controversial. That was about 50 years ago, wasn't it? Yeah. So people are saying that's too soon. So maybe this is why he had to kill off all the characters so that it wasn't too close to the original that he could be sued.
+
+[00:14:06] Maybe. Do you think you can do that? Maybe just take any of the show, any of the movie, and make it exactly the same, but at the end just kill off all the characters. What's a good film from early 2000s? I think we should just rewrite all ten series of Friends. Last episode.
+
+[00:14:22] Everyone dies. Everyone dies. Do you know the reason why Nahim Tate changed the ending? They were all little sunflowers. No, what is it? What's it called? Snowflakes. That's what we are in the summer,
+
+[00:14:35] with snowflakes in the winter. Exactly. Sunflowers. They're all little sunflowers slash snowflakes, aren't they? Kind of. But I think it's because the play is about a king being usurped. And when Nahim Tate was writing it was the 1680s, which Charles II is on the throne,
+
+[00:14:54] he's a bit sore about his father being executed and usurped. So Restoration Theatre was quite careful with various themes like that. Wow. And didn't they stop doing King Lear in George III's time? Oh, really? Because he was mentally ill. Let's put it that way. But he read King Lear and had a bout of mental illness after having read King Lear.
+
+[00:15:15] Really? Yeah. And they put him in a straight jacket and tied him down. And he was described as agitated and confused and he ended up in bed for weeks afterwards because he'd read King Lear and I don't know had thought that it was to do with him. Wow. Maybe it is a dangerous book. Samuel Johnson didn't like it, even though he published one of those.
+
+[00:15:33] No kangaroos in it. He had put a kangaroos. I didn't do an impression of a mad king as well. No, he rewrote the whole thing with only kangaroos as characters. I genuinely have a fact about that. Oh my God. In 2014, there was an English playwright who staged a version of King Lear called King Lear with Sheep, which features one human character and then about nine sheep.
+
+[00:16:02] He's trying to direct a King Lear. The character in the play is trying to direct King Lear with sheep and they disobey him and he goes mad and starts acting out the narrative himself. And she said, I wanted to use the idea of non-cooperative actors to explore the themes of King Lear because there's a big scene where Cordelia doesn't do anything when she's told to. And she also said, it's cheaper than paying actual actors. Okay, I've got a fact about that, which is kind of linked, which is that Nahum Tate, as well as doing this play, he also wrote the song While Shepherds Watch Their Flux,
+
+[00:16:36] which is the earliest English carol written that we're still singing the original words of. So he would have loved this new adaptation. I should just say, to finish off the Samuel Johnson thing, before the sheep redirected us, he said that King Lear really troubled him, so it caused him extreme discomfort. And even though he published his edition in 1765, he found the death of Cordelia so upsetting that he never ever read it again. He refused to read it again. Unless his editor was literally like, you have to look at these pages to work out what we're going to cut.
+
+[00:17:05] Because he said it was so traumatic. They were really, Victorians found Shakespeare very horrible. We wrote a lot of them. I mean, what it made me think of, you're talking about like sensitivity to kings being overthrown. Do you know the movie Doctor Strange Love? They filmed an alternate ending. So it ends with a big sort of Doctor Strange of getting out of his wheelchair and miraculously walking and then the world blows up.
+
+[00:17:31] But there was a filmed custard pie fight in the water. And there are photos of it. You can Google it and you can see Peter Sellers and everyone throwing cream pies at each other. That's amazing. Yeah, that sounds great. And he effectively went with the Shakespeare ending, didn't he, where everyone dies? Yeah. Oh, yeah.
+
+[00:17:49] Really? I did a little work on Nahum Tate. Oh, yeah. You know, his father was called Faithful Teat. Wow. I mean, that's a strong name, isn't it? Yeah. Faithful Teat.
+
+[00:18:04] That's also the name of one of the goats that went round the mountain. And then I guess he changed his name. He didn't want to be called Teat anymore. So Nahum Tate must have changed it. But he was a big deal. He was Poet Laureate. Was he? Nahum Tate was as well, I think.
+
+[00:18:18] Oh, sorry. That's what I mean. Nahum Tate was, yeah. And then, the next day of the night, for the next century, it was the only carol that was allowed in Church of England ceremonies or services. Really? They hated carols. But this was just religious enough to kind of pass master.
+
+[00:18:33] But at Christmas, would you do the thing where you sing eight carols, but you just had to sing while shepherds watched that blocks by night eight times? Yeah, like a carol service. You just do the same thing all the time. And if you'll now turn your pages to carol number five, while shepherds watched. And the only change that's been made over the last 300 years, according to Wikipedia, this is, the only change that's been made has been changing the word from whilst to while.
+
+[00:18:58] So from whilst shepherds and the other changes where they changed it to while shepherds watched their socks. That was the other one of cars. That was the original. Titus Andronicus was also changed in Titus Andronicus in 1850. There's this big rape scene where a woman has her tongue cut out and her hands cut off and it's to prevent her spilling the names of her attackers. And that was all completely edited.
+
+[00:19:24] There was a version of Hamlet where Ophelia dies from accidental drowning because it was thought to be too upsetting that it was suicide. I think people are often saying that we're a bit too pathetic now, a bit too snowflakey. It was Baudela who did the accidental drowning, wasn't it, from whom we get Baudela rise? So it's a really cool, like a fan theory about him. It's just a theory, actually. About Baudela. Yeah.
+
+[00:19:49] So he published this thing called the Family Shakespeare because he was saying this is a thing that all families can read together. So if you're reading out to your children, you don't want to read a rape scene where someone's get their tongue cut out and hands cut off, which is kind of reasonable. So there's also lots of naughty stuff. You know, there are characters who are prostitutes and all that had to go. There's a theory that it wasn't the Reverend Thomas Baudela who did most of the cutting. It was his sister.
+
+[00:20:14] She did most of the cutting and she produced the first version. But Baudela claimed to have written it so that his sister didn't have to publicly admit that she had understood the root bits. That's so funny. Maybe. Wow. When he was 40, just over 40, Baudela married a lady called Elizabeth Frevenin and it was such a bad marriage that they split up quite quickly and nobody in the family was ever
+
+[00:20:39] allowed to mention Elizabeth's name ever again. So his whole life was bowdlerised basically. Wow. That's great. God, he was very free and easy with editing basically, wasn't he? He edited his life out of the life. Queen Victoria said she'd never had the courage to see the Merry Wives of Windsor. She wrote to her daughter, who was a Shakespeare fan, she'd never had the courage to see it
+
+[00:21:02] because she'd always been told how very coarse it was. It's very boring. I've never read or seen that one. People say that he wrote it in nine days and I'll be honest, I'm staggered. It took him that long to write that play. It's the least good I've ever read. Maybe she just heard it was really dull but didn't want to upset Shakespeare fans. They said I've heard it's too rude.
+
+[00:21:24] Yeah, she found him a bit too coarse for her taste generally. There have been 24 op-pres based on Romeo and Juliet. Wow. The earliest is called Romeo and Juliet, which is quite cool and that has a happy ending. Also, if you go on fanfic.com and look for some fan fiction on Romeo and Juliet, there is a thing called Romeo and Juliet Happy Ending. At the end, it's like a final scene of Romeo and Juliet and it says, days become days and years become years and one day,
+
+[00:21:55] Friar Lawrence gets a letter saying that Juliet had died in her sleep and until that year, he gets the same letter from the Montague's that Romeo's died in his sleep. That's a nice ending, isn't it? But he's substantially older than both those characters, isn't he? So they've still died quite young. I've just got one more thing about modern day kind of censorship and prudishness. So did you see that Cambridge University put trigger warnings on lots of it Shakespeare lectures and people got really exercised about this?
+
+[00:22:26] Just for like sunflowers who couldn't really deal with it. Sunflowers, yeah. So I think this is why this conversation article came out. It was saying, don't worry, people have always done this, but if you take English literature at Cambridge, then if you go to a lecture for instance on Titus Andronicus, or in fact on Euripides the back eye, that's another one that has them, then you get a little one of those exclamation marks in a red triangle at the end of the lecture,
+
+[00:22:50] which is to say this might contain some traumatic themes. Oh my God. If you have been troubled by any of the themes in Titus Andronicus. You've had a rough old life actually. That is tough. If your sons have been baked in a pie. OK, let's move on to fact number three and that is Andy's facts. My fact is that some advertisers have started putting single pixels on mobile phone ads,
+
+[00:23:21] so you think it's dust, try to wipe it off and accidentally click on the advert. It is genius. That is so good. Yeah. So I've only found one advertiser that's done this. There's a great article on Medium called 52 Things I Learned This Year, and this is one of the 52 things. But it doesn't really work, right?
+
+[00:23:38] I've read another article, I think it was. I'm not sure where I read this, but basically they said, if you get paid for every time someone taps on it, then it works. But if you're trying to get actual sales, then it pisses people off so much that people end up not buying stuff. I guess they must be thinking the product is so good that someone will end up buying it. And what was the product? Oh, I can't remember, I'm afraid. I do know another one who's done a really similar thing.
+
+[00:24:03] It's a Chinese trainer manufacturer, and they've put a thing that looks like a hair across their advert, and you swipe to get rid of the hair and you go straight to their website. Yeah, but they got banned from Instagram, didn't they? Apparently it violated Instagram's policies and was removed, and Instagram shut down the entire brand's account because of that. I can't believe it's not counterproductive. Like you say, it's just so irritating.
+
+[00:24:30] There was a study a few years ago that found that 50% of ad clicks on phones are accidental. I don't understand. I'm surprised it's that low. I don't think I've ever intentionally clicked on one. Your phone is so smashed up that if there was something that looked a bit like a hair, you would never see it. No, absolutely not. This bit would not work on me at all.
+
+[00:24:49] The thing it reminded me of is, and I was desperately looking for a source for it, but it's something my American grandmother told me, and I've heard it mentioned on American podcasts as well, that in the old days when you were making a telephone call and you call into the exchange, you could choose which company would carry your call, so which one would get your money, right? Really? But most people, the most common answer was,
+
+[00:25:09] I don't care, whatever, whichever one you choose. And so people started phone companies called, I don't care, it doesn't matter, whatever you want, and they'd rake in this sort of extra. That's incredible. Yeah, it's genius. Do you know on the internet, if you click on a naughty site, you might get a whole load of pop-ups, right?
+
+[00:25:29] Loads and loads of pop-up things. Oh, you do know that. You know what? I've read about it. My pornographers digest. They're called Pornados or Pornstorms. This is a phrase coined by John C. Dvorak, who was the nephew of the guy who invented the Dvorak keyboard,
+
+[00:25:48] which is like a QWERTY keyboard, but it's supposed to be slightly better than a QWERTY keyboard. That's a step down, isn't it, in far-of-the-son invention terms. Well, Dvorak, he writes a lot about computers, and he said that the recent Apple's Macintosh computer would not be successful is because it uses a pointing device called a mouse, and there is no evidence that people want to use these things. And then he wrote about Steve Jobs,
+
+[00:26:14] maybe when the smoke clears, we will have heard the last of Steve Jobs as guru, seer, visionary. He'll go the way of the pet rock, electric carving knives, silly putty, tiny Tim, and a three-tone paint job. That's not really rough on Tiny Tim. A load of not-bringer products, and then one of the most heart-rending characters in all literature.
+
+[00:26:35] That's so mean! Squashed up next to silly putty. I can only imagine maybe Tiny Tim is something else in America, right? I guess so. Probably like a failed product or something. But like, you know, it'll go the way of sea monkeys, nasal hair trimmers, and Jude the Obscure. It's such a weird burn.
+
+[00:26:56] Do you know why pop-up ads were originally conceived? No. It was because advertisers didn't want to be associated with dodgy website content. So it's kind of the opposite of problems that websites have now, where sometimes dodgy adverts pop up on them. So they were invented by a guy called Mr. Zuckerman in the 1990s, and it was because a car company got upset,
+
+[00:27:18] because it bought a banner advert on a page that happened to be about anal sex, which they thought wasn't on brand for their car company. It's unlikely to be on brand for any car company. Exactly. There's so little overlap there. And so he made pop-up ads to kind of distinguish them from each other. And he says, but what's wrong with it? It's just a kind of sex ban. I know. It's the way you say a page that happened to be about it.
+
+[00:27:47] By chance, it was an anal sex theme page. They exist, Adne. I suppose so. They're out there. Hang on. The car adverts were popping up on this themed page. It was all sorts of things popping up. They weren't up for it.
+
+[00:28:03] So he designed this pop-up thing, which is supposed to say, look, this pop-up has nothing to do with the content of this web page. But he's really apologised for it now. He says he feels terribly guilty, because he knows that pop-ups are the most annoying thing on the internet. But his intentions were good. He didn't want cars to be associated with sexual positions. So other stupid creative ways of advertising.
+
+[00:28:23] Domino's this year advertised in potholes. So this is a thing where they've now got a sideline in fixing potholes on roads across America. And you can actually request that they come and fix your pothole if you're in America. And I think it's an advertising campaign. Otherwise, they're just really good guys. But it's called Paving for Pizza.
+
+[00:28:42] And they partner with various local administrations and say, hey, have you got any potholes that you're doing? And they send out their pizza delivery guys who do a sideline in tarmac filling. And then they fill in the potholes. And then they fill in the pothole with a little Domino's Pizza logo. It's not very long lasting at all. Wow. That's quite good, isn't it?
+
+[00:29:03] That's a good idea. So they get their logo on the road. But everyone gets flat roads. So everyone's a winner. Wow. Apart from the other pizza manufacturers. Yeah. Papa John is furious.
+
+[00:29:14] The justification was that potholes damage pizzas. So they're actually saving the pizzas, because on the way, they'll get bumped up and down. They actually put a GoPro inside a pizza box and had people watch the traumatic journey they have to go through to make it to their destination. Wow. KFC advertises on fire hydrants.
+
+[00:29:34] They did this, I think a couple of years ago. They'll pay people to let them fix their fire hydrants if they're broken. They did this in Indianapolis. So they paid, I think, $5,000 to say, can we fix your fire hydrant? And the town was like, yeah, great. And then they sort of put some KFC advertising on top of it.
+
+[00:29:50] But they do also fill up the fire hydrant with chicken. But then all the fire smelled delicious. You don't mind burning to a crisp with a delicious smell of KFC all around you. OK, on to our final fact of the week, and that is James's fact. OK, my fact this week is that one of the most popular celebrities in London in 1860,
+
+[00:30:18] in 1860 was an Eister who could whistle. One of the most popular is so exciting. Also, who could whistle? Not that good. It was a person. Once you whistle, you get personhood, I think. I think so. It didn't have a name, a bit like that goat, actually.
+
+[00:30:35] Yeah, thinking about it. But yeah, so, I mean, what is the most popular? I'm saying it's the most popular because a lot of people went to see it. Yeah. It was in Panto. That's quite popular. But this is a guy called George Perks, P-E-A-R-K-E-S.
+
+[00:30:55] And he was an Oysterman and a dealer in Spruce Ginger beer and British wines. So he's a wine seller and an Oyster seller. And he was sleeping in his house, and he was kept awake every night by this whistling. No, he wasn't. He really was, he really was. And so he thought that it was a policeman
+
+[00:31:12] who was walking past every day whistling. So anyway, so the whistling got louder and louder, and then eventually he thought he was being burgled, he said. Presumably by a whistling burglar. I don't know why a burglar would whistle, but yeah, he did that. And eventually he went downstairs with a pistol to get this burglar, and he found out
+
+[00:31:32] that the source of the sound was one of his oysters. And it seems that what might have happened is that the oyster had a little hole in it, and whenever it was filtering food, so moving the water backwards and forwards, it was making a whistling sound. Okay, and as soon as this became well known, it was mentioned in Punch and a few other things,
+
+[00:31:49] suddenly everyone came around and wanted to see this oyster that could whistle. And even William Makepeace Thackery went to see it and wrote about it. And he said that he was there when an American gentleman declared that the oyster could not hold a candle to one he knew of in Massachusetts that could whistle Yankee Doodle from beginning to end.
+
+[00:32:08] No, he couldn't. I don't think that one's true. But there definitely was this oyster in 1860, and it was famous, and it was in London, and it could whistle. That's amazing. It's mad. Sorry, I've been reading a book by Thackery,
+
+[00:32:20] so the idea of this literary hero going to see the whistling oyster on his day off is incredible. Can you see the influence of the whistling oyster on the kind of plot and themes of Amity Fair? Very much, absolutely, yeah. Imagine having that guy working as your PR man, because that is an unbelievable PR trick.
+
+[00:32:36] Just claim you got a whistling oyster, and managed to get half of London to come and see it. It's amazing. Why? Why? How boring was life? Life was hard, yeah. This was in Covent Garden, right,
+
+[00:32:48] which is where we are now. If there was 100 metres away, there was a whistling oyster, which you'd read about in a magazine. Are you telling me, as a QI researcher, that you wouldn't be curious enough to go and see it? I do get pretty desperate to get away from you, but I might go and see it.
+
+[00:33:04] Did people pay? They didn't pay. Only with their time. They didn't pay, but it meant that he got people into his shop, and then the oyster, like I said, made a cameo appearance in a pantomime staged at Drury Lane in 1860.
+
+[00:33:18] That's incredible. Who did he play? Dick Wittington? He mostly played some whistling character with a shell. It would be really funny, though, to dress the oyster up in a big costume, wouldn't it? It would be amazing,
+
+[00:33:32] put a little bindle over his shoulder. In the 1830s, just on paying for attractions, in the 1830s, you could pay a shilling to see a vase. Could it even whistle? It didn't even whistle. Maybe if you blew into it the right way. It was the Royal Clarence vase.
+
+[00:33:49] It was made for King George IV. It took workers three years, which is too long to make one vase, and if you pay a shilling, you can go and see it. Wow. Didn't even have flowers in it. What was on it? I don't know.
+
+[00:34:01] It was made partly of gold and glass and enamel. I remember I paid 20 quid. To go and see Damien Hirst's skull, which had diamonds on it. That's not much worse than that, is it? No, you're right. You're a dupe. Oh.
+
+[00:34:17] I've got another famous oyster. This is from the Sailors magazine of 1840, which I've not checked how reliable it is in general. This is what they say. There's a gentleman from Christchurch in Salisbury, who keeps a pet oyster of the largest and finest breed. It has proved itself an excellent mouser, having already killed five mice by crushing the heads of such,
+
+[00:34:45] as tempted by it as a meal. They had the temerity to intrude their noses within his bivalveular clutches, and then he crushed the heads. So that's not true, is it? So you haven't checked that. What was it? The Sailors newsletter.
+
+[00:34:59] The Sailors magazine of 1840. Yeah, it doesn't sound very true, does it? Yeah, I think you have checked it, and you found it to be wanting in terms of truthfulness. New Orleans. There used to be an act. Just trying to find things about celebrities and oysters. Yeah.
+
+[00:35:17] So there used to be an act in New Orleans. This was actually a lady who was Elvis Presley's cousin. She was called Kitty West, and she had an act called Evangeline the Oyster Girl in the 1940s, which was a striptease, which began in an enormous and slowly-opening oyster shell. So like that... Is it Butterchelly painting where she's inside a huge clump?
+
+[00:35:39] Exactly, yeah. In the penis of... Exactly like that. But how did she make the shell open? Because you have to get professional shuckers to be able to open an oyster shell. I think it was a professional shucker by the side. A massive lever.
+
+[00:35:51] It'd be funny if the act was a slowly-closing oyster shell. I was looking for entertainers like the oyster that we might have found around Covent Garden, and there's... You could have seen in 1830, Speltarini and his living ass. And there's a poster of him, and he looks incredible. So what he did is he had a ladder in his teeth, and at the top of the ladder was a donkey.
+
+[00:36:13] And in his two hands, he held 56-pound weights. So he was balancing a donkey on the top of a ladder held in his mouth. Wow. I'm kind of impressed by the donkey as well, being able to stay at the top of a ladder. Yeah, it was a pretty chilled-out donkey. That's incredible. And apparently there was a Liverpoolian guy called Sam Wilde
+
+[00:36:33] who did the same thing when they were knobbing the crowd, which is the name for passing around the hat. Of course it is. Yeah, sure. And they'd say, oh, we've got to have just one more shilling, ladies and gentlemen, then up goes the donkey. That is amazing.
+
+[00:36:48] That's a quick-thinking performer who's been cheating on his wife. I was knobbing the crowd last night, which is when we ran around the hat, of course. Amazing that you had one guy who was doing that, and he was obviously so popular that another guy decided, I'm going to do that exact same thing. How hard could it be? It's like the guys in Yoda masks, isn't it?
+
+[00:37:05] It's like a much more impressive version of that. Yeah. It's like a square you frequently have, three or four guys in Yoda masks. You do. And similarly with them and with this guy, you think they just do one little twist, like maybe have a goat, not a donkey.
+
+[00:37:16] Maybe have a Gandalf mask, not a yoga mask. Brinn's Got Talent would have been amazing back in the old days. It really would. If today there was a guy on Brinn's Got Talent who had 56-pound weights in either hand and a donkey on a ladder in his teeth, he would win for me the final immediately. But really, you need to kind of diversify
+
+[00:37:33] for the later rounds, don't you? Because you can't just turn up and do the same thing again. Can you? I've never watched it, but I assume they do different things. I guess you must. And that's the tragedy of Brinn's Got Talent, because this guy deserves to win forever. But you could dumb it down
+
+[00:37:48] and you could start by holding a chair with a cat on it. One thing, you mentioned a policeman and whistles. Oh, yeah. And I did wonder about that. What did they use? What did we use before whistles, right? And it might be common knowledge, but in the design of the police whistle came in in, like, 1883.
+
+[00:38:10] And it was out of a competition, a guy called Joseph Hudson. But before that, they had hand rattles, the police. Really? That's really good. Like, soccer referees use whistles, but before that, they used to just wave handkerchiefs or something. Handkerchiefs, yeah. But he also designed the referee whistle.
+
+[00:38:27] Really? And then he also made something called the Acme Thundera, which is a P whistle. Oh, I've got... You've got an... My parents have one in the house, an Acme Thundera. Really? Yeah.
+
+[00:38:37] Is that how they catch you in check? No, I was too much of a sunflower for that. It just waved a handkerchief for me when I was being naughty. You're not supposed to eat oysters in a month with the letter R, are you? That's an old lifestyle. Yeah. But it seems kind of possibly, probably quite true. Certainly in the olden days where shellfish would spoil in the heat,
+
+[00:39:02] because the R months are mostly in the summer. But also, that usually is a spawning season, so most of the energy goes towards reproduction. Yeah, it's because when they go into their spawning seasons in your R months, then they basically turn completely into gonads. They are fully made of testicles and ovaries, so all oyster tissue transforms when they're spawning into reproductive organs. It's like all of yourself just turning into a bunch of testicles for a period of time.
+
+[00:39:29] That's incredible. It's quite... I mean, that would make the dating scene a lot easier, wouldn't it? Because you would know if someone was... Up for it. Yeah, if they turned into a testicle. You still want to make sure you're an attractive enough testicle or ovary with a good enough sense of humour?
+
+[00:39:46] That's really... Let's get you into an Uber, shall we? Manhandling huge testicles into the boot. OK, that's it. That's all of our facts. Thank you so much for listening. We'll be back again next week with another four facts. And in the meantime, you can catch us on our Twitter feeds, or you can catch these guys on their Twitter feeds, so James is on...
+
+[00:40:09] It's James Harkin. Andy's on... At Andrew Hotter M. Ed is... At Fox Tosser. The look of pain on your face when you knew you had to say it, but you made that for yourself. I didn't, my publisher did.
+
+[00:40:21] OK, that's fair enough. You can get me on podcast at qi.com, and you can listen to all our previous episodes by going to know such things as fish.com. You can go to qi.com slash fish events to get tickets for our tour, and also there's loads of information on that know such thing as a fish site on our book. And what's your book called Ed? Called The Golden Atlas. And you can get that in bookshops, presumably.
+
+[00:40:44] Everywhere, hopefully. Everywhere. All over the world. It is a beautiful book. You should definitely get it as soon as you've got ours, obviously, or buy them at once. And we'll be back again next week. See you then. Goodbye.

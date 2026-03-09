@@ -1,0 +1,269 @@
+# No Such Thing As A Fish - No Such Thing As A Mean Butterfly
+
+- Episode date: February 16, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-mean-butterfly
+- Slug: no-such-thing-as-a-mean-butterfly
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I am sitting here with James Harkin, Anna Chazinsky, and Andrew Hunter Murray. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that due to climate change, Nine out of the 21 cities that have hosted the Winter Olympics will be too warm to do so by 2050. I was glad to see that you put climate change in air quotes there, James.
+
+[00:00:53] This is a so-called climate change. Yeah, sure they will. I did not do that, people at home. I wouldn't do that. But this is about the Winter Olympics, and I'm really excited because the opening ceremony is happening now, as we're doing this podcast. Is it really? Just right now. And by the time this goes out, it will be one week into the end of the end of the event.
+
+[00:01:12] Olympics and Britain will be top of the medals chart probably. I've heard things about Australia having a good year. Are they? Have you got a lot of snow in Australia? No, but apparently nowhere does anymore. So it's actually playing to our favour. Just on who's going to be where are the medals charts, there's a guy from Tonga. Have you heard of him?
+
+[00:01:33] No. He's really good. His name, and I hope I pronounce it right, is Peter Tafatofua. And he tried to learn cross-country skiing in a year. He's the only Tongan athlete ever to have been in. the summer and the Winter Olympics, which is a rare switch through. He did all his training on roller skis and paved roads.
+
+[00:01:48] He's basically a one-man cool runnings. And he hates it as well, is the other thing. He said, every time I ski, I feel like I die a little inside. I still haven't had a race where I felt completely happy. Oh, no. So even though this, you know, the climate is going to warm and it's going to be all ruined by 2050, at the moment, everyone's really whining about how cold it is, aren't they?
+
+[00:02:11] In Pyong Chang, apparently it's, really absolutely freezing, but to an extent that people don't really like. So I think it's meant to be about minus 10, but the wind chill factor there, because it's so windy, brings it down to minus 25. And they're all tweeting that they can't do anything. And the Australian Olympic athlete called Lydia Lassila was asked to be flag bearer in the ceremony. And she said it's too cold.
+
+[00:02:33] It's bad for my knees. I'm not going to be flag bearer for my country. Sorry. Wow. Is she going at all? Yeah, yeah, she's going. But she's just saying. If you go to the Winter Olympics, you should know what you're letting yourself in for.
+
+[00:02:42] is that it's going to be cold. Just wear an extra jumper. You wear an extra jumper, yeah. Maybe bring some gloves. I have no sympathy. Pyong Chang is 700 metres above sea level. It's low. And they call that the happy 700.
+
+[00:02:54] And they say that it's the optimal altitude for humans and animals to live. Really? Apparently. According to locals. It is the coldest place on Earth for its altitude. Is that right? Yeah.
+
+[00:03:05] Wow. And I think it's too, is it kind of too cold? It doesn't snow very much. So it's very dry and it's mostly using fake snow, I think. Well, this guide for it. Tonga's going to be right at home, isn't he? It's going to be the only guy who could do it. Yeah, they stockpile fake snow.
+
+[00:03:19] Yeah. So in Sochi, when Sochi had the Winter Olympics, it was quite warm there. They had the opposite problem to what they have now. And they stockpiled 60 million cubic feet of snow just so they could layer it properly and people could ski on it. Sochi's definitely one of these that will be too warm by 2050. In fact, it's probably too warm now. It was probably too warm when it happened.
+
+[00:03:38] I think you're right. Well, have you seen all the reports of the 2020 to Olympics, the World War I, Winter Olympics. This is in Beijing, so Beijing won it. And the photos that they showed of dead in the middle of their winter was of the mountain range where it's going to be taking place. And it's just green. The whole thing, there's just no snow at all. And so they're going to be using a lot of fake snow as well. And they won it off Almaty, which is Kazakhstan or, yeah, Almati and Kazakhstan. And their slogan to rub it in was keeping it real, because they were like, we've actually got snow for this Winter Olympics. And they started.
+
+[00:04:12] still lost. Do you know in 1960 for the 1960 Winter Olympics, one of the cities that bid was Karachi in Pakistan? Wow. They do have Himalayas there, I guess. Not in Karachi, actually. They do have it in the north of the country, but they don't have it there. They have no traditions of any winter sports. It's a tropical city on the Arabian Sea, and the coldest temperature it has ever had, its entire history is zero degrees. It's never ever gone below. It's never, ever gone low zero. Wow. They didn't win. That's the thing about China though is that there's no tradition of skiing there and as a result China has with classic Chinese efficiency just said right everyone is going to learn to ski now. So they've created 800 ski resorts and they want
+
+[00:04:57] in the next four years to get 300 million people skiing. China has more statues of footballers, soccer players than any other country apart from Britain. Does it really? Yeah just of Chinese footballers? I think they're mostly not Chinese footballers. It'll be many British ones, weren't it? Or Europeans, yeah, or Brazilians. Why do they do that? Because they like statues. Yeah.
+
+[00:05:21] And they like football. Fair enough. So they've taken two things. Story checks out. Did you hear about the Norwegian team at the Winter Olympics this year? No. Every team, apparently, I didn't know this, they take their own chefs to cook for you.
+
+[00:05:36] And the Norwegian team chefs ordered for the team's feeding for the next fortnight. 1,500 eggs from a Korean delivery service. Unfortunately, they made a slight mistake in translation, and they got 15,000 eggs delivered to them. Wow. Yeah. I've done that on a Cardo before. They said, yeah, the truck arrived,
+
+[00:05:56] and they just kept bringing eggs in, and basically they got half a lorry full of eggs. What are they going to do with them? Well, what's funny is there, I did find this story, actually, and there's a quote where everyone's trying to make a massive story out of it, but all the quotes that they come back with are just like, look, they'll probably use them, I guess. I don't know.
+
+[00:06:11] Maybe the people that supplied them will take them back. I don't know. It's not a big issue. No one cares. Come on, give us something. I bet the people who had to heave the eggs all the way inside and then were told to remove them again care quite a lot. Yeah, Dan, it's a big story for those guys. Sorry.
+
+[00:06:27] It's a big story for those guys. Think about the poor delivery guys. I was looking into sports at the Winter Olympics that no longer exist because I remember ages we did an actual Summer Olympics episode and we found some things that used to be a part of it and there's quite a few good ones as well on this they used to do figure skating on skis did they? Wow!
+
+[00:06:52] So you would, yeah, it was like ski ballet I think it was either nicknamed or officially called and so you could use the poles of the cross-country skiing poles to do flips and so on and it featured into Winter Olympics but no longer done, yeah. They used to have a medal for mountain climbing. did they once had an award given out for mountain climbing
+
+[00:07:13] is at the end of the very first winter Olympics Pierre Kubotan the father of the Olympics he gave out a medal for alpinism which is mountaineering to Charles Granville Bruce and he had led an expedition to Mount Everest two years before and it was to say good on you oh right wait so it was to say good on you for the Everest thing it wasn't actually because he'd won mountain climbing in that tournament
+
+[00:07:34] that guy didn't make it to the top of Everest did he he did not so why did he get a medal well he tried it was a consolation Prize. Yeah. Okay. What was his name? Sorry.
+
+[00:07:42] Charles Granville Bruce. Right. Okay. Ski drawing used to be a thing, didn't it? It was in the 1928 Olympics in Samaritz and it's dog, dog-pulled sledding. Yes. Where the dogs basically compete on your behalf. I don't really know why we don't still do this.
+
+[00:07:59] It seems great and it's a commonly done thing across kind of northern Scandinavia. It wasn't just dogs. It was horses. You could be pulled by horses. Yeah. Would you have dogs against horses? I don't know. Couldn't find that out.
+
+[00:08:10] managed to find that out. I think you've got to assume that you couldn't. No. Because one of those is going to be better than the other, isn't it? Exactly. Whichever one's better, you wouldn't choose the other one. But it only appeared once and both horses and dogs competed. So did they do separate races?
+
+[00:08:23] Was it the dog race? You could calculate how many dogs equal one horse and then have a rough rule of thumb for that. Because some horses are better than other horses. Yeah, you could have Shetland ponies against greyhounds. And then, actually, that would probably even out. I don't think greyhounds are strong enough. What if you had 200 greyhounds? It's very hard to fit them on the podium
+
+[00:08:42] I think that's why they didn't do it afterwards But then could you just do that with any animals Like with 5,000 snails or half an elephant? Yeah Half an elephant! James, you've come to regret your half an elephant choice I think Have you guys heard of the ice masters?
+
+[00:09:05] No. They're real people and they control the snow and the ice for Winter Olympic Games. Oh, okay. And there's an amazing article about them in the Smithsonian. And before the games, they will spray onto, like the bobsled tracks, for example, hundreds of paper-thin coats of ultra-purified water. So it makes it completely smooth.
+
+[00:09:24] So there are no bubbles, there are no impurities. Because you can't just send a zamboni down the luge track. You can't zamboni it. So you can cheat in the luge. And the way that people have cheated in the luge before is by heating their sleds. So in 1968, the East German women's team heated the bottom of their sled, and so that slightly melts the snow as you're going down, and it reduces friction. Wow.
+
+[00:09:47] But it used to be legal, I think, in the very earliest games. It was unorthodox. People would call you a maverick, but it wasn't explicitly banned. Is that right? Do you know, in golf, you're allowed to heat your balls before the game starts, but you're not allowed to artificially heat them during the round. What's the advantage of heating your balls in golf? Well, you know, they stick to your thighs left, I guess, though.
+
+[00:10:07] Nice. Wow. Never knew that was an issue. Dan does a lot of nude golfing. They might fly further. I don't know. I don't think anyone actually does this, but it is technically legal.
+
+[00:10:26] What qualifies as artificially heating them? If they're just in your pocket... That's fine. Can you tuck them in your armpit? It would mess with your stroke, wouldn't it? Yeah, it would. but your caddy could tuck them in his armpit. Yeah.
+
+[00:10:42] The US have heated jackets this year. Yeah, Ralph Lauren have designed their jackets and they've got this super high tech design where they contain apparently electronic conductive inks which are printed inside their jacket in the shape of the American flag and they're attached to a battery pack. And so it means that all the US competitors in the Winter Olympics are artificially heated.
+
+[00:11:02] You don't wish harm on anyone, but I really... If those batteries do... happened to overheat and sat on fire. I'll imagine just having a massive American flag, Stars and Stripes tattoo on your bag. What happened? Ralph Lauren happened, maybe.
+
+[00:11:20] That's quite nice though, because if everyone's outside having a siggy, can everyone just gather around the Americans to get heed off them? I'm not sure during the Winter Olympics, everyone goes outside for a city. You know Eddie the Eagle? Yes.
+
+[00:11:35] Our British celebrity, who competed in the 1990, the 1988 Olympics for anyone who doesn't know and he was the only ski jumper to have competed for the UK and he was terrible. He meant they had to change the rules of the Olympics to make sure such terrible people couldn't qualify in future. But he was a plasterer when he entered and he still works as a plasterer in Stroud. Cool. Which I just find so weird. He's such a known name to everyone in Britain. He's just hanging out in Stroud being a plasterer. It must be weird to have a life where you're just a plasterer all the time and then just for two
+
+[00:12:08] months, you're the most famous person in the whole of Britain, and he goes to the Olympics, and then you're a plasterer again. So bizarre. So when they made that movie of him, do you think he arrived at the cinema thinking, finally, my plastering career is going to see it. Oh, what? They picked that one event. Okay,
+
+[00:12:27] there's time for fact number two, and that is Jasinski. My fact this week is that Canada has a strategic maple syrup reserve, and in 2012, a quarter of the maple syrup in it was stolen. and I love this.
+
+[00:12:41] I only just found out about this, but this is in Quebec, so Canada taps 75% at least of the global supply of maple syrup. And so it provides a lot of jobs for people. And so in the same way that there needs to be an oil reserve in the US because of fluctuations in the market or if all the maple trees suddenly die or whatever in Canada,
+
+[00:12:59] they have a massive reserve so that the prices can stay stable and so that the supply can stay stable. Stable or artificially high? Or artificially high, if you believe the whole. cartel, this is a mafia kind of argument, which some do. Some do. I don't.
+
+[00:13:15] No, no, you wouldn't want to get in trouble with those guys. No, but this was the largest theft ever investigated by Quebec police in their entire history. That's kind of nice that it got to be something, a local product, isn't it? Yeah. It was $30 million worth was stolen, which I think it was about 6,000 barrels. Six thousand barrels. It was enough maple syrup to put one tablespoon on 183 million flapjacks. Okay.
+
+[00:13:40] Would you put maple syrup on a flapjack? I think that maybe, now I read that, because I thought it said pancakes, and then I read it and it said flapjacks. So there are two options here. One, I've written down the wrong word. Or more likely, I've copy-pasted that word, and the word flapjack means something different in Canada.
+
+[00:13:55] Ah. Anyway, there are these guys, the Federation de Productor Aerico de Quebec, which is, as you say, the syrup produces union. And basically, they do. They run the whole show. You're not legally allowed to sell maple syrup to anyone except them.
+
+[00:14:10] And then they stockpile it so that if the farmers have a really good year, buyers can't buy it really, really cheaply and then screw the farmers over the next season. However, a lot of farmers want freedom to... They do, because they can do things like... I didn't quite realise that this is how cartels work, but the farmers don't get paid
+
+[00:14:26] until the stockpilers have actually sold their syrup. So if they just decide that there's been a lot of maple syrup made that year, so they're not going to sell a very high proportion of it, then the farmers aren't going to get paid for their maple syrup until it's gone out onto the market, which does seem a bit frustrating. So why haven't they done what happened in America? In 2002, a farmer called Marvin Horn decided that he was not going to hand over his raisins anymore. So the government, since World War II, had been stockpiling excess raisins from farmers
+
+[00:14:56] because the market was flooded, basically, with raisins, and they didn't know what to do. So they stopped. Farmers had to give any extra raisins that they had just over to the government. and this guy, Marvin Horn, he said he wasn't going to hand them over anymore. The government sued him for $680,000, but he won the case in the end. Yeah, but he won after 13 years of grinding lawsuits at legal battles. I mean, I know, but... Why doesn't everyone just do that?
+
+[00:15:21] There just needs to be one tree sapin farmer who's going to spend 13 years for the cause of maple syrup in Canada. I guess. I think no one really wants to be the first one to do that. But the raisin reserve is unbelievable. Yeah, wow. It's a real thing. And it still exists. not even sure if they're going to go back to doing it because this lawsuit has thrown up everything up in the air and they might cancel it now. I can't believe there's been a massive
+
+[00:15:43] raisin stockpile. Well, this is, but this is why this huge theft of all the maple syrup happened as well. It's groups who are kind of objecting to this mafia like hold they have over the market. And it's discovered in July 2012 when they just did a routine check of this massive reserve and they realized that one of the barrels kind of tipped over too easily and they looked inside it and they realized it was empty. And then they inspected all the barrels and so many, loads of them were filled with water and they realized that somehow someone had been siphoning out maple syrup and they found the people eventually who'd done it and it turned out they'd hired some space out in the big storage in the big warehouse and they'd just been gradually siphoning the maple syrup
+
+[00:16:20] out. So when you siphon petrol, you have to suck a little bit out, don't you? And then you spit it out of your mouth. I only know this from movies and then you can siphon it by using the physics of siphons. Yes. Is it the same with maple syrup? and if so, would you spit it out, probably not. You'd spit it out, but only onto a nearby pancake.
+
+[00:16:39] Or flapjack. Or flapjack. And the other thing is, once you steal all these barrels of maple syrup, what do you do? Is there like a black market of maple syrup? Yes. A guy down the pub says, I've got a barrel here. There's a big black market.
+
+[00:16:55] That's what the rebels do, yeah. Black market maple syrup dealing is an issue in Canada, and that's how people are getting around it. So there are quite a few. That's interesting. Apparently, the price of a barrel of maple syrup is around $2,000, 13 times the price of crude oil. Wow. So it's extremely expensive.
+
+[00:17:12] And tastier to suck out of a siphon. Yes, but less good for running a car. Yeah. Look, they both got their advantages and disadvantages. It would be a boring world if we were all alike. But here's a thing. If you are showing some pancakes or flapjacks on television for an advert, and you want to put maple syrup on it,
+
+[00:17:33] they often use motor oil. No. Because it looks better on camera, the maple syrup. But what about the demonstrator lady who then has to start eating it? You see her take it and she shoves it into a car's exhaustive. Is that what you do with your motor oil?
+
+[00:17:52] My car doesn't work. It's really weird. So, maple syrup, I didn't really know. that you could just cut into the side of a tree and it just comes out. Not any old tree.
+
+[00:18:06] Good point. There has to be a maple tree. Yes. Weird though, isn't it? Yeah, it's because trees store it in their roots for winter and then they convert it to sugar. They store starch
+
+[00:18:16] and then they convert it to sugar and then that's the sap. And then you have to concentrate it about 50 times because it just comes out as a much thinner liquid and the Algonquian Aborigines would concentrate it.
+
+[00:18:28] They would either drop a hot stone in so that boils off the liquid or they would let the sap freeze overnight and at the top all the water has turned to ice and you just get rid of the ice. Wow. It's got a concentrated maple syrup. That's so cool.
+
+[00:18:40] Wow. And then that's it. That's just as good as... I think you have to do quite a lot of times to get it because these days it's really concentrated stuff. Yeah. It's 66% sugar. But you can only do it at certain times of the year, can't you?
+
+[00:18:52] You can only do it when it's freezing during the night time and warm during the day. So that's when the sap starts flowing up and down and that's why. when it'll tap out. And I think that's why the reserve is so important because it has these really specific conditions that it flourishes in,
+
+[00:19:07] so it's really easy to have a bad season. But they've invented this amazing new way of getting maple syrup out, which is actually going to increase the yield, they think, tenfold when they master it, and it's vacuuming. So what they've done is they've attached vacuum vacuums to these maple trees,
+
+[00:19:22] and then they connect all the vacuums with a pipe, and it sucks the syrup out. But it's incredible. It literally sucks the sugar almost straight up out of the ground. So someone described it as being like a sugar straw. So it basically is a way of sucking all the stuff out of the ground and then the tree turns it kind of into the syrup that you want on the way up.
+
+[00:19:40] And then you can dump it in your big vat. It feels very unnatural that to me. It's not authentic, is it? No. It must be bad for the tree too. It must be bad for something. Yeah, it doesn't sound sustainable, does it? Because the old method where you just drill a hole in and then people just hang plastic bags off.
+
+[00:19:54] Yeah. It just drains down into the plastic bag. Or a bucket. Like there's a leak. Does that feel natural? to you James? Well, drilling...
+
+[00:20:02] James just eats the tree. I think drilling is slightly unnatural but I think attaching a massive vacuum pleader to something is the next level. You're right.
+
+[00:20:11] Yeah, it's a few levels about it, I would say. China has more than 200,000 tons of frozen pork just kind of hanging around
+
+[00:20:23] and that's because they do the same thing as Canada is doing with its maple syrup. So they have a strategic pork supply. And that's because they have more pigs than the next 40 pork producing countries combined. Next 40.
+
+[00:20:36] Yeah. And they're so massively dependent on this one commodity because loads, like some people, it's like 70% of the protein comes from pork. And so they need to keep the prices steady. And this is one of the best ways to keep prices steady. And they needed it actually in 2016, didn't they? They really had to draw on it. Yeah, they had a pork issue, a pig issue. What happened?
+
+[00:20:55] Porkocalypse. Pork coccalyps. Yeah, sure. A pork eclipse. Pork chocalyps. Or Borkelips is better America similarly has a reserve of helium
+
+[00:21:09] because in 1921 they thought the blimp was going to be the ultimate war weapon for them so they built these huge factories for all the helium that they were keeping for their blimps but they got rid of the blimps but they kept the helium so they still have in Amarillo Texas
+
+[00:21:26] there's an 11 billion cubic feet reserve of helium that they've kept and it's just there, it's just waiting. But it's embarrassing, I think, for the people who were initially working on it when they were asked what they did and they'd say, I worked for the military storing helium, and then 10 years later it was, I worked for children's birthday parties storing helium. A lot of clowns were seen leaving the helium reserve, the biggest height of the century. How many, how much helium do you think you'd have to inhale before you could float away out of the helium reserve?
+
+[00:21:55] Too much. Too much. Too much. An unhealthy amount, you reckon. I think you need to pump it, your body full of it, basically. Okay. Hey, we need to move on. We do need to move on. Just one more thing. So the EU famously, especially in the 80s,
+
+[00:22:08] had butter mountains and wine lakes for exactly the same reason. There was a building in Wiltshire that was holding enough butter to spread on 50 million slices of toast. And the monster raving loony party suggested that we should turn it into a butter Mountain, turn the butter mountain into a ski slope for Eddie the Eagle to practice on.
+
+[00:22:28] Oh, because of the soft landing. No, because it was a butter mountain. It's a bit like snow. Because it's a mountain, a bit like snow, and he needed somewhere to practice. Yeah, but I just also think that butter would be a really nice substance to fall on. Don't try and impose logic on the monster-raving looney party's policy platform. You're right. Okay, it is time for fact number three, and that is Andy.
+
+[00:22:57] My fact is, the when Russia invaded 50. Finland in 1940, they were so convinced that they will be welcomed with a celebration that they took musical instruments with them as they invaded. They were not. They were not welcome. No. So this is a thing called the Winter War. It was between the Soviet Union and Finland. And it was part of the Second World War.
+
+[00:23:18] So the Second World War was in full swing. And the Soviet Union had, I think, wanted a bit of Finnish territory. And Finland said, no, we don't want to lease you this land or for you to have it. so Russia invaded and it was this very very asymmetrical war Soviet Union had a lot of resources Finland had almost none and all right
+
+[00:23:38] the Soviet Union did win the war sure but it was a very they managed to really drag out the campaign and it was and they lost way more people so I think they lost five times as many troops in the winter war didn't they? The Soviet Union did it yeah the Soviet Union
+
+[00:23:51] and it was a disaster for them it was one of those wars that maybe they officially won it because in the end the Finland had to cede this bit of land that they wanted but it was a disaster because they hadn't expected it to be so rough, which is weird because the main thing they weren't expecting, according to all accounts, was the terrible weather and the freezing cold.
+
+[00:24:08] But you would have thought, I mean, that's what everyone else, the problem everyone else stumbled into when invading Russia. So you would have thought the Russians would know and be prepared. Well, they probably thought like a winter Olympian. I know cold.
+
+[00:24:20] How cold is that going to be? They probably thought they had it covered. And it was another level. Yeah. I was reading into the winter war, knew nothing about it. And, you know, when you do this kind of research, your eyes get sort of caught by things like sausage war.
+
+[00:24:34] And you think, oh, that's going to be funny. And it's not because it's war. And basically what it was is the Soviets had managed to get into Finnish enemy lines and snuck up on them from behind. And so they caught them completely off guard and they were taking out a lot of their troops as they were heading towards their camp. But from the direction they came,
+
+[00:24:54] they arrived at the bit of camp where the chefs had, just been making a massive meal for all of the troops. So it was a ginormous tent full of just freshly made sausages. And these poor soldiers who'd been starved and were freezing were so taken by the smell and the fact that they'd not eaten that they just went in and they ate all of the sausages. And while that was happening, the Finnish troops were able to regroup and get back in time to defend it. So no one officially, I think, won it necessarily. It's just a little episode in the I think the Soviets got completely routed, didn't they? Yeah. That is quite funny. They kind of lost because they were too busy monging sausages.
+
+[00:25:31] Yeah, I know. A war, though. It's a sausage skirmish. It's a sausage skirmish. It's a sausage skirmish, yeah. Do you know that the finish had saunas on the front line? No. Get out.
+
+[00:25:41] They took every Finnish soldier for every two or three days was allowed to go to one of the saunas. Who had to carry the saunas with them as they were advancing? So they had a few mobile saunas, which I guess probably on wheels. I'm guessing about that, or skis. Yeah. And they also utilized the saunas in villages around Finland. Cool.
+
+[00:26:02] And it was really good, not just because it was saunas and Finnish people of saunas, but also because it prevented frostbites and it helped kill bacteria. So they didn't have nearly as many problems medically as the Russians did for that reason. Clever. That's very good. It was a guerrilla war, basically. Yes. And they took advantage of the fact, like in loads of guerrilla wars,
+
+[00:26:21] the infrastructure wasn't really there. So there were very few roads into Finland, and either side of the roads that you had were incredible. incredibly thick forest. So you would have a column of tanks and you might mine the road. So then the tanks have to stop because the front one of the front one has, you know, been damaged. And then from that point on, the Finns just kind of appeared through the woodlands and constantly, you know, harassed the Soviet troops. On skis, mostly.
+
+[00:26:44] On skis. And there were much better skiers because they had trained to ski because they didn't have this infrastructure at all. So that's the only way you could get through. So I think the Soviets were just taught to wear skis, stand up, fire a gun, whereas the Finns could actually. And the Soviet skis were just kind of ones that they kind of cobbled together, whereas the Finnish people were all using their own skis. And so the Soviet skis were so bad that when the finish kind of captured them, they just were no use and they just used them for firewood. Oh really? Wow, wow.
+
+[00:27:12] And at the Winter Olympics, people have been throwing away their skis, haven't they? Have they? Yeah. Oh yeah, because it's too cold. It's so cold, apparently, that the first time you try skis on practice runs, one of the coaches said that they just turned to garbage the skis because they get it. damage by it being too cold. It warps. So the snow adheres, I think, and then it's too cold and it warps the ski. Wow.
+
+[00:27:32] Yeah. I was just looking at wars where people have had way too high expectations that have turned out to be wrong. So these guys in Finland, you know, they had this band because they really thought that they'd got the victory. Yeah. And similarly, in the war, I was reading about when British soldiers in the second war were, they mounted this to this really good strategic point called Sionkop.
+
+[00:27:56] and it was this hill, and they got up quite easily, and they realized there were very few casualties, and they were fighting the balls on all sides. They made it to the top of this hill, and it was brilliant, and they thought we've achieved this massive victory, we're going to be fine. The leader of those troops sent a message back to the general, saying he could expect his position to be held until doomsday against all comers
+
+[00:28:16] because they were at the peak of this really important hill, and they dug trenches in, planned to stay there. So that was in the evening, and there was a big fog hanging over them, and the next morning the fog lifted, and it was one of those things where you think it's the peak of a mountain but then the fog lifts and there's actually loads more peaks around you and the fog lifted and there were three more peaks on all sides
+
+[00:28:36] and all the boars just sitting on them waiting looking down at them going you bunch of idiots. And that is where the name of the cop Liverpool's football ground you know one of the stands is called the cup. Really? It's named after that. Because it was originally there. That's amazing, isn't it?
+
+[00:28:55] A lot of stadiums were built around this time. Was it late 19th century, was it? And it was kind of, this was a slanted bit of land. And all these places where people were watching football from were slanted bits of land. So a few of them were named cops. And Liverpool's the one that's kind of stuck around. Oh, wow.
+
+[00:29:11] That's very interesting. Very interesting, yeah. Do you guys know about Simo Haifa, who I'm almost certain that's not how you pronounce his name? In fact, I'm going to come out and say it. That's not how you pronounce his name. He was finished. he has the most number of confirmed kills
+
+[00:29:28] of any soldier in history 5005 with his rifle alone and possibly 200 plus more and the Soviets were so worried about him because he was like a sniper just taking people out they would send artillery strikes in order just to kill him he killed probably 0.6%
+
+[00:29:48] of all the Soviet fatalities in the winter war were down to him and he had a full white camouflage suit so no one could ever see him and so they couldn't see his breath
+
+[00:30:00] he used to put snow in his mouth so that his breath would be cold so that they wouldn't be able to see him that way that's amazing
+
+[00:30:07] why wasn't all winter army uniforms just white they were they were all the fins and skis were in the
+
+[00:30:14] they didn't eat snow no but the Russians didn't they came in khaki so that was another one of the problems yeah they were they got the wrong
+
+[00:30:22] that's a bit of an oversight big arrows above them saying enemy here. The lot of immigrants from America and Canada finishing immigrants to America and Canada returned home for the war. They sort of
+
+[00:30:36] came back to sort of help Finland out and they had a lot of volunteers as well who did that. One of which was the actor Christopher Lee who fought in the Winter War. What? Yeah, Sauraman from the Hobbit movies Count Duku from the second Star Wars movie. Salamanca from the
+
+[00:30:53] Man with the Golden Gun. We know the filmography We didn't know he fought in the winter war. Yeah. Doesn't say that on his I-N-D-B, does it? No, it's, yeah. He was not on the front line, but he was, he went back for the effort and he was a volunteer. Was he finished? No, he was just getting started.
+
+[00:31:08] He was. Oh, God. Come on, Dan. You're better than that. I'm not sure he is, James. No, he was American. He was just volunteering. Dan, do you know there's a conspiracy theory that Finland doesn't exist?
+
+[00:31:25] No. I'm so glad they're bringing another one into the mix. What's the reasoning? The idea is that it was made up by the Soviet Union and Japan. And the reason was that the fishing is so good around the Baltic Sea area, they wanted other countries to think there's no point in Sydney boats there because there's a massive country in the way. Oh, wow.
+
+[00:31:45] And so the idea is that there is no such place as Finland, and all the people who think that they're Finnish are actually living in Estonia and other countries around there. And according to the conspiracy theorists, the fact that it's called Finland is a clue because fish have fins. That's... Very good. See? Yeah.
+
+[00:32:05] Built on solid reasoning. So who's buying all the saunas if it's not the fin? Okay, it is time for our final fact of the show. And that is my fact. My fact this week is that Greek gods of the ocean include Poseidon, Triton, Oceanus, and Doris. Doris the god who just brought them all tea and biscuits in the afternoon
+
+[00:32:35] yeah so they're all oceanids Doris is an oceanid she Doris is Poseidin's mother-in-law When you say an oceanid As if that's just a word That we casually use in day to day life Yeah I should explain what it is An oceanid is like a cryptid
+
+[00:32:51] Cryptid being Yetis and stuff An oceanid is a specific god of the ocean Is that right? Yeah Ocean Maybe or I don't know. Oh, yeah, maybe. All the ancient Greeks are dead, so no one is going to write and correct us.
+
+[00:33:07] But yeah, I just love that as a... Poseidon's mother-in-law. Yeah, so she's associated with a lot of very famous names that you would know if you know basic Greek godology. That I am certain is not a word. I think we should just apologize now for all our pronunciations for everything for the last four years. Yeah. For the next four years. Yeah, Doric is a Greek word, obviously,
+
+[00:33:31] and mostly famous for Doric architecture. So everyone is always knows at a spot of Doric column, I feel like. Is that related to Doris? So there was a area called Doris, which is where the Doric architecture was from. What was there? Which I, yeah. Can you tell us how to recognise a Doric column?
+
+[00:33:47] I don't know how to do that. I always, I'm going to get it wrong. I always thought it was the ones, so they're wider at the bottom, then at the top. Often you don't notice that, because it's further away at the top anyway. And they've got those little grooves in them. So you know, columns that have...
+
+[00:34:02] Groves. So they're quite plain. What's really funny is that you and I are discussing this, and Andy actually knows that he's... I'm actually trying to get it. I'm itching to cut in here. No, I don't think we've got time. Right, guys.
+
+[00:34:13] Basically, Doric is the absolute vanilla of columns. It's got the grooves. It's got a couple of round bands at the top. Nothing fancy. Then there's Ionic, which has got the curly scrolls. And then Corinthian are the crazy, crazy ones, which have got flowers and bursting pineapples at the top. Those are the really fancy ones.
+
+[00:34:28] That's what I said. Then you get some composite ones as well, but we don't have time for that. No, please. No, no, no. Doris was, felt like she was the god of the kind of rubbishy part of the ocean. So she was specifically the god of the mouth of rivers where the fresh water mingles with the brine and it gets really briny and salty. So it was really just that specific part that she managed. And she represented the fertility of the sea.
+
+[00:34:53] That's quite a good bit, I think. Yeah, really. It was a fishing ground. So if you're into fishing, it was good. Like mangroves and stuff like that, right? Yeah. It does feel a bit like she was at the back of the queue when the bits of the ocean were being handed out to all the gods.
+
+[00:35:05] There was a god called Achalas, who was the patron god of the Ackalos River, and that was the largest river in ancient Greece, so that was quite important. But I like the thing about him was that he created the river by crying. He was the Justin Timberlake of his time, wasn't he? Cry me a river. Good old-school reference there. Come on, compared to ancient Greek gods. Yeah, it's true.
+
+[00:35:25] There are still loads of things today that are named after the gods. So there was one article, you know, Quartz.com, QZ? Yes. They're really good. There was an article all about hedge funds which are named after the gods. And it mentioned an analysis which found that if you add a word which conveys gravitas to the name of your big financial body like Zeus or Ares or Poseidon or the Roman equivalents. Or Doris.
+
+[00:35:49] I'm not sure about Doris. That is the thing. If you add a Gravitas word, it adds 250. $50,000 of income each year. Wow. But it also pointed out that almost all of these names are really badly chosen. So Hermes is chosen for loads of them. He was the god of swindlers.
+
+[00:36:08] There's Medea who murdered her ex-boyfriend's sons. There's Icarus, who famously flies too high and then crashes into the ocean. And then there's Tanzlers, who is good because he's wealthy. But he also, when the gods visited him, he killed his own son and roasted him to impress the gods. So they punished him to eternal hunger and thirst. But they all have the odd skeleton in their closet, don't they? These gods. That's true.
+
+[00:36:32] You know, they often do good stuff, but then they, you know, eat their children or whatever. But there's always something for all of them. Yeah. It's a weird thing to do to impress someone is to roast and eat your own son. Just on names, I found that the eldest cyclops of Gaia was called Bronte. And Bronte was for the thunder, god of the thunder. So you've got the Brontosaurus or Thunder Lizard, which gets its name from the Brontes. There's a theory.
+
+[00:37:01] Now, I'm getting this from Stephen Fry's mythos book, and so this is a footnote, which is a theory he's putting forward that someone has come up with. The Bronte sisters are actually named after this Greek god, Bronte. And it's because their father was born Brunty, B-R-U-N-T-Y, but change it to Bronte, either as a tribute to the classical Greek god, or in honor of Admiral Nelson, who was made the Duke of Bronte, and that dukedom was located on the slopes of Etna, and that was believed to have been derived from the Cyclops name Bronte. So the Bronte sisters are possibly a tribute name to a Greek god. That's very cool.
+
+[00:37:40] That's pretty cool, eh? Some more gods from that big list on Wikipedia of gods. Chiamites is the demigod of the bean. Wow, not even the god of the bean. Ouch. Akratapotees is the god of unmixed wine and incontinence. And Harpocrates, I quite like him, he is the god of silence. And a lot of people thought that Harpo Marx got his name because he was always silent.
+
+[00:38:12] But actually, he got his name because he played the harp. It's just a coincidence. There was a god called Anna Idea. and the Anna idea was the spirit of ruthlessness. Yeah, yeah, I can do in that. Shamelessness and unforgivingness. Oh, that does sound a bit harsh. Do you know Cardea, who's the Roman goddess of door hinges?
+
+[00:38:37] Cool. It's quite a low rung. Well, no, it's interesting. I wouldn't have known they had hinges back then. I think the doors opened. Do they have doors? Okay, well, well done Greeks. There's Roman.
+
+[00:38:50] It was Roman. Sorry, Roman. It was Roman, yeah. I think also the Greeks might have had hinges on doors. We don't know that. It's so annoying, because I can't prove to you that we do know that in the moment. I think we do know that. That must be annoying. There are still people who worship the ancient Greek gods.
+
+[00:39:06] Are there? Not many. I'll say that. But in Greece, in 2006, a court in Athens officially unbanned their worship. But they're only about 2,000 worshippers. And the story in The Guardian quoted a Christian priest in Greece who said, they are a handful of miserable resuscitators of a degenerate dead religion
+
+[00:39:23] who wish to return to the monstrous dark delusions of the past. That's harsh for what is just a bunch of harmless eccentrics, isn't it? I think so. Do you know the word atheos, where we get atheism, comes from without God or God forsaken or abandoned by God, that's what it originally meant.
+
+[00:39:40] And we got the word from the French, and in English it predates the word theism by over 100 years. So atheism was the first thing, and then we got Theism afterwards. Oh, wow. Oh, that's interesting. That is interesting.
+
+[00:39:51] That is absolutely the opposite of what I thought would have been... I think that's why... No, I think that's why he's mentioned it. If all my facts were exactly what you thought they were going to be, then this would be a very barring podcast. Well, maybe you finally said something I did in no, text. Okay, that is it. That is all of our facts.
+
+[00:40:15] Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter account. I'm on at Shriverland, Andy, at Andrew Hunter M, James, at James Harkin, Jasinski. You can email podcast at QI.com. Yep, or you can go to our group account, which is at no such thing.
+
+[00:40:33] You can go to our Facebook account, which is also just no such thing as a fish, or you can go to no such thing as a fish.com, our website where we have all of our previous episodes. We have links to all of our live shows. There's also a link to our book. There's links to many things. Go check it out. It's a fun page. Okay, we'll be back again next week with another episode.
+
+[00:40:50] We'll see you then. Goodbye. Oh,

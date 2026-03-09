@@ -1,0 +1,89 @@
+# No Such Thing As A Fish - NSTAAF International Factball: Bosnia v Nigeria
+
+- Episode date: June 21, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/nstaaf-international-factball-bosnia-v-nigeria
+- Slug: nstaaf-international-factball-bosnia-v-nigeria
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of no such thing as a fish presents international fact ball. This is a only football podcast out there on the net that makes absolutely no mention of football whatsoever brought to you by the QILs in association with visitinglin.com. My name is Dan. I'm sitting here with James, Andy and Anna. And it's time for our match, which is Nigeria versus Bosnia. And let's start with Nigeria. There's the whistle. Let's go. Nigeria has the twin capital of the world.
+
+[00:00:30] What? What does that mean? It's a town called Igbo Aura. It's got a population of about 60,000, I think, and one in six births there are twins. One in six. The European average being one in a thousand. That's a pretty hefty twin rate. So you know why? They claim it's all some people claim it's because of their diet,
+
+[00:00:45] but there's no real evidence for that. So I think it's probably genetic. Oh, yeah, they say it's yams. Yes. Nigeria is the world's largest producer of yams. Also of cassava and cowpeas. Yeah. Yeah. In fact, yams are so popular in Nigeria that they have on their version of Sesame Street,
+
+[00:01:02] which is called Sesame Square, the Cookie Monster. Cookie Monster has a different name and he eats yams. But they also have a character which which is really nice. I think it's a character who has HIV. Oh, wow. That is nice. It is nice because I mean, it's obviously a problem and and it's a character that educates children about the disease. So they're not afraid of people who have it.
+
+[00:01:20] You know, it's really good. OK, I found this fact courtesy of Mark Mason, actually, who's a friend of us, one in six black people in the world is from Nigeria. It's a massive country. It's a population is one hundred and sixty eight million. Wow. Isn't that amazing? Yes, that is. Yeah, it's really, really massive population. That's very exciting.
+
+[00:01:37] The brawl broke out in the Nigerian parliament last year. It was about the re-election candidacy of Good Luck Jonathan. And it's so great. It's in their house of representatives and they just start having a big punch up. And so everyone, all the politicians, they're getting together and a politician tears another one's shirt. People are hitting each other. There's a woman who just like pokes this guy in the face repeatedly.
+
+[00:01:57] There's another politician who like picks up a chair above his head and then does that thing where he's like, I think I've gone too far. So he just suspends this chair above his head really awkwardly for five minutes. I like WWE wrestling. It's kind of like that. That sounds amazing. He's got a really awesome name as well. Hasn't he got an amazing name?
+
+[00:02:12] His family's trade was canoe making. Oh, really? Cool. Yeah. He studied zoology at university, though, so he didn't go into the family business. OK, just speaking of nice names, I discovered and I'd never heard of this before, but Nigeria actually have the second largest movie industry in the world behind Bollywood. And so this is the name that I love.
+
+[00:02:31] Nollywood is Nollywood. That's great. Yeah. And it's massive. They're really, really massive. But just to just to quickly go down the the name road very quickly, an actor, a very famous Nigerian actor recently took a lot of stick for the fact that he named his kids both Hollywood and Nollywood. He had to release a statement in the end because he was getting so much hassle from everyone in the media
+
+[00:02:51] about the fact that he named his kids. He said that there was nothing wrong with giving his bundles of joy. The names King Praise, Michelle Victor, Tokua, Jesubo, Lio Loa, Hollywood and Queen Grace, Michelle Victoria, Peculia, Chimera, Jessica Mera, Ompola, Nollywood. It's typical of the press to fix eight on the word Nollywood or Hollywood when there are other names like Peculia. Yeah, there were.
+
+[00:03:15] There's like eight other names in each name to pick on, but they didn't. They didn't go for it. Nollywood is really interesting. Nollywood makes so much money and so many films. They make over 2,400 films per year. Their budgets are only 10 to 15 grand and the piracy levels there are such that there's 10 illegal copies to every legit copy. So they'll pick up within the hundreds of thousands for each movie.
+
+[00:03:39] There are some titles. Tear My Brat Brackets If You Can, Bum Bum Soup and Mama Insurance, which I love. Chicken Madness. Chicken Madness is great. What is Bum Bum Soup about? I have not been able to clarify because I don't want the search term in my Google history, basically.
+
+[00:03:58] I read that Nigeria had the oldest man ever to live. And I think it's incredibly dubious because the age he supposedly lived to was 160. Yes, I think that might be dubious. His name was Pa Aki and Pa Aki lived to 160. And he realized while he was 160 that he didn't have a single photograph of himself. He decided to call a photographer and said, can you come over and take a photo of me? And while the photographer was on his way over, Pa Aki died. No.
+
+[00:04:29] Yeah, before he got his chances. And his grandkids wanted the photo to still happen. So they put him on a chair and they had the photographer take a picture. Yeah, his grandkids who were presumably like 110 years old. Oh, yeah, good point. Yeah, I'm not sure about Pa Aki's story. That's a very good point. While we're on Nigeria, we should probably talk about Nigerian four and nine email scams
+
+[00:04:49] because they're so good and creative. We covered this a bit on QI. Basically, they're not Nigerian properly. The people who introduced them to Nigeria were probably British scammers. In 1914, the British ambassador to Spain warned Nigerian colonial officers about these pen and paper letter scams, saying, by the way, there's a great fortune here. Do you want to get in on this?
+
+[00:05:09] If you pay me a little bit of money, I'll give you all a huge sum. And then we gave them the scum. Yeah, yeah, they took it and ran with it very enthusiastically. I think the vessels coming in soon because we're definitely nearing halftime. Anyone got any last second facts they want to throw in? Yes, yeah. In the Nigerian Navy, there are 20 ships. All of whose names mean hippopotamus in various local languages.
+
+[00:05:34] Hey, that's a halftime whistle. That means it's time for a halftime show brought to you by visitingland.com. And this comes in the form of a QI quiz. We've got three questions for you, of which the answers will be revealed at the end of our podcast. OK, so question number one, James, what do you got? OK, my question is in 1348, sensing weakness, the Scots invaded Northern England.
+
+[00:05:56] Why did their invasion not go according to plan? Andy, question number two. My question is what lined the entire south and east coast of England in the summer of 1976 and a third question, which English writer made the first known reference to potato chips? OK, that's good. All right, so there's the three questions. If you want to find out the answers to those,
+
+[00:06:21] you better stay tuned to the end of our podcast and we'll reveal them there. But now it's time to get back to the match and it's the second half and Bosnia. You like this, Dan, you like your national anthem. I do love it. You know what the national anthem of Bosnia hurts governor is? I do not know. It is called the National Anthem of Bosnia and hurts a governor. Nice. Fantastic.
+
+[00:06:40] Do you think that has anything to do with the fact that they're so confused about their language? So they speak Serbian, Bosnian and Croatian, which are the same language, but for political reasons. It's very controversial. James has got Balkan roots. Most people acknowledge that if you speak one of them, you can completely understand the others.
+
+[00:06:58] That's true. They're like dialects of the same language. Virtually identical. Yeah, you can tell one from the other. There are slightly different words, but yeah, they are like on cigarette packets. If you look at a cigarette packet in Bosnia, you have exactly the same morning, just three lines of it because they've got to do different languages. Yeah, I've got a football fact I'm going to throw in. I know we don't do football.
+
+[00:07:19] Yeah, it's the fact that the questions that come up in the press conferences when they've been going to this year's World Cup is inevitably will your players be allowed to be drinking and have sex? And a number of the coaches who get asked these questions have actually openly said, no, no sex is a sex ban going on. And I like the Bosnian coach's answer to this question. He has put a sex ban on. He said they can find another solution.
+
+[00:07:44] They can even masturbate if they want. And then there was a sense of he kind of regretted saying that out loud afterwards, because that's not a thing you say. Usually the referees are wanker. Since you did mention this is worth mentioning, I had still on football, but it's not international football. There's a goalkeeper, an amateur goalkeeper in Bosnia. And you have to bear in mind for this that a Balkan tradition
+
+[00:08:07] is like a big ceremony is like weddings and births is to fire off guns, especially in moral areas. So in yeah, AK-47 at weddings. Yeah, what a wedding. There was an amateur football game going on on the outskirts of Sarajevo. I think it was last year. And the keeper, Dusko Kertalica, suddenly got a headache. And he assumed it was because he thought he bashed his head into the side of the goalpost.
+
+[00:08:30] So he played the full 90 minute match at the end of the match. It became apparent that he'd been shot in the head, right? And in the start of the match and continue to play. He felt a pain in his arm had to be rushed to hospital where they found a nine millimeter bullet lodged in his brain. Oh, my God. That's so he would be there going, I think I'm having a heart attack. I've got this numbness down my arm.
+
+[00:08:49] No, no, no, no, don't worry. It's much better in the bed next door. There's a guy saying, I think I've been shot in the head. Are you sure you're having a heart attack? But this is too much football. I'm, I'm pulling us over to another sport. How many matadors in Bosnian bullfights are killed per year? None. That's it.
+
+[00:09:07] The answer is none because there are no matadors in Bosnian bullfights. The fights are between bulls. Oh, it's not one is the matador and has to go to the other bull. How do they get the bulls to fight each other? Is it like a bull whisperer going, I just called you an asshole? I think there's a pitch, which is a very it's a rough area. And then they each pull are trying to chase their opponents away. It's just encouraging their natural instincts to be dominant, basically.
+
+[00:09:32] Are the bulls allowed to have sex a night before a fight? I have not found data. Also, none of the bulls are killed because they just back down when they're losing a fight badly. So it's the fatalities are very rare. Really? Yeah, that is good. Yeah. I mean, it's still bullfighting. It's still bullfighting, but it's unusual bullfighting
+
+[00:09:51] because it's but it should call it bulls fighting. Yeah, that's true. Well, Sarajevo, when I think of Sarajevo, I think of a big incident. What's the first thing that comes to mind for you guys, Sarajevo? The shooting of Archduke Ferdinand or the the ice skating with Toval and Dean, the Balero that was in Sarajevo. OK, right.
+
+[00:10:10] But did you know that? So Archduke Ferdinand, obviously assassinated there, but there was a previous assassination attempt on him. Was it to do with ice skating? Someone threw an ice skater. No, it's someone threw a lip bomb at his car. He saw it coming and he batted it away with his hand and exploded in the street. Wow. And that's how volleyball was invented.
+
+[00:10:34] In fact, for the first 30 years, volleyball was only played with lit bombs. That is the guy who's born, the guy who threw it, Cabrinovic to avoid capture. After doing that, he saw the cyanide capsule and threw himself into the river. But at the time, the river was 10 centimetres deep. And so within seconds, he was pulled out by policemen and sent to jail.
+
+[00:10:52] We are actually approaching the end of the match. So if I will quickly get in injury time. OK, here's something. Police chiefs in Bosnia have spent 70,000 pounds buying 1300 pairs of new shoes and boots for their officers from an outfitters that only supplies footwear for bodies to wear in coffins. Wow. Yeah. And the police aren't very happy about this.
+
+[00:11:14] Officers complained that the shoes that were never meant to be walked in fell apart after just a few hours on the beat. Cool. That's lovely. For a not. Anyone else? I have an extremely quick fact. Yeah. So at the 1984 Winter Olympics, it took place in Sarajevo at the opening ceremony. They raised the Olympic flag upside down.
+
+[00:11:32] Aw. Awkward. Oh, my days. That is the end of the match. Can't believe it. So quick. What a great one. Before we find out who won today's match, though, we are going to quickly find out the answers to that visitingland.com quiz that we did earlier and the answers and questions
+
+[00:11:52] and the answers are, James. OK, in 1348, the Scots invaded Northern England, sensing weakness because England was suffering from the plague. The Scots arrived, caught the plague, went back and killed half of their own population. Oh, my God. That is an own goal. Crafty old England. They should not have visited England. But you should.
+
+[00:12:15] Andy, question number two. My question was what my question was what lined the south and east coasts of England in the summer of 1976? And the answer is Ladybirds. It was it's called the Ladybird explosion of 1976. There was just the perfect conditions for them the year before. And then billions and billions rose out of the ground all across the country and moved south looking for food.
+
+[00:12:34] And 400 miles of tide line consisted of little but solid ladybirds. Wow. Yeah, that's great. OK, Anna, last question. Yeah, my question was which English writer made the first known reference to potato chips and it was Dickens in a tale of two cities. He mentioned husky chips of potato fried with some reluctant drops of oil. Wow. There you go. All right, so that's the that's all the answers to our quiz questions.
+
+[00:12:57] If you got them right, congratulations. There are no prizes. However, if you do want a prize of some sort, you can head over to visitingland.com where they're running a competition where you could go into win some QI goodies, including a book, which will be personally signed to you by Andy Murray with any dedication that you want. Literally, I will write anything. He will write anything.
+
+[00:13:16] There's also hats and I think T shirts and so on. Anyway, we need to find out who won today's match. So who do you think did best today? I love the Nollywood stuff, so I would say Nigeria. Yeah, I like Nigeria as well. All right, Nigeria. Well done. You make it through to the next round of the International Factable Competition. If you want to ask any of us on this podcast about the things we were talking
+
+[00:13:37] about, maybe dispute the winner, we can be reached on our Twitter handles. I'm on at Shriverland, James at egg shaped Andy at Andrew Hunter M and Anna. You can get me on at Quikipedia, the QI Twitter feed. But you can also join the hashtag get Anna on Twitter campaign, which is picking up a lot of energy in this office. OK, that's that's it for this match. If you want to join us again tomorrow, we're going to be doing this again with another bout of two giants in the world of fact ball.
+
+[00:14:06] And it is, James, definitely giants. It's the USA versus Russia. All my days. That will be a girl. OK, all right. We'll see you again tomorrow for that match. Thanks for listening, everyone. Goodbye.

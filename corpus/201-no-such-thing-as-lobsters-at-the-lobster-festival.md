@@ -1,0 +1,319 @@
+# No Such Thing As A Fish - 201: No Such Thing As Lobsters At The Lobster Festival
+
+- Episode date: January 27, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/201-no-such-thing-as-lobsters-at-the-lobster-festival
+- Slug: 201-no-such-thing-as-lobsters-at-the-lobster-festival
+
+## Transcript
+
+[00:00:00] Hey everyone, welcome to this week's episode of Fish. Before we begin, we've just got a bit of announcement, really exciting announcement. We are releasing a behind-the-scenes documentary that was filmed during our 2017 tour of the UK, and it's us on buses, it's us ironing shirts, it's us. Can I just say, Dan, it's buses, it's not just like buses at the public going, is it? It's not like we're on the 19th bus to Angel. Yeah, and actually it's not even plural buses, it's one bus, which is actually a van. So it's, I'm just trying to big it up here. What it is, is if you ever wanted to see what it's like when we actually go out on the road and we visit all these places in the UK and put on these shows, it's a sort of just little
+
+[00:00:41] background insight. It's like a very less, less funny version of Spinal Tap. Yeah, it's, if you, if you want to know some kind of like weird twisted secrets from Andy's past, or some weird twisted secrets from James's past, or some perfectly normal innocent secrets from my past, that they're all in there, there's some interviews, we were interviewed, and there's some of us just pissing around really. Yeah, this is going to be available on Monday, the 29th of January, it's going to be online exclusively. That's right, we said no to HMB. What about people who aren't online? They will live in ignorance. This will bring the last of the world onto the internet. Yeah, you can get it on iTunes this
+
+[00:01:21] Monday, and you'll be able to get it from Google Play on Amazon in the very near future. It's 149 per episode, and it's $4.99 for the bundle of four. And what's it called? This is the highlight, Andy. This is why we deliberately saved this till last. Yeah. Should we all say it together? Sure. It's called behind the... Presents behind the gills. It's called behind the gills. Get it, get it now. Yeah. Okay, I'm with the show. Do we have a saying behind the gills? Clearly enough, it's called behind the gills. Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast this
+
+[00:02:14] week coming to you from Dunstable. My name is Dan Shriver, and I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James Harkin. Okay, my fact this week is that King Ferdinand of Bulgaria was so scared of being murdered on the Orient Express that he locked himself in the toilet. Wow. Had he read the book? Is that why? So, amazingly enough, this happened at the turn of the 20th century. So it happened before the book. So the book came out before the book, which came out in 1934, and before the film, which came out two weeks ago.
+
+[00:03:15] Wow. Had he locked himself in the toilet for the whole journey, do we know? No, we know that he definitely didn't do it for the whole journey, because one thing we do know is that as soon as they got into Bulgaria, he decided he wanted to drive the train. And isn't it the case when he got given the controls? I know that it's very hard to mess up driving a train because you're on a track, but he would put the speed up because he was a speed freak, and it would go exceptionally fast, and they were worried that it was going to derail because he was just loving the... Yeah, that's true. Do we know why he was so scared? Were people after his head, or were trains just known for murder in the olden days? It's a bit of the first
+
+[00:03:55] bit, actually, because it was just after he'd become King, and he was known as Foxy Ferdinand. Oh. And he was known as that because he was a bit of a dandy. Okay. And to start with, he wasn't very popular. For instance, Queen Victoria said he is totally unfit, delicate, eccentric, and effeminate, and he should be stopped at once. And in his country, by the end they loved him, but to start off with, he was quite unpopular. He was, wasn't he? He was sort of a wimp, I think. So his mum seemed to control a lot of his life. Like, for instance, his mum got him the job as king, and it... I mean, that is how Monarchy works, actually. Well, that's not how it works here, is it? Because... It's not. She bought him the job. So Bulgaria,
+
+[00:04:45] it was very unpopular, the job as king of Bulgaria at that point, because I think there was a lot of controversy. There was a lot of intrigue and corruption in royal circles. So the job, actually, the throne, as they called it, was offered to a bunch of other people before it was offered to him. So it was offered to the princes of Denmark, to princes from the Caucasus, to the king of Romania, and they all said, no, I think I'm all right, thanks. And so eventually, Foxy Ferdinand's mum said, all right, if I give you this amount of money, will you let my son be king of this place? And that's how he got there, which is so embarrassing. King Edward of Britain died in 1910, and Foxy Ferdinand was on the way to the funeral, and he got on a massive argument over where his
+
+[00:05:26] private railway carriage should go in the train, because, you know, things of precedence, he thought, well, my carriage should obviously be right at the front behind the driver, and he lost to Archduke Franz Ferdinand. So Archduke Franz Ferdinand got his carriage to go right behind the driver, but that meant that Archduke would have to pass through King Ferdinand's carriage to get to the dining car, and Ferdinand just locked the door. He just said, no, you're not coming through. But things all worked out okay for Franz Ferdinand, didn't they? So on the bright side, it's actually a really nice thing. It's too soon, weirdly. Is it? I think when it's over 100 years, you're in the clear. It's weird, we have talked about him
+
+[00:06:09] before. If you've listened to the podcast for a while, it's quite nice, because one of our main podcast facts about two years ago was that Kaiser Wilhelm once slapped him on the bottom, and he was so offended by this that he was going to give him an arms contract, but then he gave it away to someone else. And in that show, we talked about Kaiser Wilhelm a lot. So now we're kind of coming back, like if you did a series, you covered one factor. Yeah, we're seeing it from the other angle, aren't we? We are, yeah. He was very upset about the bottom slapping. It's like that new episode of Fifty Shades of Grey, isn't it? From Grey's side. I didn't know that was what it was. And with the slapping part. Yes. A lot of body slapping in Fifty Shades of Grey, I gather.
+
+[00:06:47] I think it's written a bit different to how you just... He walked in, saw the botty. That's getting a slap, he said. E.L. James, I really regret getting Andrew on Tamari to ghostwrite the second one. I read another method of how a Bulgarian, or in this case, all of Bulgaria, avoided being killed. And it is. And I've been assured that this is not true, but I think it's worth saying. And the nice thing is we've now got that on tape, so you can stitch that before any fact answers in the future ever. No, but so this is true. In Bulgaria, when a Bulgarian is signalling yes when you ask them a question, they do it with a horizontal...
+
+[00:07:35] They shake their head. They shake their head as what we would know as no. That's right. They shake as a yes. And when you ask a question that is a yes answer, they don't do a full nod, but they do an up, which is what we would take to be yes, right? Is that... Sorry, someone just said yes. Do we have a Bulgarian? That is true. Yeah, so that... I know that. If we have a Bulgarian, we won't know whether they are in the audience, because are you a Bulgarian? Yes. Well, confusingly, apparently, if you're talking to a Bulgarian and they know that you're from some other country, they then reappropriate it, so they do that the opposite way. So it's very confusing, because you don't know which one is the right answer to it.
+
+[00:08:13] This whole thing was about how they stopped being killed. Yes. Yes. So apparently, this goes back to the Ottoman times, and this is when Turks used to hold a sword to the neck of them and to the Bulgarians and ask them, and it was on an angle to ask them, are you a Christian? And to say that they were, they had to change it, because that was the most that was the most efficient way to not slice their neck through movement of a sword being held tightly against them. They could have just said it. They could have just said it. Yeah, I didn't... That's why I was told it's not true. Okay. But worth saying, right? Oh yeah, absolutely worth saying. Oh yeah. The Orient Express was
+
+[00:09:00] amazing, though, even more amazing than that. It was amazing, because so many great people traveled on it. It was, you know, if you were famous or if you're a world leader, then you traveled on it. So King Leopold used it to transport himself to Constantinople, where he'd arranged, made some complicated arrangements with a harem to infiltrate a harem, so he could get involved in that. The president of France traveled on it at one point. This was actually in 1920. And in 1920, what happened was there was a guy working the signal box, and a man wearing pajamas stumbled up to him in the middle of the night and said, hey, please help me. I've just fallen off the train. I've fallen out of the window and off the train. I'm the president of France. And
+
+[00:09:40] the guy in the signal box said, and I'm Napoleon Bonaparte, according to those accounts. But it turned out it was actually the president of France. It was Paul Deschanel of France. He'd fallen out of the window of the Orient Express, and he had to resign very shortly afterwards, because it was so humiliating. No. I mean, it was slightly to do that. It was also slightly to do the fact that he'd recently received the British ambassador to France naked, except for the ceremonial decorations of his office, and that he'd walked out of a state meeting straight into a lake fully clothed. So there was a few other circumstances going on there, as well as the Orient Express thing. It was the straw that broke the camel's back, and it was a little camel. It's when I fell off the
+
+[00:10:22] train. That's what I did. I have some stuff about the sort of luxury trains. So did you know that in the early days of rail, lots of very wealthy people had their own private train carriages, and you could just pay and have your train carriage kind of put onto a train? Oh, like the Queen has one of those, doesn't she? Well, she's got a whole train, in fact. But for example, there were private carriages, and there were family carriages, which you could just get a carriage just for you and your family, and you would attach it to a train and then change it. And at the start of the 20th century, Manchester had several gentlemen's club carriages, not in the spearmint rhino sense, guys.
+
+[00:11:01] They would have clubs, you would pay a subscription, and then you would get to use that railway carriage, and there were lockers, and you had to be elected, and you had to obey the rules, specifically the rules about whether you could open the window or not, and when it was appropriate. And you had to turn up to the station on time, presumably, as well. Yeah, you just had access to the train carriage if you joined the club. Yeah, that's very cool. It was a gentleman's club on wheels. Yeah, fun. Something...
+
+[00:11:27] Well, you know, it's nice to give James something to edit, isn't it? I think we're giving him too much to edit at this point. You know, the The Orient Express, the first murder that happened on The Orient Express was the year after Agatha Christie published her novel. Was it? Yeah, that was interesting. And also, well, do you know how the person was caught? No, no, what happened?
+
+[00:11:48] It's a really cool story. So basically, there was a woman who was pushed out of a window, so who was killed and then pushed out of a window. It's not cool so far, Emma. It's extremely harrowing. Sorry. And the record, too soon. Sorry, it was 1935, so it is a bit too soon. She was pushed out of the window and her body was found on the tracks and all of her possessions,
+
+[00:12:11] except for a silver fox scarf, so a fox skin scarf that she'd been wearing. And then by total chance, so this got around that the scarf was missing, and a policeman in Switzerland a few weeks later spotted a silver fox scarf being worn by a woman and then went up to her and said, where did you get that? And she said from this guy, and it turned out that guy had done the murder. Wow, Larry the murderer gave it to me. The murderer? Yeah.
+
+[00:12:35] I got it from a guy who called himself Mr Murderer. It's crazy to give away the one bit of evidence that links you to a crime, to a random person. It was pretty stupid, wasn't it? It was very stupid. So the surrender at the end of World War One was signed on The Orient Express? It was signed in a particular carriage, which in 1940 Hitler ordered to be hauled to the precise spot where it happened, and that's where he organised the terms of the French surrender. He was an absolute dick.
+
+[00:13:03] He was such a prick. You've just beaten France, okay, a great military power. You don't need to go on about it. Even by Hitler's standards, that's pretty petty, isn't it? It's so petty. And do you know what he did next? When he started losing the war, he had that train carriage blown up so they couldn't make him surrender in it again.
+
+[00:13:21] Oh, what? Hitler forget the train carriage. God, the more I hear about this guy. We need to move on to our second fact, guys. I just have one tiny thing. Yeah, yeah, go for it. This is about the Queen's private train. She's got the Royal train, and it's actually pretty dowdy inside.
+
+[00:13:40] It's not really blingy and Louis XIV-ish. It's pretty cool and calm. Anyway, there's just one thing that happened in it, which I really like. So it travels around the country to pick up the royals and drop them off and so on. And once, it was on its way to pick up Prince Charles for a royal function, and it stopped very briefly at a station. But nobody noticed a middle-aged woman on the platform to see it and get on. And she just sat at one of the tables in the dining car,
+
+[00:14:05] and it is quite well decorated and popular. It's not a standard train. And she just sat there and a member of staff was walking through and said, you do know this is the Queen's train, don't you? And she said, no, I did not know that. And sorry, when do we get to Slau? And she was given some light refreshments and then escorted off at the next stop. And she's out there somewhere, but she knows the other side of this story.
+
+[00:14:30] Let's move on to our next fact. Okay, it is time for fact number two, and that is my fact. My fact this week is that the new goalie of the ice hockey team, the Belfast Giants, is allergic to ice. Allergic to ice. That is amazing. Yeah, and how do we know he's allergic to ice? He's told us.
+
+[00:14:53] They noticed when after a match, he went into a really cold bath, and as he was sitting in the ice cold bath that they have, he was breaking out on top. And then the breakout, which was sort of raised red lumps, got really dark below, and they quickly got him out. And they said, you have this disease, which is a condition of, you're just allergic to cold temperatures. You're highly sensitive to it.
+
+[00:15:15] And so, as a result, when he is playing on the ice, he doesn't, he can't stay still. He has to keep his blood circulating and moving around and so on. Yeah, so when the game is going on on the other side of the ice, what's it? Rink? The rink, the rink. He's there, sort of just... Because the other side of the ice implies the underside of the ice, is there?
+
+[00:15:39] Yeah, yeah. But so this guy's called Chris Truell, and he started playing with the Belfast Giants. I believe he's a junior goalie. He's, so there's three of them. And yeah, so he just constantly has to move around otherwise. But he's a goalie, that's the thing. So does he sometimes have to move around out of the goal mouth?
+
+[00:15:56] This is the problem. Yeah, I mean, I don't know if it is a problem, but I assume that that is a problem. Sounds like a problem. Yeah, it does, doesn't it? I think he's actually, he's really cool about it though. If you watch an interview, he's very much like... But he's not too cool, because he breaks out.
+
+[00:16:09] He's not too cool. Yeah, it's an allergy to the cold, right? It's not, because there's a different allergy, which is an allergy to water, which is like you can be allergic to your own tears and stuff, can't you? So every time you cry, you then cry even more. But it's not that, it's the coldness of it. Yeah, it's cool.
+
+[00:16:27] So I've been avoiding saying the word, because I can't pronounce it, but it's... Urticaria, that's the... Is that the pronounce right? Urticaria, that's the condition that he has. And the test for it is very simple. The doctor will just hold a piece of ice against you, and then see if you come out in a red lump.
+
+[00:16:43] Yeah, I mean, that makes sense, right? I'm not saying there's a better test. No, I mean, that literally is the test. It's like finding out if you're allergic to bees by a doctor holding a bee to you and letting it... Is that the test for bee allergies? Seems like it couldn't be. The doctor doesn't say,
+
+[00:17:01] hey, eat a load of these walnuts and we'll see what happens. Well, yeah. All right, you're fine on those. Let's see if you're allergic to wasps. Sorry, let's bring that up. Do you know what one way of selling if you've gotten allergic reaction is, which I'd never heard of,
+
+[00:17:14] is something called baboon syndrome. Oh, what's that? And that's... Well, what would you guess? What's the defining factor? You get a big, you get a big bum bum of red. Yeah. Big one, 50 shades of grey again.
+
+[00:17:31] And he came in with a big bum bum of red. Yeah, it's having a big red bum. And it's one of the ways you can exhibit allergic reaction is bright red buttocks, a particularly penicillin reaction or like a nickel reaction. Specifically to the bum. Specifically to the bum.
+
+[00:17:45] And you can just have eaten some penicillin and then your bum goes red. Yeah. It's amazing. That is amazing. Baboon syndrome, yeah. I have another ironic sports allergy. Oh, yeah.
+
+[00:17:55] As a jockey, a very young jockey called Sean Bowen. He raced in the Grand National a couple of years ago. As a child, he was allergic to horses. He was allergic to horses and he grew up, he would get eczema anytime he went near a horse but then he grew out of it and then he would practice by sitting on a sofa and whipping it.
+
+[00:18:12] He would sit on the arm of the sofa and thrash it. Oh, that's so funny. Do you know who else was allergic to horses? Clint Eastwood. No. No way. Yeah. All his movies, he had stunt doubles and he would do it
+
+[00:18:23] but he would break out if he was on a horse for too long. But yeah, Clint Eastwood allergic to horses. That's why he looks so pissed off all the time. Yeah. Anna, before you were saying about the person who was allergic to their own tears, there was a woman who was allergic to the allergy medicine she took to deal with her allergies.
+
+[00:18:41] Oh, man. So basically, she got ill with some other allergy and then she took an antihistamine called Benadryl and then that caused her shortness of breath, wheezing and she went to hospital and then when she was in hospital, they gave her more Benadryl. Oh, my God.
+
+[00:18:56] Oh, what? Oh, my God. Oh, my God. Harrison Schmidt, Apollo astronaut, Harrison Schmidt, one of the only people to land on the moon was allergic to the moon. Can you believe that though? He was allergic to the moon.
+
+[00:19:09] So you might think that's really weird because you're in a suit when you get onto the moon. It was when he got back off the moon into the capsule and they took the suit off and supposedly the smell is of like gunpowder sort of smell. That is what gave him the allergies and he broke out as well in sort of in hive. So one of the only,
+
+[00:19:27] and there's only 12 people have landed on the moon and one of them was allergic to the moon. That's amazing. That's pretty huge, right? And there's no way of testing before you go, is there? How do you test? How do you test? Tennis player Layton Hewitt allergic to grass
+
+[00:19:42] as in the floor of the Wimbledon courts. Yeah, not weed. You know, horses can be allergic to grass. Horses can be allergic to grass. Yeah, yeah, horses get allergic to grass and they have to, it's really sad. So there's a woman who's got a horse and you have to cover them in this big anti-allergy sock
+
+[00:19:58] from head to toe and they allergic to, you get allergies to grass and hay and seeds or the nuts and seeds that they get fed. It's amazing that you can describe a murder as pretty cool but a horse wearing a giant sock is somehow really sad. I know. Yeah. It's because they get weepy.
+
+[00:20:18] They genuinely get weepy. They cry tears and they get itchy and they get sneezy. Which of the other dwarfs do they get? The cue for it is to rub on some dock. There we go. That's good. So if you're hypersensitive of the whole of just everything like electricity and stuff, you can go to a town in America.
+
+[00:20:46] It's in Arizona. It's called Snowflake. No. Okay. And it doesn't get its name because it's full of Snowflakes like moaning millennials or whatever. It gets its name because it was founded by two people called Arasta Snow and William Jordan Flake.
+
+[00:21:00] No way. What? That's incredible. Isn't that amazing? But do you think they thought, well we better found something now because we've met? What do you think? Flake Snow?
+
+[00:21:13] Wait, and so they founded a town for people to escape their allergies? No, they founded a town. They were Mormon pioneers but they founded it well away from cities and stuff like that. So if you're allergic to Wi-Fi and all you think you are and electricity and stuff like that, then this is a place where you can go and be away from that. Where did you say it was?
+
+[00:21:29] It's in Arizona. Arizona. Oh yeah, really remote. Or lots of things. Some of it is. Yeah, Phoenix. Phoenix, no. When was that?
+
+[00:21:36] Was that 19th century or recently? Well, it was founded in 1878, but people are going there now. But this was a real thing. When allergies came into the world, A, we don't know where the hell they appeared in the world. It was in the 19th century. And then B, it became a really fashionable thing because it was the wealthier classes
+
+[00:21:51] that were allergic to stuff, wasn't it? And so there began to be hay fever holidays that were recommended. And that would be if you lived in New York, the idea was that you were getting allergic reactions to the city, like you say. So Lake Superior and the White Mountain, New Hampshire, they would all advertise like hay fever holidays
+
+[00:22:08] or allergy escapes, which was a way to get away from your allergies. It was a very fashionable thing to have. Yeah, that's very cool. Anything about hockey? About ice hockey? Yeah, sure, yeah. So this sounds quite cool.
+
+[00:22:20] Underwater ice hockey is played upside down underneath frozen pools. No, so that is the other side of the ice I was talking about. Wow. And they use a wooden puck so it floats. And basically you can only stay under, they don't use breathing apparatus, so you can only stay underwater for 30 seconds
+
+[00:22:40] and then you go back up and then you go back down again. And it's next goal wins, so it's only one goal. If you have a scores first, wins. Wow. They're not wearing all the hockey stuff, are they? Well, they have a stick. They have a stick, but are they in trunks and with a stick?
+
+[00:22:54] Trunks and stick. That is amazing. Yeah, don't confuse it with underwater hockey. Underwater hockey is on the floor of a swimming pool with a sinking puck. So you have a really heavy sinking puck, it's on the bottom and you're playing it along the bottom of a swimming pool.
+
+[00:23:09] But how can you hit something underwater and have momentum? Yes, momentum still works underwater. I mean, the laws of physics still work underwater, but you are right that it's more viscous, so it would be more difficult. Like it would be really hard, right? Yeah, you would hit it and it would...
+
+[00:23:23] It is harder. The whole thing sounds harder. Almost everything is harder underwater. Swimming's not. Swimming is one of the very few exceptions to this rule then. But mostly, you have a frying egg underwater, it's a nightmare. That's true. He's not coaching an egg Andy at the same time.
+
+[00:23:42] He's not coaching an egg Andy at the same time. That's it. Um, no, ice hockey. Yeah, go on. Yeah, just I became obsessed with the fights in ice hockey. Oh, yes. Oh my goodness, there are so many fights. Oh, yeah.
+
+[00:23:55] And I didn't know anything about ice hockey and I think you watched it a lot. I watched it a lot. You watched it a lot, yeah. But I didn't know that they were regulated as fisty cuffs in the rule book of ice hockey. And you know, there are lots of unwritten rules as well, so you have to agree to a fight
+
+[00:24:12] and you can't hit someone with your stick. Yeah, I mean, they still do, but you're not supposed to. But you would have one player on your team who's kind of the guy who does the fighting. And how does, is he only allowed to fight the other team's fighter guy? Or can you fight anybody? They're the guys who kind of start it
+
+[00:24:28] and then everyone gets in on the act. Okay, they're called the enforcer basically and you would have, say the other team is doing really well and you kind of want to stop them in their tracks a little bit, then you might start a fight to try and put them off and then you might carry on. But it's Andy, have you seen it? I've seen it, yeah, yeah.
+
+[00:24:45] So it's actively, not officially, but it's actively encouraged by the crowd and it's part of the game. Yeah, so they throw their gloves off, they take their helmet off, they go around each other with their fists like that and then they absolutely wallop each other and it's part of the tradition.
+
+[00:25:01] It happened, in fact, in the first game ever, first ever ice hockey. It was not between the hockey players, it was between the ice hockey players and the ice skaters who were pissed off that they'd taken their ring. And it was after the match, so it didn't get reported, but there was a fight in the very first ever ice hockey match.
+
+[00:25:21] Sometimes it goes a little bit too far. I read about one Russian game between Avangard and Vityaz. The fighting in that game started after three minutes. Actually, it was three minutes 27 when a brawl took place between basically all the players on both teams. A few of the players were sent to the Simbin and then they started the game again of three seconds later
+
+[00:25:42] and another fight started. And then eight more players were sent off and then the game started again and then two seconds later there was a third fight. And then at that stage so many people had been sent off that they couldn't carry on the game so they just abandoned it. And both teams were given a 5-0 defeat.
+
+[00:26:00] Teams lost 5-0. How'd you do, darling? Well, we lost, but so did the other guys. Hey, we need to move on to our next fact very shortly. Shall I move us on now? Yes, we should. Ready to go? Okay, it is time for fact number three
+
+[00:26:14] and that is Andrew Hunter Murray. My fact is that after every festival, the founder of Glastonbury has to drive around his farm with a giant magnet. And the reason he has to do that is that there are tent pegs left across his entire farm in the ground and he can't see them. So there's a specially customized tractor
+
+[00:26:33] with a giant magnet strapped onto the front of it. Which he drives around. It weighs over a ton. I think he has someone to do it for him because he's quite old now, Michael Eavis. But what do you reckon it weighs after he's done doing it? I guess 100 or 150 tonnes. That's crazy.
+
+[00:26:54] I know, it's nuts, isn't that? Why do you have the actual answer, Dan? No, I'm just curious. Because you're adding metal to metal and then that adds up. Yeah, no, it does, it sure doesn't. You're not wrong. Yeah, it's true. But I reckon if these guys hadn't laughed,
+
+[00:27:10] you'd have taken 150 tonnes because I'm not sure you know what a ton is. Oh, is that not the answer? That's not the answer, I was teasing. That's not the answer, I don't know. OK. But something in that region. Yeah.
+
+[00:27:20] No, no, no, no, no! No, we're in that region. OK. I don't know, I'm afraid. But there are thousands and thousands of tents which get abandoned, you know. And they need to pick them up because in the past cows have been grazing on these tent pegs
+
+[00:27:33] and it can injure them quite badly. Yeah, yeah, they choke. Poor cows. Because he's got a very successful dairy. I didn't quite realise that Michael Evus is one of the most successful dairy farmers in the area. So the guy who founded it. Yeah, and that's why so quite famously,
+
+[00:27:48] I think at the first Glastonbury ever, you got a free pint of milk, I think. It was £1 to get in, wasn't it? £1 to get in and you got a free bottle of milk. Yeah, really? And then at the most recent Glastonbury, you could see pole dancing robots, make a cucumber trumpet,
+
+[00:28:04] and jump off a trawler ship shaped like a fish. It's lost its way, hasn't it? It's lost its way. No free milk. Do you get free milk still? No, mate. Bloody hell. He's a judge of cheese competitions, though.
+
+[00:28:16] He's an absolute dairy pro. At the festival? Not at the festival, no, no. I've completely misunderstood what the festival is like, I think. I've never been. The very first one, it was in 1970 and it was called Worthy Farm Pop Festival
+
+[00:28:29] and the Beebe had a great article about the first Glastonbury and they put up one of the flyers for it and the flyers, it was so sweet. They said the acts will include the kinks, Wayne Fontana, and at least six other groups. And in the event,
+
+[00:28:44] neither the kinks nor Wayne Fontana turned up. Wow, did the six others turn up? Well, T-Rex turned up to replace their liners. That's good. Yeah, pretty good. Oh, yeah. And that's famously where T-Rex exploded into the popular consciousness of the British public.
+
+[00:29:01] Yeah. I'd memorise that sentence from the article that I read. So what year was that? 1970. 1970, right. God, so he's been going for it. He's quite old now, Michael. Yeah.
+
+[00:29:13] Yeah, he's 80s. Yeah, he's very cool though. So everyone probably watched Glastonbury this year and Jeremy Corbyn was there and got up on stage. So Jeremy Corbyn is a parliamentary Beard of the Year winner and actually Michael Evis, if you can picture him, has a very impressive beard himself and he went up on stage with Jeremy Corbyn.
+
+[00:29:34] Jeremy Corbyn gave him the Labour manifesto and as that was being handed over, there were just two beard legends on stage because Michael Evis won Beard of the Decade in 2009. Wow. In the world. So he beat Fidel Castro to the top spot. You're kidding.
+
+[00:29:50] Yeah. You know, there's a secret underground piano bar at Glastonbury. What? Yeah, and a reporter from the Bebe went looking for it at his recent festival and he reported back that there is no piano that I can see. The bar does not turn out to sell alcohol and most of it is not underground.
+
+[00:30:10] And also not a secret now, it's been like that. No, it's not a secret either though. He's against alcohol. Well, he's not a drinker, is he? The Glastonbury founder, Michael Evis. No, and he's never taken any drugs. He's anti-smoking. He's a real Methodist.
+
+[00:30:24] It's, I can't tell if it's a disappointment or really nice. But yeah, and he always wears shorts. This is the thing he's famous for. He always wears shorts, whatever time of year it is. And do you know why he does that? He likes to keep his legs cool. That makes a lot of sense, actually. He's got lovely calf muscles.
+
+[00:30:45] Yes, it's that. It is that. He, um... What? He was that, he's a very famous kind of, you know, liberal hippie campaigner and he was an anti-Satcha march in the early Satcha years and he said his GP's wife was walking behind me
+
+[00:31:03] and she said, do you know, Michael, you've got the most amazing legs? And no one had ever said that to me before and so I've worn shorts ever since. I love the idea that maybe it affects everyone. So when he meets all the bands, Coldplay will come up to him like, hi, but...
+
+[00:31:18] Oh, my goodness. What are those? Just everyone's... Yeah, it's done. Oh, yeah, nice. Some other cool festivals from all over the world. The Untold Festival took place in Transylvania and you could pay with your blood.
+
+[00:31:35] Whoa! Yeah. If you signed up to become a blood donor, you got a discount and if you showed up in person at a centre nearby, then you would get a free one-day ticket on the spot. Wow. But wouldn't you be a bit tired to enjoy the festival?
+
+[00:31:51] Yeah, it doesn't, it ties you up, doesn't it? Have you no... I mean... I mean, you can still hear music. Yeah. Yeah, it's not too bad a problem. I've got one, James, I really like. This is from last year.
+
+[00:32:05] It was the Newfoundland Lobster Festival. Yeah, and what I like about it is that due to a mess-up of transporting the lobsters to the festival, they didn't have any lobsters at the festival and so instead everyone had to eat hot dogs. It was on an airplane and the airplane went to the wrong destination or they put it onto the wrong carrier.
+
+[00:32:26] What? Yeah, so you got delivered to a whole different place and they're like, we're waiting for the lobsters. Why, if they have to get their lobsters over by plane, why are they having a lobster festival? It's a very good point. I know, I'm not sure. Maybe they got it from a great lobster place
+
+[00:32:39] like Florida or something like that. Then have the festival in Florida. No, but they live in Newfoundland. They can't just read... So don't have the festival like... No, but they want to... I don't have a Caribbean festival in South London, do I? Yeah, but you could because that's what people do.
+
+[00:32:54] But why would I fly in three tons of sand? It doesn't even need sandstone. I'll just have a South London festival. Okay, that's true. But where did the lobsters end up? Do we know? No, just a different place and then the problem is by the time they got there,
+
+[00:33:07] this was the complaint. They said some of the lobsters had died which is what I thought you'd want when you were about to eat one. So that shouldn't be a problem. Do you want... Oh, you want them alive rather than the... Well, you keep them alive in your bath, don't you?
+
+[00:33:18] If you buy a lobster to eat, then... Yeah, that's one of the other things it's easier to do underwater is keep a lobster alive. So there's three now. You were just saying about transporting these lobsters. Yeah. There was a mud festival in New Zealand called Mudtopia and they transported five tons of mud from South Korea.
+
+[00:33:43] Wow. Those mud salesmen must have thought all their Christmases would come at once. And when we've had another year of no orders, I guess it's time to shut down the... The mud export business. Drinking, drinking. Hello.
+
+[00:33:54] It's New Zealand. We'd like five tons of mud. Five tons? We've only got four tons. We're back to going out of business. No, that's true. And basically, I mean, just to finish it, they needed this mud for the mud festival
+
+[00:34:10] and they said... The local councillor said, I know there's a perception that we have enough mud ourselves but you can't just pull any old mud out of the ground and throw it at people. There could be anything in there that might end up making people sick. So basically, the South Korean stuff had had some kind of stuff
+
+[00:34:27] done to it to stop making people sick. It's clean mud. Clean mud. Clean mud. Wow. Which is amazing to me, itself, isn't it? Yeah. Do you know that at the Reading and Leeds festivals this year,
+
+[00:34:37] I don't know if anyone went, but there was... Pineapples were banned. So there's a list of banned stuff on, you know, that you're not allowed to take in submachine guns or bombs or anything. And then Pineapples was added to the list and that's because of this ban that I've never heard of
+
+[00:34:53] but probably everyone else has called Glass Animals. But yeah, they've just got a lyric in their song which says Pineapples are in my head and so whenever they have a gig, everyone who comes to the gig apparently brings Pineapple and they can cause a lot of damage and so they have to put on the banned list. What damage?
+
+[00:35:07] What damage can you... They're spiky, they are. They're super spiky. They're really... Yeah, they're really spiky. Yeah. You know, I didn't think about it that way when you said it, Jane, so when Dan backed you up, fair play.
+
+[00:35:23] They're spiky. Okay, maybe in future shows, we can get everyone on the front row to throw Pineapples at you. How would you like that? Yeah, it's fair. You've only ever seen them in those chopped-up cubes in Marks and Spencers, haven't you? I'm normally being presented them at an ambassador's dinner
+
+[00:35:38] in the 70s. Did you guys see them? Um, did you guys do anything on magnets at all? No. Yeah. Yeah, yeah, come on, let's do some magnets. Well, three out of four ain't bad. Just quickly, have you guys heard of a thing called the iron harvest? Because I've never heard of this.
+
+[00:35:55] This is a thing that happens every year in Belgium and France and it's a harvest, literally, of iron from the First World War and it's still turning up in farmer's fields across Belgium and France. Wow. So during the First World War, for every square meter of territory on the Western Front, a ton of explosives was fired every square meter.
+
+[00:36:14] So it normally turns out... That's a lot done, by the way. Yeah. Doesn't sound a lot. And so in spring and autumn is when the farmers plow their fields and that's when the ground slowly turns it up and the French Mine Clearing Department gets sent about 900 tons of unexploded bombs every year.
+
+[00:36:33] Wow. A few years ago, just around Ypres itself, just around Ypres, they got 160 tons of metal, which is enough to fill five large lorries, all First World War stuff. Wow. That's crazy. Do you know something they used magnets for
+
+[00:36:48] in the 1930s and the early 20th century that's quite cool? Like a health thing, all right. It is a health thing. It's for eye problems. So I read this on boing-boing, I think, which sounds not like a legit website when you say it out loud. Boing-boing is brilliant. Boing-boing is great.
+
+[00:37:04] It's just the way you said it. It sounded like a fierce toy. I read it on boing-boing. So what kind of eye problems might you have? So you'd have stuff caught in your eyes. So people used to get iron filings caught in their eyes when they worked in industrial, you know, factories and stuff. And they was invented in Minneapolis.
+
+[00:37:22] This piece of equipment that weighed 800 pounds. So that is the weight of, I think, about five full-grown women. And it was a magnet. It had the pull of 10 horsepower. It involved 7,000 feet of wire. And it came towards your eye. And if you had a tiny bit of metal stuck in the back of it, and then it sucked the metal out.
+
+[00:37:42] But surely it would suck it out through your eye. I would have thought as well. I've only seen the advertisements in the British newspaper archive. I think if you got something in your eye, it's not going to be directly behind your eyeball, probably. Oh, yeah. It's not.
+
+[00:37:54] Yeah. 00:37:54,960 --> 00:37:55,680 I wouldn't risk it. It could come out through the lid. I don't know. 10 horsepower is more than you need to suck a tiny bit of metal out of your eye. 10 horsepower.
+
+[00:38:03] You would think one horse could do that. Yeah. Hey, we need to move on to our final fact of the show. OK, it is time for our final fact of the show. And that is Chisinski. My fact this week is that during World War II, the owners of Foils Bookshop protected the store from Nazi bombs by covering the roof in copies of Mein Kampf.
+
+[00:38:28] So good. It's so nice. Yeah. Yeah. This one is not that nice, is it? Nice is the wrong word. Yeah. But it was fitting.
+
+[00:38:37] So this is William Foil who set up Foils. And so World War II, he filled sandbags with all these old books and in order to kind of bolster the shop against the bombs during the Blitz in London. And he said that he was covering the roof with copies of Mein Kampf. And Newsreels at the time said, Foils of London is stacked with copies of Mein Kampf
+
+[00:38:58] in the place of sandbags. So cool. That's what he did. Just for context for overseas listeners, we make this podcast usually in Covent Garden, which is in Soho-ish area. On Charing Cross Road is Foils Bookshop, which is a 15-minute walk from where we work.
+
+[00:39:17] And it's one of the most iconic bookshops in London. It's an independent bookshop. And it was known for its eccentricities. And it's been going for a very long time. And it's still one of the iconic bookshops of London. And Mein Kampf was a book by Hitler. It was a bit of a cock. Oh, what's he done now?
+
+[00:39:38] Is there more? It's not even the only time that the Foils had a run-in with the Nazis. So in fact, earlier than that, Christina Foil, who was the daughter of William, the founder, when the Nazis held their book, Burnings, she wrote to Adolf Hitler saying, we'll give you a good price, we'll buy them, don't burn them. Which is good.
+
+[00:39:58] And then the reply was negative, but respectful, apparently. Yeah. And then in 1939, Christina also invited Hitler, Mussolini, and Stalin to speak at one of her literary lunches. So they used to have these lunches with incredible figures from the world of literature. And she invited all three. Hitler replied that he had urgent business in Germany.
+
+[00:40:18] Mussolini, Poland. Stalin didn't. Mussolini said that he might visit when things quietened down a bit. Stalin didn't reply. Didn't he? Rude. Okay.
+
+[00:40:39] She was a character, actually, and not in a massively positive sense, maybe. So Foils has been through some tough times, partly because of her. So she wasn't really a fan of the people who worked in her bookshop. So she used to summarily sack them before they'd work for six months, because after six months,
+
+[00:40:59] you're entitled to better employment rights. So if you work for Foils, then you get sacked after six months. And this meant that you got quite not very good staff and you got not very dedicated staff. And there was a story of someone who came in in the 60s or 70s and asked for Ulysses. And the person at the till replied that Ulysses had gone out to lunch,
+
+[00:41:16] but would serve them as soon as possible. All right, nice. They have changed that policy now, by the way. I just want to say that, because hopefully they'll keep stocking our book, attack their HR policies. The other thing they've changed is, they've changed their payment system.
+
+[00:41:34] And Christina was quite concerned about staff possibly stealing from the shop, maybe because they weren't paid very much. But the old payment system, designed to stop staff stealing, Wenders follows, you had to queue up for the book, and then you had to get a docket for it from a staff member. Then you had to queue up to pay for the book.
+
+[00:41:54] Then you would get the docket stamped to prove that you had paid for the book. Then you would have to queue up a third time at the county you've been to first to collect the book. Wow. Yeah. And also she didn't even organize her books by in any sensible way.
+
+[00:42:08] She organized them by publisher, didn't she? Yes. Do you know who all your books are published by? Because we're Random House, by the way, an excellent company. But no, you don't. And you can do it alphabetically or by genre. No, she didn't.
+
+[00:42:21] Do you know when that lasted until? That lasted till 1999. No. Yeah. We should say, because it sounds like we're slamming them, but Foils are obviously amazing. And also all this information is on the most brilliant page on their website.
+
+[00:42:34] So they're one of these sites that obviously has some like amazing researcher working for them. And they've got a really good site, Foils Bookshop, of their history and stories from Foils, if you want to check it out. She died in 1999, Christina. And she really was the end of an era. But after she died, they had a refit
+
+[00:42:49] in which they discovered a lift that nobody knew about. Wow. Yeah. Where did it go? Up and down, mostly. And it's just moved like a year ago. So it was in this iconic spot on Charing Cross Road. Still on Charing Cross Road,
+
+[00:43:14] but it's moved down the road. But apparently, and I went to it many times. I'm sure you guys did as well. It was a labyrinth of these different, weird, tiny crevices. You could get, you know, you find yourself hours going a new spot in the bookshop. You didn't know existed. And they had, it was a sort of in-joke amongst them at the shop
+
+[00:43:31] because they had an in-house staff magazine. And they always had a lost property section in the, you know, lost and found. And one of the things that they wrote was, found Paul Potter of Maida Vale after wandering for an hour trying to find his way out. And that happened, that happened a lot where people, customers would just get lost.
+
+[00:43:49] And, you know, the partners would be like, have you seen my husband? And they're like, do you have an hour? Because we will. Who publishes your husband? Because we may have. So Christina ran the bookshop after her father, William, retired in 1945.
+
+[00:44:04] And she ran it until the 90s. And she claimed that she read an entire book every day, had never done her own housework or cooking, and she only ever drank champagne. And she was asked, what would happen if she lost her chef? And she said, there was always milk, champagne, and smoked salmon in the fridge.
+
+[00:44:23] Wow. Mind camp? Yeah. No, really? Current bestseller rank on Amazon? Yeah. 1,471,284. Okay.
+
+[00:44:36] So they're beating us, aren't they? They, the mind camp team. But it's not even in the top 700 in the fascism category. It's number 701 in fascism. That's got to hurt. But fascism and Nazi books do sell. There's a famous story about Alan Coran, the famous witsist and father of Victoria Coran.
+
+[00:45:02] And he noticed that the most popular titles in Britain in those days were about cats, golf, and Nazis. And so he called his book Golfing for Cats and put a massive swastika on the cover. The one thing I didn't know about mind camp is that it had an accompanying picture book. I'm not even kidding. Really?
+
+[00:45:26] It was called The Hitler Nobody Knows. And it was designed to improve Hitler's public image. And his image was very, very bad at the start, because obviously he was a thug. And you know, he'd organised putches and things like that. He didn't get much better, did he? He didn't get much better. But this in Germany turned around
+
+[00:45:42] the public image of him a lot, because it was like a family album. It began with photos of him as a baby, and photos of him as a... He still had a tiny little mustache. Ironically, he looked like Churchill. But it was massively popular. It sold over 400,000 copies by 1942.
+
+[00:46:02] And this came along with mind camp? No, it was another of the works designed to improve his public image. So it wasn't a buy one, get one free thing or anything like that. Because they've released a manga version of mind camp now. And someone here is a huge fan. So is Hitler portrayed as Japanese in it? I think he is.
+
+[00:46:26] Yes, I assume he is. So this is weirdly in Japan and Turkey. There are manga versions of mind camp. And it was introduced a few years ago in Japan, and it sold 45,000 copies. Which is bizarre. And then in India, there's a version which is used for business and management students
+
+[00:46:42] who advise to read it. It seemed very different over there, I think, because they were quite geographically detached from the things that happened in World War II in Europe. And they don't really get taught about the Holocaust as much as we do and stuff like that. So they just see it completely differently. So in India, they have a Hitler cafe,
+
+[00:46:58] a Hitler fashion store, and Hitler ice cream. Really? Yum. Yum. We need to wrap up very shortly. Do you guys have anything before we do? I have one more story. It's about Foyles, though.
+
+[00:47:10] Yeah, yeah. It's Christopher Foyle who took over from his aunt Christina. It's just an anecdote he told about a time when he was working in the shop and he wrestled a shoplifter. And I just wanted to tell you it because I love it. He said, he chased him out of the shop. He saw him leaving. And they got into Soho Square right nearby.
+
+[00:47:26] And he said, I was very calm, very friendly. I said, excuse me, I think you might have some books there you didn't pay for. Would you like to come back to Foyles? And we'll just discuss it. Anyway, at that point, they usually come back quietly. Or they lash out or run away or whatever. This chap lashed out.
+
+[00:47:40] I remember he kept on trying to kick me in the groin. So what I did was with one hand, I held him away from me by the knot of his tie. By the other, I held him by the end of his tie. Anyway, we ended up grappling. And I remember we were rolling around in the gutter and the next moment I found myself being hauled to my feet by a burly policeman and he by another.
+
+[00:47:56] The curious thing about this man was they were books on breaking codes and ciphers. It turned out he was an officer in MI5. Oh, wow. Okay, should we wrap up, guys? We're going to wrap up. Okay, that is it. That is all of our facts.
+
+[00:48:12] Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland. Andy. At Andrew Hunter M. James.
+
+[00:48:23] At James Harkin. And Chasinski. You can email podcast at qi.com. Yep. Or you can go to our group account, which is at no such thing, or you can go to our website. No such thing as a fish.com.
+
+[00:48:34] We have all of our previous episodes up there. We also have a link to our book, The Book of the Year, which is out now. And we're about to give a copy of it away to a member of the audience here tonight in Dunstable. We've picked out our favorite fact from the ones that you guys sent in. And have we got it here?
+
+[00:48:49] Who was, who was? I got it. And I'm just going to take my phone off airplane. Oh, Jesus. I'm really, I'm, I am. Can I do it? Shall I do another Hitler fact? Yeah, great.
+
+[00:48:59] Thank you. So during the Iran hostage crisis, the CIA managed to sneak some agents into Tehran and they had false German passports. Okay. And one of the agents was stopped by the customs officials and they said, something's wrong with your passport.
+
+[00:49:14] They said, this is the first time I've seen a German passport which has a middle initial instead of a full name. And they said, your name is given as Joseph H. Schmidt. And the guy was, oh my God, I'm going to get caught. And then he suddenly came up with a brainwave
+
+[00:49:28] and he said, well, oh yeah, when I was born, I, they gave me my middle name as Hitler and I have special permission not to use it. That's clever, isn't it? Yeah, that's good. Did they buy it? Yeah, they bought it.
+
+[00:49:40] Oh, nice. Wow. And Joseph H was, was H Henry by any chance, you know? It was a made up name done. How's the fact finding going, Andy? It's, it's found. Great.
+
+[00:49:57] Let's get it out. This is from, it's a, it's one of the ones that came in on Twitter and it's from at G tomorrow. Are you in? Hey. Oh, hey. Oh.
+
+[00:50:05] And I, well, we all loved it so much is that the French language has 17 different words for surrender. Nice. Come and collect your book from us at the end. Thanks so much, guys, for all. We'll see you later. Good night.

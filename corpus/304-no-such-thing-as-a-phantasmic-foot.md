@@ -1,0 +1,275 @@
+# No Such Thing As A Fish - 304: No Such Thing As A Phantasmic Foot
+
+- Episode date: January 17, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/304-no-such-thing-as-a-phantasmic-foot
+- Slug: 304-no-such-thing-as-a-phantasmic-foot
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, I am sitting here with Andrew Hunter Murray, James Harkin and Anna Chazinski, and once again, we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, Andy. My fact is that in Britain alone, unnecessary emails create nearly 24,000 tons of carbon every year.
+
+[00:00:49] Wow. Yeah. Interesting. See, and you guys always give me crap for not replying to my emails. I'm the most environmentally conscious of us. To be fair, Dan, the number of emails that you send, which are completely pointless, outweighs the fact that you don't send many. Okay.
+
+[00:01:06] Yeah, you were actually, we often don't get emails in replying to the important stuff from you, and then we'll be like, Dan must be away from his computer, and then suddenly you'll be like, hey guys, did you see this ridiculous meme no one gives a shit about? Okay, okay, listen, I didn't want this. How has he not? This has gone against what I was hoping it would be. So what this is, this is a calculation done by an energy company called Ovo, and they looked at the carbon footprint of an email, basically.
+
+[00:01:32] So the figures vary, but it varies between one gram and three or four grams. It's not very much. But they did also look at how many unnecessary emails are sent each day. For example, people writing back to just say, thanks, and sending that email through the system. Is that unnecessary? Well, it depends how good your manners are, I guess. But if we're agreeing that that's a sort of superfluous thing, then what they want
+
+[00:01:57] us to do is to add a little signature to our emails saying something like, this is a thanks in advance. So then... Now that sounds really past ag to me. It's like, hey Andy, can you please do your QI scripts by the end of the week, thanks in advance? Sounds like I've said you better bloody hell do it. That's a really good point.
+
+[00:02:14] Well, that would be better than what you normally say, which is you better bloody hell do it. But the really cool thing about this researcher is that the man who advised them on this is a man called Mike Berners-Lee, and you might know that surname. He's the brother of Tim Berners-Lee who invented the World Wide Web. Can we just quickly go through how it does it? So is it carbon or carbon dioxide? Is it from big servers processing the information? It's from all these things.
+
+[00:02:37] So it's from, for example, using electricity in the first place, the cost of running a computer network, the cost of keeping all the data on servers and traveling across the planet. The whole thing, using your computer while it's on to send us email, it's very hard to quantify, obviously, but there's a rough figure. And the calculations, they depend on how important the email is a little bit, because let's say I send an email back to Andy just saying thanks or lull or whatever, then you don't spend much time reading it.
+
+[00:03:06] And so it means that it doesn't use up as much electricity, and so it means that the carbon footprint is lower. So for instance, over 70% of emails are sent to spam, but they only use up 22% of your carbon footprint, and that's because you hardly ever read them or they go straight into your junk folder and then get deleted. So it's like a one-way system. It's only the making of it that uses carbon. Unless you're over the age of 78 and you're a woman living alone, it's just donated to
+
+[00:03:32] a million phony charities so far. This Mike Berners-Lee has written a book about carbon footprints and the amount of carbon used for lots of different things. It's called How Bad Are Bananas, the carbon footprint of everything. And one thing that is bad, as well as bananas, was the 2010 World Cup, which he says cost us 2.8 million tons of CO2. And to put that into perspective, it's the equivalent of every man, woman and child in the UK having 20 cheeseburgers.
+
+[00:04:03] Not the equivalent in terms of obesity rates or anything, but in terms of carbon usage. Yeah, exactly. The amount of carbon lost 6,000 space shuttle flights for the football World Cup, but it's a good World Cup. Mike writes a lot of articles online as well. So he has an article series that's called What's the Carbon Footprint of dot dot dot. So it's things like the carbon footprint of, say, the Iraq War. He's looked at all the numbers and made an estimate.
+
+[00:04:32] And then this one's a bit of a guilty sort of, you don't need this really, the carbon footprint of the heart bypass operation. I don't think you need to be thinking about offsetting when you're on your way in. It's going to end up being two heart bypasses, isn't it? If you wake up and they go, do you know how many planets you've ruined with that? There's 1.1 tons. Wow. Is that bad?
+
+[00:04:53] Yeah. It's not any carbon footprint. It's not great. It's all relative. It is, you know, lots of modern life creators. If you think about one email is one gram. Right. Okay.
+
+[00:05:03] That's a good perspective. Yeah. But if you, obviously, if you sent an email saying, can I book a heart bypass in, then that's only adding to the footprint. So here's one. If you have a BLT sandwich and you want to lower your carbon footprint, which one ingredient should you throw away? The bacon?
+
+[00:05:18] Yeah. Throw away the bacon. It's the tomato. The tea. It's the tea. Okay. This is nuts. Tomatoes require so much heating and lighting of greenhouses that apparently their carbon
+
+[00:05:29] footprint is higher than the bacon. No way. Which I find extraordinary. No. But what if I just get by tomatoes from a very hot country many, many miles away and it just gets flown over by jet? That's a great point. It doesn't need to be greenhouse.
+
+[00:05:42] Is it a private jet that your tomatoes are being flown in on? Just one tomato. Oh yeah. Yeah. No, it's one small bunch on those little bags. I mean that, I can't, that is amazing. I find it extraordinary. There are a few sort of counter-intuitive ones, like apparently a New Zealand lamb, if you
+
+[00:05:56] imported a New Zealand lamb to England to use, there's less carbon output than a British lamb because the rearing is so much more that even if you include the shipping, the lamb is far less if it comes from New Zealand. Really? And it's not just because the natural climate requires less input. Yeah. It must be just all the procedures that they're doing. Because I would have thought that lambs are not that hard to rear.
+
+[00:06:18] They're one of the few things that the British climate is okay with rearing without ridiculous carbon input. Lamb and beef do have, they're the two highest meats with, although that's, I think that's total ecological impact, but a lot of that's carbon. They are, but I'm amazed that the New Zealand lamb is somehow requiring less carbon. Yeah. I mean, they send a lot less emails, don't they, in New Zealand with the lambs? It's mostly just lesser writing for the lamb still.
+
+[00:06:39] Do you know what the third meat is? So the first is beef, second is lamb. Pork? I actually think the second is pork. And this thing has a bigger carbon footprint than lamb. Chicken? No, it's crustaceans. So I can't believe this.
+
+[00:06:53] I always think of crustaceans as such an ethical thing to eat in proportion to other meat, but they use a huge amount of fuel compared to other seafood. So most seafood has a carbon footprint, a bit like chicken, but shellfish is up there with beef in terms of its footprint. I'm so delighted. Oh, you hate it, don't you? I hate eating crustaceans, but it's just because I'm a bit faddy. But now I can say it's because I want to save the environment.
+
+[00:07:15] Oh, God, if you didn't have enough moral high ground. Do you know one thing that has an insanely high carbon footprint? One practice. Oh, God. I mean, yeah, I mean, lots. Having asthma. Oh. Is that because you're breathing out lots of carbon dioxide all the time?
+
+[00:07:29] It's not that. OK, again, I don't feel comfortable causing people with asthma to hyperventilate with guilt. No, no, no. I used to have asthma and I don't have it anymore. So was that an ecological position? No, but I did use to have it and I used to have those inhalers. And you know, they use a gas called hydrofluoroalkane, which is a propellant.
+
+[00:07:50] That's what squirts the meds and out, you know, it's like a little gas cartridge. Those inhalers account for 4% of the NHS greenhouse gas expenditure. Wow. Isn't that massive? So if you replaced one in 10 of those inhalers, you would reduce carbon dioxide equivalent emissions by 58,000 tons. What can you replace them with? Do they have, like, eco ones?
+
+[00:08:11] There are other, there are more ecological ones, which some people can have, I think, not everyone. But yeah, 58,000 tons just to replace one in 10 of those you would save. Wow. That'd be insane. That's pretty good. The NHS actually had an incredible carbon mistake quite recently, didn't they, to speaking of them.
+
+[00:08:26] Now this, it had an email storm in 2016 where 186 million useless emails ended up being sent. So this is, the history of email storms is so fun. So basically, this apparently is the industry term for when someone accidentally sends an email to a huge mailing list. And in this case, it was the IT guy who was sending a test email. He sent it to 1.2 million employees. And then they all replied, all saying, please unsubscribe me from this list.
+
+[00:08:55] And then there are other ones who replied all saying, stop replying all, everyone, stop replying all. And eventually it ended up being 186 million emails. And I believe it took down the NHS mail system. There's a very funny quote from a spokesperson, the NHS digital spokesperson, who said, some users have experienced short delays in the NHS mail system this morning, but the issue has been resolved. But she did have to dictate that over the phone because her email still wasn't working.
+
+[00:09:20] Wow. How's this? The NHS gives you shit about your heart bypass. 2016, mate. There's a guy called Joey M. He lives in Rhode Island and he has the world record most number of unread emails in his inbox. Oh, wait, can we guess?
+
+[00:09:40] Yeah. In the thousands. What? 2000? I'm right. I'm pretty sure these two. That's me. OK. 58 million.
+
+[00:09:52] Can I go ridiculous? Say a billion. A billion? I'm going to say a billion. Four billion. Wow. 294 million. 967,256.
+
+[00:10:02] And he evidenced it by uploading a video onto recordsetter.com, which allows you to, if you think you've done more, keep you up. He's an anyone else. You can put a video on this site and it'll show you. And he showed it on his phone, just deleting one message to get down to just over four billion. What? Isn't that amazing? It's extraordinary.
+
+[00:10:22] Is he on a lot of mailing lists? Does he work for the NHS? And there was a survey done by Adobe quite recently about emails that says 55% of people, whenever they get to zero inbox, say it's relieving, 22% say it's amazing, and 10% say it's impossible. And the only reason I bring up this survey is because they categorize people into boomers, Gen X, millennials, and Gen Z, and they put millennials starting in 1977, which makes me a millennial.
+
+[00:10:53] Nice. So that's the only reason I bring up. As a long build up to emphasize that you're a millennial, that was the price for the record. I was going to ask you about that skateboard you're holding. So just one weird bit of carbon news. So in 1981, Ronald Reagan made this speech, made this statement where he said trees produce more pollution than automobiles. What?
+
+[00:11:17] So he said that, and people thought, well, that's very funny, and probably some idiots believed him, and he probably set the world back by about 100 years. But he said this, but trees do emit greenhouse gases. So they emit loads of methane, and we've only just discovered this. It was in 2014. There was this huge methane surplus in the atmosphere. People didn't know where it was coming from. And this woman went to the Amazon and tested its trees and figured out they're all pumping
+
+[00:11:41] out methane. They're all farting. They're all farting. Tree for hot. Ending up in the atmosphere. But this isn't a problem, is it? It's definitely, definitely offset by the amount of CO2 that they're absorbing. And so we don't want to get rid of the trees, guys.
+
+[00:11:55] Trees are good. Thumbs up. But it is a thing that we need to work out why they're doing it. And so it might be more in wetlands, which have a lot of methane within them that they're pumping out. So maybe we don't plant trees on big parts of methane, for instance. Right. Hey, remember we had that fact a long, long time ago about every tree?
+
+[00:12:10] I think it's in Melbourne that has an email address. Oh, yeah. Yeah. Oh, that's a bit of a... They're all themselves in the root, aren't they? Okay, it's time for fact number two, and that is James. Okay. My fact this week is that hot dogs are called hot dogs because people used to think they
+
+[00:12:30] contain dog. And did they? No, don't think so. No, I don't think so. So this is something I read in the Oxford English Dictionary. The word hot dog appears to be college slang from America in the late 19th century. And according to the OED, who cites the Oxford companion to food and drink and the historical dictionary of American slang, the reason people called them hot dogs is one, they were hot,
+
+[00:12:58] and two, they had this weird meat that they didn't know where it quite came from. And it might as well come from dogs, come from anywhere else. Okay. Yeah. In fact, I think that it could have been in there. So I got two into these three people called Gerald Leonard Cohen, and I don't think he's related, and Barry Poppick and David Shulman, who have devoted over 20 years of their lives to working out the root of the phrase hot dog.
+
+[00:13:23] And so they're into it. And Gerald Leonard Cohen says that scandalous but true, some butchers even hired dog killers in the U.S. who would go and club some dogs and stuff them in sausages, even though it wasn't legit. But he's found some instances of that, and then they'd sell the carcass to the butcher. And yeah, I think what was the 1884 that they started calling sausages dogs, and then they added the hot in the 1890s. I read a bit about Gerald Leonard Cohen and Barry Poppick.
+
+[00:13:51] They've written a 300 page book about the origin of the phrase hot dog. And he does this, he publishes his own journal, which is called Comments on Etymology. The circulation is under 100. You have to be, you have to write to him and send him money, and he will then send you a copy of this thing. He once wrote a 167 page paper on just the word jazz. He is a serious etymologist. Cool.
+
+[00:14:12] And he is, we should say, also a professor. So he's a professor of foreign languages at a university. So he does make an income other than from these hundreds of subscribers. But he said, I think he was interviewed and he said, what else am I going to do with my time? Go skiing? I'll probably get hurt. So, I guess I've got to just research hot dogs forever.
+
+[00:14:30] That's such a good point. I'm supposed to go skiing this weekend. Well, I suggest you instead devote two decades to researching hot dog origins. I reckon the first hot dogs must have been quite good, actually, because the phrase hot dog, which means something which is really awesome, is only one year younger than the word hot dog, meaning the food stuff. So they had hot dogs for one year, and then people thought it was a word that meant this is great.
+
+[00:14:54] That's Mickey Mouse's first words. Is it? He goes, hot dogs. He pleuralizes it. I'm so glad we've done this, because I've always wondered, and it's a wonderful life when the James Stewart character says hot dog, and it's when it's something totally unrelated to hot dogs has happened. Same as he said that.
+
+[00:15:11] How odd. Some people were annoyed about it. So they started out on one of the early sites they were sold was Coney Island in, is that New Jersey? No, it's New York. New York, yeah. Sorry, it's Coney Island, New York. And they were so annoyed by the association with hot dogs, thinking they were a slightly
+
+[00:15:26] lower class thing, that in 1913, the Chamber of Commerce passed a law forbidding the use of the phrase hot dog on signs, because you weren't allowed to have a sign up saying hot dog. I think it was not because of the implication that there might be dog meat in them. Slightly, yeah. What's that? You don't want that. So we were in New York not too long ago, and I went for a walk one day to Central Park,
+
+[00:15:47] and hot dog vendors everywhere along the roads. And I was just reading that in order to park their hot dog vending machines in these spots, do you know what they pay? No. So just to... Shall we have a guess? Yeah, just American dollars just to be there, to park there per year, let's say. Just to park there.
+
+[00:16:03] I'm going to say it's probably in the region of US$10,000. I would have said about the same, $15,000, let's say. $15,000. I'd say they pay in kind, and it's like $10 hot dogs a year. With mustard. Okay, so there was one guy who was parked on Fifth Avenue, E-62 Second Street, very near Central Park, $289,500 for his annual, yeah. And that is, he's got to get that to break even, obviously, because he's got to push
+
+[00:16:32] and then everything is proper from there. But they all managed to do it, yeah. Well, because hot dogs in New York sell for $10,000 each day. Exactly. That is quite a lot of money. Yeah, so on average, they have to pay the city $200,000 each year. I've never been to one of those stands and got a hot dog, and I feel incredibly guilty that I've been driving these poor people out of business.
+
+[00:16:53] Do you know one thing that doesn't have to park that is associated with hot dogs? Have you heard of the Weenamobile? Oh, I maybe have. I'm not sure. Have you ever been for a ride in the Weenamobile? I haven't. Not a chat-up line. So, you know, Oscar Mayer is a big hot dog company.
+
+[00:17:08] They have a fleet, a small fleet of Weenamobiles, which are cars shaped like hot dogs, which have been going since 1936, obviously, they've changed them, you know. But basically, they were a huge promotional thing, so they would hand out hot dogs, small hot dogs from inside the big hot dog, because the cars shaped like a hot dog, and they would hand out things called Weenawistles to children, so that if a child ever saw the Weenamobile, they would blow their whistle and attract other children to come and get a hot dog. Wow. It's like the opposite of an ice cream van.
+
+[00:17:36] You're getting the kid to do the job for you. Yeah, exactly. And they train their drivers at a place called Hot Dog High. And then once you're in, like Starfleet Academy for Hot Dog High, you drive around the country. It's mostly sort of students and things they hire. And you drive in pairs, and one person has to drive, and the other one has to wave to people, which is called riding shop bun. Shop bun?
+
+[00:17:59] Yeah. Shop bun. And sometimes they let you in, and they ask you to fasten your meat belt. Wow. That's disgusting. I think if someone's driving around picking up children and telling them to fasten their meat belt. It's shaped like a sausage.
+
+[00:18:11] Your defense lawyers go, it's not looking good, mate. But he blew on my Weenamistle. There's only ever been one accident involving a Weenamobile, and one of them rammed into a house. Imagine that coming through the window. Yeah. It'd be like a bad ring ram as well. Take the whole thing down.
+
+[00:18:32] Another famous hot dog company in America is Nathan's, and that's a really good story about them. There was another hot dog maker on Coney Island called Feltmans, and they were really, really huge and really, really popular, and they had what some people said was possibly the largest restaurant in the world, which just sold hot dogs. But then they had a guy who came to work for them, who was a Jewish immigrant from Poland called Nathan Handwerker. And Nathan Handwerker was working just slightly.
+
+[00:18:59] I'd be happy to laugh at that. Handwerker's a funny name. Yeah. But he wasn't masturbating people. He was spending his week slicing buns. It sounds like masturbating people do. He was working as a bun slicer, and then he decided, well, what I'm going to do is I'm going to sell at my own company, and he needed to get some money together.
+
+[00:19:23] So he lived entirely on hot dogs for a year. He ate nothing but hot dogs, and he slept on the kitchen floor at this place. So he got all the money together, and then eventually he started his own business and then undercut Feltmans by selling his hot dogs for half the price, and became what's quite synonymous, as well as Oscar buyers, and as well as Feltmans, but kind of synonymous with hot dogs in America, though. Wow. But he did have to have quadruple heart bypass.
+
+[00:19:48] Oh, yeah. So that's the big competition, isn't it, in America? They have Nathan, it's called Nathan's famous hot dog eating contest, and the men's champion is a man called Joey Chestnut, who's won it nine times. His all-time record is eating 74 hot dogs and buns in 10 minutes, that's 7.4 a minute, if my math is correct. And there's such rivalry in the thing. But you have to eat the buns as well, don't you?
+
+[00:20:16] You have to eat the buns. You have to eat the buns. Otherwise, you haven't eaten the hot dog. It's not a hot dog. You've eaten the dog. Yeah. No, come on. It's not the bread.
+
+[00:20:24] It's not the bread. Oh, the bread's keeping this dog warm. It's not like a blanket. I'm on the act can start. I'll just have the dog, please. But the previous champion was this guy called Takeiru Kobayashi from Japan, and no one had ever eaten more than, I can't remember what it was, like 20 or something, and then he walked on stage in 2001, he ate 50.
+
+[00:20:41] It completely revolutionized the sport and the art. But what was his thing? You know, in like the Fosbury flop, you changed the way that you jumped over the high jump. So one was his training method. Right. His training method was he would practice drinking three gallons of water in 90 seconds, meaning that his stomach got used to expanding very quickly. Wow.
+
+[00:21:00] Can I say I tried to do that once and was extremely, do not try that at home, extremely sick afterwards. Send us your videos of you not trying it at home. Oh my goodness. I was just like vomiting water for ages afterwards. And why did you, were you trying to enter this competition? No, it was, I was young and it was a bet. I see. Well, you're a millennial.
+
+[00:21:18] That's the kind of crazy thing they do. So the other thing he did, he invented this method where you split each hot dog in two and you force both ends in your mouth at once because your mouth is wide enough for two hot dogs. I cannot believe I had thought of that before. What? I don't understand. So you chop each hot dog in half halfway along.
+
+[00:21:36] So you've got the two ends and then you just shove both ends in your mouth at the same time. Really? And they call this the Solomon method, which is an allusion to King Solomon because he once threatened to split a baby in two in a biblical story. He did. Yeah. And it's a very high-brow contest, isn't it?
+
+[00:21:51] There's a lot of these biblical and classical references. Wow. Two parents were arguing over who got custody of a baby and Solomon said, well, we'll cut the baby in two. And then one... He might just get the whole thing in his mouth. No, that's... No, you didn't...
+
+[00:22:04] No one ate the baby. Right. Baby eating contest. It's in John, part one, part seven. One of the parents said, oh, that's fine by me. A good idea. Let's split the baby in two. And the other one said, no, don't do that.
+
+[00:22:15] And then King Solomon said, well, you should probably have the baby. Is that what happens? I think that's right. I think that's right, yeah. That's amazing, but so obvious. I would have split it. I don't want to claim that I would have won this competition, but I think it would have had a chance because obviously you put it in half and shove it in both sides.
+
+[00:22:31] I would say into three parts. Well, I was just going to say, where do you stop? Is it possible to cut into three, four, five, six or seven parts? Well, how wide is your mouth? Well, you're looking at me. The people at home don't have this option, but I don't think I could fit. In fact, I'm not sure I could fit two in mine. I'm not.
+
+[00:22:48] No, maybe you're a two-man, three-max. I think there's a point of which there are diminishing returns from cutting your hot dogs into an increasing number of pieces before you put them in your mouth. Still with a knife and fork on the first hot dog after the competition. Those guys are going to feel so stupid as you cut it into the hundredth piece. I'm going to get this whole thing in my mouth. Do you know that the Pentagon used to have a hot dog stand? And there was a rumor which they tour guides still tell to this day when you get
+
+[00:23:17] taken around Pentagon and it got taken down in 2006. But during the Cold War, apparently the Russians were convinced that some amazing stuff was going in their secretive conversations because people would meet there. So apparently they had two missiles aimed at this hot dog stand the entire time of the Cold War. And that was the that was the rumor. No one's ever imagine if a missile hit.
+
+[00:23:39] How many pieces those hot dogs could be in? Be able to stuff them all in your cup. Stop strategising for the next tournament. OK, it is time for fact number three. And that is my fact. My fact this week is that the oldest recording we have of a poet reading his own poem is of Robert Browning, who forgets the words to the poem halfway through and ends the recording with an apology.
+
+[00:24:07] That's amazing. So this was in April of 1889. This is only a few months before he died. And Robert Browning, I think he was at a party and it was being held by the artist Rudolf Lehmann. And he had with him one of those Edison wax cylinder talking machines. And he got Robert Browning to recite his poem, which was called how they brought the good news from Ghent to X.
+
+[00:24:30] I know it's X. Yeah, like X on France. Yeah. And he was just doing his Ali G impression. I. Is it really? Yeah, I did a YouTube listen to it. Please forgive me. I memorized it when I was 10. So did you? I did. I had to do it for a recital competition. And I this actual poem, the Browning, this poem, did you get through it
+
+[00:24:54] without apologizing? I did better than Browning did. Wow. I got through it. And then I was rereading it and I was so ashamed at how little of it I could remember. I think they all I could remember is because it's like it's such a good poem. Actually, it's done galloping. You never really know what the good news is. And it's got this great rhythm of horse is just galloping from Ghent to X. And all I remember is they galloped, galloped, we galloped all three.
+
+[00:25:17] You know what? You're embarrassed that you couldn't remember much of it. I still think that's pretty impressive. I think you almost got further than Browning himself. No, you're right. It's the pace when you listen to him speak it. And this is online. So if you go on YouTube and put this in, anyone listening can can actually hear the man himself.
+
+[00:25:34] It does feel like it's a old Western. He's so galloping. It's fantastic pace to it, but he only gets a few lines in and he suddenly says, I'm most terribly sorry that I can't remember my own verses. But then adds, but the one thing I will remember all my life is this astonishing sensation produced upon me by your wonderful invention. And then you hear people cheering for him in the background. Politicians answer the way he says, I can't remember the poem
+
+[00:25:58] you specifically asked me to read. But one thing I can remember is amazing pivot. It's incredible pivot. Yeah. And so one nice thing about it was that there were a lot of people recording at the time, but supposedly he was one of the first notable people to pass away so soon after the recording. And it was a year after he died when they had a memorial for him that they played his voice at the memorial.
+
+[00:26:21] And they said it was like him coming back from the dead. It was this eerie thing that no one had ever experienced before. I think it was the first time that anyone's voice had been played or any more notable person anyway, after they died, which that must have been pretty weird. Right. Yeah. That must have been weird. But also it's kind of embarrassing. I say, please don't play the recording right.
+
+[00:26:40] Cox up after I'm dead on my anniversary. Yeah. You know, they're all just pointing and laughing. Well, some of his relatives did say it was embarrassing that they played it. Did they? Yeah. Not everyone was happy that it was there. The fans, it was at a Browning Society gathering in London. They were all huddled around this. There were societies. There were societies decades before he died, maybe not decades,
+
+[00:27:02] but certainly in the last decade before he died, there were people meeting up. And he found that embarrassing. Oh, everyone was so embarrassed all the time. But his funeral was a ticketed event because he was so popular. I think it was, yeah, it was Westminster Abbey, where his funeral was held. They got over a thousand applications. And the Dean of Westminster wrote, saying, everyone has been trying to get into Browning's funeral.
+
+[00:27:22] I've had to really limit it to people who had a really good reason to be there. Really? Yeah. Do you know he, because he wasn't popular throughout most of his life. And then he did get very popular towards the end and all these people wanting to go to his funeral. And also he sparked a fashion for dressing in brown. No. He did. Just after he died in America, he sparked a brief fashion
+
+[00:27:43] for dressing up in brown items of clothing. Just because he was called Browning, he didn't dress in brown himself. No, it was just the name. Yeah. Wow. How did they do when Dickens died? A lot of arrests. Do you have any more on that about how that came about? No, I sorry, I've only found it in one place. And sorry, it was before he died.
+
+[00:28:04] It was 1979 to 1980, when he just released one of his very popular works. 1979. Wow. So Thatcher was just standing there. It was 1879 to 1880, when he just released one of his popular works. Wow. He, his romance with Elizabeth Barrett Browning, who he became husband and wife. And she was way more famous to start with than him. It was really interesting because he started, it started as a correspondence
+
+[00:28:32] and she was housebound and she was invalid. And her father was extremely strict about who she didn't didn't see, despite the fact she was also a famous poet, which I don't really understand. But he started writing to her and they started a passionate correspondence. And then they eloped and got married and they had a son who they called Penn. He was actually called Robert as well, but they nicknamed him Penn. And that's all they called him. No, he was called
+
+[00:28:55] vitamin or weed man, Robert Weederman. Yeah. But the reason they called him Penn is because he couldn't pronounce the word Weederman as a baby. Well, not as a baby. You can't pronounce anything as a baby. They had massive arguments about how Penn should grow up. Did you read about these? No, no. So basically he wanted the child to grow up looking sort of very blokey,
+
+[00:29:16] Victorian, you know, wearing trousers and having his haircut short. And she wanted petticoats and shoulder length ringlets of hair. And she won maybe because she was more famous or more authoritative. But basically until the child was 10, he wore petticoats. And then as soon as she died when Penn was 10 years old, Robert had the child's haircut really short after asking her differently. The big bone of contention between them. But he turned out quite different to what she would have wanted then,
+
+[00:29:41] because he so he did have this quite fay upbringing and he slept in her room until he was 12 and went and I thought, I thought, hang on, I thought Elizabeth Browning died when he was 10. Yeah, he was a really tragic last two years. Really very traumatizing for him. Well, I've got until he was 12. OK, we'll fact check that. But he ended up this real kind of, well, what is described in one of his
+
+[00:30:05] biography and one of Browning's biographies as a beefy and beery middle aged man in knickerbockers with a reputation for promiscuity. And also his home, his house was just a filthy pigsty. He had people around for parties. And so his house was nicknamed the Palazzo Pigsty. Pigsty Palace. And well, he was called Penn. Yeah, it's like a pigpen.
+
+[00:30:27] Penn's a pigpen. So good. He was a painter, but I think not a great one. And apparently his penchant for painting voluptuous female nudes did not encourage sales in Victorian England. Well, he was a sculptor, too. And was he? Yeah, one of his very few sculpted works is of a woman communing with a python.
+
+[00:30:45] And it's quite sexy. It's called Dryope or Dryopee, fascinated by Apollo. But during the sculpting process, the python tried to strangle the model that he got and he then had to shoot it. Oh, my God, the python. Yes. Yeah. Wow. I know.
+
+[00:31:00] Do they ever paint portrait outtakes? That would have been just as stunning. It's it's interesting. The the idea of his voice coming back from the death at his funeral. I find interesting because he was one of the people who was very against spiritualism. He used to sit on seances because Elizabeth was really into seances. And this was the time where Arthur Conan Doyle was into it and so on. And Houdini and Houdini was a skeptic.
+
+[00:31:25] Yeah, he was a skeptic. They just sound like all the most famous people in the world were at seances. Like you just go along to a normal seance hoping to speak to a relative. And then suddenly Houdini stands up and Arthur Conan Doyle stands up. Browning's there. Well, they were going for the rich people, weren't they? Yeah. The mediums. Well, this was a this was a very famous medium.
+
+[00:31:42] It was called Daniel Dunglass Hume and Dunglass and Dunglass wasn't. He was Daniel Hume and he added Dunglass. And it's so weird, isn't it? Because it looks like it's a misprint of Douglas. It really does. And he was he was someone who was very famous back in the day. And he used to do all these seances. And one seance he did was with the Browning's and they were sitting there.
+
+[00:32:09] And he was really skeptical. Robert and Elizabeth was really into it. And Daniel Dunglass suddenly said, your son, who passed away, who was very young, is here with us. And there was an apparition that was that was near them. And they were, oh, my God, this is amazing. And it's so great. Browning went, this is not.
+
+[00:32:27] This is not my son. And he grabbed the apparition and it was Hume's naked foot that was hanging in the air. Such a good story. It was a bare foot. Very embarrassing. Literally put his foot in it. And the thing was, he didn't have a son. No, he didn't have a son.
+
+[00:32:50] Yeah, there was no dead son. At least do your research as a medium. Do the very basic research. If you're going to claim the dead sons, come back, make sure there's a dead son. Yeah, especially when the people around the table are really famous. I think they probably have just gone on to Wikipedia and checked. Every QI person's favorite poem by Robert Browning is Pippa Passes. And that's because it contains the lines.
+
+[00:33:14] Sing to the bats, sleek sisterhoods, full complains with gallantry, then owls and bats, cows and twats, monks and nuns in a cloister's moods. And this is because he thought that the word twat was a kind of headdress worn by a nun. He had taken this from a 1660 satirical poem called Vanity of the Vanities, which says they talked of having a cardinal's hat. They'd send him a soon and old nun's twat. And he'd read that and thought, well, they can only be talking about a headdress. It can't be anything else.
+
+[00:33:50] That's amazing. So it must be that. And he put it in his badge and put it in your own purse. So good. And what's great is the only reason we know that is the OED itself chased him up to say, do you have some sort of secret etymology about this that we don't know of? No, no, just funk it up. Did he did the did the OED tell him, you know, what you've done here?
+
+[00:34:11] Well, they must have said, we're approaching you because twat doesn't mean that. Or they might have just said, we're interested in you. Andy, anyone who heard that poem, the very first time he read it out has gone to him. Robert, did you just say nuns twat? He doesn't need to wait for the OED to come over. He's a laughing stock of the whole town. Oh, but for a while, he would have been going through his town going, oh, lovely twat.
+
+[00:34:39] Because he pointed to a nun's head. It's so annoying because it's such a good word for rhyming with things. Yeah, you're right. Oh, actually, you could have said hats. There you go. It would have worked. The meaning would have been the same. Perfect.
+
+[00:34:55] Now apparently he's well, I mean, so his poems at the time were known for being kind of impenetrable and impossible to understand. And, you know, really great poets read them and did not get what he was on about. So Tennyson said of his poem, Sordello, which was an early one before he'd become a bit more accessible. Tennyson said he only understood the first and last lines of the entire thing. The first line is who will, as in who will read this, who will may hear Sordello's story told.
+
+[00:35:23] And the last line is who would has read Sordello's story told. And the in between was nonsense. And then Henry James, another great author he would have thought would understand most things, said he was comforted on hearing Browning read his poems himself to an audience that at least if you don't understand them, he apparently understands them even less. Henry James writes some of the most complicated sentences in the whole of English literature.
+
+[00:35:47] He's so hard to read if he didn't get Browning. Browning's like, why did Henry James come up to be a Commian nun? OK, it's time for our final fact of the show, and that is Chisinski. My fact this week is that in 1948 in Idaho, leftover World War Two parachutes were used to drop beavers out of airplanes. For any particular reason? No, just just. Yeah, why not? You know, you've got to do something.
+
+[00:36:17] No, this was so this was post war and people were feeling kind of elated in America because they won and they started moving to this place in Idaho called Payette Lake near a place called McCall and there were beavers there and beavers get in the way of humans sometimes because they sort of built dams, they disrupt water flows and they just changed the surrounding environment. So the people wanted them out. And there was this guy called Elmo Hater who worked for Idaho. He really did not like Sesame Street, did he?
+
+[00:36:46] It was spelled differently, but he did have a problem with puppets. He worked for Idaho Fish and Game Association and he knew of a place called Chamberlain Basin, 200 miles away, which he thought perfect for beavers. And he also knew that World War Two had just ended and there were all these leftover parachutes. So he was like, let's marry, marry the two. And he did, he tried, he actually tried taking them to this place by horse and carriage for horse and cart because there were no roads going between the two destinations. And the horses hated the beavers.
+
+[00:37:20] So apparently horses, if you put two beavers on their cart, they freak out. Did you read his phrase about it? No. You wrote this gorgeous phrase. He said, horses and mules become spooky and quarrelsome when loaded with a struggling, odorous pair of live beavers, spooky and quarrelsome. So the horses didn't like the beavers, beavers didn't like the horses. And so this guy dropped them in the boxes into the forest instead. Yeah. Have you seen the footage of it?
+
+[00:37:45] Yes. Yeah. It's awesome. Yeah. So this was only uncovered quite recently, right? So it was it was lost for a long time. We knew there was footage, but no one knew where it was. It's been uncovered a few years back, I think. And you see the beaver being packed into this box, which is a sort of bite-proof box. It's not locked down. So the idea is that they're sort of holding it shut.
+
+[00:38:03] And the weight of of heading towards the ground is what's holding it shut. As soon as they land, it can open up and the beaver can get out. But they don't drop from a high height. It's a really quick descent. It's only 100 feet or so. It's really crazy. I have no idea how they survive the impact. Well, they were very happy. I think there were 76 that were dropped and 75 survived.
+
+[00:38:24] And it was because they tried it first. That's a sad story. That one, it was very sad. That one somehow jumped out. They opened the lid of the box and it was still 75 feet up. But they had one training beaver who they called Geronimo. And they would, I think that Geronimo has the record for the beaver who's done the most parachute drops in the world.
+
+[00:38:46] I think even if he'd only done it twice, that would be a record for the most parachute jumps from a beaver. But he was this... I'm not sure if you told him that now. You mean I didn't have to do it? There's other 350 times. In fact, I'd argue if Geronimo had only done it once, he would have had the jite record.
+
+[00:39:03] Well, he was this old, tough old male and they thought he's going to be a practice dummy. They used dummies first and then they thought we need a live one. And every time he climbed out of the box, someone picked him up. And then eventually he got so used to it that as soon as they saw him approaching, he'd crawl back into the box of his own accord, ready for the next jump. So sweet. He's fine with it.
+
+[00:39:22] Beavers are cool, aren't they? So cool. Right. Love beavers. They love most about them. Well, one thing is this stuff I didn't know about called Castorium. I've been pronouncing it right. What, they're anal secretions. Well, that says, what do you love most about beavers?
+
+[00:39:37] They're anal secretions. So it's right. Let's just clear this up. It's not anal. Is it not? It's not their anus. It's just extremely near their anus. They have these glands and if you lift up the tail, it's really close to the bum
+
+[00:39:53] and it produces a kind of scent. It's this kind of brown slime. It's not feces. It's just very near the feces, but it smells heavenly. And there was it smells so good. And it's a product of their diet of the bark and the leaves they eat. And it's very hard to get hold of. You have to knock a beaver out and then basically milk its anus.
+
+[00:40:13] No, it's not that anus. Sorry, it's not the anus. You're milking it wrong. No, that wasn't Castorium. What's all the slime I've got? But it used to be used to flavour vanilla. It used to be a legitimate product. And so NPR investigated whether it's still used.
+
+[00:40:32] And it turns out that there is a schnapps in Sweden, which does still use it. Really? But it's so expensive to produce because there's only a limited number of beavers. And the global consumption these days is only about one hundred and thirty two kilos a year. And what's your favourite thing about beavers? Now, you've stolen the Castorium thing. This is a disaster. My favourite thing is related.
+
+[00:40:50] It's the beaver myth that was pervasive for about over a thousand years, which is that if you're hunting a beaver, it would bite off its testicles and throw them at you. And then run away. And people just used to think this. Definitely a myth. But do you know what? I don't have any first hand proof that doesn't happen. I think we assume it's a myth now.
+
+[00:41:11] This came up in a text called a physiologis in the second century AD. And it's based on the same thing, the Castorium glands, which people thought were its testicles because they look very similar to testicles. And people used this delicious smelling fragrance as medicine and as various other things. I think women used to sniff it like snuff. And so beavers knew this is the idea. And they were like, well, this guy's hunting me. He only wants my testicles.
+
+[00:41:38] So he'd bite them off and chuck them at the hunter. And then the hunter would give up. And as the myth went, if the hunter continued chasing, the beaver would turn around, display his empty testicle area and be like, look, there's nothing for you here. That's really interesting because I was I read an article that said then the 17th century beaver's testicles were used to cure toothache. And when minced, they add a delicate flavor to tobacco.
+
+[00:42:06] But now I realize it's not the testicles, is it? Yeah, it's these anal glands. It is. And I think the Algonquins and other American nation, American tribes used to have it in tobacco because it made it taste delicious. In fact, I believe they used to be it used to be used to flavor camel cigarettes. And a few other types of cigarettes. I think they used to use Castorium. Yeah. Camels and Winston's. That was it.
+
+[00:42:25] Yeah. Used to have beavers accretion. But how many beavers would you have to knock out and milk to get this stuff? It just is amazing. I mean, there must have been a lot of there were a lot more back in the day. I'm surprised they called it camels. If you're getting the good stuff from the beavers. Yeah, that's true. You've been sucking on a beaver. Daniel, favorite thing about beavers.
+
+[00:42:45] That's a Robert Browning poem, isn't it? Sucking on a beaver. Yeah, we did think it was a lawyer's sleeve. That's my favorite thing about beavers. I like that they have a second set of lips. So they've got they've got their normal lips just hanging out there in the front. Then they got their teeth and then they got another set of lips. Yeah, sitting right behind. No. Yeah. And it's for when they've gone under water and they've picked up a nice
+
+[00:43:13] bit of wood and they're coming back up. So obviously they've got to bite into the wood, but you bite into the wood, your lips are open, you're letting the water in. Second set of lips stops the water coming into your body. It's a classic. How much lipstick must they get through? Because do you remember in the B series of QI, we were looking into beavers and we sent Molly Oldfield, our good friend, to look into what beavers'
+
+[00:43:36] lips look like and she went on to the internet and googled it. And she suddenly was a lot less innocent than she was at the start of the day. Do you think base, you know, base one and base two and base three and base four, do you think base one for beavers is snogging their first lips? Base two is snogging their second lips. And then I think you'd have two base threes as well. Base three, as she showed me her nun's headgear. Hang on, James, what's your favourite thing about beavers?
+
+[00:44:11] I thought you'd never asked. You've been asking all of us. I know. Let me think. You must be so confident you have an obscure one that you allow three people. I don't. OK, what about this? My favourite is the movie Zombeavers. Yes, he's done it. He's done it. Which I found on IMDb, which is about zombie beavers.
+
+[00:44:32] What I like about it is they mention in the script about a Ghiyadhya lamblia parasite, which is actually beavers actually have it. And they used to think that it gave people something called beaver fever. It might actually do it, can infect you. I saw a review of it that says zombie beavers is not a total wash and seen at night under the right combination of low expectations and controlled substances. It may even seem better than it really is.
+
+[00:45:01] And also, when I went on to IMDb, it said that people who like zombie beavers will also like zoombies, which is when a strange virus quickly spreads through a safari park and turns all the zoo animals into zombies. Oh, zoombies. I thought it was going to be a zombie bee. Yeah, exactly. Well, actually, spoiler alert, at the end credits, after the end credits of zombie beavers,
+
+[00:45:25] there's a brief segment that shows a bee feeding on the corpse of a beaver. And the bee flies back to his hive. And the implication is that it's become a zombie. Brilliant. We've already had a sequel. That's so exciting. Yeah, it's a ruined film for me. Well, watch it now. It's my night ruined. One other thing about beavers.
+
+[00:45:45] For a beaver, the days in winter are longer than they are in the summer. For a beaver. What? What? They're nocturnal. Um, is that it? Are they? Yes, they are nocturnal, but that's not why. Imagine if James was just trying to make the idea of a nocturnal animal just sound really exciting suddenly.
+
+[00:46:03] How can we rebrand this, repackage it? This this is literal. OK, literally, the days are longer in the in the winter. And that is because they live underground in the dams in winter. And without any signals from nature, they don't know when the sun's going up and when the sun's going down. And so their circadian rhythm changes and they end up living on 27 hour days in the winter when they're living inside the dams.
+
+[00:46:31] And then when they come up in the summer, they live on normal days because of the sun going up and down. Wow. Isn't that amazing? I cannot believe that, given that, that Zombeavers was your favorite thing about beavers. OK, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things
+
+[00:46:53] that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at tribal and Andy at Andrew Hunter and James at James Harkin and Anna. You can email podcast at qi.com. Yep, you can go to our group account, which is at no such thing or our website. No such thing as a fish dot com. We got everything up there from our previous episodes. We don't have upcoming tour dates, but we have a video of us on tour.
+
+[00:47:16] If you want to see that, it's called Behind the Gills. Do download that. We'll be back again next week. We'll see you then. Goodbye. They got married and they had a son who they called Penn. He was actually called Robert as well, but they nicknamed him Penn. And that's all they called him. No, he was called by the man or we demand Robert Weederman.
+
+[00:47:45] Yeah, but the reason they called him Penn is because he couldn't pronounce the word Weederman. They also called him Penn because they did some tests and they found out he was mightier than a sword. You're going to keep that in is. Of course he is. I'll quit right now. That's why I left the gap.
+
+[00:48:04] Sorry, we could have let that hang longer.

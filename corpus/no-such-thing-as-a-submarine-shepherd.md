@@ -1,0 +1,247 @@
+# No Such Thing As A Fish - No Such Thing As A Submarine Shepherd
+
+- Episode date: March 3, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-submarine-shepherd
+- Slug: no-such-thing-as-a-submarine-shepherd
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covern Garden. My name is Dan Schreiber. I'm sitting here with James Harkin, Andrew Hunter Murray, and Anna Chazinski. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that British warships, are so noisy that enemy submarines can hear them from 100 miles away. What's going on on board these ships?
+
+[00:00:50] Disco night. Yeah. So this basically is the type 45 destroyer, and I think we've mentioned them before. They've had a lot of troubles. They were the ones who broke down in warm water. Yes, yeah. And they also rattle very loudly, and they used to stop it by putting little wooden wedges between the hatches, and that was.
+
+[00:01:11] would stop them from rattling, but they've kind of stopped doing that now just because they've run out of patience. And now our warships are rattling around the seas. And anyone who wants to know they're around doesn't even have to use any detection. They can just hear that. Wow. If you're in a submarine, you can't really hear that well underwater. You can hear better underwater. No. Well, only in the sound travels fast. You ever tried to have a chat with someone underwater? Yeah, but sound does move quicker through liquid than through air. Really? Yeah, because the molecules are closer together. I guess so. But then they're in a tin. So they're not in the water.
+
+[00:01:43] They're not using their actual ears to hear it, right? No, I would say people in submarines, if you're detecting things through sound, then usually it would be sonar rather than people sticking their ears out of the hatch. I just want to get clarification. There is a new submarine that the Swedish are building. They're building these incredibly advanced submarines,
+
+[00:02:01] and one of the features they have is there's a pod in it where the submarine can land on the bottom of the sea, and then the pod opens, and special forces can leave. the submarine, plant mines, or do whatever they need to do on the bottom of the sea, and then go back in. That's very unusual, isn't it? Very unusual. Because, first of all, submarines don't really like to actually touch the bottom of the ocean, do they?
+
+[00:02:25] Because then they can get stuck, like the curse one or whatever. Good point. This was just a concept drawing, so maybe I've misunderstood. Also, mines in the water, you don't tend to dig them underneath the sea. Otherwise, all you're going to do is blow up some fish and crabs. Yeah, it's not like the old-school scuba. divers with the huge bell and rope thing. It does feel to me like you've seen an eight-year-old drawing.
+
+[00:02:47] But it's more effective to catch a scuba divers because they're wearing their big flippers on their feet, so they're more likely to tread on a mind. That's true. But the flippers will mean that there's less pressure because they're wider. But there is pressure pushing down from the ocean, so the additional pressure of the flipper. But you don't walk along the floor in flippers.
+
+[00:03:04] Have you ever tried to walk in flippers? Never let them touch the ground. You could walk on tiptoe on the floor. the flippers, which would give you extra height, and which would give you actually less of a surface space to be standing on mines. There are some fish which have their extended fins, and so they kind of walk on the bottom of the ocean. Oh, yeah.
+
+[00:03:25] A tripod fish, they're called, aren't they? Do you know, so Sweden only has five submarines, but they are incredibly good and incredibly quiet as well. They're so stealthy. So, for example, they're mostly used, because Sweden doesn't really fight many people, but they are mostly used by the American Navy to play the Russians. And the last time they did a big wargaming exercise, the Swedish submarines got through all the American defenses
+
+[00:03:47] and sort of virtually torpedoed the entire American Navy. Oh, wow. Yeah, without being detected. Is there not a danger that one day then Sweden, this lovely peace-making nation, is going to think, hang on, we're really good at this. Should we try actually not making it a game this time? Sweden used to own sort of a third of Europe.
+
+[00:04:05] They used to have a massive, massive empire. They invaded Russia, Simultaneously fighting France, I think. That's crazy. Don't invade Russia whilst simultaneously fighting other country. No, I know. People.
+
+[00:04:15] Anyway, the submarines are made by Saab is the main thing I wanted to say. Saab Marines. Well, we reached a pretty high points of putnery quite early on today. Hard to know where to go from here. So one way that submarines are hiding themselves, or planning on hiding themselves in future is with bubble wrap. Do you see this? Is it wrapping themselves in just bubbles?
+
+[00:04:41] Yeah, but not sea bubbles. This is obviously in submarines there's a problem of trying to avoid detection by like boats and other submarines, sonar and radar. And so they've developed this kind of bubble wrap, which is kind of plasticy material that they're planning to put on the outside of submarines and it will deflect radar. Oh, wow. And mean they're impossible to spot. Also mean they're really fun because you just keep popping along the time, wouldn't you? But then you get detected. That's the problem.
+
+[00:05:08] That's true. The sound gets out. Only by five-year-olds. The thing about bubbles that's interesting, I don't know if we've mentioned this before, is that a torpedo when it hits a submarine, the torpedo doesn't hit the submarine, it explodes just before the submarine, and it's the bubbles that bring down the ship. Yeah, it's extraordinary. It's like it explodes as a massive vacuum, which is like a bubble, and that will force the hole apart. Wow. Because it would fool you as well into thinking you were safe when you saw it explode before it hit.
+
+[00:05:38] you'd be like, ha, idiots. Try again, next. Is there, you know how airports have flight controllers who sort of shepherd in the planes, you know, in an order? Plain shepherds. Yeah, the plane shepherds. I think sometimes they call them air traffic controllers, but that's just a slang thing.
+
+[00:05:59] Yeah, that's a slang term for plane shepherds. Yeah. So are there submarine shepherds? Do they, do they? Because if you've got, let's say you send out like a fleet of your own submarines, and they've all got this amazing invisible. detection thing. They'll just be slamming into each other on the way out the harbor, right? So is that a thing? I don't think because we don't have as many submarines as we have commercial
+
+[00:06:18] planes. I don't think we're sending 200 of them out in the space of three hours. There must be occasionally where it's like let's launch them all because, you know, Sweden's decided to take over everything again. I think Britain only has one constantly at sea nuclear Dryden submarine. So that's why, isn't it? So does it crash into a lot of their lesson. Is it? There's one which is being sort of repaired all the time. There's one which is being used for training all the time. There's one which is constantly at sea. And obviously that switches around.
+
+[00:06:45] It's not like one of them is constantly being repaired. Exactly. I think they just would admit that one's broken. It's interesting looking at the numbers of warships. So in 1945, I read this an article that we had nine, this is Britain, 900 warships in the Royal Navy. By the time of the Falkland Wars, it was down to 70 warships. And they now reckon in 2017 it's half of that.
+
+[00:07:11] So we're looking at about 35 warships. And that, I think, includes a lot of smaller craft as well, like frigates in the 35. So warship, that can mean anything from an aircraft carrier to a speedboat. Speedboat. Maybe not quite, it's not quite that bad yet that we've only got 35 speedboats, but it is bad. The Japanese Navy is larger than the British and French Navy put together. How many speedboats have they got? Oh, 75.
+
+[00:07:33] Wow. But this is the thing. The Japanese Army, I was reading. about the economist has never fired a shot in anger. What have they fired it in? Revenge. What do you mean?
+
+[00:07:47] That doesn't, I don't know what you mean by that. So the Japanese army was disbanded after the Second World War. So you mean since the Second World War? Since the Second World War. Yeah, they fired a load of shots in anger during the Second World War. But since then, they have never got involved. And there is a Japanese man who is now suing the government because they're training
+
+[00:08:03] his son to kill people. Oh, really? Yeah, yeah. The British, maybe, at least, having big problems with recruitment and they've basically just had to change all the rules so that it used to be that you couldn't be recruited if you were over the age of 59 and now they're saying if you're over the age of 59 that is no problem please come and rejoin the navy because they're really needed because that does seem relatively old to start your naval training career I think it's I think it's retired yeah they're saying come back yeah so the current first sea lord who's named admiral sir Philip Jones he's put this calling out saying we need people to come back
+
+[00:08:37] It's code named, and I don't know why we know the code name, but it's code named from street to fleet. And they just don't have enough sailors, basically. They need people back on ships. It's only 35 speedboats we need to man. Exactly. And this year has been named the Year of the Navy. And that was named by Michael Fallon, the Defense Secretary. So it's meant to be pushing it.
+
+[00:08:58] I mean, he's the Defense Secretary. They should all be the year of the Navy to him. Well, he needs to have a special year for these things. Last year was a year of the emoji. This is Defend Britain Year, which we prevent people from invading. Does everyone know the name of the captain on the US Navy's biggest stealth destroyer?
+
+[00:09:18] Is it Captain Birdseye? No, I do know it. Yes, it's so good. Captain Pugwash. No, but keep along this line drinking. Oh, Captain Crunch. It is Captain James Kirk. Sure is.
+
+[00:09:32] But yeah, Captain James T. Kirk runs this destroyer. And the cool thing about this, and this is true of some of our warships, and related to the fact, which I guess is about how ships need to disguise themselves, is that it looks to radar like a little fishing boat. Actually, all of Britain's ships look like a little fishing boat as well. Amazing disguise. It's so realistic. They do it by the angles that it's built out. So if you look it up, it looks more like a spaceship than a boat
+
+[00:10:01] because it's built a really weird shape. And the angles, again, they deflect their own. radar in certain ways, which make it appear like a tiny ship. Can you do the opposite? Whereas if I have a tiny ship, I can be in the sub going, check out my ship over there. So here's how it works. Imagine you're firing something at an airplane and it bounces back at you. Like a tennis ball, you throw it at it and it bounces back and you can tell it's there because it bounces back. Okay. Okay. Now, imagine these stealth airplanes, which are triangular. If you fire it exactly at the nose, it'll bounce back at you. But if you fire it anywhere on the side, it's going to bounce to the side.
+
+[00:10:35] going to see it's there. And that's how the stealth works. And so one of these really triangular airplanes, they look tiny because the only bit that comes back from the radar is from the little nose bit. But what do they think that they go, oh, it must be just a bird side? Oh, they think it's a bird. Yeah. Is that a bird? No, it's a plane. Okay, it is time for fact number two. That is Chuzinski. My fact is that the first account of European smoking cannabis reported that one hid in a jar for four hours and another got into a fight with a pillar.
+
+[00:11:14] So this was, I read this in a book called Penguins, Pineapples and Pangolins and its first encounters with the exotic as its subtitle. And it's all about the first times that people from some parts of the world encountered stuff from other parts of the world. So this was a sailor called Thomas Bowery and 10 of his mates.
+
+[00:11:31] They were English, actually. This was in the 1670s and they were in Bengal. And so in India at the time, lots of weed were smoked. all over the shop. It was called Bang, B-H-A-N-G. And this guy reported, Thomas Barry, reported that it took its operation on most of us, but merrily, save upon two of our number. One of them sat himself down upon the floor and wept bitterly all afternoon. The other, terrified with fear, did run his head into a great jar and continue in this posture four hours or more. Wow. Okay, so did he have his head in a jar then? He had his head in a jar.
+
+[00:12:02] Oh, not his full body, okay. I mean, it's so hard to find a jar that you can fit into these days. The plane of jars in Laos? The plane of jars. In La? In Lao. Lao Land. Yeah, the country of Lao, they have a big plane with loads of massive jars and no one's quite sure what they're there for, but they're probably for burial.
+
+[00:12:22] Or could be for big parties getting stoned and needing somewhere to hide, is what you're saying. This was actually specified as a Martaban jar, which I think is a big jar from somewhere in Burma. Okay. Who won the fight with the pillar? Great question. So yeah, this is another guy. definitely the pillar based on this so he said one of our number was quarrelsome
+
+[00:12:42] and fought with one of the wooden pillars of the porch until he'd left himself little skin upon the knuckles of his fingers and I think the pillar was remained intact so I guess the pillar one Oh, was that was the jar made of glass Or was it made of Still back on the jar
+
+[00:12:56] I'm just thinking if it's made a glass It's not the best hiding spot When you suddenly Have glass jars, did they? No, it would have been a clay jar It's a pot I think we're saying pot here Is that why they can
+
+[00:13:07] Call it pot. Here's something about cannabis that I did not know. Okay. Is that there is a conspiracy theory. Oh. I know. That the only reason that marijuana is illegal is because... Have you heard this, Dan?
+
+[00:13:25] No. It's because hemp paper was a rival to wood paper. Oh. Yeah. And so basically big paper got together, like A3, got together. and, you know, try to shut down and get it declared illegal. Because hemp paper was so great and so much deeper. It's not true.
+
+[00:13:42] Can I just say your conspiracy theories are way more boring than my ones? Yeah, that's true. There were no aliens in that. I thought it was going to be that lizards are allergic to hemp and the royal family are all lizards. Kennedy was killed by a bullet of marijuana or something. No, sorry. It's just that's the theory.
+
+[00:14:00] If you type in, you know, why is... But that's actually plausible. The good thing about Andy's theories is that there is that there is some genuine impossible substance to it. Exactly. Here's a thing. Legal indoor growing of marijuana uses 1% of all the electricity
+
+[00:14:14] in America. Wow. Yeah. Yeah. It produces the equivalent in carbon dioxide of 3 million cars industry. It's huge. Wow.
+
+[00:14:26] Yeah. So it's bad for the environment. It's bad for the environment. The hippies are going to hate that. Yeah. Imagine hearing that. Oh, man. But that was the thing when people were taking laughing gas
+
+[00:14:36] in balloons. I'm sure they still do, but it's very bad for the environment because it's a really bad greenhouse gas. Right. Yeah. So it's hard to be an eco-friendly hippie these days. Heroin's all right. Try heroin. This week's episode of No Such Things of Fish is sponsored by heroin. Yeah, no one's got a good brand name out of it yet that we can use. It's just still heroin. Heroin was a brand. Yeah, it was. Yeah. Heroin was owned by Bayer, the German pharmaceuticals company. My God, really? So are there other kinds of heroin that we just, we don't know the name of? Old brand.
+
+[00:15:11] Yeah, if that's what I mean. People say it's basically the same, but I prefer the brand of stuff. There was this thing. I wanted to put this forward because it sounds to me like it's fake, but you guys might have read the story a while ago and known no if it's deep bunk. Is it that ridiculous theory about hemp paper? Well, it's this new theory. It is another theory that Shakespeare was a pop.
+
+[00:15:35] smoker because they found in a pipe which was in the gardens or in the area of where he lived, they found a pipe that had traces of cannabis in it. And the suggestion is that he might have been a weed smoker. They can't prove that it was his, but it definitely is from the time. It's a pipe from the time on the grounds of where he lived. So wait, it had made it to England, we're saying, by the early 1600s. Because he died in 1616. Because we got it from India in the mid-1600s, really, and hardly anyone was smoking it. I think we might have uncovered a small hole in your theory. Again, not my theory.
+
+[00:16:07] It does make sense if you consider that Shakespeare's plays were all written by Samuel Johnson, who lived about 150 years later. It would grow in these kind of climates. Yeah. So, and I think there were Germanic tribes who were using it. So theoretically, it could have been around,
+
+[00:16:26] possibly, even though there's no evidence that we used it. It's very, very unlikely, but he may have been the one person in this country who was getting stoned. But that explains. why he was such a genius out of his time, right? So true. True. Can we go back to the jars?
+
+[00:16:41] Oh, Jesus. Thank you, James. In 1749, there were adverts all over London that you could go and watch a man getting into a jar. Getting into a quart bottle, actually. So a quart bottle is pretty small. That's tiny. Yeah, it's really small.
+
+[00:16:58] Well, compared to a man. Surely it depends on how big the neck is. Well, his neck. It was normal. It depends if his neck will. fit in the neck. No, this was a bet between the Duke of Portland and the Earl of
+
+[00:17:11] Chesterfield that they were discussing the gullibility of the British public and one of them bet the other that if I put signs up saying a man can climb into a four quart bottle, then I bet people will go and see it. And the old guy goes no, people aren't that stupid. Anyway, people were that stupid and
+
+[00:17:27] they turned up and they waited for about half an hour until it became obvious that this guy and his bottle were not going to turn up. And then they trashed the place. general chaos broke out they ripped up the theatre through seats and benches everywhere three pillars had to be hospitalized
+
+[00:17:44] Everything Carrier Ball was hauled outside and thrown into a bonfire People abandoned their hats and wigs in the panic Wow Abandoned wig And then people tried to guess who it was and no one knew and it was only about four or five years later
+
+[00:18:07] that the Earl of Chesterfield and the Duke of Portland fessed up I would absolutely go along to this show I'm with the public on this one If someone said this theatre on this day has been booked I would think that's legit Well up in Covent Garden where they have all the street performers I saw a man my size get into a briefcase How big was the briefcase though?
+
+[00:18:27] It was just like it was a slightly bigger briefcase But it wasn't quite a suitcase So he just opened it up And he did this whole thing I'm going to fit myself in this in this briefcase and he did. He just disappeared. And then he picked it up from the inside. He made his way to the tube.
+
+[00:18:46] Wouldn't that be great when you get to a meeting and you put your briefcase on the table? Have you met my chief strategist? So I have one last thing about cannabis. Yeah. Which is that in 2008, there was a Japanese customs officer who was training his sniffer dog. and he planted a pack of cannabis resin in, he was meant to plant it in a dummy bag. Okay?
+
+[00:19:09] A previously agreed dummy bag. He decided to give his dog a bit of an extra challenge and planted the cannabis resin in a random member of the public's bag. Right. Unfortunately, the dog did not find the drugs. That's probably because there was a guy inside that bag who just immediately smoked it.
+
+[00:19:33] Okay, it's time for fact number three. That is Andy. My fact is that glowworms go fishing with their own urine. We've mentioned these guys before, actually. They live in caves, and they live on the ceilings of caves, really wet caves, and they drop lines down, and they dangle them out of their own bodies, and they dangle them out of their own mouths. So scientists have been analysing the content,
+
+[00:19:56] and it turns out they're mostly water, but the thing that makes them so sticky is urea, which is one of the ingredients in urine. So we think they're taking, like, their early gut, urine as it's forming and stringing that out of their mouth to make these adhesive lines. That is disgusting. Yeah. It's disgusting. And these lines then things get trapped in them, right? Exactly. Things get trapped in and they haul them up. But one... They hold them back up. Yeah. They go, Oh my God. And then they recycle and digest it and then use the same line again or same...
+
+[00:20:26] So all their meals taste of piss to a certain degree. Yeah. Wow. All their trip advisor reviews are one star, taste of the piss. we're dog hooker. No, just one thing I do. They build a mucous tube on the ceiling of the cave and they shuttle backwards and forwards along it with dozens of lines
+
+[00:20:45] dangling down. So they can keep loads of fishing lines on the go at the same time. Wow. And then whenever an insect gets stuck, they haul it up. Very cool. And they look really pretty,
+
+[00:20:55] don't they? Yeah, they look lovely. Furrithing, which is vomiting its own piss and then eating it. It looks like a Christmas decoration in that cave. I am not coming to your house
+
+[00:21:05] Christmas Christmas. You're in seeping through the sea. So they're not glowworms like the glowworms we have in Britain, which are a type of beetle. They're a type of gnat, which people only found out
+
+[00:21:19] relatively recently. In Maori, the name is Titiwai, which means projected over water. When they're doing this thing with the fishing, they're larvae, and they're like that for quite a few years. And then they become an adult and they're only an adult for like a day or so.
+
+[00:21:39] And then they mate and then they lay the eggs and then they live for a larvae for ages and ages and ages. And if you get too many of these gnats in a cave, then they'll start catching each other and they start eating each other and they get cannibalistic. Right. Okay. So just a few more things about the titty-wide. So quite a lot of animals seem to use projectiles as fishing rods. and I think I've seen a claim that one of them is the fastest animal in the world. Is it a cheetah? Yeah.
+
+[00:22:11] Is it a swift? A swift is the fastest. Is it a buffalo falling off a cliff? Is it a human in a spaceship? All of these are strong contenders. It really depends on your definition of fast. So it's a frogfish. Well, I reckon a human in a spaceship's faster than that.
+
+[00:22:29] Well, it depends which bit of the body you're measuring. when you're talking about speed. So this is specifically its tongue. So frogfish, if you can picture it, it's, they look so weird. They look like a weird, gnarly bit of rock with a kind of wobbly face on them. That happens to be my wife.
+
+[00:22:45] Thank you very much. And they have one of their dorsal fins is like super modified into this rod. So it looks like this really long, thin rod that sticks out of them and it has a lure at the end. So it looks like a bit of mica at the end of it. And when it sees a fish coming by or crustacean, something, then it wobbles the lure around.
+
+[00:23:04] So the fish thinks it's a bit of prey. And then the fish will come and it'll try to eat it. And the speed at which it sucks in the prey that's landed on its view is it manages to get it into its mouth within 0.006 seconds. So another weird thing about them is that's so fast that no other animals can see it happen. So if you're swimming next to your fish... How do we know that it's happened then? Because the fish is swimming along and then your mate just disappears. That's presumably what happens.
+
+[00:23:31] Yeah, but where's Jeff gone? There's probably conspiracy theories in the fish world about what happens to people like Jeff. That is incredible. So what humans have done is that fish haven't done is developed high-speed cameras. The fish police probably look at that and see people speeding and they're like, oh man, I wish we had that.
+
+[00:23:48] That's awesome. You really do with one of those. Catch whatever wobbly face critters swallowing our names. So we can see it through. So we've seen it with our high-speed cameras and they eject their tongue out and then they set these things in.
+
+[00:24:01] Yeah, that's amazing. That'd be such a skill if you're at a restaurant with someone and they had something on the plate that you wanted. What happened to my food? Turn to be the manager. Good meal, good meal. All right, nice to see you. Thanks a good on.
+
+[00:24:15] Oh, yeah, nice to see you. Wow, that is incredible. That is super fast. And also they can suck stuff in that's bigger than their own bodies. Okay, I think that it's a bit obvious when you're the shape of Jeff. Where Javka? The way one of them does it is by opening their mouth to 12 times its original size. So it expands its mouth to 12 times as wide as it was.
+
+[00:24:43] And then that creates this suction in the water that pulls the prey in. Are they then still themselves? Or are they then another animal completely? Because they've got a massive fish in them. I think the thing is the thing that's still alive. Because they say that humans have got like 50% bacterial cells. So we're almost more bacterial than you. human. Now, if you've eaten a fish which is bigger than you, then are you actually more fish than
+
+[00:25:04] human? Well, this is what they discuss a lot in fish philosophy school. When the police give them a break. There are salamanders which secrete glue through their skins and then when snakes can't get anywhere. It's called the extinct. No, it's called, there's one called Batrakoseps attenuatus and it secretes from its skin a glue which sticks a snake to itself and glues the snake's jaws shut but doesn't stick to the salamander.
+
+[00:25:38] What? So the snake is all glued up next to itself on its own coils and its mouth is all glued shut. That's terrible. But not for the salamander. No, fantastic for the salamander, yeah obviously. Urine? Do you guys all that's what you mean? Monkeys wash themselves with it. They've just found out in a new study. Do they?
+
+[00:25:55] Yep. To attract mates. So it's male and female monkeys, we think of several species. They wee into their hands and then they rub it all over themselves like it's shower jealous. What is it with animals? They're just, animals just love piss, don't they? Yeah, they do. They really do.
+
+[00:26:10] Loads of them. Like literally every single time you Google animal urine, it's always they do this to attract mates. Yeah, but maybe we've got the wrong attitude. Maybe, I mean, how many of you've given a chance to your own urine on your body? No, well, no, I haven't. I haven't. Or not on purpose, certainly.
+
+[00:26:28] I can think of a world leader or two who might have done. No, because obviously throughout history, urine's been used as mouthwash. I think we've mentioned in the past. We've used it for all sorts of medication. In battle, Henry VIII, I think his soldiers always wash their wounds in urine. So you're saying really that we're unusual, not only in animal world, but also in time, this is a very, very unusual part of history when people aren't dousing themselves in urine.
+
+[00:27:00] Yeah. That's true, actually, isn't it? That's a really good point. Robert Boyle, who's often said to be the father of chemistry, urine was very much a part of his ideas of medication. So he used to say that every morning you should drink a moderate draft of your own urine. Did he? And while it's still warm.
+
+[00:27:18] Warm urine. Very important not to let it cool down. That'd be disgusting. Well, it's the difference. If you don't like red wine, have a go at mould wine because it's very nice even if you don't like red wine
+
+[00:27:29] and I imagine that's what hot urine is like So are you saying you should put some cloves into your urine before you drink it? I'm just saying heating up urine might take that sort of edge off what was stopping you from drinking the cold version I'm not coming to your place for Christmas Andy just me and you
+
+[00:27:45] Yep, great just like every year So there is a fantastic article by a guy called Richard Sugg on The Guardian which just lists some of the men medieval uses of urine. Yeah, it's so good. I did read that one as well. Okay, I haven't read this, so let's... All right. Well, here we go. In 1550, the Italian doctor Leonardo Fioravanti saw a man's
+
+[00:28:05] nose sliced off in an argument and promptly urinated on the fallen organ before stitching it back on. Wow. I know. Like, that was to keep germs at bay and stuff like. I guess so, yeah. Yeah. They used to say women should gargle urine or drink warm urine to deal with the sore throat, which might well work, I suppose. Warm liquids are quite soothing. Yes. But they'll do it with cold urine. Never do anything with cold urine. I think that's what we've established today.
+
+[00:28:31] Richard Tugg in this article, he also mentions that there was a pioneering French surgeon, Ambrose Parais. Itching eyelids. If you had itching eyelids, wash your eyelids in your urine and make sure that the urine that has been provided has been kept all night in a barber's basin. So there's something, I guess, about just getting some air. But why a barber's basin? Why not just any old, like, jar or... Well, because someone might put their head in that jar and drown if they've got plans to keep it in there for four hours.
+
+[00:29:03] No one has ever put their head in a barber's base. The only basin people routinely plunge their heads into. Apart from done in this B-day of class. A barbers basin has that gateway in it where the urine would spill out. We know where you lie your neck down. Oh, yeah. So actually, it wouldn't be able to hold nearly as much urine as a conventional basin. Which bit?
+
+[00:29:24] You know when you go to a barber and you lie your head back? That's a modern barber's basin. James and I have spoken about this before. People used to face downwards over a basin, which was just like a mini bath or a kitchen sink. Because it's easier to get your eyelids into the barber's basin and into the urine. I just want to say that I am so skeptical because you have made the good point that urine was everywhere throughout time and all animals. If you read literature from any period fiction, it's never mentioned that people were washing in urine, that people were washing in urine, that people were drinking urine.
+
+[00:29:55] I've never seen it in Dickens. It never comes up in Shakespeare. But you're not going to have a, like Shakespeare's not going to write a sonnet about like bathing your richy eyes in urine, is he? All that glitters is not gold. He did write that, though. You're right, maybe that was about we. There are fish.
+
+[00:30:11] In fact, a lot of fish, they'll go around and they'll urinate at each other. And the way that they found out that it's to send signals is they got two fish and they put them in some water and they put a divider between them so they could see each other but the water was separate and then they put a dye inside the fish which made the urine turn purple
+
+[00:30:32] you know like that thing that doesn't exist in swimming pool yeah that they say that they scare you with they put the fish in the in the tank and they would urinated each other but then they couldn't detect it because of this wall and so what happened was they would think there was something wrong
+
+[00:30:48] and they just peed more and more and they ended up with tons of pee because they're trying to get the point across to the other guy. They're not hearing anything back from him, so they just pee even more. And that's to prove that it's like a signaling thing. Yeah, okay. Wow. But we don't know what the point is that they're trying to get across.
+
+[00:31:04] It's just a point. They're trying to make a point. It's true. We can't speak fish urine. Yeah. It'd be great for the sentence was, I think there's something wrong with my wee. It's a little weird to you?
+
+[00:31:19] I don't think it's meant to be that color. I thought this was. a myth about... Okay, it is time for our final fact of the show, and that is my fact. My fact this week is that, according to the Endangered Language Alliance, more languages are spoken in Queens, New York than anywhere else in the world. Wow. That's incredible.
+
+[00:31:43] The most dense area on our planet of spoken languages is Queens, New York, and they put it as around as many as 800 languages that have spoken, and a lot of the languages are languages that are no longer even spoken in the place where they originated from. They're now just purely in New York, which is insane. They've gone there to die, basically. It's normally, you know, people go to Florida to die. There are a couple that are only spoken by one person there, aren't there? Yeah, exactly.
+
+[00:32:10] Did you read about the guy Mr. Hussein, I think, who's 67, and he speaks Mamuju, which is an Austrian language, so he grew up in Indonesia. and he doesn't have anyone else to speak to because not even his wife or children speak it. The only time he gets to speak it is on the phone to his brother back home. So he's the only Mamuju speaker in New York. Yeah, it's very sad. Some people think that it's good that languages die out. Do they?
+
+[00:32:35] Which people? Go on. Contrarians. I can see an argument. We get very precious about them. Well, the argument is, and this isn't my argument, but it is an argument. That is a lot of these languages are spoke by, isolated people and it's the language is part of their isolation and maybe it's better for people
+
+[00:32:54] to be less isolated rather than more isolated. I see. And the other argument which is much more pervasive is that it's complete cultures and knowledge which you lose as soon as you lose a language. Yeah. Although we can write them all down now. We can record them all. You can put them on the internet. That is not a language living though. It's not a way of life living, you know. No, it's not. Yeah. Don't go to Cornwall any time soon. I know. In 2001 there were 6,809 known languages. How many do you think they're on now? They're dying out two a month.
+
+[00:33:29] Okay. Six thousand two hundred. I'd say six thousand nine hundred. I reckon we're discovering more languages. Yeah, that's right. There's more than seven thousand. No way. We're finding them quicker than they're dying out at the moment.
+
+[00:33:39] Wow. But that can't keep going forever. No. At some point we will hit the buffers there. Unless there is an infinite number of languages. Okay. So you, you, you were right Andy.
+
+[00:33:50] Thank you. That's all I need. Or unless we start creating new ones, because there's, for instance, a new language in Australia, which is called Light Wallperi. So it was related to Wallperi, but it's just been identified as a new language.
+
+[00:34:03] It's in this really isolated village of 700 people in the Northern Territory. Is it light as in like Marlborough light? I think it is sort of like that. Slightly less bad for your health. No, with 20% fewer consonants or something. Exactly. But yeah, 350 people speak it as their native tongue.
+
+[00:34:17] and this is just a completely new language based on other languages but now classified as new. So we've just got to keep replacing them as fast as we lose them. I really like this. This is a fact from the Endangered Language Alliance who record and identify languages which are dying out. There's a language from Gabon called Mahongwe,
+
+[00:34:35] and it has a word, manono, which means I like when you say it softly and I don't like when the first syllable is slightly sharper in tone. That's like saying, fine. Fine. Oh yeah Yeah The entire language is based on sarcasm basically
+
+[00:34:51] I just think it's brilliant This group that you've just mentioned The Endangered Language Alliance They say that when you get the subway in America If you were going from Queens to Manhattan Every stop along the way You'll notice when they're saying things like The Equivalent of Mind the Gap
+
+[00:35:08] They'll have English But they'll have like six translations underneath it And then maybe five And then maybe two as you get closer into Manhattan So the amount of density of language speakers there is enough that they're altering enough for multiple translations they really should have mine the gap in 800 different languages shouldn't they yes yeah otherwise it's going to be accidents yeah well this is why we're losing this is why
+
+[00:35:29] we're losing another language has gone extinct because fell through the gap I read about a juggernaut in the world of linguistics and his passing he passed in early January very sad 14th of January this year and it was a man called Zhao Yiu-Gwang. His birth name was Jiao Ping. Not heard of him? He is the father of Pinyin, which is what's taken China into a whole new world of written language because it took the Chinese language and he applied romanization to it and so we can now use our alphabet to write Chinese words. And he only passed away this January. He was 111 years old. Wow. Yeah. He lived in New York. He lived in New York. He lived in York for a while. I'm trying to track down if it was Queens. I'm not sure, but it might have been
+
+[00:36:18] Queens. He met Albert Einstein there. And he became a sort of outspoken character later in his life. He wrote 10 books after turning 100, and most of which were banned because he was saying really controversial things about the Chinese government. And when they asked him, why are you doing this? He was like, they censor books. Yes. You can't write that. Yeah, and he was like, I'm over 100. What have I got to lose. I'm going to say what I'm going to say. Wow. But yeah, he absolutely transformed the Chinese language. When he did that, it was under Zhao Un-Lai,
+
+[00:36:51] who was underneath Chairman Mao. He was his number two or whatever. Mao hated it. Mao hated the idea that they were bringing westernization into China. So they banished him away, and he basically spent a lot of the cultural revolution working as a scarecrow. His job was literally to scarecrows away in the fields from all the fields. No way. Yes, it's a real curious. He was obsessed with
+
+[00:37:12] curiosity, obsessed with knowledge. Real QI fish kind of guy. Yeah. And he only passed away this year at 111 in one day. I like the Centinalese language. I think we've talked about the Centinalese people before who are a totally isolated a group of people who live in the Andaman and Nicobar Islands in India. And because they're isolated and they're so aggressive, so they really hate outsiders.
+
+[00:37:37] So whenever we've tried to penetrate their culture, then they attack us. Oh, so they know what we're like. They know what we're like, yeah, yeah. I don't know how they've got this information. All we're trying to do is penetrate their culture. Very unnecessarily violent word I use, wasn't it? Yeah, so we have no idea what their language is like. If you look up the language on the...
+
+[00:37:55] We only know the word for fuck off. Which is one word in their... Unless you say it softly. Please come in, they were actually saying, and we just liked it. So one of the things that could be related to is the Andamanese kind of language, which is spoken very nearby and that has all of its nouns that are based on body parts
+
+[00:38:17] so every noun is related to like what body part it resembles or what body part you touch it with or do you have examples? It has a, so I think let's say you're talking about a flaw then it would have a prefix which means like foot something
+
+[00:38:31] or maybe food would always be mouth something right. I think that makes a lot of sense. Oh no, oh look what you started. I do though. Don't you think? Most things around us are we use with bits of our body. I mean, my wife, we were talking the other night.
+
+[00:38:46] We realized we didn't know what, you know, with the batons, when you have the B-Day thing? Is it called Bidded? You mean the ass bowl? The B-day. So is it an ass bowl? Is that what it is? Well, it's an everything bowl, isn't it? I just didn't know it was for men.
+
+[00:38:58] I thought it's a region bowl. I mean, you're allowed to put whatever you want in it, but it is mostly for bums. Okay. Have you got one of these things? You didn't know what it was. No, no, no. We saw a picture of one of the line and we thought of those.
+
+[00:39:10] We started chatting about it. Evenings in with the Shriver's. I'm just trying to think of things that, like, for instance, a brick. What would you call that? What body part would that go with on? Hand. Hand. What about? It's called a brick.
+
+[00:39:27] Brick doesn't imply hand. But there are things that you can. Oh, I see. Right. You see what I mean. What about the sun? The sun. I.
+
+[00:39:33] I. Jesus. You see it from distance. Yeah. We all got that immediately as well. It must be something it doesn't work for. It's just the rest of the problem. What about a worm?
+
+[00:39:43] Ooh. Foot? Why? Why foot? Because you don't want to tread on it? Because it's on the ground? Yeah. Or it's got to be things they resemble as well.
+
+[00:39:49] Small intestine. Oh. Willy worm, yeah. What's that? Because it's also things that they resemble bodily. Bodily things they resemble. No, I think it needs a practical use. Because if you're mixing up the language there.
+
+[00:40:01] Mine's got a practical use. If I have a Bum B-Day and I heard Willy Worme, I'd assume that that's what I need to connect it with. Don't put you, Willie Worm with a Bumby Day, Dan. This is just, the language works, Dan. It's not your language. It's someone else's life. I'm saying it needs to be related to the bit you want it to touch.
+
+[00:40:17] So if I see a willy worm. But the thing is, your rules are not important to this language which already exist. They actually could not care less how you think their language should be spoken. Swarning into an Indian island telling them how to say things. This is why we didn't want people penetrating our culture. Okay, that's it. That is all of our facts. much for listening. If you'd like to get in contact with any of us about the things that we've
+
+[00:40:49] said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland, James, at Eggshaped, Andy, at Andrew Hunter M, and Shenzky. You can email podcast at qI.com. Yep, or you can go to our group account at QI podcast. We all use that as well. And you can also go to our website, no such thing as a fish.com, where we have all of our previous episodes. We're going to be back again next week with another episode of facts. We'll see you then. Goodbye.

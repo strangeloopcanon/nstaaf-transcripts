@@ -1,0 +1,375 @@
+# No Such Thing As A Fish - No Such Thing As A Forbidden Panettone
+
+- Episode date: November 27, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-forbidden-panettone
+- Slug: no-such-thing-as-a-forbidden-panettone
+
+## Transcript
+
+[00:00:02] Hi everyone, welcome to this week's episode of No Such Thing as a Fish where we were joined by someone who a lot of you will be very excited to hear. Yes, it's the return of Anne Miller. The comeback. Our colleague Anne joined us for this week's episode. It was so nice having her back on. She had a classic Anne fact, which you're about to hear. And it was just great. It was a really nice episode.
+
+[00:00:23] It was lovely to have her back. Does she have anything that we can plug at the top of the show this week? She does actually. She's got a book coming in, I think it's coming in a few months' time, but it's a very much. available to pre-order now, and it's called Monster Diaries. I think there are going to be a few of them. I hope so, anyway. And basically, it's kind of classical stories where there's often a monster.
+
+[00:00:42] Like Greek myths and stuff. Exactly, but from the monster's point of view. Oh, very clever. So the first one is about the Cyclops, but it's the Cyclops getting to tell his side of the story. And it's just, it's a lovely idea. They're beautifully illustrated. I've seen the drawings that have been going into them. So that is highly recommended, the Monster Diaries.
+
+[00:00:57] By Anne Miller. And indeed, if you go to the places where you buy books, you'll find all of Anne. other books she's written a whole lot of them. Yes, exactly. And one more thing to say before we start. Go on. Christmas is coming. The goose is getting fat.
+
+[00:01:11] Please, put a penny? In the old man's hat. Feels stingy. But you might be thinking about what to get your loved ones for Christmas. Yeah. And you might be thinking, oh, it's so hard to buy a physical object for people. I'm thinking what to buy my wife. Well, what she really loves to hear is my voice more and more.
+
+[00:01:30] She doesn't get nearly enough of it. Absolutely. Well, James, you should buy her access to club fish. Oh. Yeah. It's the members club that we have where you can get extra content. You can get ad-free episodes of fish. And you can get all sorts of stuff. And there are a few different tiers you can do up to the very top tier where we're going to be doing a quarterly quiz. The first of those is coming up soon. And it's going to be so much fun on Zoom with all of your members. So it's really fun. It's a great present to give someone because it's an experience. Absolutely. I'm going to get my wife one straight away. I'm going to send that sports car back. She'll be delighted.
+
+[00:02:08] Excellent. James, how do people find out more about this clubfish place? I would imagine you probably go to patreon.com forward slash knows such things of fish. I think you're right. You are right. That's where you go. Patreon.com slash know such things of fish. Go and check it out. It's so much fun. It will make a lovely present for anyone in your life who likes fish. Well, you know what? You deserve a present too. You sure do. Treat yourself. All right. Hang out said, isn't it? That's all we have to say.
+
+[00:02:32] Merry Christmas to come. On with the podcast. On with the show. Hello and welcome to another episode. A No Such Thing is a Fish, a weekly podcast coming to you from the QI offices in Hoburn. My name is Dan Schreiber. I am sitting here with Andrew Hunter Murray, James Harkin, and Anne Miller. And once again, we have gathered around the microphones with our four favorite facts from the last seven days.
+
+[00:03:10] And in no particular order, here we go. Starting with fact number one, and that is Anne. After you bake Panatoni, you have to hang them upside down like bats. It's so cute. I would say this is a vintage and mill effect and that it's interesting, but it's also quite sweet. Well, thank you. What a return. Yeah, what a return.
+
+[00:03:31] And Christmas is coming. Christmas is coming. So why? Why do you have to hang out? So I got very interested in a big deep dive about how you make traditional Panetone. And the result was, I became desperate to eat very high quality. How deep is the deep dive on Panetone? I'll send you the links, some great articles.
+
+[00:03:47] Basically, traditional panitone is wildly uncommercial to make. It's a lot of very expensive ingredients of butter and eggs and fruit. Actually, half the volume of panitone is butter on a proper one. That's why they taste so good. Yeah, I heard that. It's so great. All this just made me think I've never had a good panitone because I think of it as being a dry unpleasant.
+
+[00:04:08] So I did see someone saying that if you need to butter it, it's not a traditional one. It's also a really lengthy process. And at the end, after all this care you've made to your panatoni, If you don't flip it upside down really quick, possibly as quickly as 20 seconds, the dome will start to cave in. So the picture I found online, which I love, is this big wire rack with penitone's hanging upside down, which suggests if you were to examine, as I will do this Christmas, the bottom of your panatoni and you see little holes where the wires have gone through. So they're hanging upside down to cool. Or another method is you can pop it upside down in a wicker basket. And it's about like eight hours of upside down hanging for it to settle.
+
+[00:04:43] Well, that's what I read. I've never made a panatony. I wanted to until I read this. You've not done this despite the deeper. I decided it was going to take one man was 86 and has been working since he was a child. And I can't compete with that, Dan. It sounds so hard. It sounds so hard.
+
+[00:04:56] When you make some food or make anything in life, you don't have to compete with the person who is the absolute best at it. I want to sample this one, not have a very inferior one made by me. But you have picked the extreme end of Panetoni making in your example. It's like saying, I decided not to become a footballer because David Beckham exists. Well, exactly. I don't play football, Dan. Yeah. But she is a QI researcher and she's the best QI researchers.
+
+[00:05:19] Yeah, it says a lot about us. And was this Nicola Fiasconaro? I think so. So he is a Sicilian master baker. And the profile of him started out with saying, this is a man who has baked Panatone for not one, not two, but three different popes. That is clearly good.
+
+[00:05:41] But we've had quite a few popes recently. We've been through a run of them. Yeah, yeah. It's not impressive. And what killed them? We don't. One of them was interviewing this master pantoni maker, and they said, we rang the shop to make sure he would be there ahead of our visit.
+
+[00:05:55] And they said, he is always here. Right. But it's amazing. So they also have this special yeast. And in one bakery, they have been using the same locally sourced yeast since 1922, has to be fed with flour and water every four hours. What? Every four hours since 1920. I can see why you've now pulled out of getting involved.
+
+[00:06:15] That must be. That's very strong. Well, yeah, I mean, Italy's been through a lot of upheaval. Since 1920, like they've had fascism. They've had the war. How long has Italy actually existed? It's 1870s, I think. Yeah, so it's not much longer than that.
+
+[00:06:27] That yeast is almost as old as Italy. That's amazing. You, Andy, just mentioned that it possibly took out three popes. Yeah, I'd like to write back from that a bit. But what's interesting is it most likely hasn't because God is on the side of the Panetone. Great. Because. We're assuming that God is other.
+
+[00:06:45] side of those popes as well. Absolutely. They're not still here is all I'm saying. I think God is Italian. Yeah. God is Italian. Because the patron saint of choking and sore throats and so on is connected to Panetoni. San Biajor. This is an amazing character. St. Blaze. St. Blaze for yeah, for those who speak, non-Italian. Other languages are available. But yeah, I mean, interesting character. Born in Armenia, lived in the third and fourth centuries, and he got beatified and made into a saint because of miracles that were to do largely with saving people from choking. At least that was the main one. There was a kid that was choking on something, and he came, managed to take it out, and there was a miracle. He convinced
+
+[00:07:30] a wolf to return a stolen pig. That was another reason for him being beatified. Returned him to the house, but it was made of straw, so it had already been blown down. When you said Patriot's 8 of choking, I couldn't quite work out. It's more like the Patriot's of not choking. Sorethroats. Being saved from. He's also... Being saved from.
+
+[00:07:47] Just to say as well, he is a patron saint of wool comers. So woolcomers are people who comb sheep. And they use really, really long sort of like a head brush. But it's like got nails in it, these wool combs. But he's the patron saint of that. And the reason he's the patron saint of wallcomers is because before he was beheaded, he was beaten with wool combs. Oh, no.
+
+[00:08:09] All right. Just see. Yeah, they're off the patron saint of something that kills. them. Doesn't seem right. Doesn't seem right. It's not fair. I think Panetone might be a classic Harkin, singular plural. Oh, interesting. Panetone E with an I is the plural.
+
+[00:08:26] And Panetone with an E is the singular. Interesting. So should we all be saying, are we saying it wrong? Should we be saying, would you like some panetone? I would say, Panetonees does feel weird when you say it. But I don't usually eat more than two. Yeah, no, like stop at two. Stop at two.
+
+[00:08:43] They're half butter. Stop it. It's no plural because no one's ever had two penitone. It's mentioned in a book by a chef called friend of the podcast
+
+[00:08:52] Bartolomeo Shappi. Yeah. Spell Scappy. Was he friend of us for? He was friend of the podcast. He is the one who cooked for many popes and made incredible
+
+[00:09:03] elaborate dishes and banquets and then a new pope came in and said, no, I just want a boiled egg from now on. And so he kind of lost it. But he wrote one of the first big cookbooks. So it was mentioned, we think, in a book by him. But there are all
+
+[00:09:16] these kind of enriched breads, which are fruit and fruit peel and, you know, all of this stuff. So it's a bit murky where it truly originates. One of them is the Baba. I don't know if you know about Babbers. You get Babbers from Poland and other Slavic countries, but I think they probably came from Panatones and then they turn them into Babas. But the way that you make them is really regimented. It's almost like the Babur is a baby. So, are not allowed to enter the kitchen while they're being made. You have to whisper while you're cooking it in case it starts crying, I guess. That's lovely.
+
+[00:09:51] And also you have to leave it to rest on a piece of Ida down before putting it in the oven. Upside down or regular way? Regular way. The advice has changed since the 1960s. You used to have to put it upside down. But never put it in with the parents. Or do you always put it in with the parents? I can't remember.
+
+[00:10:08] Do you know what it means, Panatoni? I read one etymology that it was invented by a guy called Tony. I love that so much. I mean, it can't be true, right? I think it just means big bread. Because the Onei means big as a suffix. So it's Panet, obviously, an Onee. And I didn't know this.
+
+[00:10:25] You know, in Italian, Calzone. That is a big legging. What? Calza is a legging. What do you mean legging? Calzone. Like a legging. Like a legging.
+
+[00:10:36] A tight. Oh, like tights. Yeah, like a tight. Yeah. So calza is a legging. And calza is a legging. and calzone literally means trousers. So when you order a calzone, that's what you're ordering.
+
+[00:10:44] It's actually, it's a sleeve, basically. It's a sleeve for your legs, which is what I call my trousers. And it's, yeah, full of hot, like hot, wet meat, I suppose. Do you know where, like our legs? Do you know who the best Panetone makers in the world are? We said that it might be this Italian who's been doing it for 80 years, but not according to the world championships. Oh, there's Panetone World Championships.
+
+[00:11:07] There are, and they won in 2020. Which nationality do you think won the prize? If you guess it, I will give you 10 million pounds. Oh, are we allowed to cheat? I don't know. No, cheat. Let me qualify the cheating. I have a fact about Panatoni eaters, so I'm thinking it might be from that country.
+
+[00:11:23] Have a guess. Peru. Nope. Mongolia. Closer, but no. Mars. Lovely. She got it.
+
+[00:11:32] No, they're from Taiwan. They won it in 2025, and they won a load of gold medal. for the best chocolate one, the best general one, the best gelato, Panatoni. But an interesting rule in the Panatoni Championships is if you don't wear a hat, you lose a point. And actually, it's anyone in your team. If anyone from your team doesn't wear a hat, you lose points from your Panetoni. What's the reason? They just have a very specific uniform that you have to wear.
+
+[00:11:58] And the uniform has got very specific. It's black shoes, black trousers, a special jacket that you get given by the organizers, an apron and a hat. And if any of them you don't wear, you lose points. Interesting. I did read you have to use a proper Italian mother yeast. Oh, yeah. To enter. And you're not allowed any accoutrements, really.
+
+[00:12:16] You're allowed dried fruits, but you can't put like a kick-cat on top or something. But there is a chocolate round. Yeah, and again, they have very special things that you're allowed to part. So it's on skill rather than, like, creating new players. No kick-cats, no Milky Ways. Yeah, right. No crunchies. Sound rubbish.
+
+[00:12:31] Why do these fun competitions always sounds so intense, like you'd have a heart attack halfway through doing it? This is serious stuff. Also because you've eaten a panatoni that's half butter, probably in preparation. Like, your doctor will be checking that out. But I think they're very strict about it in places like Milan. So Milan, according to the Milanese Chamber of Commerce, I believe they ruled that a traditional panitone has to be 20% sultanas and dried fruit, which to me is insane.
+
+[00:12:56] That's insane. I always pick them out. Well, you're going to be doing it a long time if you buy a proper trad one, yeah. I don't even like a spotted dick with fruits in it. Really? Yeah. I hate those dried fruit. fruits. So you've not found a fruit cake?
+
+[00:13:10] No, absolutely not. I'd have to change my office bake now. Nightmare. In this piece about the Fiasconaro factory, they said they use manor as the sweetener. I don't know if you guys saw this. The food of the gods from their Old Testament. That's why it's expensive, because you have to go into the desert for 40 years, and eventually you get some of the... Well, it's this resin which you get from ash trees, and it's naturally quite sweet. And a journalist asked one of the Fiascanaro family, well, this is brilliant, but you've only reduced the sort of white sugar that you put it in. Why don't you just use manor? And she said,
+
+[00:13:43] we can't just use manner because manor has laxative properties. Which implies the existence of an experiment that went disastrously wrong. Would you like the forbidden Panetone? Do you reckon that's what happened to the popes? Unquestionably. Unquestionably. That's amazing. But another thing I didn't know about Panetone's. So The saint, Dan mentioned St. Villageau, St. Blaze. Because he saved this child from choking, there is a tradition that when you have your Christmas Panitone, you save a piece. And on February 3rd, St. Blais's Feast Day, you toast it because it will be st. Byajos, by that point, you are allowed to butter this one, and then you eat it, and that's meant to ward off sore throats for the
+
+[00:14:24] house. Yes. So I was reading more into San Biajillo, and there is this really fun thing, which is, I think I found what was one of the original Heimlich maneuvers from this period. So he was third to fourth century. This was being practiced in the same. sixth century, right? So what would happen is if a bone was stuck in your throat, if after initial attempts to get it out, sometimes they would say put a bit of bread in and so it would go down, it would be pushed down by the bread. I think that's still the advice, isn't it? Right, okay. It's what I do. You eat more when you're choking. Okay. Yeah. Okay. If you've got a little bone stuck, you just have a bit of bread, it just sort of envelops it and takes it all down. It plays it.
+
+[00:14:58] It plays a bit of the size of the bone. It does. It does. But no, that is, that is still. What happens if the bread gets stuck, then do you send, you know, Curly wellie down there. It's the middle-aged man who's wanted a bone. If anyone's choking while listening to this, please, please, please look up the NHS website. Don't take my advice. Yeah, yeah, absolutely.
+
+[00:15:18] But it's always worked for me. Well, here's what I'll be doing. So if you want to try some sixth century advice and the bone's not coming out, what you need to do, and this is a quote, is to go around and face the person who's choking and yell at them, come out bone, if you are a bone,
+
+[00:15:35] or whatever you are, come out like Lazarus. at the voice of Christ, come out of the tomb, and Jonah from the belly of the whale. And then that will get the bone out of your... Well, if it is a bone. If it is a bone. Yeah, yeah.
+
+[00:15:47] I mean, do ring NHS-1-1. I think is what we're trying to say. Imagine if you rang up NHS 1-1 and they just shouted down the phone. Come out, bone, if you are a bone. Stop the podcast. Stop the podcast. Hi, everyone. This episode is brought to you by Airbnb.
+
+[00:16:07] Yes, it certainly is. Now, James, I don't know about you. I've been away recently. You, where have you been? I went to the coast and it was lovely. Oh, the coast of the United Kingdom? None other. I would say, I don't mean to be jingoistic, my favourite coast.
+
+[00:16:22] It's the best coast in the world. I would say, good job, Dad's not here because he grew up in Australia. What coasts do they have? So, but I went away and at a lovely time. It was actually South Wales I went to, almost indistinguishable, I would say, from the beaches of Sydney. And I realised what I might have been able to do, was put my home up on Airbnb. Absolutely. And you know what?
+
+[00:16:45] If you've ever thought about doing this yourself, there is something we can tell you which makes things easier than ever. And that is you can get a co-host. Yes. You can hire a high-quality local co-host to take care of both your home and your guests while you're away and while your home is on Airbnb. Absolutely. They can create your listing. They can manage reservations. They can message guests. They can give on-site support. And they can help you with design and styling.
+
+[00:17:09] Exactly. It makes everything even. more convenient than it already is. So why not give it a go? A co-host can do the hosting for you and you can find a co-host at Airbnb.com.com.com. More like for you. That really, really, really good.
+
+[00:17:27] Okay, well, maybe not that good. On with the podcast. On with the show. Okay, it is time for fact number two and that is James. Okay, my fact this week is that those giant walking keyboards that Tom Hanks plays in Big have existed in India for 500 years. Whoa.
+
+[00:17:50] Brilliant. Very good. How did they find it? Oh, it's just there. It's in a big old temple. You can't miss it, really. You can't tell when you're watching the film that he's in a 500-year-old Indian temple. It's really interesting.
+
+[00:18:01] No, he looks like he's in the famous toy shop in New York, F.A.O. Schwartz, doesn't it? Yeah, but that's the magic of film, isn't it? It's green, screen. Yeah. No, so basically, these are musical temples in India, which I read about. And there's lots of them around, especially in South India. And they have various bits of architecture which make music. And the one in particular that I'm talking about is called Eiravatisvara Temple.
+
+[00:18:28] It's situated in Darasaram near Kumbakhanam in the Tangibor district of Tamil Nadu. Yeah, okay. I was lost until you mentioned the final location. Imagine, if you imagine India as a giant upside-down triangle. Yes. It's just up a bit and to the right a bit of the bottom angle of the triangle. I understand. Yeah, yeah.
+
+[00:18:50] May I say, Dan, you took those fences like a pro. That was just like, great. I have them very phonetically written out on my paper. But this temple, it has a staircase where every time you step on one of the steps, it makes a note and it makes a note of a scale. Which is effectively the same as that. If anyone doesn't know the 1988 eight film with Tom Hanks, he is a 13-year-old. old boy who turns into an adult and plays around in toy shops and one of them, the most iconic scene probably, he plays one of these giant floor pianos.
+
+[00:19:23] Yeah, absolutely brilliant. Yeah, that's right. If I was a monk in one of these temples, what I would do is I would climb up six of the steps and I would jump off somehow and that would irritate all the other monks in the temple because they'd be waiting for the final, you know, do do do do do do. Yeah. Oh, yes. Yeah.
+
+[00:19:36] Well, then you could go to the bottom. Da-da-da-da-da. Actually, that's not what it would sound. like because they are of the Carnatic musical scale. They're Suarez. So they're not normal sort of ABC, D-E-F-G notes. They are a double harmonic. So that's a scale with a D-flat and an A-flat for music nerds like Anne's husband.
+
+[00:20:04] So when you play it, if you play that scale, it sounds like you're in a 1980s movie and a snake's about to come out of a basket. Do you know that kind of eastern sound? One way to explain it is, you know in the song Bohemian Rhapsody by Queen, when they go, Scaramouche, Scaramu, can you do the Van Dango? That da-da-da-da-da-da-da-da is in that kind of scale. So that explains kind of what it would sound like. Did they use the steps to record that?
+
+[00:20:30] Or did they do it? You know what steps you're going to record on those steps? I mean, that would be a music video. Well, be hard to. I don't know if you've seen a video or a picture of these steps, but firstly, they're hard to get to because they're in a cage now. So there's this big cage that goes around them. John Cage, more like?
+
+[00:20:47] Go on. John Cage and steps together at last. Just getting all my modern references in there, you know? And yeah, it's an interesting staircase because it's not a classic staircase. The full length of the stairs are the height of a man. The video I watched is a man who's standing on the side of it. And it's quite fun because he's tapping the side and you can hear all these notes. But yeah, they're very thin in terms of you've got the staircase at some.
+
+[00:21:12] and the two barriers on the staircase, you'd almost have to walk single file with your feet one in front of the other in order to get up. But yeah, listening to it is fascinating. As you say, very odd scale because it's the seven notes of classical Indian music. They do have other musical temples across India, which I love. And so there are some which have musical pillars
+
+[00:21:33] which ring with different notes when he strike them. And there are, I think, some blowing pillars. basically like a big cot you just blow into the pillar and it makes it's like an organ pipe or a conch Michelle like a recorder
+
+[00:21:48] like a recorder yeah or trumpet or a we can all name woodwind instruments did you read about the temple in Japan where it's got 1,000 steps
+
+[00:22:00] and step number 27 is always wet and mossy and the other steps are fine and do we know why the legend is that somebody died there but the probably a spring and a natural spring
+
+[00:22:11] under the step, but they're all dry apart from one. 27 club moss. That is a tortured joke. That's the worst I've ever. Oh, no. I'm really. It's not even top 100. You have to go through about a thousand steps to get to that joke.
+
+[00:22:27] Beautiful, beautiful. There we go. Big. The big, the movie. The big piano. Yeah. It's a brilliant film. Oh, yeah.
+
+[00:22:36] I hadn't seen it for years and years and years. I watched it last night. Oh, lucky dog. It's so good. I think it's slightly problematic. But I think it's probably problematic at the time. I think there is a bit which people tend to gloss over the fact that it's a 13 year old boy who then has sex with a full grown woman, albeit in Tom Hanks's body. Oh, yeah, that is, that's an interesting psychological question. Is it definite or is it implied or is it? I know they don't show it because it's you. But it is a brilliant film, though. It's really good.
+
+[00:23:08] It is good. But the reason I think it might have been known to be problematic at the time is because there's an actor called Deborah Winger, and she was originally considered to be the main actress in this movie. She couldn't take the part because she was pregnant, but she knew the director. And she said to the director, why don't we switch the gender and have it as a girl who becomes big? And the director said, well, then you've got a teenage girl having sex with an adult man, albeit in your body. And they realized. that that was problematic. They didn't make that extra step that it was all problematic. But that was the 80s for you. It was the 80s. So it's got an amazing behind the scenes crew on it. So it was co-written by Anne Spielberg,
+
+[00:23:51] who is Stephen Spielberg's sister. And Stephen Spielberg was originally asked to direct it, wanted to direct it, but then he thought this will probably take away from my sister's role in it. She'll be shadowed by it. So it went to Penny Marshall, who's a brilliant director.
+
+[00:24:05] And that scene with the piano was because it existed. did in that shop you mentioned, F.A.O. Schwartz in America, and Spilberg was in there, saw it and immediately ran back saying, we've got to write this into it now. This is just going to be a game changer. I mean, what a weird insight to think that this is going to make the movie, which it kind of did in terms of its cultural footprint. Also weird that Anne Spielberg never did anything else. Did she?
+
+[00:24:32] She does one or two little things, but nothing you've heard of. I guess she was cancelled after the whole 13-year-old boy. No, no. Interestingly, about the 13-year-old boy, Tom Hanks really thought, how am I going to act like I'm a 13-year-old boy inside the body of an adult? And one story goes, quite a few stories of how it was filmed, one story suggests that the little boy who was actually playing the kid would do all the scenes, that Tom Hanks would watch the scenes with him doing it,
+
+[00:25:01] and then he would emulate what the boy was doing then in the scene, just to really get it. Something he did with Forrest Gump as well, emulated the character of the kid to create the role of Forrest Gump, the adult. I watched it, like I said, last night, and I had read that as well, and you can kind of see it. If that's true, you can kind of see it. Like, at one point, he sort of dismantles this toy, and he does it in exactly the same way a child would do, and you think either he's a brilliant actor or he copied a child. Or both, I guess.
+
+[00:25:28] Have you seen, so one of my favorite, like, Body Swap Films, is Jumanji, Welcome to the Jungle? Have you seen Jack Black playing a 14-year-old guy? It's so good. They're such solid films. That's so good. Friend of the podcast, Rees Darby in that one. Oh, yeah. No one swaps his body though, do they?
+
+[00:25:44] No. No, he's the Welcome to Jamunji character when they're arriving the game. I wouldn't want his mind in my body. Restabing. No, you can't give him coverage. Big was the fourth body swap movie released in eight months. Oh. Isn't that weird?
+
+[00:26:01] Is that original Freaky Friday time? It was, there were three. The three others that preceded it were called Like Father Like Son, Vice Versa, and 18 again. And just this was this huge ration of, like we think of it as one of the archetypal body swap movies, along with things like Freaky Friday and 13 going on 30. But it was just following this very long tradition. It's often what happens in Hollywood, isn't it? You're Armageddon and Deep Air Pact at the same time. Movies sort of arrive at the same thing.
+
+[00:26:28] Oh, yeah. When it's Anton Bug's life at the same time. Yeah, exactly. But I think vice versa is the original, there was a novel called vice versa, wasn't it? We might have mentioned out on this before. I think that's what it was based on. Just going back to the keyboard, they play a couple of different songs on there. One of them is chopsticks.
+
+[00:26:43] So you know chopsticks? You'd let one of the first things you learn as a kid. Ding ding ding ding ding ding ding ding ding. Yeah. Do you know who wrote chopsticks? Oh. It's the one you've never heard of. Oh.
+
+[00:26:55] Oh. Oh, I know this one. No, it was written by Mozart's sister. What? No. Yep. Mozart Allen, his sister. Mr. Euphonia, Alan, wrote that.
+
+[00:27:08] She's called euphonic. She's named after an instrument. Well, she's named after the Greek for Beautiful Voice. It's the euphonium, isn't it? Yeah, yeah. And he was named Mozart because their parents was really into music and what his kids could be really musical. Are you allowed to do?
+
+[00:27:22] I guess it's like getting in early with your, it's like calling your child tennis champion, isn't it? It's just kind of, know your colours to the mast early. Well, it was, we're talking 1870s, so it's quite a long time ago to be giving your kids wacky names. Yeah. I mean, I say that as a parent of someone with a relatively uncommon name, but he was like a famous dance choreographer. Decided he wanted his kids to get into music called his daughter Euphonia. She wrote chopsticks.
+
+[00:27:48] Called his son Mozart and he went into music production. Right. So yeah. Does she, is it like happy birthday where she's still, it's in copyright? It will be out, I guess, by now. But she must have. It's well out of copyright. She wrote it when she was like 15 or something. Right. Do any of you recognize the name Rimo Seraccini? Not the way you say it. I've got it written down in my notes. Rimo Saraceni. Ramos Saraceni? Yeah.
+
+[00:28:19] Maybe Saraceni. It could be anything who even knows. But he was the inventor of that great piano that we see in big. Amazing character. He was born in 1935 in Italy. He was an inventor ever since a child. He had a really interesting moment where he made a cut. height from a poster of Mussolini when he was a kid,
+
+[00:28:36] which resulted in a visit from the secret police. You can't string up Mussolini like that? We'll see. Yeah, they gave him an official warning about anti-fascist activity. I apologize, I knew. The people at home couldn't see my nod of approval that I gave to that joke. And it's not fair, because we take the piss when you do bad ones. Yeah, it's true.
+
+[00:28:57] Yeah, I can't wait. There's no winning. I'll keep doing. Yeah. Yeah, no, amazing inventor. He made this piano. lots of different gadgets. He made this incredible one, which was a stethoscope
+
+[00:29:07] stereo system, so basically you could dance to the rhythm of your own heartbeat. A lot of inventions were to do with touch, body, and voice. Problem. Yeah. Okay. You put in the stethoscope to your heartbeat, you're dancing, you get a bit more energetic because you're dancing, your heartbeat gets faster,
+
+[00:29:24] you dance faster, you get more energetic, your heart gets faster still. What does it, Ed? This thing has killed two popes. Not a little known fact. But, Dan, did you say his origin as a working where he was between 1965 and 69. No, I didn't. He was a rocket scientist. He was working for NASA,
+
+[00:29:40] working on the reentry systems, their electronics. He's really a proper, you know, really skilled engineer. And he has invented some musical stairs as well, just to bring us back to the temple. So yeah, cool guy. Have you guys tried the singing lift at the South Bank Center? No. I have.
+
+[00:29:56] It's so great. It's awesome. It sings, though. But what do you do in order to... Oh, you just choose your floor. Yeah. And then it goes up, it will sing to you like, level three.
+
+[00:30:06] It's so great. So it's done by Martin Creed who won the Turner Prize and it follows the scale and then it sings your floor to you so next time you're there. What happens if the lift gets stuck? Does it have to sustain the note?
+
+[00:30:18] I don't have to take a breath. I haven't been stuck in it so I can't personally say. You just hear it go ah. Oh God! Oh God! Okay, it is time for fact number three and that is my fact. My fact this week is
+
+[00:30:36] that three months after Alex Honnold became the first person ever to free solo climb El Capitan, his mum became the oldest woman to ever climb it. Stunning. That's amazing. Yeah. Such a cool family. Yeah, so this is Alex Honnold. This was an Oscar-winning documentary made with National Geographic.
+
+[00:30:56] The New York Times called what he did one of the greatest athletic feats of any kind ever. He free climbed, which means no ropes. It's just his hands, his feet, climbing up a 2009. 100 foot route of a mountain face. No one had ever done it before. No one has done it since, and this was in 2017. Three months later, his mum, not doing a free solo climb, but you can also climb El Capitan via the actual route which goes through.
+
+[00:31:23] Exactly. Made it up herself three months later. Amazing. Becoming the oldest person, yeah. She's called Deirdre. She is. She's incredible. Dirdre Vlovnik.
+
+[00:31:33] Volvnich. She's called Deirdre. She's stunning She did the lurking fear route To get to the top Because all these routes have different weird names Reassuring names I think you're the first to climb
+
+[00:31:44] You get to name Yeah reassuring exactly And has anyone seen the film? No Seen the trailer It's unbelievably exciting And you sort of know that he doesn't die Because they released the film
+
+[00:31:56] Yeah Can I ask a question? Yeah Are we certain That there wasn't some body swap Between Deirdrie and Alex And that he climbed up it in her body. That's a great premise for a film. He was there to help her climb up it, I think,
+
+[00:32:12] when she did. So that would have to be her in his body. I feel like we're focusing on the wrong day of this extraordinary story. It's an amazing climb. It's an amazing climb. El Capitan is this huge. It's like a sheer face of granite. I've been there. Have you? Yeah, yeah. Did you see a did you free climb or did you take the lurching fear route? Did he start? No, I was a good few meters away from the base and just far enough back that I could see the whole thing. Right. It's like it's terrifying. It is absolutely terrifying.
+
+[00:32:40] And even the route that she took is very hard. Now what's extraordinary is she did this at age 66, but she only started to learn climbing age 60. She taught herself to swim at age 40. So this is someone who is quite a late bloomer in general sporting. And and then she went on to break the record again, breaking her own record, age 70, climbed at a second time, age 70. And she did it with a foot in.
+
+[00:33:02] injury as well. The whole family is nuts. Absolutely nuts. She's a really impressive woman. She's run marathons. She's conducted orchestras. She's been a publisher, you know, professor of five languages. And when they climbed El Capitan together the first time, he said, okay, well, we'll do it.
+
+[00:33:17] You know, we'll just go up and down. So they took about 19 hours. He said, that's a reasonable time. He did not tell her, normally people take four days to do this. So he said, right, come on, Mom. Let's just. Yeah, we've got a day. Yeah, they're absolutely bananas.
+
+[00:33:30] It's amazing. She says that when he was a child, he was climbing on kitchen appliances before he turned two. So she knew he was going to become a climber. But I would say that's pretty much old kits. Yeah, that's true. It's just like climbing on stuff, right? It's a pretty amazing story. And I don't know how much Andy this is shown in the documentary, but he basically had climbed up this route multiple times before, but with ropes.
+
+[00:33:55] So this was the first time he was trying it on his own. And he memorized the entire route. He knew exactly where his hand was going at every single point as he was going up. And once he finished it, you would think probably, okay, let's step away now. Let's go home and thank our lucky stars that nothing bad happened. What did he do? Well, because it was a documentary and they needed extra shots, he spent five more days recliming certain sections of it so that they could get better drone shots of it.
+
+[00:34:22] The pickups. He did pickups on El Capistan. Can I just say he does wear sticky shoes? What? How sticky? Well, it's a special kind of sticky rubber that helps you, especially if you can't really get much of a grip with your fingers. Because you're basically on with your fingernails. It just means that you're not going to, he's not wearing brogues.
+
+[00:34:42] He's not worried. He didn't even do it in Brog. He wasn't even a record of talk. In my head, he was like, do you know, Batman from the old 70s shows where he just walks sideways up a wall? It just goes horizontal, yeah, just walks up it, yeah. No, you see him in the film. He makes all these notes because you have to study the routes so much. say like this this is good if you've got two fingers and you just need to hold your weight on two
+
+[00:35:05] fingers while you get your foot across here. So it's incredibly detailed the mapping out. And it's, it's, um, you might leave a chalk mark to say like put hand here. It's absolutely terrifying. And you often, he like, he ends up hanging by one or two fingers above this, this absolutely insane drop. I listened to a, I listened to an interview with him recently, because he was talking about his attitude to risk. And he says, I actually don't think I am a high risk person. He says, I am a low risk person in lots of ways. The individual climbing moves I make are very, they're low risk, but they are high consequence. Yeah, I see.
+
+[00:35:45] He doesn't seem to feel fit. No. It's like doing Russian roulette with a thousand chambers and one bullet. Like, you're probably not going to shoot yourself, but the one in a thousand chance of you losing, that's it. It's all over. Yeah. Yeah, yeah. He kind of said that actually the most worrying thing when he does these climbs is not the climb itself,
+
+[00:36:02] but it's all the extra things going on around him. So while he was climbing El Capitan, there was someone at the top doing a tightrope walk. And so there were people yelling to the person doing the tightrope walk. And he's like, that's really distracting. He says the drones that were coming up to him and filming him sounded like he was being attacked by wasps. And he was also going, what if they lose control of it? And this blade just comes in, you know, he's a big drone. So for him it was all the extra stuff that was quite worrying about the climb.
+
+[00:36:27] Oh and I love that he listens to music while he's doing it Do you know who listens to? No. Can we guess? Oh, it's a genre. Is it fall in by Alicia Keys? That's banned. It's just...
+
+[00:36:39] Rock. Rock. Ah. Because he's cool. It's very cool. His fingers, you see a lot of them in the film, they're just like sausages. They're amazing. They're very, very strong.
+
+[00:36:50] Right. Not exactly like sausages. I don't think of sausages as strong. Well, you don't go to the restaurant's like I go to. But like, I would. I would thought you might need quite thin fingers like to get into the crevices. He does not have the slim fingers of piano player.
+
+[00:37:05] He's got powerful fingers that you can dangle from half an hour at a time. He said the whole man above him. Yeah. He said the thing he's scared of more was giving a TED talk about his climb than actually doing the climb himself. I had a look for some other parent
+
+[00:37:20] and child record breakers. Oh, really. I really enjoyed Cheryl and Nikki Bart to Australian mother and daughter. First mother-in-dotted to climb Everest together in 2008. and being Australian, they trained by dragging weights up and down Bondi Beach to replicate sled and stringing ladders across swimming pools and up trees. Wow.
+
+[00:37:35] And then they went under loads of other peaks. There's just seen some families how really you have like adrenaline and stuff in their build. I also found the record for the father and son marathon runners. And their combined time is pretty respectable for a single person, just under five hours, which is not bad. And the dad was three minutes faster than his son. So did they, they didn't run it together together? They ran at the same time.
+
+[00:37:57] At the same time. So son in 2 hours 31, that 2 hours 27. Right. Lovely. This thing about Alex Honnold, like supposedly he has something to do with his amygdala and his brain. Did you guys read that? No. So his amygdala, which is the part of your brain, which when you see something scary,
+
+[00:38:17] it's what makes you run away or makes you fight. Apparently, when he sees disturbing images, his amygdala doesn't fire as much as normal people. And that might be the reason why he's perfectly willing to do these incredibly stupid things. I mean, even though he does have sticky shoes, I don't think I would be. Sticky shoes, I can't believe. James is knocking down the achievement. Stop trying to hark into this, James. I believe that was part of the documentary.
+
+[00:38:44] I don't know if you remember that scene, Andy, but he goes into an MRI and they show him scary images and it doesn't register. Yeah. He's living in his van for the whole thing. It's really interesting. We don't really know what happens when humans amygical. stops working. They've done in the 30s, they did some experiments on monkeys, and they removed the amygdala, and the monkey started approaching snakes and, like, batting them around, like sticks and playing with them. And we do have one patient called patient SM, who had a condition
+
+[00:39:13] called lipoid protenosis, where there were holes in her amygdala. And she was, like, relatively normal, but they did find that on one instance, she walked through a park alone at night, was attacked by a man with a knife and then the following day walked again through the same park. Wow. Because her, it made the law wasn't working. Right. He seems very normal when you hear him talk, though. He's a young dad. He's got two young kids. He, so I saw it, I listened to an interview because he's got his own podcast now since the last few years. He interviews Mountaineers. Oh my God, let's get him on fish. Yeah. Wouldn't it be wonderful? He's a great speaker, very funny. He was being interviewed by David Lederman and David Letterman and David Letterman was saying, would you ever consider
+
+[00:39:53] stopping this now because you're a father and he's like, no, because to me it's calculated risk. Can we get him on when I'm not here because I don't want him to like, I was joking about the sticking shoes. Is it true? You also use chalk on your fingers because that's, yeah. There's another mountain that he free-solu'd, which is called Zion's Moonlight Buttrus. And it's a 1,200 foot mountain. And when he did it, no one believed him for a few days after. Even though this is, you know, half the size of El Capitan. And do you know why no one believed him? Because he's a big old liar.
+
+[00:40:28] Okay. James, give us your holiday dates and we'll make sure Alex can do it. It was because he ascended it on April the 1st. And no one thought that it was real. And for days afterwards, yeah, they were convinced it was a prank. Can I give you some climbing lingo and see if you can guess what I mean? Yes, please. Chicken wing.
+
+[00:40:49] And your arms are too far back? That's nice. I'm thinking like bingo wings, which is a phrase for your arms, if they're a bit out of shape. Is it that your arms are juttering because you're so tired? Okay, good guess, no. It's a jamming technique where you bend your arm,
+
+[00:41:05] insert your arm into a crack elbow first, and then that sort of jams you so you can climb up the wall. They are insane these people. They are absolutely insane. Apindex. Oh, I know this one. Oh, yeah. That's if your span of your arm.
+
+[00:41:19] arms is longer than you are tall, isn't it? Well, it is the ratio of your arms to your height. Yeah. So if you have a high ape index, then you would be as you. Yeah, I've mentioned mine, I've got a positive ape index. Have you? My fingertip to finger tip is more than my height. Really?
+
+[00:41:34] Yeah. I'm that's useful for some climbers. Oh, good. There you go, Andy. Correct. And flapper. It's if you climb, but you climb using an elaborate feather bower and a string of pearls as you're in the 20s.
+
+[00:41:49] In the 20s, yeah. It's not that. It is when a large chunk of skin is ripped off your body, usually during a dynamic move. A dynamic move. These people are crazy. Dynamic move. Sliding.
+
+[00:42:00] Yeah, yeah, exactly. You do get ripped up, don't you? He wore long trousers and a t-shirt, but a lot of people might go topless or they might go. Wassamless? Winnie the Pooh when he's trying to get that honey. That's a great remake. I'd love to watch.
+
+[00:42:16] Can I give you some root names? Yes. Because if you climb a route first, you often get to name it. And there are different rules in different bits of the world about all of that. Like some of them are a bit more stodgy and official. But there's The Excellent Adventure. It's a nice Bill and Ted reference. Too big to flail.
+
+[00:42:32] Very good. One blunder and it's six feet under. Scar Trek, the next laceration. I like these names. They're very good. But no one else does. No, no, no. They're wonderful because they're the fun way of saying,
+
+[00:42:45] you're probably going to die. Yeah. But let's all have a lot. Yeah. Before you do. It feels to me like they're adding jeopardy to something that doesn't need it in the first place. Maybe.
+
+[00:42:56] You know, this thing is obviously very big and scary to climb. You don't have to call it L. Shit yourself. Yes. Okay, well, have a guess.
+
+[00:43:04] See if you can guess what's special about the widow's tears route. There's a specific clue in that name, Widows tears. Only men are allowed to climb it? No. It sounds like lots of people have died on there and then their wives are upset. I don't think they have. Do you want to have a guess?
+
+[00:43:17] No stream? She's got it. It's an ice climb. It only exists when a 300-meter waterfall freezes. Wow. I know. Yeah, I really admire the mindset to be like, I will climb that frozen waterfall.
+
+[00:43:30] Yeah. It's not skills I have myself. Much like making Panitone. I just... Okay, it is time for our final fact of the show, and that is Andy. My fact is, when the post office had a competition
+
+[00:43:47] to name the post office's new tower, staff suggestions included Prince Philip's finger, the eye full tower, monstrosity and spud. The name eventually chosen was the post office tower. Brilliant.
+
+[00:44:01] Love it. Was the post office tower one that someone sent in, do you know? No, I think it was just internally like the post office of its gesture because this was a staff competition. But there was a £10 prize. So who got the £10 price?
+
+[00:44:16] Do you know, it probably just went, was plowed back into the system, I suppose. I should say where I got this fact. This is really, exciting trip I got to do recently. I got to go to the BT Archive, which is on Hoban. It's not far from the office, and it's a stunning place. I just want to give a shout out to
+
+[00:44:31] the very kind curators there who showed me around. It was amazing. And they showed me the handwritten list of the finalist entries from this competition. Wow. Cool. And for international listeners, the post office tower is this massive great tower in West London, and it was the
+
+[00:44:47] tallest building in Britain for ages, and it's all for phone calls and TV channels and communications and all of that. And it's got this really interesting history and they had this competition to name it and yeah if you if you've ever been to london it's that very odd looking like a big staff like it's not a building it's not very wide it's a very skinny and and it's a very iconic thing in london you will have seen it when i was a kid it was a tallest building in london was it right i think or it had just stopped being but if you bought a Guinness book of records an old one from a charity shop it would say that it was a tallest
+
+[00:45:20] building. Right. And it's just turned 60 this year. So yeah, big anniversary. And that's very cool, Andy. You got to see that list. That was awesome. Did you tell you about the cafe? Because I'm obsessed with the cafe at the top. They had a rotating cafe at the top. It's crazy. And I'm so sad, you can't go and visit that because I also didn't realize, I assumed the whole thing rotated, but I read
+
+[00:45:38] that if the waiters didn't, like, if your table would like go past and it'd like run after you or wait for you to come back like with your next course, if they got the timings wrong. Really? Yeah. It took 23 minutes to go around. But the central bit, obviously, doesn't, can't all rotate. I assumed it all did. Yeah. Well, so your table would go like, I've been to a few of those and they do all rotate.
+
+[00:45:57] Do they? Yeah. As in the system in the middle that's turning stuff around is enclosed. Right. No, here there is the kitchens and the waiters bit, as you say, Anne, is stationary and the waiter has to carefully step onto the moving bit.
+
+[00:46:13] Yeah, we don't really get rotating restaurants anymore. Like, there are very 60s and 70s thing to build. I Yeah, they are. There was one in Liverpool. I don't know if it's still that. I don't think it rotates anymore. Okay.
+
+[00:46:24] Yeah, there was one in Hong Kong I used to go to growing up. Maybe one in Vienna as well. It's not an idea of freak for the view. Yeah, it's a wonderful idea. Mentioning the restaurant is really interesting because you would expect as the post office tower, which had a genuine reason to exist. It was helping with communication throughout Britain. It was this beacon of communication.
+
+[00:46:41] But very randomly, they did open a restaurant up that was available to the public and which was run by Butlins. Yeah, the guy around the buttlands. Yeah, so weird. And it feels like this was the original London Eye. Because everything was sort of designed to have a tourist spot. A tourist spot. You know, you went in the elevator, which was the fastest in Britain, supposedly at the time. You would go up.
+
+[00:47:02] The ushers who would put you in there were termed space flight conductors. You know, when you go to London Eye, it's pretty similar wordage when it was run by BA, you know, that they would use. And yeah, about 50,000 people visited it in the first few weeks alone and one and a half million in the first year. And one of the people who went there was the Queen, Queen Elizabeth the second, who went for dinner with Billy Butler. Really? Should we say why it was set up? Absolutely. Yeah.
+
+[00:47:28] So I didn't know this really. But basically there was this big need for more broadcasting capacity. And they had two options. They could either do it with underground cables, which would be a lot neater, but would have a lot more mess putting them in. Because you basically have to dig up the route into central London or loads of routes into central London. Or, like, huge pain to do. Or you just use a radio tower that's so. tall that the beams don't get interrupted by existing buildings. So they literally just had to build
+
+[00:47:53] something higher than they used microwave radio channels. That was the big thing. So let people make phone calls, did it? It was phone calls and TV channels. So it could handle 150,000 phone calls simultaneously and 40 TV channels. So it was a big improvement on the previous system. And it was covered in these big things called microwave horns. There's these huge triangular blocks and basically just to absorb and soak up microwave signals. It just is just, it just It's such a cool thing. Yeah. Love it.
+
+[00:48:21] And it was designed by a guy called Eric Bedford, who was the chief architect of the Ministry of Public Buildings and Works. And he made it, he said, to be sort of nuclear proof, which kind of got a little test when a bomb went off in the bathroom of the restaurant, which is the reason it's no longer open to the public. Wasn't a nuclear bomb, we should say. We should add that. Yep. That's a good detail to add. Absolutely. Yeah.
+
+[00:48:44] It was a regular bomb. No one died. But the explosion was loud enough and big enough that cars and buildings around it had their windows go in. And it was the IRA. What did it? Apparently. You were the Angry Brigade. Well, I think we think it was the IRA because it had all the hallmarks of an IRA attack.
+
+[00:49:02] And the IRA also said that they did it. But then there was also this group called the Angry Brigade who was like a left wing anarchist group. They also said they did it. But I think the general consensus is that the angry people sort of jumped on the chance of. claiming it for themselves. It's much easier, isn't it, to claim you've committed a big, you know, attack than to actually go through all the hassle of planning and conducting it? Yeah.
+
+[00:49:26] You are reliance on other people to do the work for you. Yeah, it's not a reliable gig. Is this why it was an official secret for so long, like where it actually was? Because that's also... Would that explain that more? Because that's so fascinating. You can't miss this tower. Yeah.
+
+[00:49:41] It's in central London. It's towering above everything else, yet it didn't officially exist. Yeah, I've seen... Andy, maybe you saw it your trip. I see it debunked a bit that you'll say you couldn't put it on an ordnance survey map, but you could. But I think you weren't just you weren't supposed to say where it was, but it was really, really big. You could see it from everywhere. It was on some ordnance survey maps, but not all of them. It's really weird. Yeah. And there was this theory or there's this long held thing that you couldn't take a photo of it legally or you'd be
+
+[00:50:06] arrested if you took a photo of one of the biggest landmarks in literally the tallest thing in the country. I think what is true is if you took a photo of it and gave it to an enemy of Britain, you could get done for it. Oh yeah, I think that's fair. And that's true of anything that's used for communications in the UK. Any building that makes stuff for the Navy, there's a whole load of list of things
+
+[00:50:27] that you're just not allowed to take photos of it and give it to Russia. Are they like blurred on Google Maps then? I remember when I went to Dartmoor years ago, this is in the Ordinance of Re Maps. It's a big block in the middle and just say, don't ask. Yeah, yeah, yeah. But literally the post office had issued stamps of this thing.
+
+[00:50:42] When it was built, I mean, it was definitely, yeah, It was put up there. It was, I think, part of a communications network that was kind of a Cold War thing, which was why Bedford had supposedly designed it to be nuclear bomb-proof. I mean, it's clearly not nuclear bomb-proof, depending on how close the bomb goes off. But whatever. But in the event of a nuclear war, I think it would have been part of the backbone system to provide secure communications.
+
+[00:51:04] I don't think it's needed anymore now. So you can, if you'd like take a photo and hand it to Britain's enemies. I like Dan's... Don't, don't do that. I mean, don't, you know. But I like Dan's idea. If they had sold it as, like, more as... as the London Eye, because maybe the London Eye's got a purpose we don't know about.
+
+[00:51:19] Oh, 100%. Really? That's such a good point. Yeah, obviously. 100p. Obviously. Really? They sold 1,000 plastic towers when they first opened in the gift shop in the first few weeks.
+
+[00:51:29] Oh, that's just so cool. Yeah, it makes sense. But if you're going to hide it in plain sight, you have to give it another purpose. All of those will have made their way to Moscow for further study, I presume. It's a secret, but we are selling skill models in the gift shop. They'll have had teams of tiny, tiny, tiny, tiny spies looking at those in detail. It appears that the post office tower was made in Taiwan. The London Eye clearly is designed to come off the central spoke and roll.
+
+[00:51:53] Yeah, it's a giant unicycle. Yeah, it's to get like all the most important people in London out. Oh, so they each get in a pod, you dismantle it, it rolls out, and then it just rolls. Down the Thames. Into the sea, yeah, exactly. It's obvious, really. It's obvious. The final piece of cement on the post office tower was laid by Jeffrey Rippen MP.
+
+[00:52:15] At the top or at the bottom. At the top. I would say unknown to the pod. Unknown to the pub, he's never been on. He was our chief negotiator to the EEC in the 1970s. So you say, ow, you mean Britain's not. We didn't. Fish did not negotiate with the EEC.
+
+[00:52:29] We haven't been going to that long. We haven't. And the one thing I read about him from his obituary is he had an enduring dislike of the Dutch. Oh. That's in the obituary. God, that's really got to be enduring. if it's in the obituary. It's amazing.
+
+[00:52:46] So he was negotiating and everyone had told him that the Dutch loved the British and Charles de Gaulle said, yeah, the Dutch were always on the British side. But then when they did negotiate him, the Dutch were actually quite against the British and he really took that to his grave.
+
+[00:52:59] He really hated the Dutch. Wow. It's just so random. Gosh. Apologies to our Dutch listeners. Secret buildings, just as the Post Office Tower is this big secret thing. And Anne, I know you're very much into your espionage.
+
+[00:53:11] Not to say too much Not to give too much away But you've had to come from across the river To make the recording And does not show up on any photos Any mats She's just blurred For listeners Andy was touching his nose
+
+[00:53:29] Suggestably throughout the last two minutes I think that can be heard I think it can be literally heard So Vauxhall Cross Which is the building The very famous head of the Secret Intelligence Service. The one that's on the South Bank of the Thames.
+
+[00:53:44] On the South Bank of the Thames. You see it in James Bond. It's in James Bond. A bit of it gets blown up in that film. One of the Daniel Craig ones. It's a terrific building. It looks really strange. It looks quite striking.
+
+[00:53:58] But I really like this. So basically, there were some clues that it was going to be a secret building because the government bought the site outright for 135 million quid. Normally they would pay in chunks and there would be total accountability and transparency at every stage. And the government just said, no, we're going to buy this for 130 million quid.
+
+[00:54:16] Right. No questions. Go away, please. Yeah, exactly. But the architect was a guy called Terry Farrell and he just died. He did loads of stuff. He also did the HQ for ITV's TV AM. So he's done some big gigs in his time.
+
+[00:54:28] Wait, so they built the building not purpose built and they just said, we'll have this. This is the crazy thing. Yeah. He was basically instructed to build a standard office block, which then was going to get some modifications like it can roll down the tens. You can roll down the tens and the ones. Yeah, yeah, exactly.
+
+[00:54:45] The London Eye will pull at the MI6, pick everyone up. That's pod 12. No, but he didn't know who he was working for really. He knew he was making a government department and he guessed it was going to be the department of the environment, which is why, if you look closely
+
+[00:55:00] which you're not allowed to do, there are lots of fir tree designs halfway up the facade of it. Because he thought it was going to be the environment ministry. How presumptuous. I've been to the bottom, to the outside of that building. And it's quite fun when you look for a Wi-Fi. It says things like MI6 surveillance van.
+
+[00:55:18] And it's obviously local people who live in the area who just name their things. Is it? Double bluff. It's a perfect double bluff. That's true. That's true. But you try and connect to the Wi-Fi, Dan. I did.
+
+[00:55:28] God. MI6 are going to be absolutely all over you, Ben. Can I see my favorite recent public name suggestion story that I found? Yeah. You know how every year, so in the UK, there's issues every year with leaves on the track when the trains can't run. So network rail to combat this, have these special trains, and they've got really high pressure water jets. Like, blast off, keep them clean, keep everything running. They held a list of public suggestions for to name the new special leaf fighting train.
+
+[00:55:54] Okay. Do you guys want to guess what it could be called? I genuinely love the name that won. I think it's so. I'll tell you some contenders to get you started. Oh, yeah, yeah. So contenders who did not win. Brittany clears.
+
+[00:56:03] Oh, that's good. Leafball weapon. Yeah, I like it. Itsy Bitsy Yellow Anti-Leaf machinery. That was my one I was going to suggest. It was massive, so that one did not waste. Leaf us alone. Yeah, pretty good.
+
+[00:56:17] Leif Erikson. Who's that? Neeshire. Scandinavian Explorer. Why didn't that win? That's crazy. James missed the deadline to send it in. Yeah, by 800 years.
+
+[00:56:31] Furious. Leithenskirah. I mean, for the podcast, it works. Chlorophyll your boots. Go on Leaves contain chlorophyll Fill your boots is a phrase
+
+[00:56:41] Yeah They went with Control alt delief That's very good That's what they went with Yeah It's good That's good
+
+[00:56:48] Fairness Yeah And you're not in Reluctance It's so good It's so good It's a bit better Than chlorophyll your boots
+
+[00:56:57] Yeah Okay That's it That is all of our facts Thank you so much For listening If you'd like To get in contact
+
+[00:57:08] With any of us about the things that we have said. We are all online. I'm on Instagram on at Shreiberland, Andy. Insta at Andrew Hunteram. And James. My Instagram is no six things James Harkin. And Anne.
+
+[00:57:20] And my Insta is Anne Miller Books. Nice. And you can get to us all as well if you want to via podcast at QI.com. Why not send us some questions, send us some interesting facts. Andy goes through all of these emails. He cherry picks the best of them. And they make their way to our special secret bonus episode called Drop Us a Line, which is part of Clubfish.
+
+[00:57:42] If you're not a Clubfish member, can I recommend checking it out? We have lots of tiers on Patreon. There's so many fun things that we're going to be doing with it. Do check it out. It's really fun. You can do that by going to know such thing as a fish.com. You'll find all of our previous episodes up there as well. Otherwise, just come back next week because we're going to be back here with another episode. We will see you then.
+
+[00:58:00] Goodbye.

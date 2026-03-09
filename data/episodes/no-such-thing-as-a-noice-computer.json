@@ -1,0 +1,812 @@
+{
+  "slug": "no-such-thing-as-a-noice-computer",
+  "title": "No Such Thing As A Fish - No Such Thing As A Noice Computer",
+  "url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-noice-computer",
+  "episode_date": "February 22, 2024",
+  "episode_date_iso": "2024-02-22",
+  "segment_count": 200,
+  "word_count": 12741,
+  "segments": [
+    {
+      "timestamp": "00:00:00",
+      "text": "Hey everyone, welcome to this week's episode of Fish. Before we get going, I just want to let you know we have a very exciting comedian joining us on the show today. So Anna's away for this ep. But in her place, we are joined by the brilliant Olga Koch. Olga is the perfect fish guest. Not only is she incredibly funny, but she's also an absolute thunder dork. She studied computer sciences. She speaks three different languages. She has a very confused and unplaceable accent like I do. And she is absolutely blitzing the comedy scene at the moment. You will have a seen her, no doubt, on shows like Live at the Apollo, she's done pointless celebrities, and of course, she's been on QI. But the best place, the absolutely best place to see Olga, is live in person at one of her stand-up shows, and she is currently on tour with her new show, which is called Prawn Cocktail. She's traveling the UK, and then, for any Aussie listeners out there, she's heading down under. So, Ozzie's go and see her. She's absolutely brilliant live. And if you want to get a taste of what a full show by Olga is like, she's actually got a few specials up online. So if you go to YouTube, you're going to be able to see her 2020 show Just Friends."
+    },
+    {
+      "timestamp": "00:01:03",
+      "text": "The full show is there. Check it out. And then on Amazon Prime, she has another special called Homecoming. Go to her website generally. Rock and Rollga.com has a list of all the things that she's done from podcast to other bits and pieces. But for now, here she is on No Such Thing as a Fish. On with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hobern."
+    },
+    {
+      "timestamp": "00:01:42",
+      "text": "My name is Dan Schreiber. I'm sitting here with Andrew Hunter Murray, James Harkin, and Olga Koch. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, and that is Olga. The world's best prom cocktail eater practices his technique with budget meatballs. Wow. I would say that a prawn is different to a meatball, different enough that I wouldn't think it was useful for... My training montage."
+    },
+    {
+      "timestamp": "00:02:14",
+      "text": "I accept what you've just said, and I challenge you to a better replacement to a prong. A better budget replacement to a prong. Can I give you a better replacement to a prong? Please. There was a guy called Stefan Gates who wrote a book about eating insects, and he said if you don't have any prawns, let's say you don't live near the sea, then wood louse is a good replacement. It will taste about the same."
+    },
+    {
+      "timestamp": "00:02:37",
+      "text": "And budget too. Very much all over the garden. Yeah, yeah. Exactly. Okay. I don't think I can even. Picture of woodluck. Is that a caterpillar?"
+    },
+    {
+      "timestamp": "00:02:44",
+      "text": "It's like a pill bug? No. I want, no. I regret having a... So, insect armadillo. So they're a little gray guys. Okay. So then if you deshell it, it is still soft on the inside."
+    },
+    {
+      "timestamp": "00:02:54",
+      "text": "Yeah, yeah. It'd be very fiddly to deshell, wouldn't it? For the number that you need as well for the challenge. No, I think maybe I'm rowing back and saying meatballs's fine. As in that probably is the best. Maybe crab stick? Yeah. I mean, this guy probably knows what he's."
+    },
+    {
+      "timestamp": "00:03:07",
+      "text": "Do we know his name? Yes, his name is Jeff Esper. Okay, okay. Also, a very interesting thing about his. about his technique is that he tries to mimic a brown cocktail as much as he can. So he does eat them cold and he eats them tossed in cocktail sauce as opposed to like marinar or whatever you'd have your meatballs with. There's this amazing video of him online where you see the practice run where he uses the meatballs. And it's so weird. He's just on his own in his laundry with a camera running"
+    },
+    {
+      "timestamp": "00:03:33",
+      "text": "and he's about to eat eight minutes worth of like meatball in his face. He says things like so exactly he's going to use the same source. He's going 90% in the video. So I'm going 100%. He's giving it 90. You don't want to just for a YouTube. Exactly. So he's going 90 and then he says really I should be doing this outside because I think the competition is outside and I need to acclimatized. So in which geographical location is this happening in? If it's not the equator or the Antarctic, I don't think he needs to acclimatize. Well that's the thing so it was too cold for him to do it that day so he didn't. But that factors into it. I guess it messes with your like capacity to swallow your speed. Yeah."
+    },
+    {
+      "timestamp": "00:04:09",
+      "text": "Can I explain one more reason why the meatballs were fine as a substitute? It's because the sauce is the most important part of this particular competition. Because it is a seafood sauce, but it's really spicy. It's supposed to be the spiciest seafood sauce you can get. Someone who had it said it's like being electrocuted when you eat it. And so really he's more about getting through all this spicy sauce than it is about getting through the prongs. Oh, his face almost melted right at the end of the video. I watched all eight minutes."
+    },
+    {
+      "timestamp": "00:04:37",
+      "text": "And the final mouthful, he's on the brink. of vomiting and you watch for about 30 seconds. Which way is going to go? Yeah, yeah, it's really close. Can I give you a few of his records? Please. Because Jeff Esper, he's a big, big player in what is known as the MLE, the Major League of Eating. It's an official body like you'd have the baseball league or the NBA."
+    },
+    {
+      "timestamp": "00:04:57",
+      "text": "The MLEE exists. So he's the record holder at certain points. He may have been broken since he set them for spam, eating 9.75 pounds of spam. Chicken wings, Fortune Bay Indian Taco. pretzels, pizzas, Jack's, donut holes. Donut holes. Oh, those are a thing, aren't they?"
+    },
+    {
+      "timestamp": "00:05:16",
+      "text": "Sorry. Yay. Yeah, yeah. It's the bit that used to be in the donut. It's not just the end of tea. He's eating them all. That's why they're not there. Yeah, and Texas sausage."
+    },
+    {
+      "timestamp": "00:05:26",
+      "text": "In me, it seems like, you know in Olympic swimming how people get loads of medals because you get a medal for 100 meters, for 50 meters, for 200 meters, is all basically the same thing. It feels to me like once you can eat a load of shrimp, then you could probably eat a load of donuts and you could probably eat a load of everything."
+    },
+    {
+      "timestamp": "00:05:42",
+      "text": "He's only got one skill and he's getting all these records. I think it's all to do training, right? Well, I think in Major League eating, if you are some plucky kid out of nowhere, the best things to go for are things where you can innovate. Because there are some which are volume-based. I see. We just have to drink as much honey as you can."
+    },
+    {
+      "timestamp": "00:06:00",
+      "text": "And that depends on how big your stomach is. Exactly. That is just about slowly. You do have to do that competition in just a top, no pants, poo. But if you're, if you're some like, you know, upstart, you might be able to develop a new technique. I see. So before we started today, you just had a cheese and, what was it? Celery sandwich. You might come up with a new way of eating that, like taking the celery out first. Improving the sandwich by taking out of the sandwich."
+    },
+    {
+      "timestamp": "00:06:29",
+      "text": "I've already had a lot of slacking off about this sandwich, okay? But you might have exactly a new way to eat corn on the cob faster. You can attach you to like a black and decker so it spins round. So those are the ones where if you're trying to get into this game and why would you? That's the thing to do. Arriving in New York City on a Greyhound bus with just a corn in your bag. And do you think that you start by going to like breakfast restaurants that have those like breakfast challenges that put you on the, put your photo on the wall?"
+    },
+    {
+      "timestamp": "00:06:59",
+      "text": "And then there's like a Tom Hanks in Elvis like agent in the corner washing. Yes. Smoking a cigar. I went to a breakfast place the other day that had a breakfast challenge. You had to eat this entire, this huge list of like 40 sausages, 20 eggs. It wasn't as big as that, but it was, it looked doable. He had 20 minutes to do it. And if you managed it, you got the meal for free or you had to pay for the whole thing."
+    },
+    {
+      "timestamp": "00:07:20",
+      "text": "And there was a leaderboard, right, that had the current champion, Pete Doherty of the Libertines. No. What? Yeah, yeah. Is that the breakfast? That was in the newspapers when you had that big breakfast, isn't it? Yeah, exactly. So no one's beat it since?"
+    },
+    {
+      "timestamp": "00:07:32",
+      "text": "No one's beat it since, no. Wow. I once went to one of these restaurants for like burgers and stuff. And my sister ordered the huge sort of challenge thing. She's quite small, my sister. And she was really getting through it. And the waiters are all looking at her going, bloody hell, she's doing good."
+    },
+    {
+      "timestamp": "00:07:46",
+      "text": "And I just ordered one hamburger. And it was really small. And I ate it really quickly. And I was like, I'm going to get another hamburger. And then I got my sister to order it. So she's wolfing down all this thing. And she went, can I have another hamburger please? I read her an interview with Jeff Esper."
+    },
+    {
+      "timestamp": "00:08:03",
+      "text": "Oh, yeah. His favorite movie is Cool Hand Luke. Oh, I haven't seen that. Well, in it, there's a guy who has to eat 50 eggs in an hour. And that's, I think, why he likes it. To Paul Newman? Paul Newman, yeah. No, hang on."
+    },
+    {
+      "timestamp": "00:08:16",
+      "text": "Paul Newman then opened a very successful line of mayonnaisees and salad dressing. Was that to eat with eggs there again? Was the film viral marketing for Paul Newman Runch? First ever. Yeah. Because the fastest way to eat 50 eggs is actually whip them up in the mayo. Emulsed them. Oh, really?"
+    },
+    {
+      "timestamp": "00:08:31",
+      "text": "He doesn't do that in the movie. He just nods. on them. But in the TV ads, he would be walking saying, I like my 50 eggs. 50 eggs per bottle. Come on. That's amazing. Anyway, this interview then asked Jeff Hesper, what a movie of his life would be called and he said, cool hand Jeff. So, that's a good name. You know, he's quite a witty guy as well. Yeah. Poor Jeff. We love it, Jeff. But then in 2023, the second and third place in this shrimp eating competition were Miki Sudo and Nick Weary and they're married to each other."
+    },
+    {
+      "timestamp": "00:09:04",
+      "text": "Cool. Did they meet doing the lady and the tramp? But it's like an 18 foot long sausage and they're both slowly eating towards each other. I think they met in the competitive eating sphere. That's adorable. We locked eyes as we were both throwing up. A hundred thousand marshmallows into a bucket. And they said they have a child, the two of them, and they said the child can do anything they want when they grow up except become a competitive eater."
+    },
+    {
+      "timestamp": "00:09:30",
+      "text": "Why? I think they're just in it and they don't feel like it's a good job for time. Feels like they're worried it's going to be a Darth Vader situation where the child's going to knock him off. Yeah. What I will want to say about Mickey Sudo is that she is, I believe, the reigning champion of the Nathan's hot dog eating competitions, women's category. And Nathan's, the Nathan's Coney Island hot dog getting competition is really the biggest competition in the competitive eating league and the one that put competitive eating on the map. Major league eating. It was born out of Nathan."
+    },
+    {
+      "timestamp": "00:09:57",
+      "text": "There you go. But it's only been split by gender, I believe, since 2011. before that women used to compete with men together, and they used to place in the top three routinely. And then they split them, and I know all this from a book called Rod Dog by Jamie Loftus. It's an incredible book. I recommend it to everybody."
+    },
+    {
+      "timestamp": "00:10:14",
+      "text": "And basically they were like, it's going to be the same, it's going to be the same. But the men's one is televising the women's isn't, and women get less prize money. Oh, that's actually quite sorry, the men's is televised and the woman's isn't? Yeah. That surprises me."
+    },
+    {
+      "timestamp": "00:10:25",
+      "text": "Or I think it would be the other lay around. I would think a lot of perverts would be like nothing more than to see a woman eating 75 hotbells. It's either not televised or televised on like, ESPN 3 as opposed to ESPN 1. It's something like that. It sucks. And it is the only competitive eating, which is gender split. Sausage eating."
+    },
+    {
+      "timestamp": "00:10:40",
+      "text": "Right. It's the only one. Oh, really? All the others are mixed grill. Oh, I was like, is that an innuendo? You're like, no. That's up to the audience to make the innuendo there. I'm just trying to picture you pitching why it should be back on TV and really,"
+    },
+    {
+      "timestamp": "00:10:53",
+      "text": "isolating the pervert market here. I would take up big bucks. I would do an incredibly subtle pitch, which made it very, very clear who's tuning in. Joey Chestnut So he's managed 76 Hot dogs in one go And I think I think we may have even mentioned before"
+    },
+    {
+      "timestamp": "00:11:10",
+      "text": "The thing to do is to dip the bun in the water So it gets all Slides down Slides down But I love this The 1984 competition I think this was Nathan's I'm not sure,"
+    },
+    {
+      "timestamp": "00:11:17",
+      "text": "It might have been a different league one It was won by someone She was a 17 year old West German judo What do you do? Judo artist Judoka Judoka"
+    },
+    {
+      "timestamp": "00:11:25",
+      "text": "And she had never had a hot dog Before the competition No But then that's that And you were like, oh my God, this stuff is incredible. I could eat a million. Yeah. And that was her..."
+    },
+    {
+      "timestamp": "00:11:36",
+      "text": "That's incredible. Was it like she looked at it and she'd never seen one. So she didn't know how to eat it. And she was like, maybe I just shoved 10 of them in my mouth. She innovated. Where did they find a German who's never had a sausage? Brilliant. Apparently, Chessnut, Joey Chestnut was saying,"
+    },
+    {
+      "timestamp": "00:11:55",
+      "text": "once you have that many hot dogs, you immediately need the toilet. and the problem, they don't really digest fully. So you kind of shit hot dogs. Clean out. Clean out. That's what he said. How can you tell the difference, realistically? I think when you feel a solid hot dog coming out your butt 75 times."
+    },
+    {
+      "timestamp": "00:12:15",
+      "text": "Because the bun also comes out. His shit is inside the bun. Let me tell you a little something about corn. Also, basically, the Nathan's hot dog eating contest was put on the map. in the mid-2000s by a Japanese competitive eater called Takero Kobayashi, Takero Tsunami Kobayashi, and then he basically made it super popular in America, and then Joey Chestnut was introduced to him as like the American down-home alternative. And so, again, it's the Nathan's hot dog eating competition is a story of sexism and racism."
+    },
+    {
+      "timestamp": "00:12:49",
+      "text": "And hot dogs. We advertise them, they mostly stress the hot dog part of it, don't they? Fine print, fine print. If only we could get pervert into that fantastic strap line. Oh dear. Do you know what chipmunking is? You might have seen this in your... So I would think it's like..."
+    },
+    {
+      "timestamp": "00:13:05",
+      "text": "Oh, okay. Oh, you know what I hadn't thought of it and then Dan just did an action. I did an action. Yeah. It's storing in your cheeks. That's it. That's it. Now. Were you going to say it was like getting naked and dancing?"
+    },
+    {
+      "timestamp": "00:13:16",
+      "text": "I just think he's speaking in a very high pitch voice. Yeah. As you might expect, given what we're talking about, it's absolutely dad's thing. The press conferences would be great, though, in the lead-up part of that. You're going down. No, it has to be in your mouth, right? The food before the count ends, right?"
+    },
+    {
+      "timestamp": "00:13:34",
+      "text": "So if you're counting down, you know, you've got 10 minutes to eat this many whatever's, the food has to be in your mouth, and then you get 30 seconds to swallow it. So often the photo-finished bit is just, right, just get all of this in your mouth. Yeah, yeah. And as long as you get 30 seconds after the clock stops. There used to be, all you had to do was swallow it in a timely manner. That's all it said. And it didn't say it was exactly 30 seconds."
+    },
+    {
+      "timestamp": "00:13:56",
+      "text": "And then there was a guy called Crazy Legs Conti, who lost a competition. because he couldn't eat it in a timely manner and they thought we're going to have to make a proper time. I think that's right. It's like I've started until I'll finish or the bell, the quiz bell goes. Would this make sense of the final few seconds of Jeff Esper's practice for the prawn cocktail?"
+    },
+    {
+      "timestamp": "00:14:14",
+      "text": "Because he goes over eight minutes, he stops the clock and he has a mouth that is absolutely and I'm going to spit it out and he's, so that's what it is. He's using his 30 seconds. He's chip monkey. Clever. Crazy legs. Just probably mentioned him, James. I read an article, it's his legal name."
+    },
+    {
+      "timestamp": "00:14:30",
+      "text": "Crazy Legs Conti. He compares, I'm quoting here from the article, compares professional eaters to musicians. He says the way eaters move and shake is an effort to get breath out of the esophagus, stomach and lower intestine as trumpeters would with their instrument. That's interesting. You know circular breathing where you can play like a didgeridoo without breathing because you breathe through your nose and out of your mouth. Do you reckon they try that? That could be a new innovation. Is the breath sausage in this?"
+    },
+    {
+      "timestamp": "00:14:55",
+      "text": "I mean, you shove as much sausage in your mouth while breathing through your nose is what I'm saying. Maybe, yeah, yeah. Right. But like maybe the sausage in the nose is the Fosbury Flot moment that no hero has managed to achieve yet. Oh, right. You found two more entry points. Yeah. Right."
+    },
+    {
+      "timestamp": "00:15:09",
+      "text": "Interesting. The perverts. They're tuning in. Okay, it is time for fact number two, and that is James. Okay, my fact this week is, in the archie language of southern Russia, a single verb can have 1,502,8,000. 39 possible forms. Is that normal for most languages or... It is not normal."
+    },
+    {
+      "timestamp": "00:15:38",
+      "text": "How I would say... What's a close second do we think that in English, like to podcast, right? So you podcast, she podcasts. Yeah. I was podcasting. I podcasted. And there's not much else because they were all just... I would have been podcasting."
+    },
+    {
+      "timestamp": "00:15:53",
+      "text": "Yeah, I guess. But then that's kind of the same ending. No, this is tenses as well. Okay, okay. So in Russian, obviously, you would have I, you, she, they, all. that kind of stuff, but also you have the past tense, which would be different for masculine and feminine. You would have the future tense. You have gerons. You have participles. You have all sorts of stuff in Russia, but it's manageable because I've studied it. It is manageable. But in Archie,"
+    },
+    {
+      "timestamp": "00:16:16",
+      "text": "it just goes crazy. You have, as well as masculine and feminine, you have different terms for domestic animals, for wild animals, for young animals, old animals. So if you say the pig podcasted, you would need to know if it was a wild pig or a domestic pig to know how. Which is always my number one. You have a different, if it's insects, it's a different ending. If it's mythical beings, musical instruments, serials, abstract concepts, they all have different endings. Everybody's got a podcast. How does anyone learn it?"
+    },
+    {
+      "timestamp": "00:16:54",
+      "text": "Or get anything done? I think you just, most of it you just naturally pick up these kind of things if you live in it. Yeah, because before you get to that word, you'd have to. have to stop and investigate. All right, wild or domesticate. Alive or dead. But also, like, the number of things, so if it's one thing or two things or many things, it's different."
+    },
+    {
+      "timestamp": "00:17:15",
+      "text": "Imagine solving a crime based on a phone call because you know that the verb was referring to a thing and you can investigate what that thing was. We know that they have a wild insect. Who has a podcast. Oh, that's nice. And also it's different depending on how you, know it's being done. So if you know it's happened, it's different. If you're speculating"
+    },
+    {
+      "timestamp": "00:17:36",
+      "text": "it's happened, it's different. If you're admiring something that's happening, it's different. If something's forbidden, it's different. And you can mix and match all of these different things to get to 1.5 million. I admired the forbidden, tame young locust podcast. But you think about that. You had to use so many words to say that, right? But they would be able to say it in one word because they would know all of the endings. They'd be like, well, that's implied by the way you've said. So Locust stays the same, like all of that stuff. You could just say the locust podcast is, so you just have a verb and a noun,"
+    },
+    {
+      "timestamp": "00:18:07",
+      "text": "and you would get all of that information by all the different endings. It's like anti-German. It's the most interesting. Yeah, yeah. So as a result, has this language become hugely popular and it's spoken by tens of minutes. It's spoken by very, very few people in Dagestan in Russia, and it's about 20 kilometers away from the village of Sovkla, Adnaya, who do you remember?"
+    },
+    {
+      "timestamp": "00:18:27",
+      "text": "It was the place where everyone knows how to type row. Oh, no way. Yeah, there's a village in Russia where everyone knows how to tightrope and it's just over the mountain from there. What an amazing pocket of the planet. This is. Isn't that amazing? This is incredible. And I should also say that, Andy, once you've learned all of these one million different forms of standard verbs, that helps you with about 170 of the most common verbs, but there are more than a thousand exceptions, which you then have to learn on top of that."
+    },
+    {
+      "timestamp": "00:18:53",
+      "text": "Oh, and the language can be written in Latin script or in Cyrillic, and in either way, the language has got 74 letters. So you need to learn 148 letters. What I was going to ask, how many letters can there to be for there to be this many endings? Because you would just run out of letters for even combination. Yeah, this is why I failed my archie GCSE oral. This is it? That's why. I'm so annoyed."
+    },
+    {
+      "timestamp": "00:19:16",
+      "text": "So, yeah, it's just a very, very complicated language. And they exist. Have you heard of the Foreign Service Institute? I think they're an American outfit. Yeah. like French is category one you know like romance languages because they're"
+    },
+    {
+      "timestamp": "00:19:36",
+      "text": "English borrows a lot We derive a lot yeah yeah and you already know that's easy for English people completely yeah yeah and then category three is Indian various Indian languages in Swahili category four it takes"
+    },
+    {
+      "timestamp": "00:19:47",
+      "text": "44 weeks to learn it's sort of going up in the number of weeks so Russian Hindi Tamil How many weeks is it supposed to have taken me to learn Russian don't worry about it Well it's taken me five years and I'm intermediate"
+    },
+    {
+      "timestamp": "00:19:59",
+      "text": "Yeah that's about right Category 5 is Mandarin, Cantonese, Japanese, Korean, Arabic. Category 2 only contains German. It's completely in its own. English is a Germanic language. I know. I think they decided it's a bit harder than French, but it's the only one."
+    },
+    {
+      "timestamp": "00:20:17",
+      "text": "It's just there on its own in their categories. Actually, German does have quite a lot of conjugation, doesn't it? Because you speak German a little bit. It's got four basic cases. Yeah. Like, it's not, it's all right. It's a bit, it's a bit, because like French and Spanish and Italian, and they're all kind of debased Latin, if you like,"
+    },
+    {
+      "timestamp": "00:20:32",
+      "text": "because they just cut out all the complicated endings and, you know, and it's because as Latin spread. Yeah, I guess it's like how to speak it correctly, because I speak fluent German, but I can't conjugate shit. I'm always like, you know what I'm saying. But do you get it right? I don't know it right, even though you. Like sometimes I'll be like, I'll know a noun, but I won't remember its article,"
+    },
+    {
+      "timestamp": "00:20:52",
+      "text": "so I'll like gender it just want to guess alone. And I'm sure that I'm sure whoever I'm speaking to will kind of guess. But I always get worried about that because if I get the, gender of a noun wrong. They won't know if I'm saying Das Table, whatever. I know it's not table. I can't remember the love of table either. But like, I think people... And you're just like..."
+    },
+    {
+      "timestamp": "00:21:08",
+      "text": "Das tish? Das tish. Dast tish? It doesn't change the fact that it's a tish. So it's fine. Relax. Because I read an article where they interviewed 56 native French speakers and they asked them to assign the gender of 93 masculine words"
+    },
+    {
+      "timestamp": "00:21:24",
+      "text": "and they agreed on only 17 of them. And they were asked to assign the gender of 50 feminine words and they read on only one. Wow. It's just vibes. I love that. You fixed German basically for anyone struggling. I think that's a good thing in all languages really is that if you just try, people will accept it. Yeah, that's true. The Russian language has three, three genders for any noun, but if you get it wrong, I'll still know what you're talking about. Sorry, maybe I'm making a lot of German and Russian people really angry. Where is Archie on the list? Archie is not on this list."
+    },
+    {
+      "timestamp": "00:22:00",
+      "text": "I think there's a secret category. But Russian is difficult because the stress can matter, right, in words. And that can make a big difference. So you can see it written down, and you wouldn't know necessarily the difference between, say, Mukha and Mukha. Right. Where one of them means flour and the other one means torture. Yeah."
+    },
+    {
+      "timestamp": "00:22:18",
+      "text": "Oh. So if you just see that written down and they don't have the stressors on. Well, if you have celiac. That kind of flower. Yeah, yeah, yeah. I was thinking of the kind of flower. Again, oh my God. Oh, flower, flower."
+    },
+    {
+      "timestamp": "00:22:30",
+      "text": "Yeah, yeah, yeah, yeah. I don't think, is there any way of telling verbally, flower? No, context only, I think. Flower. Maybe Irish accent? I always say floor. People mistake it for the thing we won't. Valentine's Day is always very disappointing, though, for your wife, isn't it?"
+    },
+    {
+      "timestamp": "00:22:45",
+      "text": "It's a bloody floor. There was a woman, oh, I wish I could remember this now. Oh, God. There was a woman in America who was arrested for throwing a pancake at an American president. And I can remember which presidents it was, but when she was arrested, they asked her about. it and she said she couldn't find any flowers but this contained flower and she thought it would be just to say was it really was this no like a hundred years ago a hundred years ago easy do you remember when i made a karate magazine news article for spitting on someone and that was a misunderstanding of word as well yeah this is in"
+    },
+    {
+      "timestamp": "00:23:18",
+      "text": "hong kong i was in karate monthly uh that was a news story rather than that's like one of those that's where i know you from what is this real yeah i was i was um i was studying uh kempers at the time, which is a former martial art, and I was sparring with a kid. And the guy who's training me, he's called me Danny, and he had a bit of a lisp. And he was yelling, spin on him, Danny, spin on him to spin kick him. But I heard spit on him, Danny. And I literally just swat on his face. No."
+    },
+    {
+      "timestamp": "00:23:47",
+      "text": "And they paused the fight. And they were like, what was that? Is this true? Yeah, yeah. How old were you? 10, 11? I can't believe. Like, honestly, Dan, I've known you for 20 years."
+    },
+    {
+      "timestamp": "00:23:58",
+      "text": "Every week. It's amazing, isn't it? Same thing. It was, yeah, it was in Hong Kong and it was... You were in a karate-based newspaper. In magazine. Yeah. Sorry, it's..."
+    },
+    {
+      "timestamp": "00:24:09",
+      "text": "I guess it's one of those, like, the funny stories kind of bit of it. Yeah, yeah, yeah. It wasn't like international karate news. It wasn't headlight. No, I like it. What's the easiest word on the planet? The easiest word. Yeah."
+    },
+    {
+      "timestamp": "00:24:20",
+      "text": "So is it the most universal? Mama. Not bad. Hey? Hey. Nearly, closer. Huh? Bingo."
+    },
+    {
+      "timestamp": "00:24:28",
+      "text": "Oh. I knew it. Sorry, I knew it. She speaks three languages. Of course she is. It'd be incredible if you would just, you genuinely hadn't heard the question because you weren't listening."
+    },
+    {
+      "timestamp": "00:24:37",
+      "text": "Yeah, we can edit, fix it in post. Huh? Yeah, huh? Every language has a version of, can you please quickly clarify? And in every language, it's, huh? Because it would be very annoying if you had to say a sentence to say,"
+    },
+    {
+      "timestamp": "00:24:48",
+      "text": "can you quickly clarify? So that's it. And it means that, you know, it can de-escalate tension between you and someone else, even if you don't speak the same language. But also, does that also mean that the inflection of a question is the same in every language."
+    },
+    {
+      "timestamp": "00:25:02",
+      "text": "No idea. Because it's not really a sound much, it's much more, it's literally, in my mind, it's just the sound of a question mark. I think actually that's not true because some languages have question words, don't they? Like English and Russian do, like who, what, when, all that kind of stuff. But some languages, it depends on the inflection about whether it's a question or not a question. But English has that a bit, too, doesn't it? You can say, I live here."
+    },
+    {
+      "timestamp": "00:25:25",
+      "text": "And that's a question. Yeah. Yeah. Yeah. Well, that's an Aussie inflection as well. That's true. I live here in Australia. We had that thing, David Crystal, the linguist, said that the Aussie inflection at the end was a useful thing because it was both a, I understand the statement. But I also am asking you, it's up to you. You don't need to pick it up as a question, but it works as a question."
+    },
+    {
+      "timestamp": "00:25:47",
+      "text": "You can, if you like. Yeah. That feels like a mind game you'd play in like a corporate interview. Yes. Yeah, exactly. You got the job? Just as they're walking out of the dark. We find them guilty? I need to get something off my chest."
+    },
+    {
+      "timestamp": "00:26:07",
+      "text": "So the closest, so far, so far I've ever been to getting canceled is thanks to a joke that I wrote about the word empathy in Russian. And so the setup of the joke is the Russian language doesn't have the word for empathy. Can you imagine what that feels like? I couldn't. And so I posted this joke online in the avalanche of Russian people. going to correct me to say that there is actually a word in Russian for empathy and you're actually stupid and dumb and not a patriot. But I would say 90% of the corrections were the word for sympathy, obviously,"
+    },
+    {
+      "timestamp": "00:26:42",
+      "text": "that is very easily checked through Google Translate. So basically the word that they keep suggesting is sympathy, which is sympathy, which is close to empathy, but not quite. Then they'd say so stradania, which is compassion, which again is close, but not quite. And then very rarely they will say Empatia, which is essentially the same sort of like, I guess, Greek root for it, empathy, impatiya, which is a word that has not been widely used in Russia up until I want to say two years ago. And I know this because there's loads of articles in Russia that are essentially titled, what is this word Empatia? And what does it mean? And so the setup of the joke, the setup of the joke, I feel like I'm in court right now."
+    },
+    {
+      "timestamp": "00:27:20",
+      "text": "The setup of the joke is that I do. Why do you think this is funny? I don't even know. where I'm going with this, but I just think that it's really funny because they think that I'm sort of trying to smite the Russian people or say that Russians don't understand what empathy is, and surely that's something that you"
+    },
+    {
+      "timestamp": "00:27:36",
+      "text": "can explain in more than just one word. And to sort of, I guess, make right with the Russians, I'll share a Russian word that we have that you don't in English. Oh, okay, yeah. And that's Lista pat, which is the word for falling leaves. So it's like rainfall,"
+    },
+    {
+      "timestamp": "00:27:51",
+      "text": "we have leaf fall. Oh, that's good. And you don't. Say the word again? You're stupid. Yeah, but we can actually have some feelings about it when we see it. If you're speaking to a Russian, you can tell whether they're a virologist or not, by the way they talk. And that is because in Russian you have animate and inanimate nouns, right? The endings can change up whether something's alive."
+    },
+    {
+      "timestamp": "00:28:18",
+      "text": "And so virus, virus in Russian, is most people would say it's inanimate, but virologists, always think it's alive, a virus. Because a virus, is it alive? Is it not alive? Actually, nobody really knows. But virologists think it's alive, and normal people tend to not say it's alive. So if you say,"
+    },
+    {
+      "timestamp": "00:28:38",
+      "text": "on Dalmanier coronavirus, then that would mean he gave me coronavirus, but that would be a person who's not a virologist saying it. But if you said, On Delminier Coronavirusa, that would be animate, and it would be a virologist saying it"
+    },
+    {
+      "timestamp": "00:28:54",
+      "text": "because they think viruses are alive. And how useful have you found this, James, in your life? Again, I think that you could use that to solve a crime. Yeah. Who was the murderer? It was, it was a virologist in the library with a candle stick. Probably with the anthrax. Do you want to know a fun fact?"
+    },
+    {
+      "timestamp": "00:29:15",
+      "text": "Yeah. So you know how like... Not on this show, but you've come to the wrong place, ladies. So do you know how like French kiss is making out? Oh, yeah. Or like Irish goodbye is leaving. about saying goodbye or a French exit as well. But in Russian,"
+    },
+    {
+      "timestamp": "00:29:28",
+      "text": "a buffet is a Swedish table. And a family of three, which is like two women and a man or whatever combination of genders in a thruplet is a Swedish family. Get away. So Menagerie, which is what we would call it. I don't know because like three people living together."
+    },
+    {
+      "timestamp": "00:29:45",
+      "text": "It's not a threesome. It is like it is a relationship of three. A thruple. I'm the only one still saying manager twas. Everyone else said truple. I'm not there. All the apps. Or the pervert apps."
+    },
+    {
+      "timestamp": "00:30:01",
+      "text": "Menagerdae seeks loves ESPN, nostril-based dog eating competitions. Either, this is for Olga and James. Phehol Dandrov. Is that a... Don't speak. I'm not a native Russian speaking."
+    },
+    {
+      "timestamp": "00:30:17",
+      "text": "But you love dirty words. That's true. Yeah. I've never heard of P. I went on a site where it was sort of like weird, rude words from Russia And this bottom, have you ever heard of that word before? I have never seen this in my life."
+    },
+    {
+      "timestamp": "00:30:31",
+      "text": "I didn't move from Russian when I was 14, so maybe like it's a sort of high school word. That word is a 15 certificate. So you wouldn't have known about it. See, I don't think it's a real word, but it was on a site. What does it mean? It kind of doesn't really mean anything. It's just a beautiful word for when the pollen falls from the trees. I can't believe we don't have this."
+    },
+    {
+      "timestamp": "00:30:54",
+      "text": "word in English. Amber color. Do you know the Bickle language of the Philippines doesn't have, it has swear words, but people don't really use them because it has a complete other vocabulary if you're angry. So you speak normal Bickle, blah, blah, blah, blah, blah. But as soon as you're angry, you just change all the words that you use so that people can tell you're angry. Oh, that's great."
+    },
+    {
+      "timestamp": "00:31:17",
+      "text": "So you're saying the same stuff, but it's different, using different words for it. Using different words, yeah. So it's a bit like with my daughter when she does something. I normally call her jelly, but if she does something bad, I go, Angel! Yeah. Yeah. But it's a completely different vocabulary, Ethan. Yeah, yeah, yeah."
+    },
+    {
+      "timestamp": "00:31:33",
+      "text": "I hate to bring it up, but again, such beautiful evidence in a core case. Yeah, yeah, yeah. Yeah, it's like, was it a crime of passion? I don't know! That's so good. Okay, it is time for fact number three. That is Andy. My fact is, if cars had improved at the same rate as computers since 1971, they would now be able to travel at"
+    },
+    {
+      "timestamp": "00:31:57",
+      "text": "nearly the speed of light. Wouldn't that be cool? And if my grandmother had wheel. She would also be traveling to the speed. They would also be smaller. The carts, right? Yes, they would be about half an inch long, unfortunately. And this is based on something that Gordon Moore,"
+    },
+    {
+      "timestamp": "00:32:16",
+      "text": "who was the co-founder of Intel, huge computer company, said in 1965, he noticed that the number of transistors you can fit on a chip, a computer chip, had been roughly doubling every year for the previous 10 years. And he said, this is amazing. And he thought it would keep going."
+    },
+    {
+      "timestamp": "00:32:32",
+      "text": "He thought the principal would apply. Maybe it would be every two years the number you could fit on a jet doubled. But he said, I think it's good for at least 10 more years. And it actually has stayed true for about 50 years at least since you wrote that. And it's slowing down a bit now, but cars would be able to travel at the speed of light"
+    },
+    {
+      "timestamp": "00:32:48",
+      "text": "because the number of transistors you can fit on a computer ship now is so huge. The numbers are just mind-boggling of how much things have improved. I suppose the thing was that we got to a speed with cars where we thought there's no point going much faster. Is that right? Because of safety reasons and stuff like that. I suppose so. Obviously, if we moved to the speed of light, then we'd also go infinite mass."
+    },
+    {
+      "timestamp": "00:33:10",
+      "text": "Oh, that would slow you down? No, it wouldn't slow you down. Yes, it would. You'd break through the car door. Well, no, because I saw an interview with Lewis Hamilton the other day, and he was talking about how when you're driving a Formula One car, everything about the structure of your body, body needs to be as strong as possible because when you take a turn at 180 miles an hour,"
+    },
+    {
+      "timestamp": "00:33:30",
+      "text": "your body does not go with the car. They have strong next, didn't they? Yeah. But yeah, I mean, like, there's no point getting faster than, you know, you get cars that can go 200 miles an hour or faster, but there's no point having them because you can't go faster. No, you're right. Spaceships are useful, though. Yeah, again, it's just, it's really just about transistors."
+    },
+    {
+      "timestamp": "00:33:47",
+      "text": "I feel like I completely... But am I correct in entertaining that, like, I remember this distinctly as an example in a textbook that at some point it becomes imperceptible to humans. So, like, they tried doubling the amount of pixels in, like, computer graphics. But at some point, once you double it, you're a human eye can't see that it's double. That's a really good point. That's true. Yeah."
+    },
+    {
+      "timestamp": "00:34:08",
+      "text": "I think a computer screen now can show more colors than the human eye can perceive. Yeah, so who's that for? Yeah. If you were traveling at near speed of life, this is kind of a physics question, really. And you had to take a left, right? Yeah. You're in space. If you needed an exit sign, but I'm travelling at close to the speed of life, how would you do that?"
+    },
+    {
+      "timestamp": "00:34:28",
+      "text": "As in you won't be able to see it? Yeah. At what point, how big and how far away would it have to be? That's a really good point. Leave it with me. I'll write to Randall Monroe. Oh yeah, he is way more qualified than means to do that. All right, you want to hear something about transistors? Sure. No, genuinely, they're unbelievably interesting transistors."
+    },
+    {
+      "timestamp": "00:34:50",
+      "text": "Yeah, yeah. Okay. The light would still come to you. God. Yeah, sorry, sorry, Andy. Because you're going in the opposite direction to the sign, right? So you're going towards the sign. So the light will still get to you just as quickly. Ah, so just as fine. Faster, if anything? Well, to the point where you're at at any moment,"
+    },
+    {
+      "timestamp": "00:35:07",
+      "text": "it would just get you at the same speed. I think it still needs to be a big sign from that distance. Yeah. Saying left here. I think it's always got to be a big sign in space. Always got to be a big sign in space. Happy with that, then? Yeah, yeah. That was great. Back to your transistor."
+    },
+    {
+      "timestamp": "00:35:21",
+      "text": "Oh, thank you. Okay, I just, like, here's a thing, right? 1971, Intel released their first ever microprocessor, right? So, I do have a follow-up. No, absolutely not. No, no, no, no. The chip was 12 square millimeters, right? Picture that, 12 square millimeters."
+    },
+    {
+      "timestamp": "00:35:36",
+      "text": "Okay, so three millimeters times four millimeters. Right. They had 2,300 transistors fitted onto that space. It's pretty good, right? The gap between each transistor was 10,000 nanometers, which is the size of a red blood cell. Just to give you an idea of what? Okay."
+    },
+    {
+      "timestamp": "00:35:52",
+      "text": "Today, the most advanced chips can fit into that space, not 2,300 transistors, but 130 million. What does that mean? What does it mean? It's insane. The gap is 14 nanometers between them. Very, very, very, very sweet. I think the transistors are so, they're so tiny. They're so sort of impossibly small."
+    },
+    {
+      "timestamp": "00:36:16",
+      "text": "Basically, and the transistors, we should say, they're like the taps. As in, like, they're either on or they're off. They bake up the ones and zeros. switches which change the state depending on whether an electric current is flowing through them or not. And your phone has millions of the minute. Your phone will have so many millions. And it's quite, it's obviously really hard to get your head around because the numbers are just so mind-boggling. Like in 2015, I mean, nearly a decade ago, the world created 13 trillion transistors every second. Wow. What? We're more, this is basically a transistor planet now,"
+    },
+    {
+      "timestamp": "00:36:46",
+      "text": "isn't it? Like pretty much. Yeah. And they're now kind of printed directly onto the chips. It's not like there's a big pile of... Yeah, someone's... No, jeweler. I've dropped it. Nobody move. Just one old man in a cave in Turkey who's just putting each one together."
+    },
+    {
+      "timestamp": "00:37:05",
+      "text": "It's just mind-blowing. And this stuff is what the entire world is made of. Everything you're listening to this podcast through is transester-based. It's all based on this stuff. And it's so far beyond most people's comprehension."
+    },
+    {
+      "timestamp": "00:37:16",
+      "text": "Unless you spend years on it, you know. It's insane. None of those are just so big, aren't they? It's just hard to really. really get your head around any of the numbers. Yeah. Like for instance, the new Google computer, the quantum one that they're supposed to have made, and no one's sure if they've made it or not."
+    },
+    {
+      "timestamp": "00:37:30",
+      "text": "If they have, then... That's so funny for a quantum computer. Yeah, exactly. It exists and it doesn't exist at the same time, yeah. It can do as many calculations in two seconds as if you got the entire population of India to do a sum every second since the beginning of the universe, that would be the same as this computer can do in two seconds. And again, it's so hard to understand."
+    },
+    {
+      "timestamp": "00:37:54",
+      "text": "It's amazing. Wow. And the reason the transistors have been getting somewhat smaller is a really good thing, partly because when they get smaller, you get less electricity wasted and less heat wasted. Obviously, the process generates a lot of heat. So actually, making them smaller means you save huge amounts of energy, which is part of the reason they can do it and that it's a good thing. Because I think more said at the very start, he said,"
+    },
+    {
+      "timestamp": "00:38:16",
+      "text": "one of the problems is going to be, we're going to get more and more transistors, but everything's just going to get hotter and hotter and hotter. And if you've got a million transistors in your phone, you just won't be able to pick it up, it'll just set fire to the table as soon as you put it on the table. But then they found that ways to counteract that. Yeah, yeah, yeah. But now they are so small. Again, this is mad that quantum effects are starting to come into play,"
+    },
+    {
+      "timestamp": "00:38:37",
+      "text": "and the gates are no longer functioning properly because they're so small that you get some electrons leaking through even when it's supposed to be off, because they're now down to kind of electron size, the barrier and the gate. So they're having to work out new shapes of transistor to really, re-exert some control over this gate because it's too leaky for individual electrons. I've got a question for Dan. Oh, yeah. You're traveling on an electron."
+    },
+    {
+      "timestamp": "00:39:01",
+      "text": "There's a neutron on your left-hand side. How big would the sign have to be in order for you to say? For me to, well, I'm glad you brought that up because I did have an additional question I wanted to ask earlier, which is how, if you saw the sign saying take a left, you're traveling near to the speed of light, you're going to have to slow down. How far away does the sign need to be for you to de-excel? Decelerate. Decelerate. Where you go slow enough that you can take a left."
+    },
+    {
+      "timestamp": "00:39:25",
+      "text": "I mean, it depends how fast you're going. Because you says close to the speed of light. Is it 99% the speed of light? Is it 98%? Is it 97%? That's a classic follow-up question of a person who does not know the answer. I've just suddenly remembered this is to do with cars, but also to do with transistors. And I remember that there was a guy, the co-creator of the transistor, won a Nobel Prize for it. I'm going off the top of my head."
+    },
+    {
+      "timestamp": "00:39:51",
+      "text": "But he's one of the only few people to win two Nobel Prizes, right? So the second time that he got announced as the Nobel Prize winner, there was a party that was going to, because you know, they kind of know that something's coming up, was being thrown for him. And he almost didn't make it to the party because he couldn't open his electric garage because the transistor had broken that allowed for it to switch open. And so someone had to come and pick him up and take him to the party. More, Gordon Moore, he was a very cool guy, very interesting guy, co-founded Intel."
+    },
+    {
+      "timestamp": "00:40:18",
+      "text": "He became incredibly rich, obviously, and gave loads and loads of his money away to protect the Amazon, protecting salmon rivers, because he's very keen fishermen. But he founded Intel with Robert Noyce, was his colleague. Nois. And they wanted to call their firm. They invented Brooklyn Nine-Nine, didn't they? They wanted to call the company more noise. More noise is more noise than anything out."
+    },
+    {
+      "timestamp": "00:40:42",
+      "text": "And sadly, they thought it wouldn't be right for an electronics company. It wouldn't be appropriate or something. Really? Noise computers. Intel. I know. Yeah. But I also love that his sort of contribution to managing is just coming to his team every year and saying, double it."
+    },
+    {
+      "timestamp": "00:40:59",
+      "text": "That's it. Because actually quite a lot of it with Mars law became like a self-fulfilling prophecy. They knew that it was going to have to double in a year or in two years. And so that's what they did. They could have gone faster, but they were like, oh, no, it has to do this. Right. It's still holding up, I think. Depends who you speak to."
+    },
+    {
+      "timestamp": "00:41:17",
+      "text": "People have been predicting that it's kind of, we can't possibly keep on doubling it every two. Maybe it's now close to every three or something, but it's, it's, uh, have you heard of Bremermans limit? No. Bremermans limit. So there was a guy called Hans Bremerman. And he said that there was a limit on the maximum rate of computation that could be achieved in a self-contained system in the material universe. So we would get to a limit of how much could be. And he used, I don't understand the mathematics of it, but he uses Einstein's equations in order to make sense of it. So Bremen Who was born in Bremen in Germany"
+    },
+    {
+      "timestamp": "00:41:49",
+      "text": "Yeah To Bernard Bremenant And Bertar Bremenin And Really So cool Do you know what the fastest supercomputer In England is called"
+    },
+    {
+      "timestamp": "00:42:00",
+      "text": "In England Oh Is it a classic English name Like Nigel Yeah, it is Think less patriarchal Betty"
+    },
+    {
+      "timestamp": "00:42:10",
+      "text": "Betty Betty is the 457th most powerful computer in the world. Have you got a list that goes up to 457? It goes to 500. I'll say Elizabeth. No. Oh, okay. I mean, it's almost impossible to guess. Oh, no. Okay. But it's a"
+    },
+    {
+      "timestamp": "00:42:26",
+      "text": "woman's name. It's a woman's name. It's a woman's name. It's quite an old-fashioned woman's name. Apologies to any of people with this name. Oh, Margaret. Agie. Magi. Agatha. Dotty? Dotty. No. It's Dawn. Dawn. Dawn. Dawn is the fastest supercomputer in England. and other supercomputers"
+    },
+    {
+      "timestamp": "00:42:45",
+      "text": "Robert is the 103rd Alex is the 187th Gene is the 288th and Henry is the 293rd Some of the most uninspiring names It feels that way, doesn't it? Dawn is really good because you can't say the dawn of a new age"
+    },
+    {
+      "timestamp": "00:42:59",
+      "text": "whereas you can't say this is the Robert of a new age When do supercomputers stop being super? Like surely supercomputers from 20 years ago are no longer super Great point. It's all the number of calculations per second, isn't it? And surely the bar keeps rising, right? Yeah, yeah, yeah."
+    },
+    {
+      "timestamp": "00:43:15",
+      "text": "We had using old computers a very big problem a couple of years ago, four years ago. So while the pandemic was breaking out, one thing that went a bit unnoticed is that hundreds of places got hit by the millennium bug, Y2K. In 2020? In 2020, yeah. Why? Because what happened was at the time. So Y2K was a big problem, right? The problem was is that when we hit 2000, the computers thought it was 1900."
+    },
+    {
+      "timestamp": "00:43:37",
+      "text": "Yeah, yeah. So it was jumping backwards and that was going to go to chaos. 1997, 1998, 1998, 1999, 1900. Exactly. And that was going to mess up loads of systems. That's the best setup for a rom-com I have ever heard in my life. A singleton in 1999 at a New Year's party travels back in time and falls in love with someone from 1900s. Guys!"
+    },
+    {
+      "timestamp": "00:43:56",
+      "text": "That's great. Very nice. With a computer that glitches and gets them. Yes. But yeah, so what ended up happening was in that period where everyone was desperately trying to fix a Y2K bug, they changed the coding so that it was 2020. And they thought what would happen is, so 2O became the number, right? And they thought in the 20 years subsequent, they're going to become obsolete."
+    },
+    {
+      "timestamp": "00:44:16",
+      "text": "We'll have new computers. This is not going to be an issue. I see. So computers thought it was 2.02, but actually it was 2000. Is that right? Yeah. Yeah, exactly. So then we got to 2020 and everyone went, like Brexit, we've been kicking it down the road."
+    },
+    {
+      "timestamp": "00:44:31",
+      "text": "We kicked it down the road. Now, a lot of places had changed their systems, but a bunch had in. So there was, and it was weird things like there was a, version of the game of WWF, which crashed because it was an online download. Oh, my God. What did we do? Because I thought, like, planes were going to fall from the sky and stuff. Not people won't be able to play WWF on the playstation."
+    },
+    {
+      "timestamp": "00:44:52",
+      "text": "We now work out how Dad knows about this problem. His plans for lockdown were completely wrecked. This is a huge issue. We could download WWF, also other things, I imagine. Oh, yeah, and 5,000 players. fell out. It was going. No, and it was like, things like grocery stores that had till systems that were automated."
+    },
+    {
+      "timestamp": "00:45:13",
+      "text": "Suddenly those were crashing worldwide. So you couldn't buy the game in the first place. Exactly. It was a nightmare. It was horrible. There was a website called Splunk, which suffered from it. Oh, not Splunk! Splunk is a website that looks for errors in computing."
+    },
+    {
+      "timestamp": "00:45:28",
+      "text": "How did you accidentally end up on that website? I said you one more thing. Okay, this is about how your phone CPU is made. What is that central processing unit? Yes. Okay. This is from an interview with a guy called Chris Miller, who's written a book called Chip War. Okay."
+    },
+    {
+      "timestamp": "00:45:43",
+      "text": "I'm quoting him directly. This is what gets into your modern phones, right? A ball of tin falls at a rate of several hundred miles an hour through a vacuum. It's only about 30 millionths of a meter across. A small ball of tin. It is pulverized by two shots from one of the most powerful lasers ever deployed"
+    },
+    {
+      "timestamp": "00:46:01",
+      "text": "and explodes into a plasma measuring several times hotter than the surface of the sun. This plasma is, emits extreme ultraviolet light at exactly the right wavelength of 13.5 nanometers, which is then collected via a dozen mirrors, which are themselves the flattest mirrors humans have ever produced. The mirrors reflect the light at just the right angle"
+    },
+    {
+      "timestamp": "00:46:22",
+      "text": "so it hits the silicon wafer and carves the circuits onto the chips that make your iPhone possible. What? And that's so that Dan can play WWF games on it. It's the biggest step down for this system. Isn't that nuts? That's how you feel. I don't think I understood any of that."
+    },
+    {
+      "timestamp": "00:46:38",
+      "text": "I'll be honest. I'm clinging on. I mean, it's incredible. Oh, we should say Kenny Stoltz, a listener, sent that in a little while ago. That interview with Chris Miller. It's just, that is nuts, isn't it? And these machines, they're so accurate"
+    },
+    {
+      "timestamp": "00:46:49",
+      "text": "that it's like shooting a laser from the moon and hitting an individual coin on Earth. Apple, that's how precise they can be. Wow. Apple deserve every penny they get, don't they? Especially the podcasting team. Okay, it is time for our final fact of the show, and that is my fact."
+    },
+    {
+      "timestamp": "00:47:10",
+      "text": "My fact this week is that on the same day that Joni Mitchell released the greatest hits album, she also released a greatest Mrs. album. Brilliant. Yeah. So good. I know. Is it terrible? Is it absolutely awful?"
+    },
+    {
+      "timestamp": "00:47:26",
+      "text": "Bad songs. A case of you is on it. What's that? Most popular songs. Okay. But I mean, it's a collection from other albums, right? Yeah, exactly. It's her favorite ones that weren't commercially successful."
+    },
+    {
+      "timestamp": "00:47:36",
+      "text": "Exactly. That's right. And she was so happy with it. She tried to release Mrs. 2, but the record label rejected that. The only reason it came out, the record label didn't want to do it, but it was like a compromise. It was a bargaining. She said, you can do the greatest hits if I can do the greatest misses. I don't know much about Johnny Mitchell."
+    },
+    {
+      "timestamp": "00:47:53",
+      "text": "She's an incredible artist. I mean, you know, she's, she had a really nice moment a few weeks ago at the Grammys. She performed for the first time. She's 80 years old. She sang a song. Not for the first time. Yeah, for the first time. How's she ever?"
+    },
+    {
+      "timestamp": "00:48:06",
+      "text": "Yeah, she's never. She's won, I think, 10 Grammys, but she's never. performed at the Grammys. Oh, at the Grammys? Yeah. Sorry, you said she performed for the first time. I think I said where she performed for the first time."
+    },
+    {
+      "timestamp": "00:48:16",
+      "text": "Right, right, right. Okay. Regardless, she's 80 and she sits, you know, in a chair. She sings this beautiful song. She wins a Grammy for Best Folk album for a live album that she did, which is a bit annoying, I think, for the other folk artists, I would say. Okay. Oh, controversial."
+    },
+    {
+      "timestamp": "00:48:31",
+      "text": "Okay. And, yeah, and yeah, she's someone who was a part of the whole scene with Dylan, Bob Dylan and Leonard Cohen and all that. listeners that don't know her. You won't find much of her stuff on Spotify. She's one of those artists where you probably have to go to YouTube or... She took it off because of Joe Rogan, right? Did she? Yeah. Really? I think, yeah, Joe Rogan was Spotify. Yeah, exclusive. Exclusive, right? And he was saying some things that people didn't agree with. I've got to say, I'm big fan of Spotify as I am with Apple. I'm all podcast providers. I'm so glad that the end to that sentence wasn't Joe Rogan."
+    },
+    {
+      "timestamp": "00:49:06",
+      "text": "I gotta say I'm a big fan. Yeah, but a load of people took their stuff. off Spotify because of that and she was one of them. I mean, do we know it wasn't because of us? Because we are on Spotify. Yeah, but we're not on exclusive Spotify. Maybe it was parenting hell with Josh Wickham. Wow. But yeah, she's amazing."
+    },
+    {
+      "timestamp": "00:49:24",
+      "text": "She's pretty cool. She had polio when she was nine years old. Yeah. And interesting thing about that is I was reading about other people who had polio around the time. Mia Farrow had polio when she was nine. Really? And she wrote that she was taken to an isolation unit because"
+    },
+    {
+      "timestamp": "00:49:39",
+      "text": "It's catching polio, obviously. Yeah. And she was taken away from all of her family for months, and all of her belongings were burned. Is this Mia Ferro? Right. Blimey. It's not amazing."
+    },
+    {
+      "timestamp": "00:49:50",
+      "text": "Like, you basically, at nine years old, you've got this disease, they take you away and they burn everything that you own. And is that the case with polio that if your toy had, if you'd touch your toy, you could get it from that? Or was that a, we weren't sure what it was. Well, no, it can. It can go through bodily fluids and stuff like that. Obviously, we have vaccines for it now."
+    },
+    {
+      "timestamp": "00:50:08",
+      "text": "Joe Rogan told me to say that they go. No, we have vaccines for it now, so it's not as much of a problem, obviously. But yeah, it can go through feces, through spit, through speed with which we went from Joni Mitchell to feces. Damn! That's our pipeline, I'm afraid. That's how we roll. It comes through our pipeline, yeah."
+    },
+    {
+      "timestamp": "00:50:30",
+      "text": "No, Ian Deary of Ian Dier in the blockades, had polio as a child. Did he? Yeah, so a lot of musicians. Yeah. How interesting. It was supposedly gave her an egg. to how she tuned her guitar, it's her polio. She's joining."
+    },
+    {
+      "timestamp": "00:50:42",
+      "text": "Yeah, so she got into guitaring about 15 years old at school, and she was recovering from polio, and it just meant that it must have been harder to tune a guitar for her. Yeah, it kind of changes the way that your bone structure works and stuff like that. There was a footballer called Gorincha who had polio as a child, and it made his legs bandy, but it meant that he kind of ran in a way that no one else ran, and it kind of helped him to play football, supposedly."
+    },
+    {
+      "timestamp": "00:51:05",
+      "text": "Right. She started smoking at the age of nine, and she started singing because she wanted to get smoking money. So she was in a cafe in Calgary in Canada, and she was the resident artist. She was drawing people, and pictures would go up on the walls. And then she needed a bit more money, so she started singing, and everyone said, you're a pretty good singer."
+    },
+    {
+      "timestamp": "00:51:28",
+      "text": "And so she went home and asked her mom if her mom would buy her a ukulele. And her mom said, who do you think you are? Kitty Wells. A good one. which I think it was a different time At the time that was probably a really sick burn Pity Wells She was the first female country singer"
+    },
+    {
+      "timestamp": "00:51:47",
+      "text": "to get to the top of the US charts With her song It wasn't God who made honky tongue angels Hmm This is the kind of song I'd like to listen to actually Yeah So hang on was it that she started singing at the age of nine And then people thought"
+    },
+    {
+      "timestamp": "00:52:00",
+      "text": "You know what would make this nine year old's voice Even better 20 Benson and a hedge is a day And then she got into it that way It wasn't that She started smoking at the age of nine And then at the age of like 14 or 15 She was like I need money for cigarettes So let me write a masterpiece"
+    },
+    {
+      "timestamp": "00:52:17",
+      "text": "Yeah exactly Calgary Alberta Canada That's where Brett the hitman heart is from As you would know if you had the WWE wrestling game Oh you would also know that If you spent any time with Dan over the last 20 years And then she started dating David Crosby From Crosby Stills and Nash"
+    },
+    {
+      "timestamp": "00:52:35",
+      "text": "And Crosby sort of invited Eric Clapton over to kind of check out this Joni Mitchell. And he said that Clapton sat mesmerized by her playing and her different tunings of her guitar. Although he also said that it might have been slightly due to the fact of all the weed that he'd smoked at the time. Afterwards he said, I mean, she's no Kitty Wells. She is, I mean, to watch footage of her in that period is spectacular. Her music is extraordinary. The songwriting is incredible and blue as well. just consistently voted as one of the greatest albums."
+    },
+    {
+      "timestamp": "00:53:07",
+      "text": "Yeah, it's one of her albums, which is always, you know, very near the top of greatest albums of all time. If you're a millennial, you know Joni Mitchell from the heartbreaking scene in the film Love Actually, where Emma Thompson receives a gift from her husband, Alan Rickman. And she thinks it's a necklace, but it's really just a Johnny Mitchell CD. Oh, yes. And are you saying that actually, that's quite a good present to give because she's an incredible, Chantinette's. Better than a necklace. Yeah."
+    },
+    {
+      "timestamp": "00:53:38",
+      "text": "But then it turns out he gave the necklace to his mistress. That's the thing. But if you're going to find out that your husband's taken on a mistress, that's a good present to receive. Oh yeah. Yeah. Joni Mitchell is great soundtrack for our ring. Right."
+    },
+    {
+      "timestamp": "00:53:49",
+      "text": "And did they split up because of that moment in the film? I don't remember. I don't think they don't. No, she takes, he takes her back. Basically. He very generously. She takes him back. She says, oh, he's just been a bit silly."
+    },
+    {
+      "timestamp": "00:54:02",
+      "text": "And you know, it's all fine. She doesn't quite do it like that. Well, it's not far off. Joni Mitchell split up with David Crosby by singing him a song at a party. Oh, really? So he had been cheating on her, and she wrote this song, which base,"
+    },
+    {
+      "timestamp": "00:54:15",
+      "text": "I haven't heard the song, but I imagine in the middle it goes, your fucking dumps, mate, whatever. But she played it once, and then he was like, oh, that's really good. And she went, and played it again,"
+    },
+    {
+      "timestamp": "00:54:25",
+      "text": "because he didn't get it at least. Do we know what it's called? Do we have lyrics? It's called the song about the midway, but I haven't seen the lyrics. I would have called it something like, knickers on the back seat or something that really, you know,"
+    },
+    {
+      "timestamp": "00:54:39",
+      "text": "makes them worried even as you're starting to hear the song. Oh, I see. When you overdo it on the metaphor so much, people can't quite... The Midway, sorry. Is that the river that goes through Chillingham that you're talking about? You're talking about the Battle of Medway? People who've never done their greatest tits album."
+    },
+    {
+      "timestamp": "00:54:58",
+      "text": "Okay. ACDC. You know the reason why? Because they're all greatest tits albums. Yeah. Thank you. Is that what they say? Or are you saying that?"
+    },
+    {
+      "timestamp": "00:55:06",
+      "text": "I think we agree. I and ACDC agree on this. Yeah, yeah. No, I think a lot of artists fear the slight kind of creative death of, you know, here are your best songs and that's it. But you can just do another, you know, Aaron Carter, his most requested hits. Who? Aaron Carter. Aaron Carter?"
+    },
+    {
+      "timestamp": "00:55:24",
+      "text": "Aaron Carter. Yeah, yeah. From like the American Backstreet Boys. He was the younger brother. He passed away, very sadly, not too long ago. Did he? Yeah. I didn't know that."
+    },
+    {
+      "timestamp": "00:55:33",
+      "text": "Because most, I was looking up at huge lists of greatest hits albums. Yeah. Long list. They're almost all called greatest hits, which I think is quite dull. You were looking at this list and then you stopped at A-A run. Yes. Anything about Zizi top, honey? This is why you keep coming up with crime things all good."
+    },
+    {
+      "timestamp": "00:55:54",
+      "text": "It's like, I've been busted by the alphabet, the English alphabet. I'm gutted. But his was called Most Requested Hits, which I think is a nice slight twist all the formula. And then the second one is called Come Get It, the very best of Aaron Carter which must be one of his songs or something, followed by Too Good to Be True. So I just think he's good."
+    },
+    {
+      "timestamp": "00:56:11",
+      "text": "Also are all greatest hits, every single one of them. He's got three albums of greatest hits, so I think that is. Wow. According to Reddit, and it does seem to be true when I checked it, Kiss have had more greatest hit compilations than they have studio albums."
+    },
+    {
+      "timestamp": "00:56:25",
+      "text": "Okay. They've had 20 studio albums, and as far as I could see, they've either had 21 or I counted 23, greatest hits albums. They did a farewell tour in 2000 and 2001 and since then they've done 13 tours. Hell yeah. Isn't that amazing? Do you know the biggest selling album in America of all time is the greatest hits? I'm going to guess Abba Gold. Well that's because you've only got to A, B and the Alphabet. Oh no. It's happened again. It's the Eagles, isn't it? That's correct."
+    },
+    {
+      "timestamp": "00:56:58",
+      "text": "It's the Eagles. Now, so this is their greatest hits album. Who here can name a song by the Eagles. How to California? That's not on the greatest. No! Isn't that incredible? This is from a period where they hadn't yet written that song."
+    },
+    {
+      "timestamp": "00:57:12",
+      "text": "They must have felt like chubs coming up with that song after they've done it. We've already done a greatest hit album. Oh man. So this is now not, Canon, this is not a greatest hit. And honestly, I've listened to a few Eagles albums. It's their greatest hit."
+    },
+    {
+      "timestamp": "00:57:27",
+      "text": "The best-selling album in the UK is the greatest hits. Queen. Queen, you got it. At the same time, they released Greatest Flicks, which was a video of all their best songs. Very cool. And Greatest Picks, which was photographs. That's really clever."
+    },
+    {
+      "timestamp": "00:57:45",
+      "text": "Who here owns Queen's Greatest Tits? Yeah. I've got my hand up. Oh my God, on cassette and then CD. So I own it and Dan owns it. And that is, it makes sense because one in four British households owns Queen's greatest hits. Really? It's still, really."
+    },
+    {
+      "timestamp": "00:57:59",
+      "text": "I think probably still. There probably is some generational churn happening. But in 2021, Abargold, which is the other huge greatest hits album after Queens, it got to a thousand weeks in the top hundred chart. That's amazing. It's a perfect, perfect album. Yeah. Perfect band."
+    },
+    {
+      "timestamp": "00:58:16",
+      "text": "Well, it's no highway to hell. But it's, uh... By the way, A-A, A-B, and then A-C-D-C. Anything about Adam and the Ants? There was an album. that was released in 1977 by the BBC called Death and Horror. Basically, you know how you can just buy incidental sounds, right? Sorry, sorry."
+    },
+    {
+      "timestamp": "00:58:41",
+      "text": "Door creaking. Yeah, door creaking. Sorry, the BBC would have like an archive of incidental sounds. So this was all the sounds of horrific things. Tracks included head chopped off, assorted creepy creaks, red hot poker in the eye. And it was a top 100 charting album. Goths went crazy."
+    },
+    {
+      "timestamp": "00:59:00",
+      "text": "Yeah, exactly. Team, goth. And then this is the... This is the one I'd love to get, but I don't think it necessarily would have charted. But there was an album called Recorded Delivery by a guy called Yannick Schaefer. So basically what he did was he put a dictophone inside a package and he put it through the Royal Mail. And he recorded the entire journey that this dictaphone went on as it was traveling through the parcel going through the mailbox being picked up, put in the van. And so what you hear is whistling postmen, just sort of walking along."
+    },
+    {
+      "timestamp": "00:59:29",
+      "text": "You get sliding van doors. There's lots of clunks. You get early morning male workers talking about their dirty sex lives. There's a sudden unexpected shout of anus. That was me. And 500 of them were printed. Brian Eno said he wished he thought of it first. It was a..."
+    },
+    {
+      "timestamp": "00:59:51",
+      "text": "It's very Eno, isn't it? It is very, very Eno. The first greatest hits album ever. Johnny Mathis. Johnny Maffis. In fact, if you look in the Oxford English Dictionary, it's the first. use of the phrase, Gracist tits."
+    },
+    {
+      "timestamp": "01:00:04",
+      "text": "Did he write a singer song called Chances R, which was in Madman? Well, chances are he did if you remember it. He was late 50s, wasn't he? So it was perfect timing for Madman."
+    },
+    {
+      "timestamp": "01:00:15",
+      "text": "Yes, he was. I looked him up. He's still alive, Johnny Mathis. He's sort of mid-90s, I think. He's old, but he's still kicking around. He was a high jumper for the US Olympic team before he became a singer. But he was kind of singing in the clubs and stuff."
+    },
+    {
+      "timestamp": "01:00:30",
+      "text": "and the head of popular music at Columbia was on holiday in San Francisco and heard him singing and sent a telegram to the company saying have found phenomenal 19-year-old boy who could go all the way send blank contracts Oh, that's great And he was Olympian at that time at 19? He'd been trying out"
+    },
+    {
+      "timestamp": "01:00:52",
+      "text": "He got the call to go to the trials This is a cool thing. In 1956 he got the call to go to the Olympic trials but he had just got his recording contract He said to his dad, should I become a high jumper or should I become a musician? It's annoying, isn't it when people are real class? Not one thing but two. You could do both Vanilla Ice as a rapper and a real estate agent."
+    },
+    {
+      "timestamp": "01:01:10",
+      "text": "You could do it. Well, Cody Simpson, the Australian singer-actor, also swam for their Olympic team. Oh, yeah. And also is it Gina Davis who almost qualified for archery for the US? Get away. You could do both. Okay, you can do both. And it's fine that I've done neither."
+    },
+    {
+      "timestamp": "01:01:28",
+      "text": "Johnny Mathis. It wasn't actually any greatest hits. It was just something they rushed out because he was about to go on tour in the UK. He didn't have time to record any new tracks. So they just bundled together his first four recordings. Oh, is that right? Called them Johnny's greatest hits. It was in the charts for nine years."
+    },
+    {
+      "timestamp": "01:01:44",
+      "text": "So they manifested it. Pretty much. Yeah. The greatest hit, Australian influxing. Exactly that. And there's a reason why you'd love him, James. He used to play golf 300 times a year. Oh, he sounds great."
+    },
+    {
+      "timestamp": "01:01:56",
+      "text": "He's a great guy. And he has a cookbook library. he loves cookbooks so much. He bought thousands of them. He had off his kitchen, his own library of cookbooks. And in 1982, he wrote his own cookbook called Cooking for You Alone, which is all about meals for one and how you can make them delicious and lovely. Isn't that?"
+    },
+    {
+      "timestamp": "01:02:14",
+      "text": "I just think he seems like a really nice, sweet guy. It's so sweet. I know. That does sound nice, but if you think that you're going to get a necklace for Valentine's Day and you get the meals for one book, that's a real sign. That's how Jani Mitchell dubbed her next boyfriend. Okay, that's it. That is all of our facts."
+    },
+    {
+      "timestamp": "01:02:38",
+      "text": "Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our various social media accounts. I'm on Instagram using the name Shreiberland, Andy. I'm at Andrew Hunter-M on Twitter. James. My Twitter is at James Harkin."
+    },
+    {
+      "timestamp": "01:02:54",
+      "text": "Yep, and Olga. I'm at Colga 300 on Instagram. Nice. And also do make sure to go and see. see Olga live prawn cocktail. You're on tour right now. Prong cocktail is the name of my show. You'll just be eating it. Don't stop. And I promise it's going to be 100% high quality prawns and never a cheap meatbox. Yeah, or if you want to get in contact with us as a group, by the way, you can go to At No Such Thing on Twitter. You can email us on podcast at qI.com"
+    },
+    {
+      "timestamp": "01:03:21",
+      "text": "or you can just go to our website, No Such Thing as a Fish, if you want to check out all the previous episodes because they're all up there to do that. Otherwise, just come back next week. We'll be back with another episode and we'll see you then. Good. Bye. Enous! You could be a lot Easter egg."
+    }
+  ],
+  "transcript_text": "[00:00:00] Hey everyone, welcome to this week's episode of Fish. Before we get going, I just want to let you know we have a very exciting comedian joining us on the show today. So Anna's away for this ep. But in her place, we are joined by the brilliant Olga Koch. Olga is the perfect fish guest. Not only is she incredibly funny, but she's also an absolute thunder dork. She studied computer sciences. She speaks three different languages. She has a very confused and unplaceable accent like I do. And she is absolutely blitzing the comedy scene at the moment. You will have a seen her, no doubt, on shows like Live at the Apollo, she's done pointless celebrities, and of course, she's been on QI. But the best place, the absolutely best place to see Olga, is live in person at one of her stand-up shows, and she is currently on tour with her new show, which is called Prawn Cocktail. She's traveling the UK, and then, for any Aussie listeners out there, she's heading down under. So, Ozzie's go and see her. She's absolutely brilliant live. And if you want to get a taste of what a full show by Olga is like, she's actually got a few specials up online. So if you go to YouTube, you're going to be able to see her 2020 show Just Friends.\n\n[00:01:03] The full show is there. Check it out. And then on Amazon Prime, she has another special called Homecoming. Go to her website generally. Rock and Rollga.com has a list of all the things that she's done from podcast to other bits and pieces. But for now, here she is on No Such Thing as a Fish. On with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hobern.\n\n[00:01:42] My name is Dan Schreiber. I'm sitting here with Andrew Hunter Murray, James Harkin, and Olga Koch. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, and that is Olga. The world's best prom cocktail eater practices his technique with budget meatballs. Wow. I would say that a prawn is different to a meatball, different enough that I wouldn't think it was useful for... My training montage.\n\n[00:02:14] I accept what you've just said, and I challenge you to a better replacement to a prong. A better budget replacement to a prong. Can I give you a better replacement to a prong? Please. There was a guy called Stefan Gates who wrote a book about eating insects, and he said if you don't have any prawns, let's say you don't live near the sea, then wood louse is a good replacement. It will taste about the same.\n\n[00:02:37] And budget too. Very much all over the garden. Yeah, yeah. Exactly. Okay. I don't think I can even. Picture of woodluck. Is that a caterpillar?\n\n[00:02:44] It's like a pill bug? No. I want, no. I regret having a... So, insect armadillo. So they're a little gray guys. Okay. So then if you deshell it, it is still soft on the inside.\n\n[00:02:54] Yeah, yeah. It'd be very fiddly to deshell, wouldn't it? For the number that you need as well for the challenge. No, I think maybe I'm rowing back and saying meatballs's fine. As in that probably is the best. Maybe crab stick? Yeah. I mean, this guy probably knows what he's.\n\n[00:03:07] Do we know his name? Yes, his name is Jeff Esper. Okay, okay. Also, a very interesting thing about his. about his technique is that he tries to mimic a brown cocktail as much as he can. So he does eat them cold and he eats them tossed in cocktail sauce as opposed to like marinar or whatever you'd have your meatballs with. There's this amazing video of him online where you see the practice run where he uses the meatballs. And it's so weird. He's just on his own in his laundry with a camera running\n\n[00:03:33] and he's about to eat eight minutes worth of like meatball in his face. He says things like so exactly he's going to use the same source. He's going 90% in the video. So I'm going 100%. He's giving it 90. You don't want to just for a YouTube. Exactly. So he's going 90 and then he says really I should be doing this outside because I think the competition is outside and I need to acclimatized. So in which geographical location is this happening in? If it's not the equator or the Antarctic, I don't think he needs to acclimatize. Well that's the thing so it was too cold for him to do it that day so he didn't. But that factors into it. I guess it messes with your like capacity to swallow your speed. Yeah.\n\n[00:04:09] Can I explain one more reason why the meatballs were fine as a substitute? It's because the sauce is the most important part of this particular competition. Because it is a seafood sauce, but it's really spicy. It's supposed to be the spiciest seafood sauce you can get. Someone who had it said it's like being electrocuted when you eat it. And so really he's more about getting through all this spicy sauce than it is about getting through the prongs. Oh, his face almost melted right at the end of the video. I watched all eight minutes.\n\n[00:04:37] And the final mouthful, he's on the brink. of vomiting and you watch for about 30 seconds. Which way is going to go? Yeah, yeah, it's really close. Can I give you a few of his records? Please. Because Jeff Esper, he's a big, big player in what is known as the MLE, the Major League of Eating. It's an official body like you'd have the baseball league or the NBA.\n\n[00:04:57] The MLEE exists. So he's the record holder at certain points. He may have been broken since he set them for spam, eating 9.75 pounds of spam. Chicken wings, Fortune Bay Indian Taco. pretzels, pizzas, Jack's, donut holes. Donut holes. Oh, those are a thing, aren't they?\n\n[00:05:16] Sorry. Yay. Yeah, yeah. It's the bit that used to be in the donut. It's not just the end of tea. He's eating them all. That's why they're not there. Yeah, and Texas sausage.\n\n[00:05:26] In me, it seems like, you know in Olympic swimming how people get loads of medals because you get a medal for 100 meters, for 50 meters, for 200 meters, is all basically the same thing. It feels to me like once you can eat a load of shrimp, then you could probably eat a load of donuts and you could probably eat a load of everything.\n\n[00:05:42] He's only got one skill and he's getting all these records. I think it's all to do training, right? Well, I think in Major League eating, if you are some plucky kid out of nowhere, the best things to go for are things where you can innovate. Because there are some which are volume-based. I see. We just have to drink as much honey as you can.\n\n[00:06:00] And that depends on how big your stomach is. Exactly. That is just about slowly. You do have to do that competition in just a top, no pants, poo. But if you're, if you're some like, you know, upstart, you might be able to develop a new technique. I see. So before we started today, you just had a cheese and, what was it? Celery sandwich. You might come up with a new way of eating that, like taking the celery out first. Improving the sandwich by taking out of the sandwich.\n\n[00:06:29] I've already had a lot of slacking off about this sandwich, okay? But you might have exactly a new way to eat corn on the cob faster. You can attach you to like a black and decker so it spins round. So those are the ones where if you're trying to get into this game and why would you? That's the thing to do. Arriving in New York City on a Greyhound bus with just a corn in your bag. And do you think that you start by going to like breakfast restaurants that have those like breakfast challenges that put you on the, put your photo on the wall?\n\n[00:06:59] And then there's like a Tom Hanks in Elvis like agent in the corner washing. Yes. Smoking a cigar. I went to a breakfast place the other day that had a breakfast challenge. You had to eat this entire, this huge list of like 40 sausages, 20 eggs. It wasn't as big as that, but it was, it looked doable. He had 20 minutes to do it. And if you managed it, you got the meal for free or you had to pay for the whole thing.\n\n[00:07:20] And there was a leaderboard, right, that had the current champion, Pete Doherty of the Libertines. No. What? Yeah, yeah. Is that the breakfast? That was in the newspapers when you had that big breakfast, isn't it? Yeah, exactly. So no one's beat it since?\n\n[00:07:32] No one's beat it since, no. Wow. I once went to one of these restaurants for like burgers and stuff. And my sister ordered the huge sort of challenge thing. She's quite small, my sister. And she was really getting through it. And the waiters are all looking at her going, bloody hell, she's doing good.\n\n[00:07:46] And I just ordered one hamburger. And it was really small. And I ate it really quickly. And I was like, I'm going to get another hamburger. And then I got my sister to order it. So she's wolfing down all this thing. And she went, can I have another hamburger please? I read her an interview with Jeff Esper.\n\n[00:08:03] Oh, yeah. His favorite movie is Cool Hand Luke. Oh, I haven't seen that. Well, in it, there's a guy who has to eat 50 eggs in an hour. And that's, I think, why he likes it. To Paul Newman? Paul Newman, yeah. No, hang on.\n\n[00:08:16] Paul Newman then opened a very successful line of mayonnaisees and salad dressing. Was that to eat with eggs there again? Was the film viral marketing for Paul Newman Runch? First ever. Yeah. Because the fastest way to eat 50 eggs is actually whip them up in the mayo. Emulsed them. Oh, really?\n\n[00:08:31] He doesn't do that in the movie. He just nods. on them. But in the TV ads, he would be walking saying, I like my 50 eggs. 50 eggs per bottle. Come on. That's amazing. Anyway, this interview then asked Jeff Hesper, what a movie of his life would be called and he said, cool hand Jeff. So, that's a good name. You know, he's quite a witty guy as well. Yeah. Poor Jeff. We love it, Jeff. But then in 2023, the second and third place in this shrimp eating competition were Miki Sudo and Nick Weary and they're married to each other.\n\n[00:09:04] Cool. Did they meet doing the lady and the tramp? But it's like an 18 foot long sausage and they're both slowly eating towards each other. I think they met in the competitive eating sphere. That's adorable. We locked eyes as we were both throwing up. A hundred thousand marshmallows into a bucket. And they said they have a child, the two of them, and they said the child can do anything they want when they grow up except become a competitive eater.\n\n[00:09:30] Why? I think they're just in it and they don't feel like it's a good job for time. Feels like they're worried it's going to be a Darth Vader situation where the child's going to knock him off. Yeah. What I will want to say about Mickey Sudo is that she is, I believe, the reigning champion of the Nathan's hot dog eating competitions, women's category. And Nathan's, the Nathan's Coney Island hot dog getting competition is really the biggest competition in the competitive eating league and the one that put competitive eating on the map. Major league eating. It was born out of Nathan.\n\n[00:09:57] There you go. But it's only been split by gender, I believe, since 2011. before that women used to compete with men together, and they used to place in the top three routinely. And then they split them, and I know all this from a book called Rod Dog by Jamie Loftus. It's an incredible book. I recommend it to everybody.\n\n[00:10:14] And basically they were like, it's going to be the same, it's going to be the same. But the men's one is televising the women's isn't, and women get less prize money. Oh, that's actually quite sorry, the men's is televised and the woman's isn't? Yeah. That surprises me.\n\n[00:10:25] Or I think it would be the other lay around. I would think a lot of perverts would be like nothing more than to see a woman eating 75 hotbells. It's either not televised or televised on like, ESPN 3 as opposed to ESPN 1. It's something like that. It sucks. And it is the only competitive eating, which is gender split. Sausage eating.\n\n[00:10:40] Right. It's the only one. Oh, really? All the others are mixed grill. Oh, I was like, is that an innuendo? You're like, no. That's up to the audience to make the innuendo there. I'm just trying to picture you pitching why it should be back on TV and really,\n\n[00:10:53] isolating the pervert market here. I would take up big bucks. I would do an incredibly subtle pitch, which made it very, very clear who's tuning in. Joey Chestnut So he's managed 76 Hot dogs in one go And I think I think we may have even mentioned before\n\n[00:11:10] The thing to do is to dip the bun in the water So it gets all Slides down Slides down But I love this The 1984 competition I think this was Nathan's I'm not sure,\n\n[00:11:17] It might have been a different league one It was won by someone She was a 17 year old West German judo What do you do? Judo artist Judoka Judoka\n\n[00:11:25] And she had never had a hot dog Before the competition No But then that's that And you were like, oh my God, this stuff is incredible. I could eat a million. Yeah. And that was her...\n\n[00:11:36] That's incredible. Was it like she looked at it and she'd never seen one. So she didn't know how to eat it. And she was like, maybe I just shoved 10 of them in my mouth. She innovated. Where did they find a German who's never had a sausage? Brilliant. Apparently, Chessnut, Joey Chestnut was saying,\n\n[00:11:55] once you have that many hot dogs, you immediately need the toilet. and the problem, they don't really digest fully. So you kind of shit hot dogs. Clean out. Clean out. That's what he said. How can you tell the difference, realistically? I think when you feel a solid hot dog coming out your butt 75 times.\n\n[00:12:15] Because the bun also comes out. His shit is inside the bun. Let me tell you a little something about corn. Also, basically, the Nathan's hot dog eating contest was put on the map. in the mid-2000s by a Japanese competitive eater called Takero Kobayashi, Takero Tsunami Kobayashi, and then he basically made it super popular in America, and then Joey Chestnut was introduced to him as like the American down-home alternative. And so, again, it's the Nathan's hot dog eating competition is a story of sexism and racism.\n\n[00:12:49] And hot dogs. We advertise them, they mostly stress the hot dog part of it, don't they? Fine print, fine print. If only we could get pervert into that fantastic strap line. Oh dear. Do you know what chipmunking is? You might have seen this in your... So I would think it's like...\n\n[00:13:05] Oh, okay. Oh, you know what I hadn't thought of it and then Dan just did an action. I did an action. Yeah. It's storing in your cheeks. That's it. That's it. Now. Were you going to say it was like getting naked and dancing?\n\n[00:13:16] I just think he's speaking in a very high pitch voice. Yeah. As you might expect, given what we're talking about, it's absolutely dad's thing. The press conferences would be great, though, in the lead-up part of that. You're going down. No, it has to be in your mouth, right? The food before the count ends, right?\n\n[00:13:34] So if you're counting down, you know, you've got 10 minutes to eat this many whatever's, the food has to be in your mouth, and then you get 30 seconds to swallow it. So often the photo-finished bit is just, right, just get all of this in your mouth. Yeah, yeah. And as long as you get 30 seconds after the clock stops. There used to be, all you had to do was swallow it in a timely manner. That's all it said. And it didn't say it was exactly 30 seconds.\n\n[00:13:56] And then there was a guy called Crazy Legs Conti, who lost a competition. because he couldn't eat it in a timely manner and they thought we're going to have to make a proper time. I think that's right. It's like I've started until I'll finish or the bell, the quiz bell goes. Would this make sense of the final few seconds of Jeff Esper's practice for the prawn cocktail?\n\n[00:14:14] Because he goes over eight minutes, he stops the clock and he has a mouth that is absolutely and I'm going to spit it out and he's, so that's what it is. He's using his 30 seconds. He's chip monkey. Clever. Crazy legs. Just probably mentioned him, James. I read an article, it's his legal name.\n\n[00:14:30] Crazy Legs Conti. He compares, I'm quoting here from the article, compares professional eaters to musicians. He says the way eaters move and shake is an effort to get breath out of the esophagus, stomach and lower intestine as trumpeters would with their instrument. That's interesting. You know circular breathing where you can play like a didgeridoo without breathing because you breathe through your nose and out of your mouth. Do you reckon they try that? That could be a new innovation. Is the breath sausage in this?\n\n[00:14:55] I mean, you shove as much sausage in your mouth while breathing through your nose is what I'm saying. Maybe, yeah, yeah. Right. But like maybe the sausage in the nose is the Fosbury Flot moment that no hero has managed to achieve yet. Oh, right. You found two more entry points. Yeah. Right.\n\n[00:15:09] Interesting. The perverts. They're tuning in. Okay, it is time for fact number two, and that is James. Okay, my fact this week is, in the archie language of southern Russia, a single verb can have 1,502,8,000. 39 possible forms. Is that normal for most languages or... It is not normal.\n\n[00:15:38] How I would say... What's a close second do we think that in English, like to podcast, right? So you podcast, she podcasts. Yeah. I was podcasting. I podcasted. And there's not much else because they were all just... I would have been podcasting.\n\n[00:15:53] Yeah, I guess. But then that's kind of the same ending. No, this is tenses as well. Okay, okay. So in Russian, obviously, you would have I, you, she, they, all. that kind of stuff, but also you have the past tense, which would be different for masculine and feminine. You would have the future tense. You have gerons. You have participles. You have all sorts of stuff in Russia, but it's manageable because I've studied it. It is manageable. But in Archie,\n\n[00:16:16] it just goes crazy. You have, as well as masculine and feminine, you have different terms for domestic animals, for wild animals, for young animals, old animals. So if you say the pig podcasted, you would need to know if it was a wild pig or a domestic pig to know how. Which is always my number one. You have a different, if it's insects, it's a different ending. If it's mythical beings, musical instruments, serials, abstract concepts, they all have different endings. Everybody's got a podcast. How does anyone learn it?\n\n[00:16:54] Or get anything done? I think you just, most of it you just naturally pick up these kind of things if you live in it. Yeah, because before you get to that word, you'd have to. have to stop and investigate. All right, wild or domesticate. Alive or dead. But also, like, the number of things, so if it's one thing or two things or many things, it's different.\n\n[00:17:15] Imagine solving a crime based on a phone call because you know that the verb was referring to a thing and you can investigate what that thing was. We know that they have a wild insect. Who has a podcast. Oh, that's nice. And also it's different depending on how you, know it's being done. So if you know it's happened, it's different. If you're speculating\n\n[00:17:36] it's happened, it's different. If you're admiring something that's happening, it's different. If something's forbidden, it's different. And you can mix and match all of these different things to get to 1.5 million. I admired the forbidden, tame young locust podcast. But you think about that. You had to use so many words to say that, right? But they would be able to say it in one word because they would know all of the endings. They'd be like, well, that's implied by the way you've said. So Locust stays the same, like all of that stuff. You could just say the locust podcast is, so you just have a verb and a noun,\n\n[00:18:07] and you would get all of that information by all the different endings. It's like anti-German. It's the most interesting. Yeah, yeah. So as a result, has this language become hugely popular and it's spoken by tens of minutes. It's spoken by very, very few people in Dagestan in Russia, and it's about 20 kilometers away from the village of Sovkla, Adnaya, who do you remember?\n\n[00:18:27] It was the place where everyone knows how to type row. Oh, no way. Yeah, there's a village in Russia where everyone knows how to tightrope and it's just over the mountain from there. What an amazing pocket of the planet. This is. Isn't that amazing? This is incredible. And I should also say that, Andy, once you've learned all of these one million different forms of standard verbs, that helps you with about 170 of the most common verbs, but there are more than a thousand exceptions, which you then have to learn on top of that.\n\n[00:18:53] Oh, and the language can be written in Latin script or in Cyrillic, and in either way, the language has got 74 letters. So you need to learn 148 letters. What I was going to ask, how many letters can there to be for there to be this many endings? Because you would just run out of letters for even combination. Yeah, this is why I failed my archie GCSE oral. This is it? That's why. I'm so annoyed.\n\n[00:19:16] So, yeah, it's just a very, very complicated language. And they exist. Have you heard of the Foreign Service Institute? I think they're an American outfit. Yeah. like French is category one you know like romance languages because they're\n\n[00:19:36] English borrows a lot We derive a lot yeah yeah and you already know that's easy for English people completely yeah yeah and then category three is Indian various Indian languages in Swahili category four it takes\n\n[00:19:47] 44 weeks to learn it's sort of going up in the number of weeks so Russian Hindi Tamil How many weeks is it supposed to have taken me to learn Russian don't worry about it Well it's taken me five years and I'm intermediate\n\n[00:19:59] Yeah that's about right Category 5 is Mandarin, Cantonese, Japanese, Korean, Arabic. Category 2 only contains German. It's completely in its own. English is a Germanic language. I know. I think they decided it's a bit harder than French, but it's the only one.\n\n[00:20:17] It's just there on its own in their categories. Actually, German does have quite a lot of conjugation, doesn't it? Because you speak German a little bit. It's got four basic cases. Yeah. Like, it's not, it's all right. It's a bit, it's a bit, because like French and Spanish and Italian, and they're all kind of debased Latin, if you like,\n\n[00:20:32] because they just cut out all the complicated endings and, you know, and it's because as Latin spread. Yeah, I guess it's like how to speak it correctly, because I speak fluent German, but I can't conjugate shit. I'm always like, you know what I'm saying. But do you get it right? I don't know it right, even though you. Like sometimes I'll be like, I'll know a noun, but I won't remember its article,\n\n[00:20:52] so I'll like gender it just want to guess alone. And I'm sure that I'm sure whoever I'm speaking to will kind of guess. But I always get worried about that because if I get the, gender of a noun wrong. They won't know if I'm saying Das Table, whatever. I know it's not table. I can't remember the love of table either. But like, I think people... And you're just like...\n\n[00:21:08] Das tish? Das tish. Dast tish? It doesn't change the fact that it's a tish. So it's fine. Relax. Because I read an article where they interviewed 56 native French speakers and they asked them to assign the gender of 93 masculine words\n\n[00:21:24] and they agreed on only 17 of them. And they were asked to assign the gender of 50 feminine words and they read on only one. Wow. It's just vibes. I love that. You fixed German basically for anyone struggling. I think that's a good thing in all languages really is that if you just try, people will accept it. Yeah, that's true. The Russian language has three, three genders for any noun, but if you get it wrong, I'll still know what you're talking about. Sorry, maybe I'm making a lot of German and Russian people really angry. Where is Archie on the list? Archie is not on this list.\n\n[00:22:00] I think there's a secret category. But Russian is difficult because the stress can matter, right, in words. And that can make a big difference. So you can see it written down, and you wouldn't know necessarily the difference between, say, Mukha and Mukha. Right. Where one of them means flour and the other one means torture. Yeah.\n\n[00:22:18] Oh. So if you just see that written down and they don't have the stressors on. Well, if you have celiac. That kind of flower. Yeah, yeah, yeah. I was thinking of the kind of flower. Again, oh my God. Oh, flower, flower.\n\n[00:22:30] Yeah, yeah, yeah, yeah. I don't think, is there any way of telling verbally, flower? No, context only, I think. Flower. Maybe Irish accent? I always say floor. People mistake it for the thing we won't. Valentine's Day is always very disappointing, though, for your wife, isn't it?\n\n[00:22:45] It's a bloody floor. There was a woman, oh, I wish I could remember this now. Oh, God. There was a woman in America who was arrested for throwing a pancake at an American president. And I can remember which presidents it was, but when she was arrested, they asked her about. it and she said she couldn't find any flowers but this contained flower and she thought it would be just to say was it really was this no like a hundred years ago a hundred years ago easy do you remember when i made a karate magazine news article for spitting on someone and that was a misunderstanding of word as well yeah this is in\n\n[00:23:18] hong kong i was in karate monthly uh that was a news story rather than that's like one of those that's where i know you from what is this real yeah i was i was um i was studying uh kempers at the time, which is a former martial art, and I was sparring with a kid. And the guy who's training me, he's called me Danny, and he had a bit of a lisp. And he was yelling, spin on him, Danny, spin on him to spin kick him. But I heard spit on him, Danny. And I literally just swat on his face. No.\n\n[00:23:47] And they paused the fight. And they were like, what was that? Is this true? Yeah, yeah. How old were you? 10, 11? I can't believe. Like, honestly, Dan, I've known you for 20 years.\n\n[00:23:58] Every week. It's amazing, isn't it? Same thing. It was, yeah, it was in Hong Kong and it was... You were in a karate-based newspaper. In magazine. Yeah. Sorry, it's...\n\n[00:24:09] I guess it's one of those, like, the funny stories kind of bit of it. Yeah, yeah, yeah. It wasn't like international karate news. It wasn't headlight. No, I like it. What's the easiest word on the planet? The easiest word. Yeah.\n\n[00:24:20] So is it the most universal? Mama. Not bad. Hey? Hey. Nearly, closer. Huh? Bingo.\n\n[00:24:28] Oh. I knew it. Sorry, I knew it. She speaks three languages. Of course she is. It'd be incredible if you would just, you genuinely hadn't heard the question because you weren't listening.\n\n[00:24:37] Yeah, we can edit, fix it in post. Huh? Yeah, huh? Every language has a version of, can you please quickly clarify? And in every language, it's, huh? Because it would be very annoying if you had to say a sentence to say,\n\n[00:24:48] can you quickly clarify? So that's it. And it means that, you know, it can de-escalate tension between you and someone else, even if you don't speak the same language. But also, does that also mean that the inflection of a question is the same in every language.\n\n[00:25:02] No idea. Because it's not really a sound much, it's much more, it's literally, in my mind, it's just the sound of a question mark. I think actually that's not true because some languages have question words, don't they? Like English and Russian do, like who, what, when, all that kind of stuff. But some languages, it depends on the inflection about whether it's a question or not a question. But English has that a bit, too, doesn't it? You can say, I live here.\n\n[00:25:25] And that's a question. Yeah. Yeah. Yeah. Well, that's an Aussie inflection as well. That's true. I live here in Australia. We had that thing, David Crystal, the linguist, said that the Aussie inflection at the end was a useful thing because it was both a, I understand the statement. But I also am asking you, it's up to you. You don't need to pick it up as a question, but it works as a question.\n\n[00:25:47] You can, if you like. Yeah. That feels like a mind game you'd play in like a corporate interview. Yes. Yeah, exactly. You got the job? Just as they're walking out of the dark. We find them guilty? I need to get something off my chest.\n\n[00:26:07] So the closest, so far, so far I've ever been to getting canceled is thanks to a joke that I wrote about the word empathy in Russian. And so the setup of the joke is the Russian language doesn't have the word for empathy. Can you imagine what that feels like? I couldn't. And so I posted this joke online in the avalanche of Russian people. going to correct me to say that there is actually a word in Russian for empathy and you're actually stupid and dumb and not a patriot. But I would say 90% of the corrections were the word for sympathy, obviously,\n\n[00:26:42] that is very easily checked through Google Translate. So basically the word that they keep suggesting is sympathy, which is sympathy, which is close to empathy, but not quite. Then they'd say so stradania, which is compassion, which again is close, but not quite. And then very rarely they will say Empatia, which is essentially the same sort of like, I guess, Greek root for it, empathy, impatiya, which is a word that has not been widely used in Russia up until I want to say two years ago. And I know this because there's loads of articles in Russia that are essentially titled, what is this word Empatia? And what does it mean? And so the setup of the joke, the setup of the joke, I feel like I'm in court right now.\n\n[00:27:20] The setup of the joke is that I do. Why do you think this is funny? I don't even know. where I'm going with this, but I just think that it's really funny because they think that I'm sort of trying to smite the Russian people or say that Russians don't understand what empathy is, and surely that's something that you\n\n[00:27:36] can explain in more than just one word. And to sort of, I guess, make right with the Russians, I'll share a Russian word that we have that you don't in English. Oh, okay, yeah. And that's Lista pat, which is the word for falling leaves. So it's like rainfall,\n\n[00:27:51] we have leaf fall. Oh, that's good. And you don't. Say the word again? You're stupid. Yeah, but we can actually have some feelings about it when we see it. If you're speaking to a Russian, you can tell whether they're a virologist or not, by the way they talk. And that is because in Russian you have animate and inanimate nouns, right? The endings can change up whether something's alive.\n\n[00:28:18] And so virus, virus in Russian, is most people would say it's inanimate, but virologists, always think it's alive, a virus. Because a virus, is it alive? Is it not alive? Actually, nobody really knows. But virologists think it's alive, and normal people tend to not say it's alive. So if you say,\n\n[00:28:38] on Dalmanier coronavirus, then that would mean he gave me coronavirus, but that would be a person who's not a virologist saying it. But if you said, On Delminier Coronavirusa, that would be animate, and it would be a virologist saying it\n\n[00:28:54] because they think viruses are alive. And how useful have you found this, James, in your life? Again, I think that you could use that to solve a crime. Yeah. Who was the murderer? It was, it was a virologist in the library with a candle stick. Probably with the anthrax. Do you want to know a fun fact?\n\n[00:29:15] Yeah. So you know how like... Not on this show, but you've come to the wrong place, ladies. So do you know how like French kiss is making out? Oh, yeah. Or like Irish goodbye is leaving. about saying goodbye or a French exit as well. But in Russian,\n\n[00:29:28] a buffet is a Swedish table. And a family of three, which is like two women and a man or whatever combination of genders in a thruplet is a Swedish family. Get away. So Menagerie, which is what we would call it. I don't know because like three people living together.\n\n[00:29:45] It's not a threesome. It is like it is a relationship of three. A thruple. I'm the only one still saying manager twas. Everyone else said truple. I'm not there. All the apps. Or the pervert apps.\n\n[00:30:01] Menagerdae seeks loves ESPN, nostril-based dog eating competitions. Either, this is for Olga and James. Phehol Dandrov. Is that a... Don't speak. I'm not a native Russian speaking.\n\n[00:30:17] But you love dirty words. That's true. Yeah. I've never heard of P. I went on a site where it was sort of like weird, rude words from Russia And this bottom, have you ever heard of that word before? I have never seen this in my life.\n\n[00:30:31] I didn't move from Russian when I was 14, so maybe like it's a sort of high school word. That word is a 15 certificate. So you wouldn't have known about it. See, I don't think it's a real word, but it was on a site. What does it mean? It kind of doesn't really mean anything. It's just a beautiful word for when the pollen falls from the trees. I can't believe we don't have this.\n\n[00:30:54] word in English. Amber color. Do you know the Bickle language of the Philippines doesn't have, it has swear words, but people don't really use them because it has a complete other vocabulary if you're angry. So you speak normal Bickle, blah, blah, blah, blah, blah. But as soon as you're angry, you just change all the words that you use so that people can tell you're angry. Oh, that's great.\n\n[00:31:17] So you're saying the same stuff, but it's different, using different words for it. Using different words, yeah. So it's a bit like with my daughter when she does something. I normally call her jelly, but if she does something bad, I go, Angel! Yeah. Yeah. But it's a completely different vocabulary, Ethan. Yeah, yeah, yeah.\n\n[00:31:33] I hate to bring it up, but again, such beautiful evidence in a core case. Yeah, yeah, yeah. Yeah, it's like, was it a crime of passion? I don't know! That's so good. Okay, it is time for fact number three. That is Andy. My fact is, if cars had improved at the same rate as computers since 1971, they would now be able to travel at\n\n[00:31:57] nearly the speed of light. Wouldn't that be cool? And if my grandmother had wheel. She would also be traveling to the speed. They would also be smaller. The carts, right? Yes, they would be about half an inch long, unfortunately. And this is based on something that Gordon Moore,\n\n[00:32:16] who was the co-founder of Intel, huge computer company, said in 1965, he noticed that the number of transistors you can fit on a chip, a computer chip, had been roughly doubling every year for the previous 10 years. And he said, this is amazing. And he thought it would keep going.\n\n[00:32:32] He thought the principal would apply. Maybe it would be every two years the number you could fit on a jet doubled. But he said, I think it's good for at least 10 more years. And it actually has stayed true for about 50 years at least since you wrote that. And it's slowing down a bit now, but cars would be able to travel at the speed of light\n\n[00:32:48] because the number of transistors you can fit on a computer ship now is so huge. The numbers are just mind-boggling of how much things have improved. I suppose the thing was that we got to a speed with cars where we thought there's no point going much faster. Is that right? Because of safety reasons and stuff like that. I suppose so. Obviously, if we moved to the speed of light, then we'd also go infinite mass.\n\n[00:33:10] Oh, that would slow you down? No, it wouldn't slow you down. Yes, it would. You'd break through the car door. Well, no, because I saw an interview with Lewis Hamilton the other day, and he was talking about how when you're driving a Formula One car, everything about the structure of your body, body needs to be as strong as possible because when you take a turn at 180 miles an hour,\n\n[00:33:30] your body does not go with the car. They have strong next, didn't they? Yeah. But yeah, I mean, like, there's no point getting faster than, you know, you get cars that can go 200 miles an hour or faster, but there's no point having them because you can't go faster. No, you're right. Spaceships are useful, though. Yeah, again, it's just, it's really just about transistors.\n\n[00:33:47] I feel like I completely... But am I correct in entertaining that, like, I remember this distinctly as an example in a textbook that at some point it becomes imperceptible to humans. So, like, they tried doubling the amount of pixels in, like, computer graphics. But at some point, once you double it, you're a human eye can't see that it's double. That's a really good point. That's true. Yeah.\n\n[00:34:08] I think a computer screen now can show more colors than the human eye can perceive. Yeah, so who's that for? Yeah. If you were traveling at near speed of life, this is kind of a physics question, really. And you had to take a left, right? Yeah. You're in space. If you needed an exit sign, but I'm travelling at close to the speed of life, how would you do that?\n\n[00:34:28] As in you won't be able to see it? Yeah. At what point, how big and how far away would it have to be? That's a really good point. Leave it with me. I'll write to Randall Monroe. Oh yeah, he is way more qualified than means to do that. All right, you want to hear something about transistors? Sure. No, genuinely, they're unbelievably interesting transistors.\n\n[00:34:50] Yeah, yeah. Okay. The light would still come to you. God. Yeah, sorry, sorry, Andy. Because you're going in the opposite direction to the sign, right? So you're going towards the sign. So the light will still get to you just as quickly. Ah, so just as fine. Faster, if anything? Well, to the point where you're at at any moment,\n\n[00:35:07] it would just get you at the same speed. I think it still needs to be a big sign from that distance. Yeah. Saying left here. I think it's always got to be a big sign in space. Always got to be a big sign in space. Happy with that, then? Yeah, yeah. That was great. Back to your transistor.\n\n[00:35:21] Oh, thank you. Okay, I just, like, here's a thing, right? 1971, Intel released their first ever microprocessor, right? So, I do have a follow-up. No, absolutely not. No, no, no, no. The chip was 12 square millimeters, right? Picture that, 12 square millimeters.\n\n[00:35:36] Okay, so three millimeters times four millimeters. Right. They had 2,300 transistors fitted onto that space. It's pretty good, right? The gap between each transistor was 10,000 nanometers, which is the size of a red blood cell. Just to give you an idea of what? Okay.\n\n[00:35:52] Today, the most advanced chips can fit into that space, not 2,300 transistors, but 130 million. What does that mean? What does it mean? It's insane. The gap is 14 nanometers between them. Very, very, very, very sweet. I think the transistors are so, they're so tiny. They're so sort of impossibly small.\n\n[00:36:16] Basically, and the transistors, we should say, they're like the taps. As in, like, they're either on or they're off. They bake up the ones and zeros. switches which change the state depending on whether an electric current is flowing through them or not. And your phone has millions of the minute. Your phone will have so many millions. And it's quite, it's obviously really hard to get your head around because the numbers are just so mind-boggling. Like in 2015, I mean, nearly a decade ago, the world created 13 trillion transistors every second. Wow. What? We're more, this is basically a transistor planet now,\n\n[00:36:46] isn't it? Like pretty much. Yeah. And they're now kind of printed directly onto the chips. It's not like there's a big pile of... Yeah, someone's... No, jeweler. I've dropped it. Nobody move. Just one old man in a cave in Turkey who's just putting each one together.\n\n[00:37:05] It's just mind-blowing. And this stuff is what the entire world is made of. Everything you're listening to this podcast through is transester-based. It's all based on this stuff. And it's so far beyond most people's comprehension.\n\n[00:37:16] Unless you spend years on it, you know. It's insane. None of those are just so big, aren't they? It's just hard to really. really get your head around any of the numbers. Yeah. Like for instance, the new Google computer, the quantum one that they're supposed to have made, and no one's sure if they've made it or not.\n\n[00:37:30] If they have, then... That's so funny for a quantum computer. Yeah, exactly. It exists and it doesn't exist at the same time, yeah. It can do as many calculations in two seconds as if you got the entire population of India to do a sum every second since the beginning of the universe, that would be the same as this computer can do in two seconds. And again, it's so hard to understand.\n\n[00:37:54] It's amazing. Wow. And the reason the transistors have been getting somewhat smaller is a really good thing, partly because when they get smaller, you get less electricity wasted and less heat wasted. Obviously, the process generates a lot of heat. So actually, making them smaller means you save huge amounts of energy, which is part of the reason they can do it and that it's a good thing. Because I think more said at the very start, he said,\n\n[00:38:16] one of the problems is going to be, we're going to get more and more transistors, but everything's just going to get hotter and hotter and hotter. And if you've got a million transistors in your phone, you just won't be able to pick it up, it'll just set fire to the table as soon as you put it on the table. But then they found that ways to counteract that. Yeah, yeah, yeah. But now they are so small. Again, this is mad that quantum effects are starting to come into play,\n\n[00:38:37] and the gates are no longer functioning properly because they're so small that you get some electrons leaking through even when it's supposed to be off, because they're now down to kind of electron size, the barrier and the gate. So they're having to work out new shapes of transistor to really, re-exert some control over this gate because it's too leaky for individual electrons. I've got a question for Dan. Oh, yeah. You're traveling on an electron.\n\n[00:39:01] There's a neutron on your left-hand side. How big would the sign have to be in order for you to say? For me to, well, I'm glad you brought that up because I did have an additional question I wanted to ask earlier, which is how, if you saw the sign saying take a left, you're traveling near to the speed of light, you're going to have to slow down. How far away does the sign need to be for you to de-excel? Decelerate. Decelerate. Where you go slow enough that you can take a left.\n\n[00:39:25] I mean, it depends how fast you're going. Because you says close to the speed of light. Is it 99% the speed of light? Is it 98%? Is it 97%? That's a classic follow-up question of a person who does not know the answer. I've just suddenly remembered this is to do with cars, but also to do with transistors. And I remember that there was a guy, the co-creator of the transistor, won a Nobel Prize for it. I'm going off the top of my head.\n\n[00:39:51] But he's one of the only few people to win two Nobel Prizes, right? So the second time that he got announced as the Nobel Prize winner, there was a party that was going to, because you know, they kind of know that something's coming up, was being thrown for him. And he almost didn't make it to the party because he couldn't open his electric garage because the transistor had broken that allowed for it to switch open. And so someone had to come and pick him up and take him to the party. More, Gordon Moore, he was a very cool guy, very interesting guy, co-founded Intel.\n\n[00:40:18] He became incredibly rich, obviously, and gave loads and loads of his money away to protect the Amazon, protecting salmon rivers, because he's very keen fishermen. But he founded Intel with Robert Noyce, was his colleague. Nois. And they wanted to call their firm. They invented Brooklyn Nine-Nine, didn't they? They wanted to call the company more noise. More noise is more noise than anything out.\n\n[00:40:42] And sadly, they thought it wouldn't be right for an electronics company. It wouldn't be appropriate or something. Really? Noise computers. Intel. I know. Yeah. But I also love that his sort of contribution to managing is just coming to his team every year and saying, double it.\n\n[00:40:59] That's it. Because actually quite a lot of it with Mars law became like a self-fulfilling prophecy. They knew that it was going to have to double in a year or in two years. And so that's what they did. They could have gone faster, but they were like, oh, no, it has to do this. Right. It's still holding up, I think. Depends who you speak to.\n\n[00:41:17] People have been predicting that it's kind of, we can't possibly keep on doubling it every two. Maybe it's now close to every three or something, but it's, it's, uh, have you heard of Bremermans limit? No. Bremermans limit. So there was a guy called Hans Bremerman. And he said that there was a limit on the maximum rate of computation that could be achieved in a self-contained system in the material universe. So we would get to a limit of how much could be. And he used, I don't understand the mathematics of it, but he uses Einstein's equations in order to make sense of it. So Bremen Who was born in Bremen in Germany\n\n[00:41:49] Yeah To Bernard Bremenant And Bertar Bremenin And Really So cool Do you know what the fastest supercomputer In England is called\n\n[00:42:00] In England Oh Is it a classic English name Like Nigel Yeah, it is Think less patriarchal Betty\n\n[00:42:10] Betty Betty is the 457th most powerful computer in the world. Have you got a list that goes up to 457? It goes to 500. I'll say Elizabeth. No. Oh, okay. I mean, it's almost impossible to guess. Oh, no. Okay. But it's a\n\n[00:42:26] woman's name. It's a woman's name. It's a woman's name. It's quite an old-fashioned woman's name. Apologies to any of people with this name. Oh, Margaret. Agie. Magi. Agatha. Dotty? Dotty. No. It's Dawn. Dawn. Dawn. Dawn is the fastest supercomputer in England. and other supercomputers\n\n[00:42:45] Robert is the 103rd Alex is the 187th Gene is the 288th and Henry is the 293rd Some of the most uninspiring names It feels that way, doesn't it? Dawn is really good because you can't say the dawn of a new age\n\n[00:42:59] whereas you can't say this is the Robert of a new age When do supercomputers stop being super? Like surely supercomputers from 20 years ago are no longer super Great point. It's all the number of calculations per second, isn't it? And surely the bar keeps rising, right? Yeah, yeah, yeah.\n\n[00:43:15] We had using old computers a very big problem a couple of years ago, four years ago. So while the pandemic was breaking out, one thing that went a bit unnoticed is that hundreds of places got hit by the millennium bug, Y2K. In 2020? In 2020, yeah. Why? Because what happened was at the time. So Y2K was a big problem, right? The problem was is that when we hit 2000, the computers thought it was 1900.\n\n[00:43:37] Yeah, yeah. So it was jumping backwards and that was going to go to chaos. 1997, 1998, 1998, 1999, 1900. Exactly. And that was going to mess up loads of systems. That's the best setup for a rom-com I have ever heard in my life. A singleton in 1999 at a New Year's party travels back in time and falls in love with someone from 1900s. Guys!\n\n[00:43:56] That's great. Very nice. With a computer that glitches and gets them. Yes. But yeah, so what ended up happening was in that period where everyone was desperately trying to fix a Y2K bug, they changed the coding so that it was 2020. And they thought what would happen is, so 2O became the number, right? And they thought in the 20 years subsequent, they're going to become obsolete.\n\n[00:44:16] We'll have new computers. This is not going to be an issue. I see. So computers thought it was 2.02, but actually it was 2000. Is that right? Yeah. Yeah, exactly. So then we got to 2020 and everyone went, like Brexit, we've been kicking it down the road.\n\n[00:44:31] We kicked it down the road. Now, a lot of places had changed their systems, but a bunch had in. So there was, and it was weird things like there was a, version of the game of WWF, which crashed because it was an online download. Oh, my God. What did we do? Because I thought, like, planes were going to fall from the sky and stuff. Not people won't be able to play WWF on the playstation.\n\n[00:44:52] We now work out how Dad knows about this problem. His plans for lockdown were completely wrecked. This is a huge issue. We could download WWF, also other things, I imagine. Oh, yeah, and 5,000 players. fell out. It was going. No, and it was like, things like grocery stores that had till systems that were automated.\n\n[00:45:13] Suddenly those were crashing worldwide. So you couldn't buy the game in the first place. Exactly. It was a nightmare. It was horrible. There was a website called Splunk, which suffered from it. Oh, not Splunk! Splunk is a website that looks for errors in computing.\n\n[00:45:28] How did you accidentally end up on that website? I said you one more thing. Okay, this is about how your phone CPU is made. What is that central processing unit? Yes. Okay. This is from an interview with a guy called Chris Miller, who's written a book called Chip War. Okay.\n\n[00:45:43] I'm quoting him directly. This is what gets into your modern phones, right? A ball of tin falls at a rate of several hundred miles an hour through a vacuum. It's only about 30 millionths of a meter across. A small ball of tin. It is pulverized by two shots from one of the most powerful lasers ever deployed\n\n[00:46:01] and explodes into a plasma measuring several times hotter than the surface of the sun. This plasma is, emits extreme ultraviolet light at exactly the right wavelength of 13.5 nanometers, which is then collected via a dozen mirrors, which are themselves the flattest mirrors humans have ever produced. The mirrors reflect the light at just the right angle\n\n[00:46:22] so it hits the silicon wafer and carves the circuits onto the chips that make your iPhone possible. What? And that's so that Dan can play WWF games on it. It's the biggest step down for this system. Isn't that nuts? That's how you feel. I don't think I understood any of that.\n\n[00:46:38] I'll be honest. I'm clinging on. I mean, it's incredible. Oh, we should say Kenny Stoltz, a listener, sent that in a little while ago. That interview with Chris Miller. It's just, that is nuts, isn't it? And these machines, they're so accurate\n\n[00:46:49] that it's like shooting a laser from the moon and hitting an individual coin on Earth. Apple, that's how precise they can be. Wow. Apple deserve every penny they get, don't they? Especially the podcasting team. Okay, it is time for our final fact of the show, and that is my fact.\n\n[00:47:10] My fact this week is that on the same day that Joni Mitchell released the greatest hits album, she also released a greatest Mrs. album. Brilliant. Yeah. So good. I know. Is it terrible? Is it absolutely awful?\n\n[00:47:26] Bad songs. A case of you is on it. What's that? Most popular songs. Okay. But I mean, it's a collection from other albums, right? Yeah, exactly. It's her favorite ones that weren't commercially successful.\n\n[00:47:36] Exactly. That's right. And she was so happy with it. She tried to release Mrs. 2, but the record label rejected that. The only reason it came out, the record label didn't want to do it, but it was like a compromise. It was a bargaining. She said, you can do the greatest hits if I can do the greatest misses. I don't know much about Johnny Mitchell.\n\n[00:47:53] She's an incredible artist. I mean, you know, she's, she had a really nice moment a few weeks ago at the Grammys. She performed for the first time. She's 80 years old. She sang a song. Not for the first time. Yeah, for the first time. How's she ever?\n\n[00:48:06] Yeah, she's never. She's won, I think, 10 Grammys, but she's never. performed at the Grammys. Oh, at the Grammys? Yeah. Sorry, you said she performed for the first time. I think I said where she performed for the first time.\n\n[00:48:16] Right, right, right. Okay. Regardless, she's 80 and she sits, you know, in a chair. She sings this beautiful song. She wins a Grammy for Best Folk album for a live album that she did, which is a bit annoying, I think, for the other folk artists, I would say. Okay. Oh, controversial.\n\n[00:48:31] Okay. And, yeah, and yeah, she's someone who was a part of the whole scene with Dylan, Bob Dylan and Leonard Cohen and all that. listeners that don't know her. You won't find much of her stuff on Spotify. She's one of those artists where you probably have to go to YouTube or... She took it off because of Joe Rogan, right? Did she? Yeah. Really? I think, yeah, Joe Rogan was Spotify. Yeah, exclusive. Exclusive, right? And he was saying some things that people didn't agree with. I've got to say, I'm big fan of Spotify as I am with Apple. I'm all podcast providers. I'm so glad that the end to that sentence wasn't Joe Rogan.\n\n[00:49:06] I gotta say I'm a big fan. Yeah, but a load of people took their stuff. off Spotify because of that and she was one of them. I mean, do we know it wasn't because of us? Because we are on Spotify. Yeah, but we're not on exclusive Spotify. Maybe it was parenting hell with Josh Wickham. Wow. But yeah, she's amazing.\n\n[00:49:24] She's pretty cool. She had polio when she was nine years old. Yeah. And interesting thing about that is I was reading about other people who had polio around the time. Mia Farrow had polio when she was nine. Really? And she wrote that she was taken to an isolation unit because\n\n[00:49:39] It's catching polio, obviously. Yeah. And she was taken away from all of her family for months, and all of her belongings were burned. Is this Mia Ferro? Right. Blimey. It's not amazing.\n\n[00:49:50] Like, you basically, at nine years old, you've got this disease, they take you away and they burn everything that you own. And is that the case with polio that if your toy had, if you'd touch your toy, you could get it from that? Or was that a, we weren't sure what it was. Well, no, it can. It can go through bodily fluids and stuff like that. Obviously, we have vaccines for it now.\n\n[00:50:08] Joe Rogan told me to say that they go. No, we have vaccines for it now, so it's not as much of a problem, obviously. But yeah, it can go through feces, through spit, through speed with which we went from Joni Mitchell to feces. Damn! That's our pipeline, I'm afraid. That's how we roll. It comes through our pipeline, yeah.\n\n[00:50:30] No, Ian Deary of Ian Dier in the blockades, had polio as a child. Did he? Yeah, so a lot of musicians. Yeah. How interesting. It was supposedly gave her an egg. to how she tuned her guitar, it's her polio. She's joining.\n\n[00:50:42] Yeah, so she got into guitaring about 15 years old at school, and she was recovering from polio, and it just meant that it must have been harder to tune a guitar for her. Yeah, it kind of changes the way that your bone structure works and stuff like that. There was a footballer called Gorincha who had polio as a child, and it made his legs bandy, but it meant that he kind of ran in a way that no one else ran, and it kind of helped him to play football, supposedly.\n\n[00:51:05] Right. She started smoking at the age of nine, and she started singing because she wanted to get smoking money. So she was in a cafe in Calgary in Canada, and she was the resident artist. She was drawing people, and pictures would go up on the walls. And then she needed a bit more money, so she started singing, and everyone said, you're a pretty good singer.\n\n[00:51:28] And so she went home and asked her mom if her mom would buy her a ukulele. And her mom said, who do you think you are? Kitty Wells. A good one. which I think it was a different time At the time that was probably a really sick burn Pity Wells She was the first female country singer\n\n[00:51:47] to get to the top of the US charts With her song It wasn't God who made honky tongue angels Hmm This is the kind of song I'd like to listen to actually Yeah So hang on was it that she started singing at the age of nine And then people thought\n\n[00:52:00] You know what would make this nine year old's voice Even better 20 Benson and a hedge is a day And then she got into it that way It wasn't that She started smoking at the age of nine And then at the age of like 14 or 15 She was like I need money for cigarettes So let me write a masterpiece\n\n[00:52:17] Yeah exactly Calgary Alberta Canada That's where Brett the hitman heart is from As you would know if you had the WWE wrestling game Oh you would also know that If you spent any time with Dan over the last 20 years And then she started dating David Crosby From Crosby Stills and Nash\n\n[00:52:35] And Crosby sort of invited Eric Clapton over to kind of check out this Joni Mitchell. And he said that Clapton sat mesmerized by her playing and her different tunings of her guitar. Although he also said that it might have been slightly due to the fact of all the weed that he'd smoked at the time. Afterwards he said, I mean, she's no Kitty Wells. She is, I mean, to watch footage of her in that period is spectacular. Her music is extraordinary. The songwriting is incredible and blue as well. just consistently voted as one of the greatest albums.\n\n[00:53:07] Yeah, it's one of her albums, which is always, you know, very near the top of greatest albums of all time. If you're a millennial, you know Joni Mitchell from the heartbreaking scene in the film Love Actually, where Emma Thompson receives a gift from her husband, Alan Rickman. And she thinks it's a necklace, but it's really just a Johnny Mitchell CD. Oh, yes. And are you saying that actually, that's quite a good present to give because she's an incredible, Chantinette's. Better than a necklace. Yeah.\n\n[00:53:38] But then it turns out he gave the necklace to his mistress. That's the thing. But if you're going to find out that your husband's taken on a mistress, that's a good present to receive. Oh yeah. Yeah. Joni Mitchell is great soundtrack for our ring. Right.\n\n[00:53:49] And did they split up because of that moment in the film? I don't remember. I don't think they don't. No, she takes, he takes her back. Basically. He very generously. She takes him back. She says, oh, he's just been a bit silly.\n\n[00:54:02] And you know, it's all fine. She doesn't quite do it like that. Well, it's not far off. Joni Mitchell split up with David Crosby by singing him a song at a party. Oh, really? So he had been cheating on her, and she wrote this song, which base,\n\n[00:54:15] I haven't heard the song, but I imagine in the middle it goes, your fucking dumps, mate, whatever. But she played it once, and then he was like, oh, that's really good. And she went, and played it again,\n\n[00:54:25] because he didn't get it at least. Do we know what it's called? Do we have lyrics? It's called the song about the midway, but I haven't seen the lyrics. I would have called it something like, knickers on the back seat or something that really, you know,\n\n[00:54:39] makes them worried even as you're starting to hear the song. Oh, I see. When you overdo it on the metaphor so much, people can't quite... The Midway, sorry. Is that the river that goes through Chillingham that you're talking about? You're talking about the Battle of Medway? People who've never done their greatest tits album.\n\n[00:54:58] Okay. ACDC. You know the reason why? Because they're all greatest tits albums. Yeah. Thank you. Is that what they say? Or are you saying that?\n\n[00:55:06] I think we agree. I and ACDC agree on this. Yeah, yeah. No, I think a lot of artists fear the slight kind of creative death of, you know, here are your best songs and that's it. But you can just do another, you know, Aaron Carter, his most requested hits. Who? Aaron Carter. Aaron Carter?\n\n[00:55:24] Aaron Carter. Yeah, yeah. From like the American Backstreet Boys. He was the younger brother. He passed away, very sadly, not too long ago. Did he? Yeah. I didn't know that.\n\n[00:55:33] Because most, I was looking up at huge lists of greatest hits albums. Yeah. Long list. They're almost all called greatest hits, which I think is quite dull. You were looking at this list and then you stopped at A-A run. Yes. Anything about Zizi top, honey? This is why you keep coming up with crime things all good.\n\n[00:55:54] It's like, I've been busted by the alphabet, the English alphabet. I'm gutted. But his was called Most Requested Hits, which I think is a nice slight twist all the formula. And then the second one is called Come Get It, the very best of Aaron Carter which must be one of his songs or something, followed by Too Good to Be True. So I just think he's good.\n\n[00:56:11] Also are all greatest hits, every single one of them. He's got three albums of greatest hits, so I think that is. Wow. According to Reddit, and it does seem to be true when I checked it, Kiss have had more greatest hit compilations than they have studio albums.\n\n[00:56:25] Okay. They've had 20 studio albums, and as far as I could see, they've either had 21 or I counted 23, greatest hits albums. They did a farewell tour in 2000 and 2001 and since then they've done 13 tours. Hell yeah. Isn't that amazing? Do you know the biggest selling album in America of all time is the greatest hits? I'm going to guess Abba Gold. Well that's because you've only got to A, B and the Alphabet. Oh no. It's happened again. It's the Eagles, isn't it? That's correct.\n\n[00:56:58] It's the Eagles. Now, so this is their greatest hits album. Who here can name a song by the Eagles. How to California? That's not on the greatest. No! Isn't that incredible? This is from a period where they hadn't yet written that song.\n\n[00:57:12] They must have felt like chubs coming up with that song after they've done it. We've already done a greatest hit album. Oh man. So this is now not, Canon, this is not a greatest hit. And honestly, I've listened to a few Eagles albums. It's their greatest hit.\n\n[00:57:27] The best-selling album in the UK is the greatest hits. Queen. Queen, you got it. At the same time, they released Greatest Flicks, which was a video of all their best songs. Very cool. And Greatest Picks, which was photographs. That's really clever.\n\n[00:57:45] Who here owns Queen's Greatest Tits? Yeah. I've got my hand up. Oh my God, on cassette and then CD. So I own it and Dan owns it. And that is, it makes sense because one in four British households owns Queen's greatest hits. Really? It's still, really.\n\n[00:57:59] I think probably still. There probably is some generational churn happening. But in 2021, Abargold, which is the other huge greatest hits album after Queens, it got to a thousand weeks in the top hundred chart. That's amazing. It's a perfect, perfect album. Yeah. Perfect band.\n\n[00:58:16] Well, it's no highway to hell. But it's, uh... By the way, A-A, A-B, and then A-C-D-C. Anything about Adam and the Ants? There was an album. that was released in 1977 by the BBC called Death and Horror. Basically, you know how you can just buy incidental sounds, right? Sorry, sorry.\n\n[00:58:41] Door creaking. Yeah, door creaking. Sorry, the BBC would have like an archive of incidental sounds. So this was all the sounds of horrific things. Tracks included head chopped off, assorted creepy creaks, red hot poker in the eye. And it was a top 100 charting album. Goths went crazy.\n\n[00:59:00] Yeah, exactly. Team, goth. And then this is the... This is the one I'd love to get, but I don't think it necessarily would have charted. But there was an album called Recorded Delivery by a guy called Yannick Schaefer. So basically what he did was he put a dictophone inside a package and he put it through the Royal Mail. And he recorded the entire journey that this dictaphone went on as it was traveling through the parcel going through the mailbox being picked up, put in the van. And so what you hear is whistling postmen, just sort of walking along.\n\n[00:59:29] You get sliding van doors. There's lots of clunks. You get early morning male workers talking about their dirty sex lives. There's a sudden unexpected shout of anus. That was me. And 500 of them were printed. Brian Eno said he wished he thought of it first. It was a...\n\n[00:59:51] It's very Eno, isn't it? It is very, very Eno. The first greatest hits album ever. Johnny Mathis. Johnny Maffis. In fact, if you look in the Oxford English Dictionary, it's the first. use of the phrase, Gracist tits.\n\n[01:00:04] Did he write a singer song called Chances R, which was in Madman? Well, chances are he did if you remember it. He was late 50s, wasn't he? So it was perfect timing for Madman.\n\n[01:00:15] Yes, he was. I looked him up. He's still alive, Johnny Mathis. He's sort of mid-90s, I think. He's old, but he's still kicking around. He was a high jumper for the US Olympic team before he became a singer. But he was kind of singing in the clubs and stuff.\n\n[01:00:30] and the head of popular music at Columbia was on holiday in San Francisco and heard him singing and sent a telegram to the company saying have found phenomenal 19-year-old boy who could go all the way send blank contracts Oh, that's great And he was Olympian at that time at 19? He'd been trying out\n\n[01:00:52] He got the call to go to the trials This is a cool thing. In 1956 he got the call to go to the Olympic trials but he had just got his recording contract He said to his dad, should I become a high jumper or should I become a musician? It's annoying, isn't it when people are real class? Not one thing but two. You could do both Vanilla Ice as a rapper and a real estate agent.\n\n[01:01:10] You could do it. Well, Cody Simpson, the Australian singer-actor, also swam for their Olympic team. Oh, yeah. And also is it Gina Davis who almost qualified for archery for the US? Get away. You could do both. Okay, you can do both. And it's fine that I've done neither.\n\n[01:01:28] Johnny Mathis. It wasn't actually any greatest hits. It was just something they rushed out because he was about to go on tour in the UK. He didn't have time to record any new tracks. So they just bundled together his first four recordings. Oh, is that right? Called them Johnny's greatest hits. It was in the charts for nine years.\n\n[01:01:44] So they manifested it. Pretty much. Yeah. The greatest hit, Australian influxing. Exactly that. And there's a reason why you'd love him, James. He used to play golf 300 times a year. Oh, he sounds great.\n\n[01:01:56] He's a great guy. And he has a cookbook library. he loves cookbooks so much. He bought thousands of them. He had off his kitchen, his own library of cookbooks. And in 1982, he wrote his own cookbook called Cooking for You Alone, which is all about meals for one and how you can make them delicious and lovely. Isn't that?\n\n[01:02:14] I just think he seems like a really nice, sweet guy. It's so sweet. I know. That does sound nice, but if you think that you're going to get a necklace for Valentine's Day and you get the meals for one book, that's a real sign. That's how Jani Mitchell dubbed her next boyfriend. Okay, that's it. That is all of our facts.\n\n[01:02:38] Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our various social media accounts. I'm on Instagram using the name Shreiberland, Andy. I'm at Andrew Hunter-M on Twitter. James. My Twitter is at James Harkin.\n\n[01:02:54] Yep, and Olga. I'm at Colga 300 on Instagram. Nice. And also do make sure to go and see. see Olga live prawn cocktail. You're on tour right now. Prong cocktail is the name of my show. You'll just be eating it. Don't stop. And I promise it's going to be 100% high quality prawns and never a cheap meatbox. Yeah, or if you want to get in contact with us as a group, by the way, you can go to At No Such Thing on Twitter. You can email us on podcast at qI.com\n\n[01:03:21] or you can just go to our website, No Such Thing as a Fish, if you want to check out all the previous episodes because they're all up there to do that. Otherwise, just come back next week. We'll be back with another episode and we'll see you then. Good. Bye. Enous! You could be a lot Easter egg."
+}

@@ -1,0 +1,299 @@
+# No Such Thing As A Fish - No Such Thing As Cleopatra Movie Trivia
+
+- Episode date: January 6, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-cleopatra-movie-trivia
+- Slug: no-such-thing-as-cleopatra-movie-trivia
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast. This week coming to you live from Up the Creek in Greenwich, London. I'm here with Anna Chisinski, Andrew Hunter-Murie, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with you, Andy. My fact is that archaeologists have just dug up in the... the middle of the desert, an enormous Sphinx statue. It is believed to be anywhere up to 95 years old.
+
+[00:01:02] I think you're going to have to explain. So there are now archaeologists looking at old film sets from the early days of Hollywood, and they're doing proper excavations on movie sets that were abandoned to the desert. This is a real thing. and there was a very famous film in the 20s called The Ten Commandments. It was this massive biblical epic. And at the end of it, they didn't take the sets down. There's a theory it would have been too expensive or... There's another theory that he didn't want anyone else to use the set
+
+[00:01:30] because the director was Cecil B. DeMille. Yes. And he was a bit of a megalomaniac, wasn't he? And he thought he didn't want anyone else to use this. So I'm going to bury it in the middle of the desert. Yeah. And now we found it. And they buried it.
+
+[00:01:40] And yeah, there's this filmmaker who's been searching for it for years. He's called Peter Brosnan. And there's now a film, the finding of the original film. It's called Cecil B. DeMille's Lost City, or something very similar to that. And it was this enormous set. So it was 12 stories high, 800 feet wide.
+
+[00:01:58] There were 21 sphinxes. The Pharaoh's statues weighed four tons each, and they built an extra sphinx so that actors playing slaves could drag it around. The effort they went to with this film is enormous. That's awesome. I read a thing that the idea that we have that slaves, built the pyramids and so on, is down largely to this movie, because that's not the case.
+
+[00:02:22] It wasn't. It was people working, but they just, as a representation, used slaves in the movie. That's where we get that common myth. They were kind of freelancers, as far as I understand it. They were farmers outside the farming season, weren't they? Who did the pyramids? Yeah, I think so. Yeah. But this movie, when DeMille put it in the, in the middle of the desert, he said, if 1,000 years from now, archaeologists happen to dig beneath the sands,
+
+[00:02:47] I hope they will not rush into print with the amazing news that Egyptian civilization extended all the way to the Pacific coast of North America. So he actually saw the idea that people would be digging this up in the future and might think that it was real. We've totally fucked up his plan. That's so sad.
+
+[00:03:04] We knew as well that that's what he wanted. No, he didn't want that. That's what he said he specifically didn't want. I think he was saying it. He was saying it with a bit of a wink, wasn't he? He was like, oh, I really hope they don't do that. Yeah, that's how I interpreted it. But I'm making that up.
+
+[00:03:20] I actually thought that's what he had said. Some people who did do that is the website 9 gag. Everyone knows the website 9gag. Yeah, we all know that. It sounds rude. I know people love, but it's not a rude site, is it? No, it's just like memes and stuff like that. And what they did was they buried a huge pillar carved with internet memes.
+
+[00:03:42] deliberately to fuck with the archaeologists of the future. So everyone had to vote for their favorite memes, and the ones that went in were such memes as Dick Butte, Doge, who you probably all know, shit just got real, and hardest name in Africa. Don't know what that one was. But they buried this in there, and they're hoping that in thousands of years people will see it
+
+[00:04:05] and think that it was some kind of religion or something. Right. Which I guess it is in a way, right? Yeah, yeah. Iron eight, bronze eight. Bantor age. I was reading in the movie Cleopatra itself because it was a huge
+
+[00:04:20] operation to get this movie made. It was so ambitious. They made all these incredible sets. Are you talking about the Ten Commandments or Cleopatra? Sorry, sorry, it's the Ten Commandments we're meant to be talking about. I've researched Cleopatra. Let's move on. Oh, okay.
+
+[00:04:38] Cleopatra, they had a big set too. It was, you know, a very expensive film. There's your segue. Yeah. Yeah, thanks guys. I'll just comment on what you guys have to say for the rest of the evening. Okay, so... Has anyone got any Cleopatra material that we can help him out with?
+
+[00:04:57] I do have a fact related to Cleopatra. Yeah, it's about the film The Ten Commandments. Okay, so it was basically, in 1922, Sessellby DeMil, he was already pretty famous, but he ran a competition for what his next film would be about. So everyone submitted subjects, and the best subject won $1,000, and he would make the film. And it went to a man who was called F.C. Nelson. He was a lubricating oil manufacturer,
+
+[00:05:26] and he just wrote on a bit of paper, make the Ten Commandments. If only he'd written Make Cleopatra. But then beneath it, he had a little PS at the bottom of the page. He then wrote, you cannot break the Ten Commandments, or they will break you. But he won, he won the competition. But it was a bit disastrous, right?
+
+[00:05:48] The Ten Command was, in a sense, because Cecil B. DeMille was so determined to get it working. And it went so way of a budget. He, like, didn't accept any profits from it. Like his producers called him and were like, come back, now, give up. This is a complete disaster. And he refused to. And he did things like he refused to use painted backgrounds at all. So he refused to use, like, normal scenery.
+
+[00:06:11] So that meant he just had to literally build everything. So I think there was like a wall that was miles. miles long that he had Bill, it wasn't there. And then at the end, did he dynamite the whole thing? I'm just thinking if Donald Trump digs around and finds that wall. Yeah. I don't think he did dynamite.
+
+[00:06:28] No, that's a rumor. I think that's the rumor. Cecil DeMille, sorry, just quickly. Great director. Do you guys have any stuff on Joseph Mankowitz? What did he direct then? Sorry. Just quickly.
+
+[00:06:45] on Cecilby de Melt. So for the shooting of it, and this is just the incredible budgets of the day, he built a city which had 3,500 actors, technicians, and extras. They were divided into 14 units of men and seven of women in a 24-square-mile city, and there were very strict rules about, you know, alcohol and gambling and stuff.
+
+[00:07:09] He hired 225 Orthodox Jews to look like their ancestors. the Israelites. And apparently during the filming, they kept missing their cues because they were so overwhelmed by the emotion of being in this thing. And then he wrote to everyone on set,
+
+[00:07:27] he said, your skin will be cooked raw. You will miss the comforts of home. You will be asked to endure perhaps the most unpleasant location in cinema history. I expect to view your supreme efforts. It was so tough to find.
+
+[00:07:40] He was an ass, wasn't he? I like him. Do you? Okay. Yeah, I do. Okay, this is someone who you could have, I think. I'm not saying that you're a prima donna, Andy, but he had a chair boy who always walked three steps behind him,
+
+[00:07:55] carrying a chair. He was never allowed to look his master in the eye. And whenever DeMille stood still for more than a minute, the chair boy had to put the chair behind him and then bang the back of his knees so that he sat down on the chair, which was there. Whoa. Can you imagine having one of those?
+
+[00:08:11] Yes, I can. And I'm frankly angry I had to sit down tonight Was Cecil Biedermiller puppet? It sounds like he was one of those collapsing puppets. He made loads of biblical films He made another biblical epic called The King of Kings Oh yeah And he made
+
+[00:08:30] But he was mostly known for Slightly saucy movies They always involved a naked woman in a bathtub at some point And then he made the Ten Commandments Which is a big switcheroo Cleopatra used to spend a lot of time in bathtubs, Stephen. James, I don't have anything on it. Actually, I got a different thing, which is just picking up on what James said earlier about him
+
+[00:08:51] wanting to bury DeMille wanting to bury the sets, so no one else would use it. There's a bit of logic behind that because people back in the day of early Hollywood did used to do that. So there's a very famous version of Dracula that was made with Bella Lagosi. And the idea was you would pay for all these movies, huge budgets for their sets to be made. but because of workers' unions and clocking off at the right time, it meant that you'd film in the day, and in the evening the set was just sitting there. So they thought,
+
+[00:09:19] what if we filmed the foreign language version of the movie that we're now making in Spanish and Italian in the nighttime when they've abandoned the set? And that's what they did. And there's a very famous version of Dracula from 1931 where they made in the daytime the English version with Bella Lagozky, and in the evening time they made the Spanish version. and the Spanish version, because they were able to sit
+
+[00:09:42] at the end of the day of filming of the American one, they would watch the dailies, and so the rushes that they filmed that day, and they would go, oh, that angles, no use. Why don't we film from this direction? And so they would re-angle everything. They learned to make the movie by watching a different movie being made on the same set.
+
+[00:09:59] Yeah, and as a result, it took something like seven weeks or something, sorry, a few months for them to make the American version, but the Spanish version just got done it really quickly. and they made it way before the Americans finished and released it before the Americans released it. And so people saw the Spanish version and the reviews were, well, if the American version is as good as this,
+
+[00:10:20] and it's probably better, it's going to be an amazing movie. Because it was awesome. But the problem was, it was shit, the American version. But one reason I think it would be shit is doesn't Dracula die in the daytime? Yeah. Yes. You're right. Yeah.
+
+[00:10:36] Yeah, well, the guy, the director was so bad, he didn't even capture Dracula's death on camera. He failed to put the camera in the right position. So it's just Bella Logoski going, off screen. You don't even see his death. I mean, presumably Bella Lagoski didn't actually die, so you can't just retake that.
+
+[00:10:53] No. And have him in front of the camera. Yeah, I know, but they didn't. They just didn't. I guess back then they were just like, oh, it's six o'clock, the Spanish are coming in. All right, let's... We've got to go.
+
+[00:11:04] Bella's done. But yeah, so they did use to double up on the... sets. And so that version of Dracula is more famous for the Spanish version that was copying the American than the American version. So you can understand why he wanted to bury sets. It was probably a crew of Spaniards around the corner that were... He was only out there avoiding Thomas Edison, wasn't he? Who? Cecil B. DeMille.
+
+[00:11:25] Really? Yeah. That's why he was out west. That's why they went way out west. It's because there were loads of Edison thugs who would beat you up for using... Was it film technology? Yeah, and that's basically why Hollywood is wearing. it is today and why they made all the movies out there because Edison was on the East Coast and if they went to the other side of America they couldn't get them with all the patents and all things like that.
+
+[00:11:46] And so Cecil B. DeMille owned 80 guns to protect himself. 80 guns. And a wolf. Yeah, the wolf as well. I'm serious. I know it sounds like I just added that spur of the moment. Wow. You're the Blues Brothers.
+
+[00:12:01] You know when they filmed the Blues Brothers, again, when quite over budget, the most impressive set thing they did was they dropped a car from a helicopter I think there's a scene in it where they fly a helicopter like 1500 feet in the air and then they drop a car down on Chicago. They got permission from the government the state government to do that. They dropped
+
+[00:12:19] a Pinto car down into like presumably an abandoned area of Chicago. Presumably. And the car when it landed it was 45 centimetres tall because of the that was the extent of the force Yeah. That's pretty cool. And they also had a cocaine budget. They always used to say that about the Blues Brothers, didn't they? That that film had its own cocaine budget.
+
+[00:12:40] There's a film with Dennis Hopper, Easy Rider, it was called. And this is a book, yeah, awesome film. But he was part of the creative team and he was doing drugs every single day. And he was doing all different kinds of drugs. And it got to the point where they were like, we just have to give up and accept that he's on ecstasy in the morning, cocaine in the afternoon and heroin in the evening, whatever he was doing, pot in the evening. It got to the point that when he got the scripts for the next day for the film, they wrote on it the drug that he was on in the previous scene. could match the energy that he was bringing to it. So they're like, we're going to film the second half of the scene we did three days ago,
+
+[00:13:17] and you were on cocaine then. So if you could do three lines before we start shooting, we'll get the same vibe as what you were. I'd love to see the movie where they mix them up and he's doing heroin and then subtly he's doing cocaine halfway through the scene. Yeah, it's true. We need to move on shortly to our second fact. Do you guys have anything before we go? Apocalypse now?
+
+[00:13:38] Yeah, sure. The film make Apocalypse now, one of the things that, Francis Ford, a Coppola, demanded was that, A, he was allowed to burn down a lot of jungle in Vietnam, and because he was a big deal at that point, they allowed him to, so many acres of jungle would just burn down for it. But also, he used real military helicopters, but apparently he used to get really annoyed on set, because they kept on having to fly off to fight in actual wars. So he used to get really pissed off. Wow. Yeah. I got one last thing. It was a movie set problem. It's a movie back in the day called Cleopatra, where,
+
+[00:14:10] What happened was is that Cleopatra's entrance scene was a huge, so you're not even listening. Okay, it is time for fact number two, and that is me. It's my fact. Okay, my fact this week is that when British author William Haslett died,
+
+[00:14:30] his landlady was so keen to relet his room that she hid his body under the bed while she showed new tenants around. This is an extremely. What a viewing that must have been. Will he be here? So Haslett... He's not that famous now, is he?
+
+[00:14:49] No, but if we made this show back in the 1800s, you guys would be like, Ah, Hazlet! Haslet was huge. He was a massive British author. Not only an author, he was a literary critic. He was a painter, social commentator, philosopher. He was a big deal.
+
+[00:15:04] He died in 1830. He was living in Soho. And in fact, there is a hotel now there which is called the Haslit House, I believe, and that is the location where he died. And he's still there under that bed, isn't he? He's still there, yeah. But he was a big deal,
+
+[00:15:21] and people used to go just to the Haslett Hotel just because that's where he lived. Seamus Heaney used to go there, obsessed with him, and they would have meetups there just to be able to be in the sort of presence of the location of this great person who everyone seems to have forgotten,
+
+[00:15:36] except it turns out you, Anna. I mean, he's a famous, people know what him has to be. as it is, but I did happen to take a book of his essays on my gap here, which I know is, I just told these guys backstage, I know. One of those guys was going to mention it, so I'm going to get in there. Which drug were you taking when you were reading it? The essays themselves were my drug, James. What am I on? I'm on chapter three. I mean, they didn't come in chapters, but whatever.
+
+[00:16:12] But he was, he was on a brief. By his death, wasn't he? Like, when he died, he died in poverty. It was on Frith Street. And he'd been basically dissed by all of the people he'd been mates with. So he was really good friends with Kolaridge and Sothey and Wordsworth. But he kind of also hated everyone. Yeah, he kind of started it, didn't he?
+
+[00:16:31] He did start it. So, well, they embody these revolutionary ideals that he loved, and he thought that they didn't see them through properly. He thought they'd all sold out. So he kind of loved Kolaridge, but he wrote all these essays saying, I hate that you haven't lived up to your potential. So eventually they just ruined his reputation and he died in poverty.
+
+[00:16:49] And it all started actually when he groped somebody. Did you read this story? Yeah. Yeah, it was... Yeah, boo, exactly. Yeah. Well... Well...
+
+[00:17:00] Don't say it was a different time, Anna. It was a different time. They were staying in the Lake District. It was him and Kolaridge and Wordsworth, all staying in the Lake District and writing together. and he went away, Hazlitt went to the pub one night, and a woman was flirting with him and sort of teasing him, and he thought that she wanted to get off with him,
+
+[00:17:21] so he sort of leaned in or something, or, you know, came onto her. And then she laughed at him and said, no, don't be such a, you know, cad. And so he lifted up her petticoats and slapped her on the bottom. I, look, I'm with the lady on the second row here. I'm not saying it's good behavior, but he'd been embarrassed. And then he got chased by. this mob who wanted to duck him,
+
+[00:17:46] which apparently is a common thing. They wanted to duck him in Darwin. That's an auto-correct thing, I think. I think so. But yeah, and he ran back to Coal Ridge and said, please hide me, and they smothered him away over the mountains. That's extreme. They saved him, but then they spread all these rumors
+
+[00:18:11] that he was a horrible, lascivious, sleazy man. And then he had an affair with someone half his age. age. Yeah. He sort of had a... So it was his landlady's daughter, not the landlady, I believe, who later got vengeance
+
+[00:18:26] by hiding him out of the bed. He... Yeah, she was half his age and he just fell completely in love with her. And then he wrote this whole book saying that he had fallen in love with her and declaring it in public. And he sent his... He sent his friend to test her
+
+[00:18:44] by making advances and flirting with her and seeing how she reacted. And she flirted back with his friend, although she drew the line at any serious stuff. And then he asked his friend whether he could set Sarah, this girl, up as the friend's mistress, and he would pay for it. And the friend said, no, I would prefer a woman who can read and talk. Okay.
+
+[00:19:06] Very judgmental. The girl was in love with someone else. It was a complete disaster. Anyway, it was a great literary figure. Here's my favorite William Haslick complete disaster story. And that is his first lecture at the Russell Institution, where he turned up and they told him it had to be one hour long, but he prepared enough material for three hours.
+
+[00:19:27] And so instead of editing it, he just did the three-hour talk in one hour. And just put his head down and just read it as quickly as he was in. Wow. That's really funny, James, because it reminds me of another story about Hazlitt, which I've brought along, and I'm so glad you mentioned it. I read actually, relatedly, something recently about Gordon Brown, which was, this is in the week, I think, and it was a story that goes around Westminster,
+
+[00:19:52] which is that he was asked to give a talk at sort of a pensions dinner, quite early on in his MPdom, and it was just, it was about pensions. It was a talk about pensions to a bunch of pensioners and other people, and he was asked to speak for 45 minutes, so he got up and he gave,
+
+[00:20:06] and he really works really hard, you know, he's never working hard on stuff, so he thought really hard, he delivered this 45 minute speech, and at the end, the person who was comparing the event came on and apologized for the fact that he had gone on so long and they'd actually ask him to do a four to five minutes speech.
+
+[00:20:27] At what stage do you think I'm going to have to stop him here? You can imagine on pensions. Haslett invented, well, he coined a word that we all use today. Gusto. Yeah? Yeah. It's got gusto. That's Hazlitt. It existed before, didn't it? But he sort of wrote an essay on it sort of properly defining it. Yep.
+
+[00:20:55] I thought he'd invented it, I must say. No, it did exist before to mean like life and... He said it as something to do with arts, didn't he? He was the first person to use it to describe art. Yes. Oh, well, anyone can use the word to mean a different thing to the thing we've all agreed it means.
+
+[00:21:14] Well, he also, according to the OED, coined the words newsmongering, modernising, and aconing. Acorning apparently means collecting acorns. He was the first person to use that. Unbelievable. What a great contribution to the English language, and people don't appreciate him. I can see why he took a massive brick of his essays on your cap, yeah.
+
+[00:21:39] Seeing you are customs, anything to declare? No. What's that in your back, madam? Book of Versaes and a bunch of acorns. Problem? Some stuff on dead bodies or estate agents. Dead bodies, please. Dead bodies.
+
+[00:21:56] Dead bodies, and if we can, Cleopatra, would be? So here's the thing about the dead. So a contemporary of Hazlitz was Shelley, and there's an often-repeated story about Shelley's heart being plucked from the funeral pyre he was being burned on. so he drowned and he was at sea for several days dead and bobbing around and then he was retrieved and he was burned on the beach
+
+[00:22:22] there's now a theory that it wasn't his heart which refused to burn because it's a very nice romantic image that his heart refused to burn they now think it was his liver which refused to burn because it was just soaked in seawater for days and days and it was the biggest organ so it would have been less likely to burn and it was taken out and a friend of his took it and then bequeathed it to another friend of his
+
+[00:22:45] who then gave it to Mary Shelley who put it in a back. It's re-gifting, isn't it? But actually, speaking of livers and back on Hazlitt, he didn't drink, but do you know why he didn't drink at the end of his life? No.
+
+[00:23:01] Felt that you're going to guess then. Broke, he was broke. He was broke, but that's not why. So it said that he died of tannic acid poisoning from excessive tea drinking, because he was obsessed with drinking tea. He used to fill half a teapot with tea.
+
+[00:23:14] That can't be possible today of too much tea, can't it? I don't think so. Half of Britain would be dead. He was obsessed with it though. Apparently he used to get up at one or two in the afternoon, never before that, and he would get up and pour himself a tea
+
+[00:23:28] half full of tea, like the tea leaves, and then half of water. And then he would sit there for four to five hours staring to the distance. Four to five hours? Wow. That was beautiful.
+
+[00:23:45] Like the hot of life. God, when we put this podcast out, that's going to come and stereo in people's ears. That's going to be the best hard-hitting punchline anyone's ever heard. Anyway, no, for four to five hours,
+
+[00:23:59] motionless, staring into the distance. So he loved tea, but he didn't drink because the last time he'd drunk was when he went on a huge binge following the Battle of Waterloo, so he was a massive Napoleon fan. And he loved Napoleon, and he was devastated that Napoleon had been defeated.
+
+[00:24:14] He thought he epitomized the great revolutionary cause. And so he won on this huge drinking binge. And he spent weeks and weeks wandering London completely unwashed in a drunken haze. And after that, he thought alcohol wasn't for him. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that UNICEF has a nutrition ambassador called poopie. So, this is just a thing. This is just true.
+
+[00:24:43] She is called Jose Helihanta Rama Harvey Lisoa. and she is a singer from Madagascar, and she goes by the stage name Pupy. And Lonely Planet has declared poopie a national treasure. And she's been active in educating young mothers about breastfeeding their infants as a nutrition ambassador for UNICEF. And that's basically her entire English language Wikipedia
+
+[00:25:09] that I've just read out. And there is nothing else on her, on the internet, really. There's in English anyway. But she joins other UNICEF ambassadors such as Katie Perry, Serena Williams, Liam Neeson, the Wiggles, Dust in the Turkey, and the Vanuatu Women's Beach Volleyball team. Oh, cool.
+
+[00:25:29] God, that embassy must be a riot, mustn't it? And yeah, so she's just, she's a nutrition ambassador, and she's got a funny name. But we don't know why she's got, I mean, it's her stage name, right? It's just her stage name, yeah. We don't know why she got that name. Okay. I imagine, it must mean something different in Malagasy, I guess.
+
+[00:25:47] Yeah. You would hope. I looked up a little bit on stage names. Okay. So, Steve You Wonder, he has a stage name. Really? Yes, because his real name, what do you think is full first name is? Stephen Wonder.
+
+[00:26:00] Yeah. His first name is Steve Land. No, genuinely. That is a theme park I want to go to. Steve Land. No way. He was christened Steve Land. Yeah.
+
+[00:26:16] What? S-E-V-L-A-N-D. Steve-L-L-A-N-D. Yeah. That's amazing. I know. Yeah, that's really cool. What's his surname?
+
+[00:26:27] I didn't write it down. Okay. But it's not Wonder. No, it's not Wonderland. Wonder was because he was... No, he was a boy Wonder, which is why he got the nickname Wonder. Oh, okay. Yeah.
+
+[00:26:40] Michael Keaton, the actor, his real name is Michael Douglas. What's Michael Douglas' real name? Steve Lund I don't know Michael Duggis's real name Do you know what Wacken Phoenix's real name is or born birth name was
+
+[00:26:58] his son name is Bottom That's right Yeah So is he Wacken Bottom Wacken Bottom He's William Hazlett It's a different time
+
+[00:27:08] But his brother was River So he was River Bottom He was River Bottom He was riverbottom Yes Yeah He was
+
+[00:27:15] So he had a weird this upbringing, they were members of the, was it the children of God cult? The really famous cult. Yeah, they were brought up in that. And then they escaped that and decided it wasn't a good idea. And the whole family decided to change their name to Phoenix, which does make sense. They were all called Mr. and Mrs. Bottom,
+
+[00:27:30] and they went with Phoenix instead. Yeah. I found out today what Michael J. Fox's middle name is. Go on. Andrew. Yeah. With a silent Jay? Yeah.
+
+[00:27:44] J. Andrew. he basically when he went to sign up for the actors you have to officially register yourself as an actor in America and there was already a Michael Andrew Fox so he just had to pick Jay as a random initial but that's what the Jay stands for Andrew well it it's sort of stands for it I found a list of the 150 worst rapper names in the world on the internet so just a few of those the teabag bag boys Jack Bowls These are all proper rappers apparently Cecil Otter
+
+[00:28:21] and bus driver Really? That's so good Actually, on musicians Do you guys know the band In Excess? Yeah Yeah So the bass guitarist for InXS
+
+[00:28:35] is Gary Beers And his middle name is Gary But with a different number of ours Get out of here. Gary. His name. Gary. Maybe that's...
+
+[00:28:48] Exactly. No way. That's what it is. It used to be William, and he changed it to Gary. Gary beers. He changed it? Yeah, yeah.
+
+[00:29:00] Wow. Can't get enough Gary's. So, yeah, the double R is in the middle name. Wow. If you're interested. Joan Crawford, the actress, she was named by the public. No way. Joni McJone face.
+
+[00:29:13] She should be cool. Her original name was Lucille, this is a French surname, Le Suer, S-L-E-S-U-E-U-R, but people thought, studio bosses thought, that sounds like Lucille the Sewer. So they held a public competition to change her name, and Joan Crawford was the entry which won. No way. She didn't like it at first, but she had to be called that. Wow.
+
+[00:29:39] It grew on her, apparently. Okay. Yeah. So cool. It's not that cooler name, really. Or is it like just the time that. that makes it feel like that. When was it? John Crawford doesn't feel like a...
+
+[00:29:50] When was it? 20th century. Anyone? 47? What a specific answer. June 47. Any advance on June 47? Do I have 48?
+
+[00:30:05] June 47 was one of the names that were put up. I've got a thing on ambassadors. Okay. So the fact at the top, if you remember, UNICEF has a nutrition ambassador and that's called poopie. So a lot of celebrities get asked to be ambassadors for certain things. And very recently
+
+[00:30:25] Helen Mirren has been an ambassador for L'Reel so she'll do panels and so on for their moisturiser. It's so annoyed about the ambassador. It's the brand ambassador. It's not the same as UNICEF though, is it? You don't set up in a massive building in the Middle East and say I am the L'Oréal ambassador.
+
+[00:30:44] How can I? Where the fuck am I Ferreira Roche? Where is the L'Oreal Embassy? You're right, yeah. No, she's a L'Oreal ambassador. It's a real thing. Yeah, she's their brand ambassador, and she's not a very good one,
+
+[00:31:01] because she did a talk, he did a panel talk in the south of France, and they asked her about moisturiser and what it does, and she said, probably fuck all. That was her answer. I was looking at, because Poo-Pee, the ambassador, is a nutritionist, right? Yeah. And is from Madagascar.
+
+[00:31:22] So I was looking at some Malagasy nutrition stuff. And so there are some groups in Madagascar that will circumcision is a thing in some tribes, and some of them eat the foreskin. Ooh. But also, I was reading a... Oh, sorry, I got that three seconds after everyone else in the room. Is that weird that? I don't think that's weird.
+
+[00:31:45] You don't think that's weird? In Madagascar, this is a thing. And there was a journalist, went to Madagascar and travelled around it a few years ago. And it's specifically in certain regions. So it's in the Antambahawaka region, and where they eat the foreskin. And traditionally, you get circumcised, and then it's given to the grandfather, who then can either eat it or offer it to a very honoured guest. So, this journalist...
+
+[00:32:18] Hula hoop. They've got a little bit soft in the bag, but... Anyway, it's very awkward. If you're a guest in specific Madagascar areas of Madagascar, then just look out for being offered foreskin, and it is polite to accept it. Wow. There was another person who was interviewed from a different tribe.
+
+[00:32:46] who said, we actually think that's weird. This is someone from the... This is someone from the Saka Lava tribe. This is a different anthropologist who went there. And he said, we think that's weird. It's only the guys in the mountains in the middle who do that. No, we put the foreskin into a firework and send it into the sky.
+
+[00:33:09] All right, should we move on to our final fact? Yes, please. Okay. It's time for our final fact of the show, and that is Chazinski. Yes, my fact this week is that the first ever sports bra was two jock straps. Yeah, this is, I actually heard this on another podcast.
+
+[00:33:29] I don't know if you're allowed to just trans migrate a fax from one, but I heard it on 99% Invisible, which I assume a lot of you listen to, and if you don't, you should. But this is, it was invented by someone called Lisa Lindahl in 1970s, 1970s, and she, it was when jogging became a really fashionable thing to do and specifically for women to do. And there was an issue because sports bras didn't exist. And there were various issues.
+
+[00:33:54] and she was in her sitting room one day, and she was saying, what are we going to do about the fact that every time we go running, there's all this rubbing, and it hurts, and it just doesn't work for us. And then her husband started parading around their sitting room with his jock strap on his chest, saying, you should try one of these guys.
+
+[00:34:10] They work really well. And she actually thought, yeah, what a great plan. And she got our friend to sew together two jock straps, which I had to remind myself what a jock strap was, but it's like type Y fronts for men who are playing sports, right? Yeah, yeah. Cool. And she said... We're a very sporty panel, I must be saying.
+
+[00:34:32] We need to wrap up soon, actually, because we've got to hit the gym in a second. Hey, don't laugh so hard at that guys. But so these ladies, Lisa Lindhall and also Polly Smith, who did her designing, they get all the credit, but surely the credit should go to her husband
+
+[00:34:48] who was prancing around his front room with chockspots. Good point, James. Behind every great woman is a great, right at him. Because an unbelievably childish man dancing around this front room. I didn't mean that, by the way. As a joke, they called it
+
+[00:35:04] the jock bra. And then that got changed into the jog bra, which got changed into the sports bra. And who knows what that will become next? But you know, someone else who was responsible for inventing it? So what she did, Lisa,
+
+[00:35:20] what she sewed these two, or she got her assistant polly to sew these two jockstraps together. and she ran around with it and it worked. But the person who helped with the sewing was someone called Hinder Schreiber. No. Yeah, your surname. So a distant relation of yours helped invent the sports pro.
+
+[00:35:35] Cool. Not that distant though, because it's unbelievably recent, right? People are always surprised that the person who invented it's still alive and still doing interviews and stuff like that. You're right. It's so weird that it was literally 40 years ago. She has a whole section on her website about, I invented the sports pro. Well, I would have thought that would be the main bit now.
+
+[00:35:52] No, no, she does loads of other stuff. because she's not a, you know, one-trick pony. She now does loads of other stuff. Like? Well, I didn't, you know. There's only so much reading time in the day. I didn't read the whole thing. She's an artist, I think, as well.
+
+[00:36:10] Does motivational speaking possibly? I would think so, yeah. I heard that there was possibly a slightly earlier one called the Free Swing Tennis Brough. Yes. That was a rival, and that was a couple of years earlier, was specifically for tennis and it was not. So this is...
+
+[00:36:27] It wasn't really a sports brow that was. It was just a bra. Yeah. They were just saying you can play sports in this if you want. Yeah. Okay. This was a specific kind of holding you in kind of thing, right? Held you in, strap you down and also had thick straps because of the rubbing.
+
+[00:36:40] But there were a few patents much earlier on. This is the first commercial one, but actually in 1909, a breast supporter was patented by someone called Madeline Gabbo. And that was actually the first thing that separated the breasts because breasts were was worth all of as one entity. I remember we're searching this for QI once. The bosom was the word you would use to refer to your breast. Yeah, it's a singular.
+
+[00:37:01] And that's it was singular. They were just one, just one rectangular thing. It was a... It was a... Rectangular? Yeah. They were a different shape then. Wow.
+
+[00:37:12] Yeah. But that was popular until... Very late, the mono-boob, basically. Yeah. There was no lift and separate. That was just the shelf. Yeah. The monoboom until the 20th century, basically, was the way to go.
+
+[00:37:28] And that's why the French phrase for a woman having a large bosom is, Iliamonde du Balkan. There is a crowd on the balcony. Is it still, though? I don't think it's very common to use now. That's not in use now, is it? We know what it is. Yeah, no, sorry.
+
+[00:37:47] I mean, you should use it. It's a lovely metaphor. Yeah. It applies also to a royal wedding, for example. Yeah. There's a lot of amazing bras out there now. Like in Japan, they have a few which are sort of very technologically advanced. There's one called the uplifting bra.
+
+[00:38:06] And the uplifting bra basically plays you sort of motivational conversation. So it will monitor your heart rate. And if it feels your heart rate going up, it might sense that you're scared. And your bra would be like, you've got this. You don't need to freak out. You are going to own this. And it's just messages that come out from someone's T-shirt. Do they have this for pants as well?
+
+[00:38:33] I don't know. Just asking for a friend. Just calm down. You've got all the time in the world. Oh, that's a shame. There's another Japanese bra that's also quite exciting, which measures your heart rate. But this is the true love bra.
+
+[00:39:06] Oh, yeah. And this will only spring open if you are truly in love with the person. Just trying to take it off. And by truly in love, They mean if your heart rate does the stuff that they've made sure the heart rate does, so it goes on... What if you're jogging? Well, that does feel like one of the major flaws of this bra, doesn't it?
+
+[00:39:25] Loads of things make your heart rate. Or if you're on... Like if you're on a roller coaster. Or if you're really anxious about the fact that your bra might pop up in a second. I'm with you, some kinks need ironing out. But that is a thing. It measures your heart rate. It sends it to an iPhone, which analyzes your heart rate, and tells if you...
+
+[00:39:44] you're in love with someone based on how fast your heart's beating, which is not a super foolproof method, and then springs open. There's another bra in Japan, which is in its translation called Marriage Hunt, and the bra comes down with a countdown clock on your bra, which is set by the wearer of the bra. So they go, I want to be... What do you mean by countdown? I want to be married.
+
+[00:40:04] I want the game show countdown. No, so you go, I want to be married exactly a year from now. I want to meet the right person, and I want to be married a year from now. So you set on your bra the... But doesn't that look like you're wearing a bomb? I know. Again, like Anna said about the previous one, there's a few kinks to sort out.
+
+[00:40:25] If this woman doesn't get married in 20 minutes, she's going to explode. Have you heard of Mary Phelps Jacobs? Yeah, she is the person who supposedly invented the bra. Well, she patented an early version of it, exactly, in 1914. And there were versions of it before then, but she was a young woman, She was quite a wealthy young woman.
+
+[00:40:44] She was going to a dance, and she didn't want to wear a corset because it's hard to move, it's hard to dance. But she had the most incredible life. So we featured her on the podcast a few weeks ago. An audience member won a fact by saying that the woman who invented the bra
+
+[00:40:59] had a whipet called Clitoris. And she did. But she was the most incredible woman. So she changed her name to Caress Crosby. And she nearly named herself Clitteris Crosby, but then she said, no, that's for the dog. and then and she sold her patent for not very much money
+
+[00:41:16] but then she moved to Paris and became a publisher she and her husband Harry had this incredible publishing life they published everyone D.H. Lawrence and Charles Bukowski and Lewis Carroll but they also had these rourcous sex and drug-fueled parties in an abandoned mill
+
+[00:41:32] which they owned and they had a they bought their own tombstones and then they kept them on the roof of their block of flats and sun bathed naked on them They just have this incredible life. That is weird. Yeah.
+
+[00:41:45] But the thing is about them, she sold the patent, like you say, for not much money. It was her husband's idea. He got fed up with the whole thing and said, oh, you should just sell the patent. And she did sell it. She sold it for $1,500. And she did this in around 1915, 1916. And then America joined the war in 1917. And corsets were banned because they had so much wire in them.
+
+[00:42:08] And suddenly bras became massive. No. Well, as in... But bras became really, really, really popular, and so she missed out by only a couple of years on making billions from that... Wait, and presumably why they needed why they needed the medal for the war effort.
+
+[00:42:23] I read that they got two battleships out of the steel they saved. It was enough to build two battleships. Oh, wow. The fact about rubber pants at the First World War. Oh, yeah. People used to have a rubber diet, and the rubber diet was not an actual food diet.
+
+[00:42:38] It was just to wear rubber knickers and rubber courses, which would rub against you and make you sweat, and then you would lose weight. Oh, yeah. It didn't work, and it just flayed your flesh. But... That's like, now people would put, like, cling film around them, wouldn't they?
+
+[00:42:52] Yeah, the cling film diet. We've all done it. We've all... But don't, I think boxers do that, don't they? They wrap themselves in cling film, and then they exercise, they lose more weight through water. Jockeys, too, don't they? To lose...
+
+[00:43:03] Yeah, yeah, you're right. But it didn't work, and also... It doesn't work because all you lose is water, and then as soon as you drink some water, it goes back into you. So it's very short term. But then the first world war broke out, and all the rubber was needed for the war. Bouncy, bouncy waltzy waltzy war.
+
+[00:43:23] What do you need rubber far in the war? Lots of stuff, you know. Wheels, wheels, I guess. That's why they call it the bouncy war. Hey, just speaking of boxers and fighting, there's been an innovation off the back of someone watching an MMA fight. that sort of Connor McGregor-style fighting that goes on. And someone lost a match after being kicked in the testicles.
+
+[00:43:48] And he thought, ah, I wonder why that jockstrap didn't protect him more. So he's invented now a bulletproof jockstrap, which is on the market. It's called Nutshells. And Nutshells can withstand a bullet being fired at your groin. I mean, who does those tests? Yeah. I'm pretty sure that the inventor, who's called Raber, did do. that. And so the idea is it can be used for sports because if you're playing baseball and a fastball
+
+[00:44:17] comes or a tennis serve comes or someone's frying a bullet at you at a... I mean, an incredibly well- aimed bullet. Yes. Yeah. But, I mean, it's now, it's been picked up by the military. It wasn't a size joke. It's just a... I need to be a pretty sharp shooter down to hit you. Why does the military need that technology? It doesn't... It has bulletproof technology. It doesn't need a different kind of bulletproof for your penis. It's just the same kind of bulletproof, surely.
+
+[00:44:52] You try surrounding the penis with 30 or 40 layers of toughened glass. I think Imelda Marcos had a bulletproof bra, didn't she? Did she? Did she? Yeah, made out of Kevlar. Right. But yeah, she did. Wow.
+
+[00:45:04] Do you know, the jock strap is... Since you mentioned, it is from jockey, but it was invented. for bicycle jockeys. So this was in the, in the 1880s. I would have thought like American jocks, like just a... No, the word jock comes from jockstrap. So it was invented for cyclists in Boston in the 1880s because they were called jockeys and they deliver stuff and they were cobbled streets. And so it was quite painful to cycle over the cobbled streets. And so the jock strap was invented for that. And that's where the jock comes from. It's a sporty thing now. But at the start, it was a to stop your balls bumping over cobbles.
+
+[00:45:44] Right. Wow. Guys, we need to wrap up very shortly. Oh, okay. So the thing with bras is everyone thought they were invented about 100 years ago. But they found some really old ones from the Middle Ages. And they were found in a castle in Austria by a scientist or an archaeologist called Beatrix Nuts from the University of Innsbruck.
+
+[00:46:06] And she's found out basically that what happened was the bra came first and then the course it took over. and then the bra came back again, which no one believed until 2012 when she found this. Wow. And at the same time, they found what looks like a pair of panties is kind of like a gusset and just some kind of string going round. But they turned out to be men's underwear
+
+[00:46:26] because women didn't wear underwear at that time. And according to Beatrice, underpants were considered a symbol of male dominance and power. Oh, really? Well, because even when women started wearing underpants in Victorian times, they were crotchless, and I read one historian said they were crotchless in order to distinguish them from men's underpants. It must be another way.
+
+[00:46:51] That's the only way you can tell the difference. Name labels are the way. Yeah. Or, you know, the men's ones are the ones which constantly mutter things like, you're doing fine, really. Okay, that's it. That is all of our facts. much for listening. If you'd like to get in contact
+
+[00:47:12] with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shribaland. You can also follow my other account at Cleopatra movie trivia. Andy? At Andrew Hunter M. Yep. And James. At James Harkin. And finally, Chisinski.
+
+[00:47:30] You can email podcast at qI.com. Yep, or you can go to our group account, which is at no such thing. You can go to our website, no such thing as a fish.com where we have links to a tour that's coming up in 2018. Thanks so much for listening to us, guys. Thanks so much for being here today. We'll see you again next week.
+
+[00:47:44] Goodbye.

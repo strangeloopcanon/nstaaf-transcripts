@@ -1,0 +1,263 @@
+# No Such Thing As A Fish - No Such Thing As A Pig In Court
+
+- Episode date: March 2, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-pig-in-court
+- Slug: no-such-thing-as-a-pig-in-court
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I am sitting here with James Harkin, Andrew Hunter Murray and Anna Chisinski. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Chazinski. My fact this week is that the dome of the Taj Mahal is held together. with sugar, fruit juice and egg white. It's actually just a pudding recipe
+
+[00:00:47] that they accidentally turned into mausoleum. Is it also with bricks? There are conventional building materials in there as well, so it's actually a mixture of lime, which is probably... Delicious. Yeah. It's sounding more and more like a capier in her.
+
+[00:01:01] Yeah, sorry, it's the other kind of lime, you know, the one they built buildings with. Lime stoned. Quick lime. Lime and it's mixed together with fruit juice and sugar and egg, and it's called chuna C-H-U-N-A. It's all very food-stuffy, I know,
+
+[00:01:17] with some shells, bits of shells and some gum. And, yeah, this was the plaza that's used on the inside of the dome of the Taj Mahal to hold it all together. And it actually turns out that egg white, especially, it was quite a common building material. But this is used in lots of places? Yeah, I think so.
+
+[00:01:30] So I heard something in passing on the radio and I ended up looking into egg whites in buildings. And there's quite a lot on it in like vaguely obscure books. So there's an essay by a Filipino food researcher. who has an essay called Eggs in Philippine church architecture and its cuisine as if cuisine is just a leftover. I reckon, Anna, you're the only person who's ever read that book.
+
+[00:01:51] I think I may be. It's got to be right. It's about Filipino churches and egg whites. What's her name? Give her a shout out. She's called Pierlimm Castillo. It's not obscure, however, if you're a devout chef in the Philippines, it's a massive seller in that community, maybe. And also, if you are Filipino and you know about, traditional Filipino recipes. This is really interesting. A lot of them contain just egg yolk.
+
+[00:02:16] So in a lot of traditional Filipino food, it's just egg yolk. And that's because they had so much leftover egg yolk because millions and millions of egg whites were being used to build their churches. No way. This is for centuries. Absolutely true. So there's traditional food like briosh, a thing called yema, which is egg yolk sweets. And it's just because there's loads of egg yolk lying around. That sounds extremely untrue, doesn't it? That's amazing. Take it up with Pierre Lim Castillo. So here's a fact The Taj Mahal was built by 22,000 workers
+
+[00:02:46] and it took 17 years to complete and 22,000 workers is the same number of workers as Facebook has and they've been going for 14 years. Wow. That is very good. They also had a thousand elephants working in construction.
+
+[00:03:01] I don't know if they're... Sorry, I'm talking about the Taj Mahal now not Facebook. Yeah, they did, didn't they? dragging all the building materials and I think they had some elephants operating pull. please to lift you know to lift those are the especially trusted elephants that were working the pulley system
+
+[00:03:17] because I don't fully understand pulleys. Pullies are a really simple concept. God if you don't understand pulleys I do worry about what else you're missing. There was the story wasn't there that they cut off all the sculptor's hands after they built it. Yeah. So they couldn't build anything else. Really? Yeah.
+
+[00:03:37] Did they tell you that at the start of the gig? Probably not. Ironically, they do ask you to sign something at the beginning. There's no rude for us. But what if they made a mistake? And of course they said, oh, dear, we're going to have to get the second gallery redone. Can you get the guys who made the second gallery in? They turn up.
+
+[00:03:51] Sorry. Yeah, I don't think they actually did do that. There's also a theory that they blinded them so they wouldn't be able to build anything as beautiful. But that kind of myth is for lots of different buildings. Like St. Basil's in Moscow has the same myth. I had my flat repainted recently. I did the same thing at the end of it. You know, I cut the blanked hands off and I blind.
+
+[00:04:11] him and yeah there was also a tale that they used brick scaffolding that's not a tale that's true which was quite unusual they usually would use like bamboo or something but it was said that they did it to conceal what was happening as they built it so it would be a big surprise when it came down and then there was another thing the brick scaffolding uh shah jahan who was the emperor who commissioned the whole thing and it was a mausolem for his favorite wife he was told that the brick scaffolding would take five years to dismantle and so he had the bright idea of telling the workers that if they dismantled it as fast as they could, they could keep whatever bricks they removed and it came down overnight. Supposedly, yeah. He should tell them that it was like made of
+
+[00:04:48] delicious chocolate or something. Is it true? Have you guys heard about the architecture being angled at such a case and built in such a way that should it topple over, it would fall perfectly away from the tomb itself? Well, supposedly the minarets, there are four minarets around the outside and supposedly they are angled to fall outwards rather than inwards. But I would presume that they're just built not to fall over at all totally yeah I think it'd be weird building in a structural floor that meant that they only fall over in one direction
+
+[00:05:17] yeah I know but at the same time you've made half your building with eggs and flour and fruit juice so you know how we were saying that it was built for his favourite wife so it was what's his name again shah jaham it was his second wife mumtaz mahal that it was built for but there is a mausoleum for his first wife on the other side of the river which I've seen a picture of it and it's currently covered in black mold and cats.
+
+[00:05:43] Yeah. Black mold and cats. Yeah. It's just cats everywhere. Oh just they're there not covered in cats. It's just full of cats. Was she a cat person? Well, that's what they say now. Like the locals say well, all the cats are here because she was such a lover of cats. Was she also a black mold person? That's quite cool though. Just I read about how they clean the Taj Mahal. So that one's covered in black mold. Um, uh, that one's. That one. needs a cleaning, but the Taj Mahal, in order to clean they don't do a classic sort of water-based
+
+[00:06:13] clean, they give it a mud bath effectively. It's like a spa treatment and that gives it the glistening white. Wow, and then a massage to follow? Yeah, put some cucumber on it. That's why there are no lights allowed on it at night.
+
+[00:06:29] You're not allowed to have big spotlights lighting it up because it would look beautiful at night, but they don't do that because that would attract insects which would then poo all over it and these particular insects poo green and that's partly why it's been looking a bit grubby in recent years. It's just constantly battling against excretion
+
+[00:06:45] from insects. Yeah, and air pollution is getting so bad now that they think the mud bath is not enough now. They're going to have to have a shower post-mud bath. I was looking to some stuff about building materials. I thought this was really interesting that, so first of all, hair is added to plaster to make it stronger.
+
+[00:07:05] and actually you will have seen this so it genuinely adds proper extra strength it's added to lime plaster so any bit of lime plaster has got lots of hair running for it you can order horse or goat or cow hair from just construction supplies companies and actually if you imagine like a broken off bit of plaster you know because I see little threads coming out
+
+[00:07:25] that I always thought I don't know what kind of bits of dust that had all got together that's just animal hair that's just actual hair yeah looking up Google like broken off plaster and then you'll see the go hair. Isn't that weird? That's very weird.
+
+[00:07:38] Yeah. Also, sugar is used as a concrete retarder, which is a thing that stops concrete from solidifying too fast. So if you need to properly shape concrete, you pour it down, and maybe it's like a particularly hot day, so it will bake really fast. If you add lots of sugar to it, which a lot of builders do, then that slows down the setting process. That is why builders always want lots of sugar in their tea.
+
+[00:08:01] They then whip it out so they can stick it in the concrete. Have you heard of the English equivalent of the Taj Mahal? It's a memorial to a wife by a grieving husband And it's a thing called the Eleanor Crosses Oh yeah So there's one just down the road Yes, exactly So they were built by Edward I first in 1290
+
+[00:08:19] Queen Eleanor died And he wanted to commemorate her And she died up in Nottinghamshire And he commissioned a huge spire cross Everywhere her funeral procession stopped On the way from Nottinghamshire to London He commissioned one of these huge crosses So there were 12 of them
+
+[00:08:33] them there are any three remaining and outside charing cross there's a restored victorian replica and it looks very cool like a little space needle it's got three statues of of a woman and it was eleanor of castile wasn't it yes is why yeah and she had a triple burial it was rare so her heart was buried at blackfire station i think it was something else before it was blackfire station yeah they've just renovated black fire station haven't they oh yeah if they found the heart when they were doing that maybe You'd probably miss that, wouldn't you? Yeah.
+
+[00:09:05] With your big truck. I don't think you'd spot a shriveled thousand-year-old heart. But maybe it helps the concrete to set. It does. That's why. You have to put a heart in every brick. And her organs went to Lincoln Cathedral and her body went to Westminster Abbey. So where would you go to grieve at her graveside?
+
+[00:09:23] Where was closest, I guess. Okay. I guess that's the true convenience of it. I think you would go to Blackfraise because of the heart. Would you? An easy train connection. Okay, it is time for fact number two, and that is my fact. My fact this week is that there is an ice golf championship held each year in Greenland,
+
+[00:09:47] 600 kilometers north of the Arctic Circle. However, because of the constantly shifting ice shelf, no players hold any records on that course because it changes on a daily basis. Is that nuts? So there must be no guide as to how to play the course well, is that right? There's a lot of guidance on how to play it well because you're playing on icy terrain. You're allowed things that you're not allowed in a normal game of golf. For example, you're allowed to clear the path.
+
+[00:10:13] Like in curling? Yes, exactly. You can, yeah, you can sort of just make it nice and a bit softer. The par is much higher. I don't really play golf or understand the rules. So it's a par of 36 per hole. Wow. Okay.
+
+[00:10:26] So in normal golf, you wouldn't go up but five. Right. Wow. You sure it's 36 per hole? It's not 36. It's maximum handicap of 36. Ah, okay. Is that different?
+
+[00:10:35] That basically means that you get more shots taken off. Right. Basically. Oh, okay. All right. The par of 36 would just be so tediously long. Goal's tedious enough anyway. Imagine if it was 36 shots per hole.
+
+[00:10:48] I mean, is that what we're going to say, that girl's tedious? I've got some stuff about that. So just a bit of explanation about this. This is played in a town called Umunak. It was set up by a man called Arnie Nyman. He's a hotel manager. And it's this tiny, tiny town. It's got just over a thousand residents.
+
+[00:11:11] There's more dogs there than there are people by a factor of three to one at least. Because you get everywhere by dog sledding. That's the mode of transport. So, yeah. And so he set this up in 1997. It's an annual event, except for when it's too cold and the course has to be closed because it's just too icy and impossible. And you'd get frostbite the moment you step out.
+
+[00:11:30] Maybe if it got too hot, they'd have to cancel it as well. Yeah, that's true. Yeah. And the ball is red, isn't it? The ball is red so that they can see it. The hole that you hit the ball into is twice the size. So there's lots of different rules that get played, but it's seen by golfers. I know you're a golfer and you probably didn't know about it necessarily beforehand,
+
+[00:11:51] but a lot of golfers talk about it as the craziest course you could ever play. So they actively fly out to this remote place to be a part of it. of this odd game. And it has, all the holes are a bit closer together because the cold air is more dense. And so there's more drag. So I didn't realize this. And the golf balls move a bit slower through cold air. That does happen.
+
+[00:12:13] If you play golf, you know that when the cold weather's on, it just doesn't go as far. I played golf once in the Himalayas where the air is really thin. And it just goes miles. Really? That's the best place to play golf, by the way. Because it's not having to tussle its way through a load of air molecules. Oh, the molecules. That's it.
+
+[00:12:28] The molecules get in the way. Well, this is what's confusing. because cold air is more dense because the molecules aren't moving as fast, so there's more drag, but you would have thought as you say, once you get at altitude and it's cold because there are just fewer air molecules, it must move faster because they get in the way.
+
+[00:12:42] So it moves slower through some cold air but then faster at altitude sounds like. This is why golf is such an interesting game. Is this what the commentary's like if I ever bothered to turn it on? You know, I was reading about the dimples inside the golf balls, that doesn't really have a proper science to it, does it? It's just
+
+[00:13:01] What do you mean by that? Do you mean it works outside the laws of physics? No, I guess you would look at any sort of sporting equipment and you would assume that the design and the shape was for a specific purpose and tests and it sounds like original golf balls didn't
+
+[00:13:18] have any of these dimples but golf players prefer to play with ones that had little indentations on them. As far as I know, but you might know better, there's no exact reason why it's that many dimples. No, I don't know why it is. It's easier to pick up a golf ball with dimples than it is to pick up a golf ball without dimples. Yeah, they're like
+
+[00:13:34] finger holes if you're a lilliputian. But then ping pong balls are easy to pick up. Yeah. I don't find that actually. I find ping pong balls almost impossible to reach them. You should play with sticky gloves. That's a good idea. But then
+
+[00:13:50] you'd never let it go for the serve, which would be a problem. What I do is I put the ball on a bit of string. That seems to solve the problem. I think you would get more grip on the ball to get spin on it. Yeah. And there might be a thing about vortices,
+
+[00:14:05] but I just, you know, I don't know what that is, but... Okay, James, here's a question. Have you found that golf has been getting harder? Because you've been playing for some years. Hmm. How many years would you say you've been playing? 30. Wow.
+
+[00:14:18] Okay. So, supposedly developers... You've been playing since you were 32. It's just a joke about you being old. Sorry. Yeah, I actually got the hurtful comment. Sorry. So supposedly developers have been building
+
+[00:14:35] longer and harder courses because professionals were getting really good in the 90s and 2000s and I think there was a conflation between pros playing on courses and amateurs. The equipment's a lot better though. Right. Than it used to be.
+
+[00:14:47] Yeah, so apparently there are a load of quite hard courses now these days and people who might not want a very hard game of goal for saying, oh, can't be bothered with that. Is that right? I don't know, but it's a theory. It's hard for me to remember back so long. Well, I started playing.
+
+[00:15:02] It was just sticks of wood and golf bowl stuff with duck feathers. And I remember on the first round, they said to Mary Queen of Scots. We should put dimples into these balls. Do you guys know about the most southerly golf club in the world? No. Of course. So this is called Scott-based Country Club, and it's 13 degrees above the South Pole. And so there are a lot of scoer birds around.
+
+[00:15:27] So if you have your ball stolen by a skewer, you get a one-stores. shot penalty, which seems harsh, because they're always stealing the balls. That does seem harsh. Yeah, but if you hit one, it counts as a birdie. So it's the one instance where if you hit a bird, you get a birdie. I think that sounds cruel, though, isn't it? Do you mean hit it while it's trying to steal your ball, or you hit it as part of a hit and it's in the sky?
+
+[00:15:49] No, it's part of a hit in the sky. I don't think you see it trying to steal your ball, then you attack it with your golf club. What happens when you do that because you don't want the penalty? You get arrested, I don't know. Oh, okay. This is a confusing game. I mean you could just try and hit the skewer bird into the golf ball hole But it's probably too big
+
+[00:16:05] We really don't know this forward, do we? It's called a hole Interesting It's good to be the expert for once I heard tell James of a thing about golf I read that until January this year You were allowed to ring up a tournament if you were watching at home And report a rule violation
+
+[00:16:24] I know that that happened last year Yeah, and they've just brought it to an end. Have they? Yeah. Oh, I didn't know that. Lots of the tours have come together and said, guys, stop phoning in. We'll just have some officials watching who know all the rules.
+
+[00:16:35] But this used to be a major thing. And also, if you committed a mistake and someone phoned it in, and you didn't know, you would then, at the end of the day or the end of the round, you fill in a scorecard, don't you? And there's a penalty for filling in a scorecard incorrectly. Yeah. So you get the penalty for making the mistake,
+
+[00:16:51] which you didn't know you made. Yeah. And then you get a double penalty for filling in your scorecard wrong. Exactly. There is so much. disqualified from tournaments. I think Lexi Thompson had that done to her. Yes.
+
+[00:17:00] Is that as unfair as the skewer bird thing? Yeah. Can you imagine if someone rang in and goes, I'm pretty sure he hit that skewer bird? Do you, James, as a former accountant, do you prefer golf for the admin side of things or for the sport itself? Or does it combine the two loves?
+
+[00:17:18] It's my two loves, yeah, Spartan admin. Wow. Filling in that form, yeah. Well, it's crunching numbers a lot of the time. Well, it's mostly just adding one. on every time you hit a ball. Apparently, apparently a lot of high-end professionals can't even manage to do that. Um, Um, Um, Um, Um, Um, Um, um, um, uh, time a little facts about this very, very small
+
+[00:17:40] place. Um, they have notable people with for such a tiny little town, you would think that wouldn't be the case, but Miss Greenland was from, uh, from that place, Umanuk. She's married to an actor, uh, called Nicola Costa, um, um, uh, called Nicola Costa Waldo who you would know better as Jamie Lannister from the Game of Thrones TV show. So yeah, Jamie Lannister's wife is from this very tiny town where ice golf has played. Yeah. That's my fact. That's a good fact.
+
+[00:18:11] Yeah. Well, you know, it's a very tiny, tiny place. Lots of ice in Game of Thrones. Lots of ice, yes. Yeah, winter is always there. Not much golf. No. Well, we haven't seen the last series yet.
+
+[00:18:23] Very true. They're going to have to put in a lot of golf to make up for the death. it the last few series. Wouldn't it be great if the last series is just golfed by all the characters? It would be amazing. I might start watching. And then whoever wins a golf tournament gets the throne. That would be brilliant.
+
+[00:18:38] Perfect. My money's on Breanne of Taff. Oh, good. But then, Circea Lannister gets penalised because she illegally moved the ball when no one was looking. A scoobird dies. That's the grand finale. Okay, it's time for fact number three. And that is James.
+
+[00:19:03] Okay, my fact this week is that in the 14th century, you could be executed in France for wearing stripes. Because they were the clothing of the devil. Oh, really? There was a cobbler in the town of Ruan. And he was also part of the local clergy. And apparently he got caught in striped clothes and he got condemned to death. It's such an easy condemned to death to avoid, isn't it?
+
+[00:19:27] Yeah, I'd have to really, really like stripes. You are wearing stripes today. That's true. But that's only because I'm not in 14th century France. I'd just wear something plain. So I read this in a review in the New York Times of a book called The Devil's Clough, A History of Stripes and Striped Fabric by Michel Pastero. And it looks like an amazing book from the review, I got to say.
+
+[00:19:50] And they think that maybe it was from the Bible. In the Bible it says, you will not wear upon yourself a garment that is made from two. And maybe in medieval France they thought that that meant you can't wear stripes. And so they would send you to death. if you did. Wow. It's such an extreme reaction
+
+[00:20:06] against something relatively that we think is innocuous. Supposedly that even zebras, I also read the same review, the zebras were included in Satan's bestiary. They were thought to be a satanic animal. So all zebras were put to death?
+
+[00:20:20] That's right. Were they really? That's why we don't have any zebras anymore. That's correct. They used to be huge in France. No, they would make besteries, wouldn't they? And they put the animals in different places
+
+[00:20:31] in the bush. and the zebras would be in the evil part. It's such a, it's so mean to animal to just call them evil for no reason. I guess we still do it a bit. But it seems like 14th century France was just you would be executed for a lot of things that would seem ridiculous. Like you would be executed if you were a naughty pig, for example. Like pigs were taken to court, actual animal pigs.
+
+[00:20:53] Yeah. And tried in court and then sentenced to death. We do execute pigs now, don't we? Even the nice ones. Yeah. But we don't take them to court. No. to charge them. We don't have lawyers.
+
+[00:21:03] Maybe they deserve a trial. You're right. Actually, we've gone worse. That's true. Bacon's going to get a lot rare if every pick has to go through a full judicial process. The appeals process, imagine that. It's weird that stripes have often had negative associations, though, because stripes obviously were the attire of prisoners since the 19th century. And so that was seen as a badge of shame.
+
+[00:21:28] And in fact, it was so much so that by the mid-20th century, prisoners had stopped wearing stripes and that's where the jumpsuit came on the all one-color jump suit because it was kind of unfair because it was so associated with this shameful thing. And weirdly, they are coming back in. I think maybe it's a sign of the direction that America's going in, because it shows you a tough on crime if you introduce stripes because it's a proper badge of I'm a prisoner. So it's like stripes of the new orange, which is a new black. Stripes, the new orange, absolutely right.
+
+[00:21:57] Supposedly the stripes in prisons thing is not connected to this 14th century France. thing. As in the author of this book, Mr. Pastero, has found no direct link, so there's no guarantee. But prostitutes used to wear stripes. Yep. Jugglers. Jugglers, prostitutes and jugglers. Two most dangerous groups in society. Clowns, hangmen, lepers.
+
+[00:22:19] It's a mixed feast, isn't it? Hang men and clowns. So is this Britain or is this France? This is going to be Europe, I should think. So you've got prostitutes, jugglers, clowns, hang men, lepers, cripples. Heretics, Jews, Africans, bastards and the condemned. Wow. Did you book the clown for our daughter's party? No, but I got a condemned man, a leper.
+
+[00:22:42] A bit of a bastard. Yeah, it's all people who are outside society, wasn't it? That was kind of. Jugglers, come on. Juggling is not a normal social profession. I'll tell you what, if you got condemned to death for juggling, then that's an easier thing not to do. than wearing stripes.
+
+[00:23:02] It's very easy not to do. Oh my God. Although if you accidentally dropped something and then you caught it just as it was fallen. Juggler! Death. I like that in France, in the 14th century, they tried to band those long-toed shoes
+
+[00:23:21] that you see almost as parodies. This is my favourite facts ever. Really? Because they banned, specifically banned shoes shaped like penises. Yes, that's right Yeah, because they got bigger and bigger and bigger and bigger And more pointy and pointy and pointy
+
+[00:23:38] And then someone thought, I'm going to make mine look like a penis And then they were like, we're going to have to put a stop to this That's so good You don't get shoes shaped like penises now, do you? No, so they got, they did, it worked So the long pointy shoe thing They try to ban that in France And in England, you could get them in the 14th
+
+[00:24:01] century is sort of as long as two feet in length, that sort of long point. And they were very fashionable and cool, but they were never practical if you had to suddenly make a dash, you know, if someone was chasing you or whatever. So what they used to do is if they knew that they were in trouble, they would cut off the fronts of them and then that would, they would dash off. Nice, like a lizard. Yeah, exactly. So cool. Yeah. That's amazing. You couldn't have a mullet either in the 13th century. You couldn't have an iron. Irish hairstyle, which it turns out Irish hairstyles were having the top of your head shaved and then long hair down at the bottom. Wow.
+
+[00:24:36] Like a mullet. Like a bullet. Like a bullet. Like a bold mullet. Oh yeah, I thought that a mullet, that was a name for the bald head. No, a mullet was more like short on top and long at the back, whereas completely bald on top. Like a bullet. Like the Bill Bailey style.
+
+[00:24:54] Yes. Why weren't you allowed an Irish hairstyle? It was a classic kind of racism. You know, they thought the Irish were a bit barbaric and then they had this. weird hairsty so don't do the hairstyle otherwise you're a barbarian they had something this week where there's a school that's banned the meet me at macdonald's haircut which is the opposite of that a mullet which is like kind of curly and long on top and then shaved on the sides that all the kids have why is it called meet me at mcdonald's i don't think anyone knows i think actually people
+
+[00:25:21] under the age of 20 know and then people of our age are just like why do they call it that and they're refusing to tell us in the elizabethan era only royalty could wear leopard leopard skin completely limited to royalty yeah I mean there weren't many there were thousands of leopards around which you know depends on the availability of leopard
+
+[00:25:38] that's really good yeah and yeoman's wives there was there were due to these sumptuary laws yeoman's wives were only allowed to wear lamb rabbit fox or cat fur nothing else leopard is a type of cat
+
+[00:25:51] oh yeah I'm just saying if I was a yeoman and my wife wanted to wear leopard I'd let her wear leopard and then just argue she'd be arrested and put in prison and then she'd blame you because she said, are you sure I'm okay to wear this outside?
+
+[00:26:05] And you said, yeah, it's officially a cat. They'll find that out in 500 years. I'm a terrible husband. Okay, it is time for a final fact of the show, and that is Andy. My fact is that Victorian Britain had such a fern mania for so many years that some species were almost completely wiped out. Yeah. There was this massive fern craze, and it lasted 50 years.
+
+[00:26:41] Victorian Britain, all the other stuff they did, they were basically just killing time in between collecting more ferns. So people would go on these huge collecting parties into the countryside, and they'd collect ferns for their homes, and there were so many collectors going out that there's one species called the Killani fern, which was almost wiped out in the UK, and it barely clung on to survival. It was a huge problem. Well, it was a problem, but on the other hand,
+
+[00:27:05] They were doing lots of crossbreeding, so they invented a whole load of new species. So actually, by the end, there were more species than where you started. That's cool. Yeah. So, for example, custard creams, the biscuits? Yeah. They have ferns on them. You know that curly design on a custard cream?
+
+[00:27:23] Yeah. That's a fern. Yeah. From phone mania days. From phone mania days. Is that, this isn't actually that useful for a podcast, but I think we've got a fern in this very room, haven't we? Is that a fern? Is that a fern?
+
+[00:27:34] I don't think it is a fern. I think it is. There's a lot of fern. It looks like just a pot plant for me. Because ferns have got these kind of fractal bits coming off. A little bit more intricate, aren't they? Sorry, Andy's giving me a look like literally I just saw a dog and said, look at that lovely horse.
+
+[00:27:50] That's coming from a guy who doesn't know how pollies work. It's literally named after the thing you do. You just pull it. Andy turns up in the polly and just pushing it. What's going on? And with Fernmania, they marketed it as something. that only appealed to intelligent people. Oh, did they?
+
+[00:28:08] Which I thought's really good bit of marketing that, isn't it? So clever. Yeah. And the other nice thing about it was, railways were spreading across the country so you could go on more expeditions than you could before. Literally travel was easier, and you got to maybe talk to the opposite sex
+
+[00:28:23] without a chaperone. So that was a big draw. Well, that seemed to be the big thing from the bits of reading that I did about it. The big thing was Ferns. No, no. Ferns was Tinder. Ferns allowed you,
+
+[00:28:35] as Andy says, to talk to the opposite of sex and go on adventures. You always say this. The opposite of sex. Opposite sex. Yes. The opposite of sex is marriage. Yes. Just on the flirting thing, I think it was also kind of liberating for women.
+
+[00:28:55] So it was quite an important phenomenon for women's liberation because it was something that was deemed acceptable for them to do on their own. So it wasn't really acceptable for women to go out without a chaperone for many reasons. at all. But Fernmania was particularly attractive to the ladies, because whatever, they like collecting plants, and so they could all go out on their own and collect them. So it gave them all this independence and this adventure and really caused suffrage. Wow. I've made a big leap.
+
+[00:29:20] Big leap. I'm going to stick to it. Yeah, it sounds like it sort of just took over, well, let's say London even. Just every theatre suddenly became packed with it at the orchestra pits. They just used to just turn it into basically a. botanical garden. It was just, the orchestra were just covered in ferns as they were playing. But people loved it because they were there for the ferns, more than the music even. Yeah, I think that was the Prince of Wales Theatre, wasn't it? To where they did that,
+
+[00:29:47] turned it into a fernary. And it was, we should say, it was all because of this thing called the Wardian case, which is, which Andy looks really excited about already. But this was invented in 1829 by Dr. Nathaniel Bagshaw Ward. And it was basically, he accidentally discovered that in a glass airtight jar ferns could survive. And it meant that ferns, which wouldn't have been able to cope with the British climate until then, when they'd been imported from sort of China or Australia or whatever, could suddenly survive in these jars. And these wardian cases became really fashionable.
+
+[00:30:18] So if you were anyone in high society, you had to have this big, beautiful wardian case full of ferns sitting on your dining room table. Can you still get them, do you think? Ooh, maybe antique ones. I don't know if you could buy new ones. Or maybe you can. Because I'm looking at kind of decorating my spare room. with curiosities and stuff
+
+[00:30:36] so I thought like a Wardian case would be really good. Is that you? They're really lovely looking. I think that's a great idea. They do look gorgeous. I think Nathaniel Bagshaw Ward might be the man who won the Second World War.
+
+[00:30:49] Oh God, here we go on. So Fern's got us suffrage and winning the Second World War. Pretty much. Okay, so basically... Can he also invent Facebook? Yes, he did. So his whole innovation,
+
+[00:31:03] He discovered it kind of a little bit by mistake, but when he realised that these hermetically sealed things, you could keep a fern alive in them, he built two custom-made cases, hired a carpenter, and he sent them to Sydney full of ferns. Okay, so they were on the boat for six months. They got there, they were alive, they were all fine, so that was incredible.
+
+[00:31:20] So then he filled his case up with Australian ferns, which previously they'd never been able to get to the UK, and they returned. So they arrived about 18 months later, a very, very long journey, and it completely changed the entire. world history of botany, basically. So it meant that tea plants could be transplanted to India from China. So that created the British Empire in no small way.
+
+[00:31:44] Wow. It contributed to the British Empire's rise, smash the Chinese tea monopoly. And it meant that rubber trees could be brought from Brazil to Q Gardens in the UK and then to Malaya and Sri Lanka. And that created the British colonial rubber industry, which was very significant in the Second World War. But then I think it also sounds like you're saying he invented colonialism. It massively changed the imperial project. That's true.
+
+[00:32:09] That's the diplomat's response to that thing. Well, it just like huge unintended consequences, I guess, of this hermetically sealed case, which just meant suddenly you could move plants around the world like ever before. Also, Russia and America played a big part of winning a second world war, and I should make that clear. It wasn't just this one guy. No, but, you know, yeah, that's pretty, no, that's pretty, no, that's, That's pretty cool. It's often very amazing and mind-blowing to hear how a tiny invention somehow impacts a world in a way that you previously thought it was just flirting.
+
+[00:32:44] I thought, okay, that's all it was. All of your notes on Tinder, Dan, I think you're trying to say. It's amazing that Tinder helps us win World War III. Do you know how phones have sex? So they release spores, which is known, but then they sprout into a specific sexual generation, which looks nothing like a fern. So it's a specific organism called a prothalus, and that grows independently for several weeks,
+
+[00:33:07] and then that grows its own sex organs, and they produce the eggs in the sperm, and then that sporophyte it produces grows into a new fern. It's like if we had sex and then gave birth to something it wasn't a person, and then that person then produced a person. Yeah. It is weird.
+
+[00:33:24] That is weird. The double stage. You don't want to be, I don't think, in the crap generation that's only got half the right. number of chromosomes and that just its job is to make the sperm and the egg which then create the real one. It's like if we get birth to penises. No, it's like if we gave birth to testes and ovaries. Yeah, it is. Yeah. And then the human grows off of it. Well, then the testes and the ovaries would hang out together and then they'd bump into some more testes and ovaries and then
+
+[00:33:52] they'd create humans again. Wow, that is weird. Every analogy breaks down eventually. That one was pre-broken down, I think. That helped me understand that more. But what I find amazing is in this, the crappy stage where they're the thing that creates the sperm and the egg, the sperm swim. So this is why ferns only survive in damp environments because they need to swim through water to find themselves an egg. So you've got little fern sperm swimming around everywhere looking for eggs. That's very cool. But they didn't know how it worked for ages, did they?
+
+[00:34:23] And they thought it must be seeds. But they couldn't find these seeds. So they thought the seeds were invisible. and what they thought was if you could find a fern seed and carry it on you, it would make you invisible because they thought weird shit in the old days, didn't they? But it was the idea that if you eat a walnut because it looks like a brain, then it will help your brain.
+
+[00:34:44] And in the same way, if you managed to find an invisible fern seed, it would make you invisible. So how do you find an invisible? Well, they don't exist, the seeds. No, I know, but like if you were peddling that as an idea. Do you think people ever thought they'd found one? That's what I mean Would you sell
+
+[00:34:59] Would there be a guy in the You know The alley is going I've got Yeah Some fern seeds It's like magic beans Isn't it
+
+[00:35:04] Yeah exactly Just a bag of invisible Furn seeds And then I think it would be really fun If it in like a medieval Truman show way To have an entire village
+
+[00:35:12] Persuade someone That they were invisible Yes So if you let someone think You've got some fern seeds And then he buys them And then everyone just pretends They can't see him
+
+[00:35:21] For the rest of his life Yeah In 2015 There was a fern found In the French Mountains Which was the offspring of two groups of ferns which haven't interbred in 60 million years. They split into separate lines of dissent that long ago.
+
+[00:35:34] And one of the authors of the paper on this was called Kathleen Pryor. She said, reproducing after such long evolutionary breakup is akin to an elephant hybridising with a manatee or a human with a lemur. But she did also say, although to most people, they just look like two ferns. That is incredible. And it also implies that are we all going to start interbreeding with other species until we go back to being a single-celled organism. Oh, wow.
+
+[00:35:59] Yeah. Wow. That's an interesting idea, is it? Suddenly feels like that's the obvious conclusion to draw. But isn't the problem that a lot of the people who we'd have to interbreed with have died out? So really we'd have to breed with some Neanderthals first. And then the homer erectus and then the monkeys and then the lemurs. And then some of them.
+
+[00:36:18] Like old fish eventually. Yeah, but some of them aren't there anymore. The shit, the theory is falling apart. Does this work? It's such a cool theory. It's like the big crunch comparison to the big bang. It's imagine that's how it all goes back. Sorry, what's the benefit?
+
+[00:36:33] There's no benefit, Andy. It's just going to happen. It's just a way. Or you just think this is how evolution's going to. It's just a great sci-fi idea. It's just inevitable. Started with the ferns. And it ends with you having sex with the sealer camp.
+
+[00:36:47] I'm not sure. They'll be saying as we de-evolve. I can't believe they didn't spot this with those ferns. All the clues were there. They should have known. Fern mania There was also tulip mania Wasn't there
+
+[00:37:00] I didn't know there was also Rose mania Hyacinth mania Dahlia mania and cactus mania Yeah And carnation mania When were these around the same time No cactus mania in the USA in the 1830s
+
+[00:37:14] Rose mania in ancient Rome Hyacinth mania in Holland in the 1730s Dalia mania in England in the 1820s It just seemed to be a thing where every now and then everyone would just love a plant and just go crazy for that plant and then stop. And we haven't had a mania for ages for plants.
+
+[00:37:31] No, but we have manias, don't we? I think maybe they just had less stuff back then. They didn't have Bitcoin, did they? Exactly. They didn't have Tamagocchi's. They didn't have Pokemon Goh. But they did have an abundance of rare plants. Have you heard of orchid delirium?
+
+[00:37:44] Yeah, so that still exists. Does it? Well, as in everyone's still into orchids. I would say that's the longest-lasting mania. You could still, if you find a rare orchid, the police will look after it to make sure no one steals it and stuff. Really? Yeah. That happened on the golf course that I used to play on.
+
+[00:37:58] Yeah. As in the orchid was found in nature in the golf course. Yeah. So the orchid was just by the side of the golf course. Yeah. And then they had a policeman there kind of looking after it. Wow. That's so weird. Why? Because otherwise if you damage it, then you've destroyed an entire species. Because it was like extremely rare. Oh, but you couldn't dig it up and just cultivate it somewhere else.
+
+[00:38:22] I think that quite difficult to. Yeah, exactly that. They die basically. If you try and do anything with an orchid, it just goes, nope, mate. It's just going to die. It's almost drawing attention to it to have a policeman standing next to it. You know what? I did play golf a lot on that golf course. I was a member and I never saw the policeman.
+
+[00:38:36] Oh, he was very good. He had some of those fern seeds. On really rare plants and how mad we go over them. In 2010, a group of botanists were doing this routine plant survey on Ascension Island. It's the tiny island in the South Atlantic. and they saw what looked like a tiny mini-parsely sprig on a sheer cliff face, like sticking out of a rock. And apparently they, both of them, two of them saw it,
+
+[00:39:06] they instantly recognised it as a fern that had been described first in 1876, only seen two more times in history the last time in 1958. So instantly both of them were like, oh my God, check that out. So it had been declared extinct in 2003. So obviously they abseiled down to it, check it out. And then they thought we've got to preserve this fern. This is really precious. So they abtailed down every day or a couple of times a week to water it and to weed it and to care for it
+
+[00:39:33] until it produced spores because it was so valuable. Yeah. And then when it finally produced spores, that was obviously an incredibly exciting day because they could collect them. So two of them went down and they have only 24 hours before the spores won't be useful anymore. Yeah. And they had 24 hours to get them to queue gardens. And so... From a Ascension island. Wow. I'm not sure I could get to Q Gardens from here. It'll take you about three hours.
+
+[00:40:00] Well, they had some extra help put on. So they rushed them to this airfield where they were flown immediately to R.F. Brise Norton in Oxfordshire. And a car was specifically waiting for them there to drive them straight to Q Gardens. And then they got on the district line and sat at Earl's Court for four hours. Wow. And is it there, no? Still there.
+
+[00:40:21] And it's produced a few offspring. Oh, thank you. It's so cool. That's the tenses I've been. I've seen films in the last week that were not as good as that. Okay, that's it. That is all of our facts. Thank you so much for listening.
+
+[00:40:38] If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At James Harkin. Andy. At Andrew Hunter M. Anna. You can email podcast.
+
+[00:40:51] At q.com. Yeah. Or you can go to our group account at No Such Thing or our Facebook page. No Such Thing is a Fish. You can also go to No Such Thing As A Fish.com, our website, and it has links to everything. Our upcoming tour, our book,
+
+[00:41:04] it has all the previous episodes. It's got everything we've ever done. Okay, we'll see you guys again next week. Goodbye.

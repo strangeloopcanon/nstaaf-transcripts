@@ -1,0 +1,233 @@
+# No Such Thing As A Fish - No Such Thing As Dolphins At The United Nations
+
+- Episode date: January 25, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-dolphins-at-the-united-nations
+- Slug: no-such-thing-as-dolphins-at-the-united-nations
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I'm sitting here with Anna Chisinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, James. Okay, my fact this week is that the emperor of the Inca's, Only ever wore an outfit once, after which it was immediately burned. I'd be that. Do you?
+
+[00:00:49] Yeah. Why are you wearing the same jumper as you've won for the last three weeks? No, I've worn 21 different jumpers over the last three weeks. So this was the, he was called Sapa Inca, and he wore special clothes that no one else was allowed to wear. Is there a theory as to why he couldn't wear them twice, would we not know? We don't really know. I think it's just because he's so important.
+
+[00:01:10] And it's an ostentatious show of wealth, isn't it? And his clothes were seen as divine because he was seen as divine. It is a bit like the Duchess of Cambridge. Who? Does she do that? Well, if she reuses an outfit, the newspaper say, oh, she's recycling her clothes, as opposed to only wearing everything once. Do you think they burn it after she uses them?
+
+[00:01:30] Maybe. Maybe the ones you really like, she squirrels away so she can wear them again. I don't know. How did they record their information, the Inkers? Yeah, so that is interesting. Unlike a lot of the Meso Americans who we don't really have any information apart from like ceramics or cloths or textiles, we have a bit about the Inkins because they did talk to the Spanish. They were the last Meso Americans that were there before the Spanish wiped them out. I didn't quite wipe them out, but basically a lot of them died.
+
+[00:01:57] So we know what they did by what the Spanish said, although it should be said that the Spanish did lie a lot. Yeah, why wouldn't you? They defeated them. Exactly. So maybe this is not true. So when the Spanish came actually It was an extraordinary thing that happened first of all So it was 1532
+
+[00:02:15] And it was the conquistador Francisco Pizarro And he turned up and it was a surprise attack That he launched on the Inca That sounds a bit like a surprise party When you put it like that, doesn't it? Surprise! Surprise! Have some smallpox
+
+[00:02:29] Yeah, have loads of murder But he, according to the Spanish records They killed 7,000 Inca without themselves having one single fatality. Which you can't believe would actually be true, but that is what was recorded. But the amazing thing about this is that we can study exactly what happened and the influence of the Spanish by looking at this one glacier.
+
+[00:02:53] So we've talked about this kind of thing before, but there's this glacier, which is 150 miles away from where Pizarro landed. It's called the Kelchaya Ice Cap. And it's the largest ice cap in the tropics. And what it does is, because South America has wet and dry seasons, then a layer of dust forms every year in the dry season. And so we know exactly which year it is by looking down in the ice cap. Like tree rings kind of thing.
+
+[00:03:15] Exactly like tree rings. And so they've studied this ice cap to see what the influence of the Spanish was. So the Spanish came and they started doing metallurgy. And so it's got lots more kind of metallurgy deposits, various different types of metal deposits in it. When the revolution started, the independence revolution, suddenly a lot of mines were decommissioned. And so the pollution levels in it go down, which show you that.
+
+[00:03:35] And you can just drill straight through this ice cap. And you've got this like year by year calendar. Another thing we can look at is llama poo. And that will tell us what happened with the Inca's. Because basically their culture moved around maize, which was the main crop. A few other things like potatoes and stuff. But maize is one of the main ones. Mays pollen comes in so you can look at that.
+
+[00:03:59] But at the same time, you can find a lot of mites in the ground, dead mites, which feed on llama ex increment. and you can work out by the number of these mites and the amounts of maize pollen exactly how big and small the Incan Empire was. It was kind of the super fuel, the Lama Dunn because you need to farm more intensively. And there was a big switch to maize about 2,700 years ago. And the way they found it is so cool because they studied, I didn't know this was a thing, they studied what's called mud cores in a lake.
+
+[00:04:31] So it's like an ice core, but it's made of mud. Yeah, and it was also, it was really easy for the Inkers Because llamas defecate communally You know, they have one toilet Not that all llamas go to But that, you know They live, it's a big country, peru So yeah, and that was what made it possible
+
+[00:04:50] To grow huge maize fields Because it's much richer They wouldn't have done it without that fertiliser Oh wow Yeah, they were very into llamas, weren't they Rolied on them massively Into llamas, into maize Yeah
+
+[00:05:00] To potatoes Not into the wheel Needed the llamas because they didn't have wheels So because they didn't have carts that could be pulled like massive long distances, they instead had this incredible system of chaskees and probably not how you pronounce it, but who knows how ink has pronounced things? And chaskeys were relay runners. So they were totally crucial to the whole Incan empire.
+
+[00:05:23] They were exempt from things like farming and taxation because they were so important. And their whole job was to deliver messages and parcels and equipment through the empire. And so they would run a short space, like they'd run 10 kilometers and they'd pass a message onto the next person. They had to memorize the entire message perfectly. So it was like Chinese whispers. Oh, right. They weren't holding a message.
+
+[00:05:43] No. Because I was wondering if that's why our empire wasn't so big because we can never get a relay team that can get that on the Olympics. You just keep dropping it. So the Inca, obviously, they were taken out and there are no longer any sappers. But there is a descendant of a sapper Inca or the Inca emperor who is still in power to this day. Wow. So it's a long descendant.
+
+[00:06:05] It's the last Inca emperor called Hayaana Capek. His descendant is the current president of Chile. Really? Yeah. It's a direct descendant. His name's Miguel Pinerra. And he's actually serving for the second time as president, which is a new rule. They've never allowed that before.
+
+[00:06:22] And he's a billionaire. So he's still this super rich kind of character. So he could afford to burn his clothes after every time he ordered. He's worth two billion pounds. The last Inca Sapa was called. anyone? Ooh. It's also the name of a rapper.
+
+[00:06:40] Tupac. Tupac, correct. You're kidding. He was called Tupac Amaru, and he was killed by the Spanish. But then there was an insurgency in the 18th century, and another person who wasn't related at all called themselves Tupac after this guy. And then Tupac Shakur, his mother, I think, named him after this insurgent. Wow.
+
+[00:07:04] That's cool. That's true. Very interesting. The kings, they would go to the coronations of their descendants. So their mummies would be at the coronation because they were really important still. They were reminding the new king that he descended from a long line of kings. And also, they would stay powerful after they died because the royal family would visit the mummified kings and ask their advice about stuff. And then an oracle sitting next to them would...
+
+[00:07:30] What did you say? A bit like Matthew, Carbett and city. Yeah, exactly. What a show you that would have been. There's quite a few of the Inkers, because they've got documents of the lines of the names that are associated with those Sapper, and quite a few of them are mythical,
+
+[00:07:49] and then suddenly they just become real. People always do that, do that. Yeah, it's like with Japanese emperors as well. Yeah. This is the problem with not writing stuff down, because it's an oral history, isn't it? Or they did have this system of Kui Poo or Kippoo, which is these rods that had lots of threads
+
+[00:08:03] with knots tied into them hanging from them, which was some really complex language that we don't understand. So all we know is through oral history, which is always going to be entangled, I suppose, with myth. Yeah. Do we still not know what those knots mean? We're getting close. Wow.
+
+[00:08:16] Yeah. That's so cool. We're getting close. Maybe in our life, maybe in the next five or ten years, they'll work it out, we think, possibly. That's so cool. What are they missing? Are they missing like a knot Rosetta Stone?
+
+[00:08:27] Yes, they are. But they've found one, which is some record keeping, where it's in Spanish and also in keeping. and they think that they might have the names of some emperors now and they're getting pretty close. Very cool. Do you know where Matsu Picchu is twinned with? Well, I've been to Machu Picchu, it's at the top of a massive hill that's really hard to get to. So is it a high gate. Oh, okay. Nice. It is not, though. It is the Yorkshire village of Hayworth.
+
+[00:08:56] Is it? Oh. Yep. That's a big deal. They had a ceremony in 2005 and they've twinned with the great Incun city of Machu Picchu. What is that? What's the connection? Yeah, do we know anything else about Hayworth? Is Hiram Bingham from there? The Brontes were from there. Did they get it? Okay, were they explorers?
+
+[00:09:11] They have nothing to do with Machu Picchu. I was reading the ceremony. I think they just wanted to inspire an interest in sort of Peruvian history in some school children. But I have no doubt Macchupichu has no idea it's Twinnedwood Hayworth. It doesn't have a sign as you enter Machu Picchu, James. It says Twinnedwood Hayworth. Now you've seen Machu Picchu. Is it, sorry, I thought Brontes were from Haworth, but is it not,
+
+[00:09:33] that. Oh, is that how you pronounce it? Oh, I don't know, actually. Oh, is it H-A-W? Yeah, yeah, it's probably Howeth. I don't know. Someone from Yorkshire writing. Right in, right in, everyone from Yorkshire. I don't think they've learned to write, have they? Oh, no, that's the Inks. Sorry. Maybe that's what connects them. They are going to write it now. I don't know how we're doing for Inka stuff. I've got a fact about ritual burning. Great.
+
+[00:09:59] In 2017, Pakistan's Minister of Tourism Fida Khan was so annoyed about his flight being delayed that he took his clothes out of his luggage and started setting them on fire. It's only going to delay the flight more really, isn't it? If you start a fire in the airport. Unless they say, oh my God, there's a fire. Everyone get out of here.
+
+[00:10:18] You get on that plane. It's the quickest way out, isn't it? Don't you find it weird that when you see people wearing these amazing expensive clothes on the red carpet and they don't own any of them? It's actually kind of like all these celebrities are, you know when you are struggling financially? You sort of hire stuff and then you have to send it back,
+
+[00:10:39] otherwise it accrues interest. They're basically those people, they're poor early 20s students who are hiring out a dress. They're going to Top Shop and then getting it and then wearing it once and then taking it back saying, no, no, I never wore it. Do you think the day after the Oscars is just a cue of Jennifer Lawrence? You've Bradley Cooper.
+
+[00:10:54] Touch up. Yeah, I go, oh man, they are really strict. It has to be within one to two days always. I was reading about just while we're on America and the sort of rich elite there, Russell Westbrook, who is a basketball player, who you guys won't know, but in America, he's one of the biggest names in basketball,
+
+[00:11:09] and he's very famous for his flashy outfits. And he is someone who has said, he said this on Ellen DeGeneres show, he never wears the same clothes twice. But he says he doesn't waste them, he donates them, you know, it doesn't burn them, he donates them to goodwill charities. And as a result, he says when he walks through,
+
+[00:11:25] or he's in a car going through Oklahoma City, he just sees everyone wearing his clothes. It's just like a city. Is everyone the same size in Oklahoma? As a basketball player. You just got loads of people with loads like they've been given by their older brothers. No one can pick anything up because the sleeves are too long. That's so true.
+
+[00:11:55] Okay, it is time for fact number two, and that is Anna. I've changed the number of my fact, by the way, so don't freak out when I say it. my fact this week is that about 70% what? I mean it's so fucking predictable my fact this week is that about 70% of parents
+
+[00:12:19] admit to having a favorite child yeah this and they do have favorite children I've got a favorite one. You've only got one it's not that it's not mine which is your favorite
+
+[00:12:31] I met this awesome kid the playground when Wilf and I were there. It's called Jeff. Wicked. Jeff. Right, so about 70% of parents were as bad as Dan is at parenting and prefer certain kids. And I was going through a bunch of kind of studies that have been done over the years, as they often are into parenting.
+
+[00:12:51] And that seems to be roughly the average. So there was a study in 2016 that asked parents and 74% of mothers and 70% of fathers admitted to having a favorite. I was in California. There was another one 10 years earlier where it was 70% of fathers, but 65% of mothers. So it seems like mothers have really gone off their kids in the last decade. And yeah, this keeps on coming up again and again. If it's an in-depth study, they will sort of reluctantly admit that they do have a favourite child.
+
+[00:13:17] And also studies that look at the behaviour of parents towards their children invariably find that they prefer certain children in the way they act. Is that right? So I just, I texted my mum this morning because I have three brothers and sisters and asked if she had a favourite. Oh yeah. And she didn't say either way, which suggests to me that she does and I'm not it. You have a one and four chance, though.
+
+[00:13:41] That's something. Yeah, I'm pretty sure I'm not even her favourite on this podcast. Wait, hang on. Are you the youngest? And the eldest. Well, that damages your chances. Oh. Because there have been studies done finding that half of parents who confessed they had a
+
+[00:13:55] favorite said that it was their last born. Right. And there's another theory about why it's the last born, which is the that more than half of parents and grandparents said that the last born child made them laugh more. So there was an Australian news website which said, so if you aren't the favourite, you might just not be very funny. And that was written by my mum. But the good news is kids are really bad at knowing which one the favourite is.
+
+[00:14:22] So it shouldn't make you feel too bad. Really? Yeah. They, again, in these studies, when they look at who the children think is the favourite and who the parents' favourite actually is, it's really often different. So there was a survey which was, it was only 30 older mothers
+
+[00:14:35] and they were asked about their adult children and 80% of those mothers admitted to having a favourite and 80% of the children said their parents definitely had a favourite but almost all of them got the favourite wrong. Wow. So maybe parents are overcompensating.
+
+[00:14:47] So in effect it doesn't really matter if you're the favourite or not because if you are the favourite you will be treated better but you won't know it and if you're not the favourite they'll make up for it by pretending to treat you better
+
+[00:14:57] so it doesn't matter they don't really like you. Exactly. not going to show it. How blatant would a parent make it though? What the... As in you wouldn't give one child loads of presents at Christmas and the other no presents. It's not like Cinderella or Harry Potter or something. Does your child cry much, Dan? No, not too much.
+
+[00:15:14] Oh, really? Because a lot of children do, I've read. And according to evolutionary biologist David Haig, this might be to stop their parents from procreating and having another baby, which kind of makes. sense if you think about it, evolutionary, doesn't it? Yeah, I read about this. This was, they do it at night, particularly, right? The idea of like late nurse feeding from the mum, so that if you were about to go, okay, let's get down, your baby would stop you. Yeah, and the idea is that the baby then gets more resources because it doesn't have to share it with brothers and sisters, which means in theory they should do better in life, which means they should reproduce more and then.
+
+[00:15:56] Wow. But doesn't also breastfeeding act as a contraceptive? So if you're exclusively breastfeeding as a woman, you tend not to have periods. Is that right? Meaning that you can't become pregnant. Right. So the more the child cries and wants breastfeeding, the less chance there is that another child will be born. So it's working double efforts. Yeah.
+
+[00:16:16] Stopping the actual sex. And then even if the actual sex is happening, it's still acting as a like a human contraceptive. Problem is it? It's obviously not working, is it? So these genius babies are failing. They're doing the best they can. Maybe in another million years They'll evolve to, you know,
+
+[00:16:32] make chastity belts or something. One of you were saying that parents don't tend to just favour one kid with loads of presents, but there was one parent who literally did exactly that. So do you guys know about Evelyn Waugh's dad? No. So Evelyn Wall had an older brother called Alec, and his dad absolutely loved Alec and absolutely hated Evelyn War. So all the way through their life,
+
+[00:16:55] if Evelyn Moore wanted anything, his dad got it for his brother. So Evelyn asked for a bike. His dad bought one for Alec instead. Alec once asked for a billiards table. And so Evelyn Waugh was a child at the time he played in his nursery. And the dad just dumped a billiads table in this room that he was supposed to play in. He once said when Alec fathered his first son, then Evelyn Waugh's dad said to the son, I've only ever loved three people in my life.
+
+[00:17:19] Or I've only ever had three great loves in my life. And my mother, my wife and your father. And that's it for Old Evelyn. But Evelyn War was also mean to his children, wasn't he? Yes, he was. We've done the banana story before, haven't we? Which is that there was lots of rationing in the war, and Evelyn War had children,
+
+[00:17:40] and there was a special thing where bananas were distributed because they had not been easy to come by during the war, and so you would get basically a banana per child, and Evelyn Wall sat his three children down in front of him and proceeded to eat all three bananas. I think with a knife and 40 boardwark, cream over them and just sat there eating the banana. So did he just hate them or?
+
+[00:18:03] That must, maybe he was teaching them some lesson that we can't quite comprehend at this amount of time. It can't be how to eat a banana with a knife and fork. I have a task question for you guys. Yes. The company Kellogg's. Who's it named after? John Kellogg. John Kellogg.
+
+[00:18:24] John Kellogg. Incorrect. John Harvey Kellogg is the guy that we've talked about before he was sort of an inventor he thought everyone had to eat oats and stop masturbating stuff like that
+
+[00:18:36] He was again Only two rules at Kellogg Academy So he's a famous one I think that people know about John Harvey Kellogg But Kellogg's Corn Flakes And Kellogg's the company Was founded, invented and named after his brother And so he
+
+[00:18:54] John Harvey Kellogg had a younger brother called Will and John was this really flamboyant, really outgoing charismatic guy. Will love masturbating and a hated aunt. They were polar opposites. They were opposites although I don't know about their masturbation. Around the dinner table, one of them's got a big bowl of oats. Not near my serious. Anyway, we get this back on track.
+
+[00:19:27] It's actually quite a serious rivalry. Oh my God. Will was opposite of John Harvey, not very flamboyant, like hardly said anything, super shy, was younger. He worked for his older brother for 25 years, so at that sanitarian that he founded, Battle Creek Spa, where he did like real dog's body staff. John Harvey treated him really badly and made him do
+
+[00:19:50] all the drudge work made him shine his shoes and stuff never gave him an official job title hardly paid him anything and eventually will turn around and thought I'm the better businessman I'm going to set up Kellogg's company invent some cornflakes and he did it so he set up this cornflict company in 1906 and it had a promotional campaign where the slogan was wink at your grocer and see what you get that's a spelling mistake
+
+[00:20:15] and you've got a bowl of cornflict Okay, it is time for fact number three, and that is Andy. My fact is that Robert Louis Stevenson died halfway through making a batch of mayonnaise. It's very sad. It's very sad because he was young, he was only 44. It is. It's so sad. It just makes me sad that also that batch of mayonnaise, I suppose, never got finished, presumably. Oh, that's the real tragedy, yeah.
+
+[00:20:49] Also, how long does it take to make mayonnaise? It takes me about two and a half minutes. Well, it was a very sudden death. No, I think he was dropping the oil in drop by drop. It might have been a longer process. He probably didn't have a food processor in those days. I don't think he did, no, especially not in Samoa where he lived. So, yeah.
+
+[00:21:05] Yeah, just very quickly, you're saying an early death, people, when the news got relayed, because he was in Samoa, back home, people were properly devastated. Famous authors, like Henry James actually flat out denied that it was true. He just thought, this can't be right. and Rudyard Kipling said he was so upset he couldn't write for a month. He was just absolutely broken by it. Yeah. Wow. Big, big character in his time.
+
+[00:21:31] Yeah. Yeah. But about this mayonnaise? Yeah. Sorry. What about it? You are supposed to add the oil slowly. Okay.
+
+[00:21:40] That's what he was doing. And he, yeah, he took ill halfway through making the mayonnaise and then he sort of collapsed and then he died. It was very, very sad. He was a sickly being, wasn't he? He was so ill and weak all the way through his life. It's amazing. wrote as much as he did. Yeah.
+
+[00:21:53] Yeah. Well, the idea was that some people said he wrote quicker than anyone else because he knew he'd had these hemorrhages and he'd been sick. And so because he knew his life would be short, he felt like he had to just get as much out as possible. That's interesting. Wow. Yeah.
+
+[00:22:08] Just back to mayonnaise. Dan, will you stop going on about mayonnaise? Well, I was just looking into, because he was in Samoa and he was eating mayonnaise. And I thought, I wonder if that's, did I eat mayonnaise in Samoa? Turns out they love it. I found a Facebook page called Samoan quotes and sayings. And there's one quote which is if you eat everything with mayo, you might be a Samoan. Hashtag Samoan Habits.
+
+[00:22:34] And yeah, apparently it's a very, very loved source there. Really? Anyway, back to Stevenson. So when he was in Samoa, one thing that Robert Louis Stevenson did, which is very sweet, was that he gave his birthday to a child. He was born on the 13th of November and he bumped. into a little girl who was called Annie I'd, a daughter of a friend of his, and she was born on Christmas Day. And so she said, oh, I never get a proper fuss made of me on Christmas Day. So he drew up a proper legal document, what kind of pseudo legal document, in which he said, I bequeath you my birthday.
+
+[00:23:07] That's good. So was she one year older than she thought she was at the end? Oh, I don't know. Or half a year older, right? Aged herself up. He was born on the 13th of November, so it's not too too much better. So just a month. Yeah, you're still in that category of birthday present. present, annoyance, I would say. So I was reading, he wrote such a sweet letter to her and he put it all in legalese because he trained to be a lawyer and so it started out saying, I trust this will prove sufficient in law and, you know, explain why he was doing. He said, I've attained an age where we never mention our age anymore because it's so old,
+
+[00:23:39] so I have no further use for my birthday. But I remember discussing this before in it being in November, but at the end of this letter, it said his birthday was the 19th of June. Ooh. He gave a fake birthday. Is he given her a fake birthday? I guess so because actually maybe he was thoughtful. Yeah.
+
+[00:23:55] And he thought, well, actually that November date's no good. I'm going to pretend it's June because I mean it's all pretend. It's all made up, isn't it? Yeah, yeah. Birthdays aren't made up. Birthdays are real. This is legal thing, right? But lots of his interactions were with,
+
+[00:24:08] lots of his significant interactions were with children. So supposedly he only started writing Treasure Island when he met a small boy who repeatedly asked him why he didn't write something interesting like Robinson Crusoe. Wow. I think he was a little. already an interesting writer. I like his stuff. But, uh, yeah. You're saying you don't agree with that little child. No. You think his previous stuff was a fool. I don't know. I think that was, I mean, that's what's
+
+[00:24:31] made him in the end, isn't it? That's the main thing that everyone knows him for. It is, but there is one claim that he invented the sleeping bag. Oh yeah. Now, that should be the biggie. That's true. Well, I don't, I don't think he did invent the sleeping bag, but he commissioned one of the very early sleeping bags or invented a kind of prototype version of it because he was traveling solo through the Savin Mountains in France with only a donkey and that was research for his book travels with a donkey in the Savan. An imaginative title. Yeah.
+
+[00:25:02] You got to throw of those. And the donkey was called Modestine. And he was really rude about the donkey. He said, oh yeah, the donkey held me up. I would have done it faster if it hadn't been for this donkey which was carrying all my stuff and my sleeping bag. When Robert Louis Stevenson had a birthday in Samoa, he was very popular there, they celebrated by consuming 804 pineapples. Sorry, can I interject here?
+
+[00:25:26] Yeah. What the fuck was he doing celebrating his birthday in Samoa when he's giving it away to a girl? One girl on the side, saying, excuse me. Put those pineapples away. That was his 14th birthday, so it must have been after that. Terrible behavior. 800 pineapples, that's amazing. That's a lot.
+
+[00:25:43] It's a lot. I don't know how many people there were enjoying those pineapples. There might have been 900 people and 100 people went hungry. His wife was called Fanny van der Gryft Osborne. Isn't that a great name? And one of the early women he fell in love
+
+[00:25:58] was called Fanny Sittwell. He had a thing about Fanny's. He loved Fannies. Their story was quite sweet, actually. She was married to this guy in America and he sent her to get their kids educated in Paris. And that
+
+[00:26:14] was where she fell in love with Robert Lewis Stevenson. And so she popped off back to New York, got a divorce from this husband of hers, and said, I fall in love with someone else. And then her and Stevenson got married straight away, and her ex-husband came to the wedding with his new girlfriend. Did he? Yeah. Wow.
+
+[00:26:30] That is quite close. Very mature, I think. Very mature. We've been talking Treasure Island, but the other big, big work outside of Travels with my donkey is, of course, Jekyllyn Hyde. And that's really interesting Jackalyn Hyde. He wrote a first version
+
+[00:26:48] of the book and hated it, absolutely hated it. So threw it in the fire and burnt it. And then he rewrote the whole book in the space of, I think, a weekend. It was like 30 hours that he sat and he managed to bring it out. He was quite bad at spelling. That was noticed in the
+
+[00:27:03] drafts of that. But Jekyllyn Hyde, there's a few interesting facts about it. The first one is, we're all saying it wrong. It's G-kill. G-Kill G-Kil. If you were pronouncing it, pronouncing it, it's J-E-E, and then
+
+[00:27:18] Kill. G-Kill. Is that what he said? Did he put a pronunciation guide in the back? He did, he said that in an interview. He said, let the name be pronounced as it is spelt G-Kil, not J-Kil.
+
+[00:27:29] It's not spelled G-Kil. He's a bad speller. We've already established. But it sounds quite Scottish, doesn't it? Because he was Scottish, you know, G-Kil. G-K-K. And do we know how to pronounce Hyde?
+
+[00:27:40] Heed. No, I think it's probably Hyde. He did lead quite... Robert Louis Stevenson did lead a kind of almost Jekyll and Heidi life in some ways. So first of all, he created an alternative character for himself. And this was when he was in Edinburgh and he loved doing really absurd things for the sake of it.
+
+[00:27:57] And him and his cousin would play pranks on everyone. They called them jinx. And he created this character called John Libel who sort of haunted Edinburgh in all these different ways. And so, for instance, he... It had hundreds or thousands of calling cards for John Libel printed off. And he went around Edinburgh handing them around to everyone, saying you must get in touch with this person.
+
+[00:28:18] Oh, God, that sounds very familiar from the Edinburgh Festival. I'll be in the voodoo rooms at 3pm every day. He used to go into hotels or boarding houses all over the city and say, has John Libel arrived yet. And they'd say, no, he hasn't. He said, he will. Word got around. Like, who's this guy?
+
+[00:28:39] He dropped into conversation that he was an agent looking for the person who was going to inherit the liberal fortune. He tried to get an ad in the Scotsman. He just created this guy that everyone was talking about. That's really clever. It does sound like a good way to get noticed at Edinburgh, doesn't it? It's not a bad idea.
+
+[00:28:53] Just go into hotels. Is Andrew Hunton put it here? Yeah. No. He will be. Okay, it is time for our final fact of the show, and that is My Fact. My Fact this week is that
+
+[00:29:11] in the 1960s, NASA helped to fund a scientific project that aimed to teach dolphins to speak the English language so perfectly that they would be given a chair at the United Nations to speak on behalf of marine mammals. Obviously, they wouldn't fit in a chair. You'd have to have some kind of tank set up. That's true. Imagine a dolphin flopping around in a chair. UN think tank. So did it work? It did not work. But the premise of it was quite interesting. It was a guy called Dr. John Lilly, and he had the idea, along with his wife, that dolphins were talking through their blowholes in a sort of specific noise that suggested that perhaps that could be manipulated into human language. And if they could train these dolphins to talk, that they would be able to get cross-species communication going. Now, the reason NASA got involved is because NASA thought, let's see where this goes.
+
+[00:30:06] If they get anywhere with this, this could be useful in the future, should we ever make alien contact, the idea of learning. some fundamental basics about communication. That kind of makes sense, right? Because we don't know that aliens will have the same kind of language as us. They could have the same kind of language as any animal. So you would like that. Yeah, so this was set up in the 1960s. And when this funding was given, NASA allowed through its funding to let John Lilly set up this
+
+[00:30:29] kind of really bizarre laboratory where they flooded an entire room with waters so that a dolphin called Peter could live in there with this lady who was going to sit there for months and months on then. She had a mattress in the room. She had a desk that she could work at. Was the mattress wet? Was it underwater the mattress? No, she had like a platform.
+
+[00:30:51] She wasn't underwater herself. Sorry. It was her who was the instigator, really, of making the experiment so extensive. That was Margaret Lovett, right? Who visited and she loved dolphins already. She visited this place. And she totally fell in love with these three dolphins that were there. And the lab at the time was just one tank.
+
+[00:31:09] And she said, I want to see the dolphin living in this house, in this full lab, as if it's its own house. So she insisted it was all flooded. And then she said, I want to stay with it 24-7 so she can really get to understand how it works. So she could help with this experiment. And yeah, then she erected these hanging platforms so she could sit hanging from her swing desk. It's very shape of water, isn't it? It is very shape of water.
+
+[00:31:31] Those platforms aren't the only thing she erected because, well, anyway, Peter was a young male dolphin and needed. and I think fancied her, basically. Yeah, I think quite famously dolphins do tend to have a bit of a hump, don't they, when you go swimming with them? You hear a lot of stories of celebrities. I must say, I went swimming with dolphins once, and I attracted no attention whatsoever from the dolphins. God, not a celebrity.
+
+[00:32:03] Apparently it's only celebrities. Insist on seeing your Instagram followers. Maybe they're whispering to the dolphins. Seriously, it's a very successful podcast. They all have a higher bar than that. Margaret used to do, it's interesting looking at the techniques that they tried to teach the dolphins with. One of the techniques I thought was interesting was she painted her face white. She put a white paint all over her face and then she used black lipstick.
+
+[00:32:34] And the idea was she wanted the dolphins to look directly at her lips to see the way she was mouthing words. So it's sort of to distract every other. bit of her face from being the attention. They wanted the dolphin, I couldn't believe that the dolphins were speaking through their blowholes because I don't think if you think of dolphin chatter as coming from their mouths. And she said that the one thing she wanted him to say,
+
+[00:32:58] Peter the dolphin to say, was her name. He wanted her to say, Hello Margaret. And she said that it's very difficult to get a dolphin to make an M sound with its blowhole. And eventually he rolled over and kind of bubbled it through the water. But the dolphins could imitate humans. We should say that they were, able to imitate, you know, the pitch of a voice and maybe even the frequency too, I think.
+
+[00:33:18] So there was some progress, but not a lot. Not enough. Not enough. Yeah. And then it got a bit dodgy when he, this is John Lilly, who set up the whole thing, as we said before, started experimenting with LSD. He thought that the drugs would actually help the dolphins in order to understand language better and communicate better, open their minds up maybe. So he started injecting them with LSD to try, get that going. Is that right? It was injection. Yeah.
+
+[00:33:47] She wouldn't let him inject Peter, but she couldn't stop him injecting the other two. But it didn't really affect them, did it? Dolphins don't really, well, I guess we don't know what vision is they're saying because they still have everybody. They can't speak. Everything they could see had an M in it. So they just couldn't say, he was just seeing M&Ms everywhere, but he just couldn't say it. But then he got too into LSD, didn't he?
+
+[00:34:07] And ran away to experiment more with that. Yeah, so the project got abandoned and so on. So there is no marine. mammal chair at the United Nations as a result. And then he did go into drugs. He decided that he would take a lot of ketamine and go into sensory deprivation tanks, which is a bit stupid because they're just full of water. And so on quite a few occasions, his wife had to save him from drowning.
+
+[00:34:29] And at one stage, he said, one evening, I took 150 milligrams of ketamine and suddenly the Earth Coincident Control Office, who were some aliens that he believed in, removed my penis and handed it to me. I screamed in terror. wife Tony came running in from the bedroom and she said, it's still attached. So I shouted at the ceiling, who's in charge up there? A bunch of crazy kids? I did not get to that bit of the story. He sounds like a reliable man to be doing science. So yeah? I wonder how many times your husband would have to take loads of ketamine and get into a tank of water before you didn't
+
+[00:35:05] save him. I think on the fifth or six time. Especially if he hasn't got a penis anymore. What's the point? No Willie Lily, they called it. We are talking to dolphins now better than they used to. Yeah, so we've got this thing called a chat, which is a cetacean hearing and telemetry device. And it's just been invented. It's about the same size as a toaster. You wear it on your chest.
+
+[00:35:33] All animals tell you you look like a twat. No, they've worked out how to translate. So you can teach dolphins to recognize certain words. That's clever. teach them to recognize the human word for seaweed, and then they make their own sound for that seaweed, so you know what, so this machine could work out what the dolphin sound for seaweed is,
+
+[00:35:53] and then it can translate that back to a human, so they have got dolphins now to say the word seaweed into this machine. That is pretty good, and actually, if you think about it, at the UN, they don't all speak English, do they? No, they speak all sorts of different languages, and it gets translated. Yeah, buy a toaster thing on your chest.
+
+[00:36:09] But you could theoretically have a dolphin at the UN, just, I mean, all of you. can say a seaweed at the moment. You would shove one of those earpieces in its blowhole, I guess. Yeah. Yeah. So it would have to breathe sometimes and then, well, you'd have to take turns to breathe and speak and listen, which you should do in life anyway.
+
+[00:36:27] So I don't think we've mentioned before Peter Gabriel's project. From Genesis. Peter Gabriel from Genesis is working on an interspecies internet. Well, it's this really cool project. He's been doing it for a while. It happened because he's so he's a music. and he sort of played music with some apes and he thought these guys are really getting me
+
+[00:36:48] and he called this scientist called this scientist called Neil Gershenfeld who runs, I really like his job, he runs MIT's Center for Bits and Atoms and this guy, Peter Gabriel none of this sounds real, I don't know. These are legit people. A woman called Diana Rice who's a cognitive psychologist
+
+[00:37:07] and one of the founders of the internet, Vince Cerf or Kerf, who I think worked at, Apple. It's a difficult second invention, isn't it? After you've invented the internet and then you go, now I'm going to invent an internet for monkeys. Is it obvious next step? Is it for all
+
+[00:37:24] animals to talk to each other? Yes. So you can get a wasp talking to a rhino. Exactly. If they would have nothing to say to each other, would they? They might have anything in common. What are you talking about? They can all bitch about humans. That bloody humans swatted my mate today. Yeah, well, they took off my nose.
+
+[00:37:40] But the user interface. it's going to be really hard. Yeah. Because you're going to be... They use a mouse. Amazing. Oh, just stuff on the UN. Oh, just stuff on the UN.
+
+[00:37:56] I didn't realize this, but I think maybe it's quite well-known that the UN, the idea of the UN was conceived by Churchill and Roosevelt when Churchill was naked, as so many things were conceived. I think we talked about his poncho on for naked. His children, probably. So this is from... lazy suckly who was a confident of Roosevelt, who, it was when America had been sucked into the war, and they decided that they had to have a united front against fascism, and they wanted to know what to call it. And FDR was lying in bed, going to sleep. And suddenly...
+
+[00:38:26] Churchill bursts in. No, no, he didn't notice the other way around. FDR thought, United Nations! And so the moment he woke up the next morning, he jumped out of bed, and then he actually had some breakfast. And then... And then he went up to Churchill's bedroom and knocked on the door, and Churchill said, come in, and Churchill emerged from the bathroom, butt naked, and apparently appeared like a pink cherub, FDR described him as.
+
+[00:38:52] FDR pointed at him and exploded, the United Nations. I think if I was Churchill, after he came in, pointed at me naked and said, the United Nations, that would be the nickname for my genitals. I can get you a seat on the United Nations, if you like. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the stuff we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, James. At James Harkin.
+
+[00:39:33] Andy. At Andrew Hunter M. And Chisinski. You can email podcast.com. Yep. Or go to our group Twitter account at no such thing. Or you can go to no such thing as a fish.com where we have everything from tickets to our upcoming live. UK tour and Ireland, and you can also listen to all of our previous episodes. Okay, we'll be back again
+
+[00:39:52] next week with another episode. We'll see you then. Goodbye.

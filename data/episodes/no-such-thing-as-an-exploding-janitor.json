@@ -1,0 +1,564 @@
+{
+  "slug": "no-such-thing-as-an-exploding-janitor",
+  "title": "No Such Thing As A Fish - No Such Thing As An Exploding Janitor",
+  "url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-an-exploding-janitor",
+  "episode_date": "June 22, 2023",
+  "episode_date_iso": "2023-06-22",
+  "segment_count": 138,
+  "word_count": 8756,
+  "segments": [
+    {
+      "timestamp": "00:00:00",
+      "text": "Hi, everybody. Dan and Andy here. We're just letting you know about our special guest this week. This is such a fun show. It was recorded live in Belgium at a festival called Nerdland. And it's with one of our very oldest friends and one of the first ever guests we had on the show. Yeah, that's right. It is the almighty Belgian science comedian Levin Skaira. Levin is someone who has been with us from the get-go. As Andy says, he's appeared a few times. He's brought us over to Belgium in the past. and we got to go to his geek-created festival called Nerdland, which was just packed with scientists from all over the country and for some reason us."
+    },
+    {
+      "timestamp": "00:00:38",
+      "text": "And we played this massive tent. We had to fill our slot without Anna and Levin very kindly jumped into place and played with us on stage. And he's just someone who you absolutely need to find out more about. And in fact, his live show, which is called DNA, has been released on his website, Levenscariter.com. an English version of his science comedy show and that's really worth checking out. It's online now streaming. So give that a go and the other thing we should let you know is that if you enjoy this live show,"
+    },
+    {
+      "timestamp": "00:01:11",
+      "text": "we have another live show coming up. There are very few tickets left for our Soho theatre dates this summer, but we have just added another live show which is going to be at the London Podcast Festival. It's on the 14th of September. It's at 7pm. It's in London, obviously, but it's going to be streamed as well. So you'll be able to buy tickets wherever you are in the world. It's going to be so much fun."
+    },
+    {
+      "timestamp": "00:01:32",
+      "text": "We would love to see you there. That's right. Yeah. So get booking the physical in-store tickets as they were. So you could be there with us in the room. But if you can't make it, do get the online tickets. And to get those tickets, all you need to do is go to no such thing as a fish.com slash podfest. You'll find the links there to buy the appropriate things."
+    },
+    {
+      "timestamp": "00:01:50",
+      "text": "And otherwise, we hope you get a taster of what we're like live nicely with this episode. with our good mate Levenskira coming to you live from Belgium. Hooray! On with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from the Nerdland Festival in Belgium. My name is Dan Schreiber. I am sitting here with Andrew Hunts, Murray, James Harkin and Levenskira."
+    },
+    {
+      "timestamp": "00:02:41",
+      "text": "and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order, here we go. Starting with fact number one and that is Andy. My fact is that in the 1970s, NASA employees had to walk around holding broomsticks in front of them to detect invisible fires. Ooh."
+    },
+    {
+      "timestamp": "00:03:04",
+      "text": "Yeah. I didn't even know that, in fact, now I'm worried about invisible fires. You should be. Because we don't have anyone with brooms here. How would we know that there wasn't one happening? We just wouldn't. Oh, right. Stay vigilant, I suppose."
+    },
+    {
+      "timestamp": "00:03:15",
+      "text": "So were people noticing that it was only janitors who weren't going up in flames? Yeah, and they thought. Yeah, I didn't know about invisible fires. Oh, I should say, this is a fact from Anna Welch, who sent it in to us at the podcast email address. So thank you so much, Anna. It's because NASA uses liquid hydrogen for lots of their rockets. And since the 1950s they've been using it. And it's incredibly flammable."
+    },
+    {
+      "timestamp": "00:03:38",
+      "text": "It's a great fuel for a rocket. It burns at 5,000 degrees Fahrenheit. It's ultra explosive. But, of course, hydrogen, first atom, first element in the periodic table, it's tiny. The atoms are incredibly small, and it's very flammable. And because the atoms are so small, it leaks. It can leak, even if you've welded two plates of metal together, you can get hydrogen leaking out. Just like a little hole in the weld and it will just sneak through."
+    },
+    {
+      "timestamp": "00:04:02",
+      "text": "Exactly. And because it's quite temperamental, a high-pressurized amount of hydrogen can easily become a fire. However, the flame burns with this incredibly pale blue fame. You almost can't see it. And so this was a real problem. So NASA employees to detect if they had a hydrogen fire in the situation had to walk around holding a broomstick. And when the head of the broom caught fire,"
+    },
+    {
+      "timestamp": "00:04:26",
+      "text": "they knew that that was a problem, basically. And that's it. That's what they had to do. I do hope there's video footage of this. All these brilliant engineers with sticks just walking around. Have you heard of this leaving? Like, you do science. No, I haven't heard of the broomstick story."
+    },
+    {
+      "timestamp": "00:04:42",
+      "text": "I know that hydrogen fires are a thing. My father worked in a steel factory. So they also had hydrogen in pipes. And like you said, the smallest leakage, the hydrogen would come out. And it would ignite, my dad told me, it would ignite from the heat of a piece of dust hitting the side of the pipe. Whoa."
+    },
+    {
+      "timestamp": "00:05:01",
+      "text": "That would be enough to ignite the hydrogen. And so then you have your invisible flame. That's incredible. Obviously, flame is a huge problem for NASA generally. They hate fires. They're really not keen on fires, NASA. Unless it's at the very bottom of the rocket, shooting them up. That's the one time they like fires."
+    },
+    {
+      "timestamp": "00:05:20",
+      "text": "Otherwise, it's a really bad thing. So back when they were trying to work out the Apollo missions and who was going to be flying to space, there was a guy who was hired as basically the fart researcher. And because there's methane in the farts, and if you're in a tin can going back to the moon, it's going to catch on fire. So there was a guy called Edwin Murphy"
+    },
+    {
+      "timestamp": "00:05:38",
+      "text": "who at the 1964 conference of nutrition and space and related waste problems pitched that we needed to find astronauts who didn't fart with Mephame. With Mephain, right? And they exist. He found them. He's like, they're out there. Is that Buzz and Neil Armstrong? They don't fart?"
+    },
+    {
+      "timestamp": "00:05:56",
+      "text": "Because I've been in a lift with Buzz Aldrin. Oh! I can't say that he didn't fart. The farts are produced by your gut bacteria. So the reason that some foods produce more fart is because they go all the way down in your gut, like things with lots of fibres such as Brussels sprouts. And the fibers take food to the downside of your gut,"
+    },
+    {
+      "timestamp": "00:06:19",
+      "text": "and so the bacteria eat them and produce this methane. And when you can't digest lactose, then it will also find all its way down. So in order to fart, you have to feed your bacteria all the way down. But not all of us have bacteria that produce methane. I however do because I was tested. Really? Yes."
+    },
+    {
+      "timestamp": "00:06:40",
+      "text": "We had a science show. What's the test? It's not just, it's not a lighter, is it? I can leave it up to your imagination, but you can test it with a lighter because you can actually light it at the source. But if you produce this methane in your gut, it will end up in your blood and in your breath."
+    },
+    {
+      "timestamp": "00:07:00",
+      "text": "So I simply took a breath test and then they saw I had methane. The reason we did this, was because we found an old patent of a fart gun. What? Yes, the fart gun. This is a toy gun, and you put a dart in it, and then it has a small chamber."
+    },
+    {
+      "timestamp": "00:07:17",
+      "text": "When you feel a fart coming up, you press the chamber against your butt. While you fart, you pull the lever, it fills up with methane, you pull the trigger, and the dart flies out. Which way is the dart flying? Whatever direction you prefer, Mr. Schroeder. That is amazing."
+    },
+    {
+      "timestamp": "00:07:35",
+      "text": "I think I did it wrong. That's a patent. They've never made one of those. They have been produced, and we have reproduced them with a 3D printer. And after many attempts, over 50 attempts, one dart flew through the room. That's incorrect. Wow, really. Yeah, so it's about 50% of people who don't have methane in their farts."
+    },
+    {
+      "timestamp": "00:07:54",
+      "text": "And he created a special bean meal whereby he had you eat it, and then you farted into a sort of rectal catheter, and it collected the farts. And he pitched it, and they said, We'll just give them less 40 food in space. Spoil spots. Okay. This is another fact sent in, actually, by someone called Don Padden."
+    },
+    {
+      "timestamp": "00:08:12",
+      "text": "And it's a memoir of NASA in the 1960s. And he wrote a memoir of what had happened in his life. And one incident, a terrible incident that happened at NASA, was an accidental activation of the launch tower water deluge system. So, you know, huge, like a massive sprinkler system, basically. Designed to just shut down any disastrous fire that might be happening. And it was an area gas hydrogen detector. So the problem was it wasn't a hydrogen leak that had caused this system to go off, this deluge."
+    },
+    {
+      "timestamp": "00:08:42",
+      "text": "The cause was, and he wrote up in his report, in his memoir, gaseous emissions of robust Chrysler senior engineer. What? He had been up working, like fixing an engineering problem on the hydrogen tank and farting at the time. And they didn't know until this point that the detector could smell human farts. They thought it was just a hydrogen leak detector. but it turned out... That's amazing."
+    },
+    {
+      "timestamp": "00:09:06",
+      "text": "Oh my God. Millions of dollars of damage. Yeah. Levin, I want you to imagine now you're on Apollo 11, making your way up to the moon. And I have one question for you. Would you like still or sparkling water? Ooh, I think I would like still water. Well, you can't."
+    },
+    {
+      "timestamp": "00:09:24",
+      "text": "The reason being that on Apollo 11, there was a hydrogen filter on the water, and it leaked, and it meant that hydrogen got into the water, and so all the water was physically. Wait, but water already contains hydrogen. Yes, it does, but this had super amount of hydrogen in it. Wow. So they had sparkling water on the moon. That's nice. That's very posh."
+    },
+    {
+      "timestamp": "00:09:45",
+      "text": "You want to celebrate, don't you? You do? I think we're two-thirds of all the atoms in all of our bodies are hydrogen. It's all right. A little shout-out for hydrogen, yeah, it's very important. But why are we not setting on fire all the time? Why are we not exploding? Because they're bound to a molecule."
+    },
+    {
+      "timestamp": "00:10:01",
+      "text": "Yes. I wanted Andy to answer that. And I'm thrilled that you answered. Yeah, thank you. You were just about to say that, I guess. Probably. I was looking into other invisible things at NASA. And I found this really cool website, which is called NASA spin-off, where they're quite proud that a thing that was invented for NASA and space is now an everyday object in our world. So on the list of things that they have, there was a company in conjunction with NASA's advanced ceramics research."
+    },
+    {
+      "timestamp": "00:10:27",
+      "text": "They were trying to use protection for infrared antennae on heat-seeking missile trackers. That was one of their things they were doing. That technology is now invisible braces that people have on their teeth. Wow. That was originally for a heat-seeking missile. And then they were like, oh, we should put this on people's faces as well. They did scratch-resistant lenses, very proud of that. The space blanket."
+    },
+    {
+      "timestamp": "00:10:49",
+      "text": "What's the space blanket? It's basically a lightweight and reflect infrared radiation. Yeah, is it not that thing after you've run a marathon, they put it around you? Exactly. Oh, yes, the gold side and the silver side. and one side has to be on the outside when you're overheated and the other side has to be on the outside when you're too cold. Is that so?"
+    },
+    {
+      "timestamp": "00:11:08",
+      "text": "Yeah. I think when you're too cold, I think the gold side has to be on the inside and when you're too hot, I think the gold side has to be on the outside. Could be the exact other way around. I do not take legal responsibility. So there was this big, well, this big piece of this around Apollo 11"
+    },
+    {
+      "timestamp": "00:11:27",
+      "text": "and one millimeter, one square, A square millimeter of this material is now at my desk. I have bought one square millimeter of this material that has been on the moon. That's what happens when they go back and they find them missing. Then hydrogen leaks out. Three astronauts died today because of a Belgian comedian scientist. One last thing. So memory foam mattress was also a NASA invention."
+    },
+    {
+      "timestamp": "00:11:57",
+      "text": "and then my favorite, space-age swimsuits. They invented a swimsuit. I don't know why. There's no water in space, at least not in the ISS so far. But they built it, and it's been used now by various different companies in order to turn it into actual swimsuits. But what does it do? It just makes you swim in space, I guess."
+    },
+    {
+      "timestamp": "00:12:18",
+      "text": "It's just really fine material, and the materials used in actual human earth swimming now, and the first time it was used in 2008, there were 13 swimming records that were broken immediately. Oh, really? Is it the one that got banned? The laser, the laser suit that was called. Yeah, that was kind of based on like a shark skin, wasn't it?"
+    },
+    {
+      "timestamp": "00:12:39",
+      "text": "Yeah. And also it kind of made you float in the water, which they thought probably wasn't fair. How can you break so many records? I mean, they're such small, small swimsuits. Like, how can that make that much of a difference in the water? They cover your whole body with them. They're full body swimsuits."
+    },
+    {
+      "timestamp": "00:12:53",
+      "text": "Oh, I'm thinking of the, yeah. I don't know if you've ever watched the Olympic swimming, but not in bikinis. You've got to be staggered to hear, James. I've never seen any swimming competition ever. Wow. But here's what's crazy. You're saying that you've got that little bit of the gold"
+    },
+    {
+      "timestamp": "00:13:08",
+      "text": "from the Apollo 11. James and I have seen the little patch that's missing from the shark that was taken by, I believe it was Adidas at Nike, to make this material. It was at the Natural History Museum. Wait, do you mean a piece of actual shark skin? They have the shark where it's missing the patch"
+    },
+    {
+      "timestamp": "00:13:23",
+      "text": "that then is turned into the swimsuit. was donated from the museum. Yeah. We're going to have to move on to our next fact in a second. Oh, okay. Just on hydrogen, do you know what happens if you have some potassium"
+    },
+    {
+      "timestamp": "00:13:34",
+      "text": "and you get water on it? It's a big boom. A big boom, like a big explosion, loads of hydrogen get shot out. And there was a, in 1849, doctors turned up at a man's house"
+    },
+    {
+      "timestamp": "00:13:48",
+      "text": "and they found that his penis was stuck in a bottle. And the bottle opening was only 1.9 centimeters in diameter. Okay. And what he'd been doing was he'd been doing some experiments with potassium. I was just trying to get the ship out of the bottle. My finger wasn't quite managing to do the job."
+    },
+    {
+      "timestamp": "00:14:09",
+      "text": "He was doing some experiments with potassium, and he woke up in the middle of the night and decided that he needed to have a pee, and went to pee in a bottle, which happened to be the thing that he'd been doing his potassium experiments in. The urine reacted with the potassium. there was a massive explosion all the hydrogen left the bottle"
+    },
+    {
+      "timestamp": "00:14:27",
+      "text": "leaving a vacuum which sucked his penis. I think you're starting a new fetish here. Penis in a bottle. I'd buy one. Have you tried potassium? Can you imagine him calling the doctors"
+    },
+    {
+      "timestamp": "00:14:47",
+      "text": "going, what am I going to say? It happened to. Hi. Oh, man. I got one more invisible story. Okay, yeah. It was, I think it was in Spain. It was this region where a chameleon had lived."
+    },
+    {
+      "timestamp": "00:15:01",
+      "text": "And then suddenly they saw like, oh, nature is having a hard time. And suddenly they saw like, okay, this chameleon went extinct. A few years later, they said, oh, they didn't. Just didn't see them. So they actually rediscovered this chameleon that they thought was extinct because they camouflage was so good. Brilliant. I love it."
+    },
+    {
+      "timestamp": "00:15:21",
+      "text": "That's so good. All right. We need to move on to our second fact. It is time for fact number two, and that is Levin. My fact is that in 2015, it was discovered that only one person alive understands the Belgian tax system. I think that went down a lot better here than it might have done in London. Probably. Probably. We're so proud of the faults in our country. It's amazing. So this is an article from the dead, which is our financial name."
+    },
+    {
+      "timestamp": "00:16:05",
+      "text": "newspaper and Belgium is it's a complex country and we have to divide taxes. We have the federal government for the entire country. Then we have three regions. Flanders is the Dutch-speaking north. Wallonia is the French-speaking south and then we have Brussels, which is an independent region and it's bilingual. There's a small part of Wallonia that speaks German. They have their own government. The French-speaking people in Brussels and Wallonia have their own government also. So we have, let's see, three governments for the regions, three for the languages, and then one federal government. Sorry, Levin, can I just ask, are you the one person who understands this? And you're explaining it to us now."
+    },
+    {
+      "timestamp": "00:16:47",
+      "text": "This is just setting the scene. We pay our taxes to Belgium, the Federation, but then they have to give some money to the regions because they have their responsibility. Education is for the regions, but then, of course, the Army is for the Federation. The Flemish coast, so the beach is Flanders, the North Sea is Belgium. So if you want to clean... So when does one become... When are you leaving Flanders and entering Belgium? That way."
+    },
+    {
+      "timestamp": "00:17:19",
+      "text": "The moment you step in the sea, then you're in Belgium. And when the tide comes in, is that counted as an invasion? Yeah, well, probably. Yeah. That's why we build sand castles to keep Flanders. But so if you want to clean the beach, you need Flemish money. If you want to clean the sea, you need federal money. The result is that there's a constant lobbying of how much money goes to the regions,"
+    },
+    {
+      "timestamp": "00:17:51",
+      "text": "a bit more, a bit less. You have all kinds of factors. Some of the factors are how many people are in school, so not the complete population, but people in school. How many people are retired? No, yeah, because that's also an extra cost. And so they're always playing like if we move the factors around and we get a bit more money, things like that."
+    },
+    {
+      "timestamp": "00:18:13",
+      "text": "In 2015, the Flemish government and the Walloon government get a letter from the tax administration, the federal tax administration, they said, we did a miscalculation, we need 750 million euros back. Oh, okay. And so, of course, these governments, of the regions said, okay, we'd like"
+    },
+    {
+      "timestamp": "00:18:33",
+      "text": "a second opinion. And the federal tax system said, there is no second opinion. Only Karin understands this problem. So, can I ask Levin, so this person now feels like the most"
+    },
+    {
+      "timestamp": "00:18:53",
+      "text": "important person in the entirety of Belgium. Probably. So is she under armed guard? Is she famous? Well, Karin Spinois, she was contacted by the press and she wants nothing to do with the press. She's a numbers person, she's a mathematician, she's very good with numbers, she makes the Excel sheet. She's sitting at home counting her 750 million euros, I think."
+    },
+    {
+      "timestamp": "00:19:14",
+      "text": "Well, you do understand the Belgian psyche, very good. But she says no photos of her online. No. We know virtually nothing about her. I have met a person who has met her. Whoa. And so at that point, it was published in this newspaper. They said, only one person understands this."
+    },
+    {
+      "timestamp": "00:19:33",
+      "text": "And then they said, what if something happens to her? And they panicked and they immediately gave her an assistant. So now there's two. We have a spare one. That's nice. And they're not allowed to travel together and this kind of thing. Yeah, yeah. There are loads of people like that, aren't there?"
+    },
+    {
+      "timestamp": "00:19:51",
+      "text": "The Wright brothers, they weren't allowed to fly together? I think like members of the British Royal Family, I don't know, is that true? That they're not allowed to... Supposedly. I keep saying to you guys that the people who do the parachutes that bring space capsules back in from space are not allowed to travel with each other"
+    },
+    {
+      "timestamp": "00:20:07",
+      "text": "because they hand knit. What do you do for a parachute stitch? So? Yeah, and only a few people know how to do it is the rumor. Andy, you always say whenever we're going to a gig that you don't want to travel in the same carriage as us. Weirdly, that's nothing to do with this. Oh."
+    },
+    {
+      "timestamp": "00:20:26",
+      "text": "It's just a personality problem of mine. So Levin, why not, so they're teaching the assistant, why not teach, you know, three people? Why not? Don't be ridiculous. There isn't the budget for that, Dan. Well, probably a bit more people know this now. I haven't followed the story since 2015."
+    },
+    {
+      "timestamp": "00:20:47",
+      "text": "Also, there's probably a few people in academia who understand this too, but they're not allowed to do official calculations. So they could only ask this one person and now there's two and hopefully a bit more by now. I was looking at a few other taxes. Great. Did you hear about the bachelor tax of Argentina?"
+    },
+    {
+      "timestamp": "00:21:05",
+      "text": "No. This was in about 1900. Basically, I think there were tax breaks or tax relief if you were married. But there was a problem, of course, which is what do you do with men who wanted to get married and have proposed to a woman, but they've been rejected? You know, it's not their fault. They're not married."
+    },
+    {
+      "timestamp": "00:21:21",
+      "text": "They want to be married. They deserve some kind of break. on the tax. This system developed where they said, okay, well if you've, fine, if you've proposed to someone who had been rejected, you can have the tax break. But how do you prove that? How do you prove it? So basically, if a woman said no when you proposed marriage,"
+    },
+    {
+      "timestamp": "00:21:36",
+      "text": "you could then say, will you lease to sign this certificate of tax exemption for me? But then people started getting around the problem, like men who didn't want to get married, they thought, well, I want this tax break too. So there emerged this small class of professional women who would"
+    },
+    {
+      "timestamp": "00:21:54",
+      "text": "guarantee say no to you when you propose marriage to them. I've met all of them in my teenage years, I must say. I would think about the British tax system, which is, uh, sounds quite simple. I mean, relative to the Belgian tax system, it sounds relatively simple, but nonetheless, people in the UK, they're often late with their taxes. And every year, uh, HMRC, the British tax office, they will, um, they accept some excuses. You know, if there was a flood or, you know, if there was a flood, a sudden illness, you know, they'll say, okay, you don't have to pay a fine because your tax is late. But also, every year, they print"
+    },
+    {
+      "timestamp": "00:22:30",
+      "text": "the best excuses they've had all year. So, okay, these are all from the last few years. Okay, my tax return was on my yacht, which caught fire. And by the way, I want to claim against the loss of a yacht. My wife helps me with my tax return,"
+    },
+    {
+      "timestamp": "00:22:50",
+      "text": "but she had a headache for 10 days. my husband left me and took our accountant with him my ex-wife left my tax return upstairs but I suffer from vertigo and can't go upstairs to retrieve it and my favourite I was too stunned after seeing a volcanic eruption on TV to concentrate on anything brilliant that's a good one I've got a British tax story too"
+    },
+    {
+      "timestamp": "00:23:20",
+      "text": "Yeah, it's the fact that in 1999 at a UK court because of taxes, it was decided that Jaffa cakes are cakes and not cookies. Oh, okay. So Jaffa cakes, for those who do not know it, in Belgium we call it Pimps cookies, Pim's cakes. Sorry, what did you call? Pim's cookies? Yeah, this is the Shire and we are the puppets of Europe."
+    },
+    {
+      "timestamp": "00:23:47",
+      "text": "That's what we do. So for those who do not know whether you have this spongy cake, a small circle, maybe five centimeters diameter. Then there's a bit of orange jam, and then there's a chocolate above it. So turns out that cookies with chocolate have higher taxes than cake, because cookies with chocolate are a luxury product, and a cake is considered a stable food."
+    },
+    {
+      "timestamp": "00:24:14",
+      "text": "So Java cake said, we're selling cake, so we don't have to pay the vat. And then the court said, no, these are clearly cookies. And they said, let's take it to court. And so they had an actual case, cookies against cake. Some of the arguments that were given. One argument from the government, from the tax system, was, we do not eat jaffa cakes with forks."
+    },
+    {
+      "timestamp": "00:24:36",
+      "text": "Oh, disagree. Yeah. Also, the size, the fact that you don't stack cakes on top of each other. The argument was won by the cakes. by the cookie producer, they are still cakes legally because one of the deciding arguments was that Jaffa cakes will harden when they go stale and biscuits will go soggy. Okay. And the ultimate argument was somebody baked a cake-sized Jaffer cake."
+    },
+    {
+      "timestamp": "00:25:06",
+      "text": "Brilliant. So they came to the courtroom with a cake-sized Jaffa-cake and said, she told you. And then it was decided. Wow. That's incredible. Why doesn't John Grisham write novels with these plot lines? for his court cases. I wanted to ask you about a thing that happens here in Belgium,"
+    },
+    {
+      "timestamp": "00:25:24",
+      "text": "which is there's a place which I'm going to pronounce it wrong. Maybe you can say it. Barla Noso and Barla Hertog, yes. Yeah. Everybody here knows what we're talking about. It sounds fascinating, guys. It sounds incredible. I've been there. It's where the two countries."
+    },
+    {
+      "timestamp": "00:25:38",
+      "text": "Where the border. Yeah. But as a result, it's really odd because you can make decisions that work to your advantage in so many different places. I don't know if anyone's been there when there were, younger, but the laws of drinking have different ages. So in one country it's 18, the other's 16. Also, firing a fart capsule is a criminal offense in Balerhton, but it's not in Balhartag."
+    },
+    {
+      "timestamp": "00:25:59",
+      "text": "When Belgium and the Netherlands were split, there were some landowners like nobility who lived in Holland, like a few kilometers in Holland, but they wanted to be Belgian because they were, well, they had liaisons with the Belgian royalty. And so they said, all my land is Belgian. But like a farmer, they had a peaceful land. They're a piece of land, there, a piece of land, there are a piece of land. So it looks like this ripped-up piece of paper that was sprinkled over Holland. So there's a piece of Belgium in Holland, and in this piece of Belgium, there's a piece of Holland."
+    },
+    {
+      "timestamp": "00:26:32",
+      "text": "So that's the thing. There used to be a bank that sat on the border as well, half of it on one side, half on the other. So whenever a tax inspector came to the bank, they'd quickly grab all the paperwork and put it into the country that the person was not from to stop it. I did a music gig on the border close to my house. I live close to the border of Holland. I did a music gig on the border and we put the stage in Holland and the crowds in Belgium. And then we waited for the copyright collector to come back. And he said, you have to pay."
+    },
+    {
+      "timestamp": "00:27:04",
+      "text": "He said, no, music is in Holland. And said, yeah, of course, but there's a crowd here. Yeah, they paid in Belgium. Wow. We didn't pay. That's genius. It is time for fact number three, and that is James. Okay, my fact this week is that my brain is considerably smaller than it was when we started doing no such thing as a fish."
+    },
+    {
+      "timestamp": "00:27:36",
+      "text": "Is that from hanging out with me so much? You think it would be bigger? Do you? You've learned a lot in the last nine years? Do you think that's how it works? Every time you learn something, it gets a little bit bigger your brain. Well, I don't think that now I've said it in front of an audience. So this is just basically two different things."
+    },
+    {
+      "timestamp": "00:27:55",
+      "text": "One that your brain shrinks by 5% per decade after you turn 40. And I've turned 40 since we started. And secondly, according to a brand new study, the first time you become a father, you lose a couple of percentages of volume in your brain as well. And that's happened to me quite recently. And so, yeah, just basically I'm a bit worried that my brain's disappearing. Do you lose intelligence or is it just size?"
+    },
+    {
+      "timestamp": "00:28:19",
+      "text": "Just size as far as we know Although I do feel Quite dumb now that I've had a baby But yeah I think the idea is No one really knows this but the idea is that The brain size itself is not that important Because the brain kind of sorts itself out"
+    },
+    {
+      "timestamp": "00:28:36",
+      "text": "For instance Einstein had a smaller than average brain And he was quite smart actually But many more connections It's true He had a lot more connections in his brain And we know this because his brain was stolen They wanted to study his brain and he was against it. He didn't want"
+    },
+    {
+      "timestamp": "00:28:51",
+      "text": "to do it and a scientist took his brain away. After he died we should say after he died. Or shortly before it. One or the two. I read the study that you were talking about James, your brain shrinking when you become a father. The idea is that some of the bits you lose"
+    },
+    {
+      "timestamp": "00:29:09",
+      "text": "are the visual system or bits connected to the visual system? And the idea is that it just basically changes your brain slightly and some of the bits that help you in nurturing or whatever kind of grow in one way and whatever. And the age thing, it does shrink, but a lot of it does seem to be chew to dehydration. It's just a little bit more shriveled than you wear."
+    },
+    {
+      "timestamp": "00:29:30",
+      "text": "You lose a little bit of water out of your brain. Wow. Well, do you know if you want to get that brain volume back, James? Oh, great. Something you can do. Please pray tell. Just become an astronaut. Oh, is that all?"
+    },
+    {
+      "timestamp": "00:29:43",
+      "text": "That's all. Astronauts have bigger brains than people. Astronauts are people. I mean, you know, you know what I'm like. They've got the non-astronauts. So do they expand in space? Yeah, basically, because there's much less gravity. You're in microgravity."
+    },
+    {
+      "timestamp": "00:29:58",
+      "text": "So the fluid sort of builds up a bit, and you get a bit more white matter, bit more grey matter, a bit more spinal fluid. And your brain increases by 2%, which is about what you lose with first-time fatherhood. Oh, right. So really, every time someone has a baby, we should send them into space."
+    },
+    {
+      "timestamp": "00:30:12",
+      "text": "Just send them off to space. Yeah, yeah. Have a break. It's such a male idea. Okay, honey, we had a baby. I have to go to space now. See you in six months. Sorry, I need some space."
+    },
+    {
+      "timestamp": "00:30:23",
+      "text": "I literally need some space. And so they're working on ways to solve this astronaut thing because obviously all the fluid goes to the top of the body. Because it could be a problem if your brain gets bigger. Well, one problem is that all astronauts get eye problems in space. Your vision gets worse and they think maybe the extra fluid is pressing on the optic nerve. So that's the problem. I know."
+    },
+    {
+      "timestamp": "00:30:47",
+      "text": "But there are methods being proposed to counteract this. They haven't been tried yet. but one is going in a little person-sized centrifuge that spins you around a bit and the other, my preferred option, would be a kind of vacuum cleaner bag around the lower half of your body which just gently sucks the fluid out of your top half"
+    },
+    {
+      "timestamp": "00:31:05",
+      "text": "and puts it back in your legs. No way. Really? Well, it kind of compresses you like compression. Yeah, like sort of like laundry bags. But for you. Brilliant. Yeah."
+    },
+    {
+      "timestamp": "00:31:16",
+      "text": "There's a lot of animals that shrink their brain which is quite an amazing thing and they do it to conserve energy during winter months. Moles do it. Shrews do it. There's a whole study of science where they look at, and then it can grow back, but it can go really..."
+    },
+    {
+      "timestamp": "00:31:32",
+      "text": "Because it's very, you know, a lot of your energy goes into your brain, doesn't it? Even if you're a shrew, it does. Yeah. And so, you know, if you need to save energy, that's a good thing to start shutting down. I think it's 20%? 20% of your energy is of everything we consume"
+    },
+    {
+      "timestamp": "00:31:46",
+      "text": "goes on energy for the brain. Yeah, it's pretty amazing. I quite like that when we go to sleep at night there's a fluid which is called Cerebrospinal fluid When we sleep that fluid Sort of is like a car wash for our brain It just kind of just gives it a little clean"
+    },
+    {
+      "timestamp": "00:32:00",
+      "text": "Is this why you can wake up with this bits of foam Dipping out of your mouth Because of the washing going on at the brain Yes The car wash The soap is still Yeah yeah not quite that does It's washing your brain"
+    },
+    {
+      "timestamp": "00:32:12",
+      "text": "Yeah it's basically just cleansing it That's cool It's just making it yeah Nice Which is pretty sweet Because your brain is in your it's in your head and it's kind of... Great point, James."
+    },
+    {
+      "timestamp": "00:32:21",
+      "text": "We've got to establish that. Do you know, James, when you said your brain a trunk, I didn't believe you. I'm coming round to this theory. Go on, sorry. I'm going to say, of all the things I was going to say, I didn't think that would be the most controversial. No, it's like, it's covered in fluid, isn't it?"
+    },
+    {
+      "timestamp": "00:32:40",
+      "text": "It's not really attached to anything. It's almost floating in this fluid in your brain, in your head. And for that reason, if you try and pick up a brain, you can't pick it up. It's like jelly-like and it'll just kind of go through your fingers. And quite often if you see anyone picking up a brain like a neuroscientist or whatever,"
+    },
+    {
+      "timestamp": "00:32:58",
+      "text": "then it's already been preserved in some way. If you actually literally, if I literally cut the top of your head off now and scooped out your brain, it would just fall through my fingers. Wow. Just another reason not to do that. Sorry, the first reason was..."
+    },
+    {
+      "timestamp": "00:33:14",
+      "text": "What's the last time you saw somebody pick up a bombed brain because you say it stays together when it's preserved Yeah I mean I watch Spend a lot of time on YouTube Even I don't know Last time I saw it was yesterday"
+    },
+    {
+      "timestamp": "00:33:28",
+      "text": "Oh what Life at this festival No what We had a brain show So we have theme shows And we had a brain show And there was a professor in anatomy And she had"
+    },
+    {
+      "timestamp": "00:33:37",
+      "text": "She had broad A preserved brain Like a human brain And she did the anatomy In front of 3,000 people Oh my God Explaining what part is where And then she explained"
+    },
+    {
+      "timestamp": "00:33:47",
+      "text": "that all the motoric functions, like when you move your arm and your fingers, if you start from the very top of your head, and then you go down to your ear, you meet, I think it was first your legs and then your mouth, and then your arm and then your fingers. How interesting."
+    },
+    {
+      "timestamp": "00:34:06",
+      "text": "And then another scientist came on stage and said, do you want me to prove that the control of your fingers are right there? They put a magnetic coil on my head. and they did transcranial magnetic stimulation. What does that mean? It means that, so you have a big magnetic coil"
+    },
+    {
+      "timestamp": "00:34:24",
+      "text": "and it can send magnetic fields. And of course, our nerves send electric signals. So the first thing they did was, let's first put electricity in the wiring, so in the nerves. He put this magnetic coil on my forearm, where the entire control nerves of your fingers are. Then he gave some pulses and my fingers started twitching. Without you wanting anything, they started twitching."
+    },
+    {
+      "timestamp": "00:34:46",
+      "text": "okay that was boring that was just the wiring let's mess with the computer now and then he put the coil on my head and he was looking for what fingers to control and he could so I was sitting there with a coil on my head and I hear this clicking noise and first my arm started twitching and then he said let's move to the fingers and then he went to the fingers and said now I'm going to move from the thumb to the brain and so really it was first my thumb and then he was going down and then my fingers started twitching my brain was hacked yesterday wow yeah What use can we have for that? Aha."
+    },
+    {
+      "timestamp": "00:35:19",
+      "text": "They do have a few. They do have a few, yeah. Especially in some cases, like, some depressions are a lack of brain activity. And they are, it's experimental, but they're now looking if we kind of stimulate the brain. Can it teach me how to play piano? That's why that's going to. It's going to be free jazz, but yes. Great."
+    },
+    {
+      "timestamp": "00:35:40",
+      "text": "James, once you've got back from space, if you feel like you've got a brain that's too big, And you want to get rid of a bit more. Do you know something else you can do? Become a dad again? Maybe, maybe. I don't know, Andy. What can I do?"
+    },
+    {
+      "timestamp": "00:35:54",
+      "text": "Another one is running an ultramarathon. Oh, really? So people who run ultramarathons, their brains shrink by up to 6%. Which feels like quite a lot over the course of the race. And it might, we're not exactly sure why. I think one theory is that you're just, you're looking at a road for however many days. If you do like a 10-day ultramarathon or a month or whatever, you're just looking at a road over and over again."
+    },
+    {
+      "timestamp": "00:36:15",
+      "text": "and your brain is under-stimulated and just says, well, I don't need to be here. I don't know, is it the silver side or is it the gold side of the brain? Do you know what animal has the smallest brain in comparison to the size of its body? Ooh, was it dinosaurs? I think they had small brains. Ah, I'm more talking about extant animals."
+    },
+    {
+      "timestamp": "00:36:34",
+      "text": "Is he on the panel now? You don't have to say anything? They can't see us at home. Don't talk about leaving like that. Oh wow, is it, yeah, some kind of bird, maybe a dinosaur relative? It's not a bird, it is a fish, and it's a fish called the bony-eared ass fish. Okay. Is it so dumb it doesn't know we're insulting it?"
+    },
+    {
+      "timestamp": "00:37:00",
+      "text": "Is that the bird? Its brain weighs less than one 1,000th of its body weight. Wow. And of all the animals that we've tried so far, this is the smallest compared to its size. The thing is, it's got a really, really small brain, but it has massive sort of ear canals. so the ear canals can grow bigger because the brain isn't there, which means you might call it its name, and it might not understand it, but it will be able to hear it."
+    },
+    {
+      "timestamp": "00:37:25",
+      "text": "We're going to have to move on, guys, for a final fact in a second. Okay. The stickleback fish, the three-spined stickleback fish, the males have much bigger brains than the females. And this is really rare in the animal kingdom. Okay. I can already see that I need to tread very carefully with this one. But yeah, it's true."
+    },
+    {
+      "timestamp": "00:37:50",
+      "text": "And we're not really sure why, but perhaps because the females gonads take up 40% of her body mass. So maybe she's using up all the energy for reproduction, and the male doesn't need to do that, and so grows a big brain instead. But he uses it for a lot of distraction and deception and stuff. The males are quite sneaky, and the females are just doing lots of reproducing,"
+    },
+    {
+      "timestamp": "00:38:13",
+      "text": "and that's why that. Why do the... Wow. No, no. Everybody's way too scared to make any jokes. All right, hang on. Go on, Andy. Yeah."
+    },
+    {
+      "timestamp": "00:38:23",
+      "text": "My wife. Got cancelled. Fuck it. Why do the males need to be sneaky? Because the males will often... They'll have a nest of eggs that they look after. And a lot of... Sometimes a big group of females will come along and eat all the eggs"
+    },
+    {
+      "timestamp": "00:38:40",
+      "text": "because they want their offspring to do better than the other offspring. bring. And so the males sometimes use sneaky tricks to pretend they're in one place looking after some eggs and they're actually, their eggs are in another place. I thought it was sneakiness to try and persuade the females to mate, but it's actually to try and stop the females from eating eggs of the things you've already made. Okay, okay, okay, nice. Well done for not getting cancelled. No further questions, Your Honor. It is time for our final fact of the show, and that is my fact. My fact this week is that because the London offices of the Guinness World Records"
+    },
+    {
+      "timestamp": "00:39:19",
+      "text": "don't have a complete set of Guinness World Records books, whenever they need to find something out, they often need to consult the man who has the Guinness World Record for the owner of the most Guinness World Records books. So this guy exists. His name is Martin Tovey, and he has thousands of unique,"
+    },
+    {
+      "timestamp": "00:39:49",
+      "text": "Guinness Record books. Because the Guinness World Records, when it started, it obviously started as this one annual, but over the years, they started doing books about sporting records, gaming records. There are thousands of these different types of books. And we all here on the panel, we know Craig Glenday, who is the editor-in-chief of the Guinness World Records. And I went to his office, and I saw all of the books that they have. And he told me this point. He said that, you know, we often have to verify a fact if someone writes into us. If I don't have it, I just message Marden Tovey. That's brilliant. Yeah, and I say, what have you got?"
+    },
+    {
+      "timestamp": "00:40:21",
+      "text": "Can you get me? And he digs it out, and he usually has it. So the most recent time that Craig had to do it was because a porn actor in America was claiming that he was listed in the Guinness World Records, and Craig thought this can't be right. We don't, it's a family-friendly book. We're not going to be like, you know, biggest dick, I don't know."
+    },
+    {
+      "timestamp": "00:40:38",
+      "text": "It's like, that is not in there, right? And so... That record also belongs to a guy who got it stuck in a bottle with potassium. It's mostly bottle, but still. So he looked it up for, he looked it up for Craig. Oh, because he said, I'm in, you know, 1974 and he had that one and could look at it. Yeah, I think, I think it, or either it was just, we're missing this one, and I've checked everything else."
+    },
+    {
+      "timestamp": "00:41:04",
+      "text": "And so, yeah, and it turns out that the porn actor is lying. It's not in there. Right. Okay. Yeah. You know the adjudicators, the people who turn up to, to assess whether the record is broken or not? Okay, yeah, someone with a stop watch. Yeah, they have a stop watch and they have a blazer that which they all have to the official Guinness Blazer and they are like ninjas, okay? They're not allowed to eat or drink alcohol"
+    },
+    {
+      "timestamp": "00:41:25",
+      "text": "when they're with the record setters. Obviously, they are allowed to eat food. God, sorry. They're not allowed to socialize at all with the people trying to set the records. They have to keep their distance. And the other thing they do is they make the certificate for your record"
+    },
+    {
+      "timestamp": "00:41:43",
+      "text": "before you even try it. They bring it along to the record-breaking attempt. And if you don't succeed, they take it away with them, which is very cruel. That's not the cruelest thing. They don't rip it up in front of your face. They shred it. Do they really?"
+    },
+    {
+      "timestamp": "00:41:57",
+      "text": "Because I don't think I shred it in front of the charity or the children who are trying to break a record for most sausage dogs. But they do shred it because sometimes people have gone through the bins afterwards trying to steal the certificate, which they've thrown away. One of these people is here. Oh, really?"
+    },
+    {
+      "timestamp": "00:42:15",
+      "text": "There's an official Guinness World Records book represents. here because the University of Brussels broke a record yesterday. Like most built robots, the children here built small robots in a chain, and they had the longest chain of robots in a row. And they succeeded, so they will receive the certificate afterwards. Amazing. Up your shredder. I was looking at a few other records that have been broken in the last week or so."
+    },
+    {
+      "timestamp": "00:42:47",
+      "text": "So the largest T-shirt in the world, that was in Romania, and they made it out of 500,000. recycled bottles. It's absolutely enormous. It's in the middle of a field and they took it then apart afterwards and they've turned it into 10,000 items of clothing that they're giving to to young people who can't buy clothes elsewhere. The most bats ever in a cave was broken. That was in San Antonio. The number of bats in this cave, is it more or less than the population of Belgium? Oh my God. Well, let me tell you the population of Belgium, according to Wikipedia is 11.5 million."
+    },
+    {
+      "timestamp": "00:43:25",
+      "text": "I think more bats in a cave than people in Belgium. Yeah, I'm going to have a pun. By a long way or? I think double. Double. Well, it's 15 million. Wow. Fifteen million bats in this cave. And someone walked up to the cave and as the bats came out. An adjudicator with a clicker."
+    },
+    {
+      "timestamp": "00:43:41",
+      "text": "Yeah. Like a bouncer at a nightclub. And a shredder. Yeah, yeah. Yeah. They said that the bats sometimes will come out all at once. and it would make a cloud of bats, which is 50 kilometres by 30 kilometres."
+    },
+    {
+      "timestamp": "00:43:59",
+      "text": "Wow. That's insane, isn't it? That's so cool. And the man with the world's longest nose died. Oh. He died last week. And his father, Jepetto, was said to be very sad. Such a shame."
+    },
+    {
+      "timestamp": "00:44:19",
+      "text": "There's another record that I found, which is that there's a Guinness World Record for the most poisonous book ever. And it's called Shadows from the Wall of Death. It's from 1874. And it was written to warn the public about the dangers of arsenic-based dyes that are used in contemporary wallpaper manufacturers. And so he took 86 leafs of these things and bound them into one book."
+    },
+    {
+      "timestamp": "00:44:43",
+      "text": "So the arsenic level in this book is off the charge. Don't lick your fingers to turn the pages. Yeah, exactly. Wow. And that was, you could buy that, could you? No, I think it was. So like a one-up. Yeah, an example."
+    },
+    {
+      "timestamp": "00:44:56",
+      "text": "It's like the notebooks of Marikuri, who are still kept away from people. They're still so radioactive that they're dangerous to interact with. So cool. Did you hear about the Irish guy who tried to beat the world record for longest live burial? No. This was cool. It was in 1968. He was called Mick Meaney."
+    },
+    {
+      "timestamp": "00:45:15",
+      "text": "And I think he did about two months. He did a long time underground. And he lived on steak and cigarettes, which were fed to him through a tube. and then he had a hatch beneath him which he opened to go to the bathroom into to sort of pit beneath him sadly he didn't invite an adjudicator and so they couldn't give him the thing"
+    },
+    {
+      "timestamp": "00:45:37",
+      "text": "not even a shredder then no they shredded him at the end it was so sad um guys we're gonna have to wrap up in a second yeah we're the end of the show there's one thing about world records there's one guy who owns the world records of world records Oh, cool. Okay."
+    },
+    {
+      "timestamp": "00:45:55",
+      "text": "So there is one person who has the most world records, and then a mathematician heard this, and he said, this guy has an endless amount of world records. Because he has the world records of most world records. This means he also has the world records of world records of most world records. Which is one. He also has the world records of world records of world records, of world records. And that's what mathematicians do."
+    },
+    {
+      "timestamp": "00:46:23",
+      "text": "so he has an endless amount of world records. That's incredible. We were talking about like books, like collections of books and stuff like that. So I quickly looked at that. There was Christopher Columbus's son who is called Enando Cologne. He invented the bookshelf. Oh. And the reason he did that is he wanted to read every book that existed in the whole world."
+    },
+    {
+      "timestamp": "00:46:47",
+      "text": "Okay. And we reckon that when he was born, it might have been possible. Obviously he was a baby, so he couldn't read. But by the time he died, there was a massive amount of books being printed, and there's no way he could have done it. And according to Google Books, there are currently 129 million, 864,880 bucks in the world. If you decided to read them all, you did one an hour, 9 to 5, sat next to Niagara Falls. Then by the time you finished the last one, Niagara Falls would have ceased to exist due to erosion. Wow."
+    },
+    {
+      "timestamp": "00:47:21",
+      "text": "Wow. Better make it nine till six. Yeah, better crack on. Yeah. That is it. That is all of our facts. And if you'd like to get in contact with any of us about the things that we've said"
+    },
+    {
+      "timestamp": "00:47:38",
+      "text": "over the course of this podcast, we can be found on our Twitter accounts. I can be found on at Shreiberland, Andy. At Andrew Hunter M. James. At James Harkin. And Levin. At Levin's cheery. That's right."
+    },
+    {
+      "timestamp": "00:47:50",
+      "text": "Or you can go to our group account, which is at No Such Thing. Or our website. No Such Thing is a fish. all of our previous episodes are up there, so do check them out. Thank you so much for having us here in Nordland, Belgium. It was fucking awesome. We had an amazing time."
+    },
+    {
+      "timestamp": "00:48:07",
+      "text": "We'll be back next year, and we'll see you all next week. Goodbye!"
+    }
+  ],
+  "transcript_text": "[00:00:00] Hi, everybody. Dan and Andy here. We're just letting you know about our special guest this week. This is such a fun show. It was recorded live in Belgium at a festival called Nerdland. And it's with one of our very oldest friends and one of the first ever guests we had on the show. Yeah, that's right. It is the almighty Belgian science comedian Levin Skaira. Levin is someone who has been with us from the get-go. As Andy says, he's appeared a few times. He's brought us over to Belgium in the past. and we got to go to his geek-created festival called Nerdland, which was just packed with scientists from all over the country and for some reason us.\n\n[00:00:38] And we played this massive tent. We had to fill our slot without Anna and Levin very kindly jumped into place and played with us on stage. And he's just someone who you absolutely need to find out more about. And in fact, his live show, which is called DNA, has been released on his website, Levenscariter.com. an English version of his science comedy show and that's really worth checking out. It's online now streaming. So give that a go and the other thing we should let you know is that if you enjoy this live show,\n\n[00:01:11] we have another live show coming up. There are very few tickets left for our Soho theatre dates this summer, but we have just added another live show which is going to be at the London Podcast Festival. It's on the 14th of September. It's at 7pm. It's in London, obviously, but it's going to be streamed as well. So you'll be able to buy tickets wherever you are in the world. It's going to be so much fun.\n\n[00:01:32] We would love to see you there. That's right. Yeah. So get booking the physical in-store tickets as they were. So you could be there with us in the room. But if you can't make it, do get the online tickets. And to get those tickets, all you need to do is go to no such thing as a fish.com slash podfest. You'll find the links there to buy the appropriate things.\n\n[00:01:50] And otherwise, we hope you get a taster of what we're like live nicely with this episode. with our good mate Levenskira coming to you live from Belgium. Hooray! On with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from the Nerdland Festival in Belgium. My name is Dan Schreiber. I am sitting here with Andrew Hunts, Murray, James Harkin and Levenskira.\n\n[00:02:41] and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order, here we go. Starting with fact number one and that is Andy. My fact is that in the 1970s, NASA employees had to walk around holding broomsticks in front of them to detect invisible fires. Ooh.\n\n[00:03:04] Yeah. I didn't even know that, in fact, now I'm worried about invisible fires. You should be. Because we don't have anyone with brooms here. How would we know that there wasn't one happening? We just wouldn't. Oh, right. Stay vigilant, I suppose.\n\n[00:03:15] So were people noticing that it was only janitors who weren't going up in flames? Yeah, and they thought. Yeah, I didn't know about invisible fires. Oh, I should say, this is a fact from Anna Welch, who sent it in to us at the podcast email address. So thank you so much, Anna. It's because NASA uses liquid hydrogen for lots of their rockets. And since the 1950s they've been using it. And it's incredibly flammable.\n\n[00:03:38] It's a great fuel for a rocket. It burns at 5,000 degrees Fahrenheit. It's ultra explosive. But, of course, hydrogen, first atom, first element in the periodic table, it's tiny. The atoms are incredibly small, and it's very flammable. And because the atoms are so small, it leaks. It can leak, even if you've welded two plates of metal together, you can get hydrogen leaking out. Just like a little hole in the weld and it will just sneak through.\n\n[00:04:02] Exactly. And because it's quite temperamental, a high-pressurized amount of hydrogen can easily become a fire. However, the flame burns with this incredibly pale blue fame. You almost can't see it. And so this was a real problem. So NASA employees to detect if they had a hydrogen fire in the situation had to walk around holding a broomstick. And when the head of the broom caught fire,\n\n[00:04:26] they knew that that was a problem, basically. And that's it. That's what they had to do. I do hope there's video footage of this. All these brilliant engineers with sticks just walking around. Have you heard of this leaving? Like, you do science. No, I haven't heard of the broomstick story.\n\n[00:04:42] I know that hydrogen fires are a thing. My father worked in a steel factory. So they also had hydrogen in pipes. And like you said, the smallest leakage, the hydrogen would come out. And it would ignite, my dad told me, it would ignite from the heat of a piece of dust hitting the side of the pipe. Whoa.\n\n[00:05:01] That would be enough to ignite the hydrogen. And so then you have your invisible flame. That's incredible. Obviously, flame is a huge problem for NASA generally. They hate fires. They're really not keen on fires, NASA. Unless it's at the very bottom of the rocket, shooting them up. That's the one time they like fires.\n\n[00:05:20] Otherwise, it's a really bad thing. So back when they were trying to work out the Apollo missions and who was going to be flying to space, there was a guy who was hired as basically the fart researcher. And because there's methane in the farts, and if you're in a tin can going back to the moon, it's going to catch on fire. So there was a guy called Edwin Murphy\n\n[00:05:38] who at the 1964 conference of nutrition and space and related waste problems pitched that we needed to find astronauts who didn't fart with Mephame. With Mephain, right? And they exist. He found them. He's like, they're out there. Is that Buzz and Neil Armstrong? They don't fart?\n\n[00:05:56] Because I've been in a lift with Buzz Aldrin. Oh! I can't say that he didn't fart. The farts are produced by your gut bacteria. So the reason that some foods produce more fart is because they go all the way down in your gut, like things with lots of fibres such as Brussels sprouts. And the fibers take food to the downside of your gut,\n\n[00:06:19] and so the bacteria eat them and produce this methane. And when you can't digest lactose, then it will also find all its way down. So in order to fart, you have to feed your bacteria all the way down. But not all of us have bacteria that produce methane. I however do because I was tested. Really? Yes.\n\n[00:06:40] We had a science show. What's the test? It's not just, it's not a lighter, is it? I can leave it up to your imagination, but you can test it with a lighter because you can actually light it at the source. But if you produce this methane in your gut, it will end up in your blood and in your breath.\n\n[00:07:00] So I simply took a breath test and then they saw I had methane. The reason we did this, was because we found an old patent of a fart gun. What? Yes, the fart gun. This is a toy gun, and you put a dart in it, and then it has a small chamber.\n\n[00:07:17] When you feel a fart coming up, you press the chamber against your butt. While you fart, you pull the lever, it fills up with methane, you pull the trigger, and the dart flies out. Which way is the dart flying? Whatever direction you prefer, Mr. Schroeder. That is amazing.\n\n[00:07:35] I think I did it wrong. That's a patent. They've never made one of those. They have been produced, and we have reproduced them with a 3D printer. And after many attempts, over 50 attempts, one dart flew through the room. That's incorrect. Wow, really. Yeah, so it's about 50% of people who don't have methane in their farts.\n\n[00:07:54] And he created a special bean meal whereby he had you eat it, and then you farted into a sort of rectal catheter, and it collected the farts. And he pitched it, and they said, We'll just give them less 40 food in space. Spoil spots. Okay. This is another fact sent in, actually, by someone called Don Padden.\n\n[00:08:12] And it's a memoir of NASA in the 1960s. And he wrote a memoir of what had happened in his life. And one incident, a terrible incident that happened at NASA, was an accidental activation of the launch tower water deluge system. So, you know, huge, like a massive sprinkler system, basically. Designed to just shut down any disastrous fire that might be happening. And it was an area gas hydrogen detector. So the problem was it wasn't a hydrogen leak that had caused this system to go off, this deluge.\n\n[00:08:42] The cause was, and he wrote up in his report, in his memoir, gaseous emissions of robust Chrysler senior engineer. What? He had been up working, like fixing an engineering problem on the hydrogen tank and farting at the time. And they didn't know until this point that the detector could smell human farts. They thought it was just a hydrogen leak detector. but it turned out... That's amazing.\n\n[00:09:06] Oh my God. Millions of dollars of damage. Yeah. Levin, I want you to imagine now you're on Apollo 11, making your way up to the moon. And I have one question for you. Would you like still or sparkling water? Ooh, I think I would like still water. Well, you can't.\n\n[00:09:24] The reason being that on Apollo 11, there was a hydrogen filter on the water, and it leaked, and it meant that hydrogen got into the water, and so all the water was physically. Wait, but water already contains hydrogen. Yes, it does, but this had super amount of hydrogen in it. Wow. So they had sparkling water on the moon. That's nice. That's very posh.\n\n[00:09:45] You want to celebrate, don't you? You do? I think we're two-thirds of all the atoms in all of our bodies are hydrogen. It's all right. A little shout-out for hydrogen, yeah, it's very important. But why are we not setting on fire all the time? Why are we not exploding? Because they're bound to a molecule.\n\n[00:10:01] Yes. I wanted Andy to answer that. And I'm thrilled that you answered. Yeah, thank you. You were just about to say that, I guess. Probably. I was looking into other invisible things at NASA. And I found this really cool website, which is called NASA spin-off, where they're quite proud that a thing that was invented for NASA and space is now an everyday object in our world. So on the list of things that they have, there was a company in conjunction with NASA's advanced ceramics research.\n\n[00:10:27] They were trying to use protection for infrared antennae on heat-seeking missile trackers. That was one of their things they were doing. That technology is now invisible braces that people have on their teeth. Wow. That was originally for a heat-seeking missile. And then they were like, oh, we should put this on people's faces as well. They did scratch-resistant lenses, very proud of that. The space blanket.\n\n[00:10:49] What's the space blanket? It's basically a lightweight and reflect infrared radiation. Yeah, is it not that thing after you've run a marathon, they put it around you? Exactly. Oh, yes, the gold side and the silver side. and one side has to be on the outside when you're overheated and the other side has to be on the outside when you're too cold. Is that so?\n\n[00:11:08] Yeah. I think when you're too cold, I think the gold side has to be on the inside and when you're too hot, I think the gold side has to be on the outside. Could be the exact other way around. I do not take legal responsibility. So there was this big, well, this big piece of this around Apollo 11\n\n[00:11:27] and one millimeter, one square, A square millimeter of this material is now at my desk. I have bought one square millimeter of this material that has been on the moon. That's what happens when they go back and they find them missing. Then hydrogen leaks out. Three astronauts died today because of a Belgian comedian scientist. One last thing. So memory foam mattress was also a NASA invention.\n\n[00:11:57] and then my favorite, space-age swimsuits. They invented a swimsuit. I don't know why. There's no water in space, at least not in the ISS so far. But they built it, and it's been used now by various different companies in order to turn it into actual swimsuits. But what does it do? It just makes you swim in space, I guess.\n\n[00:12:18] It's just really fine material, and the materials used in actual human earth swimming now, and the first time it was used in 2008, there were 13 swimming records that were broken immediately. Oh, really? Is it the one that got banned? The laser, the laser suit that was called. Yeah, that was kind of based on like a shark skin, wasn't it?\n\n[00:12:39] Yeah. And also it kind of made you float in the water, which they thought probably wasn't fair. How can you break so many records? I mean, they're such small, small swimsuits. Like, how can that make that much of a difference in the water? They cover your whole body with them. They're full body swimsuits.\n\n[00:12:53] Oh, I'm thinking of the, yeah. I don't know if you've ever watched the Olympic swimming, but not in bikinis. You've got to be staggered to hear, James. I've never seen any swimming competition ever. Wow. But here's what's crazy. You're saying that you've got that little bit of the gold\n\n[00:13:08] from the Apollo 11. James and I have seen the little patch that's missing from the shark that was taken by, I believe it was Adidas at Nike, to make this material. It was at the Natural History Museum. Wait, do you mean a piece of actual shark skin? They have the shark where it's missing the patch\n\n[00:13:23] that then is turned into the swimsuit. was donated from the museum. Yeah. We're going to have to move on to our next fact in a second. Oh, okay. Just on hydrogen, do you know what happens if you have some potassium\n\n[00:13:34] and you get water on it? It's a big boom. A big boom, like a big explosion, loads of hydrogen get shot out. And there was a, in 1849, doctors turned up at a man's house\n\n[00:13:48] and they found that his penis was stuck in a bottle. And the bottle opening was only 1.9 centimeters in diameter. Okay. And what he'd been doing was he'd been doing some experiments with potassium. I was just trying to get the ship out of the bottle. My finger wasn't quite managing to do the job.\n\n[00:14:09] He was doing some experiments with potassium, and he woke up in the middle of the night and decided that he needed to have a pee, and went to pee in a bottle, which happened to be the thing that he'd been doing his potassium experiments in. The urine reacted with the potassium. there was a massive explosion all the hydrogen left the bottle\n\n[00:14:27] leaving a vacuum which sucked his penis. I think you're starting a new fetish here. Penis in a bottle. I'd buy one. Have you tried potassium? Can you imagine him calling the doctors\n\n[00:14:47] going, what am I going to say? It happened to. Hi. Oh, man. I got one more invisible story. Okay, yeah. It was, I think it was in Spain. It was this region where a chameleon had lived.\n\n[00:15:01] And then suddenly they saw like, oh, nature is having a hard time. And suddenly they saw like, okay, this chameleon went extinct. A few years later, they said, oh, they didn't. Just didn't see them. So they actually rediscovered this chameleon that they thought was extinct because they camouflage was so good. Brilliant. I love it.\n\n[00:15:21] That's so good. All right. We need to move on to our second fact. It is time for fact number two, and that is Levin. My fact is that in 2015, it was discovered that only one person alive understands the Belgian tax system. I think that went down a lot better here than it might have done in London. Probably. Probably. We're so proud of the faults in our country. It's amazing. So this is an article from the dead, which is our financial name.\n\n[00:16:05] newspaper and Belgium is it's a complex country and we have to divide taxes. We have the federal government for the entire country. Then we have three regions. Flanders is the Dutch-speaking north. Wallonia is the French-speaking south and then we have Brussels, which is an independent region and it's bilingual. There's a small part of Wallonia that speaks German. They have their own government. The French-speaking people in Brussels and Wallonia have their own government also. So we have, let's see, three governments for the regions, three for the languages, and then one federal government. Sorry, Levin, can I just ask, are you the one person who understands this? And you're explaining it to us now.\n\n[00:16:47] This is just setting the scene. We pay our taxes to Belgium, the Federation, but then they have to give some money to the regions because they have their responsibility. Education is for the regions, but then, of course, the Army is for the Federation. The Flemish coast, so the beach is Flanders, the North Sea is Belgium. So if you want to clean... So when does one become... When are you leaving Flanders and entering Belgium? That way.\n\n[00:17:19] The moment you step in the sea, then you're in Belgium. And when the tide comes in, is that counted as an invasion? Yeah, well, probably. Yeah. That's why we build sand castles to keep Flanders. But so if you want to clean the beach, you need Flemish money. If you want to clean the sea, you need federal money. The result is that there's a constant lobbying of how much money goes to the regions,\n\n[00:17:51] a bit more, a bit less. You have all kinds of factors. Some of the factors are how many people are in school, so not the complete population, but people in school. How many people are retired? No, yeah, because that's also an extra cost. And so they're always playing like if we move the factors around and we get a bit more money, things like that.\n\n[00:18:13] In 2015, the Flemish government and the Walloon government get a letter from the tax administration, the federal tax administration, they said, we did a miscalculation, we need 750 million euros back. Oh, okay. And so, of course, these governments, of the regions said, okay, we'd like\n\n[00:18:33] a second opinion. And the federal tax system said, there is no second opinion. Only Karin understands this problem. So, can I ask Levin, so this person now feels like the most\n\n[00:18:53] important person in the entirety of Belgium. Probably. So is she under armed guard? Is she famous? Well, Karin Spinois, she was contacted by the press and she wants nothing to do with the press. She's a numbers person, she's a mathematician, she's very good with numbers, she makes the Excel sheet. She's sitting at home counting her 750 million euros, I think.\n\n[00:19:14] Well, you do understand the Belgian psyche, very good. But she says no photos of her online. No. We know virtually nothing about her. I have met a person who has met her. Whoa. And so at that point, it was published in this newspaper. They said, only one person understands this.\n\n[00:19:33] And then they said, what if something happens to her? And they panicked and they immediately gave her an assistant. So now there's two. We have a spare one. That's nice. And they're not allowed to travel together and this kind of thing. Yeah, yeah. There are loads of people like that, aren't there?\n\n[00:19:51] The Wright brothers, they weren't allowed to fly together? I think like members of the British Royal Family, I don't know, is that true? That they're not allowed to... Supposedly. I keep saying to you guys that the people who do the parachutes that bring space capsules back in from space are not allowed to travel with each other\n\n[00:20:07] because they hand knit. What do you do for a parachute stitch? So? Yeah, and only a few people know how to do it is the rumor. Andy, you always say whenever we're going to a gig that you don't want to travel in the same carriage as us. Weirdly, that's nothing to do with this. Oh.\n\n[00:20:26] It's just a personality problem of mine. So Levin, why not, so they're teaching the assistant, why not teach, you know, three people? Why not? Don't be ridiculous. There isn't the budget for that, Dan. Well, probably a bit more people know this now. I haven't followed the story since 2015.\n\n[00:20:47] Also, there's probably a few people in academia who understand this too, but they're not allowed to do official calculations. So they could only ask this one person and now there's two and hopefully a bit more by now. I was looking at a few other taxes. Great. Did you hear about the bachelor tax of Argentina?\n\n[00:21:05] No. This was in about 1900. Basically, I think there were tax breaks or tax relief if you were married. But there was a problem, of course, which is what do you do with men who wanted to get married and have proposed to a woman, but they've been rejected? You know, it's not their fault. They're not married.\n\n[00:21:21] They want to be married. They deserve some kind of break. on the tax. This system developed where they said, okay, well if you've, fine, if you've proposed to someone who had been rejected, you can have the tax break. But how do you prove that? How do you prove it? So basically, if a woman said no when you proposed marriage,\n\n[00:21:36] you could then say, will you lease to sign this certificate of tax exemption for me? But then people started getting around the problem, like men who didn't want to get married, they thought, well, I want this tax break too. So there emerged this small class of professional women who would\n\n[00:21:54] guarantee say no to you when you propose marriage to them. I've met all of them in my teenage years, I must say. I would think about the British tax system, which is, uh, sounds quite simple. I mean, relative to the Belgian tax system, it sounds relatively simple, but nonetheless, people in the UK, they're often late with their taxes. And every year, uh, HMRC, the British tax office, they will, um, they accept some excuses. You know, if there was a flood or, you know, if there was a flood, a sudden illness, you know, they'll say, okay, you don't have to pay a fine because your tax is late. But also, every year, they print\n\n[00:22:30] the best excuses they've had all year. So, okay, these are all from the last few years. Okay, my tax return was on my yacht, which caught fire. And by the way, I want to claim against the loss of a yacht. My wife helps me with my tax return,\n\n[00:22:50] but she had a headache for 10 days. my husband left me and took our accountant with him my ex-wife left my tax return upstairs but I suffer from vertigo and can't go upstairs to retrieve it and my favourite I was too stunned after seeing a volcanic eruption on TV to concentrate on anything brilliant that's a good one I've got a British tax story too\n\n[00:23:20] Yeah, it's the fact that in 1999 at a UK court because of taxes, it was decided that Jaffa cakes are cakes and not cookies. Oh, okay. So Jaffa cakes, for those who do not know it, in Belgium we call it Pimps cookies, Pim's cakes. Sorry, what did you call? Pim's cookies? Yeah, this is the Shire and we are the puppets of Europe.\n\n[00:23:47] That's what we do. So for those who do not know whether you have this spongy cake, a small circle, maybe five centimeters diameter. Then there's a bit of orange jam, and then there's a chocolate above it. So turns out that cookies with chocolate have higher taxes than cake, because cookies with chocolate are a luxury product, and a cake is considered a stable food.\n\n[00:24:14] So Java cake said, we're selling cake, so we don't have to pay the vat. And then the court said, no, these are clearly cookies. And they said, let's take it to court. And so they had an actual case, cookies against cake. Some of the arguments that were given. One argument from the government, from the tax system, was, we do not eat jaffa cakes with forks.\n\n[00:24:36] Oh, disagree. Yeah. Also, the size, the fact that you don't stack cakes on top of each other. The argument was won by the cakes. by the cookie producer, they are still cakes legally because one of the deciding arguments was that Jaffa cakes will harden when they go stale and biscuits will go soggy. Okay. And the ultimate argument was somebody baked a cake-sized Jaffer cake.\n\n[00:25:06] Brilliant. So they came to the courtroom with a cake-sized Jaffa-cake and said, she told you. And then it was decided. Wow. That's incredible. Why doesn't John Grisham write novels with these plot lines? for his court cases. I wanted to ask you about a thing that happens here in Belgium,\n\n[00:25:24] which is there's a place which I'm going to pronounce it wrong. Maybe you can say it. Barla Noso and Barla Hertog, yes. Yeah. Everybody here knows what we're talking about. It sounds fascinating, guys. It sounds incredible. I've been there. It's where the two countries.\n\n[00:25:38] Where the border. Yeah. But as a result, it's really odd because you can make decisions that work to your advantage in so many different places. I don't know if anyone's been there when there were, younger, but the laws of drinking have different ages. So in one country it's 18, the other's 16. Also, firing a fart capsule is a criminal offense in Balerhton, but it's not in Balhartag.\n\n[00:25:59] When Belgium and the Netherlands were split, there were some landowners like nobility who lived in Holland, like a few kilometers in Holland, but they wanted to be Belgian because they were, well, they had liaisons with the Belgian royalty. And so they said, all my land is Belgian. But like a farmer, they had a peaceful land. They're a piece of land, there, a piece of land, there are a piece of land. So it looks like this ripped-up piece of paper that was sprinkled over Holland. So there's a piece of Belgium in Holland, and in this piece of Belgium, there's a piece of Holland.\n\n[00:26:32] So that's the thing. There used to be a bank that sat on the border as well, half of it on one side, half on the other. So whenever a tax inspector came to the bank, they'd quickly grab all the paperwork and put it into the country that the person was not from to stop it. I did a music gig on the border close to my house. I live close to the border of Holland. I did a music gig on the border and we put the stage in Holland and the crowds in Belgium. And then we waited for the copyright collector to come back. And he said, you have to pay.\n\n[00:27:04] He said, no, music is in Holland. And said, yeah, of course, but there's a crowd here. Yeah, they paid in Belgium. Wow. We didn't pay. That's genius. It is time for fact number three, and that is James. Okay, my fact this week is that my brain is considerably smaller than it was when we started doing no such thing as a fish.\n\n[00:27:36] Is that from hanging out with me so much? You think it would be bigger? Do you? You've learned a lot in the last nine years? Do you think that's how it works? Every time you learn something, it gets a little bit bigger your brain. Well, I don't think that now I've said it in front of an audience. So this is just basically two different things.\n\n[00:27:55] One that your brain shrinks by 5% per decade after you turn 40. And I've turned 40 since we started. And secondly, according to a brand new study, the first time you become a father, you lose a couple of percentages of volume in your brain as well. And that's happened to me quite recently. And so, yeah, just basically I'm a bit worried that my brain's disappearing. Do you lose intelligence or is it just size?\n\n[00:28:19] Just size as far as we know Although I do feel Quite dumb now that I've had a baby But yeah I think the idea is No one really knows this but the idea is that The brain size itself is not that important Because the brain kind of sorts itself out\n\n[00:28:36] For instance Einstein had a smaller than average brain And he was quite smart actually But many more connections It's true He had a lot more connections in his brain And we know this because his brain was stolen They wanted to study his brain and he was against it. He didn't want\n\n[00:28:51] to do it and a scientist took his brain away. After he died we should say after he died. Or shortly before it. One or the two. I read the study that you were talking about James, your brain shrinking when you become a father. The idea is that some of the bits you lose\n\n[00:29:09] are the visual system or bits connected to the visual system? And the idea is that it just basically changes your brain slightly and some of the bits that help you in nurturing or whatever kind of grow in one way and whatever. And the age thing, it does shrink, but a lot of it does seem to be chew to dehydration. It's just a little bit more shriveled than you wear.\n\n[00:29:30] You lose a little bit of water out of your brain. Wow. Well, do you know if you want to get that brain volume back, James? Oh, great. Something you can do. Please pray tell. Just become an astronaut. Oh, is that all?\n\n[00:29:43] That's all. Astronauts have bigger brains than people. Astronauts are people. I mean, you know, you know what I'm like. They've got the non-astronauts. So do they expand in space? Yeah, basically, because there's much less gravity. You're in microgravity.\n\n[00:29:58] So the fluid sort of builds up a bit, and you get a bit more white matter, bit more grey matter, a bit more spinal fluid. And your brain increases by 2%, which is about what you lose with first-time fatherhood. Oh, right. So really, every time someone has a baby, we should send them into space.\n\n[00:30:12] Just send them off to space. Yeah, yeah. Have a break. It's such a male idea. Okay, honey, we had a baby. I have to go to space now. See you in six months. Sorry, I need some space.\n\n[00:30:23] I literally need some space. And so they're working on ways to solve this astronaut thing because obviously all the fluid goes to the top of the body. Because it could be a problem if your brain gets bigger. Well, one problem is that all astronauts get eye problems in space. Your vision gets worse and they think maybe the extra fluid is pressing on the optic nerve. So that's the problem. I know.\n\n[00:30:47] But there are methods being proposed to counteract this. They haven't been tried yet. but one is going in a little person-sized centrifuge that spins you around a bit and the other, my preferred option, would be a kind of vacuum cleaner bag around the lower half of your body which just gently sucks the fluid out of your top half\n\n[00:31:05] and puts it back in your legs. No way. Really? Well, it kind of compresses you like compression. Yeah, like sort of like laundry bags. But for you. Brilliant. Yeah.\n\n[00:31:16] There's a lot of animals that shrink their brain which is quite an amazing thing and they do it to conserve energy during winter months. Moles do it. Shrews do it. There's a whole study of science where they look at, and then it can grow back, but it can go really...\n\n[00:31:32] Because it's very, you know, a lot of your energy goes into your brain, doesn't it? Even if you're a shrew, it does. Yeah. And so, you know, if you need to save energy, that's a good thing to start shutting down. I think it's 20%? 20% of your energy is of everything we consume\n\n[00:31:46] goes on energy for the brain. Yeah, it's pretty amazing. I quite like that when we go to sleep at night there's a fluid which is called Cerebrospinal fluid When we sleep that fluid Sort of is like a car wash for our brain It just kind of just gives it a little clean\n\n[00:32:00] Is this why you can wake up with this bits of foam Dipping out of your mouth Because of the washing going on at the brain Yes The car wash The soap is still Yeah yeah not quite that does It's washing your brain\n\n[00:32:12] Yeah it's basically just cleansing it That's cool It's just making it yeah Nice Which is pretty sweet Because your brain is in your it's in your head and it's kind of... Great point, James.\n\n[00:32:21] We've got to establish that. Do you know, James, when you said your brain a trunk, I didn't believe you. I'm coming round to this theory. Go on, sorry. I'm going to say, of all the things I was going to say, I didn't think that would be the most controversial. No, it's like, it's covered in fluid, isn't it?\n\n[00:32:40] It's not really attached to anything. It's almost floating in this fluid in your brain, in your head. And for that reason, if you try and pick up a brain, you can't pick it up. It's like jelly-like and it'll just kind of go through your fingers. And quite often if you see anyone picking up a brain like a neuroscientist or whatever,\n\n[00:32:58] then it's already been preserved in some way. If you actually literally, if I literally cut the top of your head off now and scooped out your brain, it would just fall through my fingers. Wow. Just another reason not to do that. Sorry, the first reason was...\n\n[00:33:14] What's the last time you saw somebody pick up a bombed brain because you say it stays together when it's preserved Yeah I mean I watch Spend a lot of time on YouTube Even I don't know Last time I saw it was yesterday\n\n[00:33:28] Oh what Life at this festival No what We had a brain show So we have theme shows And we had a brain show And there was a professor in anatomy And she had\n\n[00:33:37] She had broad A preserved brain Like a human brain And she did the anatomy In front of 3,000 people Oh my God Explaining what part is where And then she explained\n\n[00:33:47] that all the motoric functions, like when you move your arm and your fingers, if you start from the very top of your head, and then you go down to your ear, you meet, I think it was first your legs and then your mouth, and then your arm and then your fingers. How interesting.\n\n[00:34:06] And then another scientist came on stage and said, do you want me to prove that the control of your fingers are right there? They put a magnetic coil on my head. and they did transcranial magnetic stimulation. What does that mean? It means that, so you have a big magnetic coil\n\n[00:34:24] and it can send magnetic fields. And of course, our nerves send electric signals. So the first thing they did was, let's first put electricity in the wiring, so in the nerves. He put this magnetic coil on my forearm, where the entire control nerves of your fingers are. Then he gave some pulses and my fingers started twitching. Without you wanting anything, they started twitching.\n\n[00:34:46] okay that was boring that was just the wiring let's mess with the computer now and then he put the coil on my head and he was looking for what fingers to control and he could so I was sitting there with a coil on my head and I hear this clicking noise and first my arm started twitching and then he said let's move to the fingers and then he went to the fingers and said now I'm going to move from the thumb to the brain and so really it was first my thumb and then he was going down and then my fingers started twitching my brain was hacked yesterday wow yeah What use can we have for that? Aha.\n\n[00:35:19] They do have a few. They do have a few, yeah. Especially in some cases, like, some depressions are a lack of brain activity. And they are, it's experimental, but they're now looking if we kind of stimulate the brain. Can it teach me how to play piano? That's why that's going to. It's going to be free jazz, but yes. Great.\n\n[00:35:40] James, once you've got back from space, if you feel like you've got a brain that's too big, And you want to get rid of a bit more. Do you know something else you can do? Become a dad again? Maybe, maybe. I don't know, Andy. What can I do?\n\n[00:35:54] Another one is running an ultramarathon. Oh, really? So people who run ultramarathons, their brains shrink by up to 6%. Which feels like quite a lot over the course of the race. And it might, we're not exactly sure why. I think one theory is that you're just, you're looking at a road for however many days. If you do like a 10-day ultramarathon or a month or whatever, you're just looking at a road over and over again.\n\n[00:36:15] and your brain is under-stimulated and just says, well, I don't need to be here. I don't know, is it the silver side or is it the gold side of the brain? Do you know what animal has the smallest brain in comparison to the size of its body? Ooh, was it dinosaurs? I think they had small brains. Ah, I'm more talking about extant animals.\n\n[00:36:34] Is he on the panel now? You don't have to say anything? They can't see us at home. Don't talk about leaving like that. Oh wow, is it, yeah, some kind of bird, maybe a dinosaur relative? It's not a bird, it is a fish, and it's a fish called the bony-eared ass fish. Okay. Is it so dumb it doesn't know we're insulting it?\n\n[00:37:00] Is that the bird? Its brain weighs less than one 1,000th of its body weight. Wow. And of all the animals that we've tried so far, this is the smallest compared to its size. The thing is, it's got a really, really small brain, but it has massive sort of ear canals. so the ear canals can grow bigger because the brain isn't there, which means you might call it its name, and it might not understand it, but it will be able to hear it.\n\n[00:37:25] We're going to have to move on, guys, for a final fact in a second. Okay. The stickleback fish, the three-spined stickleback fish, the males have much bigger brains than the females. And this is really rare in the animal kingdom. Okay. I can already see that I need to tread very carefully with this one. But yeah, it's true.\n\n[00:37:50] And we're not really sure why, but perhaps because the females gonads take up 40% of her body mass. So maybe she's using up all the energy for reproduction, and the male doesn't need to do that, and so grows a big brain instead. But he uses it for a lot of distraction and deception and stuff. The males are quite sneaky, and the females are just doing lots of reproducing,\n\n[00:38:13] and that's why that. Why do the... Wow. No, no. Everybody's way too scared to make any jokes. All right, hang on. Go on, Andy. Yeah.\n\n[00:38:23] My wife. Got cancelled. Fuck it. Why do the males need to be sneaky? Because the males will often... They'll have a nest of eggs that they look after. And a lot of... Sometimes a big group of females will come along and eat all the eggs\n\n[00:38:40] because they want their offspring to do better than the other offspring. bring. And so the males sometimes use sneaky tricks to pretend they're in one place looking after some eggs and they're actually, their eggs are in another place. I thought it was sneakiness to try and persuade the females to mate, but it's actually to try and stop the females from eating eggs of the things you've already made. Okay, okay, okay, nice. Well done for not getting cancelled. No further questions, Your Honor. It is time for our final fact of the show, and that is my fact. My fact this week is that because the London offices of the Guinness World Records\n\n[00:39:19] don't have a complete set of Guinness World Records books, whenever they need to find something out, they often need to consult the man who has the Guinness World Record for the owner of the most Guinness World Records books. So this guy exists. His name is Martin Tovey, and he has thousands of unique,\n\n[00:39:49] Guinness Record books. Because the Guinness World Records, when it started, it obviously started as this one annual, but over the years, they started doing books about sporting records, gaming records. There are thousands of these different types of books. And we all here on the panel, we know Craig Glenday, who is the editor-in-chief of the Guinness World Records. And I went to his office, and I saw all of the books that they have. And he told me this point. He said that, you know, we often have to verify a fact if someone writes into us. If I don't have it, I just message Marden Tovey. That's brilliant. Yeah, and I say, what have you got?\n\n[00:40:21] Can you get me? And he digs it out, and he usually has it. So the most recent time that Craig had to do it was because a porn actor in America was claiming that he was listed in the Guinness World Records, and Craig thought this can't be right. We don't, it's a family-friendly book. We're not going to be like, you know, biggest dick, I don't know.\n\n[00:40:38] It's like, that is not in there, right? And so... That record also belongs to a guy who got it stuck in a bottle with potassium. It's mostly bottle, but still. So he looked it up for, he looked it up for Craig. Oh, because he said, I'm in, you know, 1974 and he had that one and could look at it. Yeah, I think, I think it, or either it was just, we're missing this one, and I've checked everything else.\n\n[00:41:04] And so, yeah, and it turns out that the porn actor is lying. It's not in there. Right. Okay. Yeah. You know the adjudicators, the people who turn up to, to assess whether the record is broken or not? Okay, yeah, someone with a stop watch. Yeah, they have a stop watch and they have a blazer that which they all have to the official Guinness Blazer and they are like ninjas, okay? They're not allowed to eat or drink alcohol\n\n[00:41:25] when they're with the record setters. Obviously, they are allowed to eat food. God, sorry. They're not allowed to socialize at all with the people trying to set the records. They have to keep their distance. And the other thing they do is they make the certificate for your record\n\n[00:41:43] before you even try it. They bring it along to the record-breaking attempt. And if you don't succeed, they take it away with them, which is very cruel. That's not the cruelest thing. They don't rip it up in front of your face. They shred it. Do they really?\n\n[00:41:57] Because I don't think I shred it in front of the charity or the children who are trying to break a record for most sausage dogs. But they do shred it because sometimes people have gone through the bins afterwards trying to steal the certificate, which they've thrown away. One of these people is here. Oh, really?\n\n[00:42:15] There's an official Guinness World Records book represents. here because the University of Brussels broke a record yesterday. Like most built robots, the children here built small robots in a chain, and they had the longest chain of robots in a row. And they succeeded, so they will receive the certificate afterwards. Amazing. Up your shredder. I was looking at a few other records that have been broken in the last week or so.\n\n[00:42:47] So the largest T-shirt in the world, that was in Romania, and they made it out of 500,000. recycled bottles. It's absolutely enormous. It's in the middle of a field and they took it then apart afterwards and they've turned it into 10,000 items of clothing that they're giving to to young people who can't buy clothes elsewhere. The most bats ever in a cave was broken. That was in San Antonio. The number of bats in this cave, is it more or less than the population of Belgium? Oh my God. Well, let me tell you the population of Belgium, according to Wikipedia is 11.5 million.\n\n[00:43:25] I think more bats in a cave than people in Belgium. Yeah, I'm going to have a pun. By a long way or? I think double. Double. Well, it's 15 million. Wow. Fifteen million bats in this cave. And someone walked up to the cave and as the bats came out. An adjudicator with a clicker.\n\n[00:43:41] Yeah. Like a bouncer at a nightclub. And a shredder. Yeah, yeah. Yeah. They said that the bats sometimes will come out all at once. and it would make a cloud of bats, which is 50 kilometres by 30 kilometres.\n\n[00:43:59] Wow. That's insane, isn't it? That's so cool. And the man with the world's longest nose died. Oh. He died last week. And his father, Jepetto, was said to be very sad. Such a shame.\n\n[00:44:19] There's another record that I found, which is that there's a Guinness World Record for the most poisonous book ever. And it's called Shadows from the Wall of Death. It's from 1874. And it was written to warn the public about the dangers of arsenic-based dyes that are used in contemporary wallpaper manufacturers. And so he took 86 leafs of these things and bound them into one book.\n\n[00:44:43] So the arsenic level in this book is off the charge. Don't lick your fingers to turn the pages. Yeah, exactly. Wow. And that was, you could buy that, could you? No, I think it was. So like a one-up. Yeah, an example.\n\n[00:44:56] It's like the notebooks of Marikuri, who are still kept away from people. They're still so radioactive that they're dangerous to interact with. So cool. Did you hear about the Irish guy who tried to beat the world record for longest live burial? No. This was cool. It was in 1968. He was called Mick Meaney.\n\n[00:45:15] And I think he did about two months. He did a long time underground. And he lived on steak and cigarettes, which were fed to him through a tube. and then he had a hatch beneath him which he opened to go to the bathroom into to sort of pit beneath him sadly he didn't invite an adjudicator and so they couldn't give him the thing\n\n[00:45:37] not even a shredder then no they shredded him at the end it was so sad um guys we're gonna have to wrap up in a second yeah we're the end of the show there's one thing about world records there's one guy who owns the world records of world records Oh, cool. Okay.\n\n[00:45:55] So there is one person who has the most world records, and then a mathematician heard this, and he said, this guy has an endless amount of world records. Because he has the world records of most world records. This means he also has the world records of world records of most world records. Which is one. He also has the world records of world records of world records, of world records. And that's what mathematicians do.\n\n[00:46:23] so he has an endless amount of world records. That's incredible. We were talking about like books, like collections of books and stuff like that. So I quickly looked at that. There was Christopher Columbus's son who is called Enando Cologne. He invented the bookshelf. Oh. And the reason he did that is he wanted to read every book that existed in the whole world.\n\n[00:46:47] Okay. And we reckon that when he was born, it might have been possible. Obviously he was a baby, so he couldn't read. But by the time he died, there was a massive amount of books being printed, and there's no way he could have done it. And according to Google Books, there are currently 129 million, 864,880 bucks in the world. If you decided to read them all, you did one an hour, 9 to 5, sat next to Niagara Falls. Then by the time you finished the last one, Niagara Falls would have ceased to exist due to erosion. Wow.\n\n[00:47:21] Wow. Better make it nine till six. Yeah, better crack on. Yeah. That is it. That is all of our facts. And if you'd like to get in contact with any of us about the things that we've said\n\n[00:47:38] over the course of this podcast, we can be found on our Twitter accounts. I can be found on at Shreiberland, Andy. At Andrew Hunter M. James. At James Harkin. And Levin. At Levin's cheery. That's right.\n\n[00:47:50] Or you can go to our group account, which is at No Such Thing. Or our website. No Such Thing is a fish. all of our previous episodes are up there, so do check them out. Thank you so much for having us here in Nordland, Belgium. It was fucking awesome. We had an amazing time.\n\n[00:48:07] We'll be back next year, and we'll see you all next week. Goodbye!"
+}

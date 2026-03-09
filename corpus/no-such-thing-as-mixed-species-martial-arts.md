@@ -1,0 +1,275 @@
+# No Such Thing As A Fish - No Such Thing As Mixed-Species Martial Arts
+
+- Episode date: July 6, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-mixed-species-martial-arts
+- Slug: no-such-thing-as-mixed-species-martial-arts
+
+## Transcript
+
+[00:00:02] And welcome to another episode of no such thing as a fish, a weekly podcast this week, coming to you live from Brisbane. My name is Dan Schreiber, and I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin, and once again, we have gathered around the microphones with our four favorite facts from the last seven days, And in no particular order, here we go. Starting with you, Andy. My fact is that during prohibition in America, the cops responsible for busting speakeasies did so, dressed as grave diggers, farmers, statues,
+
+[00:00:55] opera goers, cowboys, judges, bums, and old Italian matrons. What was the penultimate one there? Bums. Okay. Yeah. Like homeless people? Homeless people. Exactly, yes.
+
+[00:01:08] What was the statues one? They weren't dressed as bottoms on their way to a fancy dress party. Although they probably could have done. They were incredible. There were two agents, and they had this massive, they were the best prohibition enforcing agents. So prohibition 1919 to 1933,
+
+[00:01:27] alcohol sales were banned across America. And there were these guys called Isidore Einstein and Mo Smith. And they arrested 4,900 people. Wow. Yeah, I know. And their conviction rate was 95%. They were incredible, but they were mainly famous for their disguises. So they had a dressing-up box. They dressed as tram conductors or opera singers sometimes. They went to the Democratic National Convention, disguised as politicians. But where were they, so like if they were opera singers, were they just going to bars and just being like, hello? And what does an opera singer look like, I guess is the question.
+
+[00:02:00] Yeah. Sometimes they would, there were some bars which were next to opera houses, I think. But they, but they, Yeah, go on. They like to go for all the different countries as well, didn't they? All the different nationalities. So apparently they dressed as a German pickle packer. I mean, that's just nice to say, isn't it? A Polish count, a Hungarian violinist, a Yiddish grave digger, a French matriadie,
+
+[00:02:27] an Italian fruit vendor, and a Russian fisherman. They were incredible. Supposedly, Einstein and Smith, both dudes, once posed as husband and wife, which is a much easier costume for one of them than it is for the other one. Because these were two big guys. And they said that no one suspected them of being prohibition agents because they just looked unlikely. So the pickle thing.
+
+[00:02:47] And everyone was so pissed they didn't notice. Sometimes they would go up to a bar and they'd say, I'm a prohibition agent, let me in. And they would say, yeah, very funny, in you go. And then they'd go in and arrest everybody. Wow. That's like Jediism. So that happened once in it.
+
+[00:03:03] He had the prohibition badge on his coat. and he said to him, would you sell a pint of whiskey to a deserving prohibition agent, wink, wink, like pretending that he wasn't? And the guy said, oh yeah, of course, there you go. That badge is amazing. Where'd you get it from? And he said, I'll show you where it came from. Wow.
+
+[00:03:19] And they took him straight down the station. Wow. They also said props were very important to their whole act, didn't they? They really liked they were auditioning for the circus at all times. But they love props, so they kept with them in their, you know, in their satchel, a string of fish, apparently, a picture of milk, some trombones, a fishing...
+
+[00:03:39] What is this Mary Poppins' his satchel? When you said a picture of milk, do you mean... I don't mean a milk portrait, James. Hi, we are milk photographers, and we'd like to come into your bar, please. But the best prop they had was this thing that one of them invented,
+
+[00:03:56] I think it was Izzy, who invented it, Izzy Einstein, was an artificial gullet. And this was so that he could pretend to drink in a bar without actually having to drink because then he's sort of condoning the drinking. So it was an artificial chocolate. It was a rubber bag that he hid inside his shirt.
+
+[00:04:12] It was connected by a rubber tube to a funnel that was sewn into his vest pocket. And so he'd asked for a drink. The barman would serve him a drink. And then he pretended to drink it while actually pouring it into his front pocket where it got siphoned into this sack that he was hiding in his belly.
+
+[00:04:28] That's amazing. I like the tricks as well because these guys were playing tricks on the drinkers, but also the people manufacturing the alcohol who were known as the moonshiner's, they had amazing tricks as well to get past the agents who were trying to bust them.
+
+[00:04:43] My favorite one is they developed these things that were shoes that had cow hooves on the bottom, so when it looked like they'd found some tracks of a human making moonshine, it was, oh, no, it's just a cow. Oh, it's just a cow walking along on two legs. Towards this abandoned still of alcohol. Well, we'll never solve it.
+
+[00:05:04] It was amazing. These guys, Einstein and Smith, they arrested 180 rabbis. And sometimes they, so Einstein was Jewish himself. And he once got told that he didn't look Jewish enough to go into this bar, which really annoyed him because he was Jewish, but he was a Prohibition agent. So he sent along a non-Jewish agent and who did get in and then arrested them anyway. Wow. Izzy Einstein went into a bar once, and the barman recognized him.
+
+[00:05:30] And he said, that's you, that Izzy Epstein, isn't it? and the guy said, don't you mean Izzy Einstein? And then they got into a big argument and Izzy said, I bet you one drink that it's Izzy Einstein. They bet the drink
+
+[00:05:45] and when he poured him the drink he coughed him and said I got some pretty bad news for you here, guys. People weren't very stupid in prohibition, weren't they? But the rabbi thing is interesting because one of the only ways you could get alcohol during prohibition
+
+[00:06:01] at least at the start before I got a bit laxar, was if you're a priest or a rabbi, because you might need wine and any religious rituals. And so suddenly, the number of priests and rabbis really skyrocketed during this period. And in California, where there are a lot of Catholics, very Catholic region, suddenly the amount of wine being made for the sacrament increased by 700%. Everyone extremely religious. I like that they used to other methods that they would sort of get the alcohol is from the Canadian border, they would fire alcohol torpedoes underneath the Great Lakes towards the
+
+[00:06:39] American side. Yeah, so, yeah, so there was an agent who was sitting in the lake one day fishing, and this thing just went underneath them. And they were like, what was that? And they found it, and it was a torpedo packed with alcohol on the inside. Well, because they used to, the boats, when they were smuggling sort of whiskey in, let's say, sometimes there'd be a police raid on the boats. And so a lot of boats would suddenly dump all their whiskey and disappear, let's say, they're coming up to Coney Island. And so it used to actually wash up on. beaches. You'd be on the beach and a whole case of whiskey would just wash up for you. Wow. It was a great time. I found a... It was a happy time. They also used to put them in canned fruit,
+
+[00:07:13] so you know there's a liquid with the fruit. Well, the liquid would be the alcohol, so they would do that. Yeah. And what you were saying about the agents, they had a sort of interesting situation with their agents where some of them were amazing and doing these fancy dress box things, but other ones, they were so underpaid that they were susceptible to bribes. So they were being paid to be prohibition agents. They were being paid less than garbage collectors were being paid. So they were really susceptible
+
+[00:07:40] to these bribes and one in ten of the prohibition agents actually got dismissed from being caught for taking bribes. So it's a huge rate of, yeah, using them as smugglers themselves. So they tried to bring prohibition to Australia. You had a vote in Queensland in the 1930s and you voted against it
+
+[00:08:00] enormous numbers. The biggest democratic turnout ever heard of that. But there was one place where they did have it and that was in the Australian Capital Territory. A bunch of squares, right guys? Yeah, cool.
+
+[00:08:20] Well, kind of, but for a little while the only place where you could get alcohol in the capital territory was in Parliament House. Wow. Everyone else had to go over the border, but you could get it in there. And the guy who was behind this whole law was a guy called King O'Malley. And he, according to Wikipedia, is particularly remembered for his role in the establishment
+
+[00:08:38] of the Commonwealth Bank, the selection of Canberra as a national capital, and taking the U out of the name of the Australian Labour Party. Really? That was him. Equally important contributions to the nation of Australia. People who campaign are very interesting, like the people who are so devoted to campaign. So there was one woman called Carrie Nation. This was after Maine outlawed alcohol in 1851,
+
+[00:09:03] so they did it well before the rest of the States. But the law was repealed. She was really unhappy that alcohol was on sale again. So she and her associates would smash up bars with axes. This is a very devout, sweet-looking Christian lady. Dozens of women would turn up and sing hymns, and then Carrie would smash the bar with an axe. And she was frequently being fined,
+
+[00:09:24] but she paid all the fines by selling souvenir axes. It was very much a woman. women's movement thing, a lot of it, wasn't it? To be fair, there's a lot of problems with alcohol and sort of wife beating at the turn of the century and a lot of violence. But yeah, the women's movement, they used to have a lot of temperance meetings about how to make Prohibition work, because
+
+[00:09:42] it wasn't working. There were a few meetings where they suggested ways of punishing drinkers more. Some of these suggestions that women put forward were that people caught drinking or selling alcohol, we should say, because it wasn't illegal to drink. It was illegal to sell alcohol, wasn't it? People caught selling alcohol should be
+
+[00:09:58] sterilized? Or, one woman suggested they should be locked up in a bottle-shaped cage in town centres so that people could walk past and jeer at them and another one suggested they should be hung by the tongue from a plane and flown over the US. Whoa!
+
+[00:10:14] Someone needs a drink. Calm down. Such a resource heavy punishment as well. One plane per person. No, because you could get more than one person on a plane. Depends on the size of the plane. If you've got like a Brian error
+
+[00:10:36] or an easy jet, budget airline. Is the equivalent budget airline here? Jetstar? Jetstar. Yeah. Tiger Air? Local reference. Tick.
+
+[00:10:47] Have you... It doesn't count when you ask the audience for the local reference. What's a good bit to say here? Hey, we need to move on in a sec to our next fact. Oh, can I... I've got such good.
+
+[00:11:00] bootlegging trial. This was in L.A. and there was a trial that was looking into whether someone had been bootlegging had been illegally selling alcohol. But it all turned on its head and in the end the jury itself ended up being put on trial
+
+[00:11:16] after they drank all of the evidence. Okay, it is time for fact number two, and that is Chisinski. My fact is that spider wrestling was banned in the Philippines. because children found it more entertaining than going to lessons. Which is unsurprising, really.
+
+[00:11:37] So it's a big deal in the Philippines. It has been for a number of decades, and there are lots of instances of educational districts banning it, and so the earliest I could find is a 1982 article, but there's a 2003 report, which says loads of districts ban spider wrestling because it turned out there was a lot of truancy because boys were going out and hunting spiders
+
+[00:11:57] for their wrestling matches rather than going to school. and also it was thought to be a slippery slope on the road to being a gambling addict and it still kind of is it's thought as the first step on the way to a serious gambling problem and it's basically schoolboys and always boys never girls in the Philippines find two spiders and they peel them on a stick and they make them fight each other and then they put tiny amounts of money on it I like the way you said in the Philippines as if in the UK it's just girls doing it oh it's a very feminist game in the UK yeah yeah equal representation
+
+[00:12:28] It does sound pretty exciting. Oh, yeah. How's it boy speaking? Well, they wrestle until one of them is overpowered. And there are various, sometimes they separate them before they kill each other, these spiders, which must be very hard, I imagine. Hey, break it up there, come on.
+
+[00:12:47] Above the belt. Some of the formal fights, I can't believe there are formal fights, but there are formal fights. They have polystyrene foam on the ground, so a spider won't hurt itself if it plummets from the stick, despite the fact that famously, spiders are not hurt when they fall to the ground. Is that famous?
+
+[00:13:02] It's... I think you're thinking of cats. I'm thinking of cats. You have been fighting the wrong animals. I've only researched cat fighting guys. Very much a women's spot cat fighting as well. Oh. Technically though, that was genius.
+
+[00:13:23] Just on a technical. I should say how a spider can win at a spider fight. Oh yeah. Because there are a number of ways. Here's some hot tips. A, if you kill the other spider, you've won. Well done.
+
+[00:13:36] If you seriously enter the other spider, you've won. Or if you manage to wrap the other spider in a cocoon, then you've won. And some spiders try to escape, as you would, by dropping off the stick and weaving a thread, so hanging on a thread. But if your spider does that three times, it's disqualified and you've lost.
+
+[00:13:52] Wow. So you can't get away that easy. I was looking into different spiders and their fighting abilities that if they were brought to the fight, what they could bring. So they are the same species, I guess, these ones. Must be in the Philippines, I guess.
+
+[00:14:05] There's a particular species that gets used a lot called the Argiope spider, which is apparently a pretty cool spider in the ring or on the stick. But then you've got some better ones? Ah, so yeah, so this is just spiders from around the world. So there's the different fighting styles that you can have. There's the fishing spider who uses the patience style. Plays cards with it.
+
+[00:14:25] Yeah. So it waits on the end. of a water just silently and it looks for... That would have worked really well if that wasn't a one-player game. But technically, brilliant. Sorry, Dan. Well, no, it sits on the edge of a water and it just patiently waits until it sees the prey coming
+
+[00:14:45] and then it goes for it. And it has a great success, but it stays very still. So that's the patience. There's the spitter, which is the spitting spider. It spits a mixture of venom, glue, and silk at its prey. So it captures it and it kind of kills it with the venous. venom. So that's an amazing technique that you could use. There's the mimic.
+
+[00:15:02] This is one that uses a little bit of silk where they emulate a female moth and they attract male moths to the scent and they land on it and they get stuck and they bring them up and then they kill them and then there's the vibrator. Hang on. No, go on. Well, I just, can I, the moth one is not spider versus moth these fights.
+
+[00:15:20] Does it trick the other spider into thinking, well it's a moth? Where's my spider opponent? And then it pounces. No, you're right. I've gone mixed species martial arts there. That is definitely no use for that. Yeah, the vibrator
+
+[00:15:36] is a nice one. This is the it goes onto other spiders' webs and it mimics the vibrations of an insect that's caught or another spider walking across it but it doesn't get stuck itself and then the spider comes to eat its prey but then gets eaten itself. But you can't really put spiders of different species
+
+[00:15:56] against each other, can you? Because they're just so different. You kind of like have a tarantula against a money spider because that's just not going to work. Well, there are weight categories so that wouldn't work. Are there? Yeah. Just because the longest spider sperm is twice as long as the smallest spider. It's just a
+
+[00:16:12] fact I have here, but it's an example of the difference between the different spiders. What fighting style would that be called? It's like the drowning style. Oh my goodness. Crickets fight as well. Yeah, you have crickets well they're made to fight by evil humans
+
+[00:16:29] but this was a huge thing in China and it was banned during communist times because it was seen to be a bourgeois hobby making crickets fight each other but they are given herbal baths before each fight they're incentive I'm not kidding they're put near water with herbs in it
+
+[00:16:47] they're given a maggot before a fight to incentivise them they are trained by fighting their coaches holding mouse whiskers to see if they can succeed successfully wrestle, you know, like a sparring thing. And they get conjugal visits from lady crickets as well.
+
+[00:17:03] They do, don't they? Yeah. They do, do, they? Before a fight, because I was reading one trainer saying that it relaxes them, if they get to have sex before a fight. These crickets. Because, like, you would hear about
+
+[00:17:14] sports people not having sex before fights. Yeah, cricketers, for example. Yes. Crickets, cricketers, sorry. That was technically very good. Thank you, James. Well, in these in these cricket fights
+
+[00:17:28] I did try and find out whether any people cheat in the cricket fights, but it turns out that if you Google cricket cheats it's very hard to find But the Chinese cricket thing It is amazing because culturally it was very much part of the emperors used to have crickets in their bedside
+
+[00:17:48] table basically because people would go to sleep to the sound of crickets so it would be very relaxing. Still to this day $63 million is spent annually on tending to pet crickets. And like the spiders, there's no casualty in the cricket fighting. They sort of gnash their teeth at each other. And then the loser is the first cricket to just turn away.
+
+[00:18:08] Just be like, oh, I can't do this anymore. And it's like, oh, game over. Yeah, Mr. Cricket, number one wins. They do treat the spiders very well as well in the Philippines. They're trained up and they're given this special diet like proper athletes. And they're fed on chili peppers because that's thought to make them a bit more agro. and then they're starved for the day before the fight because again that makes you kind of angry and uptight.
+
+[00:18:31] But it's thought that the best spider to get is one that lives on electricity lines because the electricity pulsing through your body gives you special kind of magic powers like a super spider. Whoa. Don't say whoa, that's not true. This is the opinion of 10-year-old boys, Dan. To make a whip spider really aggressive,
+
+[00:18:51] you can shave its legs. Really? Because they are notably third wave feminists and they don't like that kind of thing. They're not doing it for you, they're not doing it for anybody. Why does that piss them off? Well, basically what it is,
+
+[00:19:06] is they kind of, rather than normally fight, they do air punches at each other and the way that you feel it is in the hair on your legs. And so if it can't feel the air punches of the other guy, it doesn't recognize that it's being
+
+[00:19:18] aggressive towards it and so then it will be more aggressive towards the other spider. So the way they feel, fight is essentially by fanning each other. Pretty much. It's hardcore than I thought. He's spiders. Do you know how
+
+[00:19:34] a scientist do experiments on black widow spiders? I just really like this. No. They have to intimidate black widow spiders, but obviously black widow's quite dangerous. So they have jelly fingers and they have to prod the black widow with a gelatin finger. Oh, really?
+
+[00:19:50] Yeah. That's rather sweet. That makes sense. It does make sense. It makes perfect sense. It would be a more interesting fact if I said, do you know how they do it? They just go right in there and risk being bitten. Female spiders, quite scary to male spiders, very often. Obviously, we know there's a lot of cannibalism in the spider world. Females are always eating the males rather than having sex with them,
+
+[00:20:12] often just before it instead. They decide they're hungry rather than horny. And spiders have developed all these ways to combat that male spiders. So there's one male spider that emits this airborne chemical, which is kind of like the rohipmill of the spider. world, it like knocks out. Well, it makes her kind of woozy. So this chemical makes her a bit sleepy
+
+[00:20:31] and she doesn't fight back and she doesn't eat him. And then there's another one which practices bondage. So male spiders will sort of play a bit of footsie. Yeah. That's someone who's in danger of being eaten by their partner. They start
+
+[00:20:49] tickling their legs and then really quickly weave the silk all around them so they tie their legs together and then they can have sex with them again without being eaten. It's called a bridal veil when some spiders do that. That's so much nicer than you saying it was bundage. This is nursery web spiders.
+
+[00:21:05] They have to tie females down with silk shackles, basically, not to be eaten. And scientists know this, because they decided to block up the male's spinnerets, so they couldn't weave the thing over the female, and then the males always got eaten in those experiments.
+
+[00:21:21] Which is pretty rough on the male. He says, we're just going to take away the one, thing you can do to defend yourself. In you go. Good luck on your date. I found a couple of things. This fact was about this practice of spider wrestling being banned in the Philippines.
+
+[00:21:39] So I looked into a few other things that have been banned in the Philippines. And just one that I thought was really interesting. Their president, Duterte, very recently, banned tourists from going to a place called Boroket. This is just, this is fresh in the news as we're recording it. This is one of the
+
+[00:21:55] top tourist destinations that they have in the Philippines, it turns over an annual $1 billion. It's massive for them. And it's because a few hundred businesses had sewerage waste problems that they weren't dealing with. So he's shut it down for six months. So one of the leading tourist places in the world right now is complete lockdown. No one is allowed to go to. So financially, it's going to absolutely ruin them.
+
+[00:22:18] It's going to be very interesting. And then this is really weird. Supposedly, the song My Way by Frank Sinatra has been banned by Carrie. has been banned by karaoke use in the Philippines, not officially, but most people have taken it off. Is that because the only way is Duterte's way? This has been sort of over 10 or so years. People have been getting into violent fights.
+
+[00:22:38] There's been deaths off the back of people getting up and going, I'm going to sing my way, start singing it. Why? They think that they're just saying something of huge arrogance on stage. It's what they think. They haven't got great answers, but there's been like six deaths associated with my way at karaoke. and so they've just taken it off all the machines going,
+
+[00:22:57] we can't afford a death in our karaoke club. Let's sing Bee Gees instead. Stay in alive. All right, let's move on. Okay, it is time for fact number three, and that is my fact. My fact this week is that there are more people pretending to be Vikings in the game Vikings' War of Clans
+
+[00:23:24] than there were ever actual Vikings on Earth. It's not incredible. amazing. Yeah, so I got sent this fact in by a very good friend of the podcast. He's appeared on a few times. He's called Levin Skyra, a Belgian scientist comedian, and he was watching a video which they explained that there were 20 million Vikings on this game and growing. And so he went to verify it. He went to a page on Wikipedia that showed the total population of Scandinavia in the year 1000. He found it was less than one million. Vikings lasted from the year 793 to 1066. So about 300 years, roughly 12, generations, that would leave to 12 million Vikings.
+
+[00:24:04] And that's if all the Scandinavians were Vikings. So it's a big number underneath the 20 million. So we have more Vikings in this game than ever were in real life. I would still back the actual Vikings in a fight against the people playing this game. I was looking at some other games to see if there were more of the real things than the actual players. Oh, okay, yeah. I was looking at Farmville.
+
+[00:24:24] Do you remember Farmville? Yeah. So at one stage, there were 311 million people playing. it worldwide. Do you think there are more or less actual farmers in the world than that? I mean, there are far fewer than that. More? I say it's exactly
+
+[00:24:41] the same. Exactly. To the number. To the number. The internet seems to think there are 570 million farms in the world, so they're a little bit off. Damn is right. Yeah. That's a very rare occurrence.
+
+[00:24:54] I am right. So I'll take that. And FIFA 18 came out in 2018 and their number of users went up to 1.6 million. Now, do you think there are more or fewer footballers, actual footballers in the world than that? Professional footballers. People who
+
+[00:25:09] are signed up to FIFA as footballers. Oh, fewer. I don't think there are 1.6 million footballers. Okay. According to FIFA, there are 265 million footballers in the world. No. We would know if there was... I know, but this is according to FIFA on their actual
+
+[00:25:25] website. Does you get everyone together? You've got one footballer to two farmers. our priorities are way out of black because they have to fight over the same field as well apparently and this is genuinely according to FIFA there are 26 million registered footballers in China and that is more than the population of Australia which is 24 million
+
+[00:25:49] wow it's too many it can't be I found a few weird games that exist as online games it's digital games. So Donald Rumsfeld, the former Secretary of America in the Bush administration, he released a game. Really? Yeah, it's called Churchill Solitaire, and it's a game that Churchill used to play. It was sort of different rules, and Churchill was obsessed with it. And so
+
+[00:26:13] Donald Rumsfeld teamed up with this team to do it. He learned it from a man who used to play it with Winston Churchill, and so he thought these are amazing rules. And when they released the game, this is the quote from the company that released it. Mr. Rumsfeld can't code. He doesn't much even know how to use a computer, but he was guided by his young digital-minded associates who assembled the video games with the same method
+
+[00:26:36] he used to rule the Pentagon, a flurry of memos called Snowflakes. As a result, Churchill Solitaire is likely to be the only video game developed by an 83-year-old man using a dictaphone to record memos for the programmers. Hey, why didn't he just use his fingers to phone? That's
+
+[00:26:57] just a... Celebrity video games is a thing So Kanye West announced in 2016 He was working on a video game And the aim of the computer game That Kanye West was launching Was that you had to escort his deceased mother Through the gates of heaven
+
+[00:27:11] By holding her up to the light. Oh my God Now, it's not out yet A lot of people claim it's not going to happen But in September, last year The Game Studio developing it said No, no, no, we're still working on the Kanye West Deceased Mum game
+
+[00:27:26] Wow So look out for that there is a new app which is available in China and it's a game where you applaud speeches by Chinese president Xi Jinping and you have to
+
+[00:27:43] applaud them as much as you can by just mashing your button as much as you can and apparently the record for button mashing on this game is 60 button presses per second wow that sounds like a fee-
+
+[00:27:58] first start, doesn't it? Apparently that's true. I guess if you use multiple fingers, if you can bash ten fingers at once. Yeah, and if you think you're going to get arrested if you don't get it. You can achieve great things. Michael Jackson released a computer game.
+
+[00:28:14] He was involved with eight computer games, but in one of them, Michael Jackson's Moonwalker, you had to control Jackson to save kidnapped children from a villain. Wow. Please. And they played versions of his hits in the background. You normally defeated the
+
+[00:28:31] villains by moonwalking or by doing dance moves. It was a great game. Did you play it? Yeah, as a kid a lot. Yeah. Yeah, I didn't think of how you just put it in context, but yeah. Sort of regret it now. There was the great video game crash of the 1980s.
+
+[00:28:47] Was a huge deal in video game world. It was 19802. It was when all video games went really weird and really crap because everyone jumped on board, made them cheaply. There was one in 1982 that came out, which was called Communist Mutants from Space. This was obviously late Cold War. And the way it worked was you were fighting against aliens from a communist planet,
+
+[00:29:08] which was called Ruski. And it was invading the Democrat planet. And the aliens leader was a mother creature, and she'd gone mad from drinking too much irradiated vodka. How do they think of these things? Wow. Hey, we need to move on shortly to our next fact. You know Second Life?
+
+[00:29:31] Second Life, the big online thing. Second Life has support groups called things like, Has Second Life taken over your life? Unfortunately, they take place inside Second Life. Oh, wow. So you have to be playing to take part. That's so sad.
+
+[00:29:46] I just had to look at a couple of games that Vikings might play. Oh, cool, yeah. So one game that they played in the Longhouse after their meal was called Henutu Cast. And their game was, you threw bones at other players with the intent of causing an injury.
+
+[00:30:01] and then you use their bones for the next game could throw a bone pretty hard to actually extract another bone is that where the phrase throw me a bone comes from I shouldn't think so no okay sorry no James you're going on oh just that another one is they had swimming competitions but the goal of their swimming competitions
+
+[00:30:28] was not who could get their quickest it was who could hold his opponent's underwater for the longest. That would be so much more exciting to watch. Just as an Olympic suggestion. All right, it's time to move on to our final fact of the show, and that is James. Okay, my fact this week is that Ozzy Osborne's 1992 tour was called No More Tours. His 2018 tour is called No More Tours 2. And has he confirmed how many in the series?
+
+[00:31:06] I think he's going to go forever, isn't he? Yeah. Yeah, he's going to... In between, he did a retirement sucks tour. Wow. Yeah. But the No More Tours was originally No More Tears, and then he was misdiagnosed.
+
+[00:31:18] It turned out with multiple sclerosis, and then he renamed it No More Tours. And he thought he would never tour again, but he is out there now. Yeah. I love... I was looking into tour names generally. Because they are quite fun.
+
+[00:31:32] Sometimes bands do have some really good ones. Peter Gabriel of Genesis, he used to have a great one. So Peter Gabriel once had a tour, which was called China, 1984 tour. The interesting thing about this is that that tour took place in Europe and the USA in 1980. So it had no relevance whatsoever to China, 1984 tour. He also did Playtime, 1988 tour. That took place in 1982. too. Yeah, he just thought, he thought, ah, it doesn't matter.
+
+[00:32:05] Just any old shitty name's going to work. Elton John once heard, louder than a Concord, but not quite as pretty, which I think is a really nice name for a tour. One Direction once toured under the name, Take Me Home, which doesn't imply that they really want to be there in the first place. Some 41 did a reunion tour, and they called it, don't call it a Sumback tour. Very. And you were the consultant, James, on that tour, weren't you? Elson John, his first retirement tour, was announced in 1977, and he is now doing his final retirement tour.
+
+[00:32:40] I think it's going to take him three years to get all the way around the world. Yeah. But Ozzy Osbourne was a bit of a rocker, wasn't he? Still is, I guess, although he doesn't drink anymore. And I think one of the reasons is because, according to his autobiography, he was invited in 1981 to a meeting with the head of CBS Europe, and he decided to lighten the mood a bit by doing a strip tease on the table and then kissing the record executive on the lips.
+
+[00:33:05] And Sharon later on told him that he'd actually performed a Nazi goose step up and down on the table before dipping his testicles into the executive's wine and then urinating in it. Wow. He really, he doesn't disappoint. You think you're going to look up Ozzy Osbourne
+
+[00:33:22] and find out he's not actually as mad as he seems, but my lord, it's amazing. He once got bored and he dragged a shark. Don't know where he got the shark. No information on that. that dragged a shark into their hotel room, a dead shark, through the hotel room window, soaked in blood,
+
+[00:33:38] and covered the hotel room in shark's blood. What? He did genuinely bite the head off two live doves during a meeting with a PR manager, so he'd meant to let them off at the end of the meeting, but she says something that really irritated him, so instead of that, he took out two of his three live doves and bit the head off.
+
+[00:33:56] Two of his three? Yeah, so... Now, what third one must have been absolutely terrified? This magic actor's gone very sour. You know the tiny, if you've seen Spinal Tap, you know they do a thing where they have to perform. They get the dimensions wrong and they perform in front of this tiny Stonehenge, which is about 12 inches high instead of tall feet high. So Black Sabbath went on tour in 1983.
+
+[00:34:21] They had a replica of Stonehenge on stage and it was so massive that it didn't fit on stage. None of it could fit on stage. So I think they wanted it in feet and they got it a meter. So I think that's where that comes from. Wow. Yeah, that's so cool. That must be an odd to that. I really like that Ozzy Osbourne, obviously, famously, so the dove story, but the famous one
+
+[00:34:39] is the bat story. So he bit off a bat's head on stage, and the story goes that, in fact, he didn't know it was a bat. He thought it was a rubber bat that a fan had thrown onto stage, picked it up, bit the head off, and then realized that it was an actual bat. And that's the big story of Ozzy Osbourne from his drunken drug days. but a few years back in 2010, he was trying to convert part of his Buckinghamshire estate, but he couldn't because it turned out that he had bats in the loft
+
+[00:35:09] and there were protected species. So unless he promised to protect them, he wasn't able to do anything about it. Wow. Yeah, so they finally got their... The idea was that, like you say, that's what happened. He said that, sorry about this, but he said that as he bit it off, he felt the head twitch in his mouth. Oh.
+
+[00:35:27] But according to the guy who claimed, that he was the one who threw it on stage called Mark Neal. He'd found the bat two weeks earlier, and it was alive, but by the time he'd taken to it, it was long dead. And so he'd actually put a dead bat in his mouth, according to that guy. Wow. I don't know who to believe. And I don't know which is worse.
+
+[00:35:46] No, they're both pretty awful, I know. They're both horrible. Yeah. So the drummer was called Bill Ward, and Tony Iommi, one of the other band members, was a known prankster, but they particularly love setting the drummer on fire. So apparently they related a story of one show where Tony said to Bill,
+
+[00:36:03] I'd like to set you on fire now, please. And apparently Bill said, I don't really want you to, not now. And then at the end of the show, he came out to Tony and said, okay, well, I have to go home in a minute. So do you want to set me on fire or what? He did. He sprayed him with lighter fluid, covered him in lighter fluid, lit a match, and he was wearing polyester pants,
+
+[00:36:21] and so that he went up extremely fast. And he was on the floor screaming and crying. And Tony said, I couldn't help him because I was so busy laughing. it actually turned out to be quite serious and I felt very bad for him, yeah, an ambulance was called and again in 1980 he got third-degree burns because they set fire to him again. He just kept on volunteering for this.
+
+[00:36:43] Wow. Well, he's actually, he's one of the few people on Earth who's had his entire DNA sequenced for science. Oh, Ozzy Osbourne, you mean? Sorry, Ozzy Osbourne, yeah. He's one of the few people that's had his DNA sequence. So James Watson had his, a few others, and it was done by a scientist
+
+[00:37:00] who wanted to work out how the hell he's still alive, basically. They were like, does he have a special gene? Does he have anything? And he does have a few oddities within his body, nothing major. He's got a bit of Neanderthal in him as well. Oh, but we all do, don't we?
+
+[00:37:15] Yeah. But he's probably got a bit more than most. Yeah, he's up to like 70%, I think. No, we all have like 2% or 3% don't we, but they found that he had a little bit more than most. Yeah. But yeah, so it's, he had a few bits where that could process alcohol a bit more addictively and that's why it made him an addict.
+
+[00:37:33] So they did learn a lot from doing it. They said he was 2.6 times more likely to hallucinate on marijuana. He had an increased risk of cocaine addiction. He was six times more likely than average to be alcohol dependent. But weirdly, the person who conducted the test said Ozzy Oswald's kryptonite is caffeine,
+
+[00:37:52] which is bizarre because he's taken every single drug under the sun. But apparently, yeah, he's extremely slow to metabolize coffee. So that's, if you think he's a bit of a mess right now, it's just because of the coffee thing. That's weird. Because of the massive drug addiction. That kind of explains one thing I've got here, which is that he keeps failing driving tests. And one time he fell asleep during the test.
+
+[00:38:16] That's a major, isn't it? Yeah, that's a major. I think due to lack of caffeine, maybe, I don't know. He said, when I woke up, there was a note on the seat saying, you have failed. And yet the examiner left him the car. Yeah. Do you want to hear the least rock and roll story I've ever heard? There was a piece of the Guardian about the worst gigs ever.
+
+[00:38:40] It was very funny. And it was the Jonas Brothers. Oh, yeah. Yeah. They started off as a Christian rock band, I think. Maybe they still are. But Joe Jonas said, we played a strawberry festival
+
+[00:38:49] where they actually judged strawberries with taste tests and everything. It was the most awkward gig we've ever done. There was hardly anyone there, and the sound cut out halfway through. We had to perform without any sound equipment. These poor kids. They said, we didn't get angry and smash the place up. But we did get us to judge the winning strawberry as compensation for the bad sound.
+
+[00:39:09] The winning strawberry was fantastic. I thought they would have deliberately given it to a really shit strawberry. No. Or to a raspberry or something. They're nice boys. Sorry, I just wanted to counterbalance them, you know, biting their head off two dubs, but leaving the third terrified one. I've got a good first-hand account from someone we know,
+
+[00:39:32] rock and roll account. So Freddie Mercury used to have parties, and obviously he was Wild Child, and had parties, and he used to invite small people or dwarves to the parties and put bowls on their heads full of cocaine so that they could be easily consumed. Which of our friends was at this party?
+
+[00:39:53] I don't like to say, but this same friend did say he always. also toured with Black Sabbath. And because the done thing is to throw a TV out the window, right? You've got to throw a TV out the window at some point. So I think actually one member of Black Sabbath was on the way to the airport once and stopped the driver and said, God, turn around, I've forgotten something, and got driven back, ran upstairs, brought the TV downstairs and threw it in the swimming pool
+
+[00:40:13] of the hotel, then got back in the cab and said, okay, thank God, right, we better go to the airport. But this guy that we know did also tour Black Sabbath and decide he had to throw a TV out of the hotel window but forgot to one plug it, so apparently ended up with the TV just dangling precariously from the 20th floor of a hotel. Do you know what one of the main rules at a Rolling Stones gig is
+
+[00:40:35] these days for the band? I don't know. You're not allowed to touch Keith Richards' Shepherd's Pie. And is that a euphemism for something? Sadly not, no. He's completely clean these days. And he has a Shepherd's Pie before every gig and in 1989 in Toronto,
+
+[00:40:53] he found that someone had tried it, before him and he refused to go on stage until a new shepherd's pie was made and brought to him. He said, nobody touches the shepherd's pie until I've been in there. Don't bust my crust, baby. He didn't say that. He said it. The man's a great lyricist.
+
+[00:41:12] That's amazing. We're going to have to wrap up shortly. Anything before we do? Just quickly, I've got one, which is that just on tours, recent tours, Beyonce had a thing a few years ago where she's in. No, she had this whole thing where she really enraged a lot of people from comments that she had made and critics were really attacking her, the newspapers were attacking her, but she was still going on this tour.
+
+[00:41:40] So she decided to sell as part of her merchant-dois. You want some merchant-dois? It was a New Jersey tour. I'm merchant-doyce. It's so weird when your mouth just goes somewhere else. You're on the road and it just merchant boys. Whoa! She sold as merchandise boycott Beyonce t-shirts to cash in on the fact.
+
+[00:42:08] She was like, if people are going to hate me, sure. I'll just keep selling stuff that will just still generate funds. Yeah, so you could buy at her gig, boycott Beyonce t-shirts. Really? That's cool. Wasn't there a thing about Elvis's manager did that as well? Yeah, Elvis's manager sold I Hate Elvis T-shirts, I think, or an I-Hate Elvis piece of merchandise
+
+[00:42:27] to make sure he could also cash in on the people who weren't huge Elvis fans as well as the ones we were. Can I very quickly tell you a few, I just looked up a few tribute bands who tour, and the names tribute bands are the best things in the world. So there's the Red Not Chili Peppers. Ah, nice. There's an Alanis-Moroset tribute band called Alanish,
+
+[00:42:45] but it just sounds like they're a bit like someone called Alan. But there's a tribute band to Yes, who are called no. There's non-jovi. Nice. Earth Wind for hire. Earthwind and Fire. Proxy music.
+
+[00:43:00] And my favourite is a rather poorly gentleman, but he goes by the name Blobby Williams. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts.
+
+[00:43:21] I'm on at Schreiberland. Andy at Andrew Hunter M. James. At James Harkin. And Chisinski. You can email podcast at QI.com. Yep. Or you can go to our group account, which is at No Such Thing. You can go to our Facebook page, No Such Thing as a Fish, or our website. No Such Thing As a Fish.com.
+
+[00:43:37] We have everything up there from our upcoming tickets for touring. We have our book links. We have all of our previous episodes. Everything is on there. We'll be back again next week. Guys, you've been absolutely amazing. Thank you so much. Please come say hi at the end.
+
+[00:43:51] We'll see you again. Goodbye. Hi!

@@ -1,0 +1,205 @@
+# No Such Thing As A Fish - 150: No Such Thing As A Helium Filled Pufferfish
+
+- Episode date: February 3, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/150-no-such-thing-as-a-helium-filled-pufferfish
+- Slug: 150-no-such-thing-as-a-helium-filled-pufferfish
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, I am sitting here with James Harkin, Anna Chazinski and Drew Murray. And once again, we have gathered round the microphones, come on, come on, come on, wait, I think it's Drew Hunter Murray, it's Drew Hunter Murray, it's not that, it's not that, I've hesitated, we hesitated last week, it's lightning, I want to stick with that, please never Drew.
+
+[00:00:42] I loved you, it's so gross. And once again, we have gathered round the microphones with our four favorite facts from the last seven days and in a particular order, here we go. Starting with my fact, my fact this week is that in the final years of its construction, Mount Rushmore was built by baseball players. Nice, did they run out of dynamite? And they said, well, we better just get a bunch of guys with bads. No, so Mount Rushmore was constructed between 1927 and 1941 in the first early stages and
+
+[00:01:17] actually right up until about 1938, it was being led by a guy called Guts on Borglum, Guts on Borglum had a son working on it called Lincoln and Lincoln was obsessed with baseball and he really wanted to put a baseball team together. So from 1938, when he started hiring all the people to work on it, one of the things that he required you to be able to do was play baseball so that you could be part of the team. It almost didn't matter if you were able to use a drill. Well, one of the guys, his name's Nick Clifford, he's the last construction worker on Mount Rushmore who's still alive and you can meet him in the summers.
+
+[00:01:53] This year, 2017 in the summer, he's 95 years old at the moment, go to Mount Rushmore and he sits there and he gives tours, he explains what's going on, how they built it, he signs books and he hands out baseball cards from the team and they actually competed in Amateur Baseball and they made it to the semifinals, they came in third, so they were really good. The semifinals of? Of the Amateur Baseball, no one's heard of League. Just in the Mount Rushmore area. Yeah, no, I'm not fully sure on that actually.
+
+[00:02:22] Actually, it did sound when you read people's memoirs about it, it sounds like they had a really good teamwork kind of bond, doesn't it? The workers, so they all had these weird nicknames, so they were all called stuff like Lively and Peluca and Red and Hoot and Whiskey. And Howdy. And Howdy, yeah. One guy's called Howdy. Did you read the story about what Howdy did to one of his teammates at one point?
+
+[00:02:47] No. They played quite a lot of pranks on each other, I think, so one of their favourite pranks was if a new builder came on site, then when he was going up on an abseil, then you'd like loosen it, so he dropped down a few feet and think he was plummeting to his death. That's bullion, isn't it? Yeah, but bullying is always funny for the bullies and so I think most of them enjoyed it.
+
+[00:03:07] Okay. It was very good natured. Who will speak for bullies? Anna will speak for bullies. Hey, I mean, good company these days, but no, he did this thing where I think one of his co-workers slapped him on the arse or something, so to get him back, they had an air hose that they used to remove all this rock dust that was all over them at the end of the day.
+
+[00:03:29] They got covered in rock dust, so it had a really powerful blowing force and he got this air hose and he shoved it up his teammates' arse and it inflated his teammates' insides and everyone thought he was going to die. So this guy said, he blowed up tighter than a drum and one of the witnesses said that when the hose connected, you could see his belly swell right up. He yelled, my God, howdy, you've killed me and then he had to start passing air and he passed quite a lot of blood with it. If you're listening and you have access to high pressure air hoses, do not try this
+
+[00:03:58] at home. But no fatalities of any of the workers on Mount Rushmore, despite all the weird pranks that they would play on each other. So when did he say it was finished? 1941 is when they ran out of funding. Exactly. It's not finished. Yeah.
+
+[00:04:15] Someone could still take up the mantle. They're meant to be down to the waist, but once they've done the faces and the shoulders and things, they sort of thought, well, you know who they are. It's good that they didn't start at the other end, they could start on the waist. Did you read that thing where it's not going to be properly finished for 300,000 years? That's because the granite erodes and it erodes by a very, very tiny bit and the person who was making it knew this. And so he deliberately made all the faces slightly fatter, so they'll just keep eroding
+
+[00:04:45] and keep eroding. And then apparently in 300,000 years, all the proportions will be correct. That's amazing. That's incredible. Yeah. But why did he plan it to be right in 300,000 years rather than just now? To go with the 300,000th anniversary of the Declaration of Independence. Well the thing is that the faces will still be, you'll still have the outline of a face
+
+[00:05:06] for seven million years before they erode. And I read, this is in Futility Closet, a website, I read this. The noses are about 240 inches long, will be 2.4 million years before it's down to just a flat face. If they erode all the way, they'll look like four Voldemorts. That'd be quite cool. Yes. So in 2.4 million years, they'll think that four of the first presidents of America were
+
+[00:05:29] all Voldemort, rather than just the most recent ones. They finished the heads at different times, right? Because they worked on Washington, then they finished Washington, then they started on the next one. So they had different dedication ceremonies for each one before they did the whole dedication at the end. And before each dedication, they would put a massive American flag over the president's head, and then they'd drop it to reveal.
+
+[00:05:54] Wow. Here he is. Yeah. So does that mean people didn't really know who it was going to be before they... I think I had a hunch. Yeah, maybe. You know 90% of it was done with dynamite, Mount Rushmore. Yeah, I think that's amazing.
+
+[00:06:04] Yeah. And then four inches of the final thing, just using dynamite, and then they had to do the chipping. But the rest was done by hand, wasn't it? Yeah. Like, as in they would make little holes and then they just grab it out with their hands. Yeah. It's like called honeycombing.
+
+[00:06:18] Yeah. Where you do loads and loads and loads of little holes and then just pull it out. I think it's incredible that you would do almost all of it with massive dynamite. And the last bit, you would just kind of grab it out with your hands, so it's really cool. On the actual baseball card that you can buy of Nick Clifford. The facts of the baseball. Well, he's actually holding one of the honeycomb devices on the front as an old man. He's holding it, so they've still got the original ones there.
+
+[00:06:43] That's really cool. Yeah. I do get the feeling you're more interested in the baseball side of this than the monument side. Well, I just thought, yeah, I think it's pretty... I mean, they clearly are as well. If you go to the local cafe on all of their trays is the story of the baseball team. They don't even point out the mountain to you.
+
+[00:06:58] They're a bit embarrassed that that's the focus point. Have they recovered it with those flags? Originally, it was not going to be any presidents on Mount Rushmore. It was just going to be a mountain. No. That's how God intended it. So the original plan before they got Borglum on board was to have sort of figures from the American West.
+
+[00:07:20] So maybe Chief Red Cloud, Buffalo Bill and Lewis and Clark, the two explorers who explored a load around there. And then Gosson took over and he said, there's absolutely no way I'm spending my life's work on these non-entities. It's going to be presidents or nothing. And he insisted and they did change the plan. Yeah. I have a baseball fact for you, Dan.
+
+[00:07:42] Oh, great. So during the war, during the Cold War, America wanted to make a surveillance tunnel in Berlin. They need to get something on the floor on the other side that they could use as a marker, which is where the tunnel would go to. And so what they would do is they'd play baseball right near the wall and deliberately hit the ball over. So the ball landed there and then they'd be able to survey it and be able to see where the ball is and use that as a marker.
+
+[00:08:06] Oh, cool. So it's like, can we not have a ball back, please? Yeah, exactly that. And what happened was the Germans were just too kind and they just kept going and collecting the ball back and bringing it back to them so they could never do it. Oh, that's awesome. That's so good. Like a dog, like an annoying dog.
+
+[00:08:25] During World War II and also on baseball, the Americans designed a grenade that was exactly the same shape and size and weight as a baseball so that Americans could throw it easily. Didn't they? It was called the Bino. Really? Yeah. And that was to make it because it was, and it was supposed to be thrown like a baseball
+
+[00:08:40] and then it exploded on impact. Was it painted as well to look like a baseball and had stitching on it like a baseball? Yeah. Was there an amusing mix-up at any point with these things? Yeah. Yeah, maybe it's like Christmas and they get in the trenches and they're like, okay, let's play football. Let's play baseball.
+
+[00:08:55] I brought my own ball. According to a medical report published in 1977 in the diseases of colon and rectum, a 49-year-old man was admitted to San Francisco Hospital complaining of severe pain. A firm, fixed, round object was found to be lodged high in his rectum. The man then admitted that he and his sexual partner had celebrated the Oakland A's World Series win by having a baseball inserted into his anus. Oh my God. Could have been worse.
+
+[00:09:27] Could have been a bad. Okay, it's time for fact number two and that is James. Okay, my fact this week is that on some train journeys in China, passengers are forced to take it in turns to use the seats so that everyone gets a chance to sit down for some of the journey. That's good, isn't it? Yeah. That's the southern rail of countries, China.
+
+[00:09:57] So this is the spring festival, Chinese New Year, which is happening at the moment. And it's the biggest migration of humans in the world. There's like three billion people making journeys around China. While China infrastructure is pretty good and it's getting better, it's still that's way too many people to be moving around. And there's only so many trains you can have and they sell these tickets and a lot of the journeys are quite long. And so they make a rule where everyone gets to sit down for a little bit.
+
+[00:10:28] But I think that's quite a good rule, actually. Yeah, it's great. That's a good rule. Yeah. How many journeys did you say get made? I've said three billion. Yeah, it's three billion journeys, isn't it? Not three billion people.
+
+[00:10:36] Oh, who am I? It's so amazing. You have to go there and you have to come back and then you might have to change a bit. Yeah, exactly. I wonder if a change counts still as one journey, though, because it does when you're buying a ticket, doesn't it? Did you see that thing in the news? I think it was today or yesterday where say you're buying a ticket from London to Bolton,
+
+[00:10:52] then you would have to pay a certain amount of money. But you go on this website and you say where you want to go and it splits it all up. So you might go London to Watford, Watford to Milton Keynes, Milton Keynes to Birmingham, Birmingham to Stoke, Stoke to Bolton. And it works out the cost of all those and you can save a load of money and a load of football fans from the FA Cup were using it and they all saved a tonne of money. Oh, yeah. I saw that on the news this morning.
+
+[00:11:14] Yeah, yeah, yeah. A guy had 52 tickets from one return journey to a football match. You need a ticket for each one of these tiny little things and so he just has a massive envelope full of tons of tickets and when the ticker inspector comes you're like, okay, it's definitely one of these. That's amazing. Apparently that is true. Although I think they're going to try and make all their tickets a bit easier in that
+
+[00:11:34] news article I read. They're going to change a lot of the tickets, aren't they? There's something like three million different possible tickets you can buy in the UK and the majority of them have never been bought by anyone. No way. There's something like that. Yeah. Anyway, this isn't about trains.
+
+[00:11:47] This is about the Chinese movements of people. Oh, yeah. So one thing about Chinese New Year is that it's very confusing that it's called Spring. It's called the Spring Festival, which is because it's obviously in winter. It's supposed to be like the start of Spring, isn't it? Yeah, but it doesn't feel right. It's so optimistic. So I think China divides the year into, is it 20 sections, which have different names?
+
+[00:12:08] And then there's one section, which is the first section of the year, which is start of Spring. And that runs for the couple of weeks in mid-February. And so this is called Spring Festival because I think it's a festival that comes just on the cusp of start of Spring period, which is just, I mean, it's not Spring. It's sweet that they're convincing themselves that it is. And it's called Chinese New Year. It doesn't even happen in New Year.
+
+[00:12:29] It doesn't even happen in 1st January. What's going on? Dan, you grew up there. What's this all about? What's the deal with Chinese New Year? Did you do the thing where you give each other envelopes with money? Yeah, Lai Si, it's called, or I've probably pronounced that slightly wrong, but you used to say Gong Si Fa Cai Lai Si Dao Lai and they would give you a red packet with money inside.
+
+[00:12:49] And it was living in Hong Kong, which was a very affluent place, was amazing because everyone gave you these packets and it was the time to make money if you were a kid. You would just walk around and walk up to adults and say Gong Si Fa Cai and they'd just give you a red packet. And it was, yeah, so if you went to a party, it was incredible. It was like the tooth very went nuts and everyone revealed themselves to be that person and they're just handing you money. Is it just to kids?
+
+[00:13:11] Because I thought it was everyone and then I thought at the end of the day you'd end up equal. I left when I was a kid. You left a new state, got all the money, while still a child fled the scene of a crime. Very crafty. Just on everyone traveling everywhere for Chinese New Year, there has been a story in the news last week about one guy who started cycling home because he was very poor, couldn't afford a train ticket, couldn't afford a plane.
+
+[00:13:35] So he started cycling really early and he cycled for 30 days, he went 300 miles. So 10 miles a day, which is not great, but okay, maybe it's a bad bike. Anyway, he then found out... Rocky terrain. Yeah, it was going to be a rocky terrain. Exactly. Anyway, he then found out he'd be going the wrong direction for 300 miles. No.
+
+[00:13:53] Yeah, well, I don't know, because he was trying to travel a thousand miles supposedly and it meant that he would have had to take three months to get home. So I can't quite believe it, but apparently he'd been living in internet cafes because he was really broke. Yeah, but maybe he thought that it was going to get more than 10 miles a day, probably. Probably, yeah. Didn't bank on that rocky terrain on the bad bike. Anyway, this was reported in the China People's Daily, an organisation I have no reason to
+
+[00:14:20] mistrust. I do remember reading that as well, and the idea was that he kept asking people which way to go, and they all started telling him the wrong direction. If you kept asking, then presumably he'd just have gone back and forth over the same 10 miles to get it again and again. Just can I just say something about crowded trains, which this is kind of about, because I didn't know this was a thing, but in Japan, in Tokyo, they have pushers at stations, which are people to, I think they're called Oshia, and they're people to push people onto crowded
+
+[00:14:52] trains, and someone described it as perfectly happily. Someone who's been pushed by a pusher said, it's like if you had a big laundry basket and it's overflowing, you just force stuff in there. You can see footage of this on YouTube if you look it up, and it's extraordinary. There's no more space like literally to even breathe, and you've got people shoving like crazy to get those doors closed. It's astonishing. And they pull people off as well, don't they?
+
+[00:15:16] That's a bit much. Yeah. How much do you have to give them in a red envelope to do that? No, they're called puller-offers sometimes. No, they're not. I've seen them called puller-offers, I'm sure. Wow. We used to have, in Hong Kong, you used to be able to, in some cases, get your own carriage
+
+[00:15:34] if you were Western because of the number four. So the superstition of number four is so great that a lot of people wouldn't get anything that had the number four on it. Because it sounds like the word for death, is that it? Which is death. Yeah, it's a number four. So if, say, a cable car that had number four on it would be empty, and so if they could see a Western family, they would go, come on out, and you would skip the queue and jump
+
+[00:15:55] into it. Please, please get into the death carriage. In 2005, this is the period when everyone's going is known as Chun Yun, I think. So in the 2005 Chun Yun period, the train offices had certainly less than a hundred phone lines, more than ten, but less than a hundred, so somewhere in the tens of phone lines, and they were getting 19.91 million calls per hour. Oh, my God. You are number ten million and twelve in the queue.
+
+[00:16:32] Just one last thing, it's the Chinese year of the cockerel that's just started. That's 2017. Obviously, it's every, what is it, every 12 years? Twelve years until you return to your animal. So one of them was 1945, and 1945 was the first time that the cartoon character Foghorn Leghorn was ever voiced. So he is a year of the cockerel character, and also, have you heard of Mike the Headless Chicken?
+
+[00:17:02] Yes, he must have done. He was the guy who, there was a family in America, and they were chopping the heads off chickens, and one of them stayed alive and ran around for a couple of years. And he was born also in 1945, so he was also a year of the cockerel guy. Very nice. You know they're all very arrogant though, the year of the cockerel types, the roosters, and this year of the roosters, the year of the vein, the arrogant and the emotionally volatile.
+
+[00:17:26] What are you? I am a tiger. What's your Chinese New Year's side? It's interesting, so what the description you just made is taken very seriously back in China, and there are certain years where pregnancy rates are extremely low, because it's a very bad year, and I wish I could remember off the top of my head, and the year of the loser. Okay, it is time for fact number three, and that is Drew.
+
+[00:18:01] This is the worst new name I've ever had, and I went to an old boys' school for 11 years. Okay, it is time for fact number three, and that is Lightning. My fact is that the moon has been collecting tiny bits of earth for the last three billion years. Collecting. Collecting. Like a baseball card. Yeah, yeah, yeah.
+
+[00:18:26] What's it going to do with them? It's going to, it's got an album, and... It does swapsies with Venus. Yeah, this is really, really cool. So there's a new discovery which has been published in Nature, which is that the moon is dusted in this fine layer of oxygen, and it was a bit of a puzzle as to how it had got there, and it turns out that earth basically has a tail of ions and atoms and electrons and things like this, which, you know, lashes out into space behind it, and normally the
+
+[00:18:57] moon doesn't get any of it, but sometimes when the sun, the earth, and the moon are all lined up together, the moon is shielded from the solar wind, right, and then it gets a bit of a lashing of oxygen atoms, so the really cool thing is that we don't have much evidence of very, very early life on earth, like the first bacteria. There is a chance that on the moon, there are fossil bacteria which got blasted out into space, ended up on the moon, then got plowed under the moon's surface, or maybe buried by lava or this kind of thing, so there's a chance there are fossils up there of bacteria from the very earliest days of life on earth.
+
+[00:19:34] Yeah, so cool. I mean, pretty unlikely. Pretty unlikely. But so that's quite a cool image, because obviously the earth is hurdling through space, and it's quite cool to know that we're leaving, like, what an asteroid has, that sort of tail out in the back, so I've never... It stretches all the way around the sun in the path that we go in. Yeah.
+
+[00:19:54] Yeah, scientists call it a large, dusty ring. Mm. Okay. Could they? Yes, they do. I don't know why James is cracking up in the corner. I'm not laughing at all. They could do with getting a bigger pump round.
+
+[00:20:06] Yeah, the other thing about this tail that we're shedding, it's our magnetic field and it's called a magnetotail, is that when it does sweep through the moon, it's full of these really, really hot, charged, highly charged particles, which it sheds all over the moon, and that means that on the surface of the moon, suddenly voltages can climb up to hundreds and hundreds of volts, so the surface of the moon is incredibly electric, because we've just shed all these ions on it. Wow. So do you reckon, Anna, if I stood on the moon, then my hair would all go kind of wild
+
+[00:20:41] like I'd been static electricity-fied. God, maybe. That'd be pretty cool, wouldn't it? You'd have to take your helmet off though, so you would die, but I think it would be worth it to find out. Could you take your helmet off on the moon and then put it back on really quickly if you held your breath? Well, you shouldn't.
+
+[00:20:57] And repressurize your suit and all of that. You're kidding, really? As in you can survive in outer space for like 20 to 30 seconds without dying. But it's not worth the risk, because imagine if you took it off, your hair went so static that you couldn't fit the helmet back on it. Oh, no. Do you know when the astronauts, the fellows, landed on the moon? What are they called?
+
+[00:21:16] Armstrong and Aldrin. Yeah. When they landed on the moon, do you know what the official schedule said they should do next? What? When they landed on the moon. When they landed on the moon, the official schedule was for them to have a nap. Yeah, well, that's the whole reason that a lot of problems were caused with the actual
+
+[00:21:31] footage of the moon landing because they were asleep. No, because they were not asleep. They had scheduled a nap and Armstrong was so awake, he said, I'm not having a nap. We're going to go out now. Yeah. The problem was, is that the wrong side of the earth was facing the moon when he wanted to go out. So they had to re-root where they were going to take the signal from to just to bring back
+
+[00:21:51] the signal of the moon. So Park's observatory in Australia suddenly were the key people because they had access to the moon. America was on the other side of the. Wow. All because Neil Armstrong didn't want to have a nap. He refused to have a nap. He messed up everything that was meant to happen in terms of the televised footage.
+
+[00:22:06] Do you know what the words of the third man on the moon were? You'll know this. I do. But say it. Yeah. That's how I should answer everything. So this is Pete Conrad who went up in the Apollo 12 mission a few years later. So he was the third person to walk on the moon and he had a bet with a journalist who'd
+
+[00:22:27] bet that NASA dictated what the first words of anyone who stepped on the moon had to be and he was saying no they don't and I'll prove it. So the journalist told him he had to say a particular thing and what he said was when he stepped when he took his first step whoopee. So the thing about this guy was he was a really short guy and he stepped out and he said whoopee man that may have been a small one for Neil but that's a long one for me. And that was his first words as he stepped out of the spacecraft. And then actually as he stepped onto the moon itself he said ooh is that soft and queasy.
+
+[00:22:58] Wow. Does anyone know the shortest trip ever to the moon? Well listen Gromit didn't take very long at all. Is it that one? That's true. It's a 45 minute special including the preamble. It must be that the moon landed on a bit of the moon landed on earth and someone. No, no.
+
+[00:23:14] Just as in I'm genuinely asking the question of all the times that humans have gone from the earth to around the moon what's the shortest amount of time it's taken. Do you mean the full trip? From here to there. From here to there. I would think it would take a couple of days to get there. So. It's a long way actually.
+
+[00:23:32] It's 250,000 miles. Yeah. I would say nine hours. Oh that's so close. Is it? Yeah, eight and a half hours. That's amazing. What was it?
+
+[00:23:42] 2006 it was a new horizons probe. So it didn't land on the moon but it went from the earth to where the moon is. In eight hours. In eight and a half hours. That's crazy. And that was in 2006 and the longest ever was in 2003. And that was one year, one month and two weeks it took them to get from here to the moon. Well they kept asking for directions on the way.
+
+[00:24:02] People kept on messing around with them. It's very rocky terrain in this case. No that was a deliberate attempt to do it with as little kind of fuel as possible. As little publicity or interest. How annoying to pull the short straw and bid on the year long one. Although I suppose people weren't on these were they? On neither one were there any people. Yeah.
+
+[00:24:26] Three hundred years ago it would take six months to get to Australia and now we can go to the moon in eight hours. Yeah. It's a substantial change is all I'm saying. Up until researching this particular effect I would have said if I was asked the question does the earth get heavier or lighter every year? I would have said heavier. You would have said yeah I know that but why don't you say it?
+
+[00:24:48] Yeah I would have said heavier because I would have thought with the amount of space dust and asteroids passing by we always hear about stuff coming into Earth's atmosphere that we would get heavier but in fact we do get lighter and it's because of all the escaping gas. So we expel in terms of stuff out of the atmosphere and out of Earth into space every year the equivalent weight of 890,000 humans. Wow. How much goes out so that's 50,000 tons that it gets lighter per year and we only take
+
+[00:25:15] on 40,000 from things entering the atmosphere from space. Wow. And helium just goes out into space I had no idea. When you get a helium balloon and you let go of it that's where it goes. I know. Well thank God for balloons. The moon is littered with helium balloons. I never appreciated what a great invention balloons were.
+
+[00:25:34] Right here's the thing. If you do let a balloon go, words it go. It goes up, all the air leaks out of it to make its way into space and then the balloon falls down again. It just pops and a bit of plastic goes somewhere and that plastic often ends up in the sea especially in the coastal resorts or anything like that. So a lot of places in America, especially on the east coast have banned helium balloons, people letting helium balloons go because it just causes so much crap in the sea.
+
+[00:26:02] Oh really? That's very sensible. Yeah, it's good. Yeah, it makes sense. Or you should make all balloons out of fish food. Yeah. By integratable balloons. Yeah.
+
+[00:26:10] Yeah. That must be invented. You could make a puffer fish into a balloon. You could. They do that. They do that. They do that with an air hose like Anna's Hilarious Mount Rushmore prank. You let the balloon go and then it's bleeding and passing all the cassettes and stuff which
+
+[00:26:25] is so funny and then it falls into sea and another fish can eat it. They do that in Trek, not the whole story, they don't see the plot line through but they turn the puffer fish into a balloon. OK, it is time for our final fact of the show and that is Chuzinski. My fact this week is that the most deadly user of Portuguese man of war venom is not the Portuguese man of war. So the most deadly user of the Portuguese man of war's venom is something that's called a blue dragon sea slug which is the most beautiful creature if you look it up.
+
+[00:27:06] It's a kind of nudibranch which are these little slug like sea creatures. It's really lovely looking and what it does is it goes and eats the venom on the Portuguese man of war and then it has these special limbs, these special organs that are specially for storing venom and it pushes it out into these little organs, these finger like branches and it is more concentrated at the end of those branches than it is in the Portuguese man of war and so when it administers the venom to someone it's actually more effective than when the Portuguese man of war does it. It nicks it and it makes it better.
+
+[00:27:38] But it doesn't kill the Portuguese man of war, it just uses it like a gas station, like it goes up and it just fills up on its venom so it sucks it out and it hurts it as well. It's like being hurt at a gas station and that happens to me at quite a lot of petrol stations because I always try to haggle. So is it the so it's the nudibranch who gets hurt? The nudibranch gets hurt. It does have special adaptations to stop it being too badly injured by the poison because it's really poisonous.
+
+[00:28:07] So it has sort of special mucus which helps to shield it a bit and then yeah and then it adapts the stuff. Can I ask about nudibranch? Yeah. So you would think if you saw a drawing and the first time I think most people did see it was a drawing and it was from Captain Cook's Voyages. It was the artist who did an illustration of it. You would think it's fake.
+
+[00:28:26] You would think that this was a made up sea creature and it's phenomenal because it swims upside down and that's a kind of camouflage tactic. And it floats upside down at the surface. Who's to say what's upside down then if that's how it lives its whole life? Yes. There's a good point. So you're saying maybe all other animals are wrong? No.
+
+[00:28:46] What I'm saying is if all humans walked around with their head near the floor and their feet in the air then we would think that was the right way up. Exactly. Yeah. It's like saying to a bat you sleep upside down. But they do. Because I always sleep. I sleep.
+
+[00:28:59] Yeah. This is the right way up. This is the right way up. Well why are we launching this war on correct placement of things? You started it. I'm just saying. I'm just saying. I just don't see that you can say that he's swimming upside down.
+
+[00:29:10] If he spends his whole life upside down maybe that's the correct way for him to live. Does he spend his whole life upside down? I don't know the answer to that. I don't think so. I think it floats. So the way he floats is he inflates his stomach. So I think maybe it's all about what's the back and what's the stomach and the way that this guy floats is by filling his stomach with gas and then he bobbles up to the top
+
+[00:29:28] of the surface of the ocean and then he has his stomach keeping him afloat. Prime candidate for this new animal balloon we've been talking about. Well here's another thing about nudibranchs. Although they all have their anus above their head. Which James is going to say is perfectly normal and why don't we all do it? What I'm saying is maybe if you look at him the other way up which is how he wants to be looked then his head is in a perfectly normal position. Because they twist around as they grow.
+
+[00:29:57] So they start off with their anus not near the head and then as they grow. I think we talked about this with snails recently. So same thing. The sea slugs their body twists 180 degrees as they grow so their gills and their anus end up right by there. Who's to say that when they're a baby nudibranch that they're not upside down then and they flip to be the right way round? It would be like us being born in a handstand position and us realising this didn't feel
+
+[00:30:20] so right. I can't wait for my anus to be nearer to my head. Is that what they're all saying? I can't wait for all the girls to find this out because I'm going to see how close to my head my anus is. Their parents must say to them these really are the best days of your life. Take, you know, enjoy these days of distance between your head and your anus while you can.
+
+[00:30:44] There are nudibranchs which have disposable penises. So they're hemaphrilites. So they both have a penis on their right hand side. So they stand next to each other. How do you know it's the right hand side and not the left hand side? So they stand next to each other facing in opposite directions and then they sort of lock their penises into each other and they transfer sperm both ways. But then their penises break off and fall to the ocean surface.
+
+[00:31:09] Do you think that's a really terrifying moment the first time it happens? I imagine it only happens once. No, does it? So they drop off, fall to the bottom of the sea and then within 24 hours sometimes they've regenerated a new one. Because most of their penises are big coil inside them and it just grows out again. Oh, cool. I could have noticed that when they were a younger nudibranch alone in their shell having
+
+[00:31:33] a little touch of themselves. I think a vigorous session might result in it. Again, the first time it happens it would be terrifying. You couldn't come back home after a night out if you'd been sleeping around. You couldn't come back home to your wife and say, oh, nothing happened. He's like, well, why'd you cut fallen off? So another nudibranch is a solar powered one. Have you guys read about this one?
+
+[00:32:03] It's so cool. So it harvest, it basically farms algae. It eats algae and then it uses the photosynthesis of the algae. So the algae inside it photosynthesizes using the sun. And then this is what this nudibranch gets its energy from and it has these little solar panels. So if you look at it, you can see these little brown spots on it, which are the specific zones where it's put its algae so that it can get the light from
+
+[00:32:28] the sun so that it can photosynthesize. Aren't we all solar powered? But we're not using photosynthesis as in so they get the chloroplasts from the seaweed, like the little green bits, and that turns the sunlight into energy. So they can live for a year on sunlight alone. Wow. And you're right that all of our energy eventually comes from the sun. So like as humans, we're solar powered.
+
+[00:32:52] Yeah, pretty much. Never thought of being solar powered before, but I am. Well done. It's worth knowing that about yourself. Yeah. So I grew up in Australia in my after I took the money and run from Hong Kong. And along along the beaches, you get blue bottles and blue bottles in reading up about Portuguese Man of War are the same kind of thing.
+
+[00:33:15] It's the same kind of animal. And I thought that was an animal. I thought it was a jellyfish. So I've just discovered today that Portuguese Man of War is basically a team effort of a bunch of different creatures working as one. Like when the Power Rangers combine to be that giant robot thing, it's like, that's what a Portuguese Man of War is. Yeah, that's a really good analogy, actually.
+
+[00:33:34] So I could I'm really confused about this. I read somewhere that they were different species, but they're not different species. They're different kinds of animal in the same species all working together. All having different things that they specialize in. So someone will be responsible for the sex, fun job. Someone's responsible for the digestion. Also quite a fun job. And then there's probably someone responsible for sort of
+
+[00:33:56] poeing and stuff, which is fun. But yeah, it's like they're called siphonophores. Yeah, siphonophores. And yeah, it's a bunch of tiny organisms, which all perform in a sack. Yeah, they do. I'd never thought about their name before and why they're called that. And they're called that because they look like a Portuguese Man of War, like a sailing boat.
+
+[00:34:15] And they really do. And they've got this kind of sail that sticks up out of the water and it performs the purpose of a sail, which I didn't know. So the way they get around is by, you know, you know, sailing around by sticking the sail up in the water. Underwater or above the water. So they have a surface sail that takes them to places. The sail sticks up above the water, it catches the wind.
+
+[00:34:36] And then another good candidate for the balloon, they can deflate their sail if they see a threat coming along like a turtle. And then they re-inflate it when it's gone. That's amazing. So, you know how some animals are unbelievably poisonous to humans? Yeah. There are frogs that can kill a thousand people with a single thing. Yeah, I was reading an article about why this is the case.
+
+[00:34:55] Why is it useful for a frog to be able to kill a thousand people with a single thing? And the really interesting thing is it's not useful at all, right? It just happens that we're measuring how many humans something could kill or a snake can kill a quarter of a million mice. It would be pointless for the snake. But the thing is animals always adapt their poison to what they're hunting, right? So, there are loads of, for example, hedgehogs that could survive a bite from a snake which would kill a person much, much bigger.
+
+[00:35:24] But hedgehogs and snakes are in an arms race of who's going to develop more poison or better poison resistance, right? So, if you find a snake which is unbelievably poisonous, you can bet there's probably a little rodent out there which is unbelievably tough and could take a huge amount of poison before dying. So, I wonder with those little kind of tiny little colorful frogs that live in the Amazon, what you're saying is there's some animal there that is super hardcore that you just can't poison.
+
+[00:35:52] Yeah, or something that feeds on them that is nearly resistant to their poison, maybe, and so they're having to constantly become more poisonous. Wow, you know that the Brazilian wandering spider can give you, when it bites you, an erection so intense that you become impotent. That is tough, isn't it? Joe's found what I think is the best headline of the year so far. I know we're just into early February, but it was that... What was it, James?
+
+[00:36:18] It was something like Mafia boss with permanent erection arrested. Yes, finally arrested. Mafia boss with permanent erection, finally arrested, and he has a disease that means that he has a permanent erection. And so throughout the whole article, they're talking about his court case and he's sitting in court. It says with bag of ice on his genitals, he's just permanent erection. He didn't want it to stand up in court, did he?
+
+[00:36:43] Yeah, yeah. OK, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we could be found on our Twitter accounts. I'm on at Shriverland, James. At Eggshapes.
+
+[00:37:02] Andy. At Andrew Hunter M. And Anna. You can email podcast at qi.com. Yep, or you can go to our group podcast account, which is at QI Podcast. You can also go to our website. No such thing as a fish.com. That's got all of our previous episodes. We will be back again next week with another rep.
+
+[00:37:18] We'll see you then, guys. Goodbye.

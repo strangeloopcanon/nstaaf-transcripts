@@ -1,0 +1,185 @@
+# No Such Thing As A Fish - No Such Thing As A Ghost In Poland
+
+- Episode date: July 5, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-ghost-in-poland
+- Slug: no-such-thing-as-a-ghost-in-poland
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. You know, no such thing as a fish? No, seriously. It's in the Oxford Dictionary of Underwater Life. He says it right there. First paragraph, No Such Thing is a Fish.
+
+[00:00:16] Hello and welcome to another edition of No Such Thing as a Fish coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here with three other elves, Anna Chazinski, James Harkin, and Anne Miller. and we've got on fact-checking duties today, Alex Bell, and once again, we've gathered around the microphone to share our favorite facts from the last seven days. So, in no particular order, here we go.
+
+[00:00:45] Fact number one, James. Okay, my fact is, the world record for most kicks to one's own head is 127 in a minute. Jesus, more than two a second. That's more than two a second. That's a lot of kicks. How did he do it?
+
+[00:01:01] Well, there's a video on the Guinness Book of Records website, I think. I think he's like kind of a martial arts guy and he's very supple and fast and possibly stupid and possibly slightly mental. But that means for him to do that speed, he has to be going like literally... Is he related to Roy Kirby, who I know is the guy who's broken the Guinness World Record?
+
+[00:01:27] He's also a martial arts guy for the hardest kick to the groin. Oh no. I think he took a 22 mile an hour kicked to the groin with 1,100 pounds of force and didn't register any pain at all. He said. He's built up a pain threshold. Apparently they do it in a certain type of martial art. And I can't remember what it's called where basically you run hard objects over your muscles every day.
+
+[00:01:49] And it sort of pulverizes the nerve fibers and causes fractures to the bone. And then when they heal, the body compensates by adding extra calcium to you, which means that you stop feeling pain. Here's a newspaper article that I found, which is somewhat related to Anna's fact. A 28-year-old man who claimed to be acting out of curiosity when he asked seven women to kick him in the groin was sentenced yesterday to 60 days in jail one of the women afraid at what he might do
+
+[00:02:16] if she refused kicked him repeatedly. Oh my God. The guy thanked her and left on his bicycle. Which had no seat. So the court asked his wife what she thought about it and she told the court that she was at a loss to explain his conduct
+
+[00:02:32] and she said, I can honestly say I find it as odd and peculiar and disturbing as everyone else. I wanted to look more into this guy, Joel Leindekker. He's the guy who kicked himself in the head 127 times. He's broken his own record a number of times. So on one of the occasions, he was interviewed by someone, and they said, can I see an example of you doing this? And he said, yeah, sure.
+
+[00:02:55] And so he did it. He only managed 80. But what was great was the interview afterwards. The interview is going, wow, I don't know what to say after seeing such a spectacle. do you feel? And he's breathing heavily. And he's like, I'm really exhausted.
+
+[00:03:07] It's really tiring. And she starts trying to interview him. And he just keeps getting more and more concussed and out of it. Yeah, she says, so how often do you do this? And he's like, well,
+
+[00:03:19] I pretty much only do it when I know that I'm going to be making a record attempt. I don't really practice in my spare time or anything. Sorry, can I get a second? I'm really lightheaded right now. She goes, sure, sure,
+
+[00:03:31] don't pass out. He bends down, hands on knees, takes deep breaths. I might actually have to sit down or something. Do you mind if, can we do this interview inside? She basically is just totally concussed off the back of it. And the first time he did it, he did it with shoes on.
+
+[00:03:45] And he didn't know that he should have done that. So now he does it with either socks. Like a slipper socks. Yeah, he should wear slippers. You're right. No, he does it bare foot or with socks on. I imagine the interview would be like, so how do you feel about kicking yourself 127 times in the head?
+
+[00:03:58] He's like, what are you talking about? Who am I? Who am I? There is another Guinness World Record champ. He's called Ashreta Furman, and he was born the year the first Guinness Booker World Records came out, and he holds the Guinness World Records. So he's had 533 and 189 are still active, and they include Pogo Stick Jumping Underwater, Popcorn Sculpture,
+
+[00:04:23] balancing most eggs on head, M&M's eaten blindfolded with chopsticks and drinking 200 milliliters of mustard. Wow. So the really serious records is breaking then. Does it include... Does it include this one? Longest distance pulled by a horse while on fire? Oh, yeah.
+
+[00:04:39] I've seen that guy. Yeah. Yeah, he was dragged 1,551 feet while on fire by a horse. I think the funnest world record to break is the most rotations hanging from a power drill in a minute, which is 148. It was in 2008. But isn't that fun? So this guy just attached a power drill to the ceiling held onto it and just span around on it for a minute.
+
+[00:05:00] I want to start doing that recreationally. That is awesome. The grossest one I found was for this distance of squirting milk from eyes. Nice. Oh, wow. 279.5 centimeters. Why is milk coming out of your eyes? Shouldn't you see someone about that?
+
+[00:05:13] Yeah, people do it by, because their sinuses are all attached and they snort it through their nose and shoots it through their eyes. I think students do it. I had a friend at school, you could put a whole cocktail stick up his nose. Don't do that. They can kill you. That was his part of Chris. Alfred Kinsey could put a whole tooth brush up his penis bristle end first. What?
+
+[00:05:32] Really? Yeah, he's a sexologist, Alfred Kinsey from the, I don't know, what is he from the 50s? The Kinsey report, right? Yeah, yeah, his party trick was to put... Party trick. Who wants to see that? Wait, wait, I've got a great thing to show you.
+
+[00:05:44] If the guy who got women to kick them in the balls was arrested, I hope he was arrested at some point. Should we invite Alfred to the wedding? Well... Can we search his bag on the way in? If there's a toothbrush in there. No way. In 2009, Jonathan Lee Richards
+
+[00:05:59] filed an injunction against the Guinness Book of Records seeking to stop them from naming him as the most litigious individual in the history of mankind. Brilliant. We might have to bleep his name out of this podcast. That's brilliant. Evil Caneval used to have a lot of world records. Did he? Do you remember him?
+
+[00:06:16] He would jump over buses on a bike and stuff like that. As far as I can see, I think there is one record that he still owns. This is really hard to Google, but I think there's one thing that he still owns. Can you guess what it is? Most bones broken? Is it? Is it really? Yes.
+
+[00:06:30] Yeah. Oh, yeah, I just, that's one thing that I know about him because you watch videos of him and it's,
+
+[00:06:36] it's actually, in terms of Schadenfreude, the funniest video is online. Because you see this man like, just like, yeah, I'm going to own it. I look at these buses.
+
+[00:06:46] I'm going to go right over them. It's going to be awesome. And every single time, he just collapses and just flies across the ground. The guy who has, relatedly, the guy who has the record for the furthest ever flown in a car crash.
+
+[00:06:58] With Matthew McKnight, it was in 2008, and he flew 118 feet. But while he was recovering in a hospital, his doctor brought him the forms to sign, the Guinness Forms to sign, to prove that he had flown further than anyone else, which I just think is a very unsympathetic doctor move,
+
+[00:07:13] like a couple of days. He broke, like, all of his bones. He's not enough to get that record. Yeah, not as many as evil can evolve. Yeah. Correct. We should try and think up a record that we can break. Well, here's one that we could break.
+
+[00:07:23] Yeah. The most Ferreiro Roche is eaten in one minute is 10. Oh, oh, they're quite big. 10 in a minute? I recommend. Is it like crackers? They dry your mouth that so you think it's easy? Or is it cinnamon?
+
+[00:07:35] Because in the middle they have like, it's kind of liquidy. I can eat 10 in a minute. Yeah. Yeah, Alex, have you got anything to add before we wrap up? Yeah, I did find that in 2006, the man who holds the world record for spending the most time in a cage with centipedes married the woman who held the same record but with scorpions. Oh, that's great. Okay, it's time now to move on to fact number two. Anne.
+
+[00:07:59] Yes. There is a bear in the Pyrenees who is facing castration. because he has fathered nearly all the other bears. Oh, that's a bit harsh. I think it's harsh. Well done him. I would say well done him. He's amazing.
+
+[00:08:11] He's called Pyrus and they're about 30 bears and there are only four other males and none of them have followed any bears themselves. But the problem is officials don't like it because they're worried that he's ruining their gene pool basically. There was recently a bear born that was his daughter and his granddaughter and they started to get a bit worried that this is problematic. The problem with Pyrus is bears generally stop being sexually active around 19. but a pyros is 26 and still going.
+
+[00:08:35] Wow. Are the birds becoming increasingly more deformed? I think a bear always looks pretty good, so you can't tell they're deformed when they're all there for. Well, Pliny didn't think that was true. He thought when a baby bear was born, it was completely shapeless, and that they got into their bare shape
+
+[00:08:50] by being licked into shape by their mothers. I think everything when it's brand new is quite a strange shape, and then they start getting more of their shape when they're... Yeah, that's a good excuse. I'm not sure what his excuse was for saying that they had very dim eyes when they're born. and the way that they get their eyes better is to allow bees to sting their faces
+
+[00:09:06] to improve their eyesight. I got very interested in the idea of this bear because I didn't realize that their sex drive was so high. So I did a very quick Google on it. I didn't get very far. What did you Google? Horny bears. Bear means something very different in the gay community.
+
+[00:09:25] Which I didn't, I completely forgot. I did know that, but I completely forgot. So just anyone out there, if you do click horny bear into Google, don't then click on the link that says my favorite hot and horny bears. Certainly don't do it at work. Imagine that we're all completely misunderstanding this news article.
+
+[00:09:42] Oh yeah. Oh dear. Okay, there's a bear in the Bible. There's a few, actually, but one of them I like. The biblical prophet Elisha once cursed a group of children who teased him for being bold. As a result, they were mulled by bears and killed. Yeah, I love that story.
+
+[00:09:58] Because it's something ridiculous like 42 kids. Like it's a lot of children. And they're like, boldy, boldy. And he's like, right, fine. You're going to get killed by bears. Yeah. So do you know what you had to do if you're attacked by bears?
+
+[00:10:10] I think we covered on this QI. It depends which kind of bear, isn't it? Yeah, that's right. What's that? So you might be attacked by a brown bear or a black bear. Yes. The problem is that brown bears are sometimes black and black bears are sometimes brown. So it's hard to tell.
+
+[00:10:22] If you're attacked by a brown bear, then you should play dead. But if you're attacked by a black bear and you play dead, you'll almost certainly be killed. Yeah. These dude interests are like, Oh yeah and they're just like, oh, this is so much easier. Pirates would be like, I want a chase. I don't want to just lie. Pirates should shag us.
+
+[00:10:38] Probably shag us, yeah. Peter the Great trained up two bears. He had two white bears to serve vodka to his guests. And if they didn't accept the vodka, then he would train the bear to harass them, which I think might explain Russia's vodka problem because you're not going to turn down vodka from an angry bear. What do you mean harass them? I think just sort of nod you.
+
+[00:10:59] Come on, mate. The other thing is a white bear. is presumably a polar bear. Yeah. My favourite kind of bear is a spectacled bear. They actually have markings like they're wearing a pair of glasses. They're amazing if you haven't seen them. Look them up.
+
+[00:11:10] Isn't Paddington based on... That's what I was going. Because they are the only bear found in South America. So Paddington by default must be a spectacle bear. But of course, we know he's not a polar. But I like the idea of Paddington with glasses. And Paddington was originally going to be from deepest, darkest Africa. But the problem with that is there are no bears in Africa.
+
+[00:11:26] There's no bears in Africa. Yeah, that makes sense. Is it true that Byron had a bear? Yeah. So that's true. We've discussed this in the podcast, actually. But he brought it to Oxford. Any time that I've seen news about this bear,
+
+[00:11:38] the one thing that doesn't come up is the name of the bear. Oh. How do we know that he had a bear, yet the name of the bear has not made it through? One more bear thing I didn't know was that during the Cold War in the 1960s, Americans tested their supersonic jet ejector seats on bears. Oh God. And they fired bears out of the ejector seats and then tested out safely they landed. And they survived, actually, but then they had to put the bears down to study what had happened to
+
+[00:12:02] their spines and what happened to their internal organs? So they were launching bears out of airplanes. Yeah, there were pictures. These bears look pretty terrifying. How did they get a bear in an electric seat? Yeah. They must have been drug. They were drugs.
+
+[00:12:14] So we did the thing on QI about the pig face ladies, which was actually a shaved bear in a dress. Yeah. And they used to get the bears really drunk before they shave them. Yeah. That's insane. Hey, do you know what a, uh, it's either the pronunciation is tap it or to pair. I'm not sure what the pronunciation is associated with.
+
+[00:12:32] bears. Do you know what that is? T-A-P-P-E-T. I don't think I know that word. It's basically the blockage that is created when they go into hibernation. Like a butt plug of hair. It's a butt plug. Yeah, a butt plug of hair that, yeah, it's amazing. For seven months they can sleep. They don't eat, drink, urinate, defecate. How do you do that? Seven months. That's like... By plugging up your butt. My mind's blown by hibernation. Yeah, no, they do, they don't habitate, they're going to top her and, um, which is slightly different. But, some female bears can give birth while they're asleep. What?
+
+[00:13:06] Yeah. Wow. It's not all of them, but some of them do. They must have a seriously high pain threshold. I think they just pass out drunk for a full seven months. That kind of explains that. And they do like alcohol. Well, Voicek the bear loved beer, didn't he?
+
+[00:13:18] Did he? Did he? Who helped the polls in World War II, carrying artillery back and forth. Okay. But his favorite drink was beer, and he loved a cigarette. This was a bear. Yeah, Voicek the bear.
+
+[00:13:30] He's really famous. I think there's a statue of him in print. Street now in Edinburgh because he spent the rest of his days in Scotland, I think. Good place. Well, we've also got that penguin at Edinburgh Zoo, Niels Olaf. Is he a Norwegian guard? Yeah. A knighthood? We are going to have to move on.
+
+[00:13:44] Alex, have you got anything you want to add? Only that Byron's bear was called Bruin. We know his name? Yeah. Oh, okay. Brewing is just a name for a bear, though, really, isn't it? It also just sounds like a misspelling of Byron. I'm sure.
+
+[00:13:58] I didn't write that down wrong at Cambridge. Okay. Okay, it's time to move on to fact number three, and that's my fact. And that is Poland's only official ghost hunter thinks that ghosts have given up on haunting humans. Oh. Yeah. Now, it's amazing that Poland has an official registered ghost hunter to begin with. Yeah.
+
+[00:14:21] Secondly, he's very dispirited because he thinks that we've become all too skeptical and that ghosts are no longer interested in humans. Or it could be that he's a very, very bad hunter and he just can't find them because he's a rubbish hunter, and he's blaming it on them disappearing. That's very true. I mean, I know that in Bhutan there's an official Yeti hunter. Is that? Yeah, yeah. And he's been working for the king. He's under his second king now, because the new king took over. And he's been working with him for something like 20 odd years. And nothing. He's, you know, nothing. Yeah, but what he said is, is the reason we haven't seen any is that, A, they have the ability to turn themselves invisible. Secondly, he says that they have the ability to take their feet off and put them back on the other way around. So when it looks like they've walked one way, in fact, they've gone the other. They're sneaky. It's very hard to tell where a Yeti's going. Well, I've been to Bhutan, they have a Yeti sanctuary, don't they? They do. Sanctuary?
+
+[00:15:09] Yes. They have a Yeti park. It's an actual Yeti park where there are like park rangers who look after the Yetis. So when you say an official ghost hunter, is this like a government sanctioned post? Yeah. I mean, presumably he's just a private guy and people pay him to go and hunt for ghosts, right? I think that's what it is.
+
+[00:15:25] And people have stopped paying him now because they don't believe in ghosts anymore and he's a bit pissed off. So he decided to claim that the ghosts are angry with people. I think they might have gone to Wales because last year the Welsh police force received 13 reports of ghosts up from only two in 2010. Bloody Polish immigrants. Is this what people are talking about when they say that? I can say that because I'm half Polish. But as well as finding 13 ghosts in Wales, South Wales Police also got reports of three zombies,
+
+[00:15:53] two werewolves, two vampires and six witches. Wow. I think they're on like a paranormal road tour because Nottingham in 2011, the come said in the last six years they had 34 cases of ghosts. they also had 46 witchcraft and three UFOs, all of which turned out to be Chinese lanterns. Yeah. Chinese lanterns are often the most mistaken object for a UFO. They did this huge breakdown of everything that people thought was a UFO and what it actually
+
+[00:16:19] turned out to be, and Chinese lanterns was way up. Right at the bottom, 2% of all UFO sightings turned out to be the moon. Do you know about the big ghostly frenzy that happened in London back in 1762? I do not. Okay. This is the story. It's called scratching fanny of Cock Lane. Oh, yes, I do know about this.
+
+[00:16:38] Scratching Fanny of Cock Lane is amazing. Just for anyone who doesn't know it. In 1762, there was a public frenzy in London over the ghost of Fanny Kent, scratching and knocking coded messages from behind a wall of a room where she lived. The owner of the house sold tickets so that you could witness it, and storeholders sold refreshments to crowds who were gathering outside. So it was a really big thing. The Duke of York came to see it.
+
+[00:17:00] Samuel Johnson came. He did a seance there, but he did. debunk the whole thing. And the noise turned out to be made by an 11-year-old girl called Elizabeth, who was concealed behind the wooden board and was doing it with her corset. But this is the interesting thing, is that obviously throughout history, people have reported poltergeist-y kind of things. And a surprising fact that I read is that it's mostly associated with pubescent girls around
+
+[00:17:26] 11 and 12 years old, which is why in all the movies, like Exorcist, it's always a young girl. But James, do you know anything about that? Like, is there any research? I know some history of it. You know how sometimes people say, if they're trying to talk to a ghost, they'll say knock once for yes and twice for no. Yeah. That came from some sisters.
+
+[00:17:48] I can't remember their name. I think they might be the Fox sisters or something. And they were tricking their parents by setting up a load of levers, which would make bangs underneath a table, just for fun, really. but then suddenly all the neighbours got involved and then suddenly it became really famous across the country and then eventually they admitted that it was all the hoax but yeah that's where that once and twice knocking thing comes from
+
+[00:18:12] but there have been a few over the history about young girls doing things like that yeah and the Enfield Poultergeist case which was an 18th month long ghost haunting that happened up in Enfield in London we had a guy on the upcoming series of Museum of Curiosity who he's a skeptic but he studied it all And his point about it was the only thing that they said as a, what could be the explanation was, is that the girl in question, who was a young 11 to 12 year old girl at time, was that she was very clever.
+
+[00:18:41] But he doesn't buy that as an excuse because he thinks. That was Will Starr, wasn't it? Will Storr, yeah. But you can see, you can see because like in your story, the one and two knocking, that's an 11 year old girl. In the story of scratching Fanny at Coch Lane, that's a 11 to 12 year old girl. Maybe 11 to 12 year old girls are incredibly clever. Maybe that's it. they might be. There's also, they're quite susceptible to hysteria. When you get things happening
+
+[00:19:05] where large groups of people all believe something which isn't quite true. Or all get hiccups. Yeah, I'll all get hiccups or all get a laughing fit or whatever. Often it does turn out to be pubescent girls. It makes sense. Based on what you know of adolescence, the beginning of adolescence, you're very impressionable. And there is a cult, there's a history of like people assuming hysteria and girls. Can I tell you about Scottish ghostroes? Yes. When I was really young, my mom basically put me off them for ages because she told me she saw an ad in the local paper for a jumper uter.
+
+[00:19:37] Okay, Alex, have you got anything you want to add to this before we move on? Only if anyone interested in looking up the origin of the not once for yes, twice for no, the sisters were called Margaret and Kate Fox. Oh, they were Fox. Yeah, it was Fox. Hang on. Foxy girls. I'll just, I just want to quickly add that this guy in Poland, this official ghost hunter,
+
+[00:19:56] is very upset with the situation, does want to. it to change. He has a 24-hour hotline that you can call him on if you have a ghost that you'd like to report because he complains that very few people now take ghosts seriously. So even if they do have a paranormal experience, they tend to ignore it and are reluctant to contact him. And his name is Poitr-Schalkovich. And if you want to get in contact with him, there is a hotline or you can email him on ghost-un-huntered at vp.pl.p. Well, he thinks that people are just, they see ghosts, but they don't care enough these days. You see a ghost and you think, whatever, I'm just going on with my day.
+
+[00:20:30] Yeah, the thing is about ghosts, apparently, is most of them are not, like, see-through people who are people or people in sheets or whatever. They're just normal-looking people, which makes me think they probably are normal people. Yeah. Yeah, that means I see ghosts all the time. Yeah, you guys, for instance. And what's Bruce Willis doing in the corner of the room? All right. Time to move on to fact number four. That is Chazzynski. Yep, my fact I found out this week in a recent new scientist is that fallout from the Cold War is being used to solve murders. Okay, explain. Right. So, nuclear testing of the US and the USSR between 1952 and 1963 caused a massive spike in the carbon 14 isotope and is the
+
+[00:21:21] type of carbon that you measure the degeneration of when you're carbon dating to see how old something is. Okay. So there's a sudden spike in the atmosphere of carbon 14. It was spread all over the world. And then as soon as the weapons ban came in in 1963, it started declining again. So you can tell when something died by comparing how much carbon 14 in their body to what they call the bomb curve, which is the gradual decrease of carbon 14 in the atmosphere since 1963. You can tell when they died. So that's how you date someone's death.
+
+[00:21:55] So it's actually been really useful. I just like the fact like in hundreds of thousands of years' time, they're going to look at our bodies and will be the Cold War generation because our bodies have, you know, we're kind of all superheroes. Yeah. Do you know what the perfect thing for forensics is? Apparently it's glitter.
+
+[00:22:12] Glitter. Yeah, the reason is that glitter sticks to you and you can't get rid of it no matter what. And because people just accept it and it's there, they don't really care about it. So they just leave it on themselves for days and days and days. And apparently it's if you commit a crime in a circus, for instance, or in a child's birthday party or something,
+
+[00:22:30] then they can use the glitter. So if someone comes and assaults you or murders you, you should always keep a little box of glitter so you can throw it over them at the last minute. It'd be like smart water. It's interesting as well. It must have been a big period where people were testing out new methods
+
+[00:22:45] like forensics and fingerprints and so on. And we've adopted them as kind of absolute truth now for a lot of them. Fingerprints, I know, is actually slightly queried because every different country has different requirements. for what makes up a match of a fingerprint. So in France and Australia, they need 12 identical points to make sense of a fingerprint,
+
+[00:23:06] whereas in Italy they need 16. And in America, it just varies from state to state of how many identical things. They're just like, he's got fingers. Yeah, he's the guy. Yeah, that's our man. But fingerprinting somehow has made it through, but there's other ones back in the 1970s,
+
+[00:23:20] there was a lady called Dr. Louise Robbins, and she was at the University of North Carolina. She declared herself to be the world's only footpour. print identification experts. And she claimed that she could not only identify the shoes, but the person who had been wearing the shoes as well. And as a result, 12 people were sent to prison. And after her death, the panel of 135 forensic experts reviewed her work
+
+[00:23:42] and realized that it was just absolute nonsense. Oh, eight people went to prison. 12. Yeah. Wow. Actually, I have a really good one about solving a crime. I love this story. It's a 12-year-old called Jessica Maple.
+
+[00:23:54] And she went on a summer camp called Be a junior district. district attorney and then her grandmother had died a few years ago and people broke in and stole stuff from her house and so she used her skills and outsmarted the police and found the guys that she went to the house found a broken window and fingerprints that the police had missed and then she told them and then while they were following her lead she found a local pawn job that had all her grandma's stuff in it and then they had managed to identify the guys who'd taken it she was 12 which just was good for her so just junior district attorney yeah i have another thing about kids and uh this This is about nuclear stuff.
+
+[00:24:29] There was a Boy Scout in America called David Hahn, and he earned his merit badge in atomic energy, presumably by answering a quiz or something like that. Or making nuclear profits. Well, that's what he decided to do. He had a badge, and so he was going to build a nuclear reactor. And so he collected small amounts of radioactive material from household goods like smoke detectors
+
+[00:24:48] and built himself a nuclear reactor in his shed. Wow. And the police accidentally discovered it when they were looking for something else. the US government commandeered his mother's house, decontaminated it and buried his shed in the desert in Utah. Wow. Oh my God. It took his whole shed to the desert.
+
+[00:25:06] It was like up, but like with radiation. Yeah. Down. Wasn't there a guy in England recently who became the youngest person to build a nuclear reactor? And I might have made that up. So maybe Alex could check it. I think he lived in, I want to say slough. It was somewhere that sounds comically bad.
+
+[00:25:22] Really glamorous. A 13-year-old boy called Jamie Edwards. who made it at school, yeah. Yeah. Apparently, it's illegal to move sheep in whales until they've been checked to see whether they carry traces of the fallout from Chernobyl.
+
+[00:25:34] Really? Yeah. On this particular subject, I've got a question for you guys. Oh, yeah. Why shouldn't you buy trousers from the northern Ukraine? I don't know.
+
+[00:25:43] Why shouldn't you buy trousers from the northern Ukraine? Chernobyl fallout. Ah. Ladies and gentlemen, that is the joke. Yeah, just so you know, just as a little inside bit of behind the scenes information here.
+
+[00:25:58] Anna has consistently, for the last, what, 14 podcasts, said that same joke and we've cut it out every single episode. James has refused to have it in the podcast. This is a day. And you will not hear it in this one either, unless someone else said it. It's the best joke ever. Alex, do you have anything to add before we move on? Yeah, the thing about sheep in Wales being radioactive is right.
+
+[00:26:18] All the sheep in the highest pastures still are exposed to the highest levels of cesium. and so they will have to be tested and regulated for they go to market. So for those people left still shagging sheep, stop it. It's very dangerous. No, yeah, I'm not sure they do that. James, don't ruin my fantasies. Because if they did, the knobs would fall out. Okay, that's it.
+
+[00:26:46] That's the end of our show. Thanks everyone for listening. If you want to find out anything about the stuff that we've been talking about, you can actually head over to our QI.com slash podcast page where we're going to have all sorts of videos, maybe a list of records that you could break, an update on whether we actually did the Ferrero Roche experiment, some great evil-caneeval videos where he gets tossed around.
+
+[00:27:07] So to speak. So to speak. Some ghost imagery, perhaps. And a picture of pyrus. The horny bear, without actual horny bears that I saw on the internet this morning. Okay, that's it, really. If you want to talk to any of us about the things that we've said
+
+[00:27:24] during the course of this podcast, you can get us all on our Twitter handles. I'm on at Schreiberland. James. At Egg shaped. Anne. At Miller underscore Anne. Alex. At Alex Bell underscore.
+
+[00:27:34] And Anna. If you email podcast at QI.com. Yes. Hashtag get Anna on Twitter. Yeah. Someone made the argument that if you don't have Twitter, how can you see the hashtag? So what we've done is we've printed out all of the tweets and posted them around Anna's desk at work. We're shoving it.
+
+[00:27:52] Bax them to me. carrier pigeon okay cool thanks so much for listening we'll be back again next week with another episode with no such thing as a fish and we'll catch you then goodbye

@@ -1,0 +1,237 @@
+# No Such Thing As A Fish - No Such Thing As A Female Egg Thief
+
+- Episode date: March 23, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-female-egg-thief
+- Slug: no-such-thing-as-a-female-egg-thief
+
+## Transcript
+
+[00:00:02] The other thing is a fish. I'm sitting here with Anna Chisinski, Andrew Hunter Murray, and James Harkin, and once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, Anna. My fact this week is that the Victorian soldier Major Charles Bendire once braved enemy fire to get an egg from a tree, then held it in his mouth while he climbed down, and on finding that it was stuck inside his mouth
+
+[00:00:55] removed one of his teeth to free it. This is amazing. And this is just egg collecting, or egging, in fact, was a really popular pursuit in the 19th century. And still some people do it today. And yeah, he was an egger. And it was thought as quite a manly pursuit. It was very dangerous because, like, birds lay their eggs
+
+[00:01:17] in precarious positions on cliff faces or really high up trees and stuff. So, yeah, Major Charles Bendyer got up there to prove his manhood and yeah, had to have his tooth removed. And he was being attacked by Apaches, wasn't he? Yes. This was in America.
+
+[00:01:30] He was trying to get an egg of a zoned-tailed hawk. And I looked to see how big those eggs are. And they are about three inches by two inches. Okay. So if you can imagine that, I've got my phone here. The width of my phone,
+
+[00:01:44] this is an iPhone 6S plus. Ooh! This is about the same width as the egg. So I'm going to put it in my mouth. Okay. For listeners at home, this is incredible stuff. I mean, the people of Oxford have never seen anyone deep throat an iPhone.
+
+[00:02:08] Nobody has. Please no one text me right now. But anyway, that gives you an idea of how big the egg was. That's the width of it. Yes, so that's the length, actually, and the width is two inches, so it's a bit smaller width-wise. It's egg-shaped.
+
+[00:02:27] Wait, so... You therefore put it in kind of with the long end first. You put it in the wrong way around, is what I'm saying. You're a terrible egger. But my feeling is that Charles Bendier might have done it that way, right? Because surely that's how it must have gotten stuck.
+
+[00:02:44] Maybe. Well, I think also his jaw swalled up due to being under fire. It was a very tense situation, and I think that made his jaw swell up a bit, meaning that... Is that what happens? That's one account I read.
+
+[00:02:54] And he had to get... So his men took it out under threshold. of court-martial. He said, I will court-martial you if you don't... And he went... And his tooth broke, didn't he? So it may not have been an entire tooth, and his tooth broke as it was on the way out, or he insisted that it was broken to ensure that he retained the egg. So, birders, no, sorry, eggers, who had dangerous times. There was another guy called Francis J. Brittwell. I'm pretty sure this is 19th century.
+
+[00:03:23] He was strangled by his own climbing rope, climbing to reach a nest in a tall pine tree, On his honeymoon. Bad honeymoon. The other thing is that guy, I googled him to see if there was anything else about him, and that seems to be literally the only thing we know about him. Imagine that. That's all you're known for,
+
+[00:03:43] trying to get an egg on your honeymoon. He died doing what he loved, but not doing who he loved, which is what honeymoon's all about. Missed the entire point. Yeah, but they get really obsessive, don't they, these collectors? Yeah, and they still happen. So there's a society called the Giorgio.
+
+[00:04:01] Jordan Society, which is named after an egg collector of the 19th century. And this sort of still exists, although they're honorary members now, because it's actually illegal to take eggs out of bird's nest, because it kind of damages birds' procreation cycles. But yeah, there are loads of them around. So there's actually one of the UK's most prolific egg collectors called Colin Watson, who I think had more eggs than anyone else in the late 90s, and then they all got seized by the police.
+
+[00:04:28] But he died falling out of a tree. In 2006. Yeah. So again, still a very risky. And he's supposedly been retired for years, right? Yeah. Because he kept getting arrested, so he said, oh, I'm no longer in the game.
+
+[00:04:41] And then, but he was on a watch list of 300 egg collectors. Yes. So they're constantly, there's a list where they come, and they, if they think you have it, they raid your house. I know. There was one guy who had 3,600 eggs in his house. And when the RSPB smashed his door in and with the police, he said to them,
+
+[00:05:01] thank God you've come. I can't stop. So this is a real obsession that people have. Yeah, that's right. And often it's the wives or the family who call the police, don't they, or call the RSPB, because they're worried about their husbands.
+
+[00:05:12] And it always is husbands. Literally every single person on this list is a male, age between 25 and 45. No woman has ever been convicted of egg. I guess... They're just better at it. I don't. all the time. No one's ever caught me.
+
+[00:05:33] There was a guy called Mervyn Shorthouse in the 70s and so there's an egg collection at Tring which Walter Rothschild collected. Thousands, maybe, I think hundreds of thousands of eggs. He broke in and he posed as a wheelchair-bound invalid and he stole over the course of three years 10,000 eggs, 10,000. I think that's about 10 a day for three years every day
+
+[00:05:56] including Christmas and your birthday. And then he mixed up all the labels to apparently cover the theft. I'm not sure how that covers the theft because you've been covered 10,000 eggs in your house. I've heard that with any museum thefts and any general theft where there's a label involved, the biggest problem that any scientist cares about
+
+[00:06:15] is they don't care if a thing is stolen because most likely it will be recovered down the line. A black market trade will reveal it somewhere, someone will spot it in a house. It's when you remove the data that says what it was, where it was and how it was found. That's the most important thing that goes missing, the little label.
+
+[00:06:29] Yeah, yeah. So we're saying, steal what you like, but keep the labels. Steal the labels, that'd be even worse. Yeah, sounds down. Imagine going into a museum where nothing was labeled. You were just looking at stuff going, what the fuck is that?
+
+[00:06:44] No idea. Is it ancient Egyptian? Is it 1920s? It is quite gangster. There's this amazing New Yorker article, which I would really recommend, which kind of goes through the long history of egging kind of in the modern day.
+
+[00:06:57] And one of the things it describes is a raid in 1994. and this was by the RSPB, the investigator of the RSPB, who was specifically out-catch egg thieves, and he raided this hotel in Salisbury in 1994, and there was this, because he knew that there was this Jordan Society dinner taking place, and the RSPB actually planted an attractive female employee
+
+[00:07:19] at the bar at the meeting of the egg thieves to try and get secrets out of them? Did they think they were going to get laid? There's another thing, when you go to prison, and people have been to prison, It's illegal to collect bird eggs. They get a hard time in prison, according to one investigator, because it's just seen as very weird as a crime.
+
+[00:07:40] Yeah. And some of them will only speak on the radio if their voices are disguised, like they're a terrorist. Yeah. Oh yeah, there's one who's called Mr. X, who's a known egger. Mr. X.
+
+[00:07:53] Oh, that's what he's done. Eggers and you two have the same sense of humor. But he goes around wearing a crow mask all the time. time to disguise his identity. He disguises himself by wearing a crow mask. He's climbing up trees though, isn't he? I think both other crows and humans would rumble him immediately. Have you guys heard of the National Egg Collection?
+
+[00:08:23] No. This is cool. This was a First World War thing. Basically, there were lots of wounded soldiers and sailors, and the country had just had a massive egg collecting drive to send to the soldiers and sailors. They collected a million a week. A million eggs a week, and they sent them to the front, which is a very dangerous place for an egg.
+
+[00:08:39] Yeah. But people wrote their names and addresses on each egg with a message for wounded people. So if you were a soldier lying in hospital near the front, you would get an egg delivered to you with a message saying, well done, and this is from me, and this is who I am. I don't know if anyone got married off the back of it, because that would be very romantic, I think.
+
+[00:08:56] A similar thing of writing on eggs, have you guys heard of clown eggs? If you're a clown, you have a unique pattern of painting on your face, and in order to trademark your face, you need to paint it on an egg and you give that egg to this warehouse in East London. There's a few more now, but initially it was in East London
+
+[00:09:13] and that would trademark your face officially as a thing. And there's thousands and thousands of eggs. It's an amazing tradition. What if you're a bold clown with no makeup? And no features. Like that guy on Twitter. He is a dickhead, isn't he? He's so rude.
+
+[00:09:32] Can I do some stuff about sticking things in your mouth? Yeah. Is it post-curfew? Yeah, go on. So there's a guy called Dinesh Upadiyaya, who's a science teacher from India, and he holds 48 world records for stuffing objects into his mouth. Impressive. So he's put five golf balls in there.
+
+[00:09:55] He's 79 grapes, 92 pencils. Pencils? Ninety-two pencils. They must have been heavily sharpened, surely. You can't get one pencil in your mouth. Don't tell James what he can and can't do, I know. You put a pencil at sea. Oh, not all the way in, just...
+
+[00:10:15] Yeah, so they're kind of... If you can imagine at home, putting a pencil in your mouth, but not sideways, like the... Like you're smoking a cigar. Yes, exactly like that. So he does that 92 times. He's done 12 lit candles in his mouth.
+
+[00:10:29] And he says that daily practice was the key to his success. And he says he aims to break all possible mouth stuffing records as soon as possible. He sounds great, doesn't he? That's so great. I don't reckon he's got much competition. I think that's amazing.
+
+[00:10:47] He could have just put two candles in his mouth. No one else is doing it. Also, if you're competing in for putting lit candles in your mouth, you absolutely need to specify on that record which way you've inserted it into your mouth. Because if it's just lit-end face. outwards, that's not remotely impressive. Yeah, you're right. That's just you put a bit of wax in your mouth.
+
+[00:11:06] Oh, no, because it's, you know, the longer you take to put more in, the closer the flame gets to your head. What, you mean it burns down? Yeah, it would burn towards your head, right? You'd have to be pretty slow potting them in the men, wouldn't you? You would, yeah. I know. It would be like a very, very slow James Bond villain-esque.
+
+[00:11:24] Happy birthday, Mr. Bond. What budget Bond films have you watched? No, Mr Bond, I expect you to age one year. Okay, it is time for fact number two, and that is James. Okay, my fact this week is that if a woman left her husband in 18th century England, the husband would often put a lost and found advert in the local newspaper. And this is a thing that happened. And it's a thing that happened in the 1700s,
+
+[00:12:08] but it happened all the way to 1980. but the golden age of it was in the, I mean golden age. What's the opposite of the golden age? The shitty age. The shitty age of it was the 1700s. And there's a blog called georgenerra.blogspot.com. And they've collected a load of examples from history. So they've got one from the Leeds Intelligensia from 1797, one from the Chester Chronicle of 1799.
+
+[00:12:34] Basically, for more than 300 years, if your wife left you, you might put an advert in the newspaper. saying you'd basically be no longer responsible for her debts. Yeah. Basically. Because husbands basically were responsible for paying for their wives at all times, weren't they? So if your wife screwed up like that, then you were like, I'm not responsible for her. Yeah.
+
+[00:12:52] And the thing was, people did this thinking it was a legal thing that would help them out. Actually, it had no legal basis whatsoever. Maybe in colonial times in America for a short amount of time, it might have worked, but certainly not in 1980. It wouldn't have worked. And the phrasing was always the same as, my wife is not here anymore. She's left the house. I will not pay for any of her debts.
+
+[00:13:12] It's a bit like, you know, you know on Twitter where it says, like, retweets are not endorsements, and everyone thinks that's a legal thing that will save them if they do anything. And it absolutely won't. Oh, no. Well, this is exactly the same thing.
+
+[00:13:25] What? I've been retweeting some pretty bad egg-based accounts. They did all have the same wording, but some of them got pretty funky with the language, only a few. So I found one from 1841, which said, whereas Fanny Martin has, without cause left my habitation
+
+[00:13:40] and is floating on the ocean of tyrannical extravagance prone to prodigality taking a wild goose chase and kindling her pipe with the coal of curiosity amazing that's a great tagline for our show
+
+[00:14:00] isn't it? Oh yeah! What was it? Kindling your pipe with the coal of curiosity. But the women used to get understandably quite annoyed because often they'd left their husbands for totally justified reasons, even though in all of these ads, as James says,
+
+[00:14:15] all the ads said, without just cause. And so the women started coming back from the very early days and posting their own ads in newspapers, actually explaining why they'd done this. So, for instance, in 1810, there was a woman called Elizabeth Dick, and her husband had put this advert out saying, no, it's not a funny name. Come on. Really funny.
+
+[00:14:35] Her husband had said that she'd gone without just cause, And so she posted an advert in the paper a couple of weeks later saying, it is true that I left my husband's bed and board, but not before he made several attempts to murder me. They used to do weird things. My favorite thing that I read about this, if there was a sort of marital dispute, there used to be a thing which was marital jewels.
+
+[00:14:57] Have you heard of that? So it's classic pistols at dawn, except this was husband versus wife to sort out an argument. And there were specific rules about the marital jewel that you had to adhere by. So the basic rules were that you would go to the place. There would be an adjudicator. The wife was armed with three rocks
+
+[00:15:16] and she could wrap them around in cloth to swing and hit the husband with. And this is in the 1200s. The man basically had wooden clubs, but he had to have a disadvantage to the fight. So his disadvantage was he had to have one arm tied behind his back and he had to fight the jewel
+
+[00:15:35] from within a three-foot hole in the ground. So he would be sat whacking away and she could stand he could never leave the hole and she could run around and smack him with her rocks and that was a real thing and there's countless accounts of the marital jewel happening we should bring that back
+
+[00:15:57] as a married man I don't think we should bring that back yeah why did I say that? We should certainly bring it back as a game I mean that is a fun game you're standing in a hole You've got, maybe let's make the club out of foam or something. It's like a Channel 5 game show, isn't it? Yeah. By the way, I forgot to tell you guys.
+
+[00:16:14] I had a marital argument this morning. Oh, you forgot to tell us. It was something I didn't realize I did. I woke up in the morning and I was like, you're okay? And she said, you slept talk last night. And I was like, did I? What did I say? And she said, you said, I have many secrets.
+
+[00:16:39] She was up for the rest of the night. These fucking secrets. Dan. She knows about the egg stealing. So I was looking up classified adverts in the newspaper. That's the thing that happens. So classified adverts were an enormous
+
+[00:16:56] thing. You know, they kept loads of newspapers going in the days before Craigslist and whatever people use these days. But the London Review of Books used to have the greatest personals adverts to find love out of any publication. And people used to collect these
+
+[00:17:11] and read them avixteatement. So they included things like These are all complete ones, by the way. Angry Trollope, 37. Offers? Amazing. There was another one. Less Venus in furs.
+
+[00:17:29] More Derek in Buxton. Interested? Right to Derek in Buxton. And this is my favorite, favorite, favorite one. Vegan love god on the brink of mental and physical collapse, male 26, seeks pallid calcium-deficient female for nights of apathy, depression and headaches
+
+[00:17:49] while touring the moral high ground. So you mentioned Craigslist. They have some really funny postings that have gone up, and a lot of them are jokes, but some of them, I was reading through, you know, their best ones they've had. And some of them, I think, are real and incredibly sad. So this was one posting on Craigslist a few years ago.
+
+[00:18:08] I need someone to hide Easter eggs in my apartment when I'm not there. They are small and filled with candy. I would like to find them myself on Sunday I am willing to pay serious inquiries only He wants someone to... I know!
+
+[00:18:21] I mean it sounds like someone weaning themselves off egg stealing, doesn't it? Yeah. Please, please, please ignore the room full of 10,000 eggs with mismatched labels. And the man dressed as a crow in the carna. There was another one. There was one about a man
+
+[00:18:38] who claimed that he'd robbed a woman's purse but then he'd caught her eye as he was robbing it. So he'd mark her eye. a woman, then he put an ad on Craigslist saying, hi, I mugged you the other day, but then I caught your eye. There is a quick moment when our eyes met,
+
+[00:18:51] and I felt something strong. I think you felt it too. If I wasn't so shy, brackets, also committing a crime. Close brackets. I would have asked your name. I, of course, later got your name from your driver's license. So, Jennifer, if you'd like to get together for a drink, please call me.
+
+[00:19:12] I'm outside your friend of it. Do you know that Guns and Roses got together through a personal's advert? Did they? Yeah. So this used to be a thing for bands getting together, so they were posting music magazines
+
+[00:19:24] and obviously whichever music you like, you post in that magazine. So the advert said, base player needed for band influenced by Aerosmith, Alice Cooper. Call slash. Call slash. And they used to put those in the enemy,
+
+[00:19:37] didn't they quite a lot? I remember when I was growing up and of course that's closed down today. Just today. Yeah. What? Last issue goes out on Friday. You're joking.
+
+[00:19:44] No jokes. Last chance if you want to get in a band, Andy. I thought I was in one I thought it was a weird sort of vocal band I think there's a problem with classifieds right when people are looking into the history of them because you don't get any other extra information so there's this really good looking book
+
+[00:20:02] which is called found strange red cow and it's called that because it's related to an advert that was placed in the Pennsylvania Gazette in the 19th century which said found strange red cow and it was about a cow that wandered onto someone's property and will return to owner who proves that they own it. But another example of one of the ads in this book
+
+[00:20:22] is 1892 in New York. Wanted, a young lady of German parentage must be 36-inch bust and understand bookkeeping on a small scale. What job requires all of those very specific attributes? But I'm willing to compromise on the bookkeeping on a small scale. Okay, move on to fact number three, and that is my fact. My fact this week is that there is a bell
+
+[00:20:49] that's been ringing in Oxford non-stop for 178 years. Yeah. Yeah, you guys must be pissed off about that. Sounds really annoying. It's a hometown fact to where we're recording, or home city fact. This is in the Clarendon Laboratory. It's a 10-minute walk from where we are right now, and back in 1840, they set this up with a new experimental battery
+
+[00:21:13] that they wanted to test out, and effectively it's too bad, and a little bell hanging in between, and it oscillates and just goes between the two bells. And they thought it would last for a while, but since 1840, it has not stopped. It is still going. I visited it today. You can go and see it.
+
+[00:21:28] Oh, did you? Yeah, yeah. I went and you look really close, and it's just dingling, ling, ling. It's just tiny... Can you hear it dinging? No, I made the noise. It's behind two bits of very thick glass,
+
+[00:21:38] and then it's in a thicker bit of glass, even so, once you get to it. How do we know it's dinging, then? Because I made the noise. We don't know that We don't know what noise it's making If any But you can see it physically
+
+[00:21:49] Well it's likely to be a ding-ning-ning It's one of those things when you see it You're like Ding-l-Ling-Ling it's got the It's got the motion of that And yeah So this has been going And it's battery powered
+
+[00:21:58] This is what's most impressive It's not as if it's a perpetual motion Or anything Which would actually be more impressive Yeah Given how that would break the laws of the universe No I don't want to show this over the science fair It's just not a perpetual
+
+[00:22:14] motion thing I've built. The problem is, is that because they don't know the exact composer of what's going inside it, they need to just leave it because the experiment now is how long will this go for. It's like Schrodinger's battery. If you touch it and go in, you ruin the experiment.
+
+[00:22:31] So, yeah, so they're just going to weight it out. It's a long-term experiment. The best guess is that it's 2,000 alternate layers of metal foil and paper coated with manganese dioxide and honey, compressed into a glass tube and sealed from humidity in a casing of sulfur.
+
+[00:22:46] Honey? That's a good guess, isn't it? You were close, but it was peanut butter. I just find it amazing that this stuff doesn't erode, which I know metals are very erosion, you know, proof, but
+
+[00:23:04] the clapper has struck the bell 10,911,000 456,000 times since it started. That's like, you know, almost 11,000. billion times. Yeah, they think that the physical bell will break before
+
+[00:23:18] the battery itself breaks. Yeah, because there's a lot of metallic dust at the bottom, isn't there? Where it's kind of eroded over time. Yeah. And you know what? This experiment is called the Oxford Dry Pile experiment, and it's been going longer than physics. By which I mean
+
+[00:23:36] that it was bought in 1840, like you say, by Reverend Robert Walker, and he was a reader in experimental philosophy, and that's what they called physics back then. So he's before you had physics professors. Yeah, wow. That's cool, isn't it?
+
+[00:23:49] That is cool. And also, the battery was effectively made in 1825. They started ringing it as a bell in 1840, but Volta, with the first batteries, was 1800. So in 25 years, they created a battery that is still running today and just nailed it. I imagine when it stops, they'll be like, have you tried rubbing it? I think we should say, I think there's been a few moments where it has stopped due to humidity. and stuff like that, but it's always come back on.
+
+[00:24:18] Does anyone else have a problem with dry pile being a way of this incredible... I do have a terrible problem with dry piles. My notes are all about completely different stuff, actually. It's mostly a list of pharmacists in Oxford I visited today. It's an unfortunate name for what is an extremely important piece of physical progress. But the voltaic pile invented by Volta of Voltage fame is what is basically based on and I didn't actually realize how they worked but basically it's just the
+
+[00:24:49] voltaic pile is alternating layers of two different types of metal and if you've got metals of two different chemical components then charge will travel between them if you put like salty watery paper between them so that allows electricity to conduct because you've got this
+
+[00:25:05] watery salty paper so the metal slightly dissolves into that paper and then when they touch each other then the current travels through them and a circuit's created So it's just a pile of metal with some wet paper in between. It was bizarre. That's electricity.
+
+[00:25:20] And he's the guy who demonstrated electricity first by electrocuting loads of frogs. Yes. Walter. And Galvani as well. And Galvani. So these were the two electricity pioneers of the early 19th century. And they were kind of had this fight because Volta used to put two different types of metal on a dead frog's leg. And the frog's leg would twitch.
+
+[00:25:42] And he'd say, look, that shows that these two different metals are creating electricity. Galvani, from where we get the word galvanise, said, no, no, it's because the frog's leg is generating electricity, and he thought that dead animal bits created electricity. It turns out he was wrong. But we could have had a world where, instead of a battery, you have to shove a dead frog's leg into the back of your torch? A better world.
+
+[00:26:07] Do you know Volta did an experiment just after he invented the Voltaic pile where he found out that electricity tastes sour? and the way that he did this was he got a number of volunteers to form a chain and they each pinch the tongue of the person, I won't do it Andy, don't worry, of the person next to them and so they were all in a chain pinching each other's tongue and then he put some electricity going through them and everyone could taste the fingers of the person next to them going sour. Really?
+
+[00:26:35] That's a good experiment. But how do you get the volunteers for that in your class of I ever wanted? One of the volunteers for wacky stuff. what you've done of electricity and you say, come and taste my fingers. Taste my finger was the Victorian equivalent of pull my finger actually. Do you know just on how batteries work
+
+[00:26:55] and how electrical current flows, in the 19th century, there were a lot of cases of exploding teeth. And I know it sounds like those two sentences are unrelated, but people have realised that the most likely explanation for this is that people used to have teeth that were made of metal, obviously.
+
+[00:27:12] and they would often be two different types of metal. And there were all these dentist records and doctor's records of exploding teeth. Like people would be in huge amounts of pain. And they'd feel like there was an electric current going into their gums. And then their teeth would explode. And it's actually because they literally were turning their mouths into a battery. So if you had these two different types of metal and they were making contact, then there was a circuit running around your mouth.
+
+[00:27:34] Wow. And that's what happens if you have a filling and you bite a bit of metal. You'll make a tiny little battery there, aren't you? That's why that's so painful. Really? Is that painful? I've always had perfect teeth. I was looking a bit into,
+
+[00:27:48] because this is a long-term experiment that's been going on, I just looked into long-term experiments, and I found one which I thought was really interesting. There was a paper that was published in 1998, and the title of it was, does knuckle-cracking lead to arthritis of the fingers? And this was written by a scientist called Donald Unger, who basically, for 60 years, cracked his knuckles
+
+[00:28:11] in order to work out if it was arthritis that you would get off the back of it. He did it because when he was a kid, his mother and his aunties said to him, stop cracking your knuckles, you're going to get arthritis. And he thought, no, I'm not. So he spent 60 years on the left hand alone cracking his knuckles.
+
+[00:28:26] And then he didn't crack his right hand. Exactly. So it started as a kid. Just was like every day he would crack his knuckles. And he got to the end and his answer was, no, it doesn't give you arthritis. Although that seems like a very petty thing to spite your mother for 60 years.
+
+[00:28:40] Yeah. It was an unhealthy relationship. It sounds like it. I have done further papers, and it turns out that broccoli is not delicious. And it turns out, I won't go blind if I keep doing that.
+
+[00:28:58] Should we move on to our final fact? Yeah. Okay, it is our final fact of the show, and that is Andy. My fact is that King Edward V. The 7th had a liqueur invented specifically for him to drink while driving.
+
+[00:29:14] This was very pre-health and safety. So there's a drink. It's called the King's Ginger, because it was named for him. He was the first monarch to drive a car. He was driving from about 1898. He was an early adopter. He became king in 1901.
+
+[00:29:28] And he was a huge fan of drinking, but he was driving around on quite chilly moors, open-top cars, and his doctor, this is the story of the drink, was worried that he might get cold and chilly.
+
+[00:29:40] So instead of giving him medical advice, he just asked a wine merchant to invent a new alcohol for him. And it's very gingery, and it's called King's Ginger. And it still exists, right? It still exists. And actually, I've brought some along with me tonight. That's so good. My wine was literally about to run out.
+
+[00:29:57] Well... Have you got a cup? I've got four. I did try and find shot glasses in my house, but due to my lifestyle, I've got one. I've then got two measuring shot glasses. which are used for KM Pepper and I've got one shot glass
+
+[00:30:17] I borrowed from the venue thank you very much so if you'd like to oh, cracky I'm not driving home later am I still allowed to drink it? We don't normally finish with alcohol consumption on stage
+
+[00:30:30] sorry, we normally start with it but Anna's shot at it, right It was a shot glass Okay, should we talk about facts and stuff Yeah, sure Oh yeah, Edward the 7th. He liked drinking.
+
+[00:30:51] He liked generally having a good time, didn't he, with the 7th? So, old Bertie, one of the things he was famous for was having a siege d'amour or a love chair. Oh, yeah. Which is an item,
+
+[00:31:04] which I think still exists today, but it was made for his own personal use at a brothel called Le Chabiné, which was a very famous brothel in Paris. And if you should look it up, the love chair of Ever with the 7th, and apparently it's made for him to have sex with
+
+[00:31:17] two women at the same time. It's a bizarre contraption. It's got stirrups on it. It's got hand grips on it. I stared at it for about 45 minutes a day and I cannot, for the life of me, work out how you could have sex with one person, let alone two, using this chair. But he was worried, wasn't he, because he got quite massive later in life. And so his main worry was he didn't, he was having a lot of sex still with a lot of people and he didn't want to crush them while he was having sex. That was his decision. So the chair gave him the sort of the uncrubrified. ability that he was looking for when having a menagerie. Yeah.
+
+[00:31:52] And can I just say quickly because I know we're in England and everyone know who Edward the seventh is, but as... Yeah, there's little else spoken about these days in contemporary national discourse. But for international listeners, he was the son of Queen Victoria. He was born in 1841, which, for context of this podcast, was one year after the bell started ringing in Oxford. And he was, yeah, he was known as Dirty Bertie. He was such a odd character, but very influential as well.
+
+[00:32:22] A lot of things have gone through history that are said to be, as a result of him. One we know for sure is the fact that the royals get two birthdays, the queen has two birthdays. That's down to him. Because his birthday was at a bad time. It was in a wintry time. So he said, I want a more summery one. So he gave himself a second birthday.
+
+[00:32:39] So that's down to him. Some royal drinks. Oh, yeah. I am. So you said Queen Victoria, who was his mother. Yes. Her favourite drink was whiskey and red wine mixed together. Yeah, that's true. I think we found that out from Gladstone, didn't we, a prime minister of the 19th century. And yeah, he did not like the idea. He wrote, she has her claret strengthened, and I should have thought, spoiled with whiskey. But that was her drink.
+
+[00:33:07] Kate Middleton likes crack, baby. Sorry. A, never call me baby again That's a very legally contentious statement, James. It's a cocktail. There's no crack in it. It's got vodka, raspberry liqueur, passion fruit and champagne. It's called Crack Baby. That's one of her favourite drinks. Did you know that there is a new drink that's been invented called a Voktail?
+
+[00:33:31] This is from last year. It's by the University of Singapore, and it's a virtual cocktail. So, it's a special glass which can make you think you're drinking alcohol even though you're not. Sounds awful. It's got three methods. So you pour a liquid in, you pour just normal water in, and then you can, there's a light that goes on in the glass. So already you think, oh, it's a lovely red cocktail, whatever. Then there are electrodes all around the rim
+
+[00:33:53] where you can alter the sweetness or the saltiness or the bitterness by stimulating the tongue with a small electric current, like Walter. Your man, Volta. And finally, there's a tube in the side which releases gases to make you think that you're drinking something else. So you can think you're drinking lemonade, even though you're drinking water.
+
+[00:34:09] And then do they smack you over the head, so you have a headache in the morning. Hey, we're going to have to wrap up shortly. Do you guys have anything before we do? I've had so much King's Ginger. I can't really see any more then. I got one last thing, which I really like, which is that there's a lot of celebrity alcohols
+
+[00:34:32] that have been released over the years. And my favorite, like, ACDC do wine, Iron Maiden, do beer, Brad Pitt and Angelina Jolie and Danny DeVita. they all have their different wines. My favourite one is that the band Hansen, famous for the song Umbop, they released their own beer, which they called M-Hops.
+
+[00:34:51] That's available in shops. In M-Shops, I think you'll find. Okay, that is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast,
+
+[00:35:06] we can be found on our Twitter accounts. I'm on at Shreiberland, Andy. At Andrew Hunter, M. James. James Harkin and Chisinski. You can email podcast at QI.com. Yep. Or you can go to our group account, which is at No Such Thing, our Facebook account as well, or our website. No Such Thing as a Fish.com.
+
+[00:35:20] We've got links to our tour. We have links to our book. We have links to this, well, very soon, hopefully our cassette, when we're about to give one away, because we ask the audience here in Oxford to give us a fact, their favorite fact. James has picked a winner. So the winner is, it is Ryan O'Reilly. The fact is that in 2005, Babu, A male red panda at Birmingham Nature Centre in Birmingham escaped. He was subsequently named Brumme of the Year.
+
+[00:35:53] Amazing. What for escaping Birmingham? Ryan, come find us outside at the end of this show. We'll give you a cassette. And this is, we're not selling them anywhere else. So if anyone wants one, they're going to be out in the foyer. We're going to be out there as well, signing them. Guys, thank you so much for being here.
+
+[00:36:10] We'll be back again next week. with another episode. Goodbye.

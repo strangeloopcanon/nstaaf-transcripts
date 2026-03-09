@@ -1,0 +1,235 @@
+# No Such Thing As A Fish - No Such Thing As Samurai Nail Clippers
+
+- Episode date: April 3, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-samurai-nail-clippers
+- Slug: no-such-thing-as-samurai-nail-clippers
+
+## Transcript
+
+[00:00:00] Such thing is a fish, a weekly podcast. This week coming to you from the Soho Theatre in central London, my name is Dan Shriver. I am sitting with James Harkin, Andy Murray, Anna Chazinski. And once again, we have our four favorite facts. We're sat around our microphones. And in no particular order, here we go. Starting with you, James Harkin.
+
+[00:00:46] Okay, my fact this week is that firefighters use wetter water than we do. Is that in everyday life as well? Just cleaning their teeth and having a shower. No, just for putting out fires. So what do you mean by wet water? Well, it's just about how weird water is really. Apparently, if you put certain polymers into water, there is less friction in the pipe,
+
+[00:01:13] so it shoots out of the pipe quicker. And it's called a wetting agent, and it's to make water wetter. Did someone notice that it was going really slowly out of the pipe and sort of hanging around and how much faster does it go? Well, they use it in oil as well, and in the Alaskan pipeline they put this stuff in, and it reduces pumping costs by up to 50%.
+
+[00:01:35] Because it just pumps up more in a shorter time. But you don't want to mix up the oil and the water, if you're a firefighter as well. It's a terrible. I don't think you can mix oil and water, isn't that the whole point? It's amazing. Yeah.
+
+[00:01:56] So the first time they used this stuff, there were puddles of it around, and the firefighters were complaining that were slipping on the puddles. because it was so wet. Quick step in one of those puddles of water for stability. So, do you know how long they've been using it? This was, I'm not sure exactly when it came out,
+
+[00:02:16] when they found it out, but I think it was in the 60s or 70s. And it was a guy called B.A. Tom's, and it's called the Tom's Effect, this thing that makes it slippier. On slippery, water, no one knows why ice is slippery today, or no one knows why... Well, the reason ice is slippery
+
+[00:02:31] is that there's a tiny film of water forms on top of water when it freezes, and scientists don't know why water does that, why this tiny film of water forms and why it's slippery. And that's just another weird thing about water. And the other weird thing is that it's sticky and slippery ice. Like if you put your tongue in it, you stick to it,
+
+[00:02:49] but also it's slippery, and that's just a weird thing to happen. Just on water being wetter, my dad uses scissors that are sharper than most scissors. What are you talking about? I was trying to think when, When I found out this fact, I was just like, oh, what else is more than what it's meant to be? And my dad, actually, my dad's a hairdresser.
+
+[00:03:11] And he has a pair of scissors that were forged by samurai. In Japan. I'm starting to understand why you believe all this crap about it. Your dad's been spinning you absurd lies since you're a child. So sorry, they were forged in the pit. No, honestly. They were forged in the fire of some Mordor. There are a pair of scissors that were forged by samurai,
+
+[00:03:47] and they are the sharpest pair of scissors that you can buy in the world, and he's had them for 35 coming up to 40, so it's in between that bracket. One day they'll be given to you. I know. No, but he's consistently, as a hairdresser, you're meant to get your scissors sharpened every few years. He goes every few years to get them sharpened, and the people at the sharpening place go,
+
+[00:04:07] we can do nothing for you. These are as sharp as they have ever been, as they ever will be. And they're just samurai scissors. What kind of samurai blacksmith makes scissors, though? Is it someone who's been kicked out of the swords, bit of this blacksmith. But if you're a samurai, you're not going to, like,
+
+[00:04:26] imagine when they're clipping their nails and stuff. They probably have samurai's nail clippers. If you're used to that kind of excellence, you're just going to create more products that are going to help you out, right? Yeah, that sounds implausible. I promise you, everyone Google it. Samurai scissors exist. I didn't know you had to have your scissors sharpened every few years as a hairdresser.
+
+[00:04:45] That surprises me. Yeah. Oh, well, there's a fact. All right. That's good. So on fire, the very earliest fire fighting organizations in the USA, they were all volunteer ones. And normally they couldn't do very much because they didn't have much suction through the fire hoses.
+
+[00:05:01] And so what they would do instead, one of their most important things was called a bed key. and this was to break down a bed frame, a wooden bed frame, because that was often the most valuable thing in a house. And so they said, well, we can't really do much for the house, but we did at least get your bed frame out. And that was the thing. In those days, it wouldn't have made any sense to ask,
+
+[00:05:19] what would you save in a fire? Because everyone wanted to sit by bed frame. Is that because it was made out of iron? No, it would have so important to get out. If it's iron, you just leave it there, come back with the fires. Yeah, because what they used to do when they moved house in the old days in America is they would burn down the old house, and they would take the nails out.
+
+[00:05:35] of the burning ashes because nails were so expensive to make. Just talking about firefighters, the very first firefighting brigade was from ancient Roman times, and it was a guy called Krasis, which James and I always talk about. We've never said it on this podcast. I love this guy. He basically realized that when fires were happening, you could make a lot of money by setting up a thing to put them out.
+
+[00:05:56] And so he used to do this thing where he announced he had like a 500-person fleet for his first fire brigade, and a fire would start, and they'd all race to it, And as soon as they got there, they wouldn't put the fire out. They'd negotiate how much the guy was willing to pay for them to put the fire out. And if they didn't reach an agreement, they'd just let it burn. And they'd all just watch it burn to the ground. And then Crassus would buy the house back cheaper.
+
+[00:06:19] He'd be like, are you doing anything with this plot? No shit cheaper, yeah. This house has depreciated in value someone since turning into a pile of ash. But yeah, that was the first ever fire brigade. The first ever fire hose was in ancient Greece, I think. And I think this is another example of inventions, I love, which are inventions which then disappear. People forget about them and don't make them again for ages.
+
+[00:06:39] So I think this vanished for 1700 years. But Firehoes invented in ancient Greece, and it was made out of an ox's intestine. And I think so it was you put water in a bag, and then you attach a bag to an ox's intestine. Do you remove the intestine from the ox first? I think it depends what you want to be spraying out. But yeah, conventionally, yes.
+
+[00:07:01] If you're trying to make yoghut, however. And yeah, the force at which water kicks was expelled from the ox guts was... That's amazing. Yeah. Wow. That's so good. It's very cool. I read about a guy who invented a helmet that you would...
+
+[00:07:15] So one of the big problems, obviously, when you were going into a fire, was that you would smother yourself with the smoke, you'd pass out. So everyone was trying to work out. In 1823, a guy called Charles Dean invented a helmet that had a hose attached to it, so you would go in and you'd have air pushed in through the hose so you could breathe. No one ended up using it, though, because... it was made of metal, and while people were inside, they were suddenly going, whoa!
+
+[00:07:38] And dashing back out, in this kettle of a mask, yeah. But then he transferred the design to a diving helmet, and those were the very first diving helmets that we, yeah, it's the same guys, and that's what it became. Good, thank you. Yeah, that's very cool. A hundred years before that, which was in 1723, the first automatic fire extinguiser was painted in England, and this was a guy called Ambrose Godfrey, and it consisted of a cask of fire extinguishing fluid and a load of gunpowder.
+
+[00:08:07] And you had set fire to the gunpowder, it would explode, and then the water would go everywhere, and then it would put it out. Wow. That's a clear. Did they use to have fire extinguishing grenades as well? Yeah. They were called fuchs balls, weren't they?
+
+[00:08:21] Fuchs. Fuchs, sorry. They were invented by a German guy called fuchs. Yeah. And they were little glass balls with water or a liquid inside, and you would throw them at the fire, and it would put them out. Really?
+
+[00:08:32] It's terrifying. Oh, thank God, the fire department here. Grenade! Have you guys heard of smoke jumpers? I have not. No. These are the coolest people in the world. They jump out of planes to put out fires.
+
+[00:08:47] They just, they parachute down onto fires and put them out. What? What? How? Because I guess from that height, it looks really small, but once you get... Put you down there. With your bucket. No, they genuinely do this.
+
+[00:09:05] This happens in where there are forest fires, so in places in the USA, where you can get fires, and it's much faster to get there, basically, and obviously it's not for a mass response. You can't have hundreds of people doing it, but these people do exist. And I've read a frequently asked questions,
+
+[00:09:21] I read a little interview with a guy who is a smoke jumper, and they just sound like the hardest people in the world. So isn't it dangerous landing in a fire? We land close to, not in the fire. And then he went on. At least that's the plan. It's not uncommon to land in smoldering areas. So cool.
+
+[00:09:41] Yeah, they're the most hardcore men in the world. Yeah, and the things they take as well, they take backpacks, which have little pumping power supplies on them. Sometimes they take chainsaws, which I think is to cut trees which are at risk of being close to the fire. I haven't researched that bit enough. Sometimes they would have like a crocodile under water. We're going to have to move on to the next thing.
+
+[00:10:00] Yeah, if you've got something more. Can I just tell people, because we're on water. you could go the rest of your life without drinking water again. This is just a big piece of propaganda from water merchants. Big water, yeah. Big water companies taking over your life. So that whole thing about you have to drink eight cups of water a day, no scientists know where that comes from.
+
+[00:10:20] There's no scientific basis for it. You can replace water if you like with coffee tea. It's not going to dehydrate you. Yeah, coffee does have water in it though. Yeah, okay, so when I say water, I mean you could dilute it with it. It doesn't need to be water. You mean you can have ribina instead. I mean, you have ribina.
+
+[00:10:34] But coffee tea, don't dehydrate you, massively rehydrate you, and drinking eight cups of water a day is too much. You shouldn't drink water unless you feel thirsty. And also, it doesn't help you. If you're an athlete, it doesn't help you drinking more water. So they tested cyclists, and they had some dehydrated cyclists compete against some non-dehydrated cyclists. Didn't make a difference.
+
+[00:10:54] Wow. Totally fine. I mean, it would make a difference eventually. Yeah, so they didn't dehydrate them to death. God, ethics committees these days are a night. So Anna Chazinski says you do not need to drink water and yet I'm the dickhead for saying my dad has samurai scissors. Sure.
+
+[00:11:16] Okay, it is time for fact number two and that is Chazinski. Yes, my fact is that plants have their own internet and it's made of fungus. So not only this, they've got their internet which precedes ours by hundreds of years, by the way, and 80% of them are signed up. to it. But wait, to the ones which don't have it, are they in urban areas?
+
+[00:11:41] They're of a blanche in developing countries and rural places. They have cybercrime online. They have social media. They're going to have social media. They have online shopping. I'm just going to go on like this. Like, I've lost the plot. They've got Myspace, they've got eBay, they've got old.
+
+[00:12:00] They do. They've got Tree Bay. I hate myself for that. So they have this network of fungus attached to that. You know when you pick up a plant and you see those little white strands coming off plant's roots? That's a kind of fungus
+
+[00:12:16] and this system is called mycorizai and it's a way of them communicating with each other. So this fungus will link a whole garden of plants together or a whole forest of trees together. And if one tree is lacking in nutrients or water then it will send out a signal and then another tree will be able to send it nutrients or water via the fungus. They have news updates. This is my version of news updates. So if they're
+
+[00:12:40] under attack, let's say, for instance, a plant is being attacked by an aphid, then they'll be able to emit signals via the mycorrhizine network. And other plants around will know that the aphids are coming and they will put up their defences. How much defence does a tree have? Because I remember reading a few years ago that when giraffes eat acacia trees, they will give out some kind of signal to the other trees to say, there are giraffs coming, you're going to get eaten. But how do you stop yourself from being eaten? Basically, you're just a lot of other messages going,
+
+[00:13:11] well, shit. Now I'm going to get eaten and spend the last hour of my life afraid. No, actually, that's a really interesting question. Thanks for asking. This is so many ways, so they can pump out chemicals to make themselves less tasty to attacking
+
+[00:13:27] insects. One really clever thing that some bean plants do is, so they are preyed upon by aphids, and when they get preyed upon by aphids, they send out a perfume, which is delicious to wasps, and wasps come, so they use wasps as their bodyguards, and the wasps come, kill the
+
+[00:13:43] aphids. So they just call on their bodyguards, what wasp bodyguards? I think that's so cool. That actually is what the smell of cut grass is. It's partly the grass screaming, apparently. What? The lovely smell of cut grass is partly the plants screaming,
+
+[00:13:59] it's partly summoning creatures to stop the predator, because it thinks it's being eaten by other insects, so it cools over it. That's, yeah. Do you know, you can actually, this is so weird, because it does sound like plants have a slight intelligent, it seems so dubious. I was reading this paper, and it was saying that you could, you know, anesthetic works on plants.
+
+[00:14:17] They go down. Like, what does that mean? And this other one was that basically, if you play a recording of a caterpillar munching on a leaf next to a certain plant, the plant will respond to it and led off a defense mechanism as well. So it's not even like a real thing going on. It's just listening to a record of like this happening. But how?
+
+[00:14:38] It doesn't have ears. What is it? I think it might be acoustic vibrations, air vibrations. But the same thing if there's a water pipe, which is enclosed in a pipe, which couldn't possibly emitting any water into the soil, roots will grow towards it because it's assumed they can hear the sound of water. Is that normal water? Sorry, or is it James's super water?
+
+[00:14:59] There was a study in 2009 by the Royal Horticotica. cultural society about how quickly plants grow if you talk to them. Because obviously, you know, the whole thing, Prince Charles did that, didn't he, talk to his plants and stuff. They found that tomato plants grew up to two inches taller if they were serenaded by a female rather than a male. And the most effective talker came from a lady called Sarah Darwin, who was a great, great granddaughter of Charles Darwin.
+
+[00:15:22] No. What? Only me? Are you kidding? The most effective plant talker in the world is a relative of Charles Darwin. And the thing is the thing is, things that she... I'll tell you what, Dad, it gets better. She read out an excerpt from Darwin's
+
+[00:15:39] on the origin of the species when it happened. That's so hot. Literally the hottest sentence I've ever heard of my life. Dan has just got two inches bigger. I'm honest. That is. That is amazing. I looked up...
+
+[00:15:55] So while we're on the fungal network that connects all plants, I looked up some British fungi names. British fungi include the jelly ear. the bearded tooth the weeping tooth crust the slimy earth tongue the fetid parachute
+
+[00:16:10] the brainfold truffle and my favourite the hairy nuts disco but that's the thing plant I was looking to this as well not fungus but just plants they all used to have really rude names dandelions prying to be known as dandelions
+
+[00:16:29] were originally called pisser bed and they were called piss abet In French they're called Piss-on-Lee, which is the same. And it's because they would make you wee, right? Yeah, yeah, that was the idea. So everyone was like, well, let's just call it Piss a bed. But listen to these other names. Mare's fart, naked ladies, open arse,
+
+[00:16:49] hounds piss, and bum towel. So insects can talk to each other using a plant as a kind of telephone. Wow. This is too far. This is before they got the internet. They did have... This dial-up, isn't it? Yes.
+
+[00:17:06] So if you've got an insect that's feeding on the roots, he doesn't want another insect feeding on the leaves because it could kill their plant too quickly. And so they'll send up a kind of a signal to the leaves saying, we don't want anyone eating these leaves. And it's like a no vacancies kind of sign. Yeah, that's really cool. And there was a guy called Clive Baxter.
+
+[00:17:24] He was a lie detector expert working for the FBI, and he claimed that if you wired up a plant to a polygraph machine, you'll be able to detect what they're thinking. Okay, so here was, this was his experiment. Where were you on the night of the... What have you done with the soil? So he had a room with two plants in it. Six students took it in turns to enter the room
+
+[00:17:49] and then one of them stamped on and killed a plant in front of another plant. Okay. And then they had a line up. When the five innocent students later walked into the room, there was little to no response from the plant. However, when the murderer came in, the plant went wild.
+
+[00:18:16] The study has never been able to be replicated. We're going to have to move on to our next facts. Anyone else got anything? I lost it all on the hairy nuts disco, I'm afraid. Okay, it's time for fact number three, and that is Andrew Hunter, Murray. My fact is that in 1710, the boys of Winchester College rioted over insufficient beer rations. I think it was the sixth form, to be fair, but still, this is from a book called
+
+[00:18:48] The Old Boys, The Decline and Rise of the Public School by a guy called David Turner. And it's just incredible. There were loads of public school riots during the 17th and 18th and 19th centuries. So in 1690, the boys at Manchester Grammar disagreed with their teachers about the Christmas holiday timings and responded by locking themselves in with guns and firing warning shots at anyone who came near the school for a fortnight, for a fortnight. A fortnight, yeah. What was their objection?
+
+[00:19:16] Don't lock yourself in the school if you want more holiday. That's very true, yeah. But these things happened in 70 years, just at Eton, there were six full-scale riots. And so how much beer did they get, do we know? I don't know. All right, okay. because actually in the olden days people used to drink a lot of beer, didn't they?
+
+[00:19:35] Because it was safer than drinking water and, you know, it would be quite weak beer, but you would still have it nonetheless. But like kids as well. Kids would just be downing pines going, oh, right. You don't actually need to drink water, that's the thing. As long as you drink lots and lots of beer. That's a wise lesson.
+
+[00:19:51] In fact, the first children's picture book that is known to man has instructions for brewing your own beer. Really? Really? It has instructions for home brewing beer and making your own wine. Yeah, amongst other things, but it's an important life lesson, I think. In the workhouses, men would have two pints of beer a day,
+
+[00:20:06] according to the official diet that they were allowed, and children had one pint, and women had a pint of beer and a pint of tea. That was the official rules that they were supposed to have. They didn't all get it. But so, is it healthy for kids to drink beer? Yes. And yet, the bureaucrats in Brussels have decided it isn't.
+
+[00:20:30] No, we're saying it's not. But, like, in the olden days, people, It was better to drink beer which had been brewed than to drink water, which hadn't been boiled, because it was really bad for you. Women in labour in the 16th century were given groaning beer, which was consumed during labour, and it was supposed to help you rather than anaesthetics, I guess. Yeah, there was actually a whole range of groaning foods.
+
+[00:20:49] This is true. Yeah, you had groaning pie? It sounds like it's straight out of Harry Potter. A groaning pie. In the Navy, of course, they would have lots of alcohol. The daily ration up until 1740 was half a pint of neat, rum twice a day. That's good, right?
+
+[00:21:06] Yeah, the Navy were pissed the whole time, weren't they? How do we win any battles? Honestly, they would go drunk into war. That was their big thing. Actually, I did find, speaking of this, some lyrics from the original lyrics of what should we do with the drunken sailor. Oh, wow. You want to hear those? Yeah.
+
+[00:21:22] Here are a few. Put him in the hole with an angry weasel. Stick him in a bag and beat him senseless. There's another one. And the other one is, put him in the hold with a captain's daughter. Wow. Yeah. But actually a captain's...
+
+[00:21:38] Isn't that punishing the daughter? Well, the captain's daughter was a nickname for the Catanale Nine Tales. Hey, just very quickly, an update from a very old fact that we did on the show. Just going from you saying put them in a bag and beat them. There was that fact that you said about how you used to get thrown into... Okay, so there was an old punishment in the olden days. It was capsule punishment, I guess. You would be put into a bag with...
+
+[00:22:02] a cockerel, a cat, and a snake, right? But in Britain, you couldn't get snakes very easily, and so they would just make do with a picture of a snake. There were a couple of other little riot, no, there were massive riots. So, well, the 1793 Winchester College riot, which I think we all remember. But basically, the headmaster,
+
+[00:22:30] they were called wardens in those days, had ordered the whole school to be punished because of one boy's misdemeanor. The boys wrote to him saying, that's unfair, you've broken the rules. And he wrote back not answering them satisfactorily. So they perceived the school, again, armed with guns, swords and clubs. This is just a common response. The nice thing about it is the whole correspondence between them was in Latin.
+
+[00:22:53] Pretty cool. I was looking up stuff about how alcohol might be good for children. Yep. We are a small but growing political... We're standing in five constituencies this election. Quite a few people think that it's actually good for you. So, for example, do you guys know about beer in Belgium? The schools in Belgium, there was a big push to introduce beer back into schools.
+
+[00:23:18] Yeah. And they actually tested it out on a school. And they all failed their exams. But they didn't care. So the alcohol had only between 1.5 and 2.5% of alcohol in it. This was, it was set up in. one particular school where they wanted to test out, do a test run to see if it actually worked. And they found that 75% of the students that they surveyed said, oh, we really like it.
+
+[00:23:46] And unfortunately, no other school was willing to do the test. That shouldn't be the way you judge whether it's a good thing, asking the drunk pupils. Did you like that? Obviously, they really like it. Yeah, but the heroin trial at the same school is going great. Very good stuff. Did you have some stuff about riots, James? Do you want to hear some?
+
+[00:24:07] Yeah. Okay, let me think. Okay, well, you only need three people to cause a riot in the UK. And we've got four. You only need two people in Nevada to cause a riot, which is pretty good. Is there any way we can have a one-person riot? I've never found it anywhere in the world, and I have lucked. Just one other thing about beer, in 1883, there was a competition organized by the Church of England Temperance Society,
+
+[00:24:33] and they wanted to see how good beer was compared to. water. And the game was simple. Two men would cut down as much corn as possible in a field. One was only allowed to drink water and the other was only allowed to drink beer. And the winner was, beer! And Mr. Terrell, playing for beer, cleared just over 20 acres in 12 hours versus Mr. Abbey's 19 acres. So he got an extra acre and they were going to give the winner a gold medal, but he collapsed before they could have something. And so they just, and so they dragged him into a wood and anointed him with whiskey. We're going to have to move on, by the way.
+
+[00:25:13] So this is very, very closely related. I think that your rioters at public school who were rioting about beer then went on, obviously, to continue to do the same thing, because a famous riot that happened in Oxford in 1355 was the St. Scholastika Day riot. And this was when, this happened in the Swindlestock Tavern, and it was when Walter Springehoes and Roger de Chesterfield,
+
+[00:25:35] to a two university students, surprisingly enough, argue with the tavernor John Croydon about the quality of the beer there, or about the quality of the drinks in his pub. They ended up assaulting him, and in the end, 200 students started rioting. It lasted two days. 63 scholars and 30 locals were left dead,
+
+[00:25:51] but it ended up being blamed on... Sorry, it's the 14th century. It's too soon, Anna. It's too soon. intake of breath over there, come on. They're over it now. There's a lot of Chesterfield's in tonight, actually. Sorry to the Springe Hers family.
+
+[00:26:09] And so the dispute was settled and it turned out that the mayor had been arguing on the side of the townspeople, the non-students, who'd been saying this is unfair, we've been attacked for the quality of the beer we're serving by these post students. And the mayor was found in the wrong and his councils were found in the wrong. And they had to march bareheaded through the streets and pay the university a fine of one penny for every scholar killed for 470 years. And they did that until 1825 when the... the mayor decided this is getting ridiculous and the currency was changing so many times anyway, it was very hard to know what to pay and it stopped but yeah,
+
+[00:26:43] the, it's a Glasgow Day riot. Can I just say, I think we've done very well so far of hardly being rude at all in this podcast because it's been penis, penis up until now this last five episodes, so. Yes, there's been no filth whatsoever this podcast so far in all of these first three facts.
+
+[00:27:00] Should we, can we move on now? Yeah, sure. Okay, time for our final fact of the show, and that is my fact. My fact this week is that the first man to discover the clitoris was Colombo. Colombo, not the detective.
+
+[00:27:26] Well, I know, what a shame. I just love that. So this is a guy who suddenly, it was 1559, I believe he suddenly said, guess what guys, I found the clitoris, and everyone was like, we knew where it was anyway. But he was the first person to properly say this is where
+
+[00:27:41] the clitoris is. And he was an amazing physician. He was working with Michelangelo on a book that was about the anatomy, which Michelangelo was going to illustrate. We don't know what happened. We don't know how it never came out. But that would have been the most seminal book
+
+[00:27:55] of medical history. Michelangelo said, well, I like drawing the occasional penis, but this is ridiculous. Seminole seemed like an unfortunate choice of word there, didn't it? I looked on Etim online to find out the etymology of clitoris. And they're not really sure.
+
+[00:28:13] It either comes from the Greek for to shut or a key or the side of the hill or the tickler. I guess it depends on the woman, presumably. And then they go on and say, the anatomist, Matteo Colombo, who you were talking about, Professor at Padua claimed to have discovered it. He called it Amor Veneris, Velducedo, or whatever, which is the love or sweetness of Venus. But then it says it had been known earlier to women. So yeah, I think that's the problem really.
+
+[00:28:48] For you to say he discovered it. He was the first person to proclaim to have discovered it. Well, yeah, so you say there was another arrival doctor, also male, Gabriel Fallopeus, who when this guy came out with this announcement, said, I've discovered the clitoris, I've written about it in my book, and they had a proper...
+
+[00:29:07] So he tried to sue him for plagiarism, I think, for stating his idea of clitoris. Copywriting the clitoris. Yeah. Wow. There was another doctor as well. He was called Vesalius. And I think he taught Fallopio.
+
+[00:29:21] So I think the grudge match was originally between Vesalius and Colombo. And Vesalius said that he described it as a new and useless part. So presumably he was just throwing shade at the clitoris because he was angry not to have discovered it. I think was he his teacher. Or he might have been his student. But anyway, I do know that once this started coming about, one of them was dead.
+
+[00:29:41] And so one of them tried to sue the other. And it was completely useless because... The dead person. Was Philopio the guy who invented? Not invented. Discovered fallopian tubes. Philopio actually built the first woman. Yeah.
+
+[00:29:56] 16th century. Yeah, he was. So a really cool thing about Gabriel Philopius, he did find and describe the fallopian tubes. And he named them the fallopian tubes, fallopian, after his own name, Philopius, and tubes after the fact that they look like tubers, the instrument.
+
+[00:30:17] Nothing to do with the fact that they're tubes. Really? Yeah, that's a mistranslation. So the fallopian tubes are supposed to be the fallopian tubers and it's because the shape of them is like a brass tuber. If everyone, if everyone listening to this starts only calling them fallopian tubers, we can change the world.
+
+[00:30:36] How often in conversation, Andy, are you? I'll say once a day for the rest of the year. I'll say fallopian tubers, if you do. So Philopius invented the first condom as well, didn't he? It was covered in salt and had to be... Like a cocktail or something. I suppose literally like a cocktail in a way. Don't forget to put a bit of salt around the rim.
+
+[00:31:05] Sorry. It's a line for a episode of Boston I watched the other day. Oh, dear. So his condom was covered in salt and it had to be tucked under the foreskin, so it was uncomfortable so much as it was unusable. And it was to kind of stop syphilis rather than through contraception. But also it was held on by a pink ribbon so that it would appeal to women.
+
+[00:31:39] Let's be honest, guys. We know she's not going to like the main event. But we can't at least doll it up a bit. So he was doing this because there was a massive rise in STI's STD. Syphilis was the big one. This is the sentence that confused me. I didn't actually read any one. more I should have, but it said
+
+[00:32:00] he tested these condoms in 1,100 men. Now, did he test that? And there were no pregnancies, not one. Defy me to say it doesn't work. Just speaking of Philopio, there's a body part, so obviously named after him, I was looking at other body parts that are named after
+
+[00:32:20] people, and the pudendal canal is also called the Alcock Canal, or the Alcock Canal, because it was discovered by Benjamin Alcock, and it's where blood is carried to the genitalia. So Benjamin Alcock discovered the little tube that carries blood to your willie. That's so good. It's good that he didn't...
+
+[00:32:39] Because I'm always getting that in conversation. That's good to now know. Again, we were talking about names earlier for plants, and this is the same thing. So, Fallopian Tube, I was looking through just a list of people who've discovered a bit of the body and had it named out of them. There's so many bits of the body that I didn't know about, and it sounds like the most awesome fantasy novel if someone was on a trip?
+
+[00:33:02] Imagine, okay, they're passing the Pouch of Douglas, they make their way through to the crypt of Librecon. That's a place on our body, the crypt of Libricum, the sphincter of Oddy. The Zonul of Zinn.
+
+[00:33:18] Wow, the Zonial of Zin sounds like where your dad had his scissors made. I thought we'd, I knew you were going to have a look at some things named after peoples. So in 2004, there was a group of scientists who discovered a new species of cockroach that they described as dirty, ugly, smelly, and in need of a name.
+
+[00:33:42] And this cockroach extrudes urine out of its back and deposits it on his genital region for the female to eat. And they made it so that you could bid to name it after your enemy. Isn't that cool? It's such a good idea. And so whoever bid the most, I don't know who won, unfortunately,
+
+[00:34:00] because they haven't... Sure you don't. Even though when it's released it, it's Dan Shreiber next week. It's going to become perfectly clear. Well, that's such a good idea, isn't it, naming something horrible and disgusting after your enemies. Because Linnaeus, he named an ugly, insignificant weed after one of his critics.
+
+[00:34:17] It's called Sieg's Bechia. Wow. That's great. Is it true? So, Linnaeus, can you just quickly explain who he is? He is the father of taxonomy, so he came up with the idea of naming things in this Latin system that we use. Yeah, and he was obsessed with, I mean, he was really egotistical.
+
+[00:34:33] He thought he was. was the God's gift to the planet. He said, God makes Linnaeus names. Right. So is this true that he had a garden that he could tell the time of the day by because he knew plants so well that when they opened, he'd be like, oh, it's three. Yeah, I think the time of the year as well, maybe. Oh, wow. Well, I mean, I can tell the time of the year.
+
+[00:34:55] The thing I really like about this back, though, is that it is that man thing of going, I've discovered the clitoris and everyone's going, no, we knew about it. Like, we women knew about this. And just the way that medical journals used to talk about the anatomy of a woman back in the day was just so absurd. And so, it was, like, I found one in the British Medical Journal from 1878. They ran a correspondence between people
+
+[00:35:20] where they were discussing on whether menstruating women's touches, like, so a menstruating woman, if she touched a bit of ham, whether it would ruin the ham. And that was like a serious thing. They're like, maybe they shouldn't be touching ham. Was that a massive problem before that? Went straight and women constantly touching ham? I guess.
+
+[00:35:38] You get this urge. It's impossible to explain, but it's... Honestly, I'm in every butcher in London as soon as... Yeah, I mean, they were thinking some extraordinary things at the time, at the time that the clitoris was discovered. So it was still thought at the time that there was one sex and that a woman was just a less developed version of a man and that in the womb, the fetus hadn't received enough heat,
+
+[00:36:02] so hadn't been able to spurt its clitoris into a penis in time. And so a clitoris was just a less developed version of a penis, people thought. And there was a belief that Galen, who was the ancient doctor, wrote down and he had evidence of, and people still believed in the 16th century that women, if they overheated, could spontaneously grow a penis and turn into a man. Calm down, Barbara. You'll get a penis again. Gallet is really amazing
+
+[00:36:35] because he believed that they didn't know where sperm came from when he was around, and his big idea, which everyone was like, oh, that makes total sense, is that sperm was in your brain and it traveled through your spinal cord
+
+[00:36:48] and then it came out. So when you were having sex, you would be like, oh! And then you would... You would let loose. Your face there. Something we hope we never see again. So the truth is, of course,
+
+[00:37:11] the opposite to what Galen thought, is that every penis was once a clitoris, right? Oh, what? And you still have the remnants of it because when a fetus is first developing it in the wound, It starts as your genitalia starts as a clitoris before the male hormones start getting involved and growing your own penis.
+
+[00:37:28] And there's still a... I'm just going to read this out, so I don't have to actually say it myself. Anyway, there's a dark underskin and thin ridge or seam known as the raff which runs from scrotum to anus and that's the remnants of your clitoris. So... Wow!
+
+[00:37:46] Or your vagina. That's a little bit of left over. Every day is a school day. Wow. And actually, Dan and Andy, you have a vagina. Thank you. Thank you very much. Nice that you finally noticed. It's called the vagina masculina, and it is the remnant of the time as a fetus when it was neither male nor female. And the body could have grown into either sex at that time.
+
+[00:38:13] And it can be found at the opening of your prostate. And it's like a vestigial thing. Well, next time I'm around there. I'll check in, Andy, after the show. Did you like that face he made? You can see it again. We're going to have to wrap up, guys. For decency reasons.
+
+[00:38:39] Okay, that's it. That's all of our facts. Thank you so much for listening. If you want to get in contact with any of us about the things we've said over the course of this podcast, we're all on Twitter, so you can get us on there. I'm on at Shriverland, James. At Eggshaped, Andy. At Andrew Hunter M.
+
+[00:38:54] Anna. You can email podcast at QI.com. And if you want to listen to all of our previous episodes, you can go to No Such Thing as a Fish.com. Also, this is our last night of our live shows. We've done a six-week run. We are going to be doing more shows later in the year. So if you go to QI.com slash Fishmail,
+
+[00:39:12] you can find out where we're going to be. So it's a mailing list and post every episode now. I think we're going to send something out. So if you want to subscribe to that, we're on there. If you'd like your haircut and you live in Sydney, Roger Craig and Caroline Craig Schreiber are in Sydney, Australia. You can get a good deal if you use the code word, Samurai. We'll be back again with another episode next week.
+
+[00:39:38] Thanks so much, guys. See you later. Goodbye.

@@ -1,0 +1,357 @@
+# No Such Thing As A Fish - 362: No Such Thing As Batman and Robinette
+
+- Episode date: February 26, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/362-no-such-thing-as-batman-and-robinette
+- Slug: 362-no-such-thing-as-batman-and-robinette
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Schreiber, I am sitting here with Anna Tyshensky, Andrew Hunter Murray and James Harkin and once again we have gathered round the microphones with our four favourite facts from the last seven days and in a particular order, here we go. Starting with fact number one, that is Andy. My fact is, there is a scientist at Imperial College who's been studying the same bag of dust for 15 years.
+
+[00:00:48] Are you grusting him up now for being lazy, is that what's happening here? Yeah, that's right, he's clearly taking his time over it, you know. I'm not accusing him of swinging the lead outright but then again, he is analysing every single speck of dust in his bag so I can see why it's taken time. He's called Matthew Genge, he's a planetary scientist at Imperial College and he specialises in Micrometeorites which is basically grains of dust from other worlds and they land on earth all the time. He's got a bag which he collected in Antarctica in 2006, it took him five minutes to collect
+
+[00:01:21] but that was the easy bit because then he has to go through it speck by speck and just work out which specks are Micrometeorites which is the exciting ones and which ones are just dust and yeah. He's got 3,000 of them so far, 3,000 particles he's managed to pick out of this bag, yeah. That's not good going at all, wait he's been doing 15 years and he's only managed to get a 3,000. Look, he's got other stuff on, I mean he's got to eat, you know, he's probably got a bit of work on.
+
+[00:01:49] I think I could count 3,000 grains of dust within a couple of days Max. No, you couldn't. Absolutely not. It's not, okay, sorry. It's not counting to 3,000. That would assume that every single grain of dust was a winner, he has to go through everyone and analyze it. There's a lot of regular dust in there as well, so he's separating it, it's not as
+
+[00:02:08] if it's a big bag of cosmic dust, he's going well aren't, he's not the count from Sesame Street, he's analyzing every single dust particle that comes out of there. How does he work out the difference between meteorite and a non-meteorite, a meteoronglyte we've called them before? Oh yeah. Glad you asked. Well thanks Dan. Anna, do you have anything to add on this?
+
+[00:02:27] Well I was going to say you two seem so sure about how difficult this work is, and yeah when I ask you how it's done. You need a microscope, that's guaranteed, you can clearly identify what they're made of with the microscope, and I think that's how he does it. Well definitely, because it's the way that they're made isn't it, when you get a micrometeorite it's made in space and it comes down through the earth's atmosphere and it goes really, really hot, so they tend to be really, really round with like filaments coming off them and also they're made of something slightly different aren't they, because they've come from space
+
+[00:02:57] so they tend to be metallic, so there's lots of different ways that you can tell I think. Yeah you can just skim a magnet around a random surface, right? That's how Anna does it. That's how I spend my weekends. This is actually a tip that I read for if you want to find your own, and this is from this amazing guy that I'm sure you've all read about, this Norwegian jazz musician called John Larson, who doubles up as a scientist, and he basically has proven that ordinary plebs like us are able to collect our own little bits of space dust, and yeah he does
+
+[00:03:30] his with a magnet, so he went all across the roofs of a city magnetizing bits of space dust up and studying. I love this guy, his band were called Hot Club de Norvige, in fact I still call that but he's retired, and he was one of the best known jazz musicians in the whole of Norway, and then whenever he was on tour he would go around looking for micrometer, right, just collecting dust and looking for them, and then he would keep sending them to this guy Professor Genj, say here's another one, here's another one, and Genj would just be like oh for God's sake, mate, I don't tell you how to play the jazz trumpet or whatever, why
+
+[00:04:04] are you doing this? And eventually he was like okay fine, I'll look at it, and he looked at it and he realized that this guy John Larson was actually doing really good work, and between them they were the first people to ever announce that you can find micrometer rights like Hannah says just in your gutter or wherever. Well I do know as a lockdown project, Matt Parker, our buddy who's Festival of Spoken Nerd, he went up into his roofs guttering and he grabbed a bunch of stuff, and he's been doing this as well, he's been trying to find cosmic dust, yeah landing in his gutter.
+
+[00:04:33] Very dangerous, don't try it at home really, I mean they're very weak gutters aren't they, but the good thing if you can get up to them is that they have the newest dust, it's the most up to date dust you'll get, because apparently they get cleaned relatively often compared to most surfaces you're bombed into, and so that's dust that has recently landed, and if you want really fresh dust, check the weather forecast but for space, and find out when the next meteor shower is, you know the space weather forecast. Press the red button when the normal weather forecast is on, it takes you to the secret space forecast.
+
+[00:05:03] Any aliens who are watching the BBC now press the red button and we'll tell you what the weather's like in your solar system. Anyway look, look for a meteor shower on your alien weather forecast, and then wash your roof, because that'll get rid of all the old past it space dust, and then when the meteor shower comes, then, and this is another one of Rockstar John Larson's tips, he says then you'll just get the debris from that exact meteor shower, so you'll know exactly which space dust you're getting. Yeah, that is really cool. Do you know that Matt Genge might one day find a particle of a meteorite also named Matt Genge?
+
+[00:05:36] Oh yeah. Isn't that cool? How will he know though? Like it's not going to have his name on it, is it? No, I guess. Maybe it just had the M if it's so small. But you've got to be careful because M and M's have an M on them as well. I don't want to mix them up.
+
+[00:05:49] Imagine that, that'd be a great prank, wouldn't it? Just put some M and M's in his dust and he's like, oh my god, I found one of my meteorites. Well, he's a big deal in the cosmic dust world and such a big deal that there is actually an eight kilometer wide asteroid near Mars that has been named in his honor for his contributions to the science. That's amazing. One day he could, yeah, he could pull out from Matt Genge. Is it the more famous you are, the bigger the comet that would be named after you is?
+
+[00:06:14] Does it? No, I don't think so. Because then like whatever meteorite's about to hit the earth is necessarily going to be named after either the Queen or Mick Jagger, which doesn't really seem fair, does it? It'd be cool if it was a Mick Jagger. I wouldn't mind us being wiped out by Mick Jagger's meteorite. More of a flying stone than a rolling one. Nice.
+
+[00:06:33] Have you heard of Penelope Vozniakiewicz? So she is another space dust expert and she went to the Marshall Islands to find space dust because every square meter of earth gets about 10 particles a year of space dust. That's the average, right? 10 particles. I don't fancy Matt Parker's chances of finding them. You're right. It's every once a month, a square meter will get one particle and it's quite a lot in aggregate.
+
+[00:06:57] It's 30,000 tons in aggregate, but obviously that's because the world is quite big. But problem, as you guys have all been saying, is that it's really hard to find it among normal dust and there is so much dust in most places or sort of random dirt. But if you go to places with zero dust, you have a much better chance. And the Marshall Islands are a thousand miles away from the nearest land. So there isn't, you know, wind blows less random crud into the land. And so that is a really good place to find the dust. It's obviously a long way to go.
+
+[00:07:24] It's not like you're gutter, but once you get there, you have better chances. OK, and the way you find it is you get a brush and you have a single hair on that brush. It's like a paintbrush, but with one hair and some scientists even use a single eyelash. They just take one of their eyelashes and they strap it to a brush handle and they use that to pick up the micrometeorite and look at it under the microscope. How do you strap an eyelash onto anything? Yeah, so do all these micro-metheologists have no eyelashes? That's how you spot a really successful one.
+
+[00:07:55] We should say with micrometeorites is they're not the same as a small meteorite, because a micrometeorite is made of different stuff than meteorites. So meteorites we think come from asteroid belts, but it looks like micrometeorites probably come from comets because they contain little bits of water, which meteorites don't contain. And what's interesting about that is there is a hypothesis that all of the Earth's oceans came from these tiny, tiny, tiny meteorites, just millions and millions and billions and billions of them landing on Earth over years and years and years and years and years,
+
+[00:08:29] and eventually tiny bits of water becoming more water becoming more water becoming our oceans. That's incredible. Isn't that cool? That's incredible. So Matt Parker's gutter might flood the next. Well, that matter if you're listening. Over the next spot, 0.5 billion years. That must have been so boring at the early stages
+
+[00:08:49] when you're just looking into the beds of the world's oceans, waiting for it to fill up. Like, you know when you're trying to fill a paddling pool and it's taking a really long time. Yes, exactly. But it's amazing, isn't it? How much enters our planet every day? In fact, what's actually peculiar is we're not quite sure how much it is, but it could be up to 300 tons a day. It could be as little as five as well as the other calculations.
+
+[00:09:09] So it's somewhere in between, but it's an extraordinary amount. And it's really important for our planet, particularly our oceans. Not only did it, as you say, James, maybe seed the oceans altogether, but also a lot of animals, a lot of organisms, actually rely on these micrometeorites because of the iron and so on in them. They sort of feed them. They feed their nature. There is one theory that if there's anything that lives on Mars,
+
+[00:09:31] which we don't think there is, but if there's anything that lives in the soil of Mars, then they probably eat these meteorites because they contain bits of, like you say, nickel and metals and things like that. It's really wild. Just a thing about dust. Dust. There is a dust library in Ohio State University.
+
+[00:09:48] Now, all libraries are quite dusty, aren't they? That's a good point, but those ones have books, and this one has no books. It just has the pieces of dust. This was from a new scientist piece in 2011, and they were studying the different bits of dust. Because when you look at them, depending on whether it's a bit of a thread of cotton
+
+[00:10:04] or a piece of soot or carbon or whatever, they look really different on the microscope. Anyway, it only had 63 particles in 2011. So I don't know if they've got way more now. Sorry, this library has 63 grains of dust in it, but then every other library has way more. I know, but I think these are categorized, and then it's not a lending library.
+
+[00:10:25] This library has the fewest bits of dust in the whole world of all the libraries, and yet it has the goal to call itself a dust library. Is it being stalked by this Matt and Hench character, by any chance? One bit of dust a year. Do you know NASA has a problem with fake, fake space dust? Fake space dust is a thing,
+
+[00:10:47] which is space dust that's simulated. It's actually called simulant that's made on Earth for scientists to do experiments on. So if you are going to land a rover on Mars, or if you're thinking about astronauts going and living on an asteroid or whatever, then you've got to order in some fake space dust to see how that would work with that all around it.
+
+[00:11:05] And so companies manufacture this, but there's an issue, because there's lots of dodgy space dusts out there. So for instance, there are about 30 moon simulants available, but some of them are below par, some of them are based on old models, some of them are specifically for one thing, but won't work for another.
+
+[00:11:22] And this is a proper issue, and NASA's finally got this company who mines asteroids to get actual dust off asteroids, bring it back, and exactly replicate it. Oh no, you said there are 30 companies that make fake dust. That's just fake moon dust. Sorry, that is mind-blowing, isn't it? Did they make money, do you think?
+
+[00:11:40] Because I reckon there might be 31 after this podcast, and the way Andy's looking. Moon dust, by the way, was a real worry for NASA when the Apollo 11 astronauts came back, because they weren't sure if they were bringing back an alien dust form that was going to send a plague around the planet. So once Aldrin and Collins and Armstrong got back,
+
+[00:12:01] they were quarantined in a room, but they weren't on their own. They were also quarantined with a bunch of animals that were in surrounding areas. So they basically fed lunar dust that they brought back to German cockroaches, to Japanese quail, brown shrimps, oysters, shellfish, horseflies, and they were injecting it into mice,
+
+[00:12:21] and they had to watch how they reacted to the lunar dust to see if there was anything that went wrong. That's incredible. Because if anything went wrong, yeah. How close were the quail and the shrimp to the guys? Were they in the same trailer? Because they were quarantined. I assume that it must have been in surrounding areas
+
+[00:12:36] because I think they quarantined everything into one place. But everything survived except for the oysters, but they don't think it was to do with the moon dust. They think it was more to do with the fact they were being tested during mating season, and I guess it was stress levels that got to them and they died. But yeah, they were really worried about that, and they kept doing that until I think Apollo 14,
+
+[00:12:55] I believe it was. So some space dust in the future might be dead people. And so this is about how we would dispose of corpses in space if ever we produced them. And so for instance, if you're on the ISS, you sometimes have to do drills as to what happens if someone dies, where do you put them, and actually NASA hasn't really worked out how to deal
+
+[00:13:15] with dead bodies at the ISS. And so they've come up with a number of ideas and they commissioned a company to figure out how best to dispose of them. And the idea the company came up with was the body bag. That is that you put the body, once the astronaut dies, you put a body in an airtight bag and you send it out into space,
+
+[00:13:33] but on a lead from the International Space Station. So you've still got hold of it. So the whole body freezes over the course of about an hour, like putting a bottle of wine in the freezer or something. And then you reel it back in, and then the bag gets vigorously vibrated, and that makes the body shatter into a fine powder. And then you store it in a container just outside the ISS,
+
+[00:13:53] you bring it back in on re-entry, and then you can present back to the family there, to be fair, in powder form, but still body of their deceased loved one. And that's what they think they might do. And don't leave it too long like a bottle of wine if you leave a bottle of wine overnight in the freezer. That's that body explodes all over the ISS.
+
+[00:14:10] Yeah, I think the part of the idea is that they think people would find it emotionally taxing to spend six months on the ISS with a dead body just there in body form. But just if you're looking out the window and you're seeing Steve bobbing along on his lead, that's probably also emotionally taxing. Okay, it is time for fact number two, and that is Anna.
+
+[00:14:41] My fact this week is that every year, power line repair workers have to pass a test where they rescue a 12 stone dummy from the top of a telegraph pole. Wow. Being a line worker is a lot more fun than I imagined turns out. So this is people who, they're like outdoor electricians
+
+[00:14:58] so that the guys who work on telegraph lines, electricity lines, cables, pylons, all those things. And I was reading in Kent online, an article about Rod Lurie, who's been a power line worker for 56 years. And he said, yep, every year, you have to do the pole rescue test. So he's in his seventies now, still does it.
+
+[00:15:18] You climb a 15 meter pole as a 12 stone dummy sitting at the top, and you have to carry it down. And as if you're up there with your coworker and they get an electric shock or they have a heart attack or they fall asleep and you have to carry them down. So it's to prepare you for that. Yeah, makes sense.
+
+[00:15:34] What if they're more than 12 stone? I mean, 12 stone is not that much. I mean, do you have to strip them nude to take them down to get them as light as possible? Yes. The problem is all those meteorites landing on them all the time. It gets heavier and heavier, doesn't it?
+
+[00:15:48] Old Matt Gens would be there for 40 years. Matt Gens is a really eminent scientist. I don't like the way he's become a byword for hanging around doing things like that. Anna, did you read the name of the dummy? I think it's the right dummy that I'm thinking about because this is a US one as well, which is called rescue Randy.
+
+[00:16:05] Yeah, that's it. That's no way the English one is called rescue Randy. He's like a whole Barbie. He's like a Ken doll. There are all these different versions. Yeah. And accessories. You can get accessories there as well.
+
+[00:16:17] Exactly. Oh, you can put earrings on him and a hat. You can buy a shredded rubber to stuff inside him. You can buy special overalls. And he's got this whole family. So there's rescue Jennifer. There's rugged Randy. And there's trauma Randy.
+
+[00:16:31] Rugged Randy. It's not like the particularly attractive co-worker you have, just in case he gets into trouble. You have to carry him down, but you have to hide your enormous erection as you're doing so because he's so fit. But which pole do I climb? Anna, did you read about trauma Randy though?
+
+[00:16:47] No, what does trauma Randy do? Trauma Randy is what I call you, Randy. Randy, Andy, for me. Trauma Randy comes with four bleeding wounds. Wow. I know, but I think the top of the range is casualty care rescue Randy who costs 19 grand, which is a lot.
+
+[00:17:07] He holds four litres of blood and you can do actual surgery on him. And he has a, I'm quoting here, a manual foot operated pumping system which allows three wounds to bleed simultaneously. These guys, they must be used for other things. They can't be a company that just sells these dolls just to go up telephone.
+
+[00:17:25] It is. James, there are 30 companies which make fake dolls. We don't know the world anymore. Telegraph poles. Yeah, there's loads of them in America, isn't there? Which is why I kind of think that I can accept that this company is selling all of these things because in America, like obviously all the places
+
+[00:17:41] are quite spread out compared to Britain, for instance, there's a lot more of them. But they weren't even supposed to be there, the first ones, because Samuel Moss, who invented the Telegraph, he wanted to show that he could get a message from Washington DC to Baltimore, which is about 40 miles or something like that.
+
+[00:17:57] But he wanted to go under the ground with his Telegraph wires. He did that, but it didn't work and they had to kind of really quickly think, oh shit, what are we going to do? And they erected all these poles to put the Telegraphs across. And then when he did his famous,
+
+[00:18:10] like what have God brought Telegraph message that he did. That was going through the air. That was going through the air, yeah. I guess it's not obvious, yeah. Under the ground is a much better place for them. Well, that's what some people think for sure. They couldn't sell them in France, you know, the Telegraph system that Moss invented
+
+[00:18:24] because they already had an optical Telegraph, which is like where you go on top of the hill and you have a big sort of stick, which does a semaphore and someone's on another hill who can see it and they pass that message onto someone else, onto someone else, onto someone else. And that was really massive in France at the time. It was invented by a French chap called Claude Chap.
+
+[00:18:42] He was French. And until the 1850s, it was the main way of sending messages in France. And it was so good and so useful that you couldn't sell anything better to them. You could, but they decided that they wouldn't accept it. So, right, we've already brought the technology to its absolute peak.
+
+[00:19:01] You haven't guys, you're waving flags from mountaintop. BT Openreach, they have a Telegraph Poll Training Academy, which is so cool. It's just a big field in Peterborough, which is full of dozens of nine-meter poles. And that's the sort of dojo where their engineers train. They seem like a vaguely fun company, actually, Openreach. This is based on some of their PR materials.
+
+[00:19:25] So, they released an article where they said that their 500 strong team of engineers in 2020 climbed more than 11.5 million meters close to a round trip from London to the North Pole. No, Anna, hang on. They're comparing apples and oranges there because walking to the North Pole is obviously very hard, but it's not as hard as climbing 10 million meters up
+
+[00:19:45] into the air, which would be really hard. So, I read that article and I thought, let's compare apples with apples. And so, I reckon that the Openreach engineers every two weeks do the equivalent of climbing to the ISS. That's really good. Yeah. Wow. That's pretty cool.
+
+[00:20:00] But that's between them, right? So, there's only one person who gets there. There's one poor person on the very bottom to hold their weight. You know, we were saying about whether sometimes you want to transmit these signals above ground and sometimes underground. And obviously, today it's preferable to do it underground.
+
+[00:20:16] And in fact, it always has been, but it's just that it's really much more expensive to install wires underground than in poles. But if you go to New York, well, if you're in Manhattan, at least, you don't see a single electricity pole or a single radio transmission pole. And that is because in the 1880s,
+
+[00:20:32] when Edison was working on electric transmission and New York was kind of his test case, New York became this huge mass of wires and it looks insane. You can't see the sky. It's just, you know, thousands of wires above your head. And there was a blizzard in 1888, this great blizzard of New York. And the whole city went into blackout
+
+[00:20:50] because it brought down the wires. And the mayor in 1889, who came in after that, who was Mayor Hugh Grant, in a charmingly stammering speech. Bumbling. I really think, should we be getting rid of these telegrams? That's what he did.
+
+[00:21:12] And he taught them into it and they brought them all down. And so now it doesn't have any. They're all underground. Thanks to Hugh Grant. Nice. In bits of Africa and South Africa, there is a height restriction on how low you can have your electricity poles.
+
+[00:21:27] Do you know why that is? Well, do you mean like they have to be a certain height so that you don't, so that people, well, actually, I've just heard Anna say giraffes and that sounds good. That is correct. Oh, Mayor, so that was my answer. I was going to come up with a bit of whimsie there,
+
+[00:21:43] but never mind. Sorry. Wow. So for giraffes, yeah, they got to make sure that they don't get tangled up because that did happen a few times in a few of the countries. So a restriction of height was put into it.
+
+[00:21:54] So yeah, the lines will always be taller than the tallest giraffe. The lions will be taller. The lines, the power lines. Oh, lines, sorry. That's a frightening dystopia. The world's exactly the same, except all the lions are bigger than giraffes.
+
+[00:22:07] I suppose in Africa you have lions men, but also lions men, and you don't want to get that mixed up these. In the old days, you could calculate how fast your train was going between Birmingham and Derby because the telegraph poles were exactly the same distance apart.
+
+[00:22:21] Oh my God. I just imagine you'd be sat next to you on a train now, aren't they? Jesus Christ. They were 352 feet apart each, exactly, and you could count how many you passed in a minute, and that would help you calculate the speed of the train. All we've proved for this conversation
+
+[00:22:36] is how unpleasant it would have been to sit with you on a train when the period was, when was it? Anytime in history. We've all been there, and it's not nice. Look, Andy, I think I know somewhere that you'll fit in, and that is the telegraph pole appreciation society. And I've bought your membership, it's free.
+
+[00:22:55] It was founded in 1997. I spent a long time on their website. Their motto is very catchy. If it's tall, wooden, sticky upy, and got wires coming out of the top, then we appreciate it. Did you see the Pole of the Month section, Andy? Oh, I had a little look at Pole of the Month.
+
+[00:23:13] Yeah, did you appreciate Pole of the Month? I loved it. November's Pole of the Month was particularly beautiful, and they really like to give a good description of the Pole of the Month. So it was November 2020. This sumptuous right-angled double stack of three cross-arm pole,
+
+[00:23:26] I would hazard a guess, is on the road between Bidford and Elmscott. And then they have beautiful photos, and they have people who send in all their poles. You know, there's a Pylon Appreciation Society as well. What? Yeah, you didn't find it, Anna? You should check it out.
+
+[00:23:41] It's run by a lady called Flash Bristo. She lives in East London, and she's one of the Pylon spotters of the UK. And she's got 530 photos, 36 different countries. Absolutely obsessed with it. And there is the famous Pink Pylon, which has actually its own appreciation website, pinkpylon.co.uk.
+
+[00:24:01] Don't go on that website if you're listening to this. Yeah, Rugged Randy's Pink Pylon. I think I've read that. Okay, actually. We're so appreciative in the UK. This is what I've learned in this podcast. Pylons? On to the real meat.
+
+[00:24:17] Pylons. Pylons. Oh, my goodness. Well. Don't call them pylons. Don't call them pylons. Why not? Don't call them pylons,
+
+[00:24:24] because they're not called pylons. I read this on the Science Museum website. It was a guy who works in the industry who says major faux pas. So a pylon in engineering is a structure that holds something that's suspended from another structure to it. So the pylons on a pylon are actually the bits of metal that hold the wires up.
+
+[00:24:42] A pylon itself is actually called a steel lattice tower. So if you really want to impress your friends next time, you see one say, that's a nice steel lattice tower, isn't it? Because the name actually comes from ancient Egypt, doesn't it? Pylon. So when they first started going up, they were just called whatever lattice structure
+
+[00:24:59] you called the manner. But they just found Tutankhamun and a few other mummies quite recently and Egyptology was really, really fashionable. And so they were looking for a name and they just thought, oh, if you go to a pyramid, they have these obelisk shaped towers
+
+[00:25:14] on either side of the doors. And they thought, well, what a great thing to name it after. They're called pylons. Let's call them pylons. But I'd really like the Egyptology connection because I think in ancient Egypt, they were a gateway to the sun.
+
+[00:25:26] Well, that's maybe what the word means. And that's kind of what an electrical pylon is. You know, you're harnessing power and it's kind of like a gateway to the sun. You get light and, you know, okay, everyone's going with that. Cool. It was such an absurd statement. I think we just chose to go.
+
+[00:25:43] I just feel, Andy, I've been picking on you a little bit too much in this section. And I feel like I can give you a few passes now. Thank you. And I outright just believe that. So, yeah. So, just have a few things on electricity poles, right?
+
+[00:25:58] They can be used. And this is a tip for anyone who gets stuck out in the wild and they're thinking, I have no way of sending an SOS to anyone. They can be used for you to be tracked down. So there was a guy in Saskatchewan who was rescued after having disappeared for a few days by noticing that there were power poles around him.
+
+[00:26:15] So he had an ax on him because he got lost in his boat and he chopped four of them down. By chopping four of them down. Hang on. There's just a slight break in logic. He had an ax on him because he was lost in his boat. He had an R on him or he had a sail on him. Or a life jacket.
+
+[00:26:34] He was out in the wild. He was obviously doing some chopping at certain points. He was in his boat and he got lost. He got lost in a storm. So he was no idea where he was and he found these four poles. So he chopped them down and then the local power source people
+
+[00:26:48] were alerted to these poles because it took out an entire town. The surrounding communities were all, all their electricity was knocked down. So hundreds of people died. Yeah. Dan, I thought you were going to say, because he had his ax on him,
+
+[00:27:02] he chopped down the poles and he arranged them in the ground into the shape of the word help. He only chopped down four though. So he's got H and the first part of an E. It just looks like he's saying hi. Then the helicopter comes down and just goes, hi, that flies up again.
+
+[00:27:23] Okay. It is time for fact number three and that is James. Okay. My fact this week is that the most expensive cow in the UK is called posh spice. Rude. It's just the name of the cow.
+
+[00:27:37] No aspersions on anyone else who has that name. It's really hard to Google because you keep finding stories about Victoria Beckham saying, I'm not a moody cow. Well, this is an organism who's proud to be a cow. I don't know what her mood is like, but she was sold very recently
+
+[00:27:55] for 250,000 guineas, which is 265,000 pounds. But they still insist these farmers on saying that everything was sold in guineas. I don't know why they do that. That really confused me. Are they accepting pounds or is guine the currency that they get paid in?
+
+[00:28:11] It's in pounds. A guine is a pound in a shilling. So it's just like, it's another way of saying 265,000 pounds. It's really weird. It's effing confusing. You read this and you think, am I in the 18th century again?
+
+[00:28:24] Why? Is this news come through a time tunnel? It's so bizarre. Yeah, but what's interesting about this cow is that actually in the past and still at the moment, but it's usually the bulls as in the male cows
+
+[00:28:35] that get sold for the most amount of money. But recently due to breakthroughs in IVF methods, a lot of cows are starting to get them sold for a lot more because due to IVF, they can have lots more children. Whereas normally you would just get your bull and it would be able to have
+
+[00:28:49] as many youngsters as you like. But now that's also true to a slightly lesser extent, but still true of the female cows. And so yeah, they've sold it for just over 200 grand. And the reason that you buy it is because it's such a good cow for breeding that even the embryos of posh spice
+
+[00:29:07] will be able to sell for several thousands of pounds. If you're just tuning in at this point, then go back maybe a couple of minutes to know what I'm talking about when I say that. She's not that hard. Especially if you're posh spice. She's got a fashion line.
+
+[00:29:21] And the reason this cow is called posh spice is because her mother was called ginger spice. And they never acknowledged that in the band, did they? They never acknowledged that they were actually mother and daughter. I think we should not keep making hilarious mistakes and getting this cow and this single mixed up. But she's a limousin heifer.
+
+[00:29:39] And I didn't know that limousin is where you get the best cows in France. It's a place. It's in the foothills of the Massif Saint-Trail. And that's where the limousine come from. Yeah. And that's where limousines come from. I think they were named after a carriage, weren't they? And the carriage was named after maybe a monk
+
+[00:29:56] because it had a hood over the top. These monks would have hoods. I think they lived in limousine. I think that that's very cool. That's a cool link. Remember that? So I think that this might currently be the most expensive cow in the whole world.
+
+[00:30:09] But certainly historically it isn't because there have been cows in the past that have been sold for over a million dollars in the US. In fact, in the 1980s there was kind of a fashion for buying cows for more than a million dollars. You know, sorry, what's that in Guineas? These newfangled Americans, honestly. There was a tax loot poll that came in in the 80s
+
+[00:30:33] that meant if you bought some really expensive cows, you wouldn't have to pay as much tax. And so you had Hollywoodic stars and Wall Street bankers just buying these cows. They wouldn't keep them in like Hollywood homes. They would own a part of them and they would live in the farm, if you know what I mean. It's like an investment.
+
+[00:30:50] What? They weren't like on the red carpet for all the premiers or everything. Ryan Pitts showed up with his legs down. David Beckham's brought the wrong posh by. He always confuses them. And then there was one called Missy who was a bit after that.
+
+[00:31:07] Maybe in the late 80s, early 90s, I can't remember exactly when it was, but she sold for well over a million dollars. But the people who bought her, they'd already had $3.23 million worth of pre-signed contracts for the embryos of this cow. So you bought it knowing that assuming nothing goes wrong, you'll be able to definitely recoup
+
+[00:31:27] two, three, four times that amount of money that you paid for it. Wow. I read about Missy. There was a kind of slightly weird press release about what a great cow Missy was. It said she's extremely tall, long and stylish. She walks on great feet and legs
+
+[00:31:41] and has a great mammary system. It does sound like it's been copy pasted from page three, doesn't it? And posh by, of course, they did describe her as well. She has a larger loin depth reduced fat cover and a greater meat tenderness. And again, if you're just tuning in at this point, please do go to the start of this fact.
+
+[00:32:02] James, who are these people you imagine who are just tuning in? It's not a radio show. You're right. A classic listener. Let's start 20 minutes into the show. I love their third and fourth facts, but I've always hated the first two.
+
+[00:32:19] I was looking into cows that were sold for lots of money. So I found a really odd one that I just want to quickly mention. And this was a cow that wasn't actually particularly special. It was a cow that was designated to be slaughtered. It was a cow called Minimoo. And Minimoo was a cow that had a very odd pattern on the side that looked exactly like Minnie Mouse's head. So the little three, the two ears and the head.
+
+[00:32:44] So the niece of the owners of this cow wrote to Disney and said, this cow is due for slaughter, but we think you might like it. And they saw her and went, yes. So they bought it for an undisclosed amount. We don't actually know. And Minnie was taken over to the Magic Kingdom where she was in the petting farm.
+
+[00:33:00] She was later moved to another petting zoo that Disney owns. And she was really big. And she kind of, for Disney, sparked off a really big moment where people started sending in pictures of their pigs and dogs that had little patterns on them. Some people had potatoes that had a little Minnie Mouse or Mickey Mouse looking thing on it. Really?
+
+[00:33:18] Yeah. And so they were inundated. That must have really turned around the fortune of the Disney company. Don't sound like a big moment. You can just imagine Minnie as she was being driven away, turning around and giving her two middle fingers up at the cow she was leaving behind, can't you?
+
+[00:33:33] Because she did live then until 2001. She's insanely old then. Oh, she would have outlived all the other cows she was with, right? By 15 years, yeah. The most expensive pig ever sold was a Yorkshire boar which went for $270,000 in 2014. And it was raised by the Western Illinois University School
+
+[00:33:54] of Agriculture Professor Mark Hoagie and his family. And the name Hoagie comes from an old Anglo-Saxon word, meaning someone who keeps pigs. Oh, that's so good. That's where we get hog, presumably. Yeah, exactly. And herd as well. Hogs and herds all come from that old word.
+
+[00:34:13] Chickens can be very expensive. Another expensive farm animal. Are we going to guess? Oh, no. I don't actually have a specific price, so I would be able to tell you. I was more going to talk about the chicken bubble of the 1840s. Do you guys know about this?
+
+[00:34:25] No. This is when chickens suddenly became incredibly sought after. It's when, I think, in the West, we suddenly discovered loads of Asian breeds of chicken and imported them. Queen Victoria got obsessed with chickens. She built an aviary. She used to spend hours sitting in there
+
+[00:34:40] with her chickens talking to them. She used to send individual eggs to her royal relatives all over Europe. And so this got really fashionable to collect chickens and their price went through the roof. It's so weird, isn't it? All these things that go in bubbles have just become really expensive for no reason,
+
+[00:34:56] like tulips and chickens. It's almost worth just having one of every random thing in your house just in case. One cosmic dust particle. You never know. One bit kind. And that would have worked. That would have worked.
+
+[00:35:13] So did she partly start the poultry craze then, Anna? She started the poultry craze. Yeah, very much via it. Are people used to hire bodyguards to protect their chicken coops? But then suddenly, bubble burst, as these bubbles do. And the good thing about that is that there was this enormous number
+
+[00:35:31] of very exotic weirdo chickens, which now no one could tell for anything. And so Darwin bought them all up. And this was 1855, and he bought them and he interbred and interbred and interbred them. And this was how he developed loads of his theories about interbreeding. And this is how he showed that actually
+
+[00:35:46] they still had a shared ancestor. Wow. And they went, it's not handy. That's really good. You saw these bubbles. You know, it's worth it. I looked up the term because I was thinking cows are now turning into cash cows,
+
+[00:35:59] like with this new IVF program that you were mentioning, James. So I just thought cash cow, where does that come from? Do we know who came up with that? And turns out we do. It was a guy called Peter F. Drucker. And Peter F. Drucker was sort of the father of management thinking.
+
+[00:36:13] He wrote lots of books where he talked about how to run companies and how to do management and so on. And one of his words, which he came up with in the 1960s, was cash cow. And he's a guy who sort of, he wrote so many books and he wrote a couple of novels. But I guess to the public, he's kind of dropped out of, he was a big name back in the day.
+
+[00:36:32] We don't really know him now. Except for in Japan where he is quite a big name because in 2009, a novel was written which was called What if the Female Manager of a High School Baseball Team Read Drucker's Management? And it was massive. It sold 1.8 million copies in its first year. It was the year's best-selling novel in Japan.
+
+[00:36:54] And it has since been turned into a live-action film. It's been turned into an anime. He's sort of a household name there in Japan at the moment. And yeah, that's the guy who came up with the term cash cow. There's another famous cow, or bull rather. It happened in February this year. A Texan beef company started giving out free semen from one of their cows.
+
+[00:37:15] Because, and James will know about this. Why? Because James knows about the Super Bowl. This year, the Tampa Bay Buccaneers. Yeah, they won the Super Bowl. They did with Tom Brady. Tom Brady plays for them. And the Texan beef company owns a bull named Tom Brady.
+
+[00:37:32] And to celebrate the win of the team which contained the player after whom their cow is named, or bull rather, they gave out free orders of semen to anyone who had requested it. Okay. Wow. Wow. Who was it to anyone? Could I call up and say I'd like some semen?
+
+[00:37:51] I don't think it could have been to anyone. I think you must have to say it's going to a good cow. I don't think they'd just send you some bull semen in the post. Well, you could say it's going to a good cow and how are they going to check? Very good point. Just send a photo of a random cow and say it's my cow. That's going to be Tom Brady's semen for me.
+
+[00:38:09] Can I just say for anyone who's just tuned in, Andy says Tom Brady's semen going to the start of the fact. Okay. It is time for our final fact of the show. And that is my fact. My fact this week is that the person who has acted in more Batman movie reboots than anyone else is also the third in line to be president of the United States. This is just amazing.
+
+[00:38:39] The person who's acted in more Batman movie reboots gets to be the third in line. That is weird, isn't it? But what do we know? So it goes. The succession of line into the presidency is Kamala Harris, Nancy Pelosi, and then Batman Uber fan Patrick Leahy.
+
+[00:38:53] He has other titles, doesn't he? He's not just... He does have other titles. Yeah, yeah. He's an amazing senator. He is a massive Batman fan, and he has appeared in five different Batman movies, but he's appeared in Batman movies that have stretched across the whole
+
+[00:39:09] modern cinematic history of Batman. So his first cameo was in Batman Forever, which was the movie that starred Val Kilmer, and then he was in Batman and Robin when it was George Clooney, and then he went into the Christopher Nolan series, where he starred in two of the movies, The Dark Knight and The Dark Archivist. Sorry, you've got to stop saying starred in.
+
+[00:39:29] I haven't seen any of these movies, so maybe he does. He gets menaced by the Joker, the Heath Ledger Joker. I mean, it's pretty... That's high values green time. It's not just he's a guy in the background or anything. So he has lines, does he have lines? He does. He has a line. He says to Heath Ledger's Joker,
+
+[00:39:42] we're not intimidated by thugs. And then he replies, you know, you remind me of my father. And he said it was really scary, because I don't know if you remember, but Heath Ledger really went method on the acting of the movie there, and he had a knife in his hand,
+
+[00:39:54] and it was pressed up against the senator's face. And he thought, this guy's pretty unhinged. So he was a bit scared, but he loves it. He loves doing it. This guy, Lehi, Patrick Lehi, he's not only a Batman superfan, but it's incredibly sweet, the story, because he started reading the Batman comics
+
+[00:40:10] when he was a little boy, and he's roughly the same age as Batman. Batman's just about 80 now, and he's a bit younger than that. But all of his fees from the films, or as he calls them, his bat earnings, they go to the library where he first read the stories
+
+[00:40:26] when he was a little boy himself, and he financed a children's wing of the library. Okay, fine. I'll let him off his bat earnings if he's given it all to children's charities. He worked with DC Comics, because they were making a Batman comic about landmines,
+
+[00:40:41] and that was used as part of a campaign when there was a bill coming up to ban landmines, and he distributed it among the other senators. So, yeah. He said that he decided not to be in the reboot, which with Robert Pattinson, which I think is coming out maybe this year, and he explained that the reason is that
+
+[00:40:59] he just doesn't have time with COVID and appropriation bills and the like, although I'm not totally clear that anyone asked him to be in it. There was never. He was requested. Well, and the last one he was in, he was blown up.
+
+[00:41:12] It was in Batman versus Superman. So, it's possible he's not in a new reboot because they finally killed off his character, because he does play himself in a couple of the movies. Does he sometimes not play himself? Yeah, he sometimes plays a different side. So, how do you explain in this Batman universe that you've got someone who looks just like a senator
+
+[00:41:31] who's in a different movie? Batman says, he actually has a line at one point. He says, oh, it's funny, you look just like that other senator I met who's called Patrick Leahy, but you're not him, are you? No. Is he?
+
+[00:41:41] I mean, he's pretty cool. Do you think they might as well bump him up a couple of his places in the mind of succession? No, you can't do that. You can't have Batman in charge of the White House. And the reason I say that is because I was looking into seeing if Joe Biden had been in any movies.
+
+[00:41:57] He hasn't really, but what I did find out, which I didn't know and a lot of people might do, is that his middle name is Robinette. Isn't that cool? Robinette. Joe Robinette. Yeah, Joe Robinette's Biden. So it's Robin as in the sidekick of Batman
+
+[00:42:14] with E-Double-T-E at the end. And apparently, the Robinette came over to America with Lafayette during the late 18th century, and they never went home. And so he is descended from there. And it was his mother's maiden name, and he took it as a middle name. Wow.
+
+[00:42:31] Do you know the Robinettes? They actually only came over to America because Lafayette said he might need a rhyme for him in musical Hamilton. So Batman is apparently the Batman that I like the most is the one that everyone hates I learned. And I guess it's just the one that you've seen in your childhood when you were a kid,
+
+[00:42:49] which I appreciate as a six-year-old. I probably wasn't the best judge. But do you know it's Batman forever, and people blame its badness on McDonald's. So apparently it's all McDonald's fault that it's not as good. And this is because so the first two Batman's, which were Batman and Batman Returns,
+
+[00:43:04] were Tim Burton making them. And they are good. And I have seen them, so they are excellent. Tune in next week for another movie review of Anatochinsky. Both good films, very dark, very violent, and McDonald's decided to promote them in their happy meals because they were like,
+
+[00:43:25] Batman's this long-running TV series, very happy-clappy and fun. And so they signed this big old contract saying we'll put all these characters in our happy meals. The films came out, and the films were going to be like 18 adult rated. They had to really fight and cut loads of scenes to get them down to PG-13.
+
+[00:43:39] Now, McDonald's happy meals are targeting exclusively the one to 10 age range. So they were promoting a film that they were all too young to see. And basically they were appalled. The films came out, and McDonald's went to Burton and the filmmakers and said, look like the penguin.
+
+[00:43:53] What's this gross black stuff coming out of his mouth? We can't promote any of this. And after that, there was this controversy about how they were too dark and too depressing. And Burton was given the boot. And then who was brought in to direct? So I think it was... Joel Schumacher.
+
+[00:44:08] Joel Schumacher who got a lot of stick but basically had to make them more child-friendly. Not too friendly to include nipples. That was the main talking point of the film with George Clooney, is that there are bat nipples on the front of his bat costume. Yes.
+
+[00:44:19] But the reason for that is that I read about this because I haven't watched any of these movies. Despite them all being good. Now I know they're good. I might watch them. In the original Batman's, the suits were made by a guy called Bob Ringwood. But when they made the new suits,
+
+[00:44:38] the techniques of being able to mold rubber were way, way more advanced. And so they wanted to show off how advanced they were. So they decided the way they were going to do that was to make them more anatomical. And so how do you make a chest more anatomical? Apart from putting nipples on it. Put on the nibs.
+
+[00:44:55] And that was... They were made by Jose Fernandez or Jose Fernandez. I can't remember how to say his first name. But he is the guy also who did the helmets for that punk. That punk? Yeah. He does those helmets. He's done loads of stuff for Hollywood over the years.
+
+[00:45:10] And he also designed the spacesuits for SpaceX. Yeah. Do you remember Elon Musk wanted some sexy spacesuits? And they were invented by Jose Fernandez. I'm not sure if they have nipples on them or not because I haven't seen them. But I think it's really unfair to slam the bat nipples because bats are mammals.
+
+[00:45:28] Yeah. The point is that they have nipples. And so Batman accurately, he'd have loads of nipples. Yes. Also, are they angry there's not enough nipples? He should have them in his crotch, like where don't bats have them in their armpits? Yeah, crotch is an armpit.
+
+[00:45:42] They're two very different things though, Andy. I don't know which one. I must see my tailor. I always wonder why you wore your trousers like that. So Batman first appeared in 1939, March 30th. And as you were saying, Andy, very close to the birth of Patrick Leahy, who was born a year and a day later. And it was created by Bob Kane and Bill Finger.
+
+[00:46:08] Bob Kane being the person who's taken all the credit for it. Bill Finger sort of in the background. No one really knows much about him, but he lost all the credit. But they both went to the same high school in the Bronx in New York, which was called DeWitt Clinton High School. And another student who went to that school was Stan Lee, the creator of Spider-Man and so on.
+
+[00:46:28] Around the same time, was it? There's about a six-year difference. Oh, so they might have been there at the same time. Yeah, it's quite possible. Wow, that's amazing. Bill Finger, create Batman as you say, and he was completely uncredited until after he died when he was almost reluctantly put in some of the memoirs.
+
+[00:46:44] But he came up with the name Bruce Wayne, I think. Apparently it was him who decided to do that. And Bruce, based on Robert Bruce, Robert the Bruce, as you may incorrectly know him, as in Scottish patriot King Rorya. And that was because they thought he should have noble blood. And he, his ashes were scattered in the shape of a bat. Wow, they could have done it in the shape of a finger as well,
+
+[00:47:07] couldn't they, if they wanted. Much easier. But yeah, no one knew when he was alive, so. That was kind of his secret identity, you could say. You could say, the real Batman. Guys, do you know how many Batman's Batman weighs? I'd say one, and I don't understand the question. I do, I'm trying to work it out.
+
+[00:47:32] I'm going to say 16. It's 29. Anna, what are you talking about, sorry. So Batman is a unit of measurement, and it's an old Ottoman unit of weight in Ottoman and kind of the steppes area. You still get the Batman region in Turkey, as the Batman River. And yeah, it's actually been, in fact,
+
+[00:47:51] Dan might have been working it out based on one of the different weights it had, because throughout time, it's been cited as being, you know, various different weights. But in 1599 in English, it was seven pounds and five ounces. And the comic books say that Batman weighs 210 pounds, so I believe he weighs a prox 29 Batman's. In case you were wondering.
+
+[00:48:12] Okay. In Batman weight terms, would you be able to rescue him from the top of a telegraph pole if you were a trained open-reach engineer? He must be heavier than 12 stone, is what Anna was saying. Yeah, you definitely have to get him naked. I mean, if Batman can't get down from a telegraph pole, something's gone really wrong.
+
+[00:48:31] Oh, just speaking of other uses of what Batman could mean. So in the Batman movies and in the whole series, generally, Batman obviously has his trusty butler, Alfred, with him, who's a key part of every single movie and comic and so on. But interestingly, during wars, like World War One, for example, you used to have a Batman by your side who was your butler. The Batman in war was the Alfred of the lieutenants of war. And the idea was, yeah, you would be assigned a Batman
+
+[00:48:59] who would go and they would make sure that you had your personal equipment. They worked as a valet. If you had to go into combat, they acted as a bodyguard, so I think they would sort of stand in front and make sure. There's no way. In a war, that is a waste of mud power if every soldier has to have a bodyguard.
+
+[00:49:18] Well, what it said is acting as the officer's bodyguard in combat. So I assume that's what it is that you sort of, yeah, they would dig the officer's foxholes. And sometimes, and this was particularly for the British, once the war was over, if you had a Batman during war, they would continue on as your butler in real life. They would be hired by you and go on. That is so insane.
+
+[00:49:37] I try to find some notable Batman's. Peter Yustanov was a Batman, the famous actor Peter Yustanov. And he was a Batman to David Niven during the war. So the word bat means it's like a bag that a horse carries. That's why your Batman would be the person who put all the stuff, like kept all your stuff together. And so you would have a Batman and he would also have a bat horse. And the bat horse would be the thing that carried the bags on it.
+
+[00:50:03] And the bat horse might carry the guy's bat money, which is what you would pay a Batman. So in war, you might have a Batman with a bat horse containing his bat money. That's so cool. There was Batwoman, of course, or there is Batwoman. Batwoman first appeared in the DC Comics as a love interest for Batman to dispel suggestions that he was homosexual. Because he kept kind of, I think this is a meme in Batman
+
+[00:50:29] that he keeps almost getting married and then never quite gets married. And anyway, there was a lot of kind of suggestions that he was homosexual. And in the Senate at the time, this was in the 50s, there was lots of worries that comic books were causing problems with children causing juvenile delinquency and various things like that. And so they brought Batwoman in as kind of a way to show that Batman was not gay. But then Batwoman has since openly come out. She is now gay since 2006.
+
+[00:50:58] She was introduced as a lesbian of Jewish descent, who found love interest in former Gotham police detective René Montoya. In your face, the 1950s. Yes. It's quite funny saying, well, oh, we're terribly worried Batman might be gay. So let's give him a normal relationship with a woman who is also obsessed with dressing up as a bat. Is that family values?
+
+[00:51:22] Just quickly, I was watching a YouTube clip from a DC official site. And on it, they say this thing, which I find hilarious, because they haven't put this in the movies, but Batman is always signaled to by Commissioner Gordon, by the bat signal, the famous bat signal, goes into the sky. Now, apparently, according to DC, the reality behind it is, is that Commissioner Gordon or any police officer is not allowed to turn that on. Because by doing that, that would be qualifying an official endorsement
+
+[00:51:50] of the city's government for this vigilante that was going around. He's not allowed to do it. So apparently the police office has a civilian on site at all times, so that as soon as Gordon needs to switch it on, he goes, you get up here, and they have to go up and switch it on on his behalf, so that he's had no hand in the matter. He's still giving an instruction. Yeah, exactly. That is not even a loophole.
+
+[00:52:10] Yeah. What you need is someone to be in the office, and you say, gosh, I wish someone would call Batman, but really subtle, so it's deniable. Yeah, yeah. And then you go out and say, like, I'm going out for lunch. I'll be back in a few minutes. I'm going to have my lunch on the roof. Just one more thing that was sent into the podcast email, actually.
+
+[00:52:30] About a year ago, a couple of years ago, fan called Daniel Braga, who I believe is Brazilian, and he informed me that in 2019, police arrested in one go Batman, Spider-Man, and Green Lantern. So was it like people on a stag do who were all dressed like this, or was it, I don't know? It actually wasn't. It's this really interesting thing I didn't know they had,
+
+[00:52:51] which is in Brazilian towns, they have fun trains, which is people are paid to dress up on these fun trains. That's any train when you're sat next to Andy. Absolutely. As long as there's a telegraph pole within 302 feet, and we're between Birmingham and Derby. They were arrested for assault, but they were let off because they were assaulting a man
+
+[00:53:10] who kept banging on about telegraph. No, they were. So there are these people who are paid to dress up as superheroes and like knock off some cheap versions of famous kids' characters to entertain children. And a police officer ended up arresting three of them, who were dressed up as Spider-Man, Green Lantern, and Batman. And they were put in prison for vandalism
+
+[00:53:31] and possession of loads of firearms and stuff like that. But the person who arrested them was a female police officer called Thanos. No way! Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us
+
+[00:53:51] about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shrybland, James. At James Harkin. Andy. At Andrew Hunter M. And Anna.
+
+[00:54:02] You can email podcast.qi.com. Yep, or you can go to our group account, which is at no such thing, or our website. No such thing as a fish.com. All of our previous episodes are up there. Why not check it out? In the meantime, we'll be back again next week. We'll see you then.
+
+[00:54:15] Goodbye. you

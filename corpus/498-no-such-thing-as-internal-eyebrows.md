@@ -1,0 +1,393 @@
+# No Such Thing As A Fish - 498: No Such Thing As Internal Eyebrows
+
+- Episode date: September 28, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/498-no-such-thing-as-internal-eyebrows
+- Slug: 498-no-such-thing-as-internal-eyebrows
+
+## Transcript
+
+[00:00:00] Hi everyone and welcome to this week's episode of No Such Things A Fish, which is one of my favorite episodes that we did in the Soho Theatre in our summer run. No effects to our other guests who are all amazing as well, but I really really love this episode with Hannah Fry. Now you'll probably remember Hannah, she was on No Such Things A Fish earlier this year. She's a mathematician, she's written a load of books that are definitely worth getting if you're even slightly and in fact whether you're interested in maths or not, she makes a subject come alive. But the very important thing I also have to tell you is that Hannah has a new podcast, it's called Uncharted and would you believe it, it is a podcast about graphs. You know those famously visual things in a very unvisual medium, but like everything that Hannah is involved in, of course it's absolutely brilliant,
+
+[00:00:53] it's not just her reading out numbers or saying a p-line, downing line, curly line, all that kind of stuff, it's actually stories about human behavior, it's about discovery, it's just an absolutely brilliant podcast, I very very highly recommend you tune into that. Like I say, cold uncharted and it's wherever you get your podcasts. Anyway, very much hope you enjoy this show as much as we enjoyed making it. All there is to say is on with the podcast! Podcast Hello and welcome to another episode of no such thing as a fish a weekly podcast this week coming to you live from the Soho Theatre! CHEERING AND APPLAUSE My name is Dan Schreiber. I'm sitting here with James Harkin, Andrew Hunter Murray, and Hannah Fry.
+
+[00:01:53] And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Andy. My fact is that if this conversation had one extra person, it would be substantially less funny. Oh. LAUGHTER And which extra person do you think you don't?
+
+[00:02:17] Well, there's... No, anyone. That's a thing. Yeah, so... Oh, really? Any extra person, even if it was Alan Carr, like even someone as funny as that. Even Alan Carr. Right. Wouldn't make this conversation funny. The original chaty man.
+
+[00:02:32] Yeah. That's interesting. You said, just think of someone funny. And he was a funny guy. He's a funny guy. Well, he wouldn't be if he was here. So, that's, or he would, but we wouldn't. Basically, this is a theory about the maximum number of people
+
+[00:02:46] who can have a good conversation. So it's about when you're out, you're with friends or family or whoever, and it's a theory by Robin Dunbar, who's an anthropologist, and he's an evolutionary psychologist. He's best known for the idea of Dunbar's number, which is that most people have a social circle of about 150 people. And he has been
+
+[00:03:06] working on this idea. And he says, if five people are in a conversation, or if there are four people in a fifth joins, the amount of laughter drops dramatically. Right. Wow. And obviously this is a slightly artificial... What? It's very quiet when no one lives, isn't it? But basically, it's... If one of those... one of those 200 people in a conversation, yeah, if a fifth person joins a group, either it becomes two conversations almost immediately, or you get this one person starts monologuing a bit like now. And that, that also doesn't lead to love.
+
+[00:03:36] It's really interesting, because he said that like four is the right number, but if you have a dinner party, then it's kind of okay to have eight people. You kind of want to stay in those four, eight, 12. And that may be think the last supper, 13. LAUGHTER Is that what was happening? Judas was just sat there, couldn't make any conversation.
+
+[00:03:54] He's like, fuck this, I'm going. Oh, do you think he made it like a real killer joke and no one laughed? Okay, fuck this, I'm killing that guy. Does that mean, so six is wrong, right? You don't want six people. I get funny for six. Less good. I get, yeah, you might.
+
+[00:04:07] How many are in Monty Python again? Uh-oh, yep, true. Yeah, I just have strong opinions about Dunbar. Oh, OK. Oh, OK. Oh, OK. There we go. Well, maybe strongest, too strongly stasis,
+
+[00:04:19] but I'm raising an internal eyebrow for this, I think. Great, make it an external eyebrow. You can't raise it. Yeah. Break, make it an external eyebrow. No, I'm raising. Yeah. Wait, wait, tell us more about your internal eyebrows. LAUGHTER Just outwardly I look calm inwardly. Yeah. I'm quizzical. But yeah, come on.
+
+[00:04:37] OK, the 150 number that he's famous for. So the way that they got that was that they looked at the social groups of primates, and then they looked at the size of brains, measured the size of brains of the average human and the size of brains of primates, and then they just had loads of dots on a graph, and they just drew a line through it and were like, 150. Okay. Which is, I would say not how you do science. So is he, but is he respected in the field, or is he someone that's sort of, it's like, okay, you've called it a bit too early here.
+
+[00:05:05] So I don't know that much about this four, four, five laughter thing. Yeah. Tell me more about their research methods. Oh, wow, that was so bloody hell. That was incredible. Oh, God. I think they were observing people in the field. So they would observe groups of conversations happening.
+
+[00:05:21] Yeah. I can't remember if they recruited them or if they were. No, they did it just they they had like a party happening. They were kind of just scientists with a clip of the downpour. Maybe that's when people weren't laughing, so there's some creepy things. The other thing they did is that they looked at lots of movies and lots of different things to see.
+
+[00:05:38] When you've got a movie, how many people are in those conversations? So they looked at Sex in the City, love actually, Pride and Prejudice, League of their Own, which apparently is a movie. I thought there was a sports paddle show. how many people are in those conversations. So they looked at Sex in the City, love actually, pride and prejudice, League of their Own, which apparently is a movie. I thought there was a sports paddle show. They were talking about, but apparently it's a movie. Tom Hanks, Gina Davis.
+
+[00:05:53] Sure. Yeah. My turn. Freddie Flint's off if we're just saving people. My turn. But they noticed that in those lots of people, it was like just groups of four that were chatted all the time. And they looked at Shake Spear as well. And they found that in Shake Spear, it was never just groups of father were chastised all the time and they looked at Shakespeare as well and they found that in Shakespeare,
+
+[00:06:06] it was never usually more than four. And one thing that they also found is, if you're gossiping about someone, then actually it's better to be in a group of three. And the reason being that you only have the brain space to be in a group of four people, but if you're gossiping, then that person is the fourth person.
+
+[00:06:20] Oh, that's cool. Again, that's what the study says, whether that's true or not. Oh, I like that. And the idea was that if you... So all the four of us were talking and we're also trying to imagine what the other three are hearing, but we're also, if we're listening, we're also trying to understand what the other person's saying. Yeah.
+
+[00:06:38] And it's harder to do that with five people than with four. Yeah, so great. So if you had the sentence, James knew that Andy thought that Dan wanted ice cream. That's kind of a sentence that's relatively easy to understand. Yeah, of course, yeah. If you were to say that Hannah believed that James knew that Andy thought that Dan wanted ice cream, it suddenly becomes way more difficult to understand. Oh, my God.
+
+[00:07:00] Do you think you did, though? I could just ask that without, I didn't understand that. Yeah, I didn't understand that at all. Any of it? No. And the other thing I suggested was that, and I think this is where the research may be a bit stretched, is that SAS Patrol's and surgical teams do best when they're a four members of the team,
+
+[00:07:18] because that makes the communications easier, although that's separate to the laughter thing, as in, I don't know, the SAS patrols laugh a lot. That would be me as an SAS guy heading into a building for the terrorists. Do you know what? There's actually four of you already, so I'm just going to sit this one up, guys. It'll go better, trust me. I was reading a bit about conversations, generally.
+
+[00:07:36] Hi. And there's this amazing book watching the English by Kate Fox, which she sort of walked around all of the UK, just ease dropping in on conversations. And one of the bits of research that she discovered was that 94% of British respondents admit to having conversed about the weather in the past six hours. While 38% said that they've had talked about it in the past 60 minutes.
+
+[00:07:59] So she worked out that that means that almost any moment in this country, at least a third of the population, is either talking about the weather or has already done so, and it or is about to. I know you mean, but it depends when she did her study, because if it was just after it snowed, for instance, and everyone's gonna be talking about the weather, right? If it's in the middle of the night,
+
+[00:08:20] I know this weather in the night. But there is less. There is less. I think you can't say that. But she makes that point that in places like Finland, they just never talk about the weather. If it's winter time and you're snowed in so much that tunnels are actually dug to get you to the shops, what you actually do is just sit with someone just in silence.
+
+[00:08:38] Because you're like, we don't need to talk about the weather. We know what the fucking weather is like. It's, yeah. The rules of Codding's Cape Foxx are our rules about talking about the weather. The first rule is you always have to introduce the topic as a question, like, rain in again. Ah! Yeah, yeah, yeah. That's a very Aussie way of talking as well.
+
+[00:08:57] It is, yeah, like everything should be like that. The inflection just kind of gives you an opportunity for it to either be a question or a statement and the respondent can decide what it was. Yeah, yeah. Right? Right? It's in it cricket again, for instance. Yeah. And the other thing is that when people say that to you, you're not supposed to ever disagree.
+
+[00:09:15] So if someone ever does a question about the weather to you, you should, it's really rude to say, no, it's not raining. I do that all the time. I do that a genuinely, I do that all the time. I'm not saying, oh. It's drizzling. It's spitting. Yeah, it's not raining. I do that constantly. That's so weird, because you are the most English person I know as well.
+
+[00:09:34] Well, I have a strict categorisation system in my head, but also I pride myself on not giving up in the face of rain. So I will say, sort of, yeah. There was one really amazing study where they, you know, if you're looking at the weather forecast, and it says, oh, tomorrow, there's a 40% chance of rain. They weren't actually asked people what they thought that that meant.
+
+[00:09:51] Oh, yeah. And actually, for me, it seems like, OK, well, you know, you replay the day 10 times and four times it will rain and six times it won't run. That sort of seems quite obvious. But when they did this survey, loads of people were like, OK, it means that 40% of the land is that's you know so it's like London 40% of London will be covered in
+
+[00:10:08] rain yeah as an alternative and but then the most common response was that like it would be 40% rain so it's in like if a hundred is maximum rain I feel like it's more like 25% rain that's amazing. There is this thing about when conversations end and whether you want them to or not. Oh yeah. So there's a psychologist, he's a researcher
+
+[00:10:35] called Adam Mastroyani. And he was at a black type party. And he looked around the room and he thought, I wonder how many of these people are in conversations. They just don't want to be in any more. Because it's hard to judge, isn't it? The end of a conversation, you know, you'll have a conversation of one person
+
+[00:10:48] will try to disengage. You're still talking, Andy. Yeah. Yeah. Oh, God, it's happening. And so he and his colleagues, they surveyed hundreds of people. They put them on a room with each other. They got to talk and said, when the conversation ends,
+
+[00:11:02] you can leave. Yeah. But they didn't say, I don't think they said, this is when the conversation will end. The conversation lengths were 50% longer than most people wanted them to be in general. And although 10% of people ended the conversations, even though they wanted to keep talking,
+
+[00:11:17] but they were worried about being boring. Everyone was having a nice time, and they just sort of thought, oh, I better. So basically, 98% of people don't think the conversations are the right length. OK. Yeah. Yeah.
+
+[00:11:29] Does that mean if I'm chatting to someone in a party, I should stop early or I should carry on going? It depends what they're doing. Like, what are they doing? Oh, there are signals out there. If they're on it, yeah. OK. Are they looking at you?
+
+[00:11:45] Are they sitting down? Are they slowly backing away? Yeah. Yawning. Do you hear Hannah Yuvrin books? And you've written about famous characters from history who we do know some of the voices of, and some of that we don't say like,
+
+[00:12:00] I don't know, an old scientist, like Robert Boyle, or something like that. Do you hear their voices in your head when you're writing their dialogue? You're copying out on the book. Not for Boyle, but there is one person I do do this for. I'm not sure is that appropriate. Vonga is doing anyway. Sorry, it's a guy called Francis Goulton.
+
+[00:12:21] Oh yeah, Goulton, yeah, yeah. So, Francis Goulton, he was like, I mean, an amazing statistician. Like loads of the work that we use now for stats comes from his thing. Regression to the mean, that was his idea. Loads of sub-up population stuff. The thing is that Francis Goulton was so intent on collecting statistics about the human body and about humans, because he was a massive eugenicist.
+
+[00:12:43] Yes, yeah. And like total white supremacists, like really just a not nice guy. The thing about him though, is that he was from Birmingham. Right. You have to imagine. Yeah, yeah. He's talking about white supremacy in a bromly accent. You know what I mean?
+
+[00:13:01] That's the not one I do. OK, but no other. That's really good. We've mentioned him a few times. So one of the eugenicest things he did was he did a beauty map of Britain, a knee, where he went round, sort of, with a little clicker going, oh, hot, hot, hot. Oh, she's really nice.
+
+[00:13:15] Yeah, yeah, she's really fit. The word he has though for, like, ugly is horrible. I can't remember these, it's like repugnant. Oh, wow, okay. The category that he had. Oh my god. Yeah, I can't remember exactly what the word was, but it was something like that. And he had a hat that he designed that had a flap on it
+
+[00:13:32] because he thought he was so clever, his head was overheating. So he was like, Wow. Better let some air in. Wow. Yeah, that's great. Yeah, interesting go. You haven't sewed me about dumbbells number, by the way.
+
+[00:13:42] The 150 one. Neither of them. I'm not even the four. No. But aren't you enjoying, by the way. The 150 one. Neither of them. I'm not even the four. No. But aren't you enjoying, certainly, you're not enjoying this conversation, baby. You really wish Alan Car was here to learn things a bit. No, well, I think there's room for a fifth person.
+
+[00:13:55] There are some really nice things about friendships, though, about connections. So especially when you look at the network that's created, so there was like a lot of work in this in the 90s, something called the friendship paradox, especially, and it really came into being when social networks came back and you could actually test this out empirically. So the friendship paradox basically says that your friends are more popular than you. Okay, and that may be... I've heard it before, I hear it again.
+
+[00:14:20] But this actually, this works for everyone, I think. Oh, wow. It looks for like 98% of people is that their friends are more popular than them. So how is that possible? Yes. So it's possible in the same way that almost everybody on Earth has an above average number of arms.
+
+[00:14:38] Yes. A little kid through. Yeah. Right. But not by much. Not by much, exactly, not by much. But the thing about, so if you look at like Twitter networks, for example, you get some people who have like,
+
+[00:14:49] I don't know, 100 million followers, right? Whereas the vast majority of us have like, you know, very few. And so when you kind of look at the mean, like the average number of friends across everybody, almost everyone is below that threshold because there are some people who really do the numbers. But there's some really interesting things that happen when you look at how this plays out kind of in person, so not on a social network. There's a brilliant story about this company in
+
+[00:15:12] Hungary, and this company were having all of these problems. They had these three different offices, and they were having to downsize. They were like, going to make loads of people redundant. So all these horrible rumors flying around, like vicious stuff about how many people are going to lose their jobs. And so the company decided to try and map out the friendship networks inside the company to see what was going on with these rumors. So they asked everybody, oh, give me the name of one person who you go to. If you want advice or information, give me the name of one person. And then they're like, map the network. And so in the same way as with social networks, there was like, most people had hardly any friends, like one or two. But there was one person
+
+[00:15:50] who had like a huge number of connections. And it turned out this person was the safety officer for the company. So people like, he's got to be the CEO, surely. The director of the managers, no one cared what they had to say, basically. But this safety officer, so he was like, going around to all of these different places, training people on, you know, the rules, and just bringing all the juicy gossip with him as he went. So do they sack him? Well, that was the option, right? You can get rid of him and then cure the problem. Also, no more safety in the company.
+
+[00:16:23] Yeah, no more. Yeah, no more. What they actually did, which I think is much more clever, is they gave him a pay rise and then used him to spread out the secrets that they wanted. Oh. That's a stasie way of doing it, isn't it? Why me? Oh my god. We need to move on, by the way, to our next factory.
+
+[00:16:39] OK, just a quick thing on going back to conversations. Yeah. So there was some research done at the University of Rocklaf in Poland, and they looked at loads of different people from different countries, and they saw them in conversation, and they worked out the distance where people felt they were comfortable talking to someone. So how far away you are from someone when you're talking? They found that in the UK, the preferred distance of your talk into a stranger is 99 centimeters, which is about the wingspan of a tawny owl.
+
+[00:17:09] Oh, hmm. I was struggling to envisage 99 centimeters, but now you put it in owl terminology. So if you're from Argentina or Norway, they're the closest. They like to hang out more close to each other when they're talking. They like to be about 40 centimetres between them.
+
+[00:17:27] That's the wingspan of an Arctic turn. LAUGHTER And if you're in Romania, then they're the furthest away. If you're speaking to someone in Romania, they want to be 140 centimetres between you. Wow. And that's the same as a wingspan of a great skewer. Ah.
+
+[00:17:44] It's just... It's just facts. It's just facts, like, if you want to know... The skewer of the bird, not the skewer there. Obviously. Because that would be a great skewer. Imagine the cabab you can fit on that. OK.
+
+[00:17:57] No, no, no, no, no. What? Can I very quickly tell you one last thing? One last thing, one last thing. We can start it, and I'll let you know when I want it to finish. Oh, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no he spent about a year writing responses to other people's messages, and he got nothing back. You know, you get sort of points and scores and things like that. He got absolutely nothing back. Anyway, it turned out he discovered after a year that he had mistakenly been blocked
+
+[00:18:33] and nobody else on Reddit could see anything here written. Or a year. And he'd been answering incredibly specific questions. He answered someone's cry for help, and he got absolutely no responses to it. He thought, wow, okay. That was I that thing with the Horniman Museum, the in South London. They weren't getting emails for ages. They had no idea why. And it turned out that a new system had put on their computer system,
+
+[00:18:57] and it was to filter out any rude words. And the... LAUGHTER Mistaken for Horniman, you know? Mistaken for horny man, you know, that's not covered through. We need to move on to fact number two, and that is Hannah. Oh, that's me. Okay. Fake diamond rings are better than real ones.
+
+[00:19:21] Fact. Well, my wife is in tonight, and there's something fake diamond rings are better than real diamonds. I think they're better. I think they're better. I think they're better. I'm a dangerous subjective person. Oh, it's rather dumb bars on the phone. There's something to say about this. Objectively. Objectively.
+
+[00:19:37] OK, so here's the thing, right? You want diamonds, right? Why do people like diamonds? They're sparkly, sure. They're rare, sure. They're expensive. They've got great thermal conductivity. LAUGHTER And that last one I accept, they do have the highest thermal conductivity of any of my degree. The thing is, on every metric, there's something else that does better. So, sparkliness, there's another sort of substitute diamond called Mossermite.
+
+[00:20:03] Right? Much sparklier. Interesting. Interesting. OK. You get a greater display of the spectral colours. Expensive, right? There is other things that are more expensive. Also, they artificially inflate the prices. Bit kind.
+
+[00:20:14] Bit. Yeah. Exactly. And then sort of big, you can grow, grow them in the lab. That makes better. You know, big ones. But the thing is, right, so the real reason why I think that the other ones, the fake ones are better,
+
+[00:20:27] is because there's this sort of diamond substitute called Sercon, right? And there's like a lab-grown version of it called Cubic Zakona that you get in like Elizabeth Duke. And the thing about Sercon. And that's a shop. Oh, yeah, it's a, sorry, that's a, do you not buy your jewelry in August?
+
+[00:20:43] LAUGHTER Darling, you're probably, that's... Do you not buy your jewelry in August? LAUGHTER LAUGHTER Darling, you're probably wondering why I've brought you here today? Well, great news. Open the catalogue. No, a cheaper page, please. LAUGHTER Elizabeth Duke, go on, sorry.
+
+[00:20:59] All right, so I want you to imagine a sort of 1999, Elizabeth Duke ring, OK? OK. I think it's better. So, Zerkom, yeah. Mae'n gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaithio'r gwaith direction and they're formed in such a way that they can trap atoms of uranium inside them, like literally uranium inside a jail. And the thing about uranium is that it decays, decays interled, but it does it at a very predictable rate. So if you find a lump of zircon in the ground and you open it up and you can't, you see that there's a certain number of uranium and a certain number of lead inside, you know how old that's zircon is, right? Cool.
+
+[00:21:46] So there was some zircon that was created at the beginning of the earth, right? 4.4 billion years ago. And that is how we know how old the earth is, is because they found this really, really old zircon in these hills in Australia, and then went through, counted up, how many lead after themselves there were,
+
+[00:22:03] how many uranium, and that's how we know how the earth is. And that, I think, is much better than it's sparkly rock. Can you get that one in Argos? So I think you can get them in some joy shots. It's like that they both contain the Cubic's Econin and Zerkon. But the other thing is, like, the gold band, so you can't make gold on earth.
+
+[00:22:22] There's no way to make gold. We just have what we have. We just have what we have. We just have what we have. It was forged in stars when they were colliding together. So I just, I love the idea that you go in that 1999 ring. It's like... And that's where your engagement ring came in at 20 quid. Yeah.
+
+[00:22:36] No, you're right. You've got a ring that is the birth of the solar system. It's so cool. And so the origins of her, which is extraordinary. Yeah. When did diamonds come about then? Later. Well, they are slow down professor. But like, zircon is the mineral, right?
+
+[00:22:57] And the metal is zirconium. And zirconium is not well known, and it's used in the nuclear industry and for a few other things. And braces for your teeth. tennis rackets, interestingly. Some tennis rackets have a bit. Anyway, but zircons are almost the indestructible, aren't they? And that's why they're just finding
+
+[00:23:15] these incredibly ancient ones. So they can be washed down a whole river and they won't chip and they can be heated to 1,600 degrees Celsius and nothing happens to them. And so that's why they're the pieces of evidence for 4.4 billion years ago. We know they still exist in exactly the same form. I don't really change.
+
+[00:23:33] Yeah. There are some diamonds. So most diamonds are made in the Earth, in the middle of the Earth, right, in these things called Kimberlite Pipes. It's due to the pressure of the Earth and they're created. But there are some diamonds, like the largest one ever found, which is called Sergio. It was found.
+
+[00:23:48] Sorry, Sergio. That is a cool name. That is a cool name, yes. That is a cool name, yes. That's a cool name, is it? It was found in Brazil, named after a guy called Sergio Borges de Cavalio who found it. It's basically not like the diamonds you have, like on your rings and stuff like that. It's what's called a carbonado, but it is a diamond, and we're not sure how it came about.
+
+[00:24:09] You find them in only two places, really, on Earth in Brazil and the Central African Republic. Weird. They're not near each other. The thing is, they used to be near each other before all of the continents came about. So we think they might have landed on Earth in this area before the continent split. And if that is true, then they might have been on Earth in this area before the consonant split. And if that is true, then they might have been made in supernovas. Whoa! Which they're pretty cool. But they're not very shiny.
+
+[00:24:32] You can use them in like drill bits and stuff like that, but you can't really put them onto rings. It's no good. A lot of diameters use for drill parts, right? Oh, yeah. Most of it is found in construction sites. Because it's their thermal conductivity. Yeah, is that what it is.
+
+[00:24:45] Well, partly, yeah, because you want to like, wake away the heat if you're drilling. So it gets hot as you're drilling, and then it's... Yeah, but it like, conducts it away. And it conducts it away. Wow. Because Robert Boyle, we mentioned him before, didn't he do a thing where he used to... He attempted to basically turn diamonds into hot water bottles.
+
+[00:25:02] At least that was one experiment that he'd... We raised your internal eyebrows at me. Well, they're not being... This is a real thing. Would they not be more like cold water bottles if they're conducting heat away from you? So, yeah, maybe it's a cold water bottle because he was trying to, okay, excellently raised, I'd rather...
+
+[00:25:19] He tried to, yeah, cool down a warm bit of his body and bed at night, he thought that that would be a way of... With diamonds, that's very expensive way to do it, cool down a warm bit of his body and bed at night. He thought that that would be a way of... With time. Yeah, very expensive way to do it, isn't it? It is, yeah. You can get a cheaper hot water bottle or a cold water bottle than Argos, I suppose.
+
+[00:25:33] So this is just... This is not a funny thing at all. It's just... I find it interesting is that the reason Earth is able to support life is partly because of plate tectonics, which no other planet we've observed has. Right. That's because we haven't got very good details on many other planets, partly. But basically, Earth has plates which move and they fracture and they collide,
+
+[00:25:51] and it means that bits of the inside can get to the outside in the form of magma or whatever it is. And that means that you have oxygen forming, or it means you have carbon dioxide in the atmosphere. You know, it's the relationship that makes it all possible for... Frost will be here thinking about that. Wow. That is very cool. Yeah. Have the three of you heard of Lil Uzi Vert?
+
+[00:26:12] The rapper. Yeah. Is it really a rapper? Yeah. Oh. Why is he a musician? Yeah. Yeah.
+
+[00:26:18] So he has a diamond, which supposedly is worth $24 million. Oh, yeah. So worried about it being burgled from him that he had it implanted into his forehead. What? Yeah, and if you look at photos online, it's there. No, honestly, it's there.
+
+[00:26:31] Think it's about Little Lucy Vertis. He thinks his brain is so big that this just cools it down and happens like that. But he... How big is it? If you see a photo, it's quite large and it's quite embedded as well in his forehead. Come on.
+
+[00:26:46] I want to know the mechanics of it. I don't know because it was almost stolen from him at a gig when he went crazy. When he went crowdsurban. Because he made a massive target in the middle of his forehead. Put it in your... It's so... OK, just a brief tangent about Diamond Theft.
+
+[00:26:59] Because... OK, right, the biggest diamond ever found was called the Columnon II, Columnon Saccharite. It was dug up in 1905 in South Africa, and it was given to the Royal Family, the British Royal Family. When you say given, we're talking about theft. Well, yeah, right. It ended up in the hands of the British Royal Family.
+
+[00:27:16] And it was huge, right? It was 3,000 carrots. It's a biggie. And it was so huge, basically. They had to find a way of getting it to the Royal Family. So what they did was... They could have just left it. Well, they could have just handled them on a key. I know, but they didn't do any of these things. I can't...
+
+[00:27:32] Yeah, we could all be leaving a more sensible life now, but we are where we are. So they got arm guards, and they had a huge great escort for it, and they put it in a big old sealed casket, put the casket on a train to Cape Town, loaded it onto a Royal Navy ship in a massive safe, huge security everywhere, ship sales back to the UK. That was a decoy. The real journey of the diamond was put in place in Princess Anne's head.
+
+[00:27:59] LAUGHTER Yeah. LAUGHTER LAUGHTER Philip had to smuggle the dinner for that. LAUGHTER The real thing is amazing. It was put in a normal box and just put by registered post. No. Really? I know. Doesn't that say a lot about the postal system?
+
+[00:28:24] They just sent a three-shelling stamp on this diamond. I just put it in a box and posted it. Wow. They always ask you if there's any if you're worth anything in there. Oh, yeah. That's the right thing. Yeah, yeah, yeah. This one, they, yeah.
+
+[00:28:36] Are they fubbed? Isn't that an incredible decoy? That's really amazing. Yeah, it's only your friend who'd done that then. Well, yeah, and they took it out of his head during the crowdsurfing. He managed to recover it. Imagine if Charles had to have that put in his head
+
+[00:28:48] as part of the coronation. Would have live and up, and otherwise dull ceremony. Yeah. And now, the surgery approaches. Penny Maldon is using the sword to gently incise. One way that you can make diamonds, these are nano diamonds, and a guy called Wu Zhongzhou from St Andrews University has noticed that if you burn a candle, then the carbon, which is burning there makes these nano-dylons about 1.5 million of them every second are made.
+
+[00:29:28] And obviously they're really, really tiny. There's not much you could do about it. He wonders that maybe in the future we might be able to somehow get them to coalesce and make new diamonds, whether we will or not, I don't know. But I was reading about nano-diamonds and there's an amazing thing that they've just done. They've made tiny thermometers using nano-diamonds
+
+[00:29:44] and they use quantum mechanics to be able to tell the temperature It's an amazing thing that they've just done. They've made tiny thermometers using nanodimons, and they use quantum mechanics to be able to tell the temperature of something. And they managed to work out that a nematode worm had a fever. Wow! Using one of these tiny diamonds, isn't that amazing? And then did they give it another tiny diamond as a hot water bottle? And so, go to bed, take the day off. It's just incredible. It's like so amazing.
+
+[00:30:07] The opposite, though. I think it was no wasey, but it's around the boil time, where they were just obsessed with burning stuff. Right. So I think this is like the whole turning gold and all the alchemist stuff. And then they decided to burn a diamond, right, to see what would happen. And they successfully managed to make it disappear into thin air,
+
+[00:30:26] because basically it just went to carbon dioxide. Nothing else. Sort of destroyed it. But I can't know that you would do that. Burn a diamond, next to a tree, the tree takes in all the carbon, and then basically you've got yourself a diamond tree, same carbon. Wow. Lovely.
+
+[00:30:42] So you know, swallowing diamonds, is that a thing? Well, yes. Is it to smuggle them? It's, well, there are a few different reasons that people have swallowing them over the years, basically. Sometimes it's to steal them. There was a rash of cases in the last few years of people just doing a quick switcheroo and a diamond shop
+
+[00:31:01] and then swallowing the diamond and running away. Oh, wow. OK, well, being caught and you know, they very rarely get away with it, basically. But one thing happened to an American woman called Jenna Evans in 2019. She had just got engaged, very exciting, had a diamond ring, very exciting. Then in her sleep, she took the ring off and swallowed it. Because she was having a bad dream about, she said she was on a train and there were some bad guys on the train and she had to keep the ring safe. Oh, no. So in her sleep, she was on a train and there was some bad guys on the train
+
+[00:31:25] and she had to keep the ring safe. Oh no. So in her sleep she took the ring off and swallowed it. Wow. And did they retrieve it? They retrieved it. Yeah. They went to hospital, they x-rayed her.
+
+[00:31:34] It's a very clear x-ray of the ring. Oh, that's the kind of diamond ring. And they said it would be unwise to let this proceed. And did she excrete it? No, I think they went in and... Oh, did they? I think they went in and got it, because they said it would be unwise to... It would be unsafe to let that...
+
+[00:31:49] Right, it's a... My damage is a ring. My damage... Yeah. It is time for fact number three, and that is James. OK, my fact this week is that in 16th century Italy, duels often took place where the chosen weapon was very hard maths questions.
+
+[00:32:17] LAUGHTER That is so good. Isn't that amazing? Yeah. And it is totally true. So this was quite often it was people who were university professors, professional mathematicians, you might say, wasn't much job security in those days. You kind of had to kind of get jobs where you could. If you were in a job, you might not stay there for long. So one way to get your name out there was to publicly challenge a more famous mathematician
+
+[00:32:43] to a duel. And you would go to a church or to a town hall square or something like that, and you'd have like 30 maths problems, and they'd have 30 maths problems. And there might be a crowd, maybe a load of people there. And then you just sit there like the count down numbers around, just try to answer as many as you can. And 30 is such a big number. It's such a... It's like an example of this. Well, they knew even bigger numbers than that, Dan. It sounds incredible. It is incredible. And you couldn't set something that you couldn't answer your side.
+
+[00:33:17] Precisely, yeah, because you wouldn't know if they got it right or wrong. So they challenge you. They say, this can't be done. And so quite often it would happen if a new person had worked out a new bit of maths You would challenge someone knowing that there's no way they could work this out because you just worked it out yourself And it would prove that you'd worked out and use a bit of maths But hang on so you're only allowed to challenge someone a question which you know the answer to yourself Presumably that mean that when you turn up at the deal you've basically already won. No, you've got there 30 questions So you said sent each other. Sorry.
+
+[00:33:45] Yeah. So Jules, those two people. I thought both of you were sitting on the same exam paper and you'd have some works out on the answers. And yeah, OK. But also, though, there's no algebra at this point. There's no sort of nice neat equations. I really do.
+
+[00:33:58] They're set in words. So there's horrendous math problems, which is like, Jim and Joe have three. Well, it's like the worst version of that sort of thing. It's like a train leaves Leo's station at this time. Did they ever use examples where the answer, unfortunately, had to be like, your mama is a, you know, like a... Oh, I see.
+
+[00:34:17] Yeah, yeah, yeah. And the answer is, my son is a dick. Like, you know, that kind of thing. If those existed, then they haven't been kept in history. Did they start with a few easy ones at the beginning just to get the crowd going, like, what is six times nine? And then have to build up from there. You know what?
+
+[00:34:34] I bet they did. I don't know. How do you might know my way? I think they were vicious. I think they, like, went to town on each other. But it was cubic, because a lot. So an equation where you have a number cubed, which were really valuable because, I mean, there's no calculators, it was Cubics a lot, like so, an equation where you have like a number cubed, which were really valuable because, I mean,
+
+[00:34:47] there's no calculators, right, at this point. And so, if you wanted to calculate interest rates, then you need these, the solutions to these equations. But there was, there was a few like very particularly famous characters, so there's a guy called Cardano, who had like a long standing feud with another attorney guy called Tataglia. And Tataglia got very annoyed with Cardano because he accused him of publishing an equation that Tataglia had known the answer to and so
+
+[00:35:19] challenged him to a duel. And I think Cardano refused, didn't he? Well, I think Cardano, he kind of refused, but he had a second, like one of his students and said, well, one of my students could do it. Because Cardano was really famous at the time. He was a famous astrologer. A bit later, he actually got put in prison for doing a horoscope of Jesus Christ. So he was like, you know, he was really, really famous,
+
+[00:35:40] and he thought it wasn't really worth him. Sorry, I really reacted like that was a crazily controversial thing to do now. LAUGHTER OK, yeah, yeah. In the time, it was... Yeah. It was pretty amazing. The other thing as well as...
+
+[00:35:53] It was high stakes for these things, because if you lost, your reputation was damaged, you were... you were seen as someone who was not capable of doing great math, and it kind of just ruined you. If you won, there might be a monetary prize, or alternatively, the loser had to buy you dinner 30 times for every single one that you got right, yeah, in a local tavern. They'd have to foot the bill of no matter what you ordered. Takley are actually famous at the time for he'd done a few of these challenges and wouldn't
+
+[00:36:22] them all. And he'd turned down the dinners. They'd offered him these 30 banquets, and he'd said, no, I don't need that. I'm happy to show that. I'm an amazing mathematician. That's pretty cool. It's pretty amazing. Cardano's second, though, Ferraro, isn't it? He was like, fine.
+
+[00:36:38] OK, you know what? I'll see. I'll do your 30 questions. But by this time, he'd worked out how to solve any equation to the power of four. Right? Which is that? Whoa, hang on, they'll have a lot. So he just said all 30 questions as to the power four, and Tathalia had no idea how to solve them, so he got beaten. It's so, it must, we're talking about it like it's, it can't have been very exciting to watch,
+
+[00:37:00] but actually, I did a renewal where you have, like, your opponent might have invented a new kind of gun. Yeah. It's stressful. It's like that. You opponent might have invented a new kind of gun. Yeah. It's stressful. It's like that. You have invented a new kind of gun, and it's tomorrow, and, you know, I think they should bring it back. I think the next two potential prime minister candidates, they should give him a blank body, one ender, Danny Singh.
+
+[00:37:18] So... I would love to see Liz Truss try to solve a few decoquation. That's not the best maths drill though. The best story about a maths drill is about galwar. Do you know about galwar? Of the better cigarettes. Yeah. OK, so he's this really young French mathematician and he was absolutely amazing.
+
+[00:37:38] He was looking at quintics, so equations to the power of five. Level up, you're quoting. Wow. Anyway, he was absolutely amazing, but he was also a proper flirt. So he was having an affair with this soldier's fiance. And like the soldier came in and was like, how dare you? So Gau, I was like, fine, I'll challenge you to a duel.
+
+[00:38:00] But he really wanted to finish his theory, like his math theory. So he went home that night. He's like 19 his math theory. So he went home that night. He's like 19, 20 years old. He went home that night, and he stayed up all night trying to finish Galwar theory. And like, writing on this piece of paper, and we still have the piece of paper. And all the way through, it's like this unbelievable
+
+[00:38:16] mathematics that kind of still stands today as like the father of group theory. And you finished, right? You finished the theory, right? And he keeps going, oh, like, my fem, my fem, right? And it's like, oh, in the morning I will die. And then he goes off and he loses in the duel. Oh.
+
+[00:38:30] Yeah. And honestly, the math is really good. He wasn't bluffing. We'll fill this bit in later after duel, promise it works. Because that thing was with Gawa, he was part of the revolution, right? And he thought that if he died in the duel, there would be a big funeral. And all of his mates would use that funeral
+
+[00:38:51] as a chance to kind of rise up against the government. So sure enough, he did die in the duel and everyone kind of got to the funeral and everyone was very sad and I'm like, when are we going to do it? When are we going to do it? And then halfway through, news was passed around that one of Napoleon's marshals had just died.
+
+[00:39:07] And so next week, there was gonna be an even bigger funeral. And so they went, oh, fuck it, let's do it then. Oh. Oh. Did they do it? Did the French Revolution happen? Yeah. That's what. LAUGHTER
+
+[00:39:21] It's quite interesting question, isn't it, really, when you think about it? It didn't happen. Yeah. Just on duels. Yeah. So the last duel to happen, It's quite interesting question, isn't it? Really, when you think about it. It happened. Yeah. Just on duels. Yeah. So the last duel to happen in France happened after the first seven Beatles albums were released. Really?
+
+[00:39:35] Yeah. The guys who fought it, two French politicians. There was a mayor of Marseille and another politician who was called René Ribier. It was in 1967. It was filmed. They fought with swords in a private house. Wow.
+
+[00:39:48] And they could have heard, they could have heard revolver by that point. How stunning. How many Sergeant Pepper, which was out later than that? Ah, so who's at the eighth album? Yeah, Sergeant Pepper. OK, good. Was it legal, though, for them to do it?
+
+[00:39:58] Like, if one of them had killed the other, would they have gone to jail? I think they were, because 1967, I think the reason, I think they were fighting in a private house because it was probably a bit legally iffy by that point. Yeah, I think actually a bit earlier than that, they outlawed Chulson. Yeah, probably, yeah.
+
+[00:40:11] Speaking of the Beatles, there was, you know, so Paddy Boyd, Paddy Boyd, she was married to George Harrison, and then she left George Harrison to be married to Eric Clapton. And they had an affair, and it was a big thing. And he wrote, George Harrison wrote, something about Paddy Boyd, that song, something. Oh, yeah. And Laila was written about Paddy Boyd as well by Eric Clapton.
+
+[00:40:37] So she is part of two major songs, as the muse, the inspiration. And if you're going to say they didn't, if you could say they had a duel, I'm so excited. Where they had to turn up with a new chord, each. Yeah, completely. So one night, George Harrison's at home, and Eric Clapton turns up drunk and they have a duel.
+
+[00:40:56] No. A guitar duel. Stop it. Nothing is said. A guitar is handed to Eric Clapton, and according to Paddy Boyd, for two hours, they sat silently just riffing at each other, back and forth, said nothing, and Clapton, even though his drunkard's hell, still just absolutely wiped the floor with Harrison.
+
+[00:41:14] And wasn't that cool? There was a guitar off between Harrison and Clapton. It's less cool than it sounds, I think, if you had to be there. Just watching these two drunk blokes play the guitar with each other. LAUGHTER That's something good of an amazing. swatching these two drunk blocs playing the guitar at each other. LAUGHTER That's something good of an amazing call.
+
+[00:41:27] In the 19th century in Germany, it became quite cool to have been in jewels. To such an extent that if you were a man with a scar on your face, you were considered to be good marriageable material. The idea was, you've been in a jewel, so you had honour, you've managed to, someone had cut you, but you still managed to get through it, so you must be hardcore kind of person. And there was to such an extent
+
+[00:41:52] that men would deliberately nick their faces with razors, and then bathe the cut in wine so that it didn't heal properly, so they made them look like they'd been in a duel. It's kind of interesting because there was a 2009 study that found that women favour men with facial scars for short-term relationships today. Oh, short-term relationships. Short-term relationships. Yeah, yeah. As in, the bad boys got a scar. No, yeah.
+
+[00:42:17] Don't know if it's true. There was also a study saying... Just to say, I got a head injury in my first week of university, which led to some superficial scarring. And I can assure you, it's not true. There you go. It doesn't say how short term the relationship is like. Doesn't matter. I've got great countervailing data.
+
+[00:42:38] OK, well, here's another study which counteracts it. There was a study done where they looked at people with scars and people without scars, and they found that if you have a scar, people are more likely to stand about a foot further away from you. And that's about a wingspan and a thrush. What? A thrush. A thrush. A thrush. Thrush has got a one-foot wingspan. Yeah, approximately. I'm more impressed by that than anything else you've said.
+
+[00:43:09] That's massive. That's just 30 to 32 centimeters. But you look at a thrush, you think that's nothing. Yeah. But do you think it's a wing on both sides? Yeah, that's true. I think I've not, in fact, all the way through you earlier, but I didn't understand what a wingspan was. All the way through you've been stabbed in half the distance of people comfortable. I've been saying, let me tell you about these scars.
+
+[00:43:29] Yeah. Yeah. Gosh. I was reading about jewels and I found a cool thing that was almost a weird little nugget. So I'm going to do it as a quiz question. Oh, lovely. So there was a jewel that happened in July 1806
+
+[00:43:41] between two people, Mr. Hoeworth and Lord Barrymore? Hoeworth, just before doing the jewel, this is with Pestles, takes his clothes off entirely, except for his underpants for the jewel. Why? Is it the same reason why the aisle raid make you take your trousers off before they kneecap you? Sorry?
+
+[00:44:00] Oh. Oh, trust me. That's true. How are you limped as you arrived here tonight? What? I'm stressed. Let's do it. You lived as you arrived here tonight. I'm doubly confused now. I've got a theory. Yeah. So his skin was like woodland coloured.
+
+[00:44:15] Like he looked like a jungle. And so it was camouflage for the duel. Yes. And so the other guy in the duel could only see a pair of underpants floating around. Yes! No, they're obviously no. But like, yes, what an idea. Right.
+
+[00:44:29] Not that. No, of course not. Can we go back to Hannah's IRA thing? Maybe his clothes were big because of the era when this was, whenever it was, and it would make him a smaller target to take his clothes off. That's good. No, so what it was, I don't think we finished guessing then. Oh, sorry. Sorry. Sorry. That's good. No, so what it was, I don't think we finished guessing, though. Oh, sorry.
+
+[00:44:45] Sorry. No, what it was is that this is according to the theories of the time, it might actually be true. I'm not sure. But if you were shot with clothes, the clothing might go into the bullet wound. It's the same as the eye already. It is.
+
+[00:44:59] Oh. So what is it? OK. Yeah, but so the wound will be infected with whatever disease is sitting on the clothing that you have, dirty bacteria, whatever, and so therefore... It could get stuck into the wound and stuff, right? Exactly, so he stood more of a chance
+
+[00:45:13] if he was hit by the bullet, naked, of surviving it, than he did if he had the clothes on. So he should always strip before he gave the clothes off. I think that that happened relatively... Not all the time, but it did happen from time to time. There was... In the 1890s, there was a movement by women saying that it's not fair that whenever people besperch my reputation, I have to get a man involved
+
+[00:45:33] to do the dueling for me. And so they decided they wanted to do the dueling themselves. And in Lichtenstein, Princess Pauline von Matanik fought a duel with Countess Anastasia Kilmanseg, and it was over a disagreement over a flower arrangement. Right. And again, they were topless, and the reason they were topless is because they didn't want their clothing to be infected.
+
+[00:45:57] And it's like that. And you're saying the IRA did that? Yeah, well, so it's like maybe I made this up. No, I think it's nice. You don't hear many people these days wanting to speak up to the IRA. That's how you learn that offense. I think that's really good.
+
+[00:46:11] And I think it's brave. Yeah, yeah. Yeah, I regret it. I regret it. LAUGHTER MUSIC It is time for our final fact of the show. And that is my fact.
+
+[00:46:25] My fact this week is that boxer Chris Ubank once lobbied to cancel a championship match just hours before it began, because he believed his opponent had been hypnotized to feel no pain and also so that he could see punches coming at him three times slower than normal. I mean, this is Chris Ubank. He's the champion of boxing at this point. Yeah. He was in a match against Steve Collins. Steve Collins basically used mind games against Ubank to make him believe that he had superpowers through the benefit of hypnosis. So he said, the hypnosis meant that no matter how much you hit me, it's just not going to register. But the other thing that he said was, if you throw a punch at me, I'm going to be like Spider-Man in that scene in the canteen, where it just comes
+
+[00:47:12] super slow. Right. And I'm going to be able to just dodge everything. And it freaked curious you bank out so much that literally hours before he was desperately trying to get out, despite being the absolute dominant boxer in the match. Did they end up having the match? Yeah, they did, and you bank lost. Oh. Yeah, he lost, it worked basically. And he talks about it years later,
+
+[00:47:32] saying that when they had their first weigh-in, and this was first said to him, and there were other things that were said, but he said, that's when I lost the match, all the way back then, psychologically I was done, I just couldn't match it, he tried to do everything that he could. When he got to the actual event itself,
+
+[00:47:49] this guy Collins came out. He had a hoodie on. He had headphones in and he was listening to the Rocky theme tune, The Whole Time. U-Bank comes in on a motorcycle trying to look all cool. He's got Tina Turner, simply the best playing out loud. The whole time, this guy has got his eyes closed, sat in the corner of the ring,
+
+[00:48:05] he's giving him nothing. All the intimidation tactics are not working, and that throws you back as well. And just thinks, I can't do this. Yeah. That's amazing. Thank you very much, James. That's amazing.
+
+[00:48:15] That could make such a big difference. Though it's the one thing that came to mind immediately for me is the coach Noe versus Carp of chess game. Oh, yeah. Yeah, one of them had defected away from the Soviet Union, the other one had him. It was a big thing about who was the best, the West or the East.
+
+[00:48:33] And coach Noe thought that Carpov's assistant was hypnotizing him. To such an extent that this guy who was called Zuka, he thought he was hypnotizing him by staring at him, the whole way through. Obviously, everyone by staring at him the whole way through. Obviously, everyone was staring at him the whole way through because they were watching the game. But he said that he wasn't allowed to sit on the first two rows
+
+[00:48:52] and they made him sit at the back of the room because he was sure it was going to happen. He still thinks to this day that he was being hypnotized and couldn't play chess. But it was for good reason as well, because this guy, that was supposedly his job, he would come in and he would mentally get inside your head. But the truth was, he did get inside his head.
+
+[00:49:07] Yeah. He just didn't do it in the way that he was suggesting. Oh, the player that was worried about the hypnosis, he had dark sunglasses on because he thought that might deflect it. He had his partner sit next to him and he was tickling him and kicking him the whole time, trying to break the gaze. And then the... It was crazy.
+
+[00:49:25] He brought in three monks to come. Oh, sorry, it was two monks. Sorry, not two monks. Two, yeah. Three would be overkill. I don't know. We'll stick to the two. And four, no laughs to be seen anywhere.
+
+[00:49:38] And they meditated, and that helped him to regain a... It was something like a four-1 deficit in the games, because it was six games in total. The monks helped him. Yeah, yeah, yeah. It was mad that match. I caution I lost, but he still today thinks it happened, because he thinks that Magnus Carlson, who's the greatest chess player,
+
+[00:49:57] whoever lived, he thinks that he must be hypnotizing people using the only reason he can beat so many people, because people blunder against him and stuff like that. But that idea of Inches if like, being psyching out your opponent, being a big part of it, I mean, Casparoff used to do that as well, right? Like Gary Casparoff, the really amazing guy. So he would do this thing where he would take his watch off
+
+[00:50:14] and he would put it down the table while he was playing it. And then he would just sort of play along. And then, at the point where he was like, I'm done toying with you now, he would pick his watch up and he would put it return it to his wrist. And that would be like, you're cute to say, like, you're done. Like with you. Now, who'd pick his watch up and he would put it return it to his wrist, and that would be like, you're cute to say like, you're done. Like, yeah. Oh, yeah.
+
+[00:50:28] But then when he played against the computer, obviously none of those tricks worked. But IBM, they deliberately put in a bit. They put in an extra bit of the code. So Casparov knew that the computer was calculating the number of potential options there were. And he knew that calculations took time, so the longer time it took, the harder the calculation was calculating the number of potential options there were. And he knew that calculations took time, so the longer time it took, the harder the calculation was working.
+
+[00:50:49] But IBM deliberately put in a random amount of extra time before the computer would give its response. So Casperoff was sitting there trying to think about what the computer knew, and it completely psyched him out. And he says now, I mean, I think all the grandmasters say that he was still at that moment still better than the machine. But he lost it because he allowed the machine to psych him out. And he says now, I mean, I think all the grandmas to say that he was still at that moment, still better than the machine, but he lost it because he allowed the machine to psych him out. Yeah, right. That is incredible. The mind games of sports are fascinating. Hypnosis, though, I was sort of, it was a bit of a dubious territory. And it sounds like there is a bit more
+
+[00:51:20] science behind it than we possibly give it credit for it. As a bit of a bit. It's kind of a bit that you're doing it to yourself. Yes. And some people are more and less susceptible to hypnotism, but some people are really susceptible to it. People at home can't see that Andy's moving his hands quite a lot in my direction when he's saying this. Which I think you might be trying something. No.
+
+[00:51:37] But you know that it is illegal to do any hypnosis on television or radio in the UK. Off-com will stop you from doing that. Really? The reason is you can hypnotise people over television or radio in the UK, Off-Con will stop you from doing that. The reason is you can hypnotise people over television and radio, and one of the ways that they see how suggestible someone is is by playing them tapes and seeing if it affects them.
+
+[00:51:56] But Off-Con does not regulate podcasts. Oh! Oh! Hello! Close the doors. You are feelings you will buy when some copies of Andy's book. You better say you are feeling very sleepy.
+
+[00:52:11] We worry what if people are? No, they banned it in the 40s because this is a report from the New York Times about hypnosis being banned. I'm quoting here, the BBC experimented with a television program featuring a British hypnotist today but dropped the idea quickly
+
+[00:52:25] when four of the six judges went into a trance. Oh, wow. And it was when you had to audition for TV shows, basically. And apparently, the judge, like this hypnotist, was so good that the judges fell asleep, a random studio employee fell asleep, the TV announcer fell asleep, every on fell asleep,
+
+[00:52:42] and when they were woken up, they said, well, he's too good. We can't put him on TV. We can't do it. Wow, really? We're turntied as the whole country. It would be a nightmare. So yeah, yeah.
+
+[00:52:51] But why didn't he just turntied us the minute he'd been a bit shit, but basically, five? Yeah, yeah, yeah. And then the power he could have had. He's actually a bit amazing. You do wonder, because when you hear people like Darren Brown, who can do it and Paul McKenna, do they have the power to do it within their day-to-day life and is that ethical and it turns out Paul McKenna did use it once He's admitted to it and he says I felt very bad. I'm never gonna do it again
+
+[00:53:14] What do you do? Well, he used his power to make his girlfriend at the time like curry She's Like curry Um, she's... She's a sub-head. She didn't like Curry. Oh, that's Curry. He's his book, is it? It's his badly selling fifth book, isn't it? I can make you like Curry. Wow, so what? That is unethical.
+
+[00:53:34] It is unethical. He said he'd never would do that again. He felt really bad for it, but he just really liked Curry, and she didn't, and it was really getting in the way of the relationship. If that's the worst misuse of his powers, he's ever made, I'm a Dutchman.
+
+[00:53:44] I can't believe there's someone who could going to be back on their hypnotising. Because you just would get on the bus, wouldn't you, and say, I've paid. And that would be it, you know? It's not that quick. I try that every day. Yeah. It's not jediism. It takes minutes, doesn't it?
+
+[00:53:57] It takes like seven minutes, I think. Oh, I don't know. Well, yeah, the bus will wait, won't it? You just pretend you're lucky for your change all the time. I'm sorry, I'll turn swing in that one. Bus crashed today because the driver, for some reason, thought he was a chicken. Have any of you guys ever been hypnotised?
+
+[00:54:15] I never had. No, I did. It really happened. Yeah, so it was me and my co-host, and they tried to hypnotise us both, and it didn't work on me at all, but it did work on him. And I just, there was a little bit of me that just thought he was making. Oh, really?
+
+[00:54:29] Yeah, well, maybe I just don't believe people. I just sort of do think it's a bit faking. Yeah, no. Well, you have to persuade yourself. I think, well, you're definitely part of the equation, aren't you? Because that's how they say it works, right? It's that you are actually doing it yourself, but you're just allowing yourself to do it.
+
+[00:54:44] They're helping you along the way. Yeah. And you didn't believe. You didn't believe. Internal race over. Yeah. But they said, yeah, they supposedly used it during the Civil War and other... Civil War?
+
+[00:54:54] Yeah, yeah, English or American? American, I believe. Sorry. Sorry. I don't think they had the English Civil War. Sorry, I was so aggressive there. I just think we should be specific when we say the Civil War. Yeah, yeah. There are so many there. I just think we should be specific when we say the Civil War. Yeah, yeah, yeah.
+
+[00:55:05] There are so many countries. I think, I... Yeah. LAUGHTER I'm sorry. LAUGHTER I just think every time we use the word the Civil War, to mean the American one... Yeah, yeah, a little bit of the spirit. I run into the end that you're not being very civil.
+
+[00:55:18] Oh, God. I'm sorry. You're right, being very aggressive. No, so... You know, remember Naysby is all I'm saying. Yeah. Yeah, yeah. LAUGHTER That would be very aggressive. No, so you know, remember Naysby is all I'm saying, yeah. Yeah, yeah. LAUGHTER We could have got rid of them. We did get rid of them. They came back.
+
+[00:55:31] LAUGHTER Sorry, go on. So the civil war... Oh, no, I was just checking if I'd have always... Sorry, sorry, sorry. So, yeah, during the civil war... The civil war. But during the Civil War, the Civil War, hypnosis was used on patients because it's been found in, I mean, maybe it is a bit dubious, but it is also a bit psychosomatic. If you were hypnotized prior to surgery when they didn't have the proper meds, they could
+
+[00:55:57] hypnotize you into thinking that you could be in a, you know, less painful place. And they found that surgery works way better when people believe that it's going to be better for them in recovery periods and so on, if hypnosis is used beforehand. Well, they do it in childbirth as well, don't they? There's like the whole sort of... Hypnoparthing, yeah. But particularly famous case, in the 1800s, I think, Dr. Ellison, who had two sisters, 15 and 17, who had epilepsy, and he was trying to hypnotize them into being better, but then was like so impressed with how well he was able to mesmerise them.
+
+[00:56:29] He started sticking needles in their necks. Oh, wow. And then turned it into a show. LAUGHTER Do you say they were his sisters? No, they were just two sisters. Oh, they were sisters. Sorry, okay, I was about to say, brothers. But, no, wow.
+
+[00:56:42] Was that around mid-19th century? I think so, yeah. Because that was a big, there was this like hinge moment before they discovered proper anesthesia, like real chemical stuff, where hypnosyptism seemed to work. And there was a doctor called James Esdale, who worked in British India, was a Scottish doctor who's in India at the time. And there were a lot of men at the time who had hydrosyles of the scrotum. So if you're not familiar with this,
+
+[00:57:05] it's where your scrotum, it's really painful. And it's like a slight tube, it's kind of tumor. It's full of bodily fluids and they can grow. And it can be really uncomfortable for ages. And it was a painful operation to deal with it. And patients would just put up with the discomfort for years rather than have the pain of the operation. One man was using his testicle as a writing desk because it was that big.
+
+[00:57:27] Oh wow! I know, like it's a serious... When life gives you lemons, eh? LAUGHTER I'm just like, yeah, so it's like, that's weird. That is weird. But what I'm sorry, what I'm trying to say is that, you know, he used mesmerism to operate on, and robbed this guy of his writing desk.
+
+[00:57:44] But it was a big success because he was using mesmerism and the post-operation death rate plummeted and you know, so yeah, I know. The weirdest we work situation. Just, I'll write to you again from a usual place. My name is Wright Nut. You know, Peter Jackson of Lord of the Rings. Yeah. Can you guess why he consulted about getting himself
+
+[00:58:12] put it through a deep hypnotic treatment? Okay, so sometimes people do it if they're scared of something. Was he scared of hobbits? He was. Deep phobia. No, it's not that. It's related to Lord of the Rings, though. Oh, it's it related to rings. It's, yeah, it swallowed the ring of true power.
+
+[00:58:29] And he needed... Yeah. No, I love this. He said this a couple of years ago, right. He wanted to be hypnotised into forgetting that he had made the Lord of the Rings films so that he could watch them like a normal person. LAUGHTER Because they're so good. LAUGHTER
+
+[00:58:48] He said that. That's wonderful. Wow. Can you believe that? I'm sure. He said it was such a loss for me, not to be able to experience them, like everyone else was. Oh, my God. Wow. I watched them. I was feeling sleepy.
+
+[00:58:58] LAUGHTER Stephen Fry did it once. He needed it for a work reason. So he was doing his a bit of frying Laurie with Hugh Laurie. And there was a sketch that they wrote where he needed to sing. He wrote about this in his autobiography, Moab is my washpot.
+
+[00:59:12] And he has a pathological fear of singing out loud. Anyone could be one person in a room. He just can't do it. But he felt he needed to do it for the sketch. And so he went to a hypnotist. And so he writes that basically it was quite embarrassing for him because in order to get it for the sketch, and so he went to a hypnotist. And so he writes that basically it was quite embarrassing for him, because in order to get it to the point where he could be triggered into being hypnotized, he needed a key word.
+
+[00:59:33] And the key word was the lead-in line, but the lead-in line was, hit it, bitch. And... LAUGHTER So he had multiple sessions with a therapist, so he was going, when you hear the words, hit it bitch. You know. Sing.
+
+[00:59:48] And yeah, and I think he was worried for a while that like any time he heard the, you know. Oh yeah, because Stephen Fry hears that phrase a lot in his life, doesn't he? I don't know what his personal life is like. But I'm just, oh my God. Oh my god! Okay, I need a wrap us up, guys. That is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can all be found on our Twitter accounts. I'm on that Shriberland. James? Ah, James Harkin. Andy.
+
+[01:00:22] That civil war lover. James? Ah, James Harkin. Andy? That civil war lover. LAUGHTER And Hannah? Brian Sqad. Yeah, or you could go to our group account,
+
+[01:00:32] which is Aunt No Such Thing, or you can go to our website. No such thing as a fish.com. All the previous apps are up there, so do check them out. Soho, thank you so much for having us once again. Hannah, thank you so much for being here. We'll see you all again next week with another episode. Goodbye! CHEERING AND APPLAUSE
+
+[01:00:48] Thanks, everyone. CHEERING AND APPLAUSE

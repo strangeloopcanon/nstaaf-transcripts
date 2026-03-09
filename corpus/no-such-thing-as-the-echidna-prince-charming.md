@@ -1,0 +1,265 @@
+# No Such Thing As A Fish - No Such Thing As The Echidna Prince Charming
+
+- Episode date: October 22, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-echidna-prince-charming
+- Slug: no-such-thing-as-the-echidna-prince-charming
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Richmond. Anna Tishinsky, Andrew Hunter Murray, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, that is Andy. My fact is that spiny antitas only. use half their penis during sex. Which half? The top half?
+
+[00:00:56] The left or the right half, believe it or not. This is an animal, better known as an echidna. And they're Australian, they're very cute little creatures. They look sort of like... Like a hedgehog. Weird hedgehogs, basically. Yeah. Imagine a hedgehog.
+
+[00:01:13] Not that. But not far off. And they're... They have these penises which are four-headed, which are really, really... Has it like a forehead? So, well, yeah, they've got foreheads on their penises. It's really, they are dickheads. No, they're not.
+
+[00:01:30] They're not, they're not, they're lovely. So, yeah, they've got four sort of ends of the penis, but they only use two at any one time. It's a really, really, really bizarre animal, and it's either the left or the right, and they switch. So only two ends get an erection. any one time.
+
+[00:01:48] Really? Right. And do we know, it seems weird to have one side of something getting an erection without taking the other
+
+[00:01:53] side with it. It's very hard to imagine how you wouldn't be dragged along. Yeah. Oh, right. Yeah, yeah. I mean,
+
+[00:02:00] if the right hand side of your penis is erect, you, I can't imagine where else the left side is going to be... It's going to look like your penis has had a stroke, isn't it?
+
+[00:02:08] There's probably. And it probably has if you've got an erection. Yeah. There we go. Anyway, look, to steer us gently towards safer
+
+[00:02:16] territory. They found the zone 2007 and it was really hard to see echidnids breeding because in captivity they don't really, they don't breathe much and some scientists in Queensland led by a guy called Steve Johnston they inherited a male echidna which had lived
+
+[00:02:31] in a zoo but it had been retired from the zoo because it kept getting erections at public viewing sessions and this was... That's the word retired being used very euphemistically if you get retired from your job because you keep getting inappropriate erections Yeah, he was just promoted to someone
+
+[00:02:48] completely different when no members of the public He was moved to back off his stuff Wow, that's the me four movement with the kidneys, right? Wow. They were very readily This particular echidna seemed very ready to have an erection, didn't it?
+
+[00:03:09] It was kind of a gift from God. No one had ever seen the mate. And then suddenly the zookeeper said they had a captive echidna which, on handling, readily produced an erection and they were able to condition the echidna to have an erection to the point where it would ejaculate whenever they wanted to. Whenever they wanted to.
+
+[00:03:24] Whenever they fancied it, which is useful because you also want to know about its sperm, what's in its sperm. And so all they had to do was sort of push its abdomen. And it went for it. One thing we know about the sperm is that they're all very cooperative. You know, you always think of sperm like as a swimming race where they're all fighting against each other. But in this case, you get about 100 sperms at once
+
+[00:03:46] all kind of gather together in a little sphere and kind of swim and apparently they can swim faster because of that. That's amazing. After you, no, I insist. After you, no. Please. It's like a peloton. Exactly. It's like in triathlon, all the swimmers often swim next to each other
+
+[00:04:03] because you get, yeah, yeah, yeah. Do they swim in the shape of a giant sperm? As in is that a more efficient shape to swim in? That'd be cool. Wouldn't that be cool? Spear-like, I'm afraid. Oh, sphere, sorry, okay, okay, okay. But I think unlike a peloton, their heads
+
+[00:04:14] are actually cemented together when they swim, I don't think is how cycling works, although I have not really watched cycling. But there's a special kind of cementing material which literally joins all their heads together and they wag their tails as they swim along. And yet they think it might be for speed, but it seems like they're not really sure. It's just speculation as to why not they're bundling up like this. Could be that thing where I think penguins do it, you know, where the person in the middle has the greatest advantage because they're not going to get buffeted around by the outside.
+
+[00:04:40] So you just, if you go as a group, then the guy in the middle will survive. It's amazing. The whole sex life of the echinus seems to be shrouded in theory and mystery. Like we don't know, there were so many things we don't know, like you just said, why did they do that? Why are they using two penises rather than the four available ones at the time? Also, they do this weird thing where when they're courting a female, they form what's kind of, it's called the love train. It's basically a conga line of echinors that just follow in a line the female for up to a woman. month and they're just behind her, wherever she goes, they're just snaking around with her. It's a long conga. It is a long conga. And at the end of the month, a decision is made, which we don't
+
+[00:05:24] know what the decision is. Like, there's theories, you know, is it the dominant male? Because they've noticed that kind of like a Russian doll, the biggest is at the top and they get smaller and smaller and smaller as they go along. So the smallest is at the back. But we don't... They sometimes have a little fight at the end. We have seen that, whether that always happens, we're not sure. but then also sometimes if there's two congas, two rival congas going along, you might be doing your conga along, but then if you go near to the other conga, sometimes you might swap to the other one.
+
+[00:05:52] If you fancy the head of the other conga a bit more, you might go over there. Wow. Does that ever happen in real conga? There's a rival line and you're like, I'm going to take everyone behind me into that one. Yeah, yeah. What will happen is there's a conga going along,
+
+[00:06:05] and then one person will go a bit too fast and someone's not paying attention. And then suddenly that person wasn't paying attention, serves them right, they're the head of the conga now, and they have all the responsibility that entails. That's so funny. It would be so cool if you could hear the echidnas doing their conga line in Australia. I'd appreciate that in the outback if you just heard a little,
+
+[00:06:23] they're coming, the echidnas are coming. It does sound terrifying. So you mentioned this fight, James, that they have. One possible, or one way it sometimes goes, is that when the female finally says, right, I am ready to mate, the males dig a trench and then compete by pushing each other out of the trench. and the last remaining echidna in the trench is the one who gets to mate with the female
+
+[00:06:44] Yeah, incredible. Is it like a moat around the female or is it just a singular trend? I don't know how developed they are. They're clearly, they've invented the Congo, but have they invented the moat? Which is more sophisticated? They're like a little horseshoe.
+
+[00:06:58] Oh, okay, right. Right. Wow. Oh, are they? I thought it was kind of like your own sleeping bag. You divvit yourself into the ground because they mate side by side, don't they? Well, they sort of make she mates face down,
+
+[00:07:09] which sounds fine each to their own but every time she's faced down and he's on his side but either side apparently so if he doesn't like the look of her he can turn his back and mate sort of from like Ben to himself around to get to her
+
+[00:07:26] but so that would be very insulting so if you're the female you're lying down and you can check if the male is facing you I guess you're in and if he's not I think that's insulting isn't that insulting? Yeah yeah yeah yeah yeah yeah Yeah, yeah, sometimes after they've mated, they'll hibernate the females straight after they've mated.
+
+[00:07:47] And in the hibernation part, their whole body kind of stops kind of doing stuff. So it means that the pregnancy won't really start properly for a little while until they wake up. And this is because what they might want to do is if they've mated with someone that isn't quite the best echidna in the area, they can hibernate and hope that someone else comes along while they're asleep. A bit like, you know, like Snow White's waiting for the Prince Charming to come and wake her up. I don't recall. Fat bit. She's asleep and she just kind of half awake.
+
+[00:08:21] She hears, do, do, do, do. The dwarves all behind him, kicking their legs up. There's only one of the mammal that we know that does this that hibernates straight after sex, the female, and it is the hoary bat. How dare you? That's so funny. They're remarkable for a number of reasons. They're a mammal that lays eggs, which is, it's very Australian. You know, we've got...
+
+[00:08:48] Very Australian. Well, yeah, the platypus, and then that's it. It's just those. But they are both only found mostly in Australia. Mostly in Australia. Well, can I just interject there? Because I think Australia gets a lot of credit for the echidna. And there are four species of echidna, and one of them is in Australia.
+
+[00:09:05] Yeah. And all the other three are in Papua and Guinea. Really? And I just don't think the Papua New Guineans are getting as much airtime. And actually, they're way cool at Akidna. And I've seen the Australian one. I love it. I've stalked an Akidna up on Australian Hill for a long period of time.
+
+[00:09:19] For a month? Where's Anna gone? She's up over there. Let's move on. Okay, it is time for fact number two. And that is my fact. My fact this week is that in the... In the 1960s, a 47-year-old man paid a 90-year-old woman,
+
+[00:09:42] 2,500 francs a month so that he could own her apartment when she passed away. Unfortunately for him, she outlived him by not dying and making it to be 122 years old. Imagine it. So this is actually quite a famous old person who has set the record for the oldest person ever. her name was Jean Calman, and she was a French person.
+
+[00:10:11] You might have heard of her. And this was a deal, and this is a thing that does happen in France. When someone's getting a bit old, someone says, I'll pay you a certain amount. It might be the mortgage amount or the rent amount or whatever it is. And in this case, it was 2,500. And it was a guy called Andre Francois Raffery. And he paid the money, and he kept paying and kept paying, and she kept not dying and not dying.
+
+[00:10:33] And then he dies. She still lives. but because of the French law of what they were doing, the widow and family then have to continue paying her. Until... Yeah. The ages are incredible. It was only a few more years, wasn't it?
+
+[00:10:47] It was. It was. Because in theory, if she was still alive in her 170, 180, his kids would have to have paid her as well. Exactly. But by the time he died, he had paid twice the apartment's market value. Like, that's how much he had.
+
+[00:11:02] That's incredible. He was 47 when he arranged this, and she was 90. so he would have had really good odds he thought but then he died aged 77 and she was still going she was 120 at that point these they're called Vageses in France these are really interesting
+
+[00:11:18] kind of a mechanism of releasing you get a lump sum you get about a third of the cost of your home in cash and then you get these monthly payments but the ads for these arrangements they come with details of the age of the person selling so you can kind of assess it and there was a piece about it in The Economist which said some elderly French widows looking to sell their
+
+[00:11:36] home via this method. They've been known to light cigarettes before reviewing to imply that they have a very unhealthy lifestyle and they can't be long for this world. That's amazing. Or a bit of a sniffle. That's so cool. Yeah, Jim Kahnman was the oldest ever movie star. She was in a movie called Vincent Me when she was 114. She's the... Stars a strong word, isn't it, for what she did in that film? Would you say she was the lead role in Vincent and Me? It was named after her. Okay. You know, Vincent, me, it was, I went the time she supposedly met Vincent van Gogh. And she appeared as herself in a later scene, right?
+
+[00:12:15] Yeah, exactly. And quite similarly, she was the oldest person ever in a rap song. Ah. And again, she wasn't really in it much. You just hear her going, Je ma'améle Jean-Calmond. And then another rapper just going, you're going to hear an old lady talk.
+
+[00:12:32] Oh, really? But it's, no, I was going to say it's quite good. It's not quite good. It's quite bad. But you can listen to it online if you'd like. And she did genuinely claim an association with Vangorff, didn't she? Which is quite weird. It's a bit like, you know, when you're watching like Doctor Who or something
+
+[00:12:48] and wherever he travels in time, he always happens to land in the drawing room of the most famous person you've heard of at that time. There's Charles Dickens or William Shakespeare or Jesus. Sorry, I'm going to have to stop you there. The TARDIS brings him to lands that are in need and often the most pivotal humans of their era are the people who were central to a moment
+
+[00:13:07] where a time fracture is happening. He's never just helping thousands of peasants slowly improve their economic conditions, is he? Oh, yeah, yeah. So much like Doctor Who, Jean Carlemore said that she knew Vincent Mangorff in the 1880s, it was 1888, and he came into her family's dry goods store. I don't know if dry goods store is just something that sells
+
+[00:13:28] anything that's not wet, but wanted to buy a canvas and she said her father waited on him, and she described him as, very ugly like a louse. Wow. Now the big problem is that her father didn't oh no, try a good store. That is that one slight problem with that story.
+
+[00:13:44] Yes, her husband did, right? Her husband's family did, I think. That's where we get into something a little bit dodgy about this story. Yeah, okay. First off, though, before we get into it, when did she tell this story? Because if she was 120 at the time,
+
+[00:13:56] I think you're allowed to fuck up a bit of timeline in your life. Agreed, agreed. Yeah, so there's a theory, isn't there? There's a theory that maybe she didn't live to 122 years old. And that she didn't die in 1997, but in 1934. Yes. Yeah.
+
+[00:14:10] She would have been much younger. But there's a theory. I can't stress enough theory, but that her daughter had died. Oh, no, wait, her daughter hadn't died. Okay? You're all with me? Great. Her daughter hadn't died.
+
+[00:14:24] But it was a pretender that she had, at which point, the daughter assumed the identity of her own mother. So therefore gained another, you know, 20, 30 years on the clock. And the idea was that they did it because they would have to pay tax on the inheritance when she got the house, and they thought that maybe she pretended to be her mother. There's a few problems with the theory. One, she would have had to have lived with her father as her husband for quite a few years. I mean, no one's checking up on their population levels, are they? Probably.
+
+[00:14:54] I just think that's an easier bit to fake than when you meet your friends a week later, and they go, my God, you've sort of lost 30 years. But there is one main guy who is kind of pushes this theory And he's called Nikolai Zak And we came, we did a gig in Nottingham yesterday And our train back was, I think about two and a half hours Yeah I spent the entire time talking to Nikolai Zag
+
+[00:15:21] He is very keen to tell us his theories But by the end of it, I must admit, by the time we were pulling into London You're on board? Well, he has a few good points, I think. really. Like, for instance, there was an interview with the family where they kept confusing Xim with her daughter Yvonne, and they just kept getting the names wrong all the way through. Again, though, that's like my mom calls me the dog's name all the time, right? Like, that's a very classic thing to get a name right. He's a mathematician, this guy, and he used Bayesian statistics
+
+[00:15:54] to work out the chances that this could be true, and he reckons it's well in the 10 millions to one that this is true. So that's his main bit of evidence that's. statistically he doesn't think this is true. He's shown these signatures over the years, and he shows that around the 1930s, the signature changes really, really quite differently. It's kind of similar, but the T is very different, and the J is very different.
+
+[00:16:17] This coming from a man who we should say does change his signature every single year. I do do that, yeah. Maybe she was just taking it after you. Only a few 50 years before me. That's right. Well, you know, she knew Dr. Hooper. I don't know. But the thing is that this guy is saying, right,
+
+[00:16:31] We have the blood of Xin Kalmont, right? So it's really easy to test. You can just test the blood and you know exactly how old she is. But the people, her family are refusing to let them do it. And they're saying they're not going to let him do that or let anyone do that, in fact. And they always kind of say, oh, he's just working for the KGB. That's how they started. And when they realized it couldn't be that, they were like, oh, no, he's in the pocket of rich billionaires who want the secret of eternal life.
+
+[00:16:57] So they're kind of attacking on this side. He says that he's just looking for the truth. if he's not trying to prove anyone wrong, he's just trying to look for the truth, and that's my TED talk. Is it fair to say? So the family refusing to do it, partially a reason, I'm guessing,
+
+[00:17:12] is in France, Jean-Cardmont, is quite a sort of household name to people. Like, we don't necessarily know her over here, them. I've thought into the theory. But, like, she's, so, and she's in books, and she's part of the culture,
+
+[00:17:29] so let's not topple this, and a lot of people supposedly don't want to touch it for that reason. There's a lot of enthusiasm, of course, for the idea, because it's a point of pride. I mean, she's substantially older than anyone else who's ever lived. But I should say, guys, we're not considering the other oldest person ever. Old Tom Parr, who was an English man who lived for 152 years between the late 15th and middle 17th centuries. And I don't know why we're not talking about it more, because he's the champ. He didn't do much, not after the age of about 130.
+
+[00:18:01] this guy was clearly a fraud And how dead I know he lived in Shropshire You're working for the KGB I can tell He got married at the age of 80 He had a couple of children He had an affair over the age of 100 Fathered a new child with that affair
+
+[00:18:18] At the age of 100 I know he remarried aged 110 He was taken to London to meet Charles I'm So he was taken seriously at the time Despite the fact he was manifestly only about 80 and he was taken to London and he died within a few weeks after being too well fed
+
+[00:18:34] because he had only lived on rancid cheese and hard bread and he was taken to London and given nice food and it was too much if that was the key to living to 180 do you think you'd do it
+
+[00:18:47] if it was rancid cheese and hard bread all the way I think I'd just accept 75 45 but he's buried at Westminster Abbey isn't he? Is he? Yeah.
+
+[00:19:00] So he was a big deal in his day. Wow. He was a big cheese. Do you guys know, so there's a list on Wikipedia, which gets updated all the time of world's oldest people. So how many of the people in the top ten of the world's oldest people would you say are men? Oh God, no men live till anywhere. I would guess there aren't any men for hundreds.
+
+[00:19:26] There's one like really old Japanese guy, wasn't there? Yes. I'll say all 10. Yeah. Even though we know that Shin come on is 11. No, no, living. Currently living. I'll still say all 10. Yeah. So Andy's like
+
+[00:19:42] the wrong one here. I'll go from one. No, no. None. Top 10 living oldest people in the world are women. The youngest of which is 114 years old and the closest man is a bullshit 112. So two years in between,
+
+[00:19:58] top 10. Yeah, sorry, you guys are going to die young. I don't know. I'm sad that you just learned this. I refer you again to the example of old Tom Parr who lived 122. I think the oldest person at the moment is Kanet Tanaka, maybe, Japanese woman. She is 818 years and 281 days today. But actually, she was born prematurely, so it seems a bit longer.
+
+[00:20:25] and she got pancreatic cancer when she was 45 years old and had to have surgery and then she lived on to at time of recording at least 118 years old Wow Isn't that amazing? Do you know the oldest, the two oldest men in 2018 had exactly the same birthday
+
+[00:20:44] and they'd never met but they used to swap birthday cards every year because they thought it was funny that they did and so they were both born on the same day in 1908 and then one of them sadly died in 1990, but at almost that exact same moment, a new woman was crowned oldest woman in the UK, and she too had exactly the same birthday of the oldest man. Isn't that weird?
+
+[00:21:07] Did he start sending birthday cards to her? I actually don't know if he did. You're running out of energy at 112, I suppose. A bit of a slum if he didn't, though, isn't it? Yeah. They all refused their cards from the Queen because they wanted to save public funds, which is...
+
+[00:21:20] I know, I know, as if that was going to be the straw that broke the camels back. Is it that you don't get something from the Queen these days? You get it from the work and pension the Secretary. You get one from each. You get one from each.
+
+[00:21:33] So I can't remember who that is at the moment, but there was a time where you got a card from the Queen and then a card from me in Duncan Smith. And that was bleak. Just open it up. Happy birthday. By the way, I've declared you fit for work. Okay, it is time for fact number three.
+
+[00:21:52] And that is James. Okay, my fact this week is that the largest hailstone in Texan history was broken up by locals and turned into margaritas. That's pretty cool. That's a fun way, that's a fun thing to do with it. I think so. Yeah. I think that's definitely the best thing to do. How did they know it was the largest in Texan history?
+
+[00:22:15] Well, that's a great question, Andrew. Okay. It isn't the official biggest one, but it fell in the same storm as the official biggest one. So this was earlier this year in June There was a massive hailstorm in Texas And all of these huge hailstones came down And they managed to save one of them And this is the record one
+
+[00:22:35] And amazingly they could use radar Because it was big enough for radar to pick it up So they could see when it fell And they could see it there But there was another social media post At the same time where people took a photo Of a hailstone You can tell by the size of the hands
+
+[00:22:51] And by the size of the people and everything Exactly how big it was it would have been the biggest one, but we haven't been able to measure it because they thought, fuck this, let's have some margarises. So cool. So we can't be sure it wasn't just huge people
+
+[00:23:03] with giant hands and actually quite small hailstone. And is it right, James, I think I read this, that even the biggest one, they weren't properly able to verify it because the people put it in a fridge but they didn't put it in a plastic bag. It's really hard.
+
+[00:23:17] So it shrank, right? Yeah, exactly. So whenever you want to get a record hailstone, it's really hard to kind of work out exactly how big it is because from the very second it lands, even when it's in the air, it's melting. Apparently one good thing is to put athlete's foot powder on it. That stops it from
+
+[00:23:31] melting. You've got to have such presence of mind in the middle of a hail storm when something the size of a grapefruit has just smashed into the ground next to you to get your athlete's foot powder out. Hail is terrifying. This big stuff is. The big stuff
+
+[00:23:46] is terrifying. And get this, Richmond, the very place we're in tonight, was devastated. 140 years ago by hail. Really? Yeah. 1879, there was a giant hail storm. The stones were five inches around,
+
+[00:24:02] which is big, circumference. It apparently looked like there had been a riot and the military had fired at the town. But that's how bad it was. There were craters in people's lawns in St. Margaret's, which is just nearby, which were three inches deep. Wow.
+
+[00:24:16] Wow. The place was absolutely destroyed by... And that's why it's such a horrible town today. Lovely to be here. That's got to be a Jonathan Creek episode. If it's not already, there's obviously been a gunman loose. Everyone's been killed by bullets through the heart, and yet all the bullets have disappeared.
+
+[00:24:35] What has happened? If you're listening, writers of that, do it. All actors who were in it? Yeah. There was one particularly bad hailstorm, which changed the course of human history, which I didn't know about. So this was Black Monday.
+
+[00:24:52] And I really, I had no idea about this hailstorm. It was in the Hundred Years' War, so it was, I think it was in 1360, and it was the biggest loss of life up until that point in a Hundred Years' War. So it was Phase 1 of the Hundred Years' War. It ended Phase 1, because it was so bad. And it was Edward III, who was going to war with France, as we did in the Hundred Years' War, and he was besieging the town of Chartre in France. He had an army of 10,000 people, which was like the biggest army,
+
+[00:25:20] that it had ever had at that point. And on Easter Monday, this massive storm came, struck the camp. Hailstone, so large, they were killing men and horses. Apparently, a thousand men were killed, and up to 6,000 horses. Some from hail, others from, like, lightning. Are we sure the French army had invented, like,
+
+[00:25:40] arrows made of ice or something? It could be, and they never used them again, so they didn't give away the secret. I think some people were trampled, because there was a panic, some people froze to death. It had been 30 degrees in the daytime, and then suddenly at night, this hail. And Edward was so traumatised, plus he lost a tenth of his army, that he thought it was a sign from God, and he made peace with the French straight away.
+
+[00:26:01] He would, yeah, absolutely. I think that could make you turn. If you're an atheist, even, you could turn into thinking, fucking hell, we're on the wrong side here. Hannah, what year did you say that was? 1360. I want to say 1360. Oh, okay, and he made peace.
+
+[00:26:14] Because 100 years war ended 93 years later. It was the end of phase war. Oh, sorry, you did say. I did say phase one. There was a brief respite, and then they did get back into it. What happened was Edward renounced his claim to the throne in France and said, oh, I don't want any more parts of France. I'll just have this little bit at the top, but I won't have the rest of it.
+
+[00:26:34] And then a few years later, we went, well, maybe I'll have that bit. And the French went, okay, well, if the hell didn't work, we're going to have to try some else. Yeah, so moorish, isn't it, France? It's a lot more. Like Ferreiro Roche. Have you heard of a guy called Guy Merci? No. No.
+
+[00:26:50] Okay, he, in 1938, was in a glider plane in Germany, and he was caught in a powerful updraft, right? He was carried into a storm cloud. I know. He and his four colleagues were frozen by layer after layer of ice. His four colleagues very sadly perished, but he survived. Now, I haven't found, I found this story in one place online where he became a giant hailstone and smashed into the ground and then came out of life.
+
+[00:27:13] It's only in one place that I found online, so I'm suspecting he may be a bit of an old Tom Parr. this savario. But it's such a great story. That's the genuine story. He plummeted from the sky as an ice block and survived. I believe it. That's the kind of shit I say on this show, Andy.
+
+[00:27:30] I don't think. Hailstorms, it's kind of like a washing machine, isn't it? So it's just a secular thing that's going on inside the cloud and it gets bigger and the forces create the moisture that freezes. And eventually when they get too heavy, that's when they come down. and so when you get these giant sort of, in America, when you get tornadoes, it's kind of a similar thing. When they're ginormous, that's why in America you get these volleyball-sized hailstorms that come out of the sky.
+
+[00:27:58] And why they're so damaging. So they're the worst kind of weather. They must cause more, well, no, that's a huge claim I'm going to retract before saying it, but they cause billions of dollars worth of damage to farms. And it's because they're not cold weather, weather, they're not cold weather, weather, they're hot weather weather. So you get big hail storms in summer Which I didn't realise And that's when all the crops are out
+
+[00:28:20] So they devastate all the crops So difference between hail and sleet Thanks for asking Like you've always wondered But the hail is made up in the cloud Like Dan says Whereas sleet is made on a cold day The rain falls and it freezes on the way down
+
+[00:28:33] And hail tends to happen on like Those really hot sort of monsoon storm kind of days When there's shed loads of wind stirring up the clouds And so yeah it's in summer When all the crops are lush and growing and the hail comes down and decimates them and the farmers are ruined by them.
+
+[00:28:49] Another reason they're so dangerous, especially in America, is because they form and they follow roads. The storm. Yeah, so there was one in 2001, the tri-state hail storm, and it caused $1.5 billion worth of damage. They basically followed the interstate 70 road.
+
+[00:29:09] Where was it trying to get to? You really think God had something against you when you're driving just ahead of the hailstorm. Fucking hell, what's? The reason is that it's because American roads tend to go east to west or north to south, right? And also, the roads tend to follow the path of least resistance. So they tend to go around kind of hills
+
+[00:29:32] and along river valleys, and also so do storms. They tend to take the path of least resistance. And so you tend to find that the storms just follow the roads around. That's really funny. Isn't it cool? And, of course, where do you have people living?
+
+[00:29:43] they tend to live like the communities are on the road. So, you know, that's why you get loads of damage for property. Guys, we've got to move on in a sack. Oh. Oh, gosh. Maybe some cocktail stuff really quickly. Yeah. Good place to go for cocktails.
+
+[00:29:58] If you're in Malmo in Sweden, would be the Disgusting Food Museum. Which you've been to? Which I've been to. They emailed me the other day to say that they have a new alcohol exhibit at a disgusting food museum. So they have a beer, which is 55% called Enderfell. history which is sold in a taxidermied squirrel. They have
+
+[00:30:20] South Korean poo wine. They have Icelandic sheep dung smoked whale testicle beer. Which they say is actually quite nice. They say they have some popcorn liqueur from Spain. Oh. Which they say that the manufacturer
+
+[00:30:37] says it has a flavour of smooth and buttery freshly popped popcorn. But the guy who runs museum, Samuel West, said that actually it's more like licking the popcorn and soft drink that it's in the soaked carpet of a rummed down movie theatre. But yeah, a disgusting food museum. If you are there in Malmo, it's an amazing museum. And they struggle a little bit due to COVID.
+
+[00:30:59] So they're really struggling. But ironically, he does have another museum called the Museum of Failure, which is going great guns. The Museum of Failure has just opened a new one in the US and another one in Taiwan. So it's absolutely amazing. That's awesome. We do need to move on, guys, to our final. fact. It is time for our final fact of the show, and that is Anna. My fact this week is that the average Londoner poos out a hundredth of a line of cocaine every weekend. Wow. Okay. Okay,
+
+[00:31:29] how many Londoners out there in this room? About 900? 900, I think. That's a hell of a weekend. Yeah, I guess, so we've got nine lines of cocaine in here, in the toilets here, if you've all been once. Because it's not, so I say poos out, excrete, you know, evacuates from their nether regions, a hundred of a line of cocaine. And this is this really interesting bunch of data that's collected by the European Monitoring Center for
+
+[00:31:55] Drugs and Drug Addiction. And what it does is it goes through the sewage systems of loads and loads of different cities in Europe, about 100 different cities. It does it every year and it sifts through and it looks at all the drug residue that's there, so the metabolites, the things that have been the remnants
+
+[00:32:12] of a drug in your body. And for 2019, which is the last year that we have data for for London. I reckon in 2020 London was omitted maybe because of COVID, maybe because of Brexit, that endless either or could be either debate. In 2019, I read the weekend of cocaine is 700 milligrams per day at the weekend per thousand people, which I worked out that I think that's about assuming that a line is about tenth of a gram, and I know some people like bigger lines, some people like smaller lines. Assuming that,
+
+[00:32:46] it's actually about 1.4, 1.5% of a line. Okay, let's do a quick survey. Who likes a bigger line? Oh my God. Obviously, probably the average is weighted more in the direction of people who've taken cocaine.
+
+[00:33:00] It's not like we're all doing it, okay? But the average is, you know, being brought up by the people are having massive binges. But it's such a cool thing to analyze. Just going through sewage, finding out exactly what we've been up to. Yeah, it is amazing.
+
+[00:33:11] And it's quite a new technology, isn't it? It's only about 20 years old. So that we've been doing this as a species. Wastewater epidemiology is what it's called. And you can find diseases as well. So you can find COVID 10 days before an outbreak happens. Days and days before physical symptoms start appearing. Oh, wow.
+
+[00:33:30] If you're analysing waste water, you will realize that something's going to happen. You can respond to it fast. Yeah. And there was a guy, wasn't it? I can't remember his name. But the person who basically invented this field of study, when COVID started to happen, you know, wrote to lots of people and said we've got to start looking in the sewers
+
+[00:33:43] because that's going to allow us to save loads of lives and stop COVID spreading and only now they've actually started doing it in America and it's already really helped because you can kind of spot an outbreak before it properly happens and then get your resources there. Amazing. Probably the first person to do this kind of epidemiology in wastewater was John Snow. That was in 1854 and that was when there was a cholera outbreak in London and he decided, he realised you'll all know this story.
+
+[00:34:11] you will, but he realized that it was coming from a particular pump in Soho, and he said, it's coming from here, can you take the pump off, and they did, and then it kind of went away. But even after he'd done that, he couldn't convince everyone that this was true. Like, they saw that people had stopped getting cholera, but they thought maybe it had been a coincidence. They were like, you know nothing, John Snow. Oh, my gosh. We were all waiting for it. It was either better a swing gummits of Joe, because of it, to be honest.
+
+[00:34:39] Just does anyone want to know the kind of drug concentrations in the water of European cities? Sure. Yes, great. There's some, it's really predictable actually. So London had the highest concentration of cocaine for one year held the top spot, 2015,
+
+[00:34:54] and we've plummeted since then, dropped our cocaine use by a third. Well done. And well done, you lot. And Antwerp is riding very high. It's all Antwerp and Amsterdam, really. And that's for cocaine, MDMA, cannabis, Amsterdam, like much higher than anyone else for that.
+
+[00:35:12] And Italy, bizarrely, is at the bottom of the league for everything, Italian cities. They're not taking many drugs. Okay. Just having a lot of delicious pasta. The drug of choice. In Italy, you do get those people who like the penny, the short lines, and the people who like spaghetti, the long lines, don't you? I do, yeah.
+
+[00:35:33] But yeah, it's so fascinating how it shows, how when we use cocaine. So there is, I think there's... Again, the collective we being deployed here. The royal wee. I do want to make it really clear than neither I nor anyone in this room here tonight has ever touched cocaine.
+
+[00:35:49] But we as a nation... Why are you talking so quickly? Sorry, something to sweat and shake a bit. Yeah, it's on Sundays, there is more than twice as much cocaine in our sewers as on Wednesdays. Well, it's church, isn't it?
+
+[00:36:07] He stayed kneeling down for a long time after the end of that prayer. What's going on there? It's not. It's from the night before, isn't it? You do your first poo the morning after. Okay. Story checks out. Sewage in general, as in things we can learn from sewage.
+
+[00:36:27] This is a very interesting thing. There are archaeologists who study coprolites. They study fossilized poos. And a few years ago, a team from the Max Planck Institute, last year actually they developed a cool AI tool which will allow them to tell human stools from dog stools, coprolites. These are all fossil poos.
+
+[00:36:47] And it's very hard to tell the two apart. It's really hard actually if you're studying an ancient settlement because humans and dogs both live there and not to put... Usually the dog wants in a plastic bag. Yes, that's right. Yeah. But on the occasions of it, it's not hanging from the tree.
+
+[00:37:04] Then you get... Yeah, and the problem is that they both contain a lot of the others' DNA, not to put you find a point on it because dogs have no manners and will eat anything, and because also humans used to like to eat dogs a lot. So there's this complete muddle going on, but there
+
+[00:37:19] is now, and I know you'll all have been worried about this, a diagnostic tool to help you work out which is which. And what is this going to cure cancer? It's not going to cure cancer, obviously. It's a complete different field of study, but it'll come in handy at some point. I love that back in the day,
+
+[00:37:36] the London sewers, I read the story about a guy called John Hollingshead who wanted to visit one. He was a journalist, and this was in 1862. And apparently there was this thing where he was given basically a menu of the experiences that you could have at various bits of the sewerage in the London Underground because of what was going on above it. So the menu was sort of like, would you like to go to an underground tunnel where they have the blood sewers? And the blood sewers would be, that would be running underneath the meat.
+
+[00:38:07] markets of London. So when you'd go in, it would be running with basically rivers of blood, and you could experience this weird thing that you could go. This is the worst of. There's a blood speech I about it. And then there was like the bakery areas where if there was a big bakery, you could go down. And because
+
+[00:38:23] the heating that was involved in doing the baking, that would flood down into the sewers. And people who would go down there to fix it would use it kind of like a Turkish bath. You would go and it would be a steam room for you. Yeah. So it was like a, where would you like to go? down to enjoy it.
+
+[00:38:38] Yeah, yeah. They'd go... Well, because the sewers of London before, what was his name, Joseph Basiljit, before him, it was very dangerous and so on. But obviously, it was also a place where people go to sleep to, you know, it was a whole different bit of London. Yeah. I didn't know that.
+
+[00:38:55] Christ, next time our hotel says, we have a steam room and it's in the basement floor, I'm being very careful. Have you heard of the Tanzanian toilet bat? This is incredible. There are these grasslands in Tanzania which have these pit toilets and it's just a concrete slab with a hole in the middle and that's where you go to go to the loo
+
+[00:39:14] and there's an eight foot deep drop down into the pit of the loo and unfortunately bats love living in there so you will you will sometimes get bats rocketing up past you while you're on the loo and the scientist, the New York Times
+
+[00:39:29] reported a Welsh scientist called Ligia Dorwood who said I've had the soft leathery caress of a bat's wing against my buttocks while having a poo. Wow. Do you think that's nice? It's exciting, isn't it? It's exciting, but exciting and nice are two very different things. I think I go for Andrex Quilted.
+
+[00:39:51] What do you think if you have a note, a bank note? Let's say a dollar bill, but probably the same here. Do you think it's more likely to have cocaine on it or poo? Ooh. Well, as we've established, they're one and the same. Oh, I'll say cocaine. Okay.
+
+[00:40:14] I'll say poo. Anna, do you care? Again, it's difficult to, but I'll pick downside. So there are traces of cocaine, according to Dr. Philip Tieno from New York School of Medicine. You get cocaine on 80% of dollar bills. What? And the 2002 report in the South... than medical journal reported that
+
+[00:40:36] 94% of dollar bills tested positive for fecal pathogens. Wow. So the answer was poo. Congratulations, poo. Another quiz format. I'm going to keep trying these quiz formats
+
+[00:40:56] until one's steps. We should wrap up, guys. Okay, that is it. That is all of our facts. Thank you so much for listening. like to get in contact with any of us about the things that we have said over the course of this podcast. We can be found on our Twitter accounts. I'm on at Shreiberland, Andy, at Andrew Hunter, James, James Harkin, and Anna. You can email podcast.cuhi.com. Yep, or you can go to our group account, which is at no such thing. And you can also go to our website, no such thing as a fish.com.
+
+[00:41:23] We've got all of our previous episodes up there. We also have a link available for the rest of our tour, the nerd immunity tour that we are currently doing here in wonderful Richmond. Thank you so much everyone for being here. Really appreciate it. Thank you all the way up there as well. Hope was right. Yeah, thank you so much, guys. And that is it. We will be back again next week with another episode. We'll see you then. Goodbye.

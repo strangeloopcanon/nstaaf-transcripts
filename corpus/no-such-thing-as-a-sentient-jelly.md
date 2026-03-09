@@ -1,0 +1,229 @@
+# No Such Thing As A Fish - No Such Thing As A Sentient Jelly
+
+- Episode date: January 24, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-sentient-jelly
+- Slug: no-such-thing-as-a-sentient-jelly
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I am sitting here with Anna Tzinski, James Harkin, and Andrew Hunter Murray. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that Thomas Edison was once almost killed by a flying badger. Was this one of his inventions that had gone wrong? You're absolutely right.
+
+[00:00:50] It was a badger cannon. And one of the badgers got stuck in it, and he kind of prodded it to see if the badger would get free. And then it went off at his face. Wow. Wow. That's not it. No, no. That's thinking I've researched the wrong thing.
+
+[00:01:05] Oh, my God. Two badger incidents? No, he was riding on a locomotive on a train And he got very friendly with the people who were engineers on this train And they let him sit on the cowcatcher Which is the little bit of metal in the front of the train So kind of knocks things out of the way It looks like if you picture the front of a knight of the realm
+
+[00:01:27] Like Solantelot's helmet That sort of bit that sticks out The Biser bit that they look through looks like that. That's a great description Yeah He said the engineers gave me a small cushion and every day I rode in this manner. Only once was I in danger when the locomotive struck an animal about the size of a small cub bear, which I think was a badger. This animal
+
+[00:01:47] struck the front of the locomotive just under the headlight with great violence. Wow. So it just passed his head and hit the train. So imagine this was when he was quite young. I think he was about 31 or 32 at the time. So we could have never had all the things that he invented. We've got killed by a badger. We wouldn't have had the podcast. You're right. That's what the world would miss the most. Everyone's walking around in the dark because there's no light bulbs going. I wish I had a podcast.
+
+[00:02:18] So this is just a weird thing about Edison. I know we spoke about Edison a lot, but I can't believe I've never heard that. I know, extraordinary. That was a year or so before he really got on his hot streak of inventions, wasn't it? That was maybe a year before the... Yeah, he was famous-ish. They were still, they were calling him Professor Edison at that stage. So he had done a few bits of inventing, but he hadn't done the major inventions.
+
+[00:02:41] So like the cool people were already into him who were going to spurn his later work. But it does feel like a time stamp moment, doesn't it? Sort of time travelers will go back to alter history by just making the badger hit him. Do you know what I mean? Like that's the moment where you could kill him. Wow, yeah. You'd have to be very skilled to place a badger in the exact place that when it hits a cowcatcher, it goes and hits Edison in the face.
+
+[00:03:06] You're right, there's probably a lot of failed attempts where... You could just swap the badger for a cow. That would probably do it. Do you think? Yeah, because cows are so much larger than badgers. So they're harder to throw up in the air. Actually, I don't know what happens when a train hits a cow catcher because, well, I read some accounts of what happens. So you do know what happens.
+
+[00:03:25] Sorry, I don't know exactly what happens. So a really good cow catch, like a very effective one, could, if it hit an ox, which would weigh up to 900 kilos or £2,000, it could throw it third. 30 feet into the air. No way. Come on. You've got a whole train behind it. I guess so, yeah. Yeah.
+
+[00:03:42] But in those days, they weren't going as fast, were they? Is this like a modern bullet train? No, this is a contemporary account of like a good cow catcher. Yeah, yeah. So I'm on to do the maths on the Japanese bullet train and how higher cow would go under those circumstances. It would go into orbit. I think it would. Can we jump over the moon.
+
+[00:04:00] We know what happens. They were, it wasn't uncommon to ride on them, turns out. Really? Yeah. Look them up. So I was looking them up in the British newspaper archive. And there were just stories everywhere of people who took rides on the cowcatchers. So there was this woman in 1893 called Lady Grey Edgerton and she was holidaying in Canada. And she said she asked the driver. So it wasn't a regular thing. But she went to the driver and she said, can I sit in the cowcatcher for the journey? And apparently he said, look, all your purposes will be answered by riding in just the front cabin with me. And it's very dangerous. So no. But then as she wrote, he was eventually obliged to allow that the seat. scenery could be seen much better sitting on the front of the engine, and so he let me do it. I think that he did, Edison also said that it was so that he could see the scenery and stuff like that. Yeah.
+
+[00:04:46] Actually, there was one more modern one. I think, didn't Jeremy Corbyn once sit on the cowcatcher because he couldn't find a seat on a virgin train? That's a very niche joke. Listeners in America going, what the hell is we talking about? That's really, so that's, it's like the 19th century equivalent of going into the cockpit on a plane, isn't it, it's a special perk that not many people get. Yeah. No, it's going on the nose of the plane.
+
+[00:05:12] Oh, yeah, sorry. It's like the 19th century equivalent of going on the DLR and getting that seat at the front. Oh, yes. It looks like you're the driver. I think you've won around the American listeners. Does anyone know who invented the cowcatcher? I mean, you must have done because you researched it. I do.
+
+[00:05:27] Yeah, it's incredible. No, don't. It was invented by Charles Babbage, who invented the computer. Wow. That is surprising. One of them really has stayed with us more, hasn't it? I guess so. Although, like Babbage's computer, he invented a difference engine,
+
+[00:05:43] which was like an early prototype of the computer, and people aren't really sure whether he made it. I don't think he did make it, actually. And actually, the cowcatcher, it was supposed to be used between Liverpool and Manchester, but it didn't really catch on if they ever made it. And he also invented really big shoes for walking on water. Cool.
+
+[00:06:03] And also speaking, tubes that were supposed to link London and Liverpool. And I don't think they ever got made either. So I'm wondering about Charles Babbage. Yeah. What did he actually do? Did the shoes, the water shoes, presumably, didn't work, or did they? No, they didn't really work, because he invented them when he was 16 years old, and he tried them out, and he nearly drowned.
+
+[00:06:24] Wow. Okay. Presumably, it does work if you just have to have really big shoes. It's basically like you've got two boats and you put one foot in each boat, and that's not an invention. That's just straddling two boats. The question is how small can you make the boats? Yes. How small is a boat before it becomes a shoe?
+
+[00:06:41] I think that's what we're wrestling with here. The first train to have a cowcatcher on that we know of was called the John Bull, which is quite pleasing. Was it? That's in 1833. I read one story from 1963, which must have been when cowcatchers were going out of fashion a bit. But one story from 1963, which reported that 65-year-old Mrs. G. Reaul Gordon came riding into Brisbane today on the cow catcher of a train. And it turned out that she said she wasn't quick enough to get out of the way when crossing
+
+[00:07:12] the track. So she grabbed on instead and hung on for dear life. She said, I thought of calling out for help when I was on there, but it seemed a bit silly. So she just waited until it got to Brisbane. Wow. So some more stuff about Edison, some weird stuff I'd not seen before. So this trip where he was on the train, where he almost got killed by a badger, it was because he'd been to see a total eclipse of the sun. He'd been to Wyoming where this had happened
+
+[00:07:39] and he wanted to try out an invention called a Tazeimeter, which would measure small changes in temperature. Now that experiment failed because the device was too sensitive, but while he was there, he slept out in the open and a man who was there at the time said that Edison told him that when he lay down in the open, he wasn't thinking about resting, he lay up and looked at the beautiful stars in clear skylight and invented the incandescent electric light.
+
+[00:08:07] And apparently that is where Edison came up with the idea. Apart from historical evidence indicates that the story is simply a myth. But who's to say? Because lighting had already been invented years before. Oh, had it? And Edison came up with his idea of using these bamboo filaments years later. And this guy kind of, it was quite a lot of years later when he said, oh, I remember Edison told me this thing.
+
+[00:08:32] But he said he thought Edison was sleeping, but he wasn't, right? That's what he said. Okay, because to me that sounds like when you're sitting on the couch watching movie with your dad and he's falling asleep and you wake him up, you're going, no, no, I'm awake, I'm awake. Yeah, yeah, I'm just inventing the light bulb. Yeah, exactly. One thing Edison would do, he was very deaf. He was almost completely deaf in one ear, and he was completely deaf in the other ear.
+
+[00:08:54] So he really couldn't hear very much at all. And when someone was playing music or the piano, he, to listen, would bite the wood of the piano itself. That is incredibly off-putting for the performer. I would have thought. What are you talking about? The wood of the piano. It's a big finger piano.
+
+[00:09:12] I guess he'd pick somewhere where the player could play and he could sit there biting the piano and listening through his head. Because the vibrations would obviously make their way to his inner ear. And there are accounts of him doing this from his daughter and his old, his personal phonograph
+
+[00:09:25] has tooth marks around the edge from where he was listening to music. He must have been the nightmare to go to the other. orchestra way. You know, it wasn't, this Badger incident wasn't the only time that he sort of had his life in danger on a train. So he was actually fired from working on a train because he set up a chemistry lab inside
+
+[00:09:44] one of the trains. And it caught on fire while an experiment was going on. So the train was on fire and he got fired as a result. And I found this out weirdly on a site, you know TV tropes, which just tells you all the great TV tropes. Edison has a huge entry in TV tropes for the tropes of his life. that apply to the tropes you would use in TV. So in Too Dumb to Live, which is a category,
+
+[00:10:06] the Badger incident is in there as a TV trope. He's got covert pervert. He's listed in that as well. For what incident? So in an interview, when he was talking about the application of the phonograph, when he first invented it, he had a list of what you could do with it. And one of the things was you could hide it in the White House
+
+[00:10:25] as a listening device, so you're recording the conversation and then play it back later. The other one was that parents could put it in the home, of their married children to listen to the sounds of their spoony courtship and spoony courtships in quotes Spoony courtchette. Oh my goodness. What a phrase. Yeah, so that gets him into the covert pervert. I think the website TV trots is slightly extending its brief a bit here. I know. There's not a trove of being hit by a badger when you're sitting on the front of a train. Can I also, can you imagine if you're Edison's kids and you're just getting down to a bit of spooly courtship and then the bedpost, Edison's a
+
+[00:11:01] Okay, it's time for fact number two, and that is Anna. My fact this week is that there are only two groups of animals on Earth that live entirely on seaweed. And they are a type of iguana and a type of sheep. They're not in the same place? They are not in the same place. They don't know each other. I don't think they hang out. We don't know if they make calls to each other at weekends or write letters, but no evidence of that.
+
+[00:11:29] So this sheep is amazing. It's the North Ronald Sea sheep on, so North Ronald Sea is the most northern island of Orkney, so it's part of Orkney, and right to the north of Scotland, and 50 people live on it, and 2,000 sheep. They're very primitive sheep,
+
+[00:11:46] so they've lived on the island for thousands and thousands of years, and they have this amazing thing where they subsist on exclusively seaweed. So cool, yeah. They're my favourite sheep in the world. Is it tough competition up there? To be honest, I didn't have a favourite until I researched this one.
+
+[00:12:02] But no, I definitely do. That's so awesome. And they've been living on the seaweed for so long now that, so there's a big wall that's been built, a big dike that's maintained by a lady called Shan. And she's living there and she basically has to rebuild this wall all the time because when huge winds come and so on, it gets knocked down. So it's a big perimeter she has to do. And in the article I was reading about saying that they're so used to the seaweed now,
+
+[00:12:25] if they break through and get to grassland, they can't eat grass anymore. They've evolved away. from taking in... If they eat too much of it, they think it might poison them. And it hasn't even been that long, though, that they have been living off seaweed. So it was in 1832, I think,
+
+[00:12:37] that people decided to cut them off from the land, basically. So the island has built this massive dike, as you say, and it was to keep the sheep away from the delicious grassy pasture because they were farming their cows on that. And so they sort of forced the sheep
+
+[00:12:50] to just start living off their seaweed instead. Yeah. Now they love it. They're still on the outer edge of the island, just living on the beach, basically. Basically, yeah. Yeah, round the perimeter. And so annoying if you end up sort of on one side and your mates on the other side
+
+[00:13:05] because you just can't cut across the middle. You've got to go all the way around. Well, actually, they don't have mates on the other side. They always stick together in their little groups. Oh, do they? Yeah, and you can't move them from the north to the south or the south to the north. If you try and do that, they are having none of it at all. They just like staying in their little group.
+
+[00:13:21] They have like certain bits of seaweed and they like their bit of seaweed and they don't like any others. And apparently, if you have to look after them, otherwise they swim out to a rock where you can't get at them. And there are also ones that are called loopers, which are sheep that climb on top of each other to try and get over the wall. Wow. Isn't that cool? And so self-sacrificing of the bottom sheep.
+
+[00:13:43] Yes. Unless the ones at the top kind of pull them over, they don't have the posable thumbs. Yeah. I'm sure they would if they could, though. But they know about the tide as well, these sheep. They know where the tide is and they sleep accordingly, so they don't get caught out by it.
+
+[00:13:57] How do they? And as soon as the tide goes out, they rush out to get the seaweed that's been left behind by it. And that's why they swim out. Wow. Also for more seaweed. I love the idea of being of a sheep checking the tide time. Leaning against the wall, going, not until Wednesday will that beach be accessible? Sean is called Sean Terrance.
+
+[00:14:16] And I found her on Twitter. So I, yeah, I contacted her in the hope that she might check her Twitter before we recorded today, just to see if she had any more facts to give us. and turns out she's a massive fan of the podcast. No way. Yeah, no way. We're her second favorite podcast. Oh, it's the first one about sheep.
+
+[00:14:36] That's Guilty Feverness. It's her favorite. Really? Yeah, but so I just asked her instead of getting facts, I said, when you're fixing this wall to stop the sheep, do you ever listen to us? And she's like, yeah, always. I'm listening to you guys as I build the wall on this island.
+
+[00:14:49] Sean, I want to come to the island and help you build the wall. He wants to meet his favorite sheep. Build the wall. Oh, no, sorry. That's something else. Sean, I'm so sorry that Dan is so obsessed with our podcast that he meant to go to you for facts. And I'm just saying, oh my God, so when do you listen to us before you go to sleep? Do you listen to us when you're with the wall?
+
+[00:15:09] So you got no interesting facts of her. Did you go back? I did, but I didn't read them because I just went down that line, as you say. How long has Shan had the job, do you know? It's a three-year post and I think, yeah, I think she's out there for a few more years. Yeah, she just started in the last few months, I think. Yeah. She is awesome.
+
+[00:15:24] Just because I read an article from before she got the job, I think, when it was in real disrepair, and they were trying to fix it. And they said that the cost of repairs was going to be about £3 million to build this because it just basically, they didn't really have anyone with the skills. And it's not just getting the labour, it's also getting the materials, which aren't nearly as prevalence as they used to be. Because apparently in 1902, it cost four pence an hour to repair the wall. Wow. Four pence an hour. That's really good. Although, how many hours does it take?
+
+[00:15:55] Maybe it added up to a million after a few years. Maybe Sean charges an enormous salary for doing this. That's what's happening. Didn't she say something about the sheep eating seabirds sometimes? Do they? Well, this was on your Twitter feed down with you. I just happened to click on Twitter. I only noticed the facts that she'd sent us.
+
+[00:16:15] I think she said that the sheep sometimes you sometimes find bodies of seabirds with the heads and the feet missing. So, Anna, your fact about them only eating seaweed. Oh, this is snacking. This is luxury. Yeah, yeah. This isn't part of their diet. It doesn't care. If you're on a 5-2 diet, aren't they? They were two days a week.
+
+[00:16:30] They can eat a seabird's head. So that's what she sent, said. They're known to eat the feet and beaks of dead birds on the shore. So you see dead birds with feet and beaks missing all the time. That's sinister. They get fatter in the winter because there's more seaweed washed up by the storms. And they run up to the dike and over it if it's leaning and into the island side away from the shore. And they've been found on airfields as well.
+
+[00:16:53] so assume there's an airfield on the island. Do you think they're trying to catch a fly out of there? All the planes have sheep catchers on the front place, so they're fine. Wow. So it sounds to me like the sheep think that the bird's beaks and feet are seaweed. Because why aren't they eating the main bit of the bird? Well, that's a good point. The main bit of a bird doesn't look like seaweed,
+
+[00:17:11] but the beak and feet do look a bit seaweedy, don't they? Ronald C is a weird place, isn't it? Anyway, I mean, it's so small, obviously. It's only school shut down in 2017 after the only pupil left. It wouldn't have been stupid to keep it open after that. Well, they've actually said it's on standby in case any other children move to the island. What does that mean? Are there teachers in position waiting to descend?
+
+[00:17:37] Constantly poised, chalk suspended behind a blackboard. No, they had one people there who, I think she was about 12 in 2017, and she'd been the only people there for two years, and her teacher would fly from Orkney's main island three times a week to teach her. her personally and then she'd fly twice a week to Orkney and then they decided to just sent her I think to Orkney and now the only child I think is three years old Okay, going to school next year possible
+
+[00:18:04] Yeah Get ready, tincters Some stuff on seaweed Oh sure, yeah So seaweed is useful to otters This is one of my favourite things about it Because otter babies, otter pups can't swim But they're extremely buoyant so it's fine, they don't drown
+
+[00:18:20] And it means their parents can leave them alone when they go out hunting for them, but they need to stop them floating away. So when they go hunting, they tie their pups up in seaweed. Wow. Wrap them in a little seaweed cradle and tie them to the bank.
+
+[00:18:33] That's cool. Real cute. There is a company which does seaweed for the stars. Okay. It's a celebrity seaweed for movies. It's called the Hebridean Seweed Company. And they provided all the weeds for the Pirates of the Caribbean film because they obviously needed loads.
+
+[00:18:49] Wow. And when they were filming Les Miserables, the recent Hollywood version of it, they bought nine tons of seaweed from this company. Really? Is it real seaweed or fake? Yeah, it's real. Is it?
+
+[00:19:01] If they're in the Hebrides, I don't think they're stitching it. I think they're just gathering it. It's just like for movies, real seaweed is going to be, you know. Good point. It could be made of Harris Tweed. Yeah.
+
+[00:19:14] It could be made of birds' beaks stitched together. I'm pretty sure it's real seaweed. There is, in a sense, no such thing as seaweed. Okay. Because when we say seaweed, we're just talking about benthic macroalgae, which is just lives in the sea and is visible to the naked eye, macroalgae. And technically that's what you should order in a Japanese restaurant. But there are three big kinds of seaweed. So then they get referred to as brown algae, red algae, and there's a third one, which I tend to write down. And brown algae and red algae are not even in the same kingdom of life. Really?
+
+[00:19:50] Yeah. They are less closely related. than a cod and a jellyfish, which are very, very different life forms. Different kingdoms. Jesus, please. Chosen two things which are not a million miles away. No, I should have said a wasp and... A mushroom. A mushroom, brilliant.
+
+[00:20:10] Andy, I mean, you've just written a book of fiction, and that's how far your imagination can stretch. You couldn't even come up with an animal that was very similar to a wasp. In 1850, there was a moment where a Frenchman thought he discovered a whole new species of seaweed. He'd never seen it before. Unfortunately, it wasn't seaweed. It was the new UK and France telegraph cable that had just been laid in between. And he mistook it.
+
+[00:20:37] And it's because they didn't do the wiring properly. It wasn't properly armored. So he thought it was seaweed brought it up, cut it. And then he thought he'd discovered gold because of all the wires inside. But yeah, it was mistook seaweed. This guy's a fucking idiot. I know, Amora, this French fisherman. And it was interesting because that first cable, sorry, I know this is not relevant,
+
+[00:20:57] but when I found out that this guy thought it was seaweed. You emailed him and apparently he's a fun of the podcast. So that cable, because of the armoring, which made him think it was seaweed, that wasn't there, it also meant that people who were listening to each other over the cable couldn't hear each other properly. It was really distorted stuff. but when they first tested it and they got reception from France and France could hear England, they didn't realize that what they'd lay down was bad because they thought both sides were drunk and partying from the success of the thing. Yeah, and it was only in the morning when they did another broadcast.
+
+[00:21:32] They're like, oh no, this is terrible. This is unusable. They're slimy for a good reason. Seaweed. Or it, it is. So otherwise they decapitate each other. I thought you were talking about the French. Well, I wasn't, and I want to make that very clear. So seaweed is slimy because otherwise it would decapitate itself.
+
+[00:21:51] Because its fronds were always waving around in the sea. And so they sort of rub up against each other. And they would get tangled, obviously, in knots and like rip each other's limbs off or rip their own limbs off. They weren't so slimy. That's cool. Smart. It's very cool. Okay.
+
+[00:22:07] It is time for fact number three. And that is my fact. My fact this week is in 2017, China launched the world's first electric cargo ship. The ship is now being used exclusively to carry coffee. to power stations. How ironic. How ironic. Yeah, this is a this is a 230 foot long ship and it's it's a sort of it's not out in
+
+[00:22:29] the oceans. It's on the Pearl River and the idea is it's going in between the coal pickup point to the power points and when it docks it sort of plugs itself in and recharges its batteries. The time it takes to load and unload is roughly the time it takes to charge up. Well, it is a step in the right direction. Yeah. I mean, yeah, it could have done without that. that bit of press of it having powered power stations.
+
+[00:22:52] This is sort of what it's being used for at the moment. Who knows if they might suddenly turn it to something else? But it feels like it's just going to remain doing it if it's battery ports at both places there. But yeah, but it is a big step forward if that technology becomes available to new ships. Because, yeah, the ships are extremely dirty. Yeah, Calgary ships especially. Apparently, ships burn the dirtiest oil that you can get. It's called bunker oil and you scrape it from the bottom of the refinery and it's all gunky and stuff like that.
+
+[00:23:19] And it's so thick that if you were to go into the engine room of a ship and go to where the fuel is, you could walk on it. Oh, cool. But don't do that. You wouldn't even need magical shoes not invented by Charles Babbage. You wouldn't need those. But you can travel by cargo ship, and that is environmentally friendly, because obviously they don't usually take passengers, so it saves you getting a flight. And people do this. I got really obsessed with these guys last year and wondered if I'd want to do it.
+
+[00:23:49] But there was one man who I read about called Torbjorn Pedersen, and he basically is blacking his way around the world on container ships, which sounds just awful. And he says everyone should do this. You've got to get on board. So it's months and months at sea. And he says, you call up not the captain, because apparently they get offended and they don't like it.
+
+[00:24:08] You call up the shipping company. And you try to blag your way on, and you promise that you can be on your own for long stretches of time at once. I'm really happy just sitting on the very front of the ship. Like I'm on Titanic or something. Just pushing cows out the way. You have to say you'll be like invisible. You'll never get in the way of the crew.
+
+[00:24:30] You sleep in basically this tiny sort of, well, he says it's all right. He's like, it's got a bed, it's got a shower. And apparently it has unlimited hot water because they run the water through the engine. So it gets free heating. Fortunately, it's also full of oil. The worst thing about that is 33% of crew on the world's cargo ships don't have any means of communication.
+
+[00:24:52] So no Wi-Fi, no 3G, nothing like that. You're just away from, you can't go on Twitter. Bring a book. Bring a book. If you're traveling to Australia by cargo ship, take a long book.
+
+[00:25:05] They're really lonely places, aren't they? Because the crews are so much smaller than they used to be, because automation means you could do so much more with many fewer people. Yes. Only 2% of seafarers on cargo ships are women. Is that so?
+
+[00:25:18] Okay. Yeah, he did cite one of the disadvantages as being you won't see a woman for three months. Get used to male company. Yeah, because he was saying, actually, the crew was something like 20 people. And actually, these ships are massive. So the biggest ones are longer than the Empire State Building is tall. And yet, yeah, so few people on them. Do you know how ships are launched?
+
+[00:25:40] With a champagne bottle. Very true. But there's another. So in which dimension are they launched? Oh Which direction are they launched? Towards the sea. Towards the sea.
+
+[00:25:51] Absolutely correct. Yes. Can't put it on any of this. Yeah, you've done really, really great. But is it not? I thought they put a load of like butter on the...
+
+[00:26:00] I genuinely thought this. Yeah. You put a load of butter on the slipway. Slip way. That's why it's called slipway, because it's slippy. And then you smash the champagne and then you give it a little bit of a nudge
+
+[00:26:10] and then the butter lets it go into the water. But you use... I thought you shove it sideways. Lots of ships are launched sideways. That's what you're getting at. It's insane. Yeah. There are videos on YouTube of ships being launched sideways and they are great.
+
+[00:26:26] I spent a lot of time watching them. And another... Me too. I watched a lot last night. God, it's really intoxicating when you start. You can't stop. Why are they launched sideways? It's crazy.
+
+[00:26:34] Sometimes there's no room to launch lengthways given the body of water you're launching into. So you might be launching into a sort of a river or a, you know, sort of shipping lane on its way to the sea. And they tilt over really free. bar. And if I can give another shout out to the YouTube video compilation of accidents with boats on lifts and cranes. This is a minute and a half of sheer mayhem. It's failing to be launched and sometimes the crane goes in the water and sometimes they let go too early. It's so funny. It's extraordinary. I found one ship that did sink on launch. There was only one in 1907. And it was a really nice sounding ship as well. It was a luxury Italian liner. It was 149 meters long.
+
+[00:27:15] and they launched it into the water and it started tilting. And then when it started tilting, obviously everything inside fell over towards the edge that was tilting. So that made it fall further. Well, that's one problem. They can get taken, they can get sunk by avalanches, can't they? Ships, container ships, and it's avalanches inside the ship. No. So if you have something in your ship which might be gravel, or in fact, this would work with literally anything as long as there was enough of it and there was enough space, like it starts acting.
+
+[00:27:45] like a landslide, and then once a little bit starts going, it all goes more and more and more, and it's like a vicious circle, and there's an avalanche inside the ship, and it just goes over. Presumably then you have to scream to the crew, like, everyone get on the other side of the ship,
+
+[00:27:57] quickly, run to the other side of the ship. Jump up and down. Who's that fat guy? Get over here. I'm going to say that the 24 people are thought are not going to outweigh. Why didn't we take that hitchhiker? Okay, it's time for our final fact of the show.
+
+[00:28:16] And that is Andy. My fact is that the first ever instrument made for food quality control was built to test the consistency of jelly. Right. And this is from an article on the Science Museum's website, and they have an article all about the history of food and food testing. And this was made by a German chemist in, I think, 1861, and it's a thing called the jelly puncture test. And what you do is you just put your jelly on a little platform, and then there's a kind of, weight above it, like a sort of hard-in-weight. It looks a bit like a pendulum, actually, and it's on a stick.
+
+[00:28:51] And it slowly just pushes down on the jelly with increasing pressure. And then you can see how much pressure it takes to puncture the jelly. And that's how you test it. Yeah, you pour lead shot into the top of it, don't you, until it punctures? And then you take the lead shot out and you weigh that, and that tells you what your score is. Yes, that's the original one, isn't it? Sorry, yes, the one I'm describing those later one. And did they always remember to remove the lead shot, or is it like eating game or partchard or something away?
+
+[00:29:15] Careful of shot in your jelly. You know it's a posh children's birthday party, don't you? When you're getting little bits of lead shot and your jelly and ice cream. Yeah, he was invented by a guy called Alexander Lipovich, who was a German chemist. And he's really cool, actually. He also was the first person to find out that lithium dissolved uric acid so that you could use it for gout.
+
+[00:29:35] He also wrote about self-ignition of peat, wool and linen rags. He wrote a brief description of the Posnan guano factory. He wrote a draft for the establishment of the fire insurance bank for pharmacists of Northern Germany and he invented a new type of pinchcock which we all used today we all used today
+
+[00:29:56] what the hell's a pinch cook please it's a clamp used on a flexible tube to control the flow of fluid through it gosh I'm sad he's no longer with us because I would have loved to invite him to a party come on imagine sitting next to him at a party when he tells you about the Posnan guano
+
+[00:30:12] factory it's like a shit babbage The consistency of jelly testing Is it like if it was too soft Then you weren't allowed to sell it What were they checking for? Do they need it to be really hard or really soft? I don't actually know
+
+[00:30:27] Just right I think it was I think that must be what it was But people afterwards kept inventing Puncture tests for different kinds of foods And they kept they didn't notice That there was already a decent puncture testing machine Which had been invented for jelly
+
+[00:30:42] So over the next five decades They invented different puncture tests for butter, for solid fats, one for eggshells, and they just kept evading new machines until someone said, you're all inventing the same machine over and over again. It's exactly the same machine. It's literally the same machine. You've got to talk to each other people. Come on. It's bizarre, yeah. There is one thing you need to know if you are testing jelly, and that is that American Gillometers, as we call them these days, have square plungers at the bottom, whereas
+
+[00:31:08] European ones have rounded bits at the bottom. And so that means that if you're testing an American jelly and a European jelly, you might get slightly different readings. Just a little tip for those of you at home puncturing jellies. The first fact I ever found for QI was about jelly. Was it? Yeah. And so I went back with my old post. It was that thing in the J series about how if you attach an EEG machine to jelly, then it gives the same readings as a human brain. Do you remember that? And it's wobbling. Yeah. And that was, was it something like if a jelly was attached to it in theory you wouldn't turn off the life support machine it was exactly that so and it's called alpha rhythm
+
+[00:31:50] I think which is when humans are awake but with their eyes closed it's the rhythm that your brainwaves give off and yeah it was an experiment to show look guys we're sort of keeping a lot of people apparently alive who are just definitely dead or that actually all jellies are sentient yep that was another interpretation which was a more niche interpretation but some people certainly thought it
+
+[00:32:10] Do you guys know about the jelly houses of Covent Garden? No. Are they extant? Do they exist now? No, they don't exist now. Yeah, it doesn't sound like a durable material. This was in the late 18th century. And what it was is this was to do with sex work.
+
+[00:32:27] So a high-end sex worker would sit in a cafe in Covent Garden and they would have next to them some jelly. And if you saw them with jelly, that would say, it's basically like a red light district kind of thing. It's saying that that's what I do for a living. I'm a sex worker. Where the phrase, I don't think you're ready for my jelly comes from. Yeah, it's, yeah.
+
+[00:32:48] That's bizarre. Surely some people were just enjoying jelly. Well, it led to, yeah, a lot of awkwardness. But was it, was it like meant to be a post-coital snack, perhaps? I don't know if the jelly ever was consumed as part of the transaction, but it was the signal to say that this is what I do for a living. Sure, I just wondered why particularly you. choose jelly. But if you did have to consume it before every time, then you have to buy a hell of a lot of jelly if you're a successful prostitute. So it's probably not. It makes no less sense
+
+[00:33:19] than a red light, you know, a red light district. Well, yeah. Red light is traditionally associated with stop. No, no action, no movement. Yeah, I know what you mean. Whereas jelly is quite sexy food. I think it is kind of, isn't it? Because of the movement and the wobblingness. Yeah. Until the children's party business got in on it, at which point it very quickly stopped becoming sexy. Well, there was a book. I was reading an article called the Jello Syndrome, Investigating Popular Culture in Jelly by Sarah E. Newton. And she wrote that there was a book called recipes to make your honeymoon last, which was actually in 1987, so not that long ago. And 33% of the salad recipes contain jelly. What? Salad. So I was reading this, and it seems to me like in America, they have,
+
+[00:34:08] Jelly in the salad. Okay. And not a fruit salad. No. How disgusting. I know. Recipes to make your honeymoon last? Yeah.
+
+[00:34:16] 1984. 1984. Year of my birth. Oh. Let's draw no conclusions. There was a bit of sexy spoon. What was that called? Spoony.
+
+[00:34:26] Caterall spoon and Cee. Spoony business. Spoony courtship. Spoony courtship. Good dear. Some other food quality control. Okay. Yeah.
+
+[00:34:37] Okay, so in this article that you sent around, Andy, from the Science Museum, they had something about horlicks who have a dipping refractometer that they use for their horlicks. Now, whorlicks would make sense to have next to a prostitute to advertise what she did. Yes. Very good. Because it's sleet. No, whore, she licks. Sorry, I thought you meant it's sleepy and it's time to go to bed.
+
+[00:35:03] I've been ripped off at so many jelly houses. Oh, God. Sorry, Horlicks. So they test their drink by dipping a telescope into it. What? It's called the dipping refractometer. It's a tiny telescope. Okay.
+
+[00:35:21] It's not like Jodrell Bank. You dip a tiny one and it goes into each hole in the hallets because it's quite bubbly. And it sees how much the light is refracted. And that tells you whether you've got good horlicks or not. Cool. Is there a perfect refraction level, sort of 38 degrees or something? I imagine there is, but I don't know what it is. That's incredible.
+
+[00:35:40] And it's to test the concentration of ingredients in the sample. Right. So if you've made it right. Just a quick thing on jelly beans. I was reading up on jelly. I went to jelly beans. And Jelly Belly, who make all the biggest brand of jelly beans. So to get their flavors, they have to invent interesting ways to sort of get this new
+
+[00:36:00] flavor that they're advertising. And there's a line that they have, which is called Bertie Bots Every Flavor Beans, which is kind of like a Harry Potter one, where it's meant to taste of horrible stuff. So the way that they actually do that is to make the taste of the bean. So let's say it's stinky socks. They actually had a scientist have socks worn for weeks, then put them into a plastic bag.
+
+[00:36:19] He aged them to be even smellier. And then he popped them into a gas chromatograph, which is basically something that just breaks down the molecules to understand the smells, takes the flavor makeup from this specific scientist's socks. And that is now the smelly socks. It's jelly bean. Yeah. It's the actual socks of a...
+
+[00:36:37] of a guy. That's incredible. Yeah. Yeah. And they do it for a bunch of ones. They tried to do a pizza flavor one, but it ended up tasting like vomit. So they put it aside. And then they needed a vomit jelly bean.
+
+[00:36:47] So they just found the pizza one. They went, remember that pizza one? And that's now the... Do you know what they could have used? They could have used a parmesan-flavored bean. Because parmesan smells like vomit. And if you tell people that they're smelling vomit, they're disgusted. And then if you tell them, oh, don't worry, it's only parmesan.
+
+[00:37:03] The disgust bit of their brain switches off. Really? Oh, yeah, I love parmesan. Because I was having this conversation yesterday with someone actually where, well, let's say it is a hypothetical situation where someone farts. Okay. Then the other person says... This is completely hypothetical, right? This is a situation we were imagining.
+
+[00:37:21] Yeah. Someone's farted. And then the other person says, that smells exactly like eggs. And then the first person says, well, if it was actually eggs, you wouldn't find it disgusting. So why are you so disgusted? And debating whether or not if you fart and then you tell someone, oh, don't worry, I'm just. just boiling an egg, then they're not going to be, they're not going to find it unpleasant, are they? And that implies that they wouldn't. Yeah, but you can't always boil an egg, say,
+
+[00:37:44] if you're at the cinema, in the lift. No, I think if you always keep a camping stove with you all the time, then a box of eggs. It's worth a try. You will get kicked out of the film. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy, at Andrew Hunter, M, James, at James Harkin, and Anna. You can email podcast at QI.com. Yep, or you can go to our group account at No Such Thing, or you can go to our website, no such thing as a fish.com. We have all of our previous episodes up there, links to things like our breed books that are still
+
+[00:38:31] available online. And yeah, we'll see you again next week, guys. Goodbye. I did actually read about that, and it said that the King's representative would march a round of the poop. The poop deck. The poop deck, absolutely. Jesus Christ. It's a funny phrase. It's funny word.
+
+[00:38:58] There is. And there are some 11-year-olds listening to this just pissing themselves.

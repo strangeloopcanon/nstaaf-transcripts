@@ -1,0 +1,185 @@
+# No Such Thing As A Fish - 4: No Such Thing As The Mountains of Kong
+
+- Episode date: March 29, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/4-no-such-thing-as-the-mountains-of-kong
+- Slug: 4-no-such-thing-as-the-mountains-of-kong
+
+## Transcript
+
+[00:00:00] We ran it on QI a few years ago, which was, there's no such thing as a fish. Yeah, there's no such thing as a fish. No, seriously, it's in the Oxford Dictionary of Underwater Life. It says it right there, first paragraph, no such thing as a fish. Hello, and welcome to another edition of No Such Thing as a Fish, coming to you from the QI offices in Covent Garden. My name is Dan. I'm sitting here with the regular three L's, James, Anna, and Andy.
+
+[00:00:38] And once again, we are going to go over our favorite facts from the last seven days. Fact number one, this is my fact. And the fact is that 30 million Chinese people live in caves. Whoa, really? Yeah, I've been reading a Paul Theroux book called Writing the Iron Rooster. I was initially reading it because of a fact I'd read a long time ago. He was talking about all the great Chinese inventions. He said, you know, the Chinese invented paper and, you know, gunpowder and wheelbarrows.
+
+[00:01:10] And the guy who was telling it to him in the book ended by saying, we even have wheelbarrows in China that you in the West don't yet know about. What? Yeah, that was the most exciting sentence. Wait a minute, what could it be that's different? I know what great innovations have happened to the wheelbarrow that we don't yet know about. So they got secret wheelbarrows in China that we in the West don't yet know about. But it was on the following page that it then said 30 million people live in caves in China.
+
+[00:01:36] And that in 1986, there was a program to relocate all these people, but not into houses, but to relocate them into better caves. I went to the Mary Islands quite a few years ago, and they traditionally lived in caves as well. And they wanted to bring back this kind of old tradition so you could get a government grant to live in a cave rather than live in a normal house. Oh, wow. I would live in a cave like a shot.
+
+[00:02:03] Would you? Definitely. Isn't there a story about English people? Yes, there was. During the Second World War, there are caves called the Chiselhurst Caves in Kent, and 15,000 people stayed there. And I found some guidelines. It's really in the middle of this cave, there's a very English notice board
+
+[00:02:24] saying no admission or re-entry to the dormitory section after 9.30pm. There must be reasonable quiet by 10pm. Lights out in absolute silence by 10.30pm. You can still visit them, I think, can't you? You can. I feel like I visited them in my childhood. There are 17 rules and about 15 are about going to bed on time. I wouldn't have done that.
+
+[00:02:44] The President of China used to live in a cave. What? Is it Xi Jinping? You'll be better on the pronunciation than me. He lived for seven years in a cave when he was exiled during the Cultural Revolution. I remember we looked at this in the series C, unsurprisingly. We found out that, like you said, 30 million people lived in China in caves.
+
+[00:03:04] But we also found that the entire population of the world in the Stone Age was only 5 million. So that means that there were more cavemen now than there have ever been in history, basically. Which I think is pretty great. And most people didn't live in caves either, did they? No, no, no. During the Stone Age?
+
+[00:03:19] I mean, a few people would have done, but most people just lived in the open? Yeah, of course. I think most caves have basically always been unlivable, haven't they? I think that's what I read, which is why most people couldn't live in caves. Although, so I feel like this can get easily confused with the fact that a lot of people in Beijing live underground, don't they? They used to, yeah.
+
+[00:03:36] I think they still do. Two million people at the moment. They think they live underground. 10% of the population in Beijing. I'll be talking about in a basement flat early. They either live in like a basement flat, windowless basements, air raid shelters. There are some in like pipe networks,
+
+[00:03:50] because just like property prices are so high. I remember, I read a biography on Mao Zedong, in which I found that great fact that his barber was called Big Beard Lang. And there was amazing stuff about him. I mean, it was an incredible biography. It was written by his personal physician. And in it, he says that Mao built an entire under-Beijing city, like an entire city that never got used,
+
+[00:04:12] but it was in the event of a massive war that everyone would relocate under the city and they would live there. And I try to do more research on it, but I can't find anything else on it. If you can't find the secret wheelbarrow, they're not going to tell you about the massive secret city under the city. Actually, Leonardo had a design for a city which was on two layers,
+
+[00:04:30] and the poor people would live on the bottom layer and the rich people would live on the top layer. He was like an architect as well as everything else. So eventually, we're talking about not the Capri. Not the teenage turtle. He had it in the sewers. I read the other day, I don't have any solid information on this. They found in 2009, I think it was,
+
+[00:04:51] about 60 kilometres more of the Great Wall of China that they didn't know existed. When they were doing a Google Earth survey of it, they discovered a missing bit of the wall, and they discovered a local village nearby who had just obviously come across this wall and gone, well, no one seems to be using this, and they took the bricks and they made a village out of it.
+
+[00:05:10] I think that happened with Hadrian's wall as well, didn't it? They took bits of the wall and just made houses out of it. With Rome in the Renaissance, they used old buildings to make new ones, yeah? I heard a brilliant fact about stones this week. So the world's largest piece of limestone, you can see where all the L's are coming from for the L series of QI, the world's largest piece of limestone is in Lebanon.
+
+[00:05:34] It was cut up by the Romans, and they were going to make a massive great big temple with it, but once they cut it open, they realised that it was too big to carry, and so it's still there where they cut it. That's great. That's wonderful. Recently, the oldest thing on earth, well, they know the oldest rock on earth.
+
+[00:05:54] What? You would think that that's impossible, but it's a bit of a cheat. It's a crystal that they found. It was 4.4 billion years old. Wow. Yeah, so it's the oldest. I love it when you have a little object that you can date,
+
+[00:06:09] Ash, who's a friend of mine, and for yes, did our theme tune. He has a chair in his house, which is a trunk, a bit of a tree trunk, but it's so old that it's crystallised. Is it crystallised? No, what is it? Oh, petrified.
+
+[00:06:26] But it feels like marble when you touch it, and I was touching it, and you kind of go, this is amazing enough, and then he said, check this out, this chair is older than flowers. Wow. That's amazing. My favourite thing, by the way, about the wall, the Great Wall of China,
+
+[00:06:44] they say, oh, we found a bit more Great Wall. You expect it to be five more metres of it, and then when they say 100 kilometres. That's just, I love it when things are found in such a ridiculous bulk. One of my favourite facts of all time is Barbara Cartland, after she died, they discovered unpublished novels.
+
+[00:07:03] You know, like after Northwood dies, they're like, oh, we found unpublished novels. They found 160 unpublished novels. With the Great Wall, I just thought someone would have gone from one end to the other, just to say, I've seen it all now. Why haven't they done that? I find it weird.
+
+[00:07:20] There have been, there were two conceptual artists who walked the length of the Great Wall of China towards each other, and then they met in the middle and kissed each other once, and then they never met again. And that sounds like a dream or a very Ponzi film, but it's not, it did happen. The guy died this week, who was the person who kissed at the end of World War II.
+
+[00:07:41] Do you remember that iconic picture? Did he die? Yeah, he died this week. Because I thought there was doubt over who it was. I think these were the guys who were accepted because they have other pictures that look very similar to them. But there were other people who claimed to be people. After the war, he was a male carrier
+
+[00:07:58] and semi-professional baseball player. Oh, really? They were identified by the Houston Police Department forensic artist. She took about 100 pictures of him using a pillow to pose as he did. She said she could match the muscles, ears and other features of the 80-year-old Macduffy to the sailor in the picture.
+
+[00:08:17] You don't want to be committing any crimes in Houston any time soon, do you? Especially not near an artist who paints you at the time. His name is Glenn Macduffy. And after he was identified, he went around fundraisers and parties telling his story, and women would pay $10 to kiss him on the cheek. Why the cheek, though? I mean, that's not what they do in the photo.
+
+[00:08:38] You would have thought you'd go for the full-on bent over backwards, wouldn't you? Yeah, of course I would. Otherwise, what's the point? Maybe that was a bit more like 10 pounds on the cheek, isn't she? Yeah. He was changing trains in New York when he was told that Japan had surrendered. He said, I was so happy I ran out in the street, said Mr. Macduffy, then aged 18 and on his way to visit his girlfriend in Brooklyn.
+
+[00:08:57] And then I saw that nurse, he said. She saw me hollering and with a big smile on my face, I just went right over to her and kissed her. Afterwards, I just went on the subway across the street and went to Brooklyn. Wow. Can you imagine if she's just reading the newspaper the next day and she just sees that?
+
+[00:09:12] I know those muscles in that earlobe. Okay. Fact number two, bent. Okay. Yeah, my fact this week is there is a banker in Latvia who will lend you money using your immortal soul as security. So what form do you hand over your immortal soul? Is it like a piece of paper you sign?
+
+[00:09:36] No, it's just your word, I think. Your word? I think so, yeah. This guy's not very evil. The weird thing is he's an atheist and he doesn't believe in souls, this guy, apparently. And what his point is is that a lot of people are not repaying their loans at the moment and he said, I decided that in such times
+
+[00:09:54] a man's word is more precious pledge than a car or an apartment which are depreciating in value. How much money has he got? He sees trading two weeks now. Exactly, I imagine in that one day he lent out all his money. It was a maximum of $1,000 you could borrow. Right. There was a gaming company in 2010 who put in their terms and conditions
+
+[00:10:17] you know the things that no one reads. By placing an order you agree to grant us a non-transferable option to claim for now and ever more your immortal soul. Should we wish to exercise this option, you agree to surrender your immortal soul and any claim you may have on it within five working days. Yeah, but the belief in soul is quite common. Like even today in this country you'll get
+
+[00:10:41] I happen to know that in some hospitals when someone dies they'll open the window just so that the soul can escape. That's a question of a nurse with a superposition. That is not policy. Like if someone said to me that I could borrow money in exchange for my immortal soul I don't believe in my immortal soul but I think I would hesitate before doing it. Just in case.
+
+[00:11:05] So like I was saying before people in history always seem to believe that people live forever. After you die you go on and you do something else. There's a huge number of Chinese emperors who all died because they were seeking out the elixir of life. The Qin, the man who effectively unified China gave it its name. He died because of his constant search for the elixir of life. He did a number of things in his life.
+
+[00:11:27] He did the terracotta warriors and they still haven't gotten into his main aerial place. It's incredible because the descriptions of it from legend were that it was made with a river of mercury and they've put tests to see if it's dangerous or not to go in and the levels of mercury are extremely high. Extremely high. So it kind of suggests that maybe he did make it come true. But he died from drinking mercury because he was told
+
+[00:11:54] that he was going to live forever that way also. Oh, because that doesn't work, does it? It does exactly the opposite. He was also told by a thousand year old wizard who he met once and could never find again. Oh yeah. That there was an island in which they would find the elixir of life. He sent off a boat full of people
+
+[00:12:15] and supposedly that boat never came back. Supposedly that's the boat that founded Japan. Also he sent off another expedition after the first one didn't come back to look for the islands of the immortals. Only one line came back saying that the herbs on the island were guarded by fierce whales and that the expedition had failed because they had been frightened by a huge fish.
+
+[00:12:35] Speaking of people living forever, there was a politician in America called Leonard Live Forever Jones. He ran for governor of Kentucky in the 1860s and he ran on a platform of being immortal. And because he was immortal, he refused any medical help of any kind and he died of a chest cold in 1868. Just with the age thing. I read this the other day which I found amazing.
+
+[00:12:59] The 10th president of America, John Tyler, born 1790. His grandson is still alive. His grad son. That's pretty impressive. You know the oldest complete skeleton found in Britain was the guy who was found in Cheddar Gorge who's 9,000 years old. And you know they tried to trace some of his descendants.
+
+[00:13:20] They decided to just look in the local area and they found this guy Adrian Target who's a school teacher who's a direct descendant on his mother's side of this 9,000 year old skeleton. So he's now broken the world record for someone who can trace his descendants back. Traces his ancestry back to the furthest. His wife said, this is all a bit of a surprise
+
+[00:13:40] but maybe it explains why he likes his stakes rare. That's great. That does make everything falling into place. Do you guys know about Joyce Heff? No. She was a... Do you know P.T. Barnum? The circus impresario from the 19th century America.
+
+[00:13:59] One more every minute. One more every minute which he didn't ever say unfortunately. But Joyce Heff was one of his earliest successes. She was a 161 year old African-American woman. She and the old. Well, this is the thing. She was part of his shows and he claimed she had been George Washington's nanny.
+
+[00:14:16] Which is... After she died, he hired someone to test it and the surgeon responsible said, this woman is about 80 years old. At which he claimed that the autopsy victim was another person and that the real Joyce Heff was alive in Europe doing a tour. It was good in those days when you could just walk around pretending to be something you completely...
+
+[00:14:40] Yeah. So Dan, one of your favorite facts is about the two headed Mexicans. Yeah, yeah, yeah. Pascal Fanon, the two headed Mexican. He's got one head and he's from Texas. Time to move on to fact number three, which is you, Anna. Yeah. So I found out this week that for 100 years,
+
+[00:15:09] almost all the maps we had of Africa contained a mountain range that didn't exist. They were called the Mountains of Kong. It was this enormous mountain range. It's a great name. Yeah, it was. But the map first appeared in 1798. It was an English geographer, James Reynolds,
+
+[00:15:24] who recorded the, you know, Mungo Park, who went to Africa. Yes. That's called Africa in the Niger. So he was recording the notes of Mungo Park and he just elaborated a bit and he invented the Mountains of Kong which stretched like from the east side to the west side of Africa. The only problem with that, I think, was that explorers then went there
+
+[00:15:40] but they, because he said it was impossible, he said there were mountains of stupendous height. It was an insuperable barrier. So explorers didn't even bother to try and cross it. Oh. So they didn't get, they were like, no, the mountains are over there. Can't get to the south side of Africa.
+
+[00:15:54] Let's leave it. Well, shall we keep going until we hit the mountains? Take a picture? No, no, we haven't even got to France yet. Turn around. Turn around. We're going back to London. But that's my favorite fact about this whole thing
+
+[00:16:05] is that there's an explorer whose main discovery was undiscovering the Mountains of Kong. Yeah, yeah. His name is Louis Gustav Binger. Oh, good name. There's a town name after him, Bingerville. It's in... It doesn't exist.
+
+[00:16:18] Yeah. He made it up. Perfect. But no, he did. He undiscovered the Mountains of Kong. Speaking of places that don't exist like Bingerville. Yeah, Bingerville exists. Okay.
+
+[00:16:31] Well, there's a place called Aglo in New York State and it was made up by a guy. He put it on a map and I think it was an anagram of his name or an anagram of someone's name. And then it was a completely made up thing but it got copied by maps and copied by maps and copied by maps. And then someone put a gas station where it should be
+
+[00:16:49] and they called it Aglo gas station. And now there's house there. And now it has become a real place. So now he is no longer a liar. Yeah. You know when Apple Maps launched last year or the year before, was it? All those errors that were hilarious.
+
+[00:17:04] One of which was the Senkaku Islands, the Japan and China dispute. And Apple Maps just made two. So there was one on the Chinese side and one on the Japanese side. Just side by side. Isn't that nice? That's a good way of solving conflicts. It is a good way.
+
+[00:17:18] If I just made two Crimea's that Russian people wouldn't have to worry about. Yeah. Because how often do they really go there? They just want to write it down, don't they? That they own it. I think they do. Yeah.
+
+[00:17:28] So mineral rights as well. Because Mexico wanted, there's a particular, Bermeja Island is strategically important. Because if you get the waters around it, you get a lot of oil deposits. And unfortunately for Mexico, it also vanished several years ago. So now they don't own that bit of water.
+
+[00:17:45] Because what you do is you own a certain distance around your land. And what it used to be, it was a distance that a cannon could fire. So you'd say a cannon could fire 500 meters. That's the distance that you would own out to sea. Wow. And it's changed over the years.
+
+[00:18:01] Out to sea. But that's what it originally was, yeah. Wow. I think, might have been in Reagan's time, certainly, I'm pretty sure it was in the 80s, America changed their rules and said, okay, it used to be the common distance. Now we're going to say we actually own 10 kilometers
+
+[00:18:14] out to sea. And that increased the area of the United States by an enormous amount. I feel like we should mention just in case there are people that don't know about California and the fact that it was an island until the 18th century, which is probably the most famous map cock up and lasted from, I think it was 1510,
+
+[00:18:31] the first map appeared that made California into an island. And yeah, like Francis Drake went out, sailed out there, Cortez sailed out there, all sent voyages out there. And none of them managed to just come back and say, no, it definitely isn't, guys. I think in one of the early Britannicas it said, it is unsure whether it is an island or a peninsula.
+
+[00:18:49] Yeah. There's a theory that got confused with Guam, which is, if you look at a map, not very close at all. Guam is a very long way away. It is very far. They were doing, yeah. They were bigging themselves up.
+
+[00:19:00] They were claiming they'd sailed to Guam. Do you know the good Guam fact? No. So Guam is this island in the Pacific owned by America. They have a naval base there and an air base there. And they dropped some snakes there, some brown snakes by accident one day, just a couple of them.
+
+[00:19:18] And with no other predators on the island, they multiplied and multiplied and multiplied. And now it's just covered in snakes. To count the snake population, they've now dropped dead poisoned mice onto the island, stuffed with 80 milligrams of Paracetamol, which is deadly to brown tree snakes, tied to miniature cardboard parachutes.
+
+[00:19:37] I've read a story which is in the news about a mystery ghost ship that's carrying nothing but cannibal rats. That's a very, it's the same thing. They've multiplied and multiplied, and now they're worried that this ship is going to, they don't know if the ship is still out there. It was supposed to float into our island, wasn't it? Yeah, yeah, yeah.
+
+[00:19:55] That is amazing. You could say they were pie rats. Just a random answer. Thanks everybody. Very good. Here a week. I have seen this. This has been debunked.
+
+[00:20:05] Apparently they are no more inclined to eat one another than humans. Dr. Penny Hawkins of the RSPCA said, Rats have a really bad press and this doesn't help. Okay, let's head to the final fact of the show. Fact number four, that's you, Andy. Okay, this is that male Pennsylvania grass spiders are much more likely to approach a female for sex if she has recently killed and eaten another male.
+
+[00:20:36] Is that because I think she's already sated so maybe she won't eat them? This is the thing. Females typically only eat one male, so if your girlfriend has already killed and eaten one male, she's probably not going to kill and eat you, is the theory. And also, some females don't kill and eat males. These blurred lines.
+
+[00:20:58] Exactly. Because you'd be waiting the whole time going, so have you eaten anyone recently? That's why you wouldn't approach. Because if you knew that females ate generally only one male, you would think, I'll definitely go for the one who's definitely not going to eat me. The redbacks actually ask for it, don't they?
+
+[00:21:15] Redback male spiders sort of beg to be eaten. And I don't think people are 100% sure why. So basically they come up to the female who's like 50 times as big as them. And they get onto their abdomen and they put their palp, their kind of spider penis, into the lady. And then while they're doing that, they also use their palp to kind of somersault themselves
+
+[00:21:36] into the spider's mouth. And then she chews them because she's got two openings so they can put the palp in both and it's best if they get in there with both. So they propel themselves into her mouth. She feeds on them for a bit so she sucks food out of this male's abdomen while he's still inserted into her.
+
+[00:21:52] And then he inserts himself into hole number two and then spins back again into her mouth to let her eat the rest of him. Good grief. There are more males which have techniques for not being eaten if those species which don't want to be. So some tetragnathid, please don't write it with the pronunciation, but spiders have specialised jaws
+
+[00:22:14] which hold open the jaws of females during copulation because they basically carry around sticks with which they can just leave her open her mouth as long as it takes to have sex. Let her eat you. I know. The golden orb spider is very similar to the first guy you were talking about
+
+[00:22:32] but they will only mate, or they prefer to mate with a spider who is currently eating another male because she's busy eating. Just like during dinner he'll prefer to do it. Don't mind me. Wow, that's pretty ultimate wingman behaviour, isn't it? Don't worry, I'll take the flak for this one.
+
+[00:22:50] I really wish that women had what loads of other animals have, loads of spiders, insects, slugs, reptiles, birds have, and including the redback spider which is cryptic female choice. I've never heard of that. It is the ability, if someone has recently had sex with you, to decide whether or not you're going to bother accepting their sperm and allowing them to fertilise you.
+
+[00:23:11] So they think that might be why it's good to get eaten as a redback by the woman because then she likes you. She's like, oh yeah, you sacrificed yourself to me. All right, fine. I'll let your sperm fertilise my egg. So she can literally say, no, not really, did we like you?
+
+[00:23:27] So it depends on how tasty you was. Yeah, I guess so. Yeah, you were delicious. I'll definitely have your offspring. That's amazing. But I like the term cryptic female choice. Yes, that is wonderful. So cannibalism is quite common in animal kingdom,
+
+[00:23:39] not just in spiders, is it? Yeah, they love it. Yeah, like one of my favourite ones are those sharks, I can't remember the species, but they, in the womb, there's more than one shark, so they haven't been born yet, but they will fight each other and eat each other before they're even born.
+
+[00:23:54] I like those. And I like the octopuses who will eat their own arm if they're stressed. So it's like auto cannibalism. Yeah. Why do they, what purpose does that have? Just stressed. It comes right down.
+
+[00:24:07] It's just like biting your nails. Have a cup of tea and eat this. I would cease to be calm so soon into the process of eating one arm. So going back to spiders, they are cannibals, aren't they? Yeah. And I remember reading, I don't know if this fact is true or not, but if you put 10,000 spiders in a room and just leave them to themselves,
+
+[00:24:26] then they'll all keep eating each other, and in the end you'll just end up with one big fat, satiated spider. So its body would just be built on tiny legs. Wouldn't it be? Wouldn't that be the case? Its legs aren't going to grow. Because spiders don't feed very often, do they? That's not how evolution works.
+
+[00:24:42] Hey, we should become giants, let's all eat each other. There will be one big guy called Barry who will look like them. Do you know that spiders' brains are so big enough that they spill into their legs? They're not big enough. Their heads are so small. No, right, that is the one. What's that again?
+
+[00:24:58] So their brains spill into their legs. They have very small bodies, as I said, and very small heads, but they're mostly legs. So some spiders, the brains will spill into their legs because the brains are bigger than the heads. It would be annoying though to think that every time you've tripped over and grazed your knee, you might have brain damage. Imagine how stressed you'd be.
+
+[00:25:16] Yeah, you'd probably bite your own arm off. But lions kill each other, which I didn't really realise, and so if a female lion has got a bunch of cubs that she's nursing and a male lion sees her and thinks, actually, I want to copulate with her, he can go and kill all the cubs, but within 24 hours of the male murdering their cubs,
+
+[00:25:34] they'll be back on heat. They recover that fast. There's no morning period. They're just like, they're dead, moving on. So the lion king, really, would just have been the rest of them going to Simba. Just get over it, mate. Move on, have some sex.
+
+[00:25:47] You're missing out on your sex time here. And you were telling us about how often they have sex. They're quite... Yes, when lions are in heat, it's 20 to 40 times a day, but it's always very... For very short periods, each coupling, as they call it, lasts for maybe 30 seconds.
+
+[00:26:03] As well, wasn't there something about ladybirds? Yes, ladybirds have... They have a lot of sex, but they have sex for a very long time as well, so often it's for at least one or two hours. Sometimes it's up to nine hours, but that's mostly because the male wants to prevent the female from mating with any other males.
+
+[00:26:21] Also, male ladybirds are so indiscriminate with who they approach that when they meet another ladybird, they will mount it, whether it's the same species of ladybird, whether or not it's the same sex. If it's a male ladybird they mount, they just quickly dismount and pretend nothing's happened and walk off.
+
+[00:26:34] Does that even have to be a ladybird? Like, when a ladybird flies lads on my arm, does it think that it's going to be? What if I'm reading a ladybird bumping in the back? I just think it's not the most beautiful ladybird ever. Okay, that's our show. Thanks everyone for listening. If you want to find out more about
+
+[00:26:58] any of the subjects we've been talking about, we're going to put links, we're going to put videos, we're going to put just pictures and so on on our qi.com slash podcast page. We're also going to be on Twitter constantly monitoring any ads that you have for us about things that we've said, if you're wrong or right,
+
+[00:27:14] if you just want to chat to us generally, say hi. I'm on at triberland, Andy. I'm at Andrew Hunter M. I am at Egg Shaped. And Anna is still not on Twitter, but buckling very quickly. So after this crime of this podcast going out,
+
+[00:27:27] she's at Quikipedia. And that's the official qi account. We're going to be back again next week with another episode of No Such Thing as a Fish. And we'll see you then. Goodbye. Thank you.

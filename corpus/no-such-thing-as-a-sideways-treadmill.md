@@ -1,0 +1,293 @@
+# No Such Thing As A Fish - No Such Thing As A Sideways Treadmill
+
+- Episode date: October 30, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-sideways-treadmill
+- Slug: no-such-thing-as-a-sideways-treadmill
+
+## Transcript
+
+[00:00:00] And welcome to a special Halloween edition of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Sh... Oh, good. Excellent. I felt like it needed that. Needed what? I didn't hear anything. Yeah, no, actually me neither.
+
+[00:00:38] Sorry. My name is Dan Shriver. I am sitting here with James Harkin, Anna Tysinski and Andrew Hunter Murray. And once again, we had been. gathered round the microphones with our four favorite facts from the last seven days, and in a particular order, here we go. Starting with fact number one, and that is Anna. My fact this week is that in the 1930s, the ghost of a swearing mongoose led the BBC
+
+[00:01:03] to revise its working conditions. This is quite a story, so settling. Right, so there was this guy called Rex Lambert, and he, He worked at the BBC. He was the editor of the BBC magazine The Listener, and he got interested in a story of a talking mongoose who lived at that time on the Isle of Man. So he went to the Isle of Man, investigated this Talking Mungoose and wrote, kind of published a book about it. Anyway, he had a rival, a career rival who sat on the board of the BFI with him, which he was also on, who decided to use this to bring him down. So accuse Rex of being a crazy, crazy man because he believed in this talking mongoose. And essentially, Rex sued this other guy for slander and he won. And that whole case kind of drew into sharp relief the fact that the BBC wasn't treating its employees very well because the BBC was a little bit, and Lord Reith were a little bit like, yeah, this Rex guy, you're right, he does sound like a bit of a loon. And so after that,
+
+[00:02:06] then the government got involved and was like, look, BBC, you've got to start treating your staff better, even if they do believe in talking mongies and sort your act out. And they did. It changed their rules and policies. I feel a bit sorry for Rex Lambert, because whenever you look him up on the internet, all you can find is one that he believed in talking mongooses, and two, that he once said in his magazine, the listener, television won't matter in your lifetime or mine. Yeah. That's the only two things he's remembered for. He did die two weeks after saying that, and he was speaking to the world's oldest man at the time, so actually, and the batteries had gone in that guy's remote, haven't they? Yeah.
+
+[00:02:45] Hey, we're being a bit rude here. This mongoose has a name, Anna. Sorry, yeah. The mongoose has a name. It's called Jeff. Jeff, the talking mongoose, spelled G-E-F. I've read that he also may not have completely been a mongoose. I mean, for one thing, he was a ghost.
+
+[00:03:02] So do ghosts have a species? And secondly, he was also described as a man-weasel, which is even spookier, really. He kind of sometimes claimed to be a mongoose. He sometimes claimed to be an extra clever mongoose, and then sometimes he claimed to be part of the fifth dimension, and then sometimes claimed to be the eighth wonder of the world. So, you know.
+
+[00:03:23] Yeah. He used to say, I'm a freak. I have hands and I have feet. And if you saw me, you'd faint. You'd be petrified, mummified, turned into stone or a pillar of salt. That was kind of like his catchphrase. It sounds like a rapper. Yeah.
+
+[00:03:34] Why are you talking like he was Eminemn? To be honest, the bit whereas you'd be petrified, mummified, it sounds like it's going to end with, Why, it might be Greece lightning. That's where I was heading with that. Yeah, he had a bit of an identity crisis, Jeff. He changed from one moment to the next. We should probably mention that he,
+
+[00:03:52] we're just going to talk about Jeff presumably, rather than BBC working conditions. He was a mongoose who appeared, first appeared in the Isle of Man in 1931, I think, in the house of a guy called James Irving and his family. And at first he was described as a yellow and brown, rat-like animal with a long, bushy tail. And he was a bit of a sensation.
+
+[00:04:10] he became quite famous throughout the country for a while. Did he ever appear to anyone outside the house of James Irving? Some people heard him, certainly. Their good friend heard him sort of talking outside the porch, although coincidentally it happened that their daughter, Vori, was known to be a skilled ventriloquist, and also was very good at impersonating animals. Was she drinking a glass of water at the time?
+
+[00:04:34] That sets the deal on it. He did used to go to the market with them. I read that he got the bus into town. Really? I didn't hear the bus. Brought back gossip about the neighbors. Yeah. Really?
+
+[00:04:47] He sometimes used to live underneath the floorboards of the bus company so that he could listen to what the bus drivers were saying. Oh, wow. Did he? Wait, is this true or are you guys just making the sound now? So, right, basically all of this is false, right? Is this kind of, this is a ghost that was claimed by this family and became famous for a little while.
+
+[00:05:07] But we are all four of us on the side. it not existing? Seriously, guys, I go away for one week. You have Reist Albion. When I come back, all of you are paid up members of Spook Club. I mean, his story has holes in it, doesn't it? He claims that he was born in Delhi in 1852, so that he was 80 years at the time when he first appeared.
+
+[00:05:27] No backstory of how he made it to the Isle of Man. No big trip sort of revealed in all his tours. I thought that it was that the neighbours had brought in some mongooses from outside of the Isle of Man to kind of, of chase after vermin. And Jeff was one? And Jeff was one of them, yeah. Jeff, the classic Delhi name that you give it to a momentous.
+
+[00:05:47] Well, it's G-E-F, isn't it? He spelled it himself. You know, when they asked him, what's your name? They originally called him Jack. And they said, okay, what's your name? And he said, oh, it's Jeff, G-E-F. So he gave the name himself. He did.
+
+[00:06:01] Although he wasn't very good at speaking any Indian language. So they talked about him like he was a great linguist. He was fluent in English, and he did seem to pick up other languages very quickly as well. But he only knew sort of, I think he knew the word Hindu, and he knew sort of one or two other words that everyone would have known at the time from India. It's not enough to get by. It's not enough to get by in India. He didn't know how to say bottle of beer, for instance. That was one that he really struggled with.
+
+[00:06:27] When this was investigated more fully, the hairs of the ghost mongoose were found out to be the hairs of a dog, and the imprints of Jeff's paws had been made with a stick, it turned out. So, yeah. But they did. This is how, sort of, not seriously
+
+[00:06:42] people were taking it, but how much it caught on in the news. I think it was just silly news season. Because they sent them to the British Museum, didn't they?
+
+[00:06:49] In the British Museum analyzed the footprints. It was the 1930s, wasn't it? Yeah. It feels like it was a bit of a whole silly season in the 1930s,
+
+[00:06:57] apart from the Great Depression and the rise of fascism. Yeah, apart from that. There was a chance to have a bit of a breather after the First World War. Yeah. When the reporter
+
+[00:07:07] from the Daily Dispatch went over to see this supposed mongoose. Again, didn't see it, but heard it talking. Apparently, the mongoose gave him a tip for the Grand National, which is quite good. On another occasion, he sang three verses of the Manx National Anthem, then two verses of the Spanish National Anthem, followed by one verse of the Welsh National Anthem. Well, they're all very well known in India,
+
+[00:07:34] so that must be where he picked those out. It's so weird. In an attempt to inject a bit of realism into it, at one point, James Irving said, yeah, he is very good at languages, and he actually can speak in fluent Flemish. But he's not infallible because he thinks it's German. So Jeff spoke Flemish, but believing it was German. So this Lambert guy who went over, the person he took over with him to investigate was Harry Price, who is one of the great ghost hunters of the sort of that boom of ghost hunting, like Hans Holzer, who ghostbuster. was based on. They were the first people who went to all these locations,
+
+[00:08:11] wrote these big books, and he had his ghost hunting kit with him, because there used to be goggles that they would wear that they could claim would help you to see spirits. Arthur Coden Doyle famously owed a pair as well. He used to go ghost hunting. Of course he did. Every single time we talk about anything dubious
+
+[00:08:27] that anyone ever believed in his story. Arthur Conan Doyle's in there somewhere. He's just getting involved. He's like, oh, something that's definitely not true? Yeah, I'll stick my o'er in. That's great. It's true. But so he would have cameras that the idea would be is the camera would have trigger weights and a trigger thermograph on it.
+
+[00:08:43] So if the temperature suddenly changed drastically in a room, it would trigger the camera to take a photo. And he used to have sort of matches with him. And the matches were not only to help him see in the dark, but they were also to entice a ghost to respond if the ghost used to be a smoker. So he'd pull out the matches and think that maybe the ghost would be like, ooh, thank you, a light. Yes, please. Or just a cigarette suddenly appears floating in the air floats towards your match Hey have you guys heard of the IqNumon
+
+[00:09:15] The wasp no No it's so there is the wasp But there's a mythological mongoose Known as the Ichnumon And it used to exist back in the day So this is another sort of fabled mongoose But it used to slay dragons That was the belief of how
+
+[00:09:32] Yeah so this is not a gigantic mongoose This was a regular size. Mongoo slash weasel. There's debate about what this fake thing was. So what it used to do is that it used to cover itself in mud, and then it used to enter the nostrils of the dragon, and then it would burrow out through the dragon, and that's how it would kill, how it would slay the dragons.
+
+[00:09:53] And in Egypt, the Ichnomen was, I think, seen as a real thing. So there was a sort of weasel-mongusy-type animal that used to chase rats and so on. And you can read about it, history. So Pliny the Elder wrote about it. Leonardo da Vinci wrote about it. And I found in the 18th century an English poet called Christopher Smart wrote about it in his poem called Jubilate Agno. He mentions the Ichnomen, but the Ignomans killed by a cat. The name of that cat is Jeff. Well, that was a long way around to an extremely dubious piece of coincidence,
+
+[00:10:30] This whole fact has been dubious. It really gives a pause for thought, that kind of stuff, doesn't it? Come on, that's. I think that's a beautiful coincidence. There have been two spooky mongoose. It is not. One called Jeff and one, the thing that called it was called Jeff. There's probably some reincarnation happening there.
+
+[00:10:46] Called Jeffrey as well. Jeffrey. Jeffrey. I've given him a nickname. With a J or with a G? With a J. But without an E at the end. So there's a lot of weird anomalies going on in there.
+
+[00:11:00] their names, J-E-O-F-F-R-Y. Oh, okay, but wait a minute, that's a bit like Joffrey, who was in Game of Thrones, and what do they have in Game of Thrones, but dragons.
+
+[00:11:12] Dragons. Mongooses. Oh, boy. There's been a lot of thought in history that mongooses can kind of attack and kill other things. They go after snakes, for instance. And in real life, that does happen that mongooses and snakes attack each other,
+
+[00:11:27] especially cobras. And the mongooses are highly resistant to, cobra venom. And often if you put a mongoose and a cobra against each other, then the mongoose will come out on top. So people use the mongoose as kind of protection against cobras. And knowing this, there's a really popular Indian beer called cobra beer. And there was a rival who brought out a new beer. They called it mongoose because they wanted to beat the cobra. And so whenever I have the choice between a cobra beer or a mongoose beer in an Indian restaurant, I always choose
+
+[00:11:58] the mongoose one because that's the one that beats the cobra. And I think I'm the only person in the world that that marketing has ever worked on. Hang on, isn't there also a kingfisher beer? Yes, there is. Where does that fit into the rock paper scissors world of the cobra and the mongoose? Kingfish is for James' wife. He's sitting there going, look, I'll just get a kingfisher, and I'm sure about that lecture that my husband just gave you.
+
+[00:12:18] The Royal Navy used to have, you know, they used to have ships, cats on ships, to catch rats and things. Lots of ships had ships, mongooses. which were very effective at catching rats and cockroaches. And that was a thing. But what we've learned from Dan, presumably, is that you don't want to have a ship's cat and a ship's mongoose because the cat will just eat the mongoose.
+
+[00:12:38] Got to be very careful there, right? Did we learn that? Well, wasn't it, Jeff the cat, who killed the mongoose? Yes. Sorry, it's all right, Andy. I drifted off halfway through that story as well. There's going to be a quiz at the end of this section for which facts were fake and which facts were real.
+
+[00:12:56] It is quite hard to keep up. But on real mongooses still, just for a moment, they are quite vicious, aren't they? And they can kill each other. And for that reason, they all give birth in synchrony. Because if they didn't give birth on the same day, then their offspring would be killed. So the only way you can stop other mothers from killing your children
+
+[00:13:14] is if they don't know whose children are whose. And the only way you can guarantee that is if all the children appear at once. That's so stressful. So as a kid, as a mongoose kid, you have to call EFeron Mum. So they think that you're their child. That's useful if you're in the... school and you accidentally call your teacher mum, like some people I've heard have done in the past. It was twice. It was literally just twice. And you say, no, no, I did it so that people didn't eat me.
+
+[00:13:43] Oh, I wish I were a mongoose. Just one more thing about mongoose, specifically their anuses are quite cool. So they have anal glands where they, from which they plant their scent. And one of their tricks is to do a handstand scent. and so they'll mark their scent to mark their territory or sometimes they'll mark scent on a potential mate to warn off other mates, to warn off rivals. And the handstand scent, what they do is, what it sounds like, they flip over upside down onto their hands so they can get their anus up as high as possible
+
+[00:14:13] and then mark their scent as high up as possible because that means that a rival can tell that you're quite tall. So a rival will then smell your scent on the person they want to mate with and be like, wow, you've managed to reach her head with your anus. you must be really tall, I'm not going to get involved here. I don't know if I can take that kind of fight. And then if he walks past a tree and smells the scent, does he think that this is a mongoose with an anus where my head is?
+
+[00:14:41] And so he must be like 10 times bigger than me. Is that the idea of it? It's as if no other mongoose knows about headstands. It's like one mongoose has worked this out. I think they all know about head. Maybe they all know about headstands, but the taller person is still going to get it higher up on a headstand. So if you're short, maybe you wouldn't do the headstand thing because that's just going to advertise that you're short. Is it like giving your wife a basketball to carry around?
+
+[00:15:08] And everyone who sees her will think, oh, she must be going out with a really tall guy. It's exactly like that. But the idea is that all of us give our partners a basketball. The only advantage is to the first person who does it. So, James, cut this bit out because I'm going to start. I'm going to start doing that. I'm going to get my wife to walk around with a pole vault pole. And people will think, wow, she has to pole vault just to kiss him in the morning.
+
+[00:15:38] I'm going to stick to the anus secretion. It's worked so far. I just have one more haunting thing. There is a sweet shop in Great Yarmouth, which is explicitly not haunted. It seems to be the only. sweet shop in the UK, which goes out of its way to say this is not haunted. There are no ghosts here. Is that the lady does protest too much kind of issue? It's owned by a man called Nigel Parrott, who is a very devout Christian, and he put the sign
+
+[00:16:11] in his window a few years ago saying, to all my wonderful customers, this shop is definitely not haunted, even though the town ghost walks appear to think it is. But it gets more interesting a sign, because he goes on. all demonic paraphernalia has been destroyed. So I think what was going on in the switch shop. And then he gets into the details. He says, Jesus Christ died so we could be free from all other spirits and negativity. He is alive today and his is the only spirit in this place.
+
+[00:16:41] So apparently there is a spirit in there. He's haunted by Jesus. I know. That's cool. The BBC interviewed him and he said, this place might have at some time in the past been haunted. but if Jesus is alive and with me, then this shop is no longer haunted.
+
+[00:16:58] Wow. Did you see, the BBC followed that up with some research? They looked into this Nigel character, and it turns out he died in 1673. Okay, it's time for fact number two, and that is James. My fact this week is that famous occultist, Alistair Crowley, used to make a curry so hot that he only served it on glaciers
+
+[00:17:24] so the diners could use the snow to cool their mouth down afterwards. Wow. Isn't that amazing? Yeah, but I mean, this is not like he would invite you for dinner and then you'd get a location delivered to you which was in a different land.
+
+[00:17:42] Like, he was mountaineering, wasn't he? He was mountaineering. He would make this curry. They had no kingfisher or mongoose or cobra to wash it down with. And it was so hot that people would run outside and they would kind of stuff snow into their mouths. And in his autobiography, the confessions of Alistair Crowley, he said that some people said he should make it in London, but he said he would refuse to do it because there's no glacier there or glacier there to help people.
+
+[00:18:12] So that's a thing. It's a real chicken or egg, isn't it? Did he go to the glacier because he wanted to make the curry? Or did he make the curry because he found himself on this glacier? and we'll probably never know. We'll probably never know. Probably it was just he happened to be on a Glacier. He happened to make some curry and that's it.
+
+[00:18:29] But yeah, he wasn't a cultist, but before he became an occultist, he was really a mountaineer, Alistair, Alistair. He was known as the wickedest man in the world by the British press because of various things that he did. At one stage, he set up an abbey in Sicily and lots of crazy stuff was happening there
+
+[00:18:48] to do with sex and pornography and drugs and all that kind of stuff, and he got kicked out of Italy by Mussolini, and that made the news, and people started calling him the wickedest man in the world. But he was basically kind of a devil worshiper, Satanist, occultist kind of guy who, yeah, was just famous for doing crazy stuff. It does feel like the wickedest man in the world bar was much lower, again, pre-Hitler. It feels like he sneaked in and got the nickname at a time when the currency was a little bit weaker. You're right.
+
+[00:19:18] Yeah, mind you, if Mussolini was. He's calling you a bad guy then you do have to be concerned. Yeah, that's true. Yeah. The signs were there even in his mountaineering career. So he tried, he attempted the second highest mountain in the world and the third highest, didn't he? I think it failed at both. But he tried K2 in 1902 and then Kanjenjunga in 1905, which is the third highest mountain in the world. And he went up there with a group who didn't get along with him after a while and tried to depose him as their group leader.
+
+[00:19:47] And then there was a big fight and a few of them. of his co-walkers said they were going to turn back and go back down the mountain. And so he went to bed in his tent. And he heard them going back down the mountain. And they caused an avalanche. And there was lots of screaming and shouting and cries for help. And he heard all of this. Four of them were killed. He just sat in his tent. What he did was he sat in his tent listening to the screams while everyone else in his party went to help them. And he wrote a letter to a local paper about how he has no sympathy for people who get involved in mountain accidents because they should be more responsible. Yeah, and there was a thing about that being because he was really wicked.
+
+[00:20:23] But on the other hand, it kind of felt like he was just being really stubborn in that case because they'd had that argument and they said, right, we're going back down. He's like, no, look, there's going to be an avalanche. I can see there's going to be an avalanche. So whatever you do, maybe go down tomorrow, like, but just don't go down now. And they went down and they got stuck in the avalanche. And you can almost imagine him in his tent going, see, told them. Yeah.
+
+[00:20:43] I told him that's going to happen. I think he was going, more curry for me. If you have a row and you hear someone falling down the stairs immediately afterwards, that's a result for you. That's the universe telling you you're right about the argument in a way. Wow. Well, good to know who's the Alistairri of this podcast. But there was a huge, like, storm about it afterwards.
+
+[00:21:05] There was a massive stuff in the press about it. And that's kind of when he gave up mountaineering. That was after that, Kachang Chunga incident. And K2, I believe it was K2. He never reached the top of, not because they couldn't make it up there, but because of differences within the team. Again, he fell out with the team. He pulled a revolver on one of the members,
+
+[00:21:23] and the guy he pulled the gun at Guy Nolz, was his name, kicked him in the groin. It will cause some tension in a group when you pull a revolver on somebody. But actually, one of the things I love about Kanchenjunga, the third highest mountain, is that no one's ever got to the top of it. And lots of people have got to 10 metres below the top.
+
+[00:21:42] And this is because local tradition has it that, so it's in the Himalayas, The local tradition has it that spirits live at the top and you can't disturb them. And so everyone who's ever climbed at every mountaineering expedition that's been up there, which is a couple of hundred people, I think, out of respect for the spirit at the top, they stop just beneath it.
+
+[00:21:58] That's very respectful. It is, but you can't imagine that Crowley would have done that. He probably would have got to the top and done like a macaroni on top or a little jig or something, wouldn't he? Yeah. He would have spoken to the spirit. If Crowley had known about the Chillingham cattle, he would have been up there and touching them all over
+
+[00:22:14] like nobody's business. And that is an episode pullback to 100 episodes ago. Oh, my Lord. That was, I think it's more like 300 episodes ago. That's amazing. These are some cows who live in a field that James wants to touch. Anyway. Oh, I see.
+
+[00:22:30] What you're trying to do here is deflect who's the crowley of the group. Yeah, absolutely. Wow. One thing he climbed, which I think is more impressive than K2, is Beachy Head. He climbed the cliffs at Beachy Head from the bottom to the top. But he was a massive boaster about the thing. he did. He wrote, the general opinion was that no one had ever climbed it. There was, however, a legend that it had once been done. I settled the point by walking up, smoking a pipe with my dog,
+
+[00:22:58] and then he put in brackets, I had no woman available in nine and a half minutes. I mean, I was at Beachy head a couple of weeks ago and I'd struggle to climb it and so would my dog. How did he get the dog to get up? I don't know. He might have had a dog per puss. There is an argument that a lot of the stuff in his autobiography might have been a bit mediopi. Yeah, that's true. Might have been a bit talkingy, mungozy, perhaps. He claimed that it was his idea for Churchill to give the V sign. He said, according to some people like Rabelais and some earlier writers,
+
+[00:23:34] the V sign was a good way of fighting against the swastika, according to kind of ancient Eastern rituals. and so he claimed that. He also claimed that it was down to him that Stanford Bridge Football Ground was aligned in the way that it's aligned and that he gave Chelsea Football Club its team colours of blue.
+
+[00:23:53] That was all down to him. That's what he claimed. Wow. Very cool. Once you defeated the Nazis, what are you going to do next? I guess pick the team colours for a premiership team. This sounds like obviously bullshit
+
+[00:24:05] that he was claiming all these things, but he was quite an influential character back in the day, particularly with counterculture America. So, Aldous Huxley was a big fan of his. He very much set up a lot of ideas that got carried forward about free thinking. His religion that he started, which is Thelma, was an idea that you do stuff for you, rather than you do it on behalf of the community, which suddenly was this new idea that
+
+[00:24:29] hadn't really been explored too much in the past. There's a great story about how he set up Thelma, which was it was his wife who claimed that he was going to be dictated this message by a guardian. angel called Iwas and she said that he's got all these messages for you and he didn't believe it. So he took her to a museum in Cairo to say, you've got to show me who Horace is. And she didn't know when they got there. They passed a huge Horace statue and he went, okay, so this is nonsense. She doesn't know.
+
+[00:25:01] But she kept walking on and she found this thing at the end which Horace appeared on. And she went, that's the guy there. And he went, oh my God, that's Horace. and he looked up the catalogue number of this particular piece, and the number was 666 in the catalogue. And so he thought this is a sign. The synchronicity of this means that she's right. And then he went into a room for three days,
+
+[00:25:22] and he was dictated to by this guardian angel, a book, which is still in publication today and is the basis of his whole religion, Thelma. Well, his wife was called Louise, wasn't she? And the book was called Thelammer and Louise. And it got adapted, didn't it? His wife was called Rose. And the sad thing is that basically within a year of her doing all of this stuff with him and kind of coming up with this religion, he'd dumped her and he'd found this other
+
+[00:25:52] lady called Leila Waddell. And Leila Waddell was a violinist, apparently not particularly good one, but an OK violinist. And he decided that he was going to form a band like a girl group like Little Mix, but she was going to be the main person, this violinist. They were called the ragged, time girls. And apparently they were amazing. They played in London and they absolutely pulled the house down. Is it called pulled the house down? Is that what you say? Brought the house down? They didn't pull the house down. They brought the house down. And everyone loved them. And it looked like they were going to go on a massive tour around Europe. But instead, Crowley decided that he was going to go on a tour of some random parts of Russia instead. So they could have sold out every single theater in the
+
+[00:26:34] UK, for instance. But he decided he was going to go to Russia and they were going to tour there instead. And they went there and they were quite successful in Russia, but the reason that they went there, we think, is because he might have been a spy for the British government. And at that time, Rasputin was kind of getting his claws into the Cesarevich in Russia. And maybe he was there to kind of look after and see what was going on with Rasputin. And that's why this quite good girl group never made it because they had to go to Russia with him on this trip.
+
+[00:27:07] Wow. A tragedy. A great loss to music. Crowley used to live on the banks of the Loch Ness and often tried to summon the Loch Ness Monster up at certain points. But that's where he did all of his biggest achievements in the early days of spreading the magic that he was claiming he could do. So he was trying to summon up demons and battle them in order to make the world a better place. You wouldn't summon them to battle them, just send them away, surely. Well, you need to battle them to make sure they don't come back.
+
+[00:27:37] back. Yeah, it's like Buffy the Vampire Slayer. She does not summon demons. Well, someone does, definitely. Someone does, yeah. That house on the, is it, Boleskin house? Boleskine, bowlskin.
+
+[00:27:53] Isn't that what they make no books out of? That's moleskin. That's moleskin. That has burned down twice in five years. Dun, dun, dun. I know, and then the owners started selling the rubble. Dan, you're interested in buying I'd be so keen on buying rubble
+
+[00:28:11] You can get a whole bag of it for just 50 quid You're kidding? No. Are you serious? I don't know if it's still being sold But you better get on it Don't, come on, Dan's wife and children have to put up with so many of his dodgy purchases
+
+[00:28:25] What are you doing, Andrew? I wouldn't be allowed, I've genuinely been told by Fenella I'm not allowed to bring Alster Crowley's book into the house She thinks, yeah, because like she's scared that it has powers with it and also we're in lockdown, so we'd be around these spirits a lot. I've got quite a few of his books here, and I don't think we've had any problems here so far. I don't think spirits have much respect for government guidelines about COVID safety.
+
+[00:28:48] I think if they want to go out, they're going to go out. They're not going to be trapped there with you. But it's interesting. I mean, it's a historical house, not just if you're a Crowley fan, but if you're a music fan, Led Zeppelin's Jimmy Page bought that house many years ago. And he was very obsessed with Alistair Crowley. as a lot of Zeppelin fans will know, he's very much into black magic. But he didn't really ever live there.
+
+[00:29:12] He lent it to a guy called Malcolm Dent, who looked after it and had his kids there and so on. And he claims that there were a lot of spooky happenings while he was living there, that his wife was sort of attacked by a big beast outside. Just one other prominent Thelamite, who... is quite surprising. It was Jack Parsons, who was another leading phthalamite who Crowley installed, and he was the father of the US space program, which is kind of concerning, actually, when you reflect on it. So he's a rocket scientist in the 30s. He invented things like jet engines and jet fuel needed for spaceflight, and he also believed in a lot of this occult stuff.
+
+[00:29:56] Wasn't he the one who El Ron Hubbard kind of got him with his life and started living with him and his wife and then just ran off with his wife or something? Ran off with his wife, that's right, yes. Yeah, he did. I think ran off with, he ended up having a forcum with his wife and a 17-year-old girl who then married Elron Hubbard and they founded Scientology. And Parsons went on to try and conjure up a new lover
+
+[00:30:18] when she abandoned him for Elron Hubbard, and he did that by masturbating onto magical tablets to the background sound of... This is Nicholas Parsons, did you say? This is the person who went on to found America's space program. You're not allowed hesitation, deviation, or masturbation. Okay, it's time for fact number three, and that is my fact.
+
+[00:30:50] My fact this week is that Japan's Yakuza have been told they are no longer allowed to join in trick or treating. The Yakuza is Japan's mafia for anyone who doesn't know that, and they're a big syndicate of lots of different little groups. This is one particular group that has been told this year that no one. more trick-or-treating allowed, even though everyone loves it when the Yakuza do trick-or-treating. It's quite funny. They've done this in the past for many years. It started when some kids accidentally came up to their offices and they knocked on the door and a very startled Yakuza member
+
+[00:31:24] didn't know what to do and sort of fan them off with money. And then they suddenly realized, hang on, if we can get kids to come and get candy off us, they might see us as good people. And that's really good for recruitment because the Yakuza have a very big problem. with recruitment. A lot of their members are mid-50s now and they have trouble bringing in the young ins. I don't think it's great for your PR if you wanted to come across as a good guy to as an elderly gentleman start luring children to you with sweets. Okay, so they're not trick-or-treating. They're sort of being the recipients of trick-or-treat. Yes, they invite children and they put up decorations and they put up inflatable ghosts and they tell
+
+[00:32:03] people to take pictures and about, I mean, the last few times they've done, about 800 parents and children have shown up. So it's quite, it is really popular. The security was impeccable. They get a lot of really good reviews. Yeah, one local woman said, not only were the decorations great and the gift bags full of tasty stuff,
+
+[00:32:23] there were two big lines for cotton candy, and the gangsters was super nice. Shame about the massive bloodbath in the living room, but once little Danny got over that, we had a great time. They do have a lot of social outreach missions in the Yakuza. So this year, when the coronavirus thing was just beginning, they offered to disinfect the Diamond Princess cruise ship, which have been impounded in Yokohama.
+
+[00:32:52] And they said, yeah, we'll do it. We're, you know, we're gangsters. We're meant to be doing the difficult, tricky jobs that no one else is doing. They gave out masks. They gave out toilet paper. So they have a lot of kind of soft power that they're using. Yeah, they do. They are, we should say, sort of not necessarily good guys.
+
+[00:33:10] Not necessarily. Just because I read a piece in The Guardian about how they are really struggling. And it did feel a bit like, God, this poor organisation is really on its last legs here. But they do do some weird stuff, one of which is often sort of killing people. Another is the habit they have of cutting off their fingers. So that's the probably most well-known Yakuza tradition is that if you're a member of the Yakuza and you do something wrong, you have to cut off your finger. And apparently one of the ways you can now tell
+
+[00:33:40] that they are losing their membership is that prosthetics makers are doing really well. So there are a couple of interviews. There was one with someone called Shintaro Hayashi in 2013 who said he's noticed he's getting loads more calls from people who want prosthetic pinky fingers. And that's because people have chopped off their pinkies because they're in the Yakuza.
+
+[00:33:59] Then they've decided, I think I might go for another job. And it looks bad if you've got no little finger. And so they go for the first. fake finger. Wow. That's a sign. And apparently a lot of the gangsters who are higher up, they have different fingers for different seasons,
+
+[00:34:13] a finger to match every occasion. So they go for a tanned finger. Oh, I see. Not a kind of a pumpkin spice finger for autumn. I was thinking like a finger that can hook apples off trees for the autumn, maybe. That's so good. Or like a really long one that's like a ski pole for winter. Brilliant.
+
+[00:34:32] But glittary, so it's tinsela, nice Christmas. Yeah. Yeah. Yeah. Who wouldn't like a Christmas finger? In spring you could call it a springer. Stunning. Brilliant.
+
+[00:34:42] And you could, I don't know what you'd have on your spring finger, but maybe a sort of spike so you could plant seeds in the ground. Oh, great idea. I think the spike is suddenly bad for PR against it. If you impale everyone you shake hands with, yeah, maybe. You're not going to get that job. So when they're like the prosthetic makers are giving them new fingers, I wondered if there might also be a thing about tattoo removal because they're quite famous for their tattoos, aren't they? Yakuzas.
+
+[00:35:12] There was a book that came out last year called I Give You My Life, which was photographs of the wives of Yakuza members. Because actually, it's kind of interesting the way that the women are in this society because they're not considered members of the Yakuza. But they are not in the way that you might think of like mafia wives and stuff kind of clueless of everything that's happened. especially the wives at the top level people, they kind of know everything that's going on. And their tattoos kind of tell you a lot about their history and stuff like that, which I found really interesting. But I looked into the history of the tattoos in Japan, and it goes all the way back to the fifth century. And the Japanese government used tattoos to punish their criminals. And that's why the yakuzas are so tattoos now. It kind of goes all the way back to that.
+
+[00:35:59] And if you ever did anything bad, you would get a line across your forehead. And then the second one, they would put an arch over the line and the third one they would put one extra kind of line and that did the symbol, the kanji for dog and it would like you would have the word. It's like almost like if you did a crime here and the first time they put a D on your forehead, second time an O
+
+[00:36:18] and the last time they put a G and that eventually. You could have said you put a D then an I, then a C, then a H. It's kind of the same, isn't it? It's like playing hangman on someone's face. That's what I was thinking. It'd be great if that's what they drew with hangman symbols. And then if they complete the thing, they hang you, right?
+
+[00:36:36] Oh, wow. Yeah. Oh, that's very punitive, but that is. Wow. Yeah. It takes a lot of goes to get there. But there's always that debate, you know, do you draw that extra beam between the vertical and the horizontal?
+
+[00:36:47] Do you give the guy arms? You could say, I'm going to give you one extra cross beam because, you know, you've shown repentance. Yeah. It's like if the last detail on that drawing was to draw the fingers on the person, but you'd already lost seven of them. So Japan only started doing trick-or-treating and Halloween generally in 1997. And this was as a result of Disneyland in Tokyo. And they had their first ever Disney Happy Halloween event. And everyone loved it.
+
+[00:37:17] And it was sort of come here and experience this Western thing that they do. So everyone started doing it. And it spread to different amusement parks. So Universal Studios started doing it. And they had their Hollywood Halloween got bigger and bigger. And so it's a proper thing there now, and they have one extra element to it that none of us, as far as I know, do, which is they have a post-Hallewan clean-up on November 1st where everyone goes back out into the streets the next day, still in costume, and they clean up all the rubble and debris from the night's partying.
+
+[00:37:47] It's so useful. Like, people could clean the feces off my front door that get there, Halloween. That's not just Halloween, isn't it? No, but at least it gets cleaned. once a year. Okay, it is time for our final fact of the show, and that is Andy. My fact is that ghost crabs use teeth in their stomachs to growl at their enemies. Ooh.
+
+[00:38:19] So are these ghost crabs or real crabs called ghost crabs? These are not ghost crabs called Jeff, who live down in the sea. Yeah, exactly. So the ghost crab is a real thing. It's sort of small and pale and looks a bit ghostly, hence the kind of common name for it. It lives in the Atlantic beaches of the USA, that kind of place. The Guardian says they're named for their sandpale bodies and nocturnal antics. So I guess, yeah, active at night as well, also ghostly.
+
+[00:38:51] And these scientists at the Scripps Institution of Oceanography were looking at them because they noticed they could hear the crabs making a noise, but the crabs weren't doing anything to make a noise, as it were. As in they weren't moving their claws around. Almost like they were doing ventriloquism like Viry from the Al of Man. Yes, exactly. It was exactly like that. And so they thought, well, this is curious.
+
+[00:39:15] We're going to investigate. This is a scientist called Jennifer R.A. Taylor, who led this research. And they tried a couple of things. They put an endoscope into the crab's mouth, a tiny endoscope, and it immediately just bit it and crushed it, obviously. So then they used a thing called laser doplet vibrometry, and they bounced a laser off a crab, basically, and various different bits of its interior. And they found out that it has this feature inside it called a gastric mill, which is something it uses to grind up food internally. It's got a kind of extra mincing layer inside it.
+
+[00:39:48] Yeah. And when they provoked a crab by presenting it with a hand or a model of another crab or whatever, it would make this growling noise just by rubbing together. its internal teeth in its stomach. So cool. So we can do it on command. Yeah. Have you listened to the video of them growling, Andy? Yeah.
+
+[00:40:07] Yeah, because it's not, we should say, it's not like a, kind of like a dog growl. It's quite a high pitch, like a kind of noise. Can we hear exactly what it sounds like, Dan? Can you do a good impression? It was like,
+
+[00:40:21] squis, squis, squis, squit, squit, but if you're a rival crab, that is a pair of, yeah. You don't want to mess with me? Yeah, terrifying. Terrifying, growl. Yeah.
+
+[00:40:36] Yeah, but that's so cool. It's a massive, like, I have a macerated toilet downstairs in my house, which is when you have a... Yeah, no, but I just, like, that's what I relate that to. Is that the nice it makes? Yeah. Yeah. Fuck up, mate. Oh, no, not again.
+
+[00:40:51] Oh, hi, mate. What's a macerated toilet? It has, it sort of grinds it all up in a tank behind. it, right? We've got one of my parents' house as well. It's incredibly annoying because it does make that rumbling, growling sound throughout the night. It growls, yeah. It growls as you flush the toilet. Yeah, you should just install a big old ghost crab and shit in its mouth. God. Jesus. Well, use nature. Use what it gave us. And the idea is, I believe, just to get back to the
+
+[00:41:25] ghost crab in real life is, if you're fighting, if you're a ghost crab, But you want to tell someone to fuck off at the same time and you don't have a voice box. You can't like click your claws because you're using your claws to fight with. But if you do it with your stomach, then it frees up your hands to do some fighting. Exactly. It's hands-free technology, but for crabs, it's amazing. But what if you're fighting and also eating? What have you got then?
+
+[00:41:53] Don't think you've got yourself to blame. Good point. Don't eat and fight. They're very fast, aren't you? these crabs. They are known to be the fastest crustaceans that we have and they can reach up to 3.4 miles a second. And...
+
+[00:42:13] Per second, sorry. Miles per second, yeah. Well, that's almost the fastest thing known to man. I think you've missed... No, Anna, don't say... Anna, don't say 3.4 miles per second, down. I think if someone's about to shit in your mouth,
+
+[00:42:31] you'd go away that fast as well. Sorry. Okay, got it. That is incredible. So they can cross the Atlantic in an hour or so. It's amazing. They're not more widespread. Yeah, yeah. They're the fastest crustaceans.
+
+[00:42:45] That's why they called the ghosts. You say it's there. You turn around to tell someone and it's not there anymore. Sorry, how fast can they go? Can we stop? They can run up to 10 miles per hour, is what I read. Okay. Or three meters per second, in fact.
+
+[00:43:01] Yeah, that sounds more legitimate than what I said before. It is fast. It is still fast, but now it sounds really crap, given how fast everyone thought they were going. One reason we know how they're so fast is that they did put ghost crabs on a treadmill. Oh, did they? Which, as we all know, they've put all animals on a treadmill. But I can say, and I did look really hard for this,
+
+[00:43:29] I've never found a study which put a mongoose on a treadmill. So that should have been my fact here. But yeah, there was a study in 1990 by W.J. Van Art in South Africa, where he put ghost crabs on a treadmill and found that they could run for two hours before getting tired. Whoa. That's amazing. I have a question, did he put them on the treadmill? Did he put the treadmill sideways?
+
+[00:43:52] Well, no. It doesn't really matter which direction of the treadmill is. Of course, it does. No, no. Does crabs move sideways? Yeah, yeah, but you would just put the crab on sideways. You wouldn't change the direction of your treadmill, would you? That's just a matter of perspective.
+
+[00:44:05] If you wanted to do sideways running in a gym, you wouldn't have to go to the person at the desk and say, sorry, can you turn this treadmill round? Because I have to do some sideways running. I'm banned from all the gyms in South London for dragging the equipment around. I'm surprised they work on treadmills, because don't they run in a weird way where they sprint really fast, and then they stop, and then they sprint,
+
+[00:44:28] and then they stop. And I think they think that's about that lactic acid builds up. If you sprint, as we remember from biology, and to get rid of that waste product, you stop and then your body disposes of it. So I would have thought on a treadmill, they're going to go flying off the back. You're also moving sideways. That's the problem, is that you go from side to side across the treadmill. They're like that.
+
+[00:44:47] Okay, go video. Yes. No, the thing which they do was stopping occasionally, that is when they're being pursued by a predator. They use that trick. So, yeah. Not when they're generally at the gym. I think clearing, as in, do we know how they're clearing a lactic acid?
+
+[00:45:05] Or does it just naturally dissipate if they stop for a bit? I think that's it. Yeah, same with us. It seems you stop, then you repay your oxygen debt or whatever, don't you? Wow. It's amazing. Anything can catch them, really, at the speeds we know they can go now. I didn't even know how many else could go that fast.
+
+[00:45:23] Have you guys just on crabs in general? Okay. Have you heard of mitten crabs? These are a huge problem. I kind of half remember them, but I don't know. So this is a thing. They're also called the Shanghai hairy crab. And basically, they look like they're wearing mittens.
+
+[00:45:39] They've got these huge hairy claws at their front. And they are traditional food in China. They get eaten a lot. But they're also unbelievably successful around the world. They're in the world's top 100 most invasive species. They're so popular in China. They're a vending machines sometimes with live crabs inside them. that you can...
+
+[00:45:59] I know, you can just buy. China even has a museum shaped like a giant hairy crab. I'm trying to sort of imagine how a crab works in a vending machine. Because do they have to hang from those bits that the chocolate bars hang from? I think they're wrapped. I think they're wrapped up. That's how you transport them traditionally is you bind their claws up and things. I think it's like the chocolate bar thing, isn't it? But you have to turn the entire vending machine around 90 degrees
+
+[00:46:24] so that they can come out sideways. You'd be so annoyed if your crab was, it's just stuck out of claw and got hanging off the edge. And then you did that again and again and again. And every crab did a little crab conga. It would be good to have, you know, those claw machines that kind of pick up things to have one of those picking up crabs. Yes, because they'd think it was sort of a giant crab god coming to pick them up and take them off to crab heaven. What a good way to go. I have some more spooky crabs.
+
+[00:46:56] you can have Yeti crabs, vampire crabs, zombie crabs, cannibal crabs or wizard crabs, which do you fancy? Oh, wizard crab, please. Wizard crab, yeah. Okay, so this is a crab
+
+[00:47:09] that has the Latin name Harry Plax Severus. Okay, it's quite a nice story, actually. So you would think that that was named after Harry Potter, right? Because you've got Severus snake, and you've got Harry Potter. But actually, they were discovered
+
+[00:47:25] by a guy called Harry Conley, hence the Harry, and the word Severus comes from the Latin for rigorous because he was an amateur collector of crabs, and he spelled his whole life really rigorously kind of going through these kind of piles of rubble looking for crabs. He found it, and it was only found to be a new species 20 years after he died, but they named it after him. And the person who named it did admit that they did very much like Harry Potter, and there was double meaning. But At the same time, it was named after this Harry and the Severus meaning rigorous. And then are they called wizard crabs because of the Harry Potter thing?
+
+[00:48:03] Or was this guy actually called Wizard Jr.? He was a Satanist. He was a black magician. I'll be honest. That was my calling them wizard crabs. They're not actually called. They're not called Wizard crabs. They're kind of wizard-y crabs, aren't they?
+
+[00:48:19] Because they're kind of like Harry Potter? Yeah, absolutely. Definitely. Because they don't have a common name yet. You can give them a common name. Well, I didn't realize that we had that kind of power. I think we do. I think we could try it out.
+
+[00:48:31] We could push the envelope. So do any of these crabs have the actual common name that you've given them? Or are you just bluffing us with your zombie crabs and your vampire crabs? Yeti crabs and vampire crabs are real. Okay. Zombie crabs are crabs that are turned into zombies. And cannibal crabs are crabs that eat other crabs. What do you mean crabs that have turned into zombies?
+
+[00:48:50] Yeah. So there is a barnacle called loxothilacus panopae. otherwise known as Loxo, and they will find a recently malted female crab, and they'll go into her undercarriage and lay their eggs in there. And they'll turn them into a zombie, so all they'll do is look after these baby barnacles. And the worst thing is that if there's two of these crabs in a couple, they'll take the male and also infect the male and change his anatomy, so he looks a bit like a female and acts like a female,
+
+[00:49:25] and the male and the female, both of whom now look and act like females, all just look after these baby barnacles. Because they're like zombies, that's all they can do. And they just sit there while these baby barnacles are just eating off them and being born off them. Wow. Yeah. So the crab is, oh yeah, the crab is the zombie, I guess,
+
+[00:49:43] and the barnacle is the guy in charge. Is the kind of... Is the wizard? I can only think of the word wizard now. It's the only piece of vocabulary I have. The barnacle is like the... The zombie plague that turns everything into zombies. Yeah, right?
+
+[00:49:59] Got it. Yetty crabs are quite cool. They were only discovered in 2005, and they really are called Yessie crabs. And they farm their own food on their arms. So they're really cute, actually. They look like a cuddly toy because they've got these really hairy, shaggy arms,
+
+[00:50:17] a bit like the crab that Andy was describing earlier. And huge colonies of bacteria live there in their hairs because it's such a nice, wet, hairy environment to live in. And then they just spend their days eating the bacteria. It's quite nice, although probably not if you met a human who kind of farmed bacteria on their arms and they lived off eating that, probably you wouldn't. Nice wouldn't be the adjective. No.
+
+[00:50:39] No. What student hasn't sort of licked their armpits for sustenance on a particularly low day? Come on. So vampire crabs are kind of, they're quite beautiful crabs. They've got glowing eyes. there are really lots of amazing colors are often quite dark purple, a bit kind of draculary, and they've become quite popular pets quite recently. And the thing is that you can't really breed crabs because they're all cannibals, like I said,
+
+[00:51:07] they kind of eat each other. And so the only way to get these vampire crabs is to go and find them at sauce. So there's people in Southeast Asia who will go down, search for these crabs, and they'll bring them back and then sell them onto dealers. Now, a lot of them are very, like, interesting colors that are really good. for pets. And if you know where to find a particularly nice, purply one with bright green eyes, then you're not going to tell anyone else where that is, right? Because you want to have your stash. And so people have been doing that. And they found that some of the species that are quite
+
+[00:51:39] popular for pet owners are actually brand new species that have never been described ever before. And they can't find out where they're from because the dealers won't tell them where they found them. Right. That's that. Very cool. I'm out of spooky crops now. I've got the orangutan crab. Oh, yeah. Which if a crab was going to a Halloween party might dress up as an orangutan. Like, that's the only connection I could make, really, the Halloween thing.
+
+[00:52:08] But it's really beautiful to look at. It looks like an orangutan. It's ginger, red-brown hair all over, and the hair catches the debris of animals coming by, so it traps itself in its hair, so it can just eat the food that's stuck in its arms and so on. Nice. But it's good for camouflage as well, I think, isn't it? Doesn't it sort of suck up debris as it goes? So you can't see it. Actually, speaking of camouflage, the ghost crabs that we talk about at the start, they are kind of, some of them are quite sandy colored in a light sand, as in dry sand. And some of the quite sandy colored in a dark sand, which is like wet sand. And what they do is they know what color they are and they'll run to the area, which is most like whatever their color is. Just desperate to match. But they can. I think change, can't they? But it's not as quick as like a chameleon. So I think they lifted up the light coloured ones living in light sand, plop them in dark sand. And they can camouflage themselves and turn themselves the colour of the dark sand, but it takes about a month. So for that month,
+
+[00:53:07] they're sitting there on the dark sand, really flashing like a beacon. Then eventually, if they survive that, they've turned the right colour. And it's short crabs, they can camouflage themselves too. But when noisy ships sail nearby, it takes them way longer to change. They can't do it as quickly. And this is a problem because if they're not changing color, then they're much likely to be preyed on. And it's basically because they're stressed. They're stressed by the noise of the sea. Is that a bit like those of us who can't really work to music?
+
+[00:53:34] It's more life and death than not being able to work to music. But yeah, if you like. My job is my life, actually. But then some of us work better to music. I work better having a load of crazy J-pop going in my ears when I'm working. So are there some kind of, are there some crap? that just love ships going past. And they're just like,
+
+[00:53:55] oh, yeah, nice fun. I can get everything done. I can collect a load of frustations today. And usually it's better for exercise. So anytime a crab's on a treadmill, you know, probably they would appreciate the music. Okay, that's it. That is all of our facts.
+
+[00:54:14] Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland, James. at James Harkin Andy
+
+[00:54:25] at Andrew Hunter M and Anna You can email podcast at QI.com Yep where you can go to our group account which is at no such thing or go to our website
+
+[00:54:35] No Such Thing as a Fish.com All of our previous episodes are up there as well as links to bits of merchandise that we're selling and yeah that's it we will see you again next week hope you're all doing well join us again for another episode
+
+[00:54:47] Goodbye Bye.

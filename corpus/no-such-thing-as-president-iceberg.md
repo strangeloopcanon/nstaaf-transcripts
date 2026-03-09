@@ -1,0 +1,325 @@
+# No Such Thing As A Fish - No Such Thing As President Iceberg
+
+- Episode date: October 3, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-president-iceberg
+- Slug: no-such-thing-as-president-iceberg
+
+## Transcript
+
+[00:00:03] You can sing along. Sorry. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Glasgow. In this, James Schreiber, I am sitting here with Anna Tashinsky, Andrew Hunter Murray, and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, that is James. Okay, my fact this week is that according to DNA analysis,
+
+[00:00:47] Beethoven wasn't very musical. Is that saying something about Beethoven or about DNA analysis and how useful it sort of is not? We might come to Beethoven, in fact, I'm sure we will, but this is basically a study where they looked at Beethoven's DNA and they looked at the DNA of a load of students in a couple of universities, one in Tennessee, and one in the Netherlands.
+
+[00:01:11] And what they were saying is that DNA test can't really give much to historical people and tell you about the characters, really. It's kind of warning against that. But in actual fact, Beethoven, well, he wasn't like Mozart. Like Mozart, when he was age four, could play incredible, you know, pieces.
+
+[00:01:29] But Beethoven wasn't like that. He could not write a tune. No, he wasn't really. I like him. I don't love him. I like him, but he could not write a melody to save himself. And I bet he'd say he was above that.
+
+[00:01:38] You know when you get some avant-garde pop stars who say, I don't write the catchy songs because they're beneath me. Lots of them perform in Glasgow, actually. Yes, all of Beehhoven's very uncatchy tunes, like, da-da-da-da. Oh, come on. That's the only one.
+
+[00:01:53] It's a pretty solid riff. I'm sorry, I disagree with that completely. Just on this study of Beethoven, the sort of DNA that they studied, they had a lock of hair from Beethoven, and in fact, they had eight locks of hair. This was really exciting. But only five of them were genetically identical.
+
+[00:02:08] Oh, so what does that mean? Three of them were fake. Oh, they were fake. He wasn't like some kind of chimera who was half Baithoven, half someone else. Or was it the dog Baithoven? It was the dog bait hoven. Oh, yeah. There was one lock of hair which turned out to be from a woman,
+
+[00:02:24] and that was the one that said, oh, you've got terrible lead poisoning, so that's not true. But the thing they found, which is exciting, is that they've studied some modern Batehovens, and they've studied the identical locks of hair from him, and they found that the Y chromosome is different between the two. And what that means is that in his family line, somewhere, there is an extra pair paternity event. Oh.
+
+[00:02:45] Okay. Yeah. Someone's been playing a false note. Yes. Anyway. Da-da-da-da. Dave Grohl of his day. Wow.
+
+[00:02:57] Can I ask, do we know if it was head hair or hand hair? I don't know. I assume head hair. Yeah, I'm assuming head hair as well. Not everyone's hands are at her suit as well. yours are, I've got a bit of hair, but apparently he was like,
+
+[00:03:11] he looked like Wolfman, according to some reports I read. Yeah, and so if you were going to see if he was musically talented, maybe it was more on that hand hair than it was the head hair. Because that's where the jeans would be. They would be in the fingers hair,
+
+[00:03:24] wouldn't they? Were these the hairs that, I mean, I don't know where these ones came from, but I know about one person who stashed a load of Beethoven hair. A musician called Ferdinand Hiller, and when you were a fanboy in the olden days, you snipped hair off dead people.
+
+[00:03:38] That you liked. Was that from him? And what I like about this is that every strand of hair was counted. It was 582 strands, and they were bought by a urologist. And do you remember? Oh, yes, yeah. He's the guy with most... He gets constantly approached to get DNA analysis
+
+[00:03:56] done on the strands of hair that he has. He does, but wait, wasn't it also a urologist who collected Napoleon's penis? Yes, it was. Yes, urologists, something weird about them. Wow. That's interesting. Anyway, could you, in theory,
+
+[00:04:08] with the Beethoven hair that we have, could you stretch them and make a sort of very tiny piano using their hair as... I don't think so. I think they'd snap. But a tiny piano. Yeah, come on, James.
+
+[00:04:20] No one's going to hold you to this if you say it's possible. I just think if I say it, then that is on our next talk. I'm going to go, where's my fucking piano? Yeah, okay. Sure. You've just made him happy.
+
+[00:04:33] There we go. Can we talk about... I'm kind of enjoying the whole piano talk. Oh, sorry. No, no, go on. What were you going to say? Going deaf. Oh, yeah. Going deaf, by the age of 30, he could not hear conversation.
+
+[00:04:45] And that was at a period where he was composing most of his most amazing music. And this is so interesting because one of the things he did was, we know how he communicated because he had conversation books. This is so interesting that they survive. So what's that? Well, if you're Beethoven, you carry a notebook. And if someone wants to ask you a question, they write it down in your notebook, and then you answer it. So we have a list of questions that Beethoven was asked,
+
+[00:05:10] and we don't have any of his answers. It's exactly the wrong way around. And sometimes we have his shopping lists as well. That is less revealing about the mind of a genius. And then the thing was, he had a secretary called Anton Schindler, who became kind of the keeper of his flame. And he was his first biographer, and he was very, very much,
+
+[00:05:29] he sort of wanted to keep this to himself. So he would answer the door wearing Beethoven's old dressing gown. Pretty creepy. But what we also found was he had a lot of these conversation books and if he found a blank page in one of them he would just forge an entry himself. Oh, really? So this is quite frustrating for biographers
+
+[00:05:47] because they've only just done handwriting analysis and worked out. Oh yeah, some of this is lies that were never asked. But I guess, yeah, he is only forging the questions. Yes, unless he's writing an interesting shopping list. Well, they might be, they can tell a lot of shopping list and actually you can glean a lot from the conversation books by what the people are asking him. Like there's a really nice one.
+
+[00:06:08] He was very, very close to his nephew. We might go on to talk about his relationship with Carl, his nephew. But he was very close to Carl and they were in a restaurant one day. And this is in 1818, which is when he just started to do these conversation books. And we have Carl's question to him.
+
+[00:06:21] Just because you eat sausages by taking the casing off and only eating the meat inside, it doesn't mean I have to. You see? And Beethoven said, that's not a question. That's really funny.
+
+[00:06:34] You compared him to Mozart, James, and he did have this sort of sad relationship with Mozart or connection to Mozart, because, you know, Mozart very famously child prodigy, very pushy dad. And Beethoven's dad really wanted Beethoven to be the next Mozart. He was a guy called Johann. He was a court musician,
+
+[00:06:53] so he expected that one of his kids were going to music. He realized Beethoven was quite good, but he used to lock him in the basement, he'd drag him out of bed in the middle of the night, and force him to play piano over and over again. He, you know, he beat him a lot. He was a very unpleasant person, it sounds like, desperate to make him rich and famous because of being so talented.
+
+[00:07:14] And also, he convinced Beethoven that he was two years younger than he was. So for years of his life, Beethoven thought that he was born in 1772 because his dad was so desperate to make him this child prodigy. There's a story that he did meet Beethoven as well, that he was presented to him. He did meet him. And Mozart was really pissed off that he was having to
+
+[00:07:34] break away from his personal writing to meet this kid that everyone was saying, oh, he might be really good. He sits down and he starts playing a piece by Mozart to him. And Mozart says, stop that. I want to hear what you've got. And he plays a little original piece. And supposedly Mozart did the old, you got it, kid. And everyone was like, whoa, he's got it. And so that was like a seal of approval kind of thing. Yeah, he said, watch out for this guy. We're still in Vienna, aren't we? It feels like we moved to California at some stage. No, you know, like what Billy Joel brings someone up to play the piano and afterwards like, watch out for this guy
+
+[00:08:07] he's going to be making... No, you don't watch YouTube clips like that? Okay. Are you saying, do you think Mosul said that to literally everyone? Every kid who came along, he went, watch out for this kid. Look out for this guy. So he did nine symphonies, didn't he? And the ninth one was the one when he was really deaf and he was conducting.
+
+[00:08:25] And there was another conductor on the side because he was conducting, he couldn't hear what was happening. So he's just basically waving his arms. And all of the people in the orchestra were told to watch the other guy. basically. And then as soon as the symphony finished, he was carrying on conducting because he didn't realize it had finished.
+
+[00:08:42] What a shame. If you just had to follow what he was doing, you would have gone an original Beethoven piece and it would have just kept going and kept going. That would have been one of the most amazing nights of music ever. You say that. One of the worst nights of live music ever was in 1808, Christmas in Vienna,
+
+[00:09:02] picture the scene, Oh, it's frosty, sparkling, it's beautiful, these incredible buildings everywhere. It was the marathon performance of Beethoven's new stuff. And we're talking the premiere of Beethoven's fifth, da-da-da-da. Premier of the sixth, no gap, just straight on through. Here's another symphony. Choral fantasy, another piano concerto.
+
+[00:09:22] Four hours of music. Oh, my God. Bit long. It's like when Stuart Lee does back-to-back shows in one evening. It was a complete disaster on the night. because all the best musicians in town had a rival booking, so they couldn't come on play. So the orchestra was a bit of a scratch job.
+
+[00:09:40] And it was extremely cold. The critics hated it. One piece, they hadn't rehearsed enough. The choir just sang it wrong, and he had to stop the whole gig and say, no, no, no, we need to go back to the beginning. It was just a total fiasco of it. Yeah, it was a nightmare.
+
+[00:09:54] So then he did his ninth symphony, and then he started his 10th, but he never completed the 10th. He died before he completed it. but luckily AI has completed it in 2021. And the piece had its world premiere in Bonn in Germany. Apparently it's very good. Unfortunately, you need six fingers to play it.
+
+[00:10:14] Any good? What are the critics saying? It's fine. Sounds a bit like Beethoven. Fine. What a review. That's what you want. Beethoven, by the way, his name means vegetable garden. Cool. And his full name, Ludwig van Beethoven, means loud fight in the vegetable garden.
+
+[00:10:31] which is what a lot of his music sounds like. No, I think he's brilliant. He just doesn't write melody. But do you know what his last words were? Aren't the two versions of it or something? So, Beethoven famously died during a thunderstorm. Quite cool, quite classic, Beethoven. And his last words were, pity, too late
+
+[00:10:52] because he'd just been informed that he'd received a gift from his publisher of 12 bottles of wine. Which... I know the saddest thing about it. life. They won't be your last words. Start opening them now. Don't let them breathe. It is time for fact number two and that is Andy. My fact is that one of Scotland's most
+
+[00:11:22] eminent 19th century illustrators was called Willie Hull. That's him there. And there he is in all its glory. Why is that interesting, Andy? Why is that interesting? I think Andy. I think, Andy. I think He's an under-celebrated artist. Okay, yeah. And you're bringing him to live today. Absolutely. I think this is the most immature fact.
+
+[00:11:44] And you know what? I thought it would be James. My money was on James for the fact that is just a rude name. I'm sorry. I do feel a bit of shame. But I also feel thrilled that we can talk about him. He was called William Hull. But in day-to-day life, who's got the time?
+
+[00:12:02] I'll challenge you, Anna, for a more childish fact. His dad was called Dick Hole. Yes. Oh, true. Middle name, Richard Brassy Hole. Yeah. And his mother was called Anne Burn Hole. This family just had it stitched up.
+
+[00:12:19] Yeah. How many people here? They didn't have it stitched up. Sorry. Who here is heard of Willie Hall? And shame on you. It's wild. Imagine if there'd just been a raw recognition.
+
+[00:12:35] He is quite obscure illustrators. At the time, he was very eminent. He was a member of the Royal Scottish Academy. He illustrated books for Robert Burns, for J.M. Barry, Robert Louis Stevenson. I know they weren't all alive at the same time, but he was alive at the time. He lived from 1846 to 1917. And, you know, I just think under-celebrated. And don't confuse him with another Willie Hole, who was the person who designed all of England's coins
+
+[00:13:00] and James I first. Yes. Yes. And he, proto-Willi-Hollie. Cole. He was amazing. Because I think, was it him, James, who, yeah, it would have been the same time. He invented the coloring in book.
+
+[00:13:13] Really? He published the series of maps. There was this poem called Polly Albion, which was about all the parts of England and Scotland. And it was, there was the beautiful maps of, you know, weird things. The rivers were all on there, and there are weird sort of mythical beasts all over the map.
+
+[00:13:27] And it was fashionable to hand colour your own maps back in the day. And that was a big trend in the 1620s. Gentleman's manual said, you know, if you're going to be a proper gentleman, you've got to know how to colour in. That's amazing. Don't go over the lines if you want an eligible lady to marry you. We also shouldn't forget William J. Hull, Jr., the American film director, mainly known for his B movies.
+
+[00:13:51] Really amazing. He had a movie called Hellbound, which he made for a producer, Howard Cock. No. Yeah. And then he did Speed Crazy in 1959, which starred Charles Wilcox. So is this, this is just going to be us all listening? people with rude names, is it? Well, I actually look to the Wikipedia list
+
+[00:14:08] that's called other people who are called Willie. Yeah, there's over 218 notable willies out there. You've got the professional golfer in America called Willie Tucker. Lovely. There's... And does that help in golf?
+
+[00:14:24] James, you play golf? It can get in the way of your swings. There's the Austrian footballer called Willie Fitz. There's the Kenyan runner called Willie Cumming. Brilliant. Super.
+
+[00:14:38] That's all my research for the fact. The history of illustration. Now... Yeah, I've got some quite dry stuff on the difference between a woodblock and a wood cutting. That's what we want. But no, this one...
+
+[00:14:50] So William Mahal was at the tail end of a period where basically illustration was the only means of getting any visual information to anyone else, as in... There was no YouTube. No TikTok.
+
+[00:15:01] There was no TikTok. That was in the 1870. after his period. No. And basically, it was hugely important and hugely legally contentious as well. Oh, really? So, yeah, I was reading about James Gilray,
+
+[00:15:13] who was sort of the most famous artist of the early 19th century, who did caricatures. But they were so offensive and insulting that he was charged with blasphemy. Wow. That was, he drew the wise men, and he was charged with blasphemy. Actually, the real reason was that the Prince of Wales
+
+[00:15:27] was clearly in the picture being, you know... As one of the wise men or just, like, popping up behind, like, he's photo bombed. There was a disgusting baby in there and there was all sorts of... Jesus! Sorry, in the drawing. Talk about being arrested for blasphemy.
+
+[00:15:42] Sorry. In the satirical drawing, I'm not afraid of blasphemy charges, am I? But basically, and, you know, he was interviewed by George Canning. He was later the Prime Minister saying, look, I want a caricature of me. And so the charge against him,
+
+[00:15:59] the blasphemy charge, was dropped and he was given a government pension. Gilray is the man who was... responsible for everyone thinking that Napoleon was short. Oh, really? He drew him short. Napoleon was at normal height. It's entirely thanks to someone drawing him 200 years ago that we think Napoleon Banderpard was short.
+
+[00:16:14] That's so interesting. So that's the power these images had, just repeated and amplified and caricatured. What an influence. So Willie Hull, he did characters of quite famous people, right? Like he did, I think, J.M. Barry and a few people like that? I think he mostly did their work, as in he mostly would, Jay and Barry's books he would illustrate those.
+
+[00:16:31] So not the author's illustration. He illustrated Dr. Jekyll and Mr. Hyde for Robert Louis Stevenson and kidnapped. I read that Dr. Jekyllum Mr. Hyde was written in six days and six nights while Louis Stevenson was on a cocaine bender. Oh, yeah. According to Robertluysethevenson.com, that's a myth. No, well, they would say that wouldn't they? It feels like it.
+
+[00:16:56] They said that he was on medication, but there's no evidence that he took cocaine for recreational purposes. Willie Hull's grandmother, or great-grandmother, was Jamaican. It's very, just unusual to have a mixed-race couple in the 1790s, but his Scottish father married a Jamaican woman in the 1790s, and the resulting child went on to be the first student of African descent at the University of Edinburgh and then Governor of Sierra Leone. And that's Willie Hole, that's my Willie Hole fact.
+
+[00:17:27] It's good. It's not got a funny name. But we're all learning. A lot more. learning something. Can I tell you maybe my favourite artist of the period? So George Cruxshank, right? Again, hugely influential caricaturist, satirist,
+
+[00:17:43] drew outrageous things. He once got a bribe of a hundred quid from the king himself, saying, please do not caricature his majesty in any immoral situation. So that's how powerful he was at the time. Imagine if the current king paid, I don't know, Michael McIntyre,
+
+[00:17:59] not to do any jokes about him. Is Michael McIntyre known as the most hardcore political satirist of our day. Okay, Anton Dek, fine, whatever. But he was a dreadful guy, Crookshank, in his personal life. So he ill-treated his wife quite badly. He was an avowed anti-drink campaigner, right? So he looked strict, strict,
+
+[00:18:20] because his father had died of alcohol poisoning. He'd just won a drinking contest and then died his father. Died happy, though, at least. It's like the second worst result possible. That feels like a disqualification after the match, right? That feels like you've got to live at least a month post. Okay, here's the amazing thing about George Cruxhank, right? He was on his deathbed.
+
+[00:18:44] Yeah. And he was talking to his wife, who he hadn't been terribly nice to. And he said, what will become of my children? And his wife said, what do you mean your children? We haven't got any children. Now, he had been married once before. Uh-huh. That marriage hadn't produced any children either.
+
+[00:19:01] What? It turned out, this is spicy gossip time. It turned out he had been leading a secret double life and he had a mistress with whom he had had 11 children. Whoa! The last of whom was conceived when he was 82 years old. Can you imagine the number of times you'd have to say,
+
+[00:19:22] oh, I'm just popping out to whatever. It's so funny, his obituary said there never was a purer, simpler, more blameless man, something childlike in his transparency a week later the will was read out to which he left all of his money to his. Oh my God. You know there's only one image of Shakespeare that we have?
+
+[00:19:39] Okay, yeah, yeah. It's done by an engraver called Martin Droschut. He was a Flemish. And it's kind of, you'll see it. Like, if you ever see a picture on an old book of Shakespeare, it's the one that you see,
+
+[00:19:50] which is like black and lights and he's got... He's bald, he's got a terror on sides. Yeah, yeah. Now it turns out that Martin Drosha was in terrible, terrible drawer. like he was really really bad and we only have one of the portrait that he did Francisco de la Pena
+
+[00:20:05] and it looks almost identical to the one he did of Shakespeare and it seems like he only really knew how to draw one person so we don't know how likely it is that this actually looked like Shakespeare at all he actually had a Mahican according to sort of time
+
+[00:20:21] did you know speaking of the influence that illustrators have it was an illustrator who invented macaroni or who popularised macaroni. Okay. The pasta? No. If you're being pedantic, neither, the paster.
+
+[00:20:36] It was a like a look, wasn't it? A dandy. A dandy. The dandy, yes. So a macaroni in England in the 1770s and 80s was, there was a fashion for men to be really effeminate. They had like huge hair. They particularly had massive hair,
+
+[00:20:52] and then they wore a tiny hat on top. It's just so cool. And sort of striped stock. and really tight pants and fancy walking sticks, bright colours. Anyway, there's a woman called Mary Dali. In fact, it was a husband and wife team, Matthew and Mary Dali. And Mary was the real caricaturist. She sort of made caricaturing a thing, invented the art of caricaturing,
+
+[00:21:14] like exaggerating these effects. And they made their name by having the macaroni print shop on the Strand, where she basically drew caricatures of all these effeminate men, created, popularized the macaroni. You spoke about dandies before. Of course, the dandy is a Scottish illustration of sorts. What a great link. Thank you.
+
+[00:21:35] Just leapfrogging from the 1760s to the 20th century comic book. That was very impressive. Made by D.C. Thompson. And D.C. Thompson is also home to the world's oldest magazine, the Scots magazine. And in one of their early issues, they had a first-hand account of the Battle of Collodden. That's how old that is. Wait, sorry, that wasn't the first issue of the dandy. No, sorry.
+
+[00:21:59] Sorry, I... That was in... I lost my thread. Because it's desperate down I've been on side. It could have gone the other way. What was, can I... Sorry to be ignorant,
+
+[00:22:08] but what was the Battle of Clogger? That is... Why don't you just ask someone in the street later on? Okay. Well, I don't know what's known here. You don't know who Willie Hole is, but you know that battle?
+
+[00:22:20] What's going on? I will tell you later, and I will tell you at some length, but it's really interesting. Okay. But on the subject of comics and DC Thompson stuff. I thought we could have a quick game of comic strip or darts nickname. Oh, okay.
+
+[00:22:34] Because I realize that some of these comic strips have kind of got similar names to the darts players. Oh, like Calamity James? Is a darts player? No. So, for instance, bow and arrow, B-E-A-U and arrow, is that the name of a comic, or is it the name of a darts player's nickname? It must be a darts player because what is a dark, but a tiny arrow. Well, it's got to be a comic book, otherwise you wouldn't. presented it and tried trick us into think it was a darts.
+
+[00:23:00] Do you get tag teams in darts? Is it like... You can't have doubles on the stress. You chuck it halfway along the distance. And they lean over and hammer it at home. Yeah, yeah, yeah. No, you lift your arm up and Bo pulls it back and releases you.
+
+[00:23:18] The answer is it was a double bluff Anna. It's Bo Graves, who's the current back-to-back, two-time ladies world champion. Okay. It's a darts player. Dirty Dick. Darts player or... I feel it's too obscene to be a comic.
+
+[00:23:31] I'm going to say dance player. Yeah? Dirty dick. Comic. Yeah, a comic. It was a character from the dandy known as a boy who generally is in need of a good scrub.
+
+[00:23:44] What about this one? Masturbates. I always thought that Masturbates was the myth from Pugwash that claimed that it was... Masturbates didn't actually a Masturb. Yeah, so you go over to Dachivates was... dance player?
+
+[00:23:57] Yeah. Well, the truth is technically it's both. Because there was a character in Oliver Twist called Bates, who is sometimes called Master Bates, and there is quite a few etchings of Master Bates. But also, it was the nickname of Darts Player Owen Bates. He's known as the Master. It always has one hand in his pocket when he's playing.
+
+[00:24:19] He always has it on his back. It says that Owen, the Master Bates, but when he qualified for the World Championships, they didn't allow him to use it. That's fair enough. You don't want to bring the noble sport of does into disrepute. It is time for fact number three, and that is my fact.
+
+[00:24:41] My fact this week is that the title, Prince of Thinkers, was awarded in France to a philosopher whose greatest published work claimed humans were descended from frogs. I'm sure you've all, like Willie Hull, have heard of Jean-Pierre, Reset. This is a guy who was a philosopher. He was a writer. He was a thinker, a bit of an outsider. He lived basically in the same bracket as Willie Hall, by the way, year-wise. Time-wise. Yeah, Willie Hall was born 1846, died 1917. Jean-Pierre was 1837 to 1919.
+
+[00:25:21] Did they ever meet, do we know? Oh, good question. No, they obviously didn't. Yeah, they didn't. He was a fascinating guy. The first thing that he wrote was a thing called learning the art of swimming alone in less than an hour. That's fantastic. Yeah, it's amazing. It's basically five illustrations that show you how in the confines of your home,
+
+[00:25:44] so it's not even within the water, you can just practice moves hundreds and hundreds of times so that when you eventually jump into the water for the first time, you know how to swim. If you do it 600 times, basically you know, and then that's it. It might be that he got his... Humans are descended from frogs theory, which we should say now is not true,
+
+[00:26:04] from... Well, hang on. It has not yet been proven. Yeah, thank you. But because if you view a swimmer from above and they're doing something like breaststroke, they look a bit like a frog. Yeah.
+
+[00:26:15] And so that might have linked frogs and humans together in his mind. Really? Yeah, we should say he wasn't an actual proper philosopher. He was... A nobody. But it is quite amazing how famous he saw... of became to a niche bunch of people. So the only reason he became famous
+
+[00:26:32] was because there was a prank organized by a bunch of kind of of the literati artistes led by a guy called Jules Romaine who decided to award this Prince of Thinkers thing. Jules Remain had come across his book. I think he'd just been rifling through a library, hadn't it?
+
+[00:26:49] He'd come across his book that was like, humans are descended from frogs and the logic was so mad. So he believed that any words in a language that sounded like other words, that wasn't a coincidence. That told you something very important. So, for instance, the word ren for queen
+
+[00:27:06] sounds like the old French word, Ren for frog. So he was like, okay, frogs must be really important. He was then walking past a pond when he noticed not only do frogs look a lot like humans in their bodies, so he thought, but they also were saying, which is French, of course, for what, what?
+
+[00:27:26] What? I was so good. And the idea being that when frogs finally got self-conscious and understood that they were part of the world, the first thing that they would say is, what? There you go. There you go.
+
+[00:27:40] It's all very interesting. We should just quickly go back a second on the Prince of Thinkers thing here because it's quite a mean thing that happened. He was told that this big vote had happened and that he was being made the Prince of Thinkers and they brought him into Paris on a train and he was met at the station by a group of people
+
+[00:28:01] and he was given flowers by children and some poet had written a very special piece specifically for him. He was asked to make a speech in front of the Rodan's statue The Thinker of his kind of acceptance speech. It's unbelievably unkind in hindsight. Imagine if the most eminent authors in the world
+
+[00:28:18] invited you, Dan, saying, we have, like Richard Osmond's saying it. Dan Brown's in there. Akewin, Ishiguro, all of the biggies. Yeah. They write to you down and say, we actually think your book is going to change the world. It's seminal. Yeah. Please come to the British Library
+
+[00:28:34] and stand in front of the Statue of Isaac Newton and make a speech. And then you turn out, it turns out it was a prank. And they actually think the book is rubbish. Well, is basically what happened to this guy? It is cruel. He never knew. I can't see any evidence that he ever knew.
+
+[00:28:47] And I think they might have felt a bit bad. So, Jules Romain. It wasn't in the newspapers the next day. It was too successful. It went too. So I think Georges Romain left money for a banquet to be held in his name every year thereafter. And it did go until 1939, possibly because he felt a bit bad about humiliating this guy. To be honest, reading up on it, I'm a bit confused about what they genuinely thought,
+
+[00:29:10] because if you read Marcel Duchamp writes about it, and he knew of the work of Brisséau as well, I think they were taking the piss, and it was elaborate, but they were surrealists and they were doing a surreal thing here. But I think they admired the thinking. I think they genuinely thought this guy is a weird thinker, and we should be celebrating. They were doing all sorts of stuff like that, weren't they?
+
+[00:29:29] It was like found art kind of thing. It's like we found this thing. We're going to turn it into art. We're going to turn it into something special. I think Richard Osman really liked my book, Andy. But there were quite a lot of these, what are known, in English as outsider writers and in French as Fu Literaire,
+
+[00:29:49] like means mad writers. But there were quite a lot of them at the time. For instance, there was a guy called Alexis Vincent Charles Berbaguier, Newfoundland, Time, who wrote books about the imps that were following him around. His surname Time was chosen because he thought that the time, the herb,
+
+[00:30:08] repelled the imps, and he planned to plant an enormous time field so they would repel all of the imps. So that was one of them. I did read about him, because he read that the imps and the leprechauns that followed him around made him sneeze and fart enormously. and that was a huge problem.
+
+[00:30:27] No, it's not me, it was the imps. He wants to buy himself a dog. There was a guy called Raymond Russell who wrote these really long poems, but instead of rhyming, each line was kind of related to the previous one by the words. So you might have a line which is about a dog,
+
+[00:30:44] and the next one's about a bog, and next one's about a bot, and like that. But they're really, really, really long. It would have footnotes explaining what he'd done to make that line that was related to the previous line. and his footnotes could have footnotes. And that could go like five footnotes for all of it.
+
+[00:31:01] So it was all footnotes. The David Foster Wallace of his time and equally tedious. But according to the French Wikipedia, perhaps not surprisingly, Roussel was unpopular during his life and critical reception of his works was almost unanimously negative. Oh, man.
+
+[00:31:16] Yeah. But there was loads of them around. I think it was just like pretty much anyone could get stuff printed. Yeah. That's great. But I feel like a lot of them were self-conscious. They were often rich white men. Yeah, and they knew what they were doing, whereas this guy didn't.
+
+[00:31:29] I found something quite random about Brisei, so he was in the army. And I think something quite odd about him, and this is often surprising today about people who hold very strange beliefs. Dan, you know a lot of these people. They function very normally in the rest of their life. And so he, as we've said, he worked on the railways. They did try to sack him a few times from the railways because he did have some quite strange ideas that they attributed to a headway.
+
+[00:31:55] from being in the homie. What did he have? What were the ideas? Well, there were a lot of the stuff we've just talked about about how all humans are descended from frogs, that kind of thing. He talked about that quite a lot. Yeah, it made it sound like he was saying the trains should all run backwards. No, sorry, he made the trains run fine, he just kept on wanging on about this whole humans from Frogs idea.
+
+[00:32:12] But he was wounded in 1859 at the Battle of Magenta, which was a battle of France and Italy versus Austria. It was a huge success and victory for the French, and I just didn't know that that's where the colour comes from. from the battle. Yeah. Really? Yeah.
+
+[00:32:27] So it was this big success, the Battle of Magenta for the French. And at the same time, a French chemist produced the colour that they called Fushina. And then they were like, hang on, we've just had this big victory. Do you mind if we rename that magenta?
+
+[00:32:38] What colour is magenta again? What colour? The one in the printer that always runs out, even though you never use it. Thank you. Hello, old friend. Okay. Language.
+
+[00:32:50] How we got language in the first place? Oh, yeah. The theory, because the 19th century was a time was a time when lots of people were trying to work out. How do we get language? And the theories were fantastic. Yeah, it was because we just had the theory of evolution had come in with Darwin,
+
+[00:33:02] and people thought, well, surely language must have evolved in the same way, so can we fill in some of the gaps? Yeah, exactly. So the bow-wow theory. We came from dogs. We came from dogs. No, it's the language comes from animal sounds, and the humans started language off by doing impressions of animals
+
+[00:33:17] to communicate with each other. So, for example, James, if we don't have language, I've got no way of saying there's a dog behind you unless I say woof, right? Sure. But how do you say to someone in another country that doesn't know the word woof? Like, because in English we say woof,
+
+[00:33:34] but dogs don't objectively say woof, and they don't say bow-wow, and in all different countries, they say different things. Yeah, but I'd go, and then you would know if there was a dog behind you. We're in the same room. It's just 30,000 years ago, we're Neanderthals. So...
+
+[00:33:46] We're Neanderfels. Yeah, and the guy who came up with this was a guy called, I love this, Johann Herder. Oh, yeah. Okay. What do dogs do? Has he worked out what he thinks the words have evolved into?
+
+[00:33:57] Like, what does that, wow, wow, wow, what does that become? I don't know enough of what, this is the late 18th century, so I haven't read enough of his stuff. I think it was that you start off with, and then eventually you get to woof. Hang on. And then, like, you know, a few more steps. A few more steps I'm not going to spell out,
+
+[00:34:15] and then we've got this podcast. Do you know what dogs say in Burma just while we're on this subject? What's a dog saying Burma? They say woke, woke, woke, woke. Like a G.B. News presenter. Because they're pissed off everyone's calling it Myanmar, aren't they? Listen, Andy... That's the best Burma-Mayanmar joke you'll hear on this day for weeks.
+
+[00:34:36] How much do we believe in? Because I believe this theory 100% right now. This sounds like the most sensible thing I've ever heard on this podcast. It's the first thing that kids do. You're speaking to your kid. You teach them the noises that animals make. Of course language came from there. But what about the Yo-He-Ho theory?
+
+[00:34:52] What's the Yo-H-H-H-Ho theory? We all evolve from pirates? Basically. Basically, yeah, this is Edward Bernard Tyler in 1871, proposed that language evolve when you're doing manual labour together. You might be rowing, you might be hauling logs, and you have to say, row, row, or yo-he-ho, or whatever. And that gradually evolves into more complicated structures,
+
+[00:35:15] but it's basically you need some kind of shared sound that we all make when we're pulling a log. I like that. There's also the poo-poo theory. Oh, what's the poo-poo theory? The poo-poo theory is that it comes from automatic responses from disgust or happiness or something. So you see something and you go, pooh. You just make that automatically, it's not a word, and then eventually words evolve from that.
+
+[00:35:37] I think it's the woof-wifting. There's a very famous philosopher and linguist called Ferdinand de Sosser, who you've all heard of, as had I before I started researching for this, of course. But he is one of the founders of linguistics, apparently. Anyway, so he's very well respected. He died in 1913. Sometime after he died, eight cardboard boxes were found that belonged to him that showed he was obsessed with the idea that all of classical literature had hidden anagrams within it.
+
+[00:36:08] And people still talk about this. People still kind of write papers about what this means and whether it's justifiable. But he just got obsessed with like the idea there were all these weird anagrams and phoneme matching and patterns in classical literature. That's really interesting. So weird. It's not weird about finding the pattern. It's the same with Brisset, I guess, because he said, okay, we've all evolved from frogs,
+
+[00:36:30] and these frogs saying, and then that goes into what in French? But he kind of assumes that French is the original language, right? Yeah. That's the big problem with this theory. But what's the nickname for the French? Frogs. Oh, I'm just saying.
+
+[00:36:49] Holy shit. Maybe there's some... Have I just blown this shit wide open? You've blown this shit wide open? We need to move on to our final fact of the show. All right, it is time for our final fact of the show, and that is Anna. My fact this week is that in 1968, a pig was nominated as a US presidential candidate, but was arrested in the middle of his acceptance speech.
+
+[00:37:17] When we are saying his acceptance speech. They're very eloquent pigs if you would just listen. This, yeah. Yeah. Don't say, oh, yeah, like that made sense, don't say, oh, yeah, like that made sense. Honestly, I was thinking of the pig from Babe, and I was like, he was eloquent. It wasn't that pig. It was a different pig. This is a pig called Pegasus, and he was a presidential candidate of the Yippies, which were a political party slash in Kuwait group of late 1960s sort of activist dissenters who sort of didn't like the war in Vietnam, as no one did. And they made a big fuss about it. And one of the big fusses they made was this was,
+
+[00:37:57] two days before the big Democrat conference, National Convention, and they showed up, they called a press conference, and they rocked up with this pig candidate and one of their leaders, Jerry Rubin, started to do the acceptance speech on the pig's behalf because a pig was very shy, and interrupted halfway through by the police
+
+[00:38:16] who genuinely arrested all the candidates, including the pig, and took them away. I read a rumour that he was subsequently eaten by one of the police officers. Yeah, I heard that as well. That was a rumor. I don't think it is. And the reason I don't think it is,
+
+[00:38:31] is that it's quite difficult to just go from a live pig in your possession to being on your dining room table, isn't it? You've got to have kit, haven't you? You've got to have the gear. Actually, I read a different rumor that he was married off and taken to a farm to live with Mrs. Piggasus, which is a nicer... Oh, that's a nice one. Yeah, and I think that's plausible as well.
+
+[00:38:51] Probably somewhere in between is the truth. Probably rehoused and then eventually eaten. Yeah. Well, I read a further rumor that months, like five months after this incident, the Yippies held an honorary, what they called, inhoguration for Pegasus. Lovely. Yeah. It's all great stuff.
+
+[00:39:12] It's good stuff. I think they were fun. Protesters had quite a lot of fun in the 60s, as well as being very angry. Well, this is Flower Power. If you want to put a name that's connected to it, Abby Hoffman, Jerry Rubin, they were all part of this big moment of the 60s. saying anti-war and peace is needed, but they were pranksters and they were also pulling stunts like this to sort of get themselves in enough trouble that it made a statement, but nothing,
+
+[00:39:37] you know, bringing a pig to a nomination is not really dangerous. It wasn't even in the building, you know, it was sort of easy-go. They were nicknamed the Groucho Marxists, but they, the yippies, as they got called, this was, it stood for the Youth International Party, but actually they were named because one of their founders, a guy called Krasner, was going through the alphabet for words that rhymed with hippie and eventually got to almost the last gas we got to yippie. They thought, well yeah, we could make that stand
+
+[00:40:04] for Youth International Party if we mangled it a bit. And so they didn't get the name first and then come up with the acronym. They came up with the acronym first and then backformed it. And they did take it seriously as well as being pranksters. Like the whole pig thing there was a big argument about it. So I guess the three main people were
+
+[00:40:20] Abby and Anita Hoffman, who were a couple and Jerry Rubin. And Abby and Anita Hoffman bought the first pig for this big press conference and presented it to Jerry Rubin who rejected the pig out of hand was furious so this is too small it's too attractive we need a big pig we need an ugly pig and he had to himself I'm not another picture here he's not that I've seen bigger pigs I've seen ugly pigs I agree it's an attractive pig to my eyes but it was supposed to represent sort of political power of the day I suppose and that was ugly so that's the satire there
+
+[00:40:55] The other thing they did very famously was walk to the Pentagon and try and levitate it. Yes, that's right. It's really interesting. When you speak to people who were on this march and there was a lot of them, most of them say, yeah, we were just going for a long for the fun and, you know, we weren't really going to levitate it. And then some of them, admittedly, who were kind of off their tits on LSD, they actually thought they were going to levitate it. I genuinely think some of them thought they were. Yeah, they thought they were going to send psychic energy towards it until the
+
+[00:41:25] building itself turned orange with the energy and vibration, and then it would slowly levitate, and they were going to do it by psychic energy, Tibetan chance. And as you say, they knew it was a joke, but then there were people that thought, well, if enough of us did it, maybe this would actually work. And it was, you know, I mean, the names that keep cropping up, if you know your counterculture America well, this is... Wait, what happened? Oh, yeah, so it lifted up, turned orange. It's still there. It's still in the air now. It's a nightmare. You've got to get in by ladder. It's insane. Nothing happened, Andy. It didn't Well, Alan Ginsberg, who's one of these
+
+[00:41:58] Cantercote guys, he said the Pentagon was symbolically levitated in people's minds. Yeah, that's such a crap excuse. That's like my facts on this show. It is true if you just believe hard enough. Hoffman, by the way, I'm saying that he was sort of part of a peaceful movement and so on.
+
+[00:42:17] But, you know, he did write a very infamous book which was called Steal This Book. Kind of like the Anicus Cookbook, had a lot of stuff in there that you don't want people reading, you know, there was bomb making, that kind of stuff in order to, but it was largely a book about how can you help with the troubles that are going on, how can you make a point, but have little hacks to get through it. So, for example, if you need to talk to a large crowd, don't spend ages like doing what we have like here, you know, like booking a theater, all that stuff.
+
+[00:42:47] There's a lot of money, you know, go to a show where there's a theater booked, and before the show starts, jump on stage. They've got a PA system. Just use what they're, they're using and go and don't do it here obviously Glasgow but but that's what his suggestion was and always do it prior to a show because you don't want to preach to people who can get angry at you for interrupting a show that's fine that's not too dangerous the bomb-making stuff is bad but i think interrupting someone's show yeah yeah i'm okay with that no arguably the most dangerous thing about the book was it's called steal this book encouraging everyone to not pay for it in the shops that they were and that's what did it did it did get stolen he should have called it by this book or by
+
+[00:43:25] 10 copies of this book. Yes. I think that might have defeated his object, while, yes, making him some more money, James. I think he did call his autobiography something like coming to a theater near you or something like that, soon to be adapted into cinema. Yeah, so he did have titles like that.
+
+[00:43:41] I think on the last page of the book, it has a list of other bucks worth stealing. Nice. Oh, that's nice. Oh, I thought you were about to list all of our books there as a bit of slight publicity, but no, okay. They invaded Disneyland in 1970. They managed a huge victory there.
+
+[00:43:56] That night, Disneyland had to close slightly early. Wow. Take that, The Man. But it supposedly, Andy, was only the second time in Disney's history where they had to shut and get everyone out in order to deal with the situation. So for Disney, it was a big deal. Because they were going to liberate Minnie Mouse.
+
+[00:44:14] They were staying on Tom Sawyer's Island. They wanted to liberate Minnie Mouse and cook Porky Pig. Again, another very pig-based... They clearly turned to violence. by this point. It's just two years after they were being nice to pigs. But you're missing the main thing about that. Porky pig's not a Disney character, so it's not even there.
+
+[00:44:32] So they got there and there was no porky pig. You've got to know your genre. Yeah. You're going to brand. Hoffman played by Sasha Baron Cohen quite recently, if anyone's ever seen the film, the trial of Chicago 7. And very confusing. So the trial of Chicago 7 was
+
+[00:44:46] basically there was a huge riot and they were all put on trial these guys. And Hoffman and Rubin went into court wearing judicial robes, basically disguised as the judge. This was even more confusing, given that the judge was also called Hoffman. And then so confusingly,
+
+[00:45:02] Rubin, the other one, went on to meet a nemesis. He moved to Miami and he decided to lead this thing to occupy a golf course for one to achieve one of his aims with a bunch of people. And he met his nemesis, who was also called Rubin. So it was Rubin versus Rubin
+
+[00:45:19] faced off against each other in this church in Miami. And then he turned into a stockbroker. And they went on Tos with yoppy versus yippie, didn't they? They did. This is after Jerry Rubin became this big shot stockbroker and kept saying, but it's good. It's all part of the be good plan. What's a yuppie again? What's that defined? Yeah, openly mobile professional person. Yeah. From the 80s with a big mobile phone. Yeah. Okay, right. So they, Anita and Abbey Hoffman had a child that they called America. America with a small A because they didn't want him to be pretentious.
+
+[00:45:57] But actually, he does seem okay, actually. That will come across really well over the phone, won't it? No, no, no. He later changed his name to Alan. Still with a small A? No, he's now half Alan and half America. Because he's changed his name back to America,
+
+[00:46:15] but he's kept the capital A from Alan. General political protests? Yeah, sure. Now's not the time, Andy. I've gathered as all his, for a reason. No, I was just reading about other protests of various kinds.
+
+[00:46:30] So pig-based protests, actually, specifically I started looking into. There was one in Taiwan a few years ago. The big debate, do we let in American pork, which has been treated with this particular chemical? It's banned in lots of countries. Anyway, this was the report from, I think, in New York Times. Members of the Kuomintang on Friday
+
+[00:46:46] through pig hearts, intestines, lungs and other inards. This is in Parliament. Just Parliament became a, like, what's it called, Mardi Grasethe? tomato, what's the tomato thing? Oh, tamatina. Yeah, it was like that, but with pig hearts.
+
+[00:47:00] And they threw other, and it's leaving the chamber's crimson carpet street with ropy strands of intestine and milky viscera. Some lawmakers donned rain jackets, others brawled in business suits soiled by what appeared to be bits of pig fat. Oh, so, you know, just when you think
+
+[00:47:16] our politicians are bad, that's... That's great. We could do with more of that. Okay. We would all tune in to BBC Parliament if we were expecting awful to be hurled around it. Similarly, in 1975, there was a group of vegetarians in Michigan that protested McDonald's.
+
+[00:47:33] It was a two-floor McDonald's. They went to the top floor and all vomited onto the people below. On command? They old down the mixture of mustard and water and then immediately vomited. But not in unison, right? That would take so much practice.
+
+[00:47:49] It wasn't like the fountains of the bellagio, I don't think. But it was... kind of around the same time, at least. Okay. And the newspapers got a press release afterwards, which they reported was written in either blood or chocolate syrup. I'm going to go for the latter. Yeah.
+
+[00:48:08] There was an election in Iceland this year, and one of the candidates, or someone who's trying to become a candidate, was Snaisville Yorkudl, which is a glacier. The rules say that to become president, you have to be an Icelandic citizen and actually in Iceland a few years ago they made a new law that all of the glaciers
+
+[00:48:31] are now citizens. Oh, okay. So it passed on that. You had to be age over 35. Glacier, 700,000 years old. And no criminal record. No criminal record. And the only reason that it didn't become
+
+[00:48:46] is they didn't get enough signatures. People didn't sign. Otherwise, there's no reason why it couldn't do. And it's actually the glacier that's mentioned in journey to the center of the earth by Schofern. That's the one they go through. So that could have been presidents of Iceland.
+
+[00:49:00] Oh man. And they're going to go for it again next time. That would have been so nice. Just for someone for Joe Biden to stand next to and feel young. That's frightly. That is it. That is all of our facts. Thank you so much for listening. We will be back again next time with another episode.
+
+[00:49:22] But thank you so much, Glasgow. That was awesome. And we'll see you all again. Goodbye.

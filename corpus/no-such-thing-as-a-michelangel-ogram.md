@@ -1,0 +1,295 @@
+# No Such Thing As A Fish - No Such Thing As A Michelangel-ogram
+
+- Episode date: March 6, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-michelangel-ogram
+- Slug: no-such-thing-as-a-michelangel-ogram
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, James. Okay, my fact this week is that when the world's largest bottle of wine, Sprung a leak this year, the owner called the local fire department who stopped the spillage with sandbags. Wow.
+
+[00:00:49] How big are we talking? We're talking big. It was 9.8 feet tall, 2.6 tons in weight, and 1,590 litres. It's about the equivalent of 2,000 bottles of wine. If we lived in a truly sort of circular recycling economy, then they would have gone, solved the wine problem, retain. the wine and used it to put out their next file? Well, they could have done that.
+
+[00:01:15] Apart from the wine is still drinkable, believe it or not. Not the stuff they squeegee off the floor. Well, it depends on your standards, right? That's true. So they took this bottle of wine, and they got all the stuff off the floor, and then they took the wine from the bottle and put it into barrels, and they've checked it. They took it to a winery to test, and it's been deemed fit for consumption,
+
+[00:01:39] and they're going to sell it by the glass at a number. upcoming event. Cool. That's going to take pages, isn't it? So why did they build it in the first place? Well, they build it because people like building large things. It was just like a publicity stunt, I suppose. It was sold to a Chinese restaurant in Austria, and they had it on display.
+
+[00:01:59] It was in a giant climate-controlled glass chamber. It was really cool. So it's like a big fridge. And they think that's where the problem came from. They think the electricity went off. And so when it was not as heated, then wine expands. or liquids expand in a bottle when the temperatures are changed and they think that's what led to the leaking.
+
+[00:02:17] So it got cooler, in it? No, it got warmer, so it was in a fridge, and it got warmer, so it expanded, and it pushed the cork up and left a little bit of a gap where the wine could come out. Yeah, and I guess they brought the fire department because they were a bit scared about what was going to happen. They couldn't tell where it was leaking from to begin with.
+
+[00:02:34] Well, it's a big lot of glass, and they worried it might explode. Exactly, so it could have just shattered onto them, and, you know, that's a lot of deaths in a restaurant. If you order a glass of wine out of this bottle, do they have a sort of bodybuilder who has to come and pour it? How does that work? I think that the idea was that the wine in the big bottle was probably never supposed to be drunk. It was just a display thing. But then once it started leaking out, they were like, oh, I'm going to have to drink it now.
+
+[00:03:02] It's like, you know, when you have a bottle of wine in your fridge and suddenly the electricity goes off and you're like, well, I'm going to have to drink all the wine in the fridge now. I don't think that's a thing, James. Isn't that? I don't think so. I've had a lot of electricity problems in my house recently. So, yeah. So you were mentioning another rival bottle of wine. Okay, yeah, I forgot about that.
+
+[00:03:22] So this has the Guinness World Record for being the largest filled glass wine bottle. But when I was doing the research for this fact, I found another one in Switzerland that was way, way, way bigger. And so I can only think there's some technicality that it's not made of glass because I couldn't quite tell. from the images, or maybe it wasn't full of wine. Right, right, right, right. So these giant bottles of wine, they are a thing, but I didn't know that most of the wine on earth is transported in giant bottles. Really?
+
+[00:03:53] Or a huge amount of it, yeah. So, okay, I didn't know this. And then I told a few people who were a generation older than me, and they all knew it. So maybe this is a generational thing. But loads of wine, when it's shipped, it's not shipped in bottles, it's shipped in bulk tankers. Do you guys know this? What do you mean, like a petrol tank? Kind of, yeah.
+
+[00:04:12] Like in a shipping container. But obviously a special container. They don't just pour it into a shipping container and then seal it up. But basically, 45% of the wine imported into the UK arrives not in a bottle. It arrives in these massive containers. The crappier wine, right? Because I think if you're getting the really hardcore good South of France stuff, then it's bottled in the place.
+
+[00:04:32] It's quite a lot, though. I mean, they bottle so much here. And they have labels which are from overseas wines just here that they put on. So there's a place in South West England. called Avonmouth and Avonmouth Near the Muth of the River Avon. Avon Muth. Okay, anyway, they have a hangar there
+
+[00:04:51] which is the size of 12 football pitches and it's owned by a firm who are a specialist bottler and they fill up 720,000 bottles of wine there alone every day. Really? I believe that. And the wine arrives in these massive plastic bladders, basically. They're called FlexiTanks, right?
+
+[00:05:10] and then they have a special pump and tilt system, they call it, to get the last 150 litres out of each bladder. Is that when you're sort of shaking you to get the drags out? Basically. And do you have to get it directly into the bottles? That must be quite difficult. Do you submerge the bottles into the bottles? How do you do it?
+
+[00:05:27] I don't know. The interviewer read. There must be a tap. It's probably a tap. It's probably a tap system. I don't know. But these bags are then soaked with wine because they're obviously, you know, liquid proof on the outside, but on the inside
+
+[00:05:41] they're completely soaked with wine, but those bags are then shredded and turned into traffic cones. No way. And that's why traffic cones are like orangey red in colour. Exactly. Not like that. Maybe not. But it is maybe why drunk people are drawn to traffic cones because they do know
+
+[00:05:58] at some level. Just another hit. That's amazing. Isn't that cool? That's really cool. That's really cool. That's very cool. That's like the kind of inheritor of butlers. Because butlers are originally bottlers, right? I didn't know if that was where that comes from. Bottelier is the king's bottler who would bottle up all his wine.
+
+[00:06:15] And I suppose they're your modern day butlers, an Avonm. You know that from 1636 to 1860, it was illegal to sell wine by the bottle in the UK. You would go to the shop and you'd have your own bottle with your initials on it. And then they would fill it up and they'd work out how much you'd bought and by volume and you'd pay by volume. And the reason was, wine bottle making. was kind of quite common in the 17th century, but not until the 19th century could you make it so they were all the same size.
+
+[00:06:47] And so duplicitous shopkeepers might kind of sell you a bottle, which is a lot smaller than the normal bottles. So that's why they made it illegal. That's going to be hard to hide your alcohol problem when you rock up with 10 bottles. Another big party, Mr. Shriver? Isn't that just the same as leaving the shop a minute later with 10 bottles, which is what we do today?
+
+[00:07:07] Exactly. How do you ever hide your alcohol problem, Normally, if you're leaving the supermarket with 10 bottles of wine every day. I've got a mustache. I send my son in sometimes together. You've got a full facial beard. How is a mustache going to help? I know.
+
+[00:07:21] It's so distracting. They're like, whoa, that guy's weird. Let's not question his story. I'm kind of annoyed with wine bottles, though. Having done the research for this fact, well, they're so inefficient. They're so heavy. Most of them are made from green glass, which is quite hard to recycle.
+
+[00:07:37] And also, we import so much. bottle so much here that actually even if you recycle it it is quite hard to find uses for all of it. Well you can get or you could get paper wine bottles which are an answer to this because I read about those. Yeah but it's kind of sad because it was in 2014 wasn't it that they start they sort of went global with them
+
+[00:07:54] this company and they're made from compressed recycled paper and so they're incredibly light and they so they weighed 65 grams which is a seventh of a wine bottle of a wine bottle is empty and then they had the little sort of bagging inside you get inside boxed wine and really quickly the company folded.
+
+[00:08:12] Very clever. That was a real shame. Was that intentional though that when you said folded? It was but I stole it so. Okay. But it did the company folded.
+
+[00:08:21] Okay. You could have said crumpled. It's like that common phrase. The company crumbles. That's the way the company crumbles, as they all say. Do you know who is known as the father of the modern bottle?
+
+[00:08:34] Is it someone famous who we will have heard of? It's someone not famous who you will have heard of. Oh, who we will. Oh, is it someone who's around around Guy Fawkes era? Quite close to Guy, one generation away from Guy Fawkes-Sera. Is it, Everard Digby? It's not.
+
+[00:08:49] But it's someone I was confused with him. Kenel, Ken Elm Digby. Yes. Wow, they're back. The Digby's are back. For anyone just listening, this is a four-year callback. I really have to put the hours in to be having a good time now. Okay, so Everard Digby, who was the gunpowder plotter,
+
+[00:09:08] his son was Sakenum Digby and he kind of came up with ways of making really good glass because he was an alchemist and he was like taking sand. I really felt like you were going to say alcoholic. And he was like adding metals and oxides to his sand and making it really, really hot and making really good glass and he could make darker glass as well
+
+[00:09:28] which would make the wine not spoil as quickly. Yeah. So that's a high achieving family, the Digby's, weren't they? I found a story about, so this fact, is about wine leaking out and losing precious wine. I found a story similar to this. In Canada, there's a company called Mission Hill. They make wine. And they had an employee called Brent Crozier, and he was a cellarman. So he worked inside the factory. And for years, his job was blending wines,
+
+[00:09:55] and he was transferring them between tanks. He accidentally left a valve open when he wasn't meant to. As a result, 5,680 liters of Sauvian Blanc spilled to the ground and went down a drain. So it cost them $162,500. He was fired, obviously, for losing that amount. But it's not the first time he did it. So back 18 months earlier, he left a valve open and he flushed 11,000 litres of wine down a drain. And they gave him a second chads. But it does sound to me like there's someone in that drain with a massive bladder.
+
+[00:10:31] Like an accomplice, doesn't it? You're right. It's a con job, yeah. Did you guys see the story? I remember the story last year. that tweet that was put out by Hawksmoor restaurant in Manchester, which was to the customer who accidentally got given a bottle of Chateau Le Pomerol 2001, which is £4,500 on our menu last night,
+
+[00:10:51] hope you enjoy your evening. To the member of staff who accidentally gave it away, chin up, one of mistakes happen, we love you anyway. Wow, okay. What a good employer. Yeah, that's amazing. Has that happened again since, though? He's been fired, it happened repeatedly.
+
+[00:11:05] Wow, that must, but the thing is, A lot of enjoying wine they've shown is if you know it's more expensive, you like it more, right? And if you're thinking you're buying the $3.99 bottle of wine off the Hawksbore menu, which I don't know if they go down that low, but if you think you're buying the cheap one, you get the expensive one, you might not enjoy it as much. No. They probably would have, I mean, no one can be good enough to surely be, to be, to be, I can't differentiate anything above about eight or 10 quid, basically.
+
+[00:11:31] No. But have you ever tasted the 4,500? You never know that might be such an explosion. I have one every other week, and I can't taste. the difference. Line testing. This massive bottle of wine that I talked about at the start,
+
+[00:11:42] you could, if you had drank one bottle of wine to yourself every day since we started this podcast six years ago or so, you'd just be draining the bottom of the bottle now. That's a great calculation.
+
+[00:11:55] And you would need it after listening to this podcast every week for six years. Okay, it is time for fact number two, and that is Anna. My fact this week is that when Michelangelo sculpted David, the town mayor
+
+[00:12:11] told him that the nose was too big. So Michael Angelo picked up some dust, climbed to the top of the statue, sprinkled the dust down, and claimed he had fixed it. So was he making like sculpting noises while he was doing it? He must have been, right?
+
+[00:12:24] He was with his mouth, yep. He went even further. He went even more method. He did take up a hammer and chisel and stuff. So this was in 1504, and it was when David was just being displayed in Florence. It was revealed. And Piero Soderini was the town
+
+[00:12:38] sort of mayor or chief. Anyway, Sotorini said, probably displaying his artistic appreciation. You know, I think the nose is a bit out proportion with the rest of the thing, isn't it? You want to go up and fix it. And Michelangelo, everyone was surprised at the time because Michelangelo was very touchy and really dislike criticism. But he said, yeah, absolutely. I'm so sorry, you're absolutely right. It's enormous. And so he picked up a hammer and a chisel and secretly a handful of dust, climbed to the top, pretended to chip away at it. And then Soderini went, that's absolutely perfect. He's nailed it. Stop there. Came back down again. This is like the wine tasting thing with the prices.
+
+[00:13:13] Absolutely. If you're told something is better. You believe it. You believe it. Do we know that this fact is completely true? Well, it comes from this amazing book, which is sort of the foundational book of all art history, which is by Georgio Vasari. And it's called The Lives, the Most Excellent Painters, sculptors and Architects. And yeah, so he founded art history and wrote these incredible biographies of all the great artists up until them, or not all of them, but many of them,
+
+[00:13:40] many of the Florentine ones especially. And so there are a lot of facts are very, very true. And then we think he had an eye for drama and liked to embellish. So he was friends with Michelangelo. And he was a huge fan. This book, The Lives of the Artist, so the origin story of this book is that he was sitting at a dinner, this is in the 1500s at the Roman Palazzo with the Cardinal at the time.
+
+[00:14:02] And the Cardinal was talking about a collection of, paintings along with the other people and he kept noticing they were getting dates wrong and certain they're attributing certain bits of art to different people. So he said that if someone was going to collect all this information together, they should have someone who knows it really well and they suggested that he do it. So that was his sort of claim for it. But the reality is that two of the people he claimed that were at the dinner with him had died already. And they don't think he was even in Rome at the time when that dinner was said to have happened. So he was someone who did have a bit of a sort of like Brian Blessed or...
+
+[00:14:35] He was definitely the Brian Blessed of his day maybe because he also claimed that he rescued David at one point. So he was born... He was very young when David was sculpted, but in 1527, there were these massive riots in Florence and one of the rioters, it was anti-Modici riots and one of the rioters threw a bench from a parapet which knocked off David's arm.
+
+[00:14:55] Through a bench? Yeah, through a bench from a parapet. Who was this? Goliath. Yeah, so his arm came off. And Vasari says, that he was a boy at the time. He was about 16 and he fought his way through these rioting, marauding crowds to rescue the various pieces of the arm.
+
+[00:15:10] It can't be true. And take them to safety. Actually, what they didn't say is that this was a miniature bench that a travelling salesman had brought. Wow, we're going mega on callbacks. I love mixed episode callback. I love it. He had a broken nose, Michelangelo. Like David supposedly did. Oh, yeah. Because he got into an argument
+
+[00:15:29] with one of his friends or something, is that right? His friend through a bench at him. It was called Pietro Torrigiano, and he was supposedly envious of Michelangelo's skills. But he also had a very bad temper, and so smashed him in the face. And he said, I gave him such a blow on the nose that I felt bone and cartilage go down like biscuit beneath my knuckles. And this mark of mine, he will carry with him to the grave. Blimey. But it basically screwed its life because everyone loved Michelangelo, because Michael Angelo.
+
+[00:16:02] because Michelangelo was with the Medici's at the time, wasn't he? So he had the protection of the people who ran everything. And so Tarigiano had to leave Florence. He went all the way to England where possibly he was hired by Henry VIII. And then he started sculpting nobles in England and then wanted to go back to Florence to try and get some help, some like students and stuff. But when he went back, no one would go with him because they remembered what he did to Michelangelo. Wow.
+
+[00:16:30] Yeah. This is why you should bully. and pick on people who are inferior to or smaller or less talented than you are because if you pick on people above you then you will reap the consequences, won't you? You're absolutely right. Oh, is your Bullies League coming along?
+
+[00:16:43] It's going pretty well, thanks Andy. You're next, by the way. So I was looking for Michael Angelo just what he looked like and he's in the Sistine Chapel as a self-portrait, we think, which is, but it's not him as a person, it's not him looking healthy,
+
+[00:16:59] it's him as a piece of flayed skin. Oh yeah, yeah. So there's an image of the last judgment that's one of the bits of the Sistine Chapel. And there's St. Bartholomew trying to get into heaven, kind of get God's attention, say, hey, I'm a saint, let me in. And in one hand, he's holding a knife, and in one hand, he's holding his own flayed skin. And he says he has got skin as well. So it's not clear when he grew this second skin.
+
+[00:17:23] Well, you can't see him 360, presumably, so maybe his off his back or something. No, no, no, you can see it. It's the face. What is it's saying is he's got two faces. It's not completely accurate. it. I see. Michelangelo didn't paint
+
+[00:17:33] a completely flayed St. Bartholome because it might have been a bit grip. But the hanging skin that this guy's clutching is Michelangelo and we know
+
+[00:17:40] because he's got a little broken nose. But then again if you break your nose it's the bone that breaks it's not the skin that breaks and so how can you tell if you flay someone's skin
+
+[00:17:49] how can you tell if they got a broken nose? That's a good point. That's true. He knew nothing about anatomy, did he? But he used to paint sort of very buff people
+
+[00:17:58] with an eight pack as opposed to a six pack Does that exist an eight-pack? It does. It's extremely rare. Oh, okay. But it does exist. I've got one.
+
+[00:18:08] Yeah. We're not talking about cans of beer now, I mean. Oh, I haven't got one then. So six-pack is your basic, like, muscles of your abdomen. Yeah. But a very small percentage of people do have eight muscles down there. And they think this is a clue as to who might have been one of his main people who he based his paintings. And it sculptures off.
+
+[00:18:30] Because if you look at a lot of, lot of his sculptures, they all have this particular unusual anatomical thing. Well, in 2015, it helped to verify two pieces that they were tiny bronze statues that someone had claimed as Michelangelo's and they said, there's no way of proving. They did years and years of research on it. And they had eight packs. They had sort of oddly shaped toes, toes, toes, toes, toes, toes, toes, toes, toe's, which was another classic feature of Michelangelo. And they confirmed them as a result. One of his other things, so toes, eight pack, what's another thing that might be classic Michelangelo. Tiny
+
+[00:19:00] Todger. No, but you're in the right area. Enormous testicles. Anatomically correct pubic hair. Okay. That supposedly is something that to look out for. Did you say bronze these are? Yeah, these are in bronze. That's a tough cast in bronze. Yeah. Very fine.
+
+[00:19:17] Yeah. I mean, if you're doing pubic hair, I'd be surprised if it wasn't anatomically correct. Where are you going to put it on the belly button? As soon as you're choosing to do pubic air, you're putting it over the pubic region, aren't you? It's classically in order to have the pubic hair in the years of the people he was doing. If he wanted to send someone a present, Michelangelo would send them 33 pairs. Of what? Of apples.
+
+[00:19:44] 33 pairs as a present. One for every year of Christ's life. Okay. Do you know why he did that? One for every year of Christ's life. Okay, so I now understand the number, but I don't understand why that particular object. No, I don't know. I don't know. He was very stingy. I know that. I think he had a reputation for that. So maybe they were the cheapest thing around at the time.
+
+[00:20:04] Yeah, apparently he was kind of horrible, quite mean, bit of a brat, very difficult to work with, a terrible snob. And when he died, they found absolute fortune in his house because he was so penny-pinching throughout his life.
+
+[00:20:17] He had just duckets in jars all over the house. He was very old. He was 88. That's Scrooge. That's Scroogey, isn't it? Wow. Oh, it's Scrooge McDuck, isn't it?
+
+[00:20:26] Yeah, Scrooge McDuck. Yeah, like kind of swimming in his own ducutut. Yes, you're right Scrooge McDucket As you say he was very rich Do you know what his estimated worth was Of all this stuff?
+
+[00:20:38] What is that gross on that? 1.6 million ducats So 50,000 florins Oh great There we go Yeah So James was bang on 50,000 florins
+
+[00:20:49] Yeah so it's about 35 million In today's money What for an artist That is Well he was one of the big ones I suppose He was Yeah
+
+[00:20:56] And he lived a long old time. Eighty-eight is ancient for someone to get to. And he kept working as well. Yes, he did, didn't he? So he would have been getting royalties, I guess, from earlier works all the way through. There's a royalty system that exists with that. Well, it's more kind of dukes, wasn't it, at the time? Yeah. That's a joke about the Medici family. It's very good if you're an art historian. Cool. I'll do some research and get back to you with a laugh. There's some art historians out that absolutely cracking up of that. He apparently, despite all his wealth, was not into personal hygiene.
+
+[00:21:29] He, this is, there's a lot of legends about him and, you know, Georgia Vasari is one of the people to perpetuate a lot of those. So this is not from him, I don't believe, but another legend is that when he died, because he showered so little, a bath, so little, they had to peel his clothes off him because he hadn't changed in so long, it had sort of congealed to his body. Really? Yeah. So it wasn't a very striptease ever.
+
+[00:21:53] I'm your Michelangelo Graham tonight. You'd be having to feel my congeal cleanse off my body. Let's just wait for me to die. Don't be shocked when you see where my pubic hair is. Jesus, I was upset not to go to your stag do last weekend, Andy. But now I'm so anything like I got off politely. Okay, it is time for fact number three, and that is Andy. My fact is that a plane was once built, which had nine wings.
+
+[00:22:25] You would think it would have to be an even number. I know. I think this plane actually had 18 wings, but that is a controversial theory. Okay, explain what it is and we'll decide whether it's 9 or 18. All right. So this comes from an article on airspacemag.com, which is a great website about air and space. And this plane was built in 1921. It was called the Noviplano. And so you know how you have a normal plane, two wings? Then you've got a biplane, which has two layers of wings. Although that technically the top one only counts as one wing, supposedly.
+
+[00:23:01] Okay. So does a biplane have four wings or two? Okay. The Novin Plano was another level. It had three sets of wings front to back and each one was three layers high. Okay. Okay. So like a biplane, but turn it into a triplane.
+
+[00:23:16] Yeah. And then do that three times. Yes. So if you're going by biplane logic, it just had six wings, right? No, no, because it had three decks. No, I know, but didn't have... Three wings each. I know, but aren't you saying that a biplane has two wings?
+
+[00:23:30] I thought you were saying that a biplane had three wings because it's got two wings as a normal plane and then it's got one at the top. I thought he was saying that too, but he wasn't. He then confirmed that it has, you think a biplane officially has two wings because they count as one each. It's very weird. A monoplane has two wings
+
+[00:23:46] and so does a biplane. That's frustrating. I think then, by your logic, it doesn't matter how many layers up, it's still just one wing. No way. Okay, this plane has one wing. Stop trying to destroy the fact.
+
+[00:23:56] It is amazing. It looks insane. I'm going to put a picture up on Twitter. I think you better had the way we've explained it. So why do we not have this same plane taking us to, you know, Tenerife? Well, it crashed almost immediately. It's second ever test flight. It crashed. I'm amazed it didn't crash on its first flight. Just because it's so hard to land on water because it was a seaplane, though, right?
+
+[00:24:19] It was a flying boat, which is slightly different to a sea plane. A floating plane or a flying boat, and they're different things. Different things, yeah, yeah. Is this about how they identify? Is it like the flying boat sees itself as mostly a boat? So the sea plane is, you know the one where Indiana Jones gets onto. It's got floats under its feet, right? Yes.
+
+[00:24:39] So that, they land on water. Under his feet, hey? All these things land on. Okay, we don't have time to get into it. Okay, those are the planes which are basically look like they're wearing massive shoes, okay, because they float on those things. Then there's flying boats, and they have the buoyancy built into the fuselage. So they land basically on water.
+
+[00:24:58] The main body of the plane is the thing that's floating on the water. But in the USA, seaplanes are called float planes. And they use the term seaplane to describe both float planes and flying boats. Jesus Christ. So which one was this? This is a flying boat. It's a flying boat. So the fuselage was basically a boat.
+
+[00:25:18] Yeah, exactly. Yeah, yeah, yeah. And it got smashed up on its second ever flight. And it now exists as a model. and a few bits of wreckage in a museum. It was in Italy it was flying. Lake Maggiore. Really?
+
+[00:25:30] Yeah. And it was meant to be a passenger plane, wasn't it? Yeah. Yeah. The wings were made of linen, as far as I can tell. Linen? Well, canvas, you know. It was really early days of flight, obviously.
+
+[00:25:40] God, if someone's just attached a sheet to the outside of my planes and is hoping it's going to fly, I'm not surprised it crashed. Nine sheets. That's what the phrase nine sheets to the wind means, isn't it? Is that a phrase? I think it's three sheets to the wind. Oh, it depends. How you're counting them.
+
+[00:25:54] Yeah. So there's been lots of really cool planes in history, haven't they? There's loads of, especially during military times, they always try and invent new things. And, you know, even when they'd started making airplanes, they didn't really know how they worked and stuff like that. So there was lots of different ideas. I really like these parasite fighters that they tried to do for most of the 20th century.
+
+[00:26:18] And the idea is you have one big plane, and then inside it you have lots of little planes, and then they fly out and attack like the town. And so the big plane takes you there and saves all the petrol for the other guys and then they can go on little forays. That's so cool. Has it landed or are you flying out of a plane midflict? You're flying out of the plane midflight. What?
+
+[00:26:36] Yeah. And they tried to do it loads and loads of times. Usually the problem is that they just all crash into each other. That happens quite a lot. But they experimented from the 19, from 1915, all the way through to the late 1950s. The USSR were the only ones who really made anything that was kind of useful. Everyone else tried it and couldn't. And the reason we don't do it.
+
+[00:26:55] anymore and I didn't realize this is a thing is these days you can refuel your aeroplane while it's flying. Isn't that amazing? I don't. I've never noticed a plane I'm on stopping out of petrol station ever. Well, that's when you're in the airport, that's what the petrol station is. They come and fill you with petrol, right? Yeah, so how do you refuel while it's flying? It's really weird. You just get one airplane with loads of petrol in it and you fly it next to the airplane with not much petrol in it and then you attach them together. Oh, so it's not my planes that I've been on that are getting refueled. No, no, you're not. Probably not.
+
+[00:27:26] Yeah. But if you've seen the movie Air Force One, they refuel the plane mid-flight. Do they? Yeah, and Harrison Ford uses that as the big moment to sort of get to another plane. I think I'm right to think. You must have a really long, you know, the toggles you put in. Because you know, sometimes it's quite hard when you park your car on the wrong side of a petrol pump. Yeah, yeah. And you have to stretch it all the way around. Yeah.
+
+[00:27:44] Yeah. Yeah, if you fly on the wrong side of the airplane, that's going to be really awkward. Yeah. So, okay, on this, on this mid-air thing, because it is insane. So there was a flying boat, okay, in the 1930s. called the Short Empire, right? And the problem was they couldn't get enough fuel into it for it to make it all the way across the Atlantic. Okay? So that's the problem.
+
+[00:28:04] But it could be loaded with more fuel than it could take off with. So it can only get into the air if it has under a certain amount of fuel on it. But once you get it into the air, you can load it with extra fuel. Yeah. So the idea was this plane took off
+
+[00:28:20] towards the USA from Britain with not enough fuel to get there and then while it was over Ireland it would be refueled by another plane as it went. It would take off without enough fuel to get to where it was meant to go and it had to refuel with 800 extra gallons of fuel.
+
+[00:28:40] That's extraordinary. We do have planes now that can carry other well flying machines there's a plane called White Knight 2 and this is the so it's not operational yet but it will be within a few years, I think. It looks like a catamaran really. So it, or it looks kind of like two planes of Siamese twins and one of their wings is fused. Yes. And it's, it's an incredible
+
+[00:29:04] looking thing, but it's actually built to be able to take off like two planes stuck together and then hanging underneath this shared wing will be the Virgin Rocket, which will then take tourists into space. So not only do you get to go to space if you pay for this, but you get the bonus of being suspended under a weird double Siamese plane catamaran thing. It's extraordinary. Have you ever seen footage of it when it drops the plane. Oh no, I haven't seen that. So that's the thing. Obviously, the rocket can't thrust its,
+
+[00:29:31] or boost its thrusters while it's still attached to this other plane. So it literally plummets and they have to turn on the engine as they're dropping and pump the fuel and then it kind of just finds its way. So you're in sort of freefall for a while when you're inside. Is this in the rocket or in the plane? In the rocket? Wow. Yeah.
+
+[00:29:49] God, imagine if people have bought tickets and they're listening to this now having not realized Because that sounds terrifying. I think you would have watched a YouTube video before pressing purchases. You're right. You just mentioned two planes being stuck together is what this looks like. There is only one time, as far as I'm aware,
+
+[00:30:04] that two planes have stuck together mid-flight. Right. This was in 1940. This was a training flight above Australia. Two bomber planes crashed together. Okay. Disaster, obviously. Except that one of them basically jammed
+
+[00:30:19] over the other one and they just got stuck together in mid-air. So the one on top had its wings and its controls still intact And the one beneath had the engine working The pilot of the plane on top Managed to land successfully Both planes That doesn't sound
+
+[00:30:37] That sounds like it's made up by Dan's Italian Ryan Blessed guy I know nobody died One person Jumped out and was hit by a propeller Even he was fine eventually He doesn't covered But it's amazing that it just so happens
+
+[00:30:51] That the engine works for this one one. I know. The steering was, it's like, oh, the coffee machine worked for this one, but luckily the sandwich maker worked on the other one. Do you think they had a chat between the planes going, we're like, Jack Spratt and his wife, aren't we? Just on this thing that you talk about carrying space shuttles, the largest plane that's ever been made, which was the Anatov A.N. 225 Maria, which was made in Ukraine in Soviet times. This has the record for the big, you know, biggest payload ever taken and they carried shuttles from one part of Russia to the, or one part of the Soviet Union to the other.
+
+[00:31:29] That was the main job of them. And one time they carried a generator for a gas power plant in Armenia, which weighed 247,000 kilograms, which is the weight of 80 elephants. And that's the largest payload of any airplane ever. That is extraordinary. That is amazing. And then it went into commercial service in the early 2000s. And
+
+[00:31:52] No way. Do you have extra luggage? Because it doesn't matter. I've got my emotional support elephant with me. When I say commercial, I don't mean you could buy a flight on it. It was used for companies. And actually, at one stage, the American military took it and took 216,000 ready meals to military personnel in Oman.
+
+[00:32:16] Wow. So that's cool. We are not out of chicken or fish. But that's fine. It was transported on 375 pallets weighing 187.5 tonnes of ready meals. Oh, man. Do you know why nuclear planes have never been tried? Because they sound dangerous?
+
+[00:32:34] They do sound dangerous. They are dangerous. So people have kept trying all the way through. Kind of like the thing you mentioned, James. The parasite ones. Yeah, the parasite planes, yeah. So I think the USA have tried. I'm sure the Soviet Union tried as well.
+
+[00:32:46] Basically, they could not work out how to deal with radiation and to keep the planes light because obviously to protect against radiation you need a very heavy, thick, armour stuff. So one thing they considered doing, this was in the 50s in the USA, was just hiring pilots who were so elderly that they would certainly die
+
+[00:33:04] before any effects of radiation got through to them. Wow. That was their plan. What a move. That's crazy. JFK cancelled that plan. Yeah. Yeah.
+
+[00:33:14] That makes a bit. I've found a few sort of, as we were saying earlier, those that military period of plane innovation, which is extraordinary decisions they had to make. So when when the Navy was out and they needed planes that were on their ships, in the early days, they didn't have landing strips that were long enough so they could launch with some help, but they couldn't get back because it was too short. So what they did was they started toying with ideas like building a plane, which this was
+
+[00:33:38] prototype called the Blackburn Blackbird. And the idea was that you could take off, but you weren't meant to return. The plane was designed to be ditched in the ocean by. the ship. But luckily, all the pilots were so old that they were expected to die before they got to the... Yeah, exactly. Wait, sorry, these were single-use planes. No, if you were successful, you came back and you ditch the plane as close to the ship as possible, and hopefully the ship got to you before both you and the plane sank. If it did, they would lift the plane back onto the ship, and then they would rebuild it and you could reuse it. Well, they had no choice because there was...
+
+[00:34:12] No, but I'm confused. When you say ditched a plane, do you mean fly it into the sea? Yeah, fly into the ocean. Yeah, yeah, yeah. So the pilot would be... waiting with the plane while it's sinking. Another thing they tried to solve that was something called the flying pancake, which the flying pancake either had no wings, one wing, or an infinite number of wings, depending on how you're looking at it. It's all wing. And it's pancake shape, so it's flat, and it's kind of tilted, and it's got massive propellers
+
+[00:34:40] on it. And so if you were sailing into a headwind, then the wind can help you just take off by using the shape of your flying pancake. And if you weren't going into a headwind, it had these massive propellers that you could create your own headwind. And so it could like blow air over your aerophile and help you take off that way. That sounds amazing. Yeah. And they look kind of like a flying saucer, right?
+
+[00:35:01] They do, yeah, yeah. I don't like the idea of flying something called a pancake because I imagine pancakes flipping 180 degrees in the air. Yeah. And the reason we don't use them now is basically because jet engines came in. So we didn't need them in a lot. Once you had jet engines, you could get to a really high speed really quickly. Ah, so it did, it worked fine. Yeah, it worked.
+
+[00:35:20] Oh, God, we've got to talk about the inflator plane quickly. Okay. Just very quickly. This was the sort of foldable, collapsible plane that was commissioned by Goodyear, of course, in the 1950s, and it could deflate and be transported in like a three and a half foot container, a little container. And it was actually a brilliant idea.
+
+[00:35:39] So it was built in just 12 weeks, which does sound a worryingly short time in which to build an entire plane, designed and built. But Goodyear, the idea was that a single thing, person would be able to hand pump it and so you could drop it behind enemy lines so you drop it from your plane behind enemy lines where you know your men were captured and they'd have that little hand pump on the ground I suppose waiting for this moment and they'd pump it up until it got big enough and then they could take off so it would it have like a little little tube in case your pump wasn't working so you could blow it by mouth I think it must have yeah yeah Anyway, look, it had a test flight in 1957
+
+[00:36:17] and it sort of went into a spiral and one of the wings got floppy and folded on top of it and got chopped off by the propeller. Oh, no. So it never really, it really never took off. I'll tell you what, with that and your paper company folding. It's been a bad day. It's been a bad day for puns worldwide.
+
+[00:36:38] Okay, it is time for our final fact of the show. And that is my fact. My fact is that this year, a sperm bank lost a court case to a man named Dick Weiner. So this happened in Oregon in America. And the jury, who was dealing with the case, awarded $400,000 American dollars to two Oregon dog breeders because the international canine semen bank accidentally destroyed both of their Labrador sperm. Why did you not tell us the name of the other breeder? Because Fanny vagina is not as interesting. To be fair, so this is from Oregon Live, which is a big newspaper in Oregon. But in every other report I've seen, it's Richard Weiner. And only just discovered that before we came upstairs to record this.
+
+[00:37:26] But it's still, you know, parents should have known. His name's Dick Weiner. His name's Dick Weiner. Exactly. So, yeah, this is amazing. Yeah. I didn't know there was an international K-9 Seaman Bank. Did you not?
+
+[00:37:37] No, I didn't. Who do you back with? I just keep all of mine in Barclays. Did you not on purpose? Barclays? No, I didn't. Yes. Yeah, it's crazy.
+
+[00:37:51] It's big industry, isn't it? And it seems to be getting bigger. So it used to exist mainly for professional dog breeders, so that if you had a top dog, then you could pass on their jeans for generations. But now it seems to be just sentimental dog owners who want an exact copy of their beloved pet. before, you know, after they've died.
+
+[00:38:08] It's pretty long people who don't know how genetics works, basically. You will get a quarter of the dog you had. Well, it's better than nothing, isn't it, Andy? We should say, this mistake with the dog semen that Dick Weena found, this happened 20 years ago. Yeah. This story goes all the way back. Wow. I know.
+
+[00:38:27] Well, no, no, it's, they knew that they stuffed up 20 years ago. Exactly. Dick Weiner only found out a few years ago because of ex-employee told him randomly. He's like, by the way. Yeah, he was a whistleblower. Yeah. So he deposited the sperm in the 90s, I think. And then in the maybe late 90s, early naughties,
+
+[00:38:43] it was accidentally thawed out, making it worthless. And then nearly 20 years later, disgruntled ex-employee must have told him. Unfortunately, this guy who thawed out the sperm had done the same thing 18 months earlier, hadn't he? 500,000 liters was flushed away. Okay. I looked up their costs.
+
+[00:39:06] the International Seaman Bank, a canine semen bank, very important. To store your dog's semen for a year, it's $324 to deposit and store it for a year. But then every year after that is $79 a year, which is, I think, what Amazon Prime used to cost. It's a very different service, isn't it? You've got to weigh it up when you're making your budget choices.
+
+[00:39:31] Another thing you can do with these banks, and this is not, we should say, other dog semen banks are available. We're not, you know. But another thing you can do, I think, is ship your dog's testicles to them after your dog has been neutered. You absolutely can, yeah. What? Snip them off and ship them off.
+
+[00:39:47] Snip them off and ship them off. That's what you do. Wow. You can get instructions of how to do it yourself, I think. So most people do it at a vet and say, would you mind sending these balls to the bank? But some banks do give instructions on how to package up your testaments. and you have to send them off ASAP within two or three hours.
+
+[00:40:10] You must have to send them in a special cool box or something. Yeah, I think you must do. Yeah, you've got to order the packaging in. I can't just walk into the royal mail with a pair of dog nackers and buy an envelope, can you?
+
+[00:40:24] No, and whatever you do, you've got to go first class because it really is time as of the absence. Do you know who did the first ever artificial insemination of a dog? Oh, oh, oh, everyone dig me. No, it was none of the Digby clan. It was an Italian physiologist called Lazaro Spalanzini. And we probably...
+
+[00:40:45] I've heard of him. I'm sure. What was his thing? Frogs in pants? Frogs in pants. Frogs in pants. Exactly. And bananas in pajamas was the sequel, isn't it?
+
+[00:40:55] He is most famous among QI researched at least for putting male frogs in form-fitting rubber pants to prove that, um, that they couldn't fertilize eggs if they couldn't get what was in their genitals out over the eggs. Right. If you know what I mean. So he basically proved how reproduction works. He also was the first person to note the effect of cooling on human sperm. So you know how they say that you should wear at least warmish underpants if you want to conceive babies?
+
+[00:41:26] Is that right, Dan? Yeah. Not too tight, but you need to keep it. Loose flowing. No, loose is not as good for you. They need to be kept reasonably warm And you don't put your testicles on ice basically Okay, you don't heat your own baths
+
+[00:41:42] So it's a very odd sort of warm You need to keep it at the right temperature But he was the first person to notice that And he noted that if you put sperm on snow They would stop swimming around Wow So he would have had microscope technology, I guess This was after what's his name?
+
+[00:42:01] Yeah, Levin Hook Oh yeah Yeah, yeah, yeah. Gosh, that is really very cool. Yeah. He's a cool guy. They can't ski. Spurn, can't ski. They just don't go to public school.
+
+[00:42:14] And the first person to make puppies from frozen dog semen was a guy called Stephen W.J. Seeger. He's still alive, actually. He's a veterinarian from Ireland who moved to Oregon. And this was in 1969. And they made some baby Labrador. and they called them popsicles because they came from frozen semen. Very cool. Do you say popsicles?
+
+[00:42:40] Well, that would have been good, wouldn't it? The article I read says popsicles, but popsicles would have been way better. So maybe that's not a correct thing. Guys, have you ever seen fish being artificially inseminated? No. Oh, my gosh, it's incredible. I can't emphasize enough how much you have to watch this video on YouTube, but basically on a lot of fish farms, it's more efficient,
+
+[00:43:01] or if you really want to control how many fish are being inseminated, then you do it artificially. And the way they do it, I actually learned this in an interview with a guy called Mike Freeze, which seems kind of almost suitable, who is a fish farmer in the US. And then I was led to this video of coy fish breeding, so coy carp, very expensive.
+
+[00:43:22] And they are being bred at Kentucky State University. Look it up, basically. They get the female out of the water. And she's alive and gets lain down in some paper towel for some reason. and then just lift it up and massage from top to bottom and you squeeze the eggs out and what the eggs are is this thick browny green slime that just spouts out. It's incredible.
+
+[00:43:44] It's like sludge coming out. So they put that in a bowl, pop her back in the water, get the lad out, do exactly the same with him and it's a little bit less. But you squeeze it out like it looks like mayonnaise coming out of mayonnaise thing. And then you just stir it up together like you're making a cake.
+
+[00:43:58] Wow. And they mix it together and then you leave that for three to five minutes. And popa back in the pot. It sounds like a recipe. It's a recipe for fish. It's a very important to do this with Koi Karp, because they're very shy, aren't they? I have something about Crofts. Because it's about champion dogs.
+
+[00:44:18] Yes. Only one dog has ever pooed live in the middle of a craft event. Did he win? Or she win? Instant disqualification. It's the video is on YouTube. We're doing a lot of YouTube recommendations today. YouTube's going to be getting.
+
+[00:44:31] getting some real hits after this podcast. It's incredible. It's 2012. This is the only one I've found. Sorry, quickly, we should say for international listeners, Krofts is the biggest dog show in the world. Sorry,
+
+[00:44:41] but I don't think he's as well known outside of this country, but it's a massive dog show. In the UK, it's all we talk about. But, yeah, sorry, Kroft, the biggest dog show in the world. And it was in 2012, and the video is online of the full attempt because, you know, they have to do the full course,
+
+[00:44:55] and they do the slalom, and they do the seesaw, and then they do the jumping over things. Anyway, the reaction of the crowd is so funny because it's an amazing run it's going so well and then the dog just
+
+[00:45:06] absolutely stops dead and squats down and the whole crowd goes oh it's amazing and the owner gets handed a plastic bag by a crust ball boy
+
+[00:45:17] oh no it's very much the parlor ragcliff of the dog reading well it's a really funny video why do they have such mad names in Crofts
+
+[00:45:27] it's bizarre because you have to your dog name has to to be, involve the name of the breeder somewhere, but I was looking at the best in shows and the list. So the most recent was called Planet Waves Forever Young Daydream Believers.
+
+[00:45:41] I think last year of the year before, it was McVans to Russia with love. There was also Afterglow Maverick Sabre, Iraqi Fabulous Willy. FBes Hidalgo, a good spice. And I can't have any good reason why, except that, you know, you're not supposed to have replicated names. They can't have run out of words so much.
+
+[00:46:01] All you could use is Iraqi fabulous Willie. That's a wish list on a dating profile, isn't it? Okay, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts.
+
+[00:46:22] I'm on at Shreiberland, Andy, at Andrew Hunter, Rem. James. At James Harkin. And Chisinski. You can email a podcast at QI.com. Yep. Or you can go to our group account, which is at no such thing,
+
+[00:46:32] or our website, no such thing as a fish.com. All of our previous episodes are up there. Go check them out. We'll be back again next week with another episode. We'll see you then. Goodbye.

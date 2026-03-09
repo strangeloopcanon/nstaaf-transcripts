@@ -1,0 +1,199 @@
+# No Such Thing As A Fish - 228: No Such Thing As Seatbelts On Your Sofa
+
+- Episode date: August 3, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/228-no-such-thing-as-seatbelts-on-your-sofa
+- Slug: 228-no-such-thing-as-seatbelts-on-your-sofa
+
+## Transcript
+
+[00:00:00] Hey everyone, welcome to this week's episode of Fish. Before we get going, just want to let you know, thank you for all your feedback about last week's Ultimate Crossover episode. It was very enjoyable to do. In fact, so much so, we've decided to do it again. And this time, we've decided to crossover completely, a full crossover, a 360 crossover. We messed up again, didn't we? We lost an entire episode somehow.
+
+[00:00:42] So if you were in Bristol a few months ago, quite a few months ago, you would have seen an amazing show, guys. I've got to tell you, this was one of the best shows we ever did. Unfortunately, it doesn't seem like we recorded it. So only you Bristolians will have the memory of that show. And then this is kind of the lesser version, you say? Yeah. Oh, it's still worth listening to.
+
+[00:01:02] I would say. Yeah, it's definitely one for the completists, I'd say. It's amazing how negative you guys are. We haven't even recorded it yet. So enjoy this week's episode. Here we go. Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden.
+
+[00:01:23] My name is Dan Schreiber, and I'm sitting here with Andrew Hunter Murray, James Harkin, and Anna Chazinski. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go, starting with you, Andy. OK, my fact is it's about Bristol, actually. I just chose it completely at random out of all the cities I could have chosen. And I learned it about four months ago, shortly before we performed in Bristol.
+
+[00:01:50] My fact this week is that the first hot air balloon flight in Bristol was indoors. And people at home have to imagine the cheers and laughter of the Bristol crowd when they first heard that. They went nuts when Andy said that. My God. So there's this firm in Bristol called Cameron Balloons, and it's the world's biggest balloon firm, basically. Bristol is the capital of hot air ballooning pretty much in the world, definitely in the
+
+[00:02:14] UK. Yep. And the first flight was in 1784, and you had to go indoors to see it. And you had to pay a little amount to see it. And if you paid more, apparently you could see it filled up with air. Apparently there was a pricing structure there. Wait a minute. So the people who didn't pay much, they just saw a load of canvas.
+
+[00:02:31] It sounds like that, doesn't it? I can't quite believe that's true. Was this new to people at the time? As in, how long did balloons exist before this happened? That's a great question. Really good question. So they had the Aztecs. They made like balloons out of animal intestines.
+
+[00:02:50] I think we know that. And I remember reading once that they made balloon animals out of those intestines. But I don't know, that doesn't sound very true, does it? So, I mean, how big were the animals back then? What do you mean? As in, did they make like a full hot air balloon out of an animal intestine? No, no, no, sorry. So just balloons in general, I'm saying about the history of not the history of hot air
+
+[00:03:10] balloons. I see. Yeah. And the Civil War, they definitely had hot air balloons, because Lincoln had a hot air balloon balloon corp. Corps. Cool. Corps.
+
+[00:03:21] Yeah. Why do I say corps? Corp. Just keep throwing guesses at the letters that you see. Corps. Corps. Yeah. He had a balloon corp and they had seven balloons and they used to go over and the Confederates
+
+[00:03:32] actually tried to build their own balloons in retaliation and then they stopped doing them because people found them really easy to shoot. It was quite an easy target. So we know it goes back as far as the Civil War in America, at least. Yeah. They were actually a huge deal in the 19th century, hot air balloon flights. And I think in 1897, there was an attempt to reach the North Pole by balloon. That was three Swedish people who tried to get there.
+
+[00:03:54] They disappeared. No one knew what happened to them. There were these reports of silk falling from the sky. And then randomly in 1930, 33 years later, they were found in this thaw by whalers just by chance. They found as the thaw came the bodies of these guys and they'd crashed after three days, but they'd lived on these ice floes and they'd eaten polar bears for a long time. Wow.
+
+[00:04:15] That is hard cars. That's amazing. And I'd go hungry before I decided to go for all of that. It was so sad though because they were convinced that they could steer their balloon over the North Pole and it was partly funded by Alfred Nobel, their attempt. Oh, is it? Yeah. But unfortunately, the drag ropes didn't work very well and in a few minutes they fell
+
+[00:04:33] off so they had no way of steering. So they lost lots of ballast and they kept on just bumping along the ground and leaking a bit and then rising a bit and it took them 65 hours to land and they didn't get to the stores in time. So it was sad. The other thing about eating polar bears is their livers contain so much vitamin A that they're poisonous. Yeah, that's awful if you're diving vitamin A poisoning.
+
+[00:04:53] What do you survive? The hot air balloon crash onto an ice floe and then fought a polar bear to death with your bare hands. This is quite cool about hot air balloons. So usually you're not allowed to fly in rain and so it's all weather dependent, isn't it, if anyone tries to fly. They can actually fly in wet weather. I guess it's just not recommended, but when you do fly in wet weather the rain gets caught
+
+[00:05:16] in and actually goes over the people inside the basket. So it makes its way into the, but because of the flames, it comes down like a hot shower. So it's really, it's really warm water that drops on them. That's nice. Yeah. That's very cool. Yeah. Have you heard of splash and dash while we're talking about water and hot air ballooning?
+
+[00:05:35] Splash and dash is a cool thing you can do if you have a hot air balloon. It's where you sink just low enough to dip your toes into a lake and then climb up again. Oh, cool. It's pretty risky. The water is below the bottom of the basket. Well, there is a, there is a trend for ballooning with no basket these days. No way. You have a sofa.
+
+[00:05:52] You have a sofa. What? Yeah. No way. I've never seen that. It was not, it's not very common. It's a trend though. It's a trend.
+
+[00:06:00] Are you serious? People can go up in a sofa. Do they have to be strapped in? You can go up in a sofa. I think, I think it's really recommended that you try yourself in. I don't know though, because I never fallen off my sofa. That's true. You look to me like the kind of guy who wouldn't.
+
+[00:06:17] The type of things that are easy to kind of say on. That's true. Yeah. Not if it's swinging in high winds from a balloon that's a thousand feet up. Yeah. I don't have belts on my sofa, so I think mine wouldn't be safer. Well, I've had belts fitted to all my sofas at home. Just in case.
+
+[00:06:33] Just in case. And they saved my life on count litigations. Well, speaking of no baskets for a hot air balloon, have you heard of, they're called smoke hot air balloons. It was a carnival attraction that used to happen. So this is during the 1800s, and there's footage that you can see of this online, and it's honestly incredible. This was a daredevil thing.
+
+[00:06:53] So what they would do is, daredevils would attach themselves by a rope to an inflating hot air balloon with no baskets, it's simply the balloon. So the balloon would completely fill up, they would untether it, and it would rock it off into the sky, and these people would just be dragged behind it on the end of the ropes and would fly up after it. And when they got to a certain height, they would loosen themselves from the rope, fall down and parachute back to earth. Very cool.
+
+[00:07:21] Absolutely incredible. You see them lob up. Wow. These people, they're surrounded by people in the videos and they just go fwoong and disappear off into the air. But you have to loosen yourself up before it gets too high, presumably. Yeah, I think you obviously know when it's, you've had enough. Okay.
+
+[00:07:34] Yeah. I thought you were going to say they shot the balloon down. Why? I didn't, because I didn't imagine that they had a parachute on when you were describing it. So I was thinking, how would I get myself out of this one? Yeah. And I would have, my first choice would have been a gun instead of a parachute.
+
+[00:07:53] What one item do you want to take up with you? I read a brilliant account. This is actually the sources from 1838, but it was about something that happened in 1785. And it was when Jean-Pierre Blanchard, who was one of the first people to go up in a hot air balloon, went up. He went 6,000 feet up. And then he dropped from his hot air balloon a dog attached to a parachute, just to kind of see what would happen.
+
+[00:08:16] And this whirlwind apparently swept the dog away above the clouds. So it kind of disappeared. And Blanchard is in his balloon. This is what the account says, handed down through the ages. Blanchard was in his balloon and he met the dog who was in his parachute above the clouds. This is rubbish. Do you remember that thing? The dad songs.
+
+[00:08:35] About the loop, the loop guy. He fell out of his plane during a loop of the loop and then fell back into it once it had finished doing the loop. Yeah. So he was upside down. He fell down. He thought he was doomed. But his plane, which was mid loop the loop, met him at the bottom.
+
+[00:08:50] So do you remember how obviously false that was? Look, your thing sounds similar. Dan's defies physics. Mine. Imagine a really small dog, like a little terrier, with a parachute in high winds. It could be swept away into the clouds. And then old Blanchard saw his dog above the clouds, who barked with joy, apparently, saying his master.
+
+[00:09:07] He tried to grab him and they both had landed 12 minutes later, separately, after which the dog ran away. When you say barked with joy, do you not mean barked in absolute terror? Like, why the fuck do you just drop me out of that balloon, mate? He then shit himself with joy. Ben Franklin patented a balloon-related thing, like he painted it everything else. He patented a refrigerator that tethered to a balloon and it was meant to lift food up into where the air was cool.
+
+[00:09:34] And that's how you'd refrigerate your food. What? I have heard of that before. Yeah. That is so cool. It's inconvenient, though. It is. If you're going for a late night snack, it's...
+
+[00:09:43] But all you have to do is pull it down. You just kind of winch it back down, you get your food out and then you let it go back up again. Again, I was thinking of shooting it down. I couldn't bite the end, do you think? These eggs are broken again. OK, it is time for fact number two, and that is Chuzinski. My fact this week is that in rage rooms, where people pay to smash things up, the things
+
+[00:10:10] people want to smash up the most are printers. Yeah. They hate them. They hate printers. So, rage rooms are these things that are kind of popping up all over the place. Quite a few of them in America and in Canada, where you pay to go and you can either smash up their possessions so they provide a bunch of stuff or you can bring your own stuff and they're becoming increasingly popular.
+
+[00:10:31] That is to do with someone else's stuff, right? Well, I think it depends how much you dislike that person. If you dislike your own stuff a lot, let's say you've got... Why did you buy it then? I know, but let's say you've got a pen that you really don't like. You're not going to smash up a pen. That is the most pussy rage room attendant I've ever seen. What?
+
+[00:10:47] You turning up with one buy rate. It keeps leaking. It keeps leaking. It keeps leaking. I do it really psychologically though. I put it in a chair and then I shine a light in its nib. I'm going to ask you a lot of questions before I beat it up. I'm holding a pen.
+
+[00:11:02] I'm sorry. I've got a poor imagination. I love at the end of the hour you come up slightly beat up somehow. Just got stuff drawn all over your face. A pen strolls out nonchalantly out of you, hails a cab. This is the thing, if you go through the rage room sites, there's a one called Battle Sports in Toronto that says it goes through 15 printers a week. The same in New York and the fragment room in Singapore.
+
+[00:11:31] They all say printers are almost sought after objects. We need to provide lots of them. People want to break them up. I like this. In America, in New York, there's the Wrecking Club. The Wrecking Club, you can get packages that you can buy. I want it all. It's a package you can get, which is $149.
+
+[00:11:48] You can even buy gift certificates for people, so birthday presents go for an hour in the rage room. They should have called it the Wrecking Club. Yes. They should have. Very nice. Why didn't they? Yeah.
+
+[00:11:59] We should start our own. You and your pens only. Yeah. So what's nice about this is it's the same, obviously, like every rage room you go in and you destroy stuff. But what I particularly like is when they started, there was a guy who runs it called Mr. Daly or Daly. Daly, D-A-L-Y.
+
+[00:12:14] Daly. It's called Tom Daly, I think, actually. Oh, is he? So he, when he was in there and they say this was an early setback, he was in the room showing a couple of all the things that they could do via his laptop of video, and then he left the room, but he accidentally left the laptop in there and they smashed it up. Yeah. So he came back in at the end, he was like, oh, and he didn't tell them because he thought,
+
+[00:12:34] oh, I don't want to ruin their experience. But he, as of then, started labeling everything as don't smash this. I went on the Wikipedia for rage rooms, but I did it about four months ago, so it might have been changed by now. Well, they said that the concept of an anger room is at least 20, at least 2,000 years old. Is it? Well, that's what Wikipedia says and who are we to doubt them?
+
+[00:12:55] What do they say it is? They say it was Queen Kaikei, who, in an old book, was said that she was going to the palace anger room, and actually it was a sulking chamber when I looked it up, that's how it's usually translated. Apparently, it was like a dark room where you would lie down and sulk. Okay. Yeah, so not really a rage room. I do like the sound of that, though.
+
+[00:13:16] Yeah, yeah, because people rage manifest differently, doesn't it? Some people just want to lie down in the dark and be really pissed off with the world. Some of us like to smash our exes stuff. Actually, the most I say that because I think the most common thing for people who do bring in their own things are people who have had a breakup and they bring in all their exes old stuff. This is what the Toronto play said, so it said for $20 extra, you can bring your own stuff to smash.
+
+[00:13:41] The founder said that by far and away, the most common thing to do is to bring in your exes stuff, and he said, the people often come in and you'll hear them screaming and shouting in there, things like, oh, you think you're so good, arg, and then you'll hear a smash. Or you think you're always right. I think that's pronounced arg. How do you pronounce, how do you spell arg, then? Is it without the H?
+
+[00:14:01] I don't think there is a word. Who says arg? Pirates. No, they don't. They go arg. Oh, yeah. We've not been hearing the end of their sentences. One of the first ones that was set up in Dallas in 2011 by a lady called Donna Alexander,
+
+[00:14:17] and she just started charging $5 to smash things that she collected from Kerbs in the area. She sort of picked it up, so it was very ad hoc at the beginning, and then she'd get people knocking on her door, kind of like a fight club saying, is this where you go to smash stuff up? And her insurer had to invent an entirely new category just for her. Very exciting. Yeah.
+
+[00:14:36] And what do you mean by just picking stuff up, like as in flight tipping or stuff like that? You know when people leave things out, exactly, flight tipping, like leave an old fridge out or drop a lot of pens that they don't want anymore because they're faulty, kind of thing. That's really cool. Stuff on printers. Oh, yeah. I was reading about printer jams, and everyone finds them very annoying. Apart from people who work in printers who find them really exciting, they say it's the
+
+[00:15:05] elemental struggle between the natural and the mechanical, because paper is made out of trees and printers are made out of metal and shit and plastic. I think the ultimate challenge is throwing a dog with a parachute out of a hot air balloon and then catching it again. Do you guys know about the first printer ever to go into space? No. This was a printer that was sent up on the ISS in 1998, sorry, this was the first color printer ever to go into space.
+
+[00:15:33] It was sent up in 1998 with a discovery mission, and it was used solely to make Halloween masks. So it was sent up, it was kind of a secret thing. So John Glenn, who was by then a senator, was on that mission, but he'd been the third person, I think, to orbit the Earth in 1962. And so he was this big space hero by that point. And so on that 1998 mission, the whole crew printed color portraits of him off this floppy disk, and they made these portraits into Halloween masks, and then they all went around pretending to be John Glenn and nod to his greatness.
+
+[00:16:05] Cool. I'd print out a full alien costume and then sellotape it to myself and then freak my crewmates out. Do you think they'd fall for that? Because I don't think anyone was floacing around going, oh my God, it's John Glenn. Oh my God, it's John Glenn. Oh my God, it's John Glenn. That's true.
+
+[00:16:27] OK, it is time for fact number three, and that is my fact. My fact this week is one of the first things that McDonald's founder Ray Crock did when he bought the baseball team, San Diego Padres, was to sign a player called Big Mac. Very good. Did he do it because he was the founder of McDonald's, or was he just a good baseball player? Big Mac was a great baseball player. Willie McCovey was his real name. He was a very good player, and obviously Ray Crock, who built McDonald's from a very
+
+[00:16:55] tiny brother operation of the McDonald Brothers into the global success that it was, had an eye for franchising, for merchandising, for commercialization. He saw that by getting Big Mac in, he could do a lot of cross promotion. So for example, during the first season, they did Big Mac Sundays, so the idea would be that you could take a ticket stub and get a free Big Mac after a match if the Padres had won. Unfortunately, when the promotion started, they lost 11 straight home games, and so as a result, they had to change it to whether they win or lose.
+
+[00:17:27] You get a free Big Mac. Yeah, they were terrible, weren't they, when he first took over? Yeah. Was there not a thing about him shouting at them on the pitch or something like that? The first match, he was very excited because the idea of him signing this new player and the fact that Ray Crock had taken over, he got the attendance right up. For their opener, they drew 39,000 people, but they totally sucked in the match. As a result, he went into the booth where the commentators were commentating on the
+
+[00:17:55] match, took over the Tannoy, and he said, I have good news and bad news. The good news is that the Dodgers drew 31,000 for their opener, and we've drawn 39,000 for ours. The bad news is that this is the most stupid baseball playing I have ever seen. He said that to the players, heard the fans, and the fans cheered. They loved it. They loved that he was being honest. And then someone ran on the field, a streaker, and he yelled, get that streaker off the
+
+[00:18:21] field. Throw him in jail. So he was just commenting to the whole stadium of 39,000 people, his thoughts. It was amazing. He was angry. Just before we did this show in Bristol, the night before, or the day before, I watched the founder for research for this. It was a really good film about Ray Crock, but I can't remember any of it now.
+
+[00:18:44] The only thing I remember is that when the brothers who founded McDonald's, so this is not Ray Crock, their idea was called the method, I think. And they worked out the size of their kitchen and where everything went so there was a most efficient possible way of running a kitchen. And the way they did it is they went to a tennis court and they had chalk and they drew all the different possibilities. And they got people, hired people for very little money to try out pretending to cook all these burgers, pretending to do milkshakes, pretending to do fries, until they got the
+
+[00:19:15] exact one. When they did this for days and days, they eventually found the right one and then that night it rained and all of their chalk marks got washed away and they had to do the whole experiment. Oh, no. Like the whole sort of the design of the kitchen, like the choreography. That's very cool. Oh, wow.
+
+[00:19:32] Do you know that Ray Crock was in the same Red Cross company in the first world war driving ambulances as Walt Disney? Wow. Was it really? Yeah. And they both went on to be very successful in their own ways. And they both lied about their age to get in. Oh, really?
+
+[00:19:48] Yeah. Really? He had a really weird relationship with his wife, didn't he? Did he? Joan Crock. So she... Crock suddenly becomes a funnier surname when he attached it to Joan. So I think, first of all, they were married when he said he wanted to buy the Padres and
+
+[00:20:02] she said, is that a monastery? And then it seems like they must have had some tensions because first of all, she launched an alcoholism charity called Operation Cork, which is Crock, his surname spelled backwards, and she used to produce TV dramas about the impact of alcoholism on families because I think he was an alcoholic. So she said she raised awareness about that. But also, when he died in 1984, she immediately gave away the estate and distributed all the money to all these, like, some great charities.
+
+[00:20:32] And also, she gave a million dollars to the Democratic Party, which is a slap in the face because Ray Crock was a massive Republican. He'd given, like, a quarter of a million to Nixon's re-election campaign. So, yeah, she was... She sort of undid his legacy in some way. She was amazing for the baseball team as well because after he passed away, she took over, but she knew virtually nothing about baseball. But in that first season, after she took over, her team made it to the World Series.
+
+[00:20:57] Well, it sounds like she knew a lot about baseball, like her husband. She learned on the go. Yeah, he definitely didn't like it. He, at one point, after the Padres had lost 102 games, said, I bought the team to have some fun, but it's proving to be about as enjoyable as a wake, your own. That was his public comment about his own team. Your guy called Big Mac, I went on the internet and searched for some other names of baseball players and I found that there was a guy called Thomas Lewis Fryes and another one called
+
+[00:21:28] Philip Douglas Coke. So you can have Big Mac Fryes and Coke as players. Some other players, Cannonball, Titcombe, Johnny Dickshot, his nickname was Ugly, so people called him Ugly Dickshot, and Wonderful Mounds, that's a nickname, surely? His first name was Wonderful, his second name was Terrific. What? No. Wonderful Mounds.
+
+[00:21:57] Actually, Wonderful Mounds. Okay. I mean, it wasn't the surname that I was quibbling with. That's a good name. That's lovely. Well, there's a guy in basketball called Meta World Peace, that's his name. He's playing for China now and he's changed his name to Panda. Okay.
+
+[00:22:15] Yeah, it keeps going for name changes. There is an American footballer called Lion King, so I named the King first name Lion. Yeah. That's so good. Did you know chicken mcnuggets were almost onion mcnuggets? They trialled the two, not realizing that people might prefer chicken. They almost made them onions. That might be nice, like an onion bargy.
+
+[00:22:32] I think so. Or an onion ring. Yeah, absolutely. It's like an onion ring, but it's an onion ball. Yeah, fine. It's like an onion bargy, in fact. Yeah, yeah, yeah. Yeah.
+
+[00:22:43] There's a point. Do you know there's a secret rebel McDonald's operating in India? This is very cool. Have you ever blown their cover? Yeah. Well, sorry, guys. There was a big kerfuffle between McDonald's Global and the Indian version of McDonald's. Do they make McChicken bargies?
+
+[00:22:59] I don't know if they do. I hope they do. They do do a thing called McSpicy Paneer, which is very popular, it sells out every day. But they canceled their franchise agreement with 150 restaurants. They said, oh, it's not working out for whatever reason. And the restaurants just kept on going, selling the food. And no one's stopped them or intervened, and they've left up the Golden Arches and everything, and they're still trading under the McDonald's name.
+
+[00:23:21] Yeah. The Arches aren't always Golden. There are a few exceptions, one of which is in Sedona, in Arizona, and they're turquoise. Why? Any guesses? Why? Because the yellowness blends into the desert. Exactly.
+
+[00:23:36] No. What? It was actually said it clashed too much with it. Oh, so the opposite. Yeah. You're the right kind of line. So yeah, the government said, look, that kind of clashes with our desert. It looks silly.
+
+[00:23:49] Oh, really? Do something else. Yeah. I read that the guy who created the Golden Arches was offered a deal very early on in the day of a cut of it forever on or a one-off payment, which was a very low sum. They always take the very low sum. Yeah, they take the low sum. They always go in and they say, well, offer you this very low sum.
+
+[00:24:07] I'll offer you money for the rest of your life, and they always take it. They never even specify the low sum, do they? They just say very low sum, you want it? OK, it is time for our final fact of the show, and that is James. OK, my fact this week is that the yellow-billed oxpecker bird sleeps in giraffe's armpits. So cool. Nice. We've known for a long time that they kind of hang out on these African animals like
+
+[00:24:38] giraffe and water buffalo and stuff like that, but they've only just found out that they stay there overnight as well. And that comes from a multi-year camera trap study in Tanzania, Serengeti National Park, and so they're putting the cameras on these animals in the middle of the night and they found that the birds stay there. And it seems that usually they stay there and they have this symbiotic relationship where they eat all the little bugs that live in the giraffe's armpits, and they get the protection of the giraffe.
+
+[00:25:07] Not just the armpits as well, it's the leg pits, or the crotches, the crotchal region. It's every one of the pits. OK, so you can get up to seven birds in a single crotch. A crotch? That was that. A YouTube video we used to watch in the first year of uni, I think, so the birds are one of the best. But it's really good.
+
+[00:25:28] Giraffes are great. They're great beds because they're off the ground, meaning you're a bit safer as a bird, whereas, you know, buffalo lie down and they're unstable. Giraffes are stable. Well, except when a giraffe sleeps, because they've been seen in the wild to be sleeping while laying down. And what they do is they bend around and they use their butt as a pillow. So they bring their head right around and rest it on the top of their butt.
+
+[00:25:47] I would say the best thing about being a giraffe, actually, that you can do that. It must be right. We would all kill to do that. But oxpeckers, they eat the little little animals, but they also eat the host bodily fluids, including mucus, blood and snot and even the goop that you get in your eyes. They also like to live on zebras. And I read one article, I'll just read a bit of it. Still in its statue like pose, the zebra raised its tail quickly and held it out behind its
+
+[00:26:17] body. Oxpecker immediately scuttled down onto the hairless black shiny skin that surrounds the zebra's anal region and worked this area assiduously. It sounds like an extract from Six Boards, One Crodd. I've got a fact about symbiotic anus relationships. Excellent. So there's a kind of leech called Placob Deloides Jaegerskeoelde, which is a leech which lives inside hippo anuses.
+
+[00:26:46] It spends most of its life, in fact, inside a hippo's bottom. And they live for about 2.6 years. So they were covered in The New Scientist in 1995 and the headline was leech rides the tunnel of love because it's safe from oxpeckers actually. It's safer if you go right into the bottom and they have to swim into a hippo's bottom to have sex. Do they swim into it or do they just crawl into it? I think when the hippo is underwater, but it has special tools designed to push open
+
+[00:27:13] a hippo's sphincter. When you say tools, it's part of its body. It's part of its body, yeah. I was like, come along for the little shovel. One really cool symbiotic relationship I quite like, crabs and urchins. Oh yeah. So I didn't know about this, but... I hope we're talking about Victorian street children here, if we're not, I'm going to
+
+[00:27:31] be very disappointed. And genital lice, I hope. Of course. Cool blimey, Gavna. So you're creper of farving. Stop scratching your crotch, Dodger. No, it's neither of those things. It's sea urchins and it's just crabs, like normal crabs.
+
+[00:27:44] And so urchins travel on the back of crabs, which is useful for them as it means they can travel. So urchins can't really travel very well otherwise. See the world? Exactly. Get out there, take some photos. On their gap, yeah. Right, some urchin postcards.
+
+[00:27:56] But it's good for the crab because they can suddenly use it as a disguise or a weapon if they need to. So it's good for the crab. Urchin postcards, but it's good for the crab because they can suddenly use it as a disguise or a weapon if they need to. So they can sometimes get the urchin down with their claw or face something with the urchin and act like they've got a really awesome spiky back. Yeah.
+
+[00:28:15] Wow. I've got another one just while we're on the symbiotic relationship role. There's an ant, which is called Campanosa schmitzi, which is a great name, and it only lives on a single species of pitcher plant. You know, pitcher plants, they're the ones that consume prey by, I think they fall in or they drown. Yeah. So they look like a tube.
+
+[00:28:34] Yeah, yeah. But the ants swim around in the digestive fluids of the plant. They consume the nectar of the plant and they also consume some of the prey that the plant eats. But the plants which have ants swimming around in their stomachs basically get bigger than those which don't have them because the ants keep the traps clean and they hunt mosquito larvae, which would otherwise soak up more nutrients. So it's beneficial if you're a pitcher plant to have ants in your stomach and the plants
+
+[00:29:00] also eat the ants poo. Nice. As well as eating the ants. They don't eat the ants. The ants survive in there. The ants are tolerated within the system. Yeah. You get some pitcher plants, don't you, where you get little shrews who sit on the side
+
+[00:29:12] of them and then poo into them as like little toilets. Yeah. And they eat the nitrogen of those. What's the benefit for the shrew? Because they don't mind where they poo. Just gets a toilet, you know, but to me. Is that enjoyable? Yeah.
+
+[00:29:25] Yeah. Because it can sit there reading its iPhone. Okay. That makes official. But you wouldn't like it if we took away your toilet from you, Dan. But if the concept of toilets didn't exist for us, I would just poo here right now. They've now got the concept of toilets. So they have to go with the pitcher plants now.
+
+[00:29:38] They don't. I mean, Dan's asked a very fair question here. What is going on? No animal understands the importance of a good sewerage system except humans. Why on earth is a shrew clamping up at the top of a flower in order to take a shit rather than just doing it on the ground? I think what happens is it eats something from the flower, maybe some nectar or something. And that is a laxative and then that makes it poo.
+
+[00:30:01] I believe that's true. So it almost can't get out in time. It's kind of like it's eating something and it sort of has to poo. It's like a delicious restaurant, but with very bad hygiene standards. But then they use your poo to power the electricity. Oh, wow. Where is this restaurant? I feel a startup coming on.
+
+[00:30:19] Hey, I've got something on armpits. In the 19th century in Austria, there used to be the thing where at dances, women would carry underneath their armpits a single slice of apple and they would hold it there all night long. And the idea was at the end of the night, the girl would approach someone who they fancied a guy. If it was a guy that they fancied, they would go up and they would take the apple out and they would present the apple.
+
+[00:30:43] They still do that on Love Island, I think, don't they? I think I'm sure. They would present it to the guy and if the guy eats it, he's saying, I'm keen. Yeah. Wow. There's no way for him to say, I'm keen without eating the armpit slice of apple. But I think if you're not willing to eat the apple that's been inside the armpit of your loved one, you don't love her at all.
+
+[00:31:03] You're not keen enough. Yeah. So women's armpits smell of onion and men smell of cheese, apparently. And this is... Well, between us, we can have a delicious bag of crisps. You know those like salt and shake crisps that you used to get when they don't taste of anything, but you have to put your own salt in it. Oh, are you proposing that you scissors someone else's armpit with one crisp in the middle
+
+[00:31:24] and you get a lovely cheese and onion? I'm going to go to an Austrian dance. I think it doesn't cost anymore just to buy cheese and onion rather than just buying cheese and then wiping it up against a woman's armpit. That's true. I don't see why you would. Those crisps, they used to be the same price as ready salted crisps, but you still had to put extra work in.
+
+[00:31:42] That's so weird. It was fun. Yeah, it was fun. But this is about compounds in their armpits, by the way, this isn't just people sniffing them and saying, oh, that's onion-y. This is the compound that women's armpits generate is something called, is a thio-alcohol, which when it combines with a bacteria, smells like onion, and then men's- Why do you say alcohol?
+
+[00:31:59] Yeah, but don't go licking women's armpits for that again. It's not worth it. I'll buy you a beer. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts.
+
+[00:32:22] I'm on at Shriverland, James, at James Harkin, Andy, at Andrew Hunter M, and Chazinsky. You can email podcast at qi.com. Yeah, that's right. You can go to our group account at No Such Thing or our Facebook page. No Such Thing is a Fish or our website. No Such Thing is a Fish.com. Do go there. It's got all of our previous episodes.
+
+[00:32:40] It's got links to our upcoming shows. We are always doing live shows, so check it out if you ever want to see us. It has everything from book links. It's just got it all. It's where we put our things. Okay, we'll be back again next week. See you then.

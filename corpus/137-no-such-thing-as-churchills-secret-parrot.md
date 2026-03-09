@@ -1,0 +1,241 @@
+# No Such Thing As A Fish - 137: No Such Thing As Churchill's Secret Parrot
+
+- Episode date: October 28, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/137-no-such-thing-as-churchills-secret-parrot
+- Slug: 137-no-such-thing-as-churchills-secret-parrot
+
+## Transcript
+
+[00:00:00] Hi everybody, welcome back to No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Andrew Haunted Murray and I am sitting here with Anna Dzijinsky, James Harkin and Ann Miller and once again we have gathered around the microphones with our four favourite facts, not from the last seven days, from our new book, oh my goodness we've written a book, it's called 1342QI Facts to Leave You Flabbergasted and it is out now. To celebrate that and plug the book, we have each brought our favourite fact from the book and starting in no particular order we begin with James. My fact is that four-year-old mice are less common than 100-year-old humans.
+
+[00:00:58] Nice. Mind you, all 100-year-old humans are very posh aren't they? Ah, I see. It's a play on the word common. I don't know how you class a mouse though. What do you mean? Do they like Cheddar or Ementale or… Babybells.
+
+[00:01:16] Yarg. So, yeah, this is just simply a fact that mice don't live very long. Yeah, it's unbelievable that they're so short-lived. I know. It's not extraordinary, I mean they're tiny. That's interesting what you say, Andy, because you're equating smallness with lack of longevity. Do you think that's true in general? No, I guess, because they're…
+
+[00:01:37] Ah, those mollusks. ...sortices. Mollusks, yeah. It was like tardy grades. Yeah, true. All right, I take it all back. Parrots. Bigger than a tardy grade, but smaller than a pensioner.
+
+[00:01:46] They're quite small. They're bigger than a mouse as well. But they live a long time, Parrots. Oh, yeah. Yeah, there's one parrot called Charlie the Parrot whose owner claims he's 117 and used to belong to Winston Churchill. But what I like is everyone's looked into this, and so Mr. Oram, who owns him now, says his father-in-law sold him to a Churchill in 1937 and then got him back when Churchill
+
+[00:02:07] died. And the Churchill family and all historians have questioned this and say they can't find any evidence that Churchill owned a parrot. And I would have just thought, like, obviously we'd know if Churchill had a pet parrot, right? Yeah. No, I don't think we would, because do you remember there was that thing when phrobees came out and they were banned from government offices because they could repeat things? So if he had a parrot, he would have to be an illegal.
+
+[00:02:27] Because he might repeat all the secrets. So you couldn't tell anyone that you had a parrot or they'd kill the parrot? Oh, I see the parrot. Churchill had a secret parrot is what we're saying. This is the greatest conspiracy fact I've ever heard. So the world's oldest mouse, which is an article about whom I found this fact, is called Yoda. And Yoda celebrated his fourth birthday on April the 10th. Yeah, yeah, yeah.
+
+[00:02:51] And he got to the age of four. And this is the quote, in a pathogen-free rest home for geriatric mice. And he had a cage mate called Princess Leia. And I mentioned this to Dan, who was sitting in the room when I was doing my research earlier. And Dan very dismissively said, they didn't even meet. So that Yoda, basically, if you're four years old as a mouse, that's the equivalent of 136 in human years. Wow. Very old.
+
+[00:03:18] Yeah. Well, it's older than any humans have ever been. Yeah. So well done mice. They've beaten us in a way. Sort of. We've definitely beaten them. It's weird though, because they're doing a lot of experiments into how to make mice live longer in the hope that we can then make humans live longer the same way.
+
+[00:03:33] And one thing that does work is calorie-restricted diets that they just live longer when you give them less calories. But lots of mice in cages are fed a diet which is almost exclusively starch and sugar. It's like feeding someone donuts, basically, and expecting them to get to a ripe old age. Although they, I mean, when they eat in the wild, they live less long than when they eat in captivity. And they eat more than starch and sugar in the wild, presumably. I guess the wild is a less easy habitat to get to an old age in, because it's, you know, you're outdoors and you're exposed to the elements. It's slightly less than a pathogen-free rest home. Yeah.
+
+[00:04:06] What a cage mate. There was a guy already at four last week who was saying that domestic cats should all be euthanized and no one should be allowed them, because they cause such devastation to the bird population. Yeah, I've heard that. Yeah. He's very, very angry. They kill lots of other small animals. And I think I've heard that, especially in Australia, they're trying to, you know, get rid of cats.
+
+[00:04:24] I think they've destroyed something like 65 bird species in the last 50 years. There's quite a lot of species to have got rid of. Yeah. I was looking at a research lab called the Jackson Lab, which I think this one was in Maine. And they had mice who they said were four and a half. Have I written that down wrong? They must be three and a half, if this is the oldest. But they, well, they had mice who they said were four and a half, which they said is over twice the life expectancy.
+
+[00:04:52] And I quite like this quote. So the researcher who's working with the most closely said, the mice are two girls and she's become really, really attached to them. So she totally loves them now and she treats them really, really well. And she says, we move them to a new cage and we take care when we pick them up to cup them in our hands, rather than pick them up by the tail with the forceps. It's the luxury mice. Yeah. It's a level of extreme care and attention they get.
+
+[00:05:14] My friend told me that because rabbits are natural prey, every time you pick up a rabbit, it thinks it's about to be eaten, so it's really stressful for rabbits to be handled. It's a way to pick them up really gently, like go down to them, because otherwise you think you're picking up for a hug, it thinks. Yeah. That's why they're complete bastards when you pick them up. I don't suppose any animals really think when you pick them up that they're going to get a hug. They should be consistently pleasantly surprised in that case.
+
+[00:05:37] Rabbits are so ungrateful. Have you guys heard of the Black Six C57BL slash six? Slash six? Yeah. No. This is so cool. This is a particular kind of mouse which gets used in almost all experiments. It's like the standard currency of mouse experiments.
+
+[00:05:58] Five in six American research mice are this one very particular strain. It was created in 1921. I read a huge thing. There's a huge article on Slate about them. It was created in 1921 when a mouse codenamed C52 mounted one called C57 and deposited its semen in her reproductive tract with a waxy plug. That's a very sexy article you've been reading. Basically, almost all experiments in America are on mice.
+
+[00:06:24] Most experiments on animals are done on mice. Most of most of them. The problem is we think that they're kind of standard mice and they're treated as such in experiments, but they're really unusual. They all think they're special. No, they are special. This is the interesting thing. They're susceptible to morphine addiction and they like alcohol.
+
+[00:06:45] That makes you special, does it? Normal mice, I'm afraid not to say. It doesn't make you special. But they're exceptional in their pain responses and other things like this. There's no such thing as a perfect average mouse to experiment on. That's really interesting because what you lose by having the mouse be one kind, you gain because all your experiments are controlled by the same kind of mice. Exactly.
+
+[00:07:09] That's true. One thing it does, it does mouse-barbering behavior. Cutting mice' hair. This is where you have several different mice in the same case. The dominant mouse will selectively remove hair from its cage mates to show that it's in charge. All the subordinate mice are going around with little bolt patches on them. Really?
+
+[00:07:31] Wow, to mark them out as his slaves. Actually speaking of mice stress, mice are more stressed around men than around women and they've just discovered this and they think it's going to have to be controlled for in future experiments with mice. Do we know why? We assume it's because they have a reaction to the testosterone so they just have the same reaction as they do to male mice and a male is often going to be more bellicose, I suppose.
+
+[00:07:52] Maybe mice are just ardent feminists and they get really annoyed with the patriarchy. It could be that. They definitely release more of this stress hormone, so they put male researchers with mice and their bodies coursed through with all these hormones that they don't have when they're with females. It means in future when you're doing experiments we need to control for that because their bodies are behaving completely differently depending on who's working on them. Women become more stressed when I approach them
+
+[00:08:15] than when another woman approaches them. Yeah, I've noticed that. Does that make me a mouse? No. No, it makes you a researcher and then a mouse. Oh, it makes... Don't think it works, does it? It's not just women though, Andy, is it? People, people become stressed when I approach them.
+
+[00:08:29] And mice, actually. Did you say they've made transparent mice? No. Really? Yeah, they... I mean, no, you obviously wouldn't see that they've made transparent mice, would you? Where's the transparent mice? Oh, no, it's okay, they're still there.
+
+[00:08:41] Go on, Andy, you can see a window. What? Can you? Can you? You can see a window frame. You can see where the window is. I'm looking at the window right now and I'm doubting. Anna has these amazing eyes that can see the molecules in glass.
+
+[00:08:53] They can see reflections and little bits of crime. Okay, these mice... They've got fingerprints all over them. Yes. So, scientists have made transparent mice and this is on... There's something they do to mice after they've died is they inject chemicals into them
+
+[00:09:07] and they pump these chemicals through their blood vessels to their brain to their spinal cords through all their organs and it gets rid of heme, H-E-M-E which is the stuff in hemoglobin and that's what gives a lot of the stuff in their body its color and other stuff that's creating obstacles to the eyes and it makes them completely transparent but it means that we can study them much more easily
+
+[00:09:28] because usually when you're studying dead mice's organs let's say you've got a diabetic mouse and you want to work out how that works then you'd have to cut the organs up and you could distort them but in this way you can just look at it from the outside and see everything inside it. Sure. It'd be more useful to have transparent living mice, I think.
+
+[00:09:45] I know, I think they're working on that. Didn't you find a thing in QI about putting windows in cows? Yes, so they put these windows in cow's stomachs which means that if a cow's got a stomach infection you can just insert whatever is needed to be inserted into the cow's stomach to make its infection better. That's very cool. Are there old animals?
+
+[00:10:04] Greenland sharks. They're really old. They've recently found out that they might live up to around 400 years, maybe even older. What? They looked at some females, 28 female Greenland sharks and they worked out that the oldest one was somewhere between 272 years old and 512 years old.
+
+[00:10:26] Wow. Isn't it the Greenland shark where they didn't know until quite recently how long they actually lived? It could be anywhere between 20 and 400 years and no one knew. Still it's anywhere between 272 and 512, which is quite a big discrepancy. 1744, that one would have been born. The 272 one? Yeah, if it was a shark.
+
+[00:10:46] It's a shame they couldn't have been born in a year where one of us had a useful historical reference to compare it to. 1744, anyone got anything? Not to have my head. So one of the King George's was on the throne. Great, thanks Andy, that's really... Imagine that! Have you heard of Claire Hollingworth?
+
+[00:11:03] Yeah, no. I was on the list of Wikipedia centenarians basically. They have all these categories and they've got sports people and they've got artists and they've got scientists and they've also got a miscellaneous category. Absolutely, yes please. And Claire Hollingworth was the journalist who basically discovered the Second World War. She was 27.
+
+[00:11:27] Wait, how did you discover the Second World War? Well, she broke the story in Britain basically. And when I say that, she was 27. She was a brand new journalist as in she had just met the editor of the telegraph and said, why didn't you hire me and why didn't you send me to Poland? So he rented and sent her to Poland. And a few days into her trip she was returning to Poland
+
+[00:11:48] after a cross-border trip into Germany and she noticed all the way along the road there were these big screens of Hessian up alongside the road and the wind blew one of them up and it revealed loads of German. It revealed loads of German tanks. Don't wait, did Germany invade Poland behind a load of screens? And then the wind blew and they're like, ah, damn! We might have gotten away with that.
+
+[00:12:11] It's very Scooby-Doo, isn't it? This is what happened. This was from the Guardian. I trust the Guardian. Has anyone checked whether Germany's invaded anywhere else recently? Look for the Hessian screens. Wait, I have no idea how that's related to what we're talking about. Centenarian, she lived 200, sorry. She's more common than a four-year-old mouse.
+
+[00:12:32] Nice. Yeah, centenarians. So I was looking up some things about ageing and how we can age better. And so, you know, people always go and look at villages and towns that are full of really, really old people. And so the latest is a report in NPR which looked at the village of Achiaroli in Italy
+
+[00:12:48] and it has 300 people in it who are over 100, which is a third of the population of that village. And so a doctor went there and did a little study that there were two dietary habits. And I basically mentioned this so people can take it on board and imitate it. He said that everyone ate anchovies at every meal and they had rosemary with everything.
+
+[00:13:08] And that's the key. Wow, that's weird, isn't it? Because I wouldn't have personally just wouldn't put those two things together. Every meal. They're having every meal, anchovies and rosemary. Oh, look, they're not enjoying the taste, James, but it makes them look so long. Sure.
+
+[00:13:24] But that's a solid bit of advice. And they're brilliant because they always contradict each other. And there's one where if you sleep for fewer than six hours a night, you're four times less likely to die. But if you sleep for seven to eight hours, 30% higher chance of death, which means you need to sleep for basically exactly six hours according to these studies or you're going to die.
+
+[00:13:42] I mean, you're going to die anyway. You're probably going to die anyway is the problem. I'm not. I don't know about you guys. This one's worrying. It said that for every hour of TV you watch after the age of 25, you knock off 22 minutes off your life expectancy. What if you're watching an hour long documentary on how to extend your life?
+
+[00:13:57] It's called a paradox. I would do that for quite a lot of TV shows. I would take that hit. What about Gogglebox? Absolutely. Gogglebox is the best one to watch because you get lots of TV in one show. I was going to say, what if you're watching someone watching TV,
+
+[00:14:13] is that a 44 minute show? Yes, double penalty. Some more centenarians just going back to what Andy was saying before. My incredibly relevant story about Claire Hollingworth. Isn't that cool? Anyway, sorry, go on. Amazing. Emma Murano is the oldest person in the world at the moment.
+
+[00:14:30] She is the only person born in the 19th century who's still alive. She's the oldest Italian as well as the oldest of everyone. What I mean to say is she's Italian. And she's the oldest from her tiny Italian village. What a coincidence. She credits her long life to her diet of raw eggs and being single. I think what she means is she credits being single to her diet of raw eggs. The oldest man is a guy called Israel Christal.
+
+[00:15:00] And he's 45 years older than the state of Israel. Wow. Great. Good work. So it was named after him? No, no. No, I was being very careful. Photologically.
+
+[00:15:13] Yes, it was named after him. Okay, it's time for fact number two, and that is Anna. My fact this week is that the detective agency that hunted butch Cassidy also worked for Coca-Cola. Yes, I just I just really love this overlapping of its two roles. So this is a detective agency called the Pinkerton detective agency. And it was a very big deal in the 19th century. It was a bunch of detectives were hired to hunt down all the all the greats of the Wild West. So they hunted butch and the Sundance kid.
+
+[00:15:46] They hunted Jesse James for years. And also they were employed in 1916 by this guy called Harold Hirsch who wanted to spy on other companies and make sure they weren't stealing Coca-Cola's trademark because he was running Coca-Cola at the time. And yeah, he sent them undercover to soda fountains. Almost as dangerous as going after butch Cassidy. Can you imagine that career step after being in a shootout with the Sundance kid? I'm going to send you to a soda fountain undercover to collect samples of Coca and check. Really?
+
+[00:16:20] There were a lot of limitations. I found a list of all the companies that they went after for using their names. You want to hear some? Some of them are very close. So they went after a candy cola, celery cola, Coca-Cola, Coca-Cola, all with K's. Cola Coke with a C, then a K. Coca and Cola hyphenated. Cola rica.
+
+[00:16:37] Yes, it's a cola and koala. Coca-Cola all with K's is especially egregious. That's outrageous. I saw Coke, K, O, K, E and they also went after a company called Dope. Dope. Yeah, Dope and Coke. They were made by the same manufacturer who had actually been a partner of the guy who went on to set up Coca-Cola. But yeah, they called it Dope.
+
+[00:17:00] So the Coca-Cola company sort of begged people in its advertising not to refer to their drink as Coke because that made it much easier to copy because so many drinks are called Coke. But people still did call it Coke as we do, but equally they called it Dope. So you'd say you can have a cup of Dope and that was obviously a reference to its former cocaine content. So people knew it as the drink that had the drugs in it. It didn't have actual cocaine in it, did it? It had the, is it the Coca-Leaves or it had? Yeah, it had, I think it had basically cocaine in it.
+
+[00:17:29] What was interesting was that when it was taken out of Coke, Coca-Cola at the turn of the century, they still in their advertising implied that it contained cocaine because they still wanted people to think they were going to get that kick. And so they used to get in trouble and there was a lawsuit filed against them for implying that their drink contained cocaine when outrageously it didn't. That's fantastic. Should we also say who Butch Cassidy was? Oh yeah. Oh yeah, so Butch Cassidy, for those of you who haven't seen one of the greatest films they've made, was a Wild West outlaw in the 1800s. And he conducted various train robberies.
+
+[00:18:04] He was hunted by this Pinkerton agency. So Butch Cassidy and the Sundance kid, it's these detectives who were always on their tail. And eventually they drove them out of America and they ended up in Bolivia. And then there's lots of theories about what happened to them. So it's assumed they were killed in a shootout in Bolivia. And that's how the film ends, certainly. Or actually you don't see them die in the film, do you? Spoiler very much alert.
+
+[00:18:26] Sorry, that is true. But yeah, there are lots of theories. So apparently there was a guy called William T. Phillips who surfaced in America in 1908 or 1909. And he was recognized by a bunch of people, a bunch of policemen who chased Butch in the olden days and his ex-girlfriend. And this guy's adopted son says it had always been accepted in the family that he'd been Butch Cassidy. And he even wrote this manuscript in 1934, William T. Phillips saying this is what happened to Butch Cassidy without saying that's who I am. But saying Butch Cassidy got away at the shootout, the Sundance kid was killed. There's little details that he threw in as well, really detailed biography.
+
+[00:19:07] And he didn't die until 1934. So the former president of Bolivia, Rene Berrientos, he actually investigated the idea that Butch and Sundance had been killed in a shootout outside of Bolivian Bank. And he interviewed villagers personally who'd been witnesses or nearly witnesses. And he checked out army files and I've got in my notes that he dug up bodies. I think actually he had bodies dug up. But he eventually concluded that the shootout story was a fabrication. Did he? Yeah.
+
+[00:19:37] Although there is a town in Bolivia that says this is the resting place. Or here lie Butch Cassidy and the Sundance kid, don't they? I think it's called San Vicente. Oh really? But you would do for the tourism, wouldn't you? You wouldn't say Butch and Sundance got away from this place. That's true. Did you know that the movie was originally called The Sundance Kid and Butch Cassidy?
+
+[00:19:55] Was it? No way! That was the worst ever name for a film. It feels like that was now, doesn't it? Yeah, we'll never know if it would have felt absolutely normal. Because Paul Newman was going to play Sundance. That's right. But then they needed to switch that over for some reason.
+
+[00:20:09] And then they had a thing where oddly, Robert Redford, who wasn't as big a star, was then going to be playing Sundance. Sundance was going to be first in the name of the film. So then they said, well, we have to switch the name of the film as well now. It doesn't make any sense. Sundance was the protege. It would have been totally ridiculous and not in accordance with the real history of the thing. All right. Okay?
+
+[00:20:29] But yeah, I think I said in a, might have said before that he had a Lancastrian accent. Was it this, this might have been, well, his father and mother both came from the north of England and didn't move to America until quite late on in life. That's great. Oh yeah. Suddenly a one over. Well, you know, people always say that I sound like a real butch. Yeah.
+
+[00:20:51] Wild West. And you really remind me of Paul Newman. So, yeah. I don't know what he looks like, but I can only imagine. Oh, I mean, he's the most attractive man ever born. I can see where you're coming from now. The Pinkerton detectives then, do you guys have stuff on that? They're motto.
+
+[00:21:08] Okay. What was the motto? We never sleep. We never sleep. Exhausted. I read in one place that their logo was a large black and white eye. And that's supposedly where the phrase private eye comes from. Yeah.
+
+[00:21:22] That's true. Do you know who Pinkerton was? He was a barrel maker. So he was from Scotland and living near Chicago. One night he went to the woods to get more wood for staves to make into barrels. And he found the remains of a campsite and he got suspicious and he went back the following night and he found a group of counterfeiters making coins. And he got the gang arrested and everyone said, oh, great job, Pinkerton.
+
+[00:21:45] You should investigate more of these counterfeit cases. And so he did. He just started investigating things and then set up this enormous countrywide agency. So he had a Scottish accent and Cassidy had a Lancastrian accent. So if they ever do an audio play of this, then Anne and I could play the two. Yeah. And I think there are agents already. The phone's ringing off the hook next door.
+
+[00:22:07] But I think they were seen as a threat to the Pinkerton's by the end of the 19th century and in fact were forced to disband because they were so big and the government law enforcement didn't like that they were posing this threat. So they were larger than the U.S. military by the, by, so they were larger than the U.S. military by the 1890s. They had 2,000 people full time on their books and they had 30,000 reserves, which is more men than in the standing army. For detective work.
+
+[00:22:33] I know. Yeah. That's amazing. They were all reserves, of course. So I don't know if they could have called them all up full time. No, I think they all had normal jobs probably most of the time and then sort of spied on people as a hobby at weekend. I'm a Pinkerton.
+
+[00:22:45] I feel with notebooks. Yeah. Do you know what Pepsi was originally called? What? Brad's drink. Was it just for Brad? It was just for Brad. It was Caleb Bradham who was the inventor and it was named, it was like Coca-Cola, but
+
+[00:23:01] it didn't have any coca in it. I think they were casting around desperately for another name. It's interesting that Coca-Cola, these days you could buy a bottle with the word Brad on it. That must really sting to Pepsi. Yeah. That's a good point. Out.
+
+[00:23:16] Freud said it cured his depression and made him more sexually active. Coca-Cola. Coca-Cola. Really? Yeah. They would say, what would you like to drink and he'd go, Coke. Coke. Coke.
+
+[00:23:29] Okay. It's time for fact number three, which is my fact, which is that you cannot get to the highest point of Mauritania with a compass. Right. Well, you can't get to it. You can't take a compass with you, but you can't use a compass to navigate to it, even if you have a map and the opposition, because it's completely made of magnetite, the mountain, which is a natural magnet.
+
+[00:23:55] And as a result, it'll send your compass completely haywire. Well, you would think actually that no matter where you were in the world, if you were close enough, it would point you towards this massive mountain, so actually it would work really well. It wouldn't get you to the top, would it? Because it would just point directly down at the mountain once you go, so it will get you to the base of the mountain. That's a really good point.
+
+[00:24:13] It would be perfect for getting you to the base of the mountain and then it's used to it. I read this amazing article this week, I think it was on Cracked, about life-saving tips and things that you should know. And they said that if you get caught in an avalanche, everything is white, so you've put it down the which way that which way is down. So what you should do is you should clear some space around your mouth and spit, and whichever way the spit falls, you know which is down, so you go down the way.
+
+[00:24:33] Do you really think you wouldn't know which way was up and down? Because you still have gravity, you're still going to be light-headed or... I sometimes get that in bed. Do you? Yeah. You spill your face. You know the thing where you're lying about momentarily, you don't know which way you're facing?
+
+[00:24:46] Sure, but that's not really the same. The one way you can't breathe, that's your facing into the pillow, Andy. This mountain, just to say, is blue, isn't it? Yeah. So you could definitely find it without a comfort. I think it's a magnetite that makes it blue, so from above you can identify it. And there's this other amazing thing in Mauritania, which is 25 kilometers wide, but we didn't know it existed until we had the ability to fly.
+
+[00:25:12] This is the thing called the Eye of the Sahara, and it was hidden for many, many millennia. It's this beautiful, swirling rock formation. It's these blue rocks, and it looks like a big bullseye, but no one noticed it was there until, I think when we went to space, or maybe when someone was flying over it, but from space they say it becomes particularly striking, because it's in the middle of the Sahara, so there's nothing all around in this huge blue swirl. Gemini 4 in 1965 was when they discovered it. Was it?
+
+[00:25:38] Yeah. And we have no idea what it is, do we? They thought it was from an asteroid, but now they don't think so, and now they're saying they think it's seismic activity pushing this dome up, but why is it a circle? They have no idea. Yeah, some kind of uplift. It does happen fairly often, but not very often in a circular way. Yeah.
+
+[00:25:55] It's basically like an art attack when you're doing the big one and you wouldn't know what it was, and then they pan out at the ends and you see it, and that's what basically this is like. Yeah, that was great. Yeah. I just bloody love that. Mauritania is an interesting country. It's 90% Sahara Desert.
+
+[00:26:09] It's only got 3.5 million people, and yet they have found the time to have 11 coups, or attempted coups, since 1960. 11 coups? That's a lot. Yeah. It's a good solid number. Also, they still have loads of slavery. The most coups is Bolivia, isn't it, I think?
+
+[00:26:24] They've had loads. They've had something like 191 in their 190-year history. They've certainly had one more coup than they've had years. Yeah. That's brilliant. Well, that'll be the cocaine. And there was a really weird incident, and did you see this 2012 in Mauritania where the president was shot, and then they said, oh, the president's been shot by accident.
+
+[00:26:45] It's fine. It was a mistake and just a bit of a mix-up, and it's all fine now. That may have been an aborted coup or something like that. Really? Bizarre. Yeah. Some things on highest points. Oh, yeah.
+
+[00:26:59] There's a list of highest points of countries on Wikipedia. Murray Hill is the highest point of Christmas Island. Oh. It's a nice fact, isn't it? I'm absolutely chuffed. Do you think there are many tennis fans who have accidentally booked a trip to Murray Hill? The highest point of the French Polynesian island territory of Wallace and Futuna is
+
+[00:27:21] called Mount Puke. Oh, yeah. Yeah. P-U-K-E, but it's pronounced Pu-K-E. Wallace and Futuna is one of the quietest places in the world. It is so quiet. Have you been there? Have you been?
+
+[00:27:33] No, I haven't. But James and I did a thing where we were researching loads and loads of countries, and James started at the beginning of the alphabet, and I started at the end. And let's just say, the afternoon I spent researching Wallace and Futuna was pretty slow. Did you find the Mount Puke thing? I think I did. You must have done the alphabet. There's not much else.
+
+[00:27:49] I mean, there are about two things on there, and one of them is the place called Mount Puke. It's quite hard, even for a researcher of my limited ability to find it. Is it even a volcano? Because that might make sense. It's puking again. It comes from the Polynesian word Pu-K-E, which means mount. I see.
+
+[00:28:05] Pu-K-Pu-K means like an uneven surface or something with lots of mounds. So does it mean mount? Mount mound. Yeah. I think they get annoyed with having to explain to every single British lad tourist who comes that it's pronounced Pu-K-E. No, there are no British lad tourists on Wallace and Futuna. Actually, I'm just looking up Wallace and Futuna now.
+
+[00:28:23] I'm just going to see what gems I can find. Your file. No one has opened this file since the 25th of October, 2011. This is very exciting. This is like ancient history, QI stuff. Yeah, it's a little time capsule. Yeah. Do you want another mountain fact from the book while you're looking at it?
+
+[00:28:36] Sure. So the highest point to Canada was only determined in 1992. Really? Really? You weren't sure before then. And when Edmund Hillary got to the top of Everest, he celebrated by having a wee. That's how I usually celebrate. Actually, you've been celebrating a bit much around the office recently, Anna, to be honest.
+
+[00:28:54] It's true. It was my birthday yesterday, Anna. I thought you'd appreciate it. I left it on your desk and everything. Can we see what else is in that Wallace and Futuna? Guys, it's pretty thin, Groove. Population? Population is 15,400, which is about a tenth that of Swindon.
+
+[00:29:17] It was the only French colony to side with the Vichy collaborationist government during the Second World War. Yeah. And that lasted until a regiment of US Marines arrived in 1942 and said, cannibalism was banned there in 1830. Oh, that's quite ahead of its time. Yeah. For cannibalism.
+
+[00:29:36] No, is it not? Is it not? In Polynesia? Cannibalism is still technically not illegal in the UK. You're right. There's not a specific law. I don't think so. Basically, they'll do you for something.
+
+[00:29:45] But not that. Yeah. So you could be done for desecrating a grave or a corpse or... Move removal of evidence. Yeah. There's a lot of things you can get done for, but specifically cannibalism is not illegal in the UK, but it is illegal in Wallace and Futuna. It has been for a hundred.
+
+[00:30:00] Actually, Mauritania was the last country in the world to abolish slavery, which it did in 2007. 2007? Yeah. And it didn't make a crime until 2012, but the thing is, I've read a report saying that it still happens a lot. Yeah. It does.
+
+[00:30:16] It's four years out. It's not long to change. This is such rough estimates. Between 4% and 20% of the population are still enslaved. What? Although, in the interest of balance, I think the Mauritanian government has denied, has said that foreign reports of it are exaggerated. Should we talk a bit about magnets for legal safety?
+
+[00:30:35] Yeah. Did you know that deer line up from north to south, even when fleeing? Do they? Yeah. Even if that involves fleeing straight into the hands of the person that's running away from home? I know. Actually, it might make sense because it keeps the herd of animals together, unless of course
+
+[00:30:50] they run in different directions. You wouldn't bump into anyone because you're all going parallel to one another. Exactly. Yeah. I've always went to study this with dogs, you know, when they say that dogs poo and line with the Earth's magnetic field or something. I know people have done studies, but I'm actually going to go to Richmond Park this week, and I don't have much on and see if this is actually true because it so doesn't feel like it's
+
+[00:31:11] true. You're going to go and chase deer and see if they run north to south. I shall run. Yeah. OK, it's time for the final fact, and that is and. My fact is that in 2015, a plane had to make an emergency landing after the smoke alarm was triggered by farting sheep. Amazing.
+
+[00:31:31] It was over 2,000 sheep in the cargo hold, and the alarms went off, and it appears to be the methane emitted by the sheep triggered the alarm. Could not believe that you can transport 2,000 sheep on a plane like a sheep. That is a lot of sheep. Well, I guess they kind of don't demand the same leg room, maybe. The world record for people on the flight is 1,088, and two of those were born on during the flight. Was that an airlift out of Israel or something?
+
+[00:32:00] Wasn't it out of Africa and into Israel? You're right. It was. Out of Ethiopia and into Israel. Yes. In 1991. Yeah. It was a Jewish community who were at risk of a war or something in Israel for an airlift.
+
+[00:32:11] That's right. But yeah, it's incredible, this fact. This happened again in November last year with goats on a different plane. Really? What? That's so weird. It happened again in 2014 with cows on a different plane. Guess what the headline in the Sun article was about the farting goats on the plane?
+
+[00:32:28] Not bad. It's about farting, specifically farting. Oh, gas. And goats. Gas goats. What's the most famous goat? Billy goat gas. Billy goat goff.
+
+[00:32:40] Billy goat goff. That's better than Billy goat gas. Billy goat goff was the Sun headline. Great. Yes, it does seem to be weirdly common. They need to get better alarms, I think. I suppose if the alarm goes off, you're better off not being like, oh, it's probably the plan goes down.
+
+[00:32:56] It's way better to land than be like, oh, we're okay. But, sir, there are no sheep on board. It's fine. It's always the farm animals. Actually, in 2014, it was the fire alarm, not the smoke alarm, and I think it was caused by the cows overheating. Wow. Oh, no, the heat sensors.
+
+[00:33:09] Yeah, exactly. And they thought it was a fire and they landed in case it was. In 2012, a plane had to make a landing after a cobra got out of someone's hand luggage. Wow. And it bit its owner and escaped, and the owner said, oh, I'm fine, I'm fine. They're like, you need to get off the plane now. Yeah. If someone didn't quote Samuel L. Jackson at that moment, that is the greatest travesty
+
+[00:33:29] ever known to man. Okay, what about maggots on a plane? Do you see that? They're sort of mini snakes. Go on. Do you switch out the line? This was a US Airways flight at Lanter Airport. It wasn't allowed to take off, actually, because maggots started falling out of the overhead
+
+[00:33:45] compartments. Oh, my God. Oh, God. They left a container of old meat in there, and it caused a delay. This was a flight to Charlotte, and someone said that there was only one maggot landed on there, but she felt like they were crawling all over me because it only takes one maggot to upset your world, I think is fair. And as they're telling us to stay calm and seated, I see a maggot looking back at me,
+
+[00:34:13] and I'm thinking, these are anaerobic, fleshy-tig larvae that the flight attendants don't have to sit with. Oh. But I like that thought that they're anaerobic. Yeah. Rather than just, ah. Was she a chemist? I don't know.
+
+[00:34:27] I think these are bloody maggots. Get me off here. Yeah. I'm moving my seat. They're just fly larvae, though. Not just. They are anaerobic fly larvae. Oh, that's a very good point.
+
+[00:34:36] I hadn't considered that. All right. There was a flight got grounded for human flatulence in 2006 after a lady was farting on a plane, but she was a bit embarrassed, and to get rid of the smell, she lit a match, which you really shouldn't do on planes. You're in the blue compartment, can't you? No. They're very clear.
+
+[00:34:54] You're not allowed to light anything in the blue. You've got smoke sensors, I know, but that's to stop people smoking cigarettes, isn't it? Yeah, you're not supposed to be lighting matches in a pressurised environment. I think people smelled sulfur. God, I've been getting away with it for years. I always have a jostic on a plane to calm myself down. Here's a headline from March 2015. BA flight forced to land early because of smelly poo.
+
+[00:35:18] It was a flight to Dubai from Heathrow. And one passenger said, we knew something was a bit odd. About 10 minutes later, the pilot said, you may have noticed there's quite a pundit smell coming from one of the toilets. He said it was liquid fecal excrement. Those are the words he used. He said it's coming from the passenger and I'm like, you're fine. The plane was in the air for 30 minutes and then got turned around.
+
+[00:35:42] I had to go back to Heathrow because apparently it was a risk because they only recycled half the air and this was so smelly. Apparently it was 15 hours until the next flight left and they had to all stay overnight. It wasn't like they had to wait that long for the smell to go. I'd leave it for 15 hours. They just destroyed the plane in the end. That's very good.
+
+[00:36:05] I was on the plane recently and I was chatting to the excellent air hostess because it was quite late and I ordered a toasting. I saw her do this hand signal to the person at the other end of the plane like a crocodile and I said, oh, what's that? And she said it's because one person is at the front doing the food and one is taking the orders down the plane and rather than yelling, they have hand signals. So toasting is a crocodile because it's like a crocodile in France.
+
+[00:36:26] That's cool. A smiley face holding your hand and making a smile is this cheese sandwich. Tapping your shoulder is chips because chip on the shoulder. They have a whole system. What's the signal for there's an enormous poo in the toilet? So they transported horses to the Olympics in Rio this year and the race horses got more like rooms than your standard horse transports. I learned, yeah, so usually it's three horses to a cabin
+
+[00:36:50] and these ones were two because they're special horses with special talents who deserve business class treatment. That is so unegalitarian. But they also pilot more carefully with horses than with people. Normally we get pilots doing loop the loop. Exactly. And the horses just hate that. No, it's not more carefully, but they do more gradual takeoffs and landings so they spend much longer on takeoff and landing
+
+[00:37:16] and they don't do it as steeply so that the deceleration and acceleration isn't as much because horses get. That's smart because you can't explain to a horse, okay, you're going to go in a plane now, whereas to humans we know what's going on. The plane that was operated by the airline Fly B was forced to turn back after a bee became stuck in one of its instruments. A bee? Is that true?
+
+[00:37:36] Yeah. Which instrument? What instrument on a plane is so sensitive? Well, they're all important, I imagine. But bees can't do too much damage, can they? It was like sitting on a button that was crucial and he thought he'd press it, you'll get stung. Sitting on a button? Maybe it wasn't that.
+
+[00:37:52] Lower the landing gear, I can't. It's a bee. A pork pie loving man caused a minor alert at Manchester Airports when he tried to carry one through security. Apparently the juice inside the pie set off the kind of thing that was looking for liquids and the people in security said it must have been a very juicy pie. But we've all got liquid in us, so why don't we set off the alarms?
+
+[00:38:18] That is a great point, you're right. I'm not sure you're quite as juicy as a pork pie. Don't be insane, James. Nobody's as juicy as a good pork pie. Anyone would think that this was just a made-up story by a tabloid newspaper. We should end. OK, that's it. That's all of our facts.
+
+[00:38:42] Thank you so much for listening. If you've enjoyed listening to this podcast, please buy 20 or 30 copies of the book. It's 1342 QI Facts to leave you flabbergasted and you can get it by going to qi.com forward slash shop. You can also follow us on Twitter. I'm on at Andrew Hunter M. James. At Egg Shaped.
+
+[00:39:01] At Miller underscore and Anna. You can email podcast at qi.com. And you can also go to our group account at qipodcast or go to no such thing as a fish.com where there are many more episodes of the lights are waiting you. Thank you so much for listening. See you again next time. Goodbye. You

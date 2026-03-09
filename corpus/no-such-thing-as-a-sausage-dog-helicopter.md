@@ -1,0 +1,391 @@
+# No Such Thing As A Fish - No Such Thing As A Sausage Dog Helicopter
+
+- Episode date: December 14, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-sausage-dog-helicopter
+- Slug: no-such-thing-as-a-sausage-dog-helicopter
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish. Ho! Ho! Ho! It's nearly Christmas. The presents are already wrapped. You've already bought your copy of Everything to Play for, the QI Book of Sport by James Harkin and Anna Tushinsky. You've already bought your copy of The Theory of Everything Else by Dan Schreiber, and you've already bought two copies of The Sanctuary and the Last Day by Andrew Hunter Murray. The sprouts are simmering.
+
+[00:00:26] The quality streets are already been mostly eaten, apart from the horrible ones. And what else is there to do, apart from listens to some podcasts? Well, what do we have for you? It's basically the start of our Christmas season. We're already in the Christmas mood, so the next three episodes are all special episodes.
+
+[00:00:45] The first one you're going to hear right now is a look back at 2023, all of our favourite facts from the news of this year, recorded live at the Soho Theatre in London. Then next week, you're going to get our Christmas special, where again at the Soho Theatre, we talked about all of our favourite facts about Christmas, food and drink.
+
+[00:01:05] And then in the silly season between Christmas and New Year, you'll get a very special show where Andy opens up the mailbox and finds all the facts that you sent us over the last couple of years and we discuss those. Find out which ones are true, which ones are not true, which ones are interesting, and which ones, frankly,
+
+[00:01:22] you probably shouldn't have sent in that drunken stupor at 2am. Anyway, really hope you enjoy these three episodes. I'm away from my desk for the next couple of weeks, so I'll be enjoying them with you two, and we will see you in the new year. Okay, there's not much more to say, apart from to remind you to buy all of those books. Go to no such things of fish.com forward slash books
+
+[00:01:43] to find information about those. But sit back, relax, put your feet up, and listen to this week's episode of No Such Thing as a Fish. Okay, on with the podcast. Welcome to another episode of No Such Thing as a Fish, a weekly podcast. this week coming to you live from the Soho Theater in London. Sitting here with Anna Tashinsky, Andrew Hunton Murray, and James Harkin.
+
+[00:02:28] And once again, we have gathered around the microphone with our four favorite facts. But this time with our four favorite facts from the news of the year, 2023. And in no particular order, here we go. Starting with fact number one, and that is Andy. My fact is that, after a journey of 60 million miles, this year, NASA finally brought a fragment of an asteroid back to Earth in a special capsule. Unfortunately, they can't get into it because they don't have the right screwdriver.
+
+[00:02:58] Pretty amazing. It's amazing. It's an amazing. Yeah, it's a cross-head problem. Yeah, yeah. No, so this is true. So NASA launched a mission to an asteroid called Benu, which is big, and it's about...
+
+[00:03:13] Slow down, Professor. Sorry, yeah, yeah. It's not that big, actually. It's chunky enough to do some damage if it hit the Earth, which it might at some point in the next 300 years. Not imminent, but we need to keep an eye on it, basically. Wouldn't it be ironic if it came down, hit the Earth, and then the box just sort of sprang open?
+
+[00:03:34] So is that why we're getting bits? Are they going back and forth, back and forth, gradually making it smaller and smaller than the next 300 years? What a great idea. Is it? Yeah. It's not exactly what. I think they're doing it because it was nearer than a lot of other asteroids,
+
+[00:03:48] It's worth studying, basically. So it's 500 metres across, which is not tiny. It's called the most dangerous rock in the solar system. That sounds pretty bad. Yeah, but isn't truly the most dangerous rock, Earth? People thought. Anyway, because it's home to man. No, we got it.
+
+[00:04:08] We understand. So what's the deal? They've built a box that they can't open. Because presumably it didn't come in the box. The asteroid didn't arrive in the box. That would be more worthy of study, if anything. But no, it's very, very old as well. It hasn't changed its composition for 4 billion years,
+
+[00:04:24] which is why it's worth studying as well. It predates the solar system. That's pretty interesting. So NASA launched this amazing mission. They launched it seven years ago. It took four years to get to Benu. It landed, or in fact, it didn't even land. So it just sort of nicked the edge of it.
+
+[00:04:39] It scraped it for six seconds. It just touched the edge of it. Grabbed some fragments from it. Got those into a specially made capsule, an incredibly good capsule. And then it finally landed back on Earth this year. Sounds like it pickpocketed the asteroid, doesn't it? It kind of did.
+
+[00:04:55] The thing I read said, it touched its bottom for six seconds, which is... But isn't that amazing? I often get blown away by the precision of science in space where that's your window. If you miss that, it's probably a big deal to have to turn around, go back. Probably would be.
+
+[00:05:11] Probably, yeah, yeah. So they're like, but six seconds, that's what we need. We have six seconds. It's wonderful. And the problem is now it's in a glove box, right? Yes. And they can't get it out of the glove box. They call it a glove box, don't they?
+
+[00:05:24] Yeah. And it's especially, it's a really good... It's a really good box, but you have to wear gloves to get into it. Yeah. You know those things, like, I don't know how to describe them, but it's like a perspex box and the kind of rubber gloves are attached to the box. Oh, yeah, yeah. And you have to put them in.
+
+[00:05:37] Like when they're dismantling a bomb or their... Do they do that? Like Homer, Homer at the beginning of the Simpson. That is the bomb. That's just like a new... No, no. I was thinking of that. The movie Speed and then I went to The Simpsons very quickly.
+
+[00:05:50] I want to know who's put a bomb inside this Persex box. It's such a weird place to put a bomb, isn't it? Thank God they put it there, though. You can get to it safely. So what is true here? You have to wear special gloves to open this box and they've forgotten the gloves. Inside the glove box, you're not allowed to put just anything in there because it's such a sealed environment.
+
+[00:06:08] They've got some tools in there already, but none of them is the right tool. They've undone all bar two of the screws. There were loads of screws originally. just two, but the last two are proving really fiddly, and they can't just use a Philip screwdriver because everything has to be like, it's a clean room and they can't get any, even, I think it's filled with nitrogen
+
+[00:06:26] because they don't even, it'll react with oxygen and that'll be a disaster. So they're having to be so careful. The amount they've got inside the box is about the weight of a hamster, roughly, but just... We don't know it's not a hamster. No, there's no way of knowing. Well, it is see-through, so we can... Wow.
+
+[00:06:44] We can't see it's not a hamster. Also, it came with a load of bonus stuff. Like, when it scooped into the... Oh, like DVD extras. Yeah. No, no, no. A t-shirt saying my dad went to this asteroid and all I got was this shitty shirt.
+
+[00:06:57] When they did the scraping, most of it ended up in the capsule, but there's loads of other stuff around the edge of the capsule, another 70 grams or so. So they have started studying that already. Okay. It's very exciting. Have you seen the screws that they can't get into?
+
+[00:07:08] Yes. This is piece of them. It basically looks like an Allen key, doesn't it? It does. But it's like, you know, you can never quite get the right size of Allen key. Yeah. That's what it looks. I think that's what it is, isn't it?
+
+[00:07:18] I think so. So when can we get in, do you think? Well, they're sort of designing special tools to get into it. It's not going to be forever. Have they? I mean, Task Rabbit is very good for this. They like that. But they do know a couple of things already from it, which is really exciting. So Britain has a little bit of it, very thrilling.
+
+[00:07:35] Sorry, I said Britain has a bit of the sample. Very thrilling. Wait a minute, how can that be, though? It's all in a box. No, no, no. Because there was 70 grams of bonus material. outside the box. So that has been parceled up
+
+[00:07:48] and sent around the place a bit. Britain has 100 milligrams total. Brilliant. Yeah. Unfortunately, it's now been sent to Rwanda. Well, it will be. Yeah, but I read a thing about the scientists who are looking at it, and they're analyzing it grain by grain.
+
+[00:08:08] They have such detailed studies that they can do that some of them said, yeah, we might be looking at this for the rest of our careers. And it's literally 100 milligrams of dirt. What do you think they're trying to work out from what they're studying? Just the composition. They might find the origin of, like, clues to the origin of the solar system. Yeah, okay, right.
+
+[00:08:25] Apparently it contains nanoglobules of organic material, which sounds faintly. Ah, so that could show that maybe a life can be ceded around the universe as well by asteroids. That's always what they're hoping for, isn't it? Not that it's just a little bit of dust, lifeless dust. Another bit of lifeless dust. But there are things in that. There are things called pre-solar grains, which this is so cool, right? These are grains of particles.
+
+[00:08:46] they're less than one micron across, which really is very small. And they belong to the previous dead stars and ancient kind of cosmic dust that our solar system formed from. So they're like the ingredients of our sun, but before our sun formed are on this thing. Wow. That's cool. There's also, as we're recording in the last day or so, been a very exciting discovery made by NASA as well.
+
+[00:09:09] They found a tomato that's been missing on the International Space Station for eight months. That's not still going to be good. It's not going to be good. You'd eat it. But there was... I'd eat it. Yeah, I'll have it. If it's still going.
+
+[00:09:25] There was a guy called Frank Rubio, and he was basically doing a harvest up on the International Space Station. He had a bunch of little tomatoes and other things, and one of them just went missing. And he got accused of eating it. He was like, I didn't eat it. And they were like, well, we can't find it anywhere.
+
+[00:09:37] He left the International Space Station. It's been eight months. And just yesterday, someone's like, is that the tomato that has been... That's incredible. And it's all shriveled and all disintegrated. Wow. Yeah, so...
+
+[00:09:48] And he's back on Earth going, I told you so! He literally is, because every press conference, they were like, yeah, yeah, yeah, yeah, great stuff about space. The tomato, did you definitely not eat it? Because it feels like you did. And it's, you know, the International Space Station is about six bedrooms worth of room if you were walking through it. It would be a house with six bedrooms.
+
+[00:10:07] It's quite big. But you would think you'd be able to find a tomato. Oh, I don't know. Cherry tomato or normal tomato. So it's a... Yeah, it's more like a cherry tomato. I think we have a format here, actually. Yeah.
+
+[00:10:21] Okay, so it's the four of us. Yeah. We go to a celebrity's house. Sure. Yeah, it's like through the keyhole. Yeah. Wait, what's... We hide the tomatoes somewhere in the celebrity's house.
+
+[00:10:34] And we find it. But what's the through the keyhole there? Well, the interesting part is not finding the tomato. That's deadly boring. You actually get to see the celebrities' house. Oh, because you're going through their underwear, They're a tomato. Yeah, yeah.
+
+[00:10:48] Okay. But then the problem is you go around Alan Titchmarsh's house is it's fucking tomatoes everywhere. That's the last page of Where's Wally? I remember, there's just loads of wallies. Yeah, that's right. Alan Titchmarsh included.
+
+[00:11:02] Yeah. Wow. So, you know these people, you're talking about Andy, who travelled millions and millions of miles to get this cosmic bit of asteroid? Well, they didn't. I mean, it was an uncrewed mission. You're right.
+
+[00:11:13] They sent out their little, yeah, drone. They didn't need to do it, because there's loads of it on Earth, isn't there? As I think we've discussed before, lots of bits of asteroid raining down on Earth all the time. And this was in the news this year
+
+[00:11:27] because scientists have identified 13 cathedrals that they're going to start vacuuming four bits of asteroid. Wow. Really? The guttos? Or inside the... Up top.
+
+[00:11:37] The roofs. Yeah. Yeah, yeah, up top. So it's the Penny Vosniakievich and Matthias of Van Ginnikinikin. and they basically want to understand how bits of debris from space come to Earth. These sound like two Russian guys and they're going to come looking at our cathedrals, are they?
+
+[00:11:57] They've done Salisbury and they like what they saw. No, it's a man and a woman who I don't think are related to Putin's regime in anyway. But, yeah, they've said here are 13 cathedrals like Kent Cathedral, Canterbury Cathedral, all the big guns. and they go up onto the roofs of the cathedrals with these big hovers on their backs like Ghostbusters.
+
+[00:12:19] They climb up the walls, they climb onto the roofs, and then they just hoover up all this dust. And the idea is that remnants of asteroids and comets can be found amongst obviously just lots of shit. But you can... Did you say why it's cathedrals in particular, as opposed to residential houses? It's cathedrals because they're touched far less often,
+
+[00:12:37] so it'll be undisturbed because not many people hang out on top of cathedrals. And super old. Super old. Right. Yes, very old, but also very well recorded when they've been redone, when they've been revamped. You always have good records for it.
+
+[00:12:49] So if they find a bit of space dust, then they'll know, well, this bit of roof was redone in the 1960s, so that's how long this has been there. Yeah. They've found another asteroid that possibly could hit the Earth on Valentine's Day in 2046. So that's something to bear in mind when you're buying your gifts that year.
+
+[00:13:08] Probably we have... What, don't bother? No bother, yeah. You've got a 600 to 1 chance of this asteroid hitting Earth on that day, which is the same as an average flight being cancelled or delayed by three hours. Wow.
+
+[00:13:22] Because that has happened to me. It does seem to happen quite a lot of that, isn't it? One in 600, I thought, you're fine, yeah. Yeah. But is it okay if it hits it? Not if it hits, no. Is it definitely not okay? It's a big one.
+
+[00:13:32] There's a 600 to one chance that we're... That's really close, change. It's not... In trouble? Look, it's 20... When did I say? 20 years? 2040s.
+
+[00:13:40] Well, well, I'll be gone, so... But it's not going to... It wouldn't wipe out the entire. It's one of those which is big enough that if it lands in the middle of Manhattan it's going to cause a problem. But the chances are it'll land in the ocean.
+
+[00:13:52] If you were in the air and an airplane, do you think you'd be okay? If it hit your airplane, no. Yeah. But I'm also thinking are your chances being in the air the same of the three-hour delay that you would...
+
+[00:14:06] Oh yeah, you're probably going to be at the gate still, thinking... We'd like to be on board. We should be on board. So there's this kind of thing where scientists are looking at all the different asteroids. And there's 1,448 of them on their spreadsheet. And there's something called the Torino scale, which tells you how likely they are to hit the Earth.
+
+[00:14:26] And this is the one that's most likely to hit the Earth. It still, according to NASA, poses no unusual level of danger. And the chance of collision is extremely unlikely. That's what they say. But on this scale, it is one on the scale. and all the other 1,447 have a ranking of zero. Oh, okay. So everything is a zero apart from this one, which is a one.
+
+[00:14:50] What does it go up to? If it goes up to two... It goes up to ten. Oh, it goes up to ten? Fine, fine, fine, fine, fine, fine, fine, fine, fine. I feel fine. I'm still trying to work up titles for that tomato show. I've got like...
+
+[00:15:03] On your own time, Andy, please. What, no, tomato who? And it's... No, but it's... It's... Yeah, yeah, yeah. Because we already know whose house it is.
+
+[00:15:16] Yeah, yeah. I'm so glad you interrupted with that. Here's a bit of exciting news. Oh, shit, I can't stop thinking what the title will be now. It gets you, doesn't it? All right, let's try and move on. Can I tell you about a new invention this year?
+
+[00:15:36] Sure, right after I say the thing I was about to say. Oh, yeah, say that first. I was just trying to indulge you then. making you believe what you said was worthwhile. He actually has something to report. Dan, you were saying? Well, just really quickly, another space-science thing that we've discovered this year
+
+[00:15:51] is what the speed would need to be miles per hour for Elliot from the movie E.T. And his brother and his buddies to get the bicycles up to the height that they need to get to go past the moon. The reason we know this is because it turns out that the composer, John Williams, has spent the last
+
+[00:16:11] 40 years wanting to know that answer. No. Yeah, he said while he was conducting it, he saw the footage and he went, how the fuck would they do that? And over the last 40 years, he's just constantly, like in the shower, just going, how the fuck would they actually do that?
+
+[00:16:27] And finally, this year, he got given an honor by NASA, and while he was there, he said to an astronaut, listen, I've been thinking about this for 40 years. When you go up, like, what's the escape velocity that you need to break gravity? And they said, basically, you need to go 17,000, and 500 miles an hour. And he went,
+
+[00:16:45] and so it's all sorted out from now. It doesn't seem like that. They must have slowed it down. Yeah. Because what John Williams is missing is a bit of a big plot point, which is they had a magic alien in the basket. Here's the weird thing.
+
+[00:17:00] I suddenly realized that John Williams, when he's conducting to E.T, he does with the footage in there and he's conducting the orchestra to it with his baton, right? But he also conducted the theme tune for Harry Potter, And that must have been so weird when he's holding his magic wand stick
+
+[00:17:14] going, bassoon! And, you know... You know, the really good conductors don't shout the instrument. Hello! It's a lifetimes training. Just to stop yourself. If you listen very closely to the soundtracks,
+
+[00:17:36] you hear John Williams. Trumbull! Yeah. Can I give you? you a fruit and vegetable related fact scientific one from this year. Yeah. Not tomato one.
+
+[00:17:47] Have you heard of a new vegetable that has been invented this year called the gar league? Is that part garlic, part leak? Oh, I was hoping we'd have a bit more of a fun guessing thing. They're just two members
+
+[00:18:04] of the onion family. They spent ten years working on this. Not on the name. Not on the name. I rather think they might have come up with the name first. But it sounds great. It sounds so good.
+
+[00:18:24] Because I had a meal before we came out here and I made it with leek and garlic. Imagine if I had a garlic. Exactly. Imagine all the time I would say. Yeah. Actually, that would be nice not wanting to chop up bloody garlic every time you eat.
+
+[00:18:39] Right. They could merge, like, all the ingredients. that we had, they could do a leek cum garlic, come onion, come carrot. Why do you want so much cubs in it? It's how I like my dinner. Okay, it is time for fact. Number two, and that is Anna. My fact this week is that the heirs who inherited Silvio Berlusconi's properties
+
+[00:19:25] had to deal with the 20 Bunga Bunga showgirls still living in them. And... That's amazing. This is just an odd conundrum to be faced with when your dad dies that, you know, not a lot of people will have to go through. But he's so Burlesquo died in June. And he's got lots of houses, and he'd lent 20 of them to various women,
+
+[00:19:48] along with sometimes a little monthly allowance. And it was a little bit controversial as to why he'd lent these houses to them. He'd promised them that they would be able to take over ownership of them. So apparently he said to one of these women, Barbara Gera, my five children that I will let you own this house. But he said, I can't give you the right to ownership until all my trials are over. So he's been having lots of trials, like many world leaders, past and present.
+
+[00:20:14] Because then I'll be accused kind of of bribery. Because the accusation was that these women were women who attended the Bunga Bunga parties. Does everyone remember the Bunga Bunga's? I think we should say for younger listeners what Bunga Bunga is. I mean, not for young listeners. No, not young. Andy's Kids' podcast is going on.
+
+[00:20:37] The CBB bedtime story with Andy Murray. So these are parties that he quite famously had about 10, it was a long time ago now actually, 10 years ago, and they were basically mass orgies, if you believe, one account, and they were sophisticated gatherings, if you believe, another account. But lots of world leaders, sort of,
+
+[00:20:58] lots of politicians and dignitaries from around the world. attended them, they happened in his big mansion, and there were lots of women there who were kind of showgirls who perhaps perform services for people who were paying for them. And one tomato. That was always his excuse. I was trying to find the tomato.
+
+[00:21:22] Yeah, and the idea was Bunga Bunga Bunga might have been possibly the punchline of his favourite joke. Yes. I don't know if you know it. I don't know. Well, I'm not going to say it now, It's a bit racist. Oh, okay.
+
+[00:21:33] You can actually do a non-racist version, I think. Go for it. I'll have a go. So you've been, you're with your mates, you're with two of your mates, and you've been kidnapped by an enemy. And the enemy says, Okay.
+
+[00:21:46] It's from your country. Whatever country you're from. Whatever country are from. Doesn't matter. You've been kidnapped by an enemy from another country. I think we've seen where the racist bit has been seamlessly excised. Good.
+
+[00:21:58] And the leader of the other country says, okay, I'm going to give you two choices. You can either have bunga bunger or you can have death. And the first one says, okay, I don't want to die, so I'm going to choose bunga bonga. And then the second one also chooses bunger, bunger. And turns out this means that they are tortured in a sexual manner and then killed anyway. So the third one thinks, well, I don't really fancy this bunga bunger. So he just says, I'm going to have death.
+
+[00:22:23] And so the leader of the country says, well, death you shall have. But first, a little bunger bunga bunger. It's not a terrible joke It's good Apparently you heard it from Gaddafi Which is always the person Oh yeah But to be honest
+
+[00:22:38] He did tell it much better than you do I love the idea of you just taking a lot of racist comedian sets And reinterpretating that Because I'm really upset that I can't enjoy a Jim Davidson set Or a Bernard Manning But Anna Tashinsky reimagines Bernard Manning That's a good format
+
+[00:22:58] Yeah. Okay, so, okay, that's part of my mind. So anyway, there are these women living in these houses, and they are still there. They are still there at the moment. I think they're in the process of trying to evict them now, and they don't want to go, understandably, because Berlusconi said to them, these houses are yours,
+
+[00:23:14] but they also want Marta Faskina, who was his last companion, who was with him for the years before he died, to leave the mansion where she's been housed, like his mansion where these... Is she called Faskeena? Yeah, yeah. She's got a lot of...
+
+[00:23:28] female fascist, doesn't it? She's got a lot of letters of the word fascist in her name, and she is an MP for Forza Italia. Wow, really? Which was his party? Which is the very right-wing Italian party. So, nominative determinism.
+
+[00:23:43] I only know one thing about... Oh, sorry, do you have more about her? Just that she was left a hundred million euros in his will. But last only was loaded. You never know this? Yeah, we did know that. Oh, well, it was... It was very corrupt.
+
+[00:23:55] I think it was all got through... Oh, no, we can say it now. It's all right, he's dead. Yeah. Although he was acquitted of everything in the end except fraud, so he was completely acquitted of paying underage people for sex and other such things. He did quite a lot of influence in the courts, though,
+
+[00:24:08] and the judicial... I'm not saying... I'm not saying money to... I'm just clearing it for the lawyers, okay? There are no lawyers! Ah! The only thing I know about him is that he left, and his bequeath...
+
+[00:24:23] He left an amazing art collection. He had 25,000 paintings. Yeah. Which is... And it turns out that almost all of them were rubbish, as in... Oh, really? An actual Italian art critic had to look through
+
+[00:24:33] the collection of 25,000 pictures and said maybe six of these are worth anything. And the rest of... And a lot of them, he just bought on, like, you know, those late-night TV shows where it's... No way. Did he really? Yeah.
+
+[00:24:44] Wow. He would just watch and order those things. Wow. That's what a sad man. And it comes with a free salad mixer. It was that kind of level of art. He's become art himself, Belisconi. Yeah, so there was an artist
+
+[00:24:57] called Gianni Motti, who supposedly, this is alleged, went to a liposuction center. He had fat taken out of him, and this artist bought the fat from this center. He then turned it into a bar of soap, and so you could go to a museum
+
+[00:25:15] and you could see a bar of Belisconi fat soap that was just sitting there. And the liposuction center denied that they sold it to this artist, obviously, because it became big news. Yeah, yeah. And the family denied it as well, didn't they? But then the artist said,
+
+[00:25:31] okay, I'll do a DNA test. And they all went, we're going to shut up now. Oh. And they just kind of let it drop after that because I think they know it was him really. Yeah? Guys, knowing what we know about Berlusconi and his Bunga Bunga parties,
+
+[00:25:42] would you feel clean if you'd wash yourself with the Berlusconi fat soap? That's so interesting. I think you're dirtier, if anything. When you've done that. You can't wash away the stains of corruption. Very profound. I don't know if anyone can tell.
+
+[00:26:02] We're moving from interesting facts and comedy into profundities. I've got a few things about other people who've died this year. So Belisconi died this year. One great Brit that we lost this year was, of course, Mystic Meg. Oh, yeah. She was awesome. I love Mystic Meg. She was super famous back in the 90s where I wasn't living here,
+
+[00:26:22] but where she would go onto the national lottery and she would predict that someone, someone's won the lotto and the bulls would be these men, like, she would always talk about the numbers. She'd never say the numbers though, would she? No, exactly, yeah. She would say, make sure to check your numbers if you haven't from the previous week, and someone did that, and they found out that they won. So there were like these few occasions.
+
+[00:26:41] But the thing about Mystic Meg was she used to be a journalist, and she kind of fell into astrology and clairvoyance as part of a gig of being a newspaper editor. And when she set up a hotline for you to call up and get your predictions, it was the number one hotline in the UK. Some places say globally, it was so big that people just wanted to get these predictions. She was massive. And despite being as massive as she was,
+
+[00:27:05] there's virtually nothing that we really know about her personal life. That might change in the next few years. But the two things I could find is, one, someone who went to her house, said that in every single room she had a naked photo of herself framed. And then the second one comes from her. It's one memory that she has from the time that she was doing the National Lottery.
+
+[00:27:24] And this is a direct quote from her. She said, my most vivid memory of the lottery is when I was doing my prediction to camera. And out of the corner of my eye, I saw a naked man running towards me. The security guard caught him inches before he got in front of the camera, painted on his backs with the words, pick my balls.
+
+[00:27:44] The world's oldest dog died this year. Oh. Bobby. He was 31 years and 160. 65 days, which is 220 in human years. Yeah. And there was someone
+
+[00:27:57] at the Royal College of Veterinary Surgeons who said, not a single one of my veterinary colleagues believes Bobby was actually 31 years old. But he was in the Guinness World Records, but I think, generally speaking, people don't think it was him. Quite a lot of the pictures of him have different coloured paws.
+
+[00:28:17] So funny. Hollywood actor, Raquel Welsh, died this year as well. I can't actually remember too much. She was in Bedazzled with Peter Cook and Dudley Moore. There was a famous one, like a million years BC or something. Yeah. I think she was the woman who had the world record
+
+[00:28:32] for kicking male co-stars in the genitals the most out of any actor. Really? On screen. Or in movies or on set? Just in live, yeah. No, it was in movies. I think from memory, I think it was 21 times. Do you think she read scripts and decided based on that,
+
+[00:28:50] just rifling through looking at it? for the stage direction. It was probably in the clause of a contract, must knee, balls at some point, kind of my thing. Because someone who I reckon did probably kick a few co-actors in the balls was Glenda Jackson,
+
+[00:29:06] who also died this year. Did Glenda Jackson die? Yeah, so sorry that you're discovering this now. And also, sorry if anyone's just discovering about Berlusconi as well. Mystic Meg, you should have seen that coming. Glenda Jackson did die, yes. I'm sorry to say, but she was 86,
+
+[00:29:27] but she was so great. I didn't know that much about Glenda Jackson. I feel like she was slightly before our time, but she was so successful as an actress. She got two Oscars, three Emmys and a Tony Award, so like the Holy Trinity of acting things. Then, of course, she quit it all to join the Labour Party and become an MP.
+
+[00:29:44] She had these two careers, one after the other, both, you know, very effective, very successful. And mostly what people say is that she was, was absolutely terrifying. Really? There was, I read, yeah, yeah, she was so... This is why I feel like, you know, she wasn't kicking people literally in the balls,
+
+[00:29:59] but some testicles were shriveling on set with her, I think. There was an interview with her in Vogue a few years ago where the interviewer said she was the most terrifying person he'd ever interviewed, greeting me with the level of warmth, a non-animal lover reserves for next door's cat. Wow. And even Chris Bryant, who's, you know, Chris Bryant, the Labor MP, he wrote her biography.
+
+[00:30:21] and she agreed to two interviews with him, two four-hour-long interviews and insisted during those interviews on sitting with her back to him the entire time. Wow. Maybe it's like you're telling, you're sort of telling your story, rather than telling Chris Bryant your story.
+
+[00:30:37] You're sort of telling it almost to yourself. Yeah. Yeah, yeah, helps you be a bit more reflective. Food for thought. No, that one didn't fly. All right, how about? Dick Fosbury? No.
+
+[00:30:48] The flopper? Really? He died at all? Thoughts for the last time. Oh. Gosh. Doing the high jump. Doing the high jump backwards.
+
+[00:30:58] And when he invented it, the US Olympic track coach said he will wipe out an entire generation of high jumpers because they will all have broken necks. So it was controversial at the time. There is a crash mat, of course, which does help you not break your neck. Yeah, yeah, yeah.
+
+[00:31:14] The interesting thing was that had just been developed like a few years before he came along. And that's why it was of its time because there was a woman called Debbie. Brill, who did it around the same time but wasn't quite so successful. And she did it in Canada, and it was known as the Brill Bend, which I think is better than Cosby. Because Fosbury won the Olympic gold medal, that's why it was named after him.
+
+[00:31:35] 40 years after he won the gold medal in the Olympics, there was a dinner in his honor in London. And Dorothy Tyler, who was an 88-year-old high jumper, around the same time as him, as he was getting his speech, she ran onto the stage, well, ran as much as an 88-year-old can, Went on to the stage, grabbed the mic on him and said, you can't go over that bar head first. It's cheating. You're all cheats. Oh, wow.
+
+[00:31:59] It was 40 years after he'd done it. That's what happened. That's incredible. She was the first British female athletes to win an individual Olympic medal in athletics. And it was at the 1936 Olympics in Germany. And she met Adolf Hitler on that day. And she later said he was an odious little man
+
+[00:32:18] in a big uniform who I probably should have slapped. That's beautiful. Chearing that. Good honour. Finally someone brings that guy down a peg off. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that England footballer Ivan Tony,
+
+[00:32:45] who was suspended for gambling in May, has the middle name's Benjamin Elijah, meaning his initials spell out, I bet. So good. It's amazing. He bet on 126 games in competitions he was playing in, and he bet 13 times on his own team to lose, but he wasn't playing in those games.
+
+[00:33:08] But they banned him for quite a few months, and I think when this goes out, he will be just about to come back. So you're not, I genuinely don't know anything about the rules. You're not allowed to bet on your team to lose, even if you're not playing? You're actually not allowed to bet in your sport at all. In your sport?
+
+[00:33:22] Yeah, that's true in most spots. Well, because you've got so much inside info, haven't you? Yeah. I bet on podcast. all the time. What's the bet? I bet this is going to be a good episode. Even by the loosest definition,
+
+[00:33:39] podcasting isn't a sport, so I think you're all right, Andy. I seem to remember that when I was living in Australia in corner shops where they sold lottery tickets and if you worked at the corner shop, you weren't allowed to do the lottery tickets and friends and family weren't allowed as well, like the scratch cards and stuff.
+
+[00:33:55] Really? Yeah. But of course, the problem is with football, it's entirely sponsored by gambling companies. And so we're expecting these young men to not gamble and at the same time they're wearing names of gambling companies on their shirts and they're being advertised them and stuff like that. So it is a big problem in football right now.
+
+[00:34:12] It is. And he was, I wouldn't say that we think of him as a villain. It's like he's a gambling addict, right? And I think it is an important distinction when he bet on games where his team lost. Is he Brentford? A time of recording, yes. We're expecting to move in there. Okay.
+
+[00:34:28] But yeah, he didn't throw the games or anything. So it is just, he was so addicted to gambling that, you know, he couldn't help himself from doing it. And it is made way too easy, isn't it? I got this quick football thing, which is slightly interesting. The World Cup, Qatar. It was the first time in World Cup history that no British person, as a fan, was arrested.
+
+[00:34:48] Ah. Yeah. Get away. Yeah, this is according to Mark Roberts. What's happened to us as a country? There's nothing to say. They're so shameful. They don't know for sure.
+
+[00:35:00] They think because it's a dry country that might have contributed to the situation. But yeah, no arrests of Brits at the World Cup. Another bit of World Cup history was actually made this year, and that was by Bethany England. She became the first player to play for a country that shares her own name. That's good.
+
+[00:35:23] That's the first time ever? Yeah, so there are people like Alan Brazil. I think there are people with the... surnames of countries that they don't play for, they exist, but this is the first one. Sorry, Alan, are that a real person? That's a very funny. That's a very funny.
+
+[00:35:37] What, is Alan Brazil really mega-famous? Quite famous. I'm sorry, that's a funny name. That's the least Brazilian name I think of a world. Gavin Hong Kong. What does he, is he play football? He used to, yeah. He used to play football.
+
+[00:35:54] They had a very, very, very long football match played this year. the longest football match ever played. Oh. It's weird because often the time of a football match is. Very specific, isn't it? Yeah. Dale. Well, this one lasted for 102 hours.
+
+[00:36:08] Oh, wow. Yeah. That's too long. Did the ref forgot to blow the whistle? Yeah, it was a charity thing. It was in Southampton, and it was 36 players, but there had to be like 11, 11 aside, standard match, and they subbed in and out, and, you know, they were exhausted,
+
+[00:36:24] but they kept going. It doesn't count if you sub in an hour. Well, 102 hours. No, it was very, several days. You can't stop out that much. No, you can't exactly. The final school was 910 to 725. At what stage?
+
+[00:36:39] You know, like, if you're playing actual football. We can catch them. We can catch him. But Captain, these are scar another 250 goals. And there's only three hours left. That's like Roy of the Rover's shit. Yeah, yeah. Oh, my God.
+
+[00:36:54] I got another football fact from the year, but this is American football, NFL. As part of... No, no. Sorry? No. Hence the specific NFL reference. American football, I'm with you.
+
+[00:37:11] So there's a Seattle venue, sorry, Seattle Stadium called Lumen Field. And this year, Taylor Swift, as part of her ERA's tour, she played it. What record did she break at this tour? Okay, well, she's dating an NFL player. She is. Chelsea right now.
+
+[00:37:29] Yeah. So is it something she... No, that would be disgusting. I don't know where you're going with that. I don't even know where... Travis Kelsey is a tight end, if that helps. Oh, right. No, okay, so the previous record was set in 2011 with the Seahawks.
+
+[00:37:49] What did she break this year? So the Seahawks. Biggest attendance at an American Vibble Stadium? No. All right. I don't know anything about Taylorshire. fan, drunkest fan at a man. I thought, no.
+
+[00:38:01] There was a thing where she did a gig that started a sort of earth tremor. There we go. She has set the record for the largest magnitude earthquake caused by fans at a gig or a match in this venue. So in 2011, the Seahawks fans registered 2.0 on the Richter scale and Taylor Swift fans from jumping and yelling and the music combined went to 2.3. So she has the seismic activity record at Lumen Field in Seattle. That's great.
+
+[00:38:33] That's very impressive. Pretty cool. We talked about athletics earlier on. There was a race at the World University Games where one of the Somali competitors finished more than 10 seconds behind the person who came second last. And when you watch the video, everyone runs. And they just sort of like pretty much how I would run. Like just sort of waddle their way down the track.
+
+[00:38:56] And it's very clear. that they shouldn't have been there. And as a result, a Somali sports official was suspended for abuse of power, nepotism, and defaming the name of the nation. Okay, but the amazing thing about this was it was such a good example of that escalated quickly because, so they had this race,
+
+[00:39:15] and then the Somali Minister of Youth said this person was clearly not a sportsperson nor a runner. And then the Association of Somali universities said, actually, We didn't send anyone to that event. Oh. Plot twist. And then the Ministry of Youth and Sports said,
+
+[00:39:35] as far as we know, there's no such thing as the Somali University Sports Association. Oh. Oh, wow. How far does this go? Somalia doesn't exist. Somalia doesn't exist. Right. I found out about a sport that happened this year,
+
+[00:39:53] but that I had never heard of before. It's just like had its standard annual thing this year. Have you guys heard of competitive life-saving? No. This is amazing. Wow. It's a real sport. Wait, wait, wait.
+
+[00:40:06] So the people who don't win, the people die? That's why it's not big. They just can't get the volunteers. No, the Royal Life Saving Society Holder happens every year or two, I think. And it definitely happened this year. And they sort of stage incidents. So your team, you're in a team, that you go into a room, which is either a dry room or it's a,
+
+[00:40:29] a pool or a wet room or something. Yeah, the joy room sounds easier for a start. And you have to react to whatever situation is happening in there, work out what happened. And, you know, an incident has occurred. There is one where the four-man relay where your team have to drag each other
+
+[00:40:44] through the water in a relay. Which sounds really fun. Wait, so you're dragging someone and then they hand me the dragger over to you. They come to life and then you collapse and then they have to... Oh, you become the baton. This is really nice.
+
+[00:40:58] Yes. That's the most Zen relay team ever, is there? Just become the baton. Sorry, Andy. No, no, no, no. Well, I was just looking up where the England team are from around the country, and quite a lot of them are from Crawley. Oh.
+
+[00:41:13] Oh, nice. And, of course, the front crawl is a swimming stroke. Yes, it is, yes. Any from Breastly? No? No. Not that I saw? Not a place, I suppose.
+
+[00:41:24] No. Yeah. Can I just, um... Can I just alert people who don't know to something amazing that happened in cricket this year that I don't feel like got enough attention for its amazingness? Which is, and I'm sure cricket fans were probably aware that this had happened,
+
+[00:41:40] but maybe not how rare it was. So there are 11 ways of getting out in international cricket. And international cricket's been played since 1844, which I actually didn't know. It was between the US and Canada in 1844. So a long time, this year, for the first time, in all of that time, and in 240,000, thousand innings, someone got out
+
+[00:42:01] by the 11th way. Wow. They've been saving it up for that long. Isn't that cool? Andy, what do you reckon it could be? So it caught bold stumped. Yeah, that's it. Leg four wicket.
+
+[00:42:17] Run out. Run out. Yeah, yeah. Obstructs in the field. Unseen tomato on the ground. Yeah. You slip on. Is it like a procedure of that? You're rude to the umpire. It's very similar.
+
+[00:42:28] It's sort of about rudeness. Yes. Okay. What's the one way of being rude that you really hate? Letting your dog poo on the green. Is that it? Andy's cricket matches.
+
+[00:42:44] Bags of dog shit on the stamps. It's the other thing you hate. You do hate it when we have our dogs shit before the podcast, but the other thing you hate... Oh, we'll be late. Late. Late. Late.
+
+[00:42:56] Exactly. Tordiness, really? Timed out, yes. So, so. People, basically there's an amount of time. It's two minutes, isn't it, that you have to step up if you're going into bat? And there was Angelo Matthews who plays for Sri Lanka. And Sri Lanka were playing Bangladesh this year.
+
+[00:43:12] And his chin strap was broken. So it wasn't even really his fault, I don't think. I didn't see it like, but his chin strap was broken. So he was waiting for it to be fixed or for a new one to be delivered. And the bowler appealed to the umpire to say, all right, two minutes is up. Usually you would just ignore it, right? and like some people have taken longer than two minutes before, and you would not appeal because it's kind of a mean thing to do.
+
+[00:43:36] And the umpire even said twice, are you sure you want to, right, you want to get your opponent out this way like this? And the ball was like, yep, don't care how I win, as long as we win. And so the umpire had no choice, had to say, yeah, you're out. Wow, and that's the 11th. That's never happened. Never happened.
+
+[00:43:51] In 240,000 innings. That's the first time. Do you think that was in his head as he was walking off going, I can't believe that's what I'm going to be remembered for all. my entire career now. Yeah. Guys, just because we're running late, I am going to have to move us on.
+
+[00:44:04] Can I just do an initials fact really quickly? Because this was a fact about initials. One of my favourite stories of the year was the man who had to apologise for carving his girlfriend's initials into the Coliseum saying that he'd had no idea at the time that the building was particularly old. Fortunately, her name was IVX.
+
+[00:44:24] Okay, we need to move on to our final fact of the show and that is my fact. My fact this week is that this year we discovered that crocodiles are horny for helicopters. So this is what happens, right? This was discovered in Kurana Crocodile Farm in Queensland. There's a path that goes over this field where Chinook helicopters, Chinook helicopters are those ones that have double rotors.
+
+[00:44:57] that really, it's like a long sausage dog of a helicopter, which has two sets of the rotors spinning around like that, right? So when that flies over... I don't think the Royal Air Force would appreciate that characterization. They're ferocious war machines. Is that the old sausage dog of the army? So these Chinook helicopters would fly over, and in a few cases,
+
+[00:45:21] because they're flying over an area where there's a lot of crocodiles, if they've got people on board that they want to sort of show off, the area to, they might dip a bit low and fly closer and say, look at the crocs. And the guy who owns this farm realized that when this happened, all of his crocodiles got extremely horny and started mating. And out of season, out of the time when they usually would, and it's been a bit of a mystery as to why they're doing it. And so at the moment, as it stands in 2023, we are on a theory level with it.
+
+[00:45:52] There's a few ideas. they think it's emulating either in its tone or changing the temperature of the water when the rotas are pushing down onto the water, they're emulating something that signifies an incoming storm. And basically storms are like aphrodisiacs to crocodiles in Queensland because the areas will flood
+
+[00:46:11] and then the flooding would die down and then six weeks later after you mated, the eggs would be born in a much drier area. Oh, so it takes six weeks to go from mating to laying the eggs. To laying the eggs. So when they feel a storm is coming, maybe when they hear the noise of a storm coming, they're suddenly like, it's sexy time.
+
+[00:46:29] And they have sex so that they can match it to the best circumstances for the eggs to survive, is the theories. I read the paper because there was a scientific paper about it, wasn't there. And they said that that is the most likely. The other option is it could be, they think it's like the mating raw of rival males.
+
+[00:46:46] Oh, so claim you're female now. I think what Dan said is most likely. They said that whatever it is, What makes them horny is the sonorous thump of the choppers. I think we can all empathise with that. So there's no... Isn't your wife a helicopter pilot? That is true fact.
+
+[00:47:13] There's no suggestion in the paper that they confuse it with a sausage dog and that's what makes them horny. I just had another story about an animal, a funny animal story. Oh yeah. And this was also about a chap called Felix Popescu, who is a Romanian surgeon. And he's a Romanian surgeon who has a holiday villa in the mountains. And he was in the city, and he got a call from the caretaker of his holiday villa,
+
+[00:47:38] saying it'd been raided by a bear, and it caused 10,000 euros worth of damages. But what Popescu was most furious about was that he drank all of his alcohol. It was quoted as saying... And stole all of his picnic baskets. Exactly. So he had a load of vodka there and it just drank all of it. Vodka, whiskey, champagne.
+
+[00:48:04] The man said the bear left him without any of them. He had a very good time in my house. Wow. Sounds like you did. That's amazing. I think there's a kid's book in that, like the tiger who came to tea. Yeah.
+
+[00:48:16] Bear who came to get pissed. I think you've lost a lot of the under 10s audience quite quickly. Alcohol fights, actually. Yeah. There's been a new beetle that's been discovered in South America and it has been named
+
+[00:48:30] after Kalsberg. It's the Lunkovilius Kalsbergii beetle. And the reason it's been called that is because its penis looks like a bottle opener. Wow. Oh, wow.
+
+[00:48:44] Could in theory you use it? No, well, the entire animal is only one centimeter long. So it would have to be a very, very small bottle of beer. Of beer, yeah. But yeah, I was reading the report about it,
+
+[00:48:58] and they said that genitalia are the organs and insects that evolve to be different in every species. As such, they are often the best way to identify species. That's why entomologists, like us, are always quick to examine insect genitalia. He protested too much.
+
+[00:49:19] I'm going to have to wrap us up really soon. I've got a little quiz question for you. Oh, good, yeah. Vienna Zoo has stopped giving its animals what this year Schnitzel Very good, Schnitzel Mozart
+
+[00:49:32] Yeah Um Hand jobs James said two scrupulously Viennese things Schnitzel and Mozart Have you? I obviously went to a different bit of the city It was a fun place
+
+[00:49:48] Is there anything related to I bet Alice closest is it. No, it's... Is it type of food? It's no, it's something core to your sense of self. Oh, names. Is this another marine profundity?
+
+[00:50:04] It's names, it's nominous of non-determinism. It's to the oldest zoo in the world. It's called Chernblum. And they used to have loads of animals, you know, they had Ricky the bear or like Susie, the tiger, whatever. She came to tea, didn't she? And they've said it's too personalising.
+
+[00:50:19] They said we should be representing whole species. and it's actually a bit of a false friend to say, oh, this is Anton the Ardvark, you know, because then you think about... You'll think about Anton, you should be thinking about Ardvarks. Oh, really?
+
+[00:50:30] What kind of weird communist zoo is it? No, I respect that. No, I think that makes sense. But then you miss out on things. I read about a pig that ran away in New Jersey who was called Albert Einswine. And then you... Don't give him that name.
+
+[00:50:50] Like, what's the new... Like, you know, the police officers were able to say he was hard to catch because he's very clever, you know? So I was reading another kind of animal mating story. Oh, yeah. And this is another study that's been done this year, and it's about elephant seals. You know, those things?
+
+[00:51:06] They're absolutely huge, huge creatures. Well, actually, they're very differently sized between the sexes. So I think the males are five times bigger than the females. So the males are massive difference. They're not very attractive, are the elephant seals? To us? Conventionally. Like, yeah, like...
+
+[00:51:23] They're quite hideous looking creatures. Go on, but let's all picture them having sex, why don't we? Well, it's basically they indulge in a thing called extreme polygyny, right? Now, this is where small numbers of large males, which are known as Beachmasters... Is that self-designated type? I think so. But once... They can have Harim's of up to 100 females, one male.
+
+[00:51:51] Yeah. And that means a lot of other males get cut out of the equation. Although when a male gets to having a harim of 100 females, they might take on a younger male as an apprentice beachmaster. That genuinely happens. And so only about 4% of males become beach masters. That's when they can have sex. Yes.
+
+[00:52:09] And they might have a smaller harim, you know, but the beach masters are the very successful ones. So they're not beachmaster baiting until they're allowed to get to be. Sometimes the steel jaws closed and you realize you're in a trap. You have no idea. Amazing. No, but so this is the thing, because being big as a sign of success for them, and it's sort of like a positive signal for them for mating,
+
+[00:52:27] they compete very fiercely to gain weight with other male elephant seals, and they forage at sea in areas which are really dangerous, because those are the bits which have a bit more food in, but they also might contain sharks or killer whales, both of which love to eat elephant seals. And it seems like the male survival rates drop rapidly after they're about eight years of age, which is when they're sort of looking for mating.
+
+[00:52:49] So in a very, very rare example of something in the animal kingdom not doing well, not because of human interaction or interference, it's basically they're dying solely because they think it'll increase their odds of mating. Because they think the bigger the better. So they just do absolutely anything they can. They go anywhere to the most dangerous place in the world for them to get more food. Stuff their faces.
+
+[00:53:09] Yeah. I don't know if bigger is sexier in elephant seal communities. I know we've established I don't find them attractive. But if a male is five times bigger than you, I probably wouldn't fancy someone who was 20. 25 foot tall. I think there is that in humans. Like, just to, what is it called?
+
+[00:53:24] It's called super... I forgot what it's called now. I don't know. But it's the fact that animals sometimes, the one thing they find attractive, if you make it a million times more, then they do find it way more attractive. Supernatural selection.
+
+[00:53:35] Something like that, yeah. And it's the, like, a goose likes an egg, but if you give it a volleyball, it loves it. Yeah. And the idea being, like, sometimes if you see, like, a model with enormous fake breast, then humans think that that's attractive
+
+[00:53:51] even though it's unnatural. Right. Okay. So, yeah. Supernatural selection sounds like falling in love with a ghost. Yeah. Yes, and that's why natural selection is not going to be kind to you in the long time.
+
+[00:54:11] We do need to wrap up very, very soon, yeah. Anna, you feel like you want to say one more thing? I felt like you looked at your paper. Oh, I glanced down. was just going to rant actually about another animal naming thing, which is that they're renaming all of American birds next year. Sorry, all of American birds that are named after people. So the American Ornithological Society has decided to change the name of all bird species
+
+[00:54:32] named after people as of next year. Because a lot of the ones named after people, they're quite controversial people. Were they racist? Were they not? It's quite a lot of effort finding out whether all of them were or not. So why not just rename everything? And I was all pro this. I thought it sounded like a really good idea until I realized. of course, the Anna's hummingbird.
+
+[00:54:52] Oh. Yeah, but you did tell that bunker bunker joke earlier. That is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland, James.
+
+[00:55:22] On Instagram, no such thing as James Harkin. And Andy. Andrew Hunter M. in a range of places. And Anna, how can they get... through to us as a group. You can get in touch with the podcast by emailing podcast. At QI.com or tweeting at No Such Thing. Yep, or you can go to our website where you can find all of our previous episodes.
+
+[00:55:44] You can find a link to Clubfish, the secret membership society that we have. Very exciting place. Lots of extra fun places that you can find like Discord, drop us a line as a show, there's compilations, all sorts of fun things. We're going to be back again with another episode next week. We'll see you all. Thank you so much, Soho. Goodbye!
+
+[00:56:03] Thank you.

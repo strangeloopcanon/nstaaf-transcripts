@@ -1,0 +1,179 @@
+# No Such Thing As A Fish - 155: No Such Thing As Hurricane Schmurricane
+
+- Episode date: March 10, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/155-no-such-thing-as-hurricane-schmurricane
+- Slug: 155-no-such-thing-as-hurricane-schmurricane
+
+## Transcript
+
+[00:00:30] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast. This week, coming to you live from up the creek in Greenwich, London, my name is Dan Shriver, and I am sitting here with Anna Chazensky, Andrew Hunter Murray, and James Harkin. And once again, we have gathered round the table with our four favorite facts from the last seven days, and in a particular order, here we go. Starting with my fact. My fact this week is that scientists can now predict when someone is going to fall over. Three weeks before it happens.
+
+[00:01:09] These are scientists who have been studying Miranda. This is, this shockingly is true. So what they do is they notice, obviously it's a problem that a lot of elderly people fall over and that leads to a lot of problems. So they've been studying it, and what they've realized is that you can actually spot the moment when a fall is going to happen due to the speed that someone travels at. So what they've done is they put cameras into this, into a house, and they've monitored someone walking and they've noticed a speed change that happens.
+
+[00:01:39] And when the speed change happens, it means because something is deteriorated inside the body. So it means that they walk a lot slower. Therefore they predict, and they've shown from these studies that in the subsequent three weeks, a fall is going to happen. So robots are now monitoring old people to see if they're changing speed, and they're like, they're down by like 0.5 miles an hour, set the text, and you can stop them from falling over.
+
+[00:02:01] Well, and then as the granddaughter or whatever, you have to go to the house immediately and stand there in front of them with your arms out at all times to capture them. It does sound like the old people are falling over in slow motion, isn't it? I've watched you've been framed, and that's kind of what happens. Is that amazing? It's incredible. If your stride length, so the other thing it can measure, actually I'm not sure how they do this with the sensors that they install, but if your stride length changes by just
+
+[00:02:32] about seven centimetres, that can be detected, and that also is a strong indicator that you're going to have a fall within the coming few weeks. And to illustrate how effective it is, because it is unbelievable, if your walking speed decreases by 5.1 centimetres a second, you have an 86% chance of falling over within three weeks compared to a 20% chance if your speed hasn't decreased that much, which is an unbelievable difference. Is there just huge change that suddenly happens? And I think the idea is that you get these robots in people's houses, and it means that
+
+[00:03:06] they can kind of hang out a lot more without people looking after them, right? Yeah. They're not actual robots, are they? Well, I mean, what is a robot? Well, like, hello. How are you? That's an android. An android is human-shaped, whereas a robot is just anything that's robotic.
+
+[00:03:21] Yeah. If I bought, like, I was like, my best friend is a robot, and he arrived, and it was like a camera. Do you know what robots they use for older people, actually? No. One robot they use is Paro, who's a seal. And so Paro was built in Japan, and it's a little seal, which is robotic, and it responds to, like, being hugged and being spoken to, and the creator of this little robot seal
+
+[00:03:50] is called Takenori Shibata, and he chose it because he said people are unlikely to have unhelpful memories of real seals. So it's not going to freak anyone out, because Paro people have been assaulted by a seal. Like, just one person who's, you know, lost a hand to a seal. So there is a... It's Buster, so it's a secret, so it doesn't matter. It's a developmental mind. There are British researchers currently teaming up with Japanese, I've written Japanese robots,
+
+[00:04:20] they're teaming up with Japanese researchers to use monitoring robots, and they're trying to install cultural differences, and one of the reasons that they're doing it in the UK is you have a lot of people from a lot of different cultures living here. One of the researchers said the following, I think she was Greek herself, she said, a robot might be taught not to try and cheer up a Greek woman whose husband died months ago, because Greek widows are expected to be sad for at least a year. Wow. So it's time installing the cultural sensitivity.
+
+[00:04:47] That's very good to know. Whereas I suppose in other cultures the robot will just say, come on, cheer up, you know. But it instructs them to stay depressed if they're Greek. Can't help but notice you smiled a second ago. You know, you've lost your husband. In a footprint. Just on falling over. This is an experiment that you might not have seen.
+
+[00:05:19] It's fantastic. It's an experiment on penguins, which put penguins on treadmills. And it's fantastic. So penguins have to strike a balance, right? Because they have to go a long time without food, because they're feeding their young and they're foraging for their young. So they lose a lot of weight during the period where they're hunting. So they need to put on as much weight as possible.
+
+[00:05:44] But if they put on too much weight, they become completely in agile and predators will catch and eat them. And so that's no good for the young either, obviously. So the scientists from the University of London wanted to test, you know, the sort of relationship between weight and walking speed. And this team just put them on treadmills and didn't feed them for hours and days, in fact. No, they're used to it. They're fine. They didn't feed them for two weeks.
+
+[00:06:10] Put them on a treadmill. And some of the penguins started cheating, right? So there's a treadmill and then there's a little hood over the treadmill, okay? So that they're in the same place all the way along. And some of the penguins just leaned against the back wall of this canopy and sort of water skied along the treadmill. No way, really! That's the thing about penguins is, is it not, there's a, I think it's a myth,
+
+[00:06:39] but in the Falkland Islands supposedly planes go over them, fly over them, and they just look and look and look and look and then fall over. No, they debunked it just very recently. They did a study where I think people went out to film them and they sent planes over and they looked up and they were like, I was playing. And then they were all good. Yeah, no, they don't actually fall over. But the discovery that penguins can talk really trumps.
+
+[00:07:04] The undiscovery. Yeah, there's a lot of quotes going, well, is that Emirates? So another thing that is done in old people's homes, another thing that's done in nursing homes is installing therapy animals sometimes. So to make people feel better. And there's one particular therapy cat called Oscar who's been adopted in a nursing home in Rhode Island. And it's quite confusing the reasons why he was adopted
+
+[00:07:32] but apparently he's generally unsociable. But his one skill is, bizarrely, he can tell when someone's about to die. So the only time he goes near someone is when they are about to die. He's the most terrifying cat. And if he's so, he'll just suddenly run to somebody's room and sit on their bed and then if he's removed, then he'll scratch on the door, scratch on the door until he's let back in again. Is he, is he killing the people?
+
+[00:08:07] All the mysterious cats. They're always dead soon with claw marks all over them. He's detected over 50 deaths and it's within hours. So, I mean, it's very strong. This is a book that's been written by a doctor who works at this nursing home and they think maybe he's detecting ketones which are the chemicals that you release, chemicals that dying cells release. So there is a very subtle change in the chemicals.
+
+[00:08:35] He is in an old people's home though, isn't he? Like a lot of these people are going to die at certain times. I'd like to see him put in a football stadium. So have they, what's happened to the cat? Is he still there? He's still there because he want to know, don't you? He's under your seat. But that can't be, that can't be good for the morale.
+
+[00:09:05] Phew. Wow. Where is the home, sorry? It's in Pittsburgh and you're scheduled to go next week. Do you know why we don't fall over in terms of our body and the balance? Do you know why we don't fall over? What are your feet going the way? So yes, it is our legs.
+
+[00:09:24] Thank you very much. There's a thing and I've not actually, I read it earlier, I didn't write it down. So I'm freestyle in here. There's a thing in our ear which everyone thought was a balance making thing. Otolith. Thank you. The otolith which was meant to be a thing that just gave us balance. I guess kind of like when you're measuring a door and you have that little thing in the middle.
+
+[00:09:49] Spirit level. So you have a spirit level thing, a otolith, and everyone thought that that's what was keeping you up. But it turns out they did an experiment and they worked out how to shut that off so that it wasn't, in the humans that they were testing, that wasn't playing a factor into it. They managed somehow to just turn off the switch, I think there was a switch and they just turned it off. And what they noticed was the calves of a human is what actually provides the balance. It's not the feet, it's not the, that bit in between the foot and the calf. It was...
+
+[00:10:28] I really want to make this a little bit right now. Okay, because you can't see this but Dan is saying calves but he's clutching his thigh. Where the fuck's the calf? That's your calf. We can move on to an experiment. Where did you, where did you think your thigh was? I posed the front there. Dan, unfortunately for you, I also read about this experiment and I did write it down.
+
+[00:11:10] Because we do a factual podcast. That is right. We do need to move on to our next fact, should we do that? Can I tell you very quickly one more thing about walking? Of course. I think that elephants can't run. Oh yeah? Yeah.
+
+[00:11:35] So they, well they can run with their front half. This is kind of amazing. With their front half they can... They run with their front legs but not with their back legs. So what happens when we run is our centre of gravity starts bumping up and down and that weighs energy. So what elephants do is they start trotting along with their front legs to speed up their movement but they keep on walking with their back legs. So they make that longer and longer and longer.
+
+[00:12:01] Like a slinky. You've all seen the sausage elephant. It's true. Their centre of gravity stays a constant height from the ground which most things doesn't. So they only run with half of their bodies. That's my fact and it's as true as yours. Let's should we move on to our... Okay it is time for fact number two and that is James.
+
+[00:12:29] Okay my fact this week is that when he became president Lyndon B. Johnson installed a special shower in the White House that fired a jet directly at his penis. But he became president after the assassination of Kennedy. He did. Yeah but he was saying that was a bit tasteless. It depends how long after he became president I suppose. If immediately after he was sworn in he said right let's sort out this shower penis. He wanted it as well to have the sort of the force of a fire hose.
+
+[00:13:03] That's right. He wanted a needle like intensity which was the equivalent of a fire hose. And he had lots of jets especially one up his bum and another one directly at his penis. And the jet which went directly at his penis he nicknamed jumbo. Which is weirdly exactly what he nicknamed his actual penis. And that's true he did. Really? Yeah.
+
+[00:13:30] But I think in the UK it sounds more of a sort of audacious thing to name your penis because I have a lot of American friends who they're just like they have names. They're like meat jumbo. Like it's meat meat. What do you say? Cans? You say that's normal for your American friends. This is also something that LBJ was kind of known for. So there's a guy called Robert Carrot who was writing a five volume biography of him.
+
+[00:14:03] He's 18 now. He's done four volumes. He's working on the fifth. Listen to this. This is about LBJ. He early became famous for a Rabilasian earthiness. Urinating in the parking lot of the house office building as the urge took him. If a colleague came into a capital bathroom as he was finishing at the urinal there
+
+[00:14:19] he would sometimes swing around still holding his member which he liked to call jumbo. Looting once, have you ever seen anything as big as this? And shaking it in a brandishing manner as he began discoursing about some pending legislation. He genuinely, I can't believe that we've only found this out. Like we've been looking at presidents for ages and suddenly it's like okay LBJ just took his penis out a lot and he would do it in public in front of any reporter that was chatting to him. His inauguration speech actually was sad. Yeah.
+
+[00:14:52] He's much better attended than Trump's. Because he'd go with you. No, it's the biggest. I don't know Mr. President. The photos don't seem to say anything. It was cold. It was raining. So he would take it out while the journalists were sort of talking to him famously
+
+[00:15:15] and this is a bit that obviously they just keep having to hide these moments because we can't report on this. They asked him about the Vietnam War and they were like, tell us about it. Why are we fighting with Vietnam? His response and I think it's because he was like, I don't quite have an answer. He unzipped his trousers, he pulled out his penis and he held it at them and he went, this is why. Isn't it amazing that presidential press conferences have got no better since then? He did used to frequently ask Aids to join him in the lavatory, didn't he?
+
+[00:15:51] So when he was giving them briefings or when he was just hanging out with them. So men and women as well, one of his Aids, Doris Kearns Goodwin said she often accompanied him into the bathroom because he needed to take a pee but he also wanted to continue talking. And she recalled that the security advisor, when he joined, he complied really reluctantly and he stood in the furthest corner away from Johnson while Johnson was urinating, understandably, with his back to him and the president said to him, come closer, come closer. I don't know if it was in that tone of voice. But then, funding complied and came closer and Johnson later remarked,
+
+[00:16:30] I thought he was going to sit on my lap. Hasn't that guy ever been in the army? And I don't know what any of that really means. So weird. So he had a lot of affairs, LBJ. Also, all the people in his family had the initials LBJ. No. Yeah, his wife was called Lady Bird Johnson.
+
+[00:16:50] Her first name was Lady? No, her first name was Bird. Sorry, Lady Bird was her first name Lady Bird. Well, it kind of was in a way. Like when she was a kid, they called her cute as a Lady Bird. They're not sure if they meant Lady Bug or whatever. And then she was known as Bird throughout her whole life. And then when she became a first lady, she became first Lady Bird.
+
+[00:17:17] Carry on. So he did have a lot of affairs. He used to be very boastful about it, actually. And I think he got quite annoyed that JFK had a bit of a reputation for being a womanizer in his time. And apparently, whenever anyone mentioned Kennedy's multiple affairs, Johnson would bang the table and declare that he had had more women by accident than Kennedy had had on purpose. I don't know what that means either.
+
+[00:17:45] Jumbo has a mind of his own. When he wanted to install the shower into the White House, he was questioned about it and they said, you know, why would we do this? And he said, if I can move 10,000 troops in a day, you can certainly fix the bathroom in any way I want. And then it was a complete waste because as soon as Nixon entered the White House after him, he took one look at the elaborate setup and said, get rid of this stuff. I like to think he took one shower. It blew his cock off.
+
+[00:18:22] The shower did get reviewed by people other than LBJ. I thought you meant like on Tripadvisor. Blueback cock off one star. LBJ, by the way, he was in, by all accounts, a dickhead. In just like, you know, he would make people come in while he was having a poo to sort of tell them what he wanted to do. But he also did a lot of prints, which were quite exciting. We had mentioned this ages ago in the podcast,
+
+[00:18:53] he had a car that was an amphibious car. So it's a car that can drive on the road and then go into a body of water and still work. A sort of boat all of a sudden, but it's still the car. So what he used to do at the White House is he used to drive people around in the car and he would be talking to them. And in the White House property, there's a bit of a lake. It's a tiny bit of body of water where you can go and just hang out. And he would drive the car down suddenly down the hill
+
+[00:19:22] and then he would pretend that the brakes had broken on the car. And he'd go, oh no! And he would freak them out and then they'd hit the body of water and then just become a boat and then high fives all around. But that was a thing he did while he was president, you know. Do we have amphibious cars? I do not believe we have those that switch quickly enough for that practical work. Have you never been on a duck tour?
+
+[00:19:47] Yeah, I think it takes like 45 minutes for them to do the transfer from road to river. Does it? I don't know, I have never been on a duck tour. Okay, it is time for fact number three and that is Andy Murray. My fact is that rejected names for British storms include Baldrick, Noddy, Megatron,
+
+[00:20:10] and Branch Wobbler. Why? Someone that shouts. I was going to tell you all along. We've just had a big storm in the UK and this was a piece of wire about storm Nomenclature. The Met Office started naming British storms in 2015 and the rationale was you sort of have a better handle. It's a bit confusing when someone says that a large weather system or a storm is on the way, it's a bit vague, whereas if you pin a name to a storm,
+
+[00:20:44] it makes it a lot more concrete and you know, and the idea is easier to prepare for. So they've been doing this in America with tropical storms and hurricanes and things for decades. So we've got names for our storms and the Met Office in their wisdom asked the public to submit names. So there were things. One of the rejected names was Ena T Cup. Oh, right. There were other rejected ones.
+
+[00:21:13] Big Boss, Vader, Voldemort. My favourite one was, and I think this was for a hurricane in the state. This was from someone called At Yieldal Thelcon and he wanted to call it Shmarukane. So you'd be, Hurricane Shmarukane. They're usually named after people, aren't they? It's usually names. So what was the one, Doris?
+
+[00:21:35] So we just had Doris. Doris, yeah. I quite like the idea of Gale. And is that one that's been accepted? No, no, they didn't accept it, but it's a good one, isn't it? A few others, like, what was the one you said, Branch Wobbler? So some of the things like that, Leaf Shaker, Leaf Stripper and Ripper. That's good.
+
+[00:21:54] And also I quite like someone said we should call a storm King Henry V. Why? I don't know. I've gone through Northern France during the Hundred Years War. So do you know the first person who started to name weather events? No. No. This is a guy called Clement Lindley...
+
+[00:22:15] It was Welsh. Okay, okay. What storm? Right. The first person to name weather events was a guy called Clement Lindley Ragh. This was a British guy in the 19th century who lived in Tasmania. He was a meteorologist and he decided to name storms to make them more memorable. But he named them largely after politicians so that he was able to say the name of a politician he didn't like
+
+[00:22:44] and then follow that with things like causing great distress. So, you know, you say David Cameron is causing great distress on the coast of Cornwall and, you know, George Osborne is wandering aimlessly about the Pacific. And Michael Gove is blowing people all over the place. So they named storms only after women for a long time. Yeah. And that was sort of to be very misogynistic because the idea was the people who did it was in the 19th century and it was because women were similarly unpredictable to the
+
+[00:23:23] weather. And then there was, they changed it eventually, thankfully, there was a women's rights activist called Roxy Bolton, which is where I spent a lot of my teenage years. But she suggested replacing the word hurricane because it sounds a bit like her cane to him a cane. So there is a theory that this is a 2014 study and it's a bit controversial. It's a theory that hurricanes in America with women's names have higher death tolls than those with men's names because people think, oh, it's only Cindy or whatever it might be,
+
+[00:24:01] as in they think, oh, I don't need to worry about hurricane, you know. Is that actually what they think? Yeah. Well, yeah, it's, it's, but it is controversial and it is a theory and it does include all the data from, I think, before the 70s when hurricanes only had women's names. So it seems a bit dubious to me. Yeah. Do you know what Roxy Bolton said in her defense of hurricanes being gender equal?
+
+[00:24:30] She said, women are not disasters destroying life and communities and leaving a lasting and devastating effect, which I think that would be so cool if we were. But then she did immediately suggest naming them after senators. That was her suggestion. She had an extra grind. It's good that they brought in the names. In the olden days, you would just call the names sometimes after a saint's day or some other things.
+
+[00:24:57] In Ireland, they had one very big, it wasn't a hurricane, it was a storm, but they called it the night of the big wind. But it was such a severe storm, a lot of people thought the end of the world was happening because it happened on the epiphany and they thought that maybe this was judgment day or whatever. And it was so famous in the time. In 1908, they introduced pensions into Ireland and they, a lot of people didn't have their birth records.
+
+[00:25:24] And so the way they would tell how old you are was to ask you if you remembered the night of the big wind. Wow. You know, there's a theory. It's no longer believed, but back in the day. Wind was created because... By time travellers. All the wind and all the songs were created because of trees waving their branches.
+
+[00:25:53] So they were waving that and suddenly winds were being created. That makes complete sense. I think as a child, I think, you know, that's a natural thing to think, right? Because it's windy and there are trees moving. And do you think maybe this comes from... Do you think, like, oh, this wind is caused by my hat falling off or something like that? There is a possibility that that's not a theory and it's actually a poem by Ogden Nash. But it's also a line in the Terry Pratchett book, you might be thinking of that.
+
+[00:26:25] I'll ignore the whole last minute. What I find amazing is with weather, obviously, it's all this kind of butterfly effect and chaos theory and stuff like that, that the tiniest little thing can cause massive weather systems. And so that means that weather forecasters, actually, they say that they cannot predict any weather at all for 14 days. Anything over 14 days, it's completely impossible. Wow. But we can predict that all people are going to fall over for three weeks.
+
+[00:26:54] But they often fall over when it's windy, so I assume that all people create the wind. We should move on to our final fact. I have a quick thing just about asking the public to name things. So a couple of years ago, Greenpeace had a competition. They wanted to name a whale to raise awareness of wailing. They wanted to limit Japanese wailing efforts and so they picked a whale and they said, please submit your names. And the finalists included things like kaimana, which is a Hawaiian word, which means power of the ocean.
+
+[00:27:28] There's a word shanti, which is Sanskrit for tranquility. And there was a huge amount of voting. And after all the voting had ended, the winner was Mr. Splashy Pants. And it absolutely crushed the others. Not more than 78% of the vote. Next was Humphrey with 3%. The other top ten got less than 1% each. They're still out there swimming around.
+
+[00:28:02] Mr. Splashy Pants. Okay, it is time for our final fact of the show. And that is Juzinski. Yeah, my fact this week is that books or crabs use C anemones as boxing gloves. And I don't know why I chose this fact because I can't pronounce the word anemone. I actually think if we all just say anemone, right, I've said it. Anemone. I'm just saying...
+
+[00:28:38] Anemone. This is actually a really interesting fact, guys. I was thinking with my editor's head on, I've said it once, so I can snip that in every single time. I know we're going to get wrong every single time, aren't we? So what is it? So this is incredible. This is boxer crabs, or they're also known as pom-pom crabs.
+
+[00:29:01] And they use... They're known as pom-pom crabs. But the obvious reason that on their two front claws, they always have two C anemones. And they... So C anemones are often poisonous to other fish, even though they're not to us, they have poison cells in them. So they use these to ward off other fish,
+
+[00:29:16] and they just wave these anemones at other fish to make sure they go away. But the thing that they've discovered in the last few weeks is that if a boxer crab loses one of the anemones off one of its claws, it will tear the other one in half, and they reproduce egg sexually, so effectively the crab is cloning the anemone, the anemone, and it shoves that anemone onto its other claw. So it rips it in half, shoves it onto its other claw,
+
+[00:29:41] and they think this is one of the main ways that this species of anemone reproduces... It's insane. It's like the equivalent of, like, fighting Mike Tyson, knocking a glove off, him ripping a glove in half, and then growing into a falling boxing glove in front of your face. Except that it's a live species that is doing it. So it's like if Mike Tyson was boxing you and he's got cats.
+
+[00:30:04] So it'll end himself, and he just rips a cat in two and it grows another into a cat. The other thing this crab does, if it wants to eat, because it can't put them down, because it constantly has to be holding these two anemones for its defence, but sometimes it needs to eat, so what it does is it just leans over to some food and wipes the anemone along the surface it wants to eat from.
+
+[00:30:28] So it's like the cat makes up food for you. So what it's like is holding a cat in your hand and then dipping it in some soup and then sucking it off the cat. The other annoying thing for the anemones is that the crabs starve them to an extent because if they're allowed to eat the normal amount that they would eat, they'd be too heavy for them to carry on their claws,
+
+[00:30:51] so the crabs really control their eating, like a horrible dietitian or something, to make sure that they remain light enough for them to carry. What is a tough gig? What also happens is that say you're a crab and you've only got one anemone, and then you meet another guy who's got two of them, then you can fight him to get one of them off him.
+
+[00:31:14] No! Now say you have three of them and one guy's got none, they'll keep fighting and then they'll rip them apart and rip them apart until it doesn't matter what the number of crabs is, they'll keep doing it until everyone has one on each arm. Yeah, it's incredible. It's weird that they fight though, because all the fights end up with the guy who had two,
+
+[00:31:33] he then only has one and he says, okay well I'll just rip mine in two, now I've got two. But they have this weird little wrestling match, saying oh I want one too. Are you saying they should just distribute it at the start? Go, how many of us are we? Okay we need double that, I'll cut them up. Exactly, yeah, it's very bizarre.
+
+[00:31:50] Maybe it's flirtatious though, because a lot of crabs use their claws to flirt, so one of the most famous examples is the fiddler crab, and the fiddler crab looks so cool because it really does just have this one claw, which is enormous in a different colour as the rest of its body, so it's often like blue or yellow, a really bright colour, and the way they seduce is they just wave,
+
+[00:32:11] and so they give a lady a wave when they're a distance away, and then as the lady gets closer, they then start using their claw to vibrate, I think, and they vibrate the ground with their claw, and scientists are saying it's like morse code, as in they're communicating with their vibrations, but basically what it does is, if the longer they can vibrate, and the harder...
+
+[00:32:34] That's who we're going with this. The more stamina they have, and so women think, yeah this guy can last. It's weird, it's not called the rampant crab, isn't it? So I started looking into other animals that use other animals to attack. So animals that are like, I now have a weapon and it's alive,
+
+[00:32:55] and I was very surprised by finding out that dolphins do this as well, not just the box of crab. So what do they use to attack? Sea snakes. Really? How would they do that? This is extraordinary, so dolphins will find a sea snake, and it will bite it on the midsection, and it will drag it immediately
+
+[00:33:15] and plunge it into a school of fish. All these things need to be very close to each other as it happens. They grab it and they bring it through, and the snake is freaking out and it's biting things as it goes along. So what it does is, as it shoots into the school of fish, the snake is biting all these fish and killing them as it goes, and then the dolphin releases the snake and heads back and finds the booty. Wow, that's really cool.
+
+[00:33:36] Yeah, is that extraordinary? And then there's this other thing that I read about, which is called the Indiana Jones Octopus. I've renamed it. It's actually called the Blanket Octopus, and it's an extraordinary octopus, and it's got webbing between its tentacles. That's very rare, but it uses it so it can sail through the ocean,
+
+[00:33:55] which is quite exciting. It takes the tides and just kind of goes, but it's immune to the Man of War jellyfish. And what it does is it grips it with a tentacle, and when it's going up to a prey that it wants to eat, it whips it like a whip at the thing, so it will go, and it will hit it, poison it and kill it,
+
+[00:34:16] and then they'll die and they'll eat it. So there are Indiana Jones-style octopuses in the ocean, whipping stuff to death. That's incredible. Why is this not on D, but Edinburgh's Planet Earth? Why haven't we not seen that guy? That's unbelievable. Crabs are quite romantic in lots of ways,
+
+[00:34:32] so their mating is. Most crabs can only mate when they've molted, so when they're out of their skin and when they're soft and vulnerable, and then they... Yeah, exactly. They have both literally made themselves vulnerable to each other. They take their clothes off. And they take their clothes off.
+
+[00:34:48] That's so nice. So they meet, the first thing is they meet, and then they hug each other for several days, and then they molt, and then they mate. I don't know, you say that is romantic, but being hugged for several days... Yes. ...is one of them going,
+
+[00:35:04] Oh! Yeah, okay. That definitely sounds one-sided. We need to wrap up very shortly, so do you guys have stuff you want to say before we do? I really got distracted by lobsters when researching this, which are like crabs, but more fun.
+
+[00:35:20] So just really quickly, just on crustaceans fighting. So lobsters, I didn't realise, all hate each other. So if a lobster comes across another lobster, then they'll start fighting. That's why lobster nets aren't that effective, because as soon as one lobster's in there, it fights off all the other lobsters that try to get in.
+
+[00:35:37] And what happens in the lobster... This is my safe space! I'm king of this enclosed prison! Nothing can harm me in here! So what there is in every lobster community, there's a dominant lobster, and what he does is every night, he goes out around the other male lobsters' houses,
+
+[00:36:03] and he beats them up just to show... just to show that he's the main lobster genuinely. And the women are really turned on by this, and the women try to seduce him, because they're like, he's the dominant one. But as Natural Geographic said, the problem when the women go to his door and knock on his door and say,
+
+[00:36:19] I want to mate with you, you're the dominant lobster, is he just wants to beat people up all the time. So he's not that interested in sex. And so what the female lobsters do is they release a pheromone, so they urinate out of their eyes, which lobsters do. Well, then it's much more romantic, but not crap, guys.
+
+[00:36:37] This releases a drug into the male lobster layer, which relaxes him, and then means that he's ready to mate. But I just think they're amazing. I can't believe someone urinates out their eyes at you, and your first thing is, I'm now so relaxed. I'm ready for sex entirely, yeah. Netflix and urine out the eyes.
+
+[00:37:01] I'm gonna wrap up. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy. Andrew, I'm to Ed.
+
+[00:37:16] James. At H8. And Anna. You can email podcast at qi.com. And you can go to our mutual Twitter account, which is at qipodcast, or you can go to our website, and know such thing as a fish.com. Thank you for listening at Homes.
+
+[00:37:30] Guys, thank you so much for being at our third birthday party. This has been awesome. We will see you again. Thank you.

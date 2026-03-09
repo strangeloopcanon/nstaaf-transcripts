@@ -1,0 +1,209 @@
+# No Such Thing As A Fish - No Such Thing As Michelangelo's Snowman
+
+- Episode date: October 30, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-michelangelos-snowman
+- Slug: no-such-thing-as-michelangelos-snowman
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast. This week coming to you from the Brighton Comedy Festival. My name is Dan Schreiber, and please welcome to the stage. It's the three regular elves, Anna Chazinsky, James Harkin, and Andy Murray. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James Harkin. Okay.
+
+[00:00:53] My fact this week is that in 1511, the people of Brussels protested against the government by filling the city with dozens of pornographic snowmen. Is a pornographic snowman? There's a snowman that's not wearing a scarf? Yeah. Yeah, how did that work? Well, I can tell you about the snowmen themselves,
+
+[00:01:17] because they have been described. There was a snow nun who was seducing a man. there was a snowman and a snow woman who were having sex in front of the town's fountain and a snow naked boy urinating into the mouth of a snow drunkard how do they do it like because they must have
+
+[00:01:37] when a male snowman and a female snow lady love each other very no I know what you mean yeah yeah because is it like oh this is a lovely looking snowman and then a final little things added and suddenly or a big thing it really depends on the snowman Yeah. I don't know how you... It's cold. I'm sure it's not going to be big. Yeah, so...
+
+[00:01:56] So actually it was kind of a tradition at the time or it was a few people did it and then everyone kind of took over. It's known as the miracle of 1511. It had been really cold for like six weeks in Brussels, very, very bad weather. And there'd be massive population growth in the city and there was a big wealth discrepancy
+
+[00:02:15] between the peasants and the Habsburgs who were in charge. So everyone was generally pissed off with the government and they thought, well, how can we get our point across? Well, the only way to do it is to make a snowman. But I don't know how you could do two snow people having sex because snowmen are just... A snowman is just a ball of snow and then a smaller ball of snow and then a... Yeah, I think these were like a bit more...
+
+[00:02:36] They looked more like statues. That's very good snow skill, though. I mean, I can't do that kind of... I don't know, I've never tried. Maybe everybody can't. You could do the snow bowls, that would be okay. For the pre-curfew snow sculptures. several snow people were involved
+
+[00:02:52] in a tableau satirising the edicts handed down by the local government which I think sounds like a very complicated snow sculpture given the three balls on top of each other we come up with now they had snow unicorns and snow mermaids and a snow dentist not even joking
+
+[00:03:09] there was a word they had tooth quillers back in the day so that was what they had and apparently busty snow hookers enticing people into the red light district so it serves a purpose as well as protesting the government, you know, it can help local industry. Brussels seems to have very creative protests.
+
+[00:03:26] I was reading, I think it was just this year that they were protesting against the government. It was the farmers. So the way they protested was they were lined up against riot police, but they brought their cows with them. And then they squirted direct from the udder cow milk at the riot police. And there's all these photos of riot police with their shields going, and these guys going, whoa, it's the weirdest-looking protest. Yeah, so, okay, so in Brussels,
+
+[00:03:50] around the time, they had all the different classes, the class system, and all the different classes had their own kind of snowman. And so if you were like a poor person, a peasant, and you saw a posh snowman down there, you'd attack that snowman. Wow. Yeah. And the magistrates got involved,
+
+[00:04:05] and there's court cases. How can you tell if a snowman is posh? I know. Maybe the carrot comes from waitrose. I don't know. You know, you can buy off eBay, a melted snowman, and that involves a bowl of water with a carrot and two blueberries in it. Buy it, 99P is the starting price.
+
+[00:04:27] And the finishing price. Also, snowman building kits you can get now. So you have a snowman building kit which just says on the front, just add snow. And there are loads of these. So to make a snowman the best way, this is from an article on the Smithsonian website and they interviewed a physicist at Rhode Island College
+
+[00:04:45] and his name is Dan Snowman. ever refer to it throughout the article. They just very politely, don't make any gags. And so he says that, for one thing, he says that you can make upside-down snowmen. But he said, I just thought you'd like this, and they are as rare as Sasquatch sightings. And there's probably never been one.
+
+[00:05:07] But anyway, the way you make a snowman is there are five types of snow in terms of moisture, and they are technically named, dry, moist, wet, very wet, and slush. It's all about the ratio of free water to actual ice. And is absolutely no fun around Christmas time. I read an article on a website called Quartz.com and that was about how to make the perfect snowman.
+
+[00:05:31] And they said the temperature is very important. Too high a temperature and the snow will lack strength, i.e., it will be water. Do we want to hear some more 16th century snowmen? Yeah, sure. Apparently Michelangelo built a snowman. He was commissioned to build one by Piero Medici. Commissioned?
+
+[00:05:52] Yeah. Commissioned to build them. So he was, Pierreo was like one of the Medici's, but he wasn't like into art like everyone else was. And so he said to Michelangelo, we'll just make me a snowman then. But apparently it's the best snowman that anyone's ever seen. Yeah, but everyone says that after they've melted, don't they?
+
+[00:06:07] There's no burden of proof. Yeah, some people think that it was the basis, or they did it as a practice for David, for Michelangelo's David. Just on the subject of snowmen and religion, there was this January there was a cleric in Saudi Arabia who issued an edict banning snowmen from being built I would imagine not a massive problem in Saudi Arabia
+
+[00:06:28] but he said I mean I'm sure they get snow in some bits of the country sometimes anyway he said it is not permitted to make a statue out of snow even by way of play and fun and he also said it promotes lustiness and eroticism only in Brussels yeah we're going to have to move on very soon to our next fact. James, you got something else? A student who built a four-foot
+
+[00:06:50] phallus out of snow in a park was given a fixed penalty of 80 pounds. So that was a thing. Someone else actually... That's like the worst news report ever. So that was a thing.
+
+[00:07:04] Here's Andy with the weather. It's going to be cold still, I guess. Back to you, if you want. There was another snow fine, actually. In 2013, a police in Germany gave a parking ticket to a car covered in snow, which just turned out to be a snow sculptor
+
+[00:07:20] of a car. They issued the parking ticket and then they realized, once they'd issued it when they tried to scrape the snow off to reveal the number plate and it just kept on going. They must have kept thinking this is a really small car. But the policeman's comment was when he realized
+
+[00:07:39] so they left the parking ticket on it and the policeman said, we can take a joke as well as the next person. But whether it was made of metal or snow, it was still obstructed. the road and that should have been clear. Okay, I'm going to move us on to our second fact of the show and that is Chazinski. Yeah, my fact today is that Harris Hawks
+
+[00:08:01] stand on each other's shoulders to get a better view, which is incredible. Also considering they can fly. So are they standing on the shoulders of a flying bird? No, they stand on its shoulders. when often they're standing on a perch on a cactus or something, and then the guy on the cactus is like, I can't quite see over that tree,
+
+[00:08:25] and then could you stand on my shoulders? And they've been seen up to like, so usually it's two to three hawks high. You can get four hawks high. Four hawks standing on each other's shoulders. It's amazing. And yeah, we're not entirely sure why they do this, but it could be a number of reasons.
+
+[00:08:40] So to get a good view of, you know, if you want to look, get a proper angle down on your potential prey. Also to provide shade, I think. So it's often the dominant hawk, which is on the bottom. so it's thought that the dominant hawk goes, I'm really hot, someone needs to get on top of me as like a bird parasol. So that, and also it might be because perching spots are scarce.
+
+[00:08:59] Oh, wait, so they open up their wings. They'll open up their wings, yeah, sorry, to shade. Yeah. So one of the ideas, I think, is that they're on a cactus and it's hard to find a bit of cactus that doesn't have spikes on it. And so when they do find a bit with no spikes in it, they're like, oh, we're all going to sit there.
+
+[00:09:14] Yeah, yeah. Which is really annoying for the one guy who found the cactus. that had no spikes on it. Oh, get off. Come on. So who's in the better position? Dominant hawk at the bottom or a guy at the top? Well, if the dominant hawks at the bottom, I guess he is. You've got three hawks on your shoulders. That's going to be really heavy.
+
+[00:09:31] Well, no, I didn't interview any hawks for this facts. But yeah, it's called a stack. A hawk stack. Why is that? Why is that? It's one of those. It's impossible to trace back the etymology of that use of that word there. but...
+
+[00:09:47] There's a theory that Hawks would taste most like dinosaur out of anything that we've got because a lot of people have asked the question what would a dinosaur taste like and there's a theory... I thought it would taste like chicken.
+
+[00:10:01] Well, ah, aha. A common misconception. And you're going to feel like an idiot now. There's an article on Slate.com by a guy called Brian Palmer and he said that actually meat's flavour is also affected by what the animal's been eating and hormones, it's not just,
+
+[00:10:16] on sort of the biology or the genes or something. So, chickens don't eat meat. So if you get a bird which eats meat, like a hawk or another raptor, then that's what dinosaurs would taste like, a bit heavier and darker. Also, this is a really interesting fact about Harris Hawks, for any ornithologists out there. It's not actually a Harris Hawk. It should be Harris's Hawk.
+
+[00:10:37] That's my fact of the day, the fact of the year, I think. It was discovered by Audubon, who was a famous 19th century onathologist, and he named it after his mate. named Harris's Hawk after a guy called Edward Harris, and he was the one who funded a book that this guy was writing, which was the Birds of America, I believe it was called. And he discovered a number of new species in that book. I think it was something like 25 species.
+
+[00:11:00] He also named 11 species of fish. This is one of the best revenge plots I've ever heard in my life, because none of those fish exist, okay? Yeah, because... Because of... Good point. I forgot about that. So he was basically, he was at his home,
+
+[00:11:18] and the guy who was writing the book on the fish came over to his house. And while he was at his house, he was telling him about this book and how it was going to be the ultimate book on fish. And while they were chatting, they saw a couple of bats fly in. And the fish guy thought they were new species of bats, or he was scared of bats, we're not quite sure. But he immediately grabbed Audubon's violin, which was really expensive and smashed them against the bats.
+
+[00:11:41] And Audubin was like, what? But he was hosting this guy. So the guy sat back down. and then he went, I know some fish that I've discovered that you should include into your book. And he went fantastic, what are they? He described them, he drew them,
+
+[00:11:54] they went into the book, and then he got outed for putting fake fish into his book. Isn't that the biggest best revenge plot? Wow. Yeah. No way. Yeah. I really, so like I was reading the other day,
+
+[00:12:04] so Hawks standing on shoulders. I was reading about monkeys. I was reading, this is book Sapiens, and they work together as well. And they have this amazing thing, a language that zoologists have managed to isolate certain calls. so monkeys in isolation, they'll send a call out,
+
+[00:12:18] and the call will say there's an eagle in the sky, so all the monkeys look up to see if it's coming, and then they'll play another signal which says there's a tiger on the way, and so they all go up the tree, but then they've discovered that some monkeys will be seeing another monkey with a banana and go, there's a tiger,
+
+[00:12:33] and they'll leap up into a tree, and you'll just take the banana. Yeah, so devious. Okay, on that, this is very, very cool. So mockingbirds make alarm calls when they see a hawk, and iguanas listen to mockingbirds. They listen to a completely different species of animal. And when the mockingbird makes an alarm call,
+
+[00:12:53] the iguanas all run for it because the iguanas can't tell each other there's a hawk because they're silent. They don't communicate with each other. They're all not talking to each other. They just listen to the mockingbirds. It's like one of those things where you're in a stroke with someone,
+
+[00:13:07] so you make someone else communicate with them on your behalf. I'm not talking to him. It's really sad. You can just imagine two iguanas facing each other and not able to say how they feel and, you know. If you swapped your eyes for a hawks, you'd be able to see an ant crawling on the ground from the roof of a 10-story building.
+
+[00:13:26] Whoa. Also, you'd be arrested immediately. But I can see an ant. Still not getting around a lot of wildlife legislation. Well, they're thinking about doing laser eye surgery now to give us much better vision, which I think is completely unnecessary, aren't they? So hawks have, like, or eagles have 20 to 5 vision.
+
+[00:13:44] and they think they can get humans up to 2010 vision, which I don't really see the need. So a 20 to 5 vision means that something that I can see that's 5 metres away, a hawk will be able to see that it's 20 meters away. They could see it with the same vision, right? So if James is on the top floor of his 10-story house and he's lost his pet ant, this would come in handy. Do you know that lobsters can regenerate their eyes,
+
+[00:14:08] but they can only do it a certain number of times, and after they've done it that number of times, instead of regenerating an eye, they regenerate a limb. What? What was that? Do they regenerate the limb where the eye wants?
+
+[00:14:20] Yeah. Wow. It's great that, isn't it? That's insane. That is amazing. Do they know how many times they've got? I don't think they do. They probably don't even know they're lobsters.
+
+[00:14:35] Imagine shaking hands with somebody's eye. Weird. I was trying to find your fact, Anna, because actually it's surprisingly hard to find that actual sentence on the internet that hawks stand on each other's shoulders. And it was on a site where it's like, there's a lot of sites you get these days
+
+[00:14:52] that are trying to educate children about everything. And this was a super fun hawk page. And there was a bunch of stuff about hawks. And then it said extra fun facts. And so the opening one was backstanding. So they stand on each other. That was one. And this is the second extra fun fact.
+
+[00:15:09] They gather in large groups and congregate on the electrical transformers where they electrocuted to death. Science is fun! That's not a fun fact. They are kind of the bad guys of the natural world hawks. So people don't like them, and a lot of people like this video online,
+
+[00:15:29] which you should all look up. Actually, there are a few videos of smaller birds who are usually preyed upon by hawks, attacking a hawk. So it was a mother king bird, and a hawk came a bit too near her nest. And she jumps on the hawks back and, like, grips onto his shoulders,
+
+[00:15:43] and then pecks away at his forehead. And the hawk flies through the air, nothing he can do. This is similar. I just read this the other day, that seagulls attack whales, which is another kind of little thing against... The country? No, like you get seagulls,
+
+[00:16:00] and they go down, there's like a whale that's kind of near the surface, and the seagulls will come down and just grab a bit of flesh from the side of the whale. Wow. I know. Would whales ever deal with a flying animal? Would they get back down and tell a story? Like, you won't believe what just happened up there.
+
+[00:16:15] It was a thing literally in the air. It's like a really, really small flying whale up there. They're like, how do you know you're a whale? Did you know that a hawk is terrorizing the people of Manchester at the moment? A massive bird named Stephen, reported by the Manchester Evening News, the name's the name of Stephen by residents who hate him, so I don't know why they've given him a name, who stands on streetlights screeching at people.
+
+[00:16:41] It says the massive bird named Stephen is known by experts for its intelligence. It means hawks generally are known for their intelligence, not Stephen specifically. But Stephanie Milling, who lives just off Pollard Street in Manchester, said, it's been hunting and catching wood pigeons, but it keeps trying to get my cat. And I have a friend nearby who has pet rabbits. So we call each other every now and again saying, Stephen's out. Get your rabbits in. James's ant farm is in serious trouble.
+
+[00:17:09] We need to move on to the next fact, and that is Andrew Hunter Murray. Okay. my fact this week is that Pope Innocent the 8th was given the nickname The Honest because he was the first Pope to acknowledge that he had illegitimate children They should have called him
+
+[00:17:25] Innocent the smoothie Oh Come on those of you heard the podcast He knew what you were coming from So Those who haven't you can leave now No refunds So in the old days
+
+[00:17:42] And Innocent the 8th was 15th century, so ages ago, back in the days when you had a very naughty popes, and there was an amazing spell of naughty popes. It sounds like Candice weather forecasting and everything will be having a spell of naughty popes. Lock your rabbits up. Pope Stephen is out.
+
+[00:18:04] So normally when popes had illegitimate children, and in the Renaissance and the middle ages, loads of them had illegitimate children, they would just say they were their nephews, nieces, even though they clearly weren't. So they used it to get them jobs. But Innocent the 8th acknowledged this, and then he still used his position to get his children jobs. He made his 13-year-old grandson a cardinal. Wow. Yeah. When I was looking him up, I looked at his Wikipedia page, and you got a lot of links at the bottom to other related articles on Wikipedia, and one of them
+
+[00:18:36] led me to, this is the title, List of Sexually Active Popes. And it is a massive list. And it is a massive They were active. They were going for it. Yeah, they were. They were wild. So this fact kind of reminds me of like, I think that modern day, or maybe it's always existed, elevating honesty way too high. So that whole, I really want to be honest with you, I've shagged your dad, that kind of thing. Which is like, wait a-oh, whoa. No, sorry, that's... Firstly, which of the three of us were you speaking to?
+
+[00:19:11] It was the plural you. I'm really sorry. The Wikipedia list, list of that other has shagged. It just says yours, yours, yours. So yeah, you don't need to know that. And in fact, there were Pope Zushagged. So Benedict the 9th was a particularly bad one, who was responsible for copious bestiality,
+
+[00:19:42] sodomy, sponsoring orgies, sponsoring orgies. sponsoring orgy. This orgy is brought to you by the Pope. Have a good time. I'm just imagining, like, hi, I'm thinking of having an orgy next week. Would you mind sponsoring?
+
+[00:20:02] You can get 10p per. Benedict the Ninth is amazing. He was Pope on three separate occasions. He became Pope at the age of, like, really, really young. Some sources say he was 11 when he became Pope. I can't quite, but there's a lot of propaganda so he may not have done. But he did sell the papacy to his godfather
+
+[00:20:19] to raise money for his wedding. And then he got bored and decided, no, actually I'd like to be Pope again. Yeah, he was crazy. I was reading through the list of popes because a lot of them share the same names, Pope John Paul, so on. Pope George Ringo.
+
+[00:20:38] And there's, I mean, there's amazing names to start with. They're incredible names. My favorite one was Pope, hilarious. That's an actual Pope, Pope hilarious. Did you look into Pope hilarious to see what hilarious things he did? Oh, he was so boring. I was desperate. I spent the majority of my research going, come on, one thing.
+
+[00:20:59] The best thing I could find was he erected a chapel, a convent, and two public baths. Yeah, but you had to be there. It was hilarious. One of my favorite popes is Benedict the 12th. And what happened with him is the Cardinals when they were deciding who was going to be Pope. What they would often do is in the first round of votes, they would all vote for someone who's probably not going to become Pope because they're a bit rubbish,
+
+[00:21:22] and then they would think, well, no one else will vote for them, and they'll see how the other cardinals are voting. Unfortunately, everyone voted for Benedict X12. Was he good? No. Pope John the 12th turned the Vaskan or the papal palace into a hallhouse, apparently, committing adultery with numerous women that included his father's long-term girlfriend,
+
+[00:21:45] And I like that because this is the 10th century and I didn't know you had long-term girlfriends in the 10th century. I thought you were married or you were single. Or dead. Or dead. Popular choice in the 10th century. Maybe he invented the idea of long-term girlfriend
+
+[00:22:00] but never gets recognized for it because he was the Pope and they were focusing on that bit of his story. I think that I'm not, because a lot of these stories, I'm not sure, you know, there's a lot of sort of... They're often put in from the detractors of the... smearing of reputations.
+
+[00:22:16] So there's also the thing of, they might have been made up by an anti-pop who was, not as you would think, a pope made out of antimatter. Or made out of ants, I was thinking. Sort of a rival pope who would set up a separate court elsewhere somewhere in France or even somewhere in Italy
+
+[00:22:35] and say, I'm the pope. And then spread horrible rumours about the actual. Yeah, yeah, yeah. Although, like, celibacy in the church really didn't become the absolute norm for an extremely long time until about two or three hundred years ago. And it's thought, so until I think there was a Council of Trent ruling in 1563 that really said, seriously, clerics, you have to stop having sex.
+
+[00:22:56] We've been saying this for 1,500 years, no one's listened. But they kept on doing it. And actually the reason that eventually passed in the Council of Trent, the reason that members of the clergy in the Catholic Church can't have sex, is because there were so many illegitimate children and they were taking the church property and passing it onto their children, so it was going out of the church
+
+[00:23:16] because they'd be like, oh, I guess this church is mine, I'll just give it to my son. And so the church was like, well, we've got to stop this, we've got to keep our property. And so they said, sorry, you're not allowed to have sex.
+
+[00:23:25] But Protestants were very pro-sex at the time. So Martin Luther, who's sort of founder of the Reformation, thought that it was really bad, the whole celibacy vow thing because it encouraged masturbation. And as he said, Martin Luther, founder of, I guess,
+
+[00:23:40] the Protestant church, if it doesn't go into a woman, It goes into your shirt. What? And we can't be having that. This was before the invention of the tissue. That's a terrible sentence. It's good, isn't it?
+
+[00:23:56] It sounds a bit like the start of a song. If it doesn't go into a woman, that no mind. I can't. No one else. Hold together. I would. I was very quickly looking into,
+
+[00:24:15] so he was called The Honest as a sort of nickname. And I love history's nicknames, Ivan the Terrible, and so on, Joan of Arc. Does that work? Sure. But my favorite one, this is a king, Louis the unavoidable. Imagine seeing him at a party.
+
+[00:24:34] Oh, no. Oh, he's coming over. He's coming over. He's coming over. Oh, Louis. Hi. Hi. Yeah, good.
+
+[00:24:45] You still king? Yeah. Oh, yeah, yeah. All right, I'm going to move us on to our final fact of the show, and that is my fact. My fact this week is that Spanish construction workers recently accidentally destroyed a 6,000-year-old Neolithic tomb that looked like a picnic table and replaced it with a new and better-looking picnic table. And it's incredible. You can see the photo. is of a stone
+
+[00:25:15] sort of, it looks like a big table with surrounding chairs. So, I mean, their fault really. And then they've replaced it and the new one is this... Hold on sorry, therefore, the Neolithic people's fault for making them tune like a picnic table. Okay, when you say it like that, I retract that statement. But you look at the new picture and it's this
+
+[00:25:31] really nice looking picnic table. I mean, it's actually really nice. What happened is they didn't know that it was a heritage site property and they saw it and just thought, oh, the poor people here, they want to have a nice picnic. Let's do something good for them. and then got in serious trouble for ruining it. I read that one local architect said it was probably due to a miscommunication
+
+[00:25:49] because it was the summer holidays. So tragic. And also in the summer holidays, demand for picnic tables rockets. Yes. So they did this global survey, global, they did in China, of the Great Wall of China, and what they found was there was a huge missing chunk of the Great Wall of China, and they had no idea where it went.
+
+[00:26:08] And the town, just down the road, someone must have gone, I found this wall full of bricks, They built a whole town out of the Great Wall of China. Wow. Yeah, it's incredible. That is the only town you can see from space. A man in central Ohio has been arrested for having sex with a picnic table. Here's Andy with the weather.
+
+[00:26:29] Yeah, he would stand the small metal table on its side and use the whole where the umbrella should be to have sex. Ah, can't be a happy experience, can it? Perhaps this is more common amongst certain parts of society than we think because there's actually a man in Tennessee as well who was arrested for the same thing and he was arrested, so he was initially arrested, a 49-year-old man because he was making an unusual deposit at the ATM nearby.
+
+[00:26:58] So attempting to copulate with the ATM. What was wrong with this shirt? I cannot think of which bit of an ATM with a gun to my head I would pick. I haven't done it. but um, officers arrived and they took him outside of the bank and sat him on a picnic table and went back into a lot of office. And another guy came and went, sorry, you're using this?
+
+[00:27:26] I thought it was bad when wasps turned up at a picnic. I've been getting lucky all these years. On speaking of things that have been ruined. Your ears, ladies and gentlemen. No, so I read a story about John Lennon, and when he used to, he had a period which was known as the lost weekend, longer than a weekend, but it's where he just went absolutely off the rail. He was doing lots of drugs. He was partying all night long in all over L.A. And he stayed at Hugh Hefner's house for a party. And he didn't stay there, sorry, he was out of party. And while he was there, he was so drunk and he was smoking a cigarette. He didn't have anywhere to put the cigarette out on. So he decided the Matisse, the Matisse, that was hanging on the wall would be the nice spot for it. So he stubbed his cigarette
+
+[00:28:18] into this Matisse. So all the bouncers, bodyguards of Hugh Hefner's playboy mansions immediately grabbed him to throw him out and Hugh Hefner went, no, no, no, no, stop, stop, it's fine, it's fine,
+
+[00:28:29] did you see what he just did? He's like, I didn't see it, I just heard about it, but guys, John Lennon just stubbed a cigarette out on my Matisse. That is probably worth double the amount of money now
+
+[00:28:38] that you were there. Take him around the whole house. I got a Picasso in the back room. I mean, that's quite cool when value is added through destruction. Yeah. Wow. On other things being accidentally destroyed.
+
+[00:28:49] Bungling builders, as they are referred to when they mess up, accidentally destroyed the wrong house in Cumbria. It destroyed a woman's home instead of the dilapidated house a few streets away. Contractors were supposed to demolish another house 500 yards away in another street, but set to work on Mrs. Beatty's home without checking they had the right address. Thomas Armstrong Constructed Limited admits they got it wrong.
+
+[00:29:14] but Mrs. Beattie is still considering legal action. Mrs. Beattie, when will you end this vendetta? In 2013, there was a pair of Peruvian real estate companies which destroyed a pyramid, a small one. It was at six metres high, but nonetheless it was a pyramid, and it was 4,000 years old as well. And the company's workers tried to destroy three more pyramids before people who are onlooking stop them.
+
+[00:29:42] Okay, get this. In the same year, 2000, 2013, another construction company in Belize bulldozed one of the largest Mayan pyramids in the country. It was 30 meters tall and they did it just to get crushed rock for road building. And the head of the Belize Institute of Archaeology said at the time, these guys knew that this was an ancient structure. It's just bloody laziness. It was it. They just couldn't be bothered to go and get other rock from elsewhere that wasn't a pyramid. The rock shop was another two miles away.
+
+[00:30:11] And this happens all the time that sort of, you know, small. pyramids in Central and South America get demolished. Really? Isn't it true that one of Shakespeare's houses, and I think it was his most famous house, the guy who owned it was so annoyed of people coming and knocking on his door that he just knocked it down?
+
+[00:30:27] Yeah, he was. It's a weird response. He was called the Reverend Gastral or Gaskell or something like that, yeah. And he lived there and people just kept going past going, oh, look, Shakespeare's house, and he's like, no, I've had enough of that. It's not that big an imposition, is it?
+
+[00:30:38] Yeah, also, move. In the end, he had to, because he got Driven out of the town, I think. Yeah, he did, yeah. And also he'd destroyed his house, so he would have had to move anyway. We're going to have to wrap up very soon. Just a quick thing on picnics.
+
+[00:30:53] Yeah, of course. I looked up, you know, the phrase, this is no picnic. It took 190 years after the first French use of the word picnic before we got the phrase, this is no picnic. So I'd just like to imagine that people were having a constant picnic for 190 years.
+
+[00:31:09] There's this common misconception that the word picnic, the etymology, is racist. It's one of those, like, internet rumors that started about the year 2000 that actually a picnic used to be where you'd go to watch, like, lynching of slaves, which just isn't true. So in the year 2000, at the University of Albany, they wanted to organise, the university wanted to organise a picnic,
+
+[00:31:28] a big celebratory picnic for the students, but they were told that it would offend people because it was a racist term. So instead, they decided we'll call it an outing. And then they were written to and informed that this would offend people because it was a homophobic term, and so eventually the picnic was publicized without a title. I didn't know this, just on picnics and picnic tables.
+
+[00:31:52] Paris, the way Paris celebrated the millennium was by having a 600-mile-long picnic. Wow. Imagine being that guy who found picnic table sexually attractive turns up in Paris that weekend. And he's gone to Paris to get away from the picnic tables. Finally, a new life under a new identity.
+
+[00:32:11] Oh my God. Okay, I'm going to wrap us up. Okay, that's it. That's all of our facts. Thank you so much for being here. If you want to get in contact with any of us about the things we've said over the course of this podcast, we can be found on Twitter.
+
+[00:32:26] I'm on at Shreiberland, James. At Eggshaped. Andy at Andrew Hunter M. Anna. You can email a podcast at QI.com. And yeah, if you want to listen to all our previous episodes, you can go to no such thing as a fish.com. We will be back again next week with another episode.
+
+[00:32:40] Thank you so much for being here, guys. Really appreciate it. Goodbye. Oh, yeah.

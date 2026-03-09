@@ -1,0 +1,409 @@
+# No Such Thing As A Fish - No Such Thing As The Opposite Of February
+
+- Episode date: October 26, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-opposite-of-february
+- Slug: no-such-thing-as-the-opposite-of-february
+
+## Transcript
+
+[00:00:01] Hi everybody, Andy here. Just before we start this week's show, wanted to announce our special guest. This one is really exciting, guys. Our special guest this week is none other than David Mitchell. That's right. If you haven't heard of David Mitchell, you haven't seen any British comedy recently
+
+[00:00:17] because he's been in absolutely everything. Of course, peep show, upstart crow, would I lie to you? The unbelievable truth. Every single panel show going. And he's here. He's on fish this week. David is here partly because he has,
+
+[00:00:30] as you are about to hear in the show, a new book out, and it is a fantastic book. I genuinely finished it this morning, and I loved it. It's called Unruly. It's a history book. It's a history of England's Kings and Queens. It goes all the way from King Arthur, fictional, to Queen Elizabeth I, not fictional, and it is so funny, and yet you also are being educated all the way along the way. It's been described as horrible histories for grown-ups, and that's exactly what it's like. You'll laugh, you'll learn. It's got that classic Mitchell Witt all the way through. It's absolutely fantastic. There are lengthy digressions about things like where you can get a nice coffee in Oxford or the James Bond films,
+
+[00:01:09] all of that. It's so good. And it's not even just me saying this. It has already been a number one Sunday Times bestseller. So if you have a history fan in your life who you think would like a laugh as well, this is a perfect present. Also, if you'd like even more David Mitchell in your life after this episode, his new show, Outsiders, has just started its third series. That's on Dave. It's a kind of outdoor challenge survival show hosted by David and the guests this series include Alan Davis of QI and of course former fish guest. So that's it from me.
+
+[00:01:38] I'll stop wanging on now. Hope you enjoy this episode. We really enjoyed recording it. On with the podcast. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hobern. My name is Dan Shriver. I'm sitting here with James Harkin, Andrew Hunter Murray and David Mitchell.
+
+[00:02:12] And once again, we have a very. gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, that is David. My fact is that King Stephen owed his throne to food poisoning. Or, you know, the shits. I haven't asked about swearing. How much...
+
+[00:02:35] You're allowed. Go for it. That's fucking great. Yes, so to diarrhea. Okay. caused by food poisoning. Okay. Previous king's diarrhea, not his own.
+
+[00:02:45] His own? His own? Wait. Not a previous king's diary. What? And so people saw him shits himself and thought this man must be king? No. Oh, no, it didn't go like that.
+
+[00:02:55] I mean, obviously there was a lot of diarrhea back then. It wasn't, you know, there's a lot now. It's one of the ways you can empathize for people in the past. They too had liquid shits, but more often died of them. You know, King John, shot himself to death. Henry V shot himself to death. So you've got a good king and a bad king there, both dying of dysentery. But King Stephen didn't have dysentery.
+
+[00:03:17] It was more of a short-term thing. I don't know if it was a bug or something he ate. And he certainly didn't know. But because he got diarrhea, he got off a ship. And the ship he got off was the white ship. It was state-of-the-art lovely craft in Barfleur Harbor. And all of the most important young people of the rain, the in crowd were on this ship and they were about to sail to England but the not yet king
+
+[00:03:45] Stephen, Stephen of Blois was on it and he got diarrhea and he got off it to go into Barfleur and relax on a privy and the ship sailed without him and sank and everyone on board died apart from a butcher oh that's interesting he survived but that's that's the last then he's lost to he went on clung being a butcher and then died. He had a good anecdote. He absolutely had a good anecdote. Do he survive because of the butchery?
+
+[00:04:17] Was that, as in does history relate whether he clung to some of the moot? No, it wasn't the buoyancy of pork chops that saved him. Was it him who provided the meal that provided the diarrhoea for the future king? I don't think so. I'm not clear as to why there was a butcher on board, but ships have, like, they have, you know.
+
+[00:04:37] They must have livestock. Well, if you get on a cruise ship, they've got, you know, a swimming pool and a casino. So, you know, I don't think this ship had that. But, you know, they had some... They might not have had livestock because they're only going across the channel. But they will have had food. Yeah. I don't think there's any connection.
+
+[00:04:54] There's no suggestion that it was his meat that he retailed that caused King Stevens. Not yet, King Stephen. So I can't help calling him King Stephen. He's not King Stephen yet. It's like Prince Charles calling him King Charles. It's impossible to get into your head. Or it is for me anyway. Yeah.
+
+[00:05:08] I'm now saying King Prince Charles. I, which is a way of easing myself into it and eventually I'd be able to drop the prince. I was saying it two years previous, just to make sure I was running with it. This ship, though, it sounds amazing. As in it was, obviously, state of the art,
+
+[00:05:24] but I mean, everyone who was anyone was on one ship at one time, which I presume was thought of as being fine. I mean, it clearly wasn't fine. Yeah, because, like, is it like the royal family aren't really supposed to be on the same airplane or something? I heard that. Is that right? Yeah.
+
+[00:05:36] Oh, wow. Yeah. But the air, the real air to the throne was on that ship. That's the key thing. Yes, the real air to the throne was on it. The king, at the time, King Henry I, he wasn't on it. He was on a less snazzy ship with older important people, but the younger, cool important people, including William Atheling, the heir to the throne.
+
+[00:05:57] They were all on the white ship and they all died. Because obviously the butcher wasn't part of that team. He was staff. and so the only survivor was one of the staff which I'm sure at the time they thought was absolutely the wrong way round I read that one of the other staff the ship's captain also survived the initial shipwreck came to the surface heard that the heir to the throne
+
+[00:06:22] William Atheling had drowned and then just decided to drown himself the only person who could possibly have told us that story is the butcher yeah it feels like as the anecdote's gone on he's kind of added little bits to it. Obviously, if you were the captain's fact, that's a very positive anecdote for the butcher. And the thing is, obviously, the butcher, we don't know what happened to him
+
+[00:06:44] other than he didn't die in that shipwreck. Probably murdered the captain, is what I would think he'll possibly. And maybe he made a hole in the ship. But the thing is, he didn't even get a book deal out of it, which just shows you what primitive times these were, because nowadays, that would have been, he could be on the gravy train for life. Yeah.
+
+[00:07:01] What a ship show, something like that. Yeah. Yeah. Yeah, lovely. So, what year are we talking here? 1120. 1120, okay. So that's ages ago.
+
+[00:07:11] Genuinely didn't even know we had proper ships crossing the channel at that point. Like commercial trips. You must have guessed. 1066 quite famously. How do you think they got here? A lot of get across the tunnel. Not a swimming operation. I'm sorry, I had the whole lifeguard, swimming pool, casino thing in my head.
+
+[00:07:26] Oh, I see. Yeah. I don't think they hadn't bought tickets. It wasn't a scheduled cross. I think it was absolutely just, it was commissioned for. the just for the posh people to go across. Because they were having a very nice time at the point. Henry I had just won a small war against the King of France.
+
+[00:07:44] William Athling had been confirmed as the heir to the Dukedom of Normandy. At that point, the King of England was also Duke of Normandy, and he was running this cross-channel regime. And so they've shored up their position on the continent in this sort of weird situation where the King of France is king in Normandy, but not in control of it. and the Duke of Normandy runs Normandy but has to sort of pay lip service
+
+[00:08:07] to the feudal seniority of the King of France but that's all been lined up for William Atheling the King of France is back in his box he didn't live in a box but there will have been French kings who lived in boxes there was a French king who thought he was made out of glass but this one I think was sort of comparatively normal so Henry I first very happy
+
+[00:08:26] let's all go back to England this other country we own and hang out there for a bit So it was a happy day. Very successful period of Henry I first reign. And then it was a bit like a sort of mega song in that the airs to the whole ruling class just died in one go. Is it true that they were all drunk as well? I read that.
+
+[00:08:47] Yes. Basically, they decided to get the boats across at nighttime. Yeah. We're not sure why, but it might have been just so they could get pissed in the meantime. Right. Apparently everyone on board was absolutely shit-faced. And that could have been one of the reasons that they crashed. That's interesting.
+
+[00:09:01] It seems quite likely to be one of the reasons, because they were obviously quite, I mean, those days there were more shipwrecks than there are now. You know, it wasn't a done deal crossing the channel. But I don't think the weather was bad. People were nipping back and forth all the time. But yeah, William Athling essentially declared it a party boat and said, we're all going to have a drink.
+
+[00:09:20] And, you know, not to be a snob, he very much included the staff, the crew, the butcher, and, crucially, the people driving the ship as they didn't call it then. So one set of people they didn't include was the priests. So usually the priests would bless the ship before it set off. Because it was a party boat, they decided to dismiss the priests. And so they didn't get blessed.
+
+[00:09:44] Right. And so later on, some people said that may have been the reason that they crashed. Yeah. Do you think that's the reason they crashed? I'm only reporting what some people said. I mean, that sounds tremendously convenient. The prevailing religious ethos of the time. Oh, yeah.
+
+[00:09:58] Because they blamed everything on religion, because obviously they lived in baffling times where they didn't understand much of what was happening to them. So they were very keen in the Middle Ages to say, it's not that we're, you know, tiny little creatures in a universe of which we have no comprehension. It's that we didn't pray enough. So there was something we could have done. Yes. And I think it probably made living in the Middle Ages a little bit more relaxing than it otherwise. Anyway, the white ship, yeah, sank and the future king Stephen is probably equally uncomfortable, but in a way with fewer long-term consequences to his survival.
+
+[00:10:35] Was he seen as someone who is, you know, useful? Did they look at him and go, okay, at least we've got someone who might be a good king, or was he sort of, oh, dear, with Stephen, just Stephen? No, no. Was Henry I, who, they say after the white ship disaster, he never smiled again. And I don't know how they know, but I'm not going to call them lies. But he was very, very upset, and he was upset in two ways. Obviously, his beloved son was dead. Lots of other people's beloved sons were dead.
+
+[00:11:03] But crucially, his plan for the succession of the English crown is in absolute ruins. Because he's had lots of children, Henry I first, but only two of them with his wife. And the two with his wife are William Atheling, who drowns, and Matilda, who goes up. Dreadful lies. No. She is the former wife of the Emperor of the Holy Roman Empire, as it wasn't then called. But the Emperor would be the expression. So she went around calling herself Empress Matilda with some justification.
+
+[00:11:40] And he quickly marries someone else to try and get a new son going, because they didn't like the idea of women ruling then, totally fails to beget any children with his new wife, even though he's begat children all over the place, and she begets a load after he's dead. So, I don't know, whatever, his sperm and her eggs, they don't make a good team, probably because he's so desperately trying to beget an air.
+
+[00:12:08] And it's just the whole begetting vibe is so unromantic, isn't it? So anyway, so he doesn't get any more legitimate children before he dies. So he's stuck with only Matilda, and he says, okay, well the only way my bloodline can continue, which is the main thing. So he makes everyone say, look, I know it's, I've only got a daughter, and everyone thinks women shouldn't be in charge of things, because this is the past and it's sexist. I'm quoting him directly.
+
+[00:12:37] But please, come on, so that my DNA can carry on, please say that she can be the next king, effectively, ruler, queen. And everyone goes, your majesty, of course, for you, Enna. thing and twice all of the big shots of the rain, all of the men that didn't ask the women, which is perhaps a sign that this is a problematic strategy to the age. But nevertheless, all of the men go, we absolutely, as soon as you're dead, your majesty, she's in charge and we'll absolutely do everything she says like we did to you. And they all swear, including Stephen of Blois, and Henry goes to his grave thinking, maybe this will be okay.
+
+[00:13:16] But as soon as he dies, everyone's more thinking, well, you can't have a woman in charge. That's either because they themselves think a woman couldn't be in charge or because they think, well, I'm quite woke. I think it would be fine for a woman to be in charge, but other people won't accept it. But, yes, so then please can Matilda be the next queen? Yes, of course, your majesty, he dies. No, she can't. Stephen runs to London, gets himself crowned. and he's King Stephen.
+
+[00:13:47] Well, the other thing is that Henry the first death was also due to food poisoning, we think, right? Oh, yeah. So it's like a double food poisoning thing, because he famously died of a surfeit of lampreys, I think. That's what we're always taught in school. But there's been a few recent studies, one by Matthew D. Turner in 2023,
+
+[00:14:05] who reckons that he died of Listeria, possibly from the Lampreys, or possibly from something else yet, with the Lampreys. But also, perhaps, it would have made him confused just as he was about to die because that's what happens with this illness. And there is a story that on his deathbed he actually told some of these lords,
+
+[00:14:24] oh no, Matilda, I've changed my mind. I don't think Matilda should be queen after all. I think Stephen should be king. Right. And, yeah. My feeling is that that's not so much the effect of the Listeria and the effect of those people
+
+[00:14:37] who are in Stephen's camp lying about what the king said. So that's also. Who can say? Yeah. But yes, no, I'd heard that it was, yes, it wasn't like surfeit of lampreys, rather unfair of him. If he could have had two fewer lampreys, it would have been fine, you'd have been, maybe. No, it's just that the lampreys he had, or, as you say, something that went with them, the chips or something.
+
+[00:14:58] Yes, that they'd been badly prepared. Apparently, it's quite difficult to prepare lampreys in a way that doesn't kill you. On this occasion, they hadn't bothered. They're kind of like the blowfish of the day. They can really do a number on you. I mean, you never see them on menus anymore. No, that's why it's too much. I went to a restaurant once that only did Blowfish.
+
+[00:15:19] Oh, yeah. Only? Yeah. Oh, no, thank you. Look at the menu. It was in Ossica, I think, or somewhere like that. And my wife wanted to try Blowfish, and I had a bit of food poison and didn't really want it. So he went to this place that sold Blowfish, and the menu, it was like pictures on the menu.
+
+[00:15:35] Yeah. And so we looked at them all, and it was like, Blowfish, Blowfish, Blowfish. And then there was some chicken nuggets. And I'm like, oh, thank God. I'll have the chicken nuggets, you can have the blowfish. And then we went in, they sat us down. We ordered our sake or whatever. And I said, in English, hoping that they speak it, I said, I'll have the chicken.
+
+[00:15:51] And they said, oh, no, that's blowfish goads. And it was deep-fried blowfish gonads. Wow. We left. I'm not sure. If I was going to eat blowfish, which I'm not, I'm not sure I'd want to eat it in the sort of place where they show pictures of of food. The ones where they show
+
+[00:16:13] a photo almost to prove that they can cook at all and not them. A lot of the places, as they go for their Michelin Star, they decide that the photos need to be excised. Henry, King Henry, he has I think the most Baroque afterlife of any
+
+[00:16:32] English king. I've read about. I mean, so he dies in he's in France, isn't he, at the Hunting Lodge where he has the lampreys and then dies? And he instructed he'd be taken to Reading just before he died because he'd found it an Abbey there. He'd always wanted to go to Reading, having. Loves this biscuits.
+
+[00:16:49] It was nearish Lego Land or the site of the future Legoland. So he wondered. It founded a big Abbey in Reading, so he thought, right, I'll go there. But he was taken to Rouen, his body. So after he died, he was taken to Ruon and embalmed there. But not all of him, because his heart, his bowels, his brains, his eyes and his tongue were removed and buried in Normandy at a different monastery
+
+[00:17:13] or abbey, whatever it was. And then he was embalmed and he was rubbed with salt and then he was put in a bag made of ox hides for the journey. So he's, you know, he'll hopefully get to Reading in a decent state. I mean, he's removed his heart, his eyes, whatever. I mean, he's not going to look lovely. No, no. Well, he's in a bag, so that's fine.
+
+[00:17:31] He's in a bag made of oxhards. Don't open the bag. They get to the coast. Worrest pinioter. They get to the coast and the boat is then delayed by four weeks due to bad weather and everyone's looking at the bag and thinking, oh no. And the bag, I think, starts to leak and sort of very... Body juice, I've heard about this.
+
+[00:17:51] It's very, very pungent stuff. There is, I think, a story. I think it is about him that the man who was ordered to remove his brain, there was such a bad aroma about the brain because of how he died, that the man ordered to remove the brain also died. Of smell. Of smell. Rainsstide of smell.
+
+[00:18:10] Yeah. Yeah. I read that. That was... Ombate it 40 years later. They associate it. And in a carriage accident. Yeah.
+
+[00:18:16] But it was definitely that... It was never the same again. Yeah. So, I mean, what a... What an afterlife. What a shame that the Elizabeth line wasn't named after him. Because that terminates in Reading. That would have been a beautiful tribute.
+
+[00:18:31] And it's subterranean as well. So maybe it literally comes up against his skull. Yeah. And that's used. To save money, keep it under 50 billion, and to use some of the heft of former King Henry to slow the trains down. Oxide buffers, yeah.
+
+[00:18:49] What I should say, though, the consequence of Stephen's food poisoning and then him being declared king, and then him being not very good at being king, and Matilda, Henry's daughter, being extremely pissed off to have been passed over, is that she doesn't take it lying down, and she tries with all her might
+
+[00:19:08] to rest the throne from Stephen and there is a huge civil war called the anarchy in a way that historians now say it shouldn't be called the anarchy because that in some way reduces it. What you should just do is spend thousands and thousands of words
+
+[00:19:24] describing it minutely rather than giving it a label. These are obviously historians are not familiar with the concept of language but anyway I'm going to call it the anarchy it does sound quite an anarchic like an 18 years of a war it was quite an anarchic Yes, but also equally you could take a little bit of it
+
+[00:19:40] and it was quite calm off of the night time, for example. So it's very, very reductive of you to use that word. So, you know, for example, I think it's very bad to call an apple and apple what you want is a printout of every individual cell. And that's actually a better way of describing it. Anyway, this anarchy happened and was awful. And Matilda nearly got to be the queen. At one point, she was about to be crowned,
+
+[00:20:04] but then the people in London got cross and she had to run away. And then at another point she was under siege in Oxford Castle and she ran away through the snow. It's quite exciting. But eventually she gave up and went back to Normandy, which by then her husband, Geoffrey of Anjou, had rested from Stephen. But then her son does inherit the throne because Stephen's regime essentially peters out.
+
+[00:20:27] So they do a deal. Matilda's son, Henry, becomes Henry II. Plantagenet, named after his father, Geoffrey. And then you have quite auditing. then you have quite ordered succession for quite a long time. It's all in the first four, you know, the rhyme of all the kings and queens of England. It's Willie Willie Harry Stee. It's all, this is all the Harry Stee bit.
+
+[00:20:46] Right. It's just that bit. This is Harry Stee. I was just jumping a few Henry's ahead, Henry VIII. I was looking up food because I thought, oh, royal meals sound a bit odd. And I discovered that he used to serve this meal called Cockintrice or Cochentrice. Okay. Have you heard of this?
+
+[00:21:04] No. So it was a pig. own to another animal and he pitched it as a mythical beast and he would say this is a mythical beast from. It's like a wings of a bird is it? I don't know. I think it became in a few different permutations. I think it always usually had a pig on the front. It's a chicken, but with the testicles of a blowfish. Yeah. But yeah, so I just love that. Henry the 8th would just present, you know, what was effectively the old version of a Yeti at the table for a bank. So he's saying, Not only have I discovered a mythical beast.
+
+[00:21:35] I've killed it and we're going to eat it. And it's the last one, sadly. But there it is. Look at it now and then what do you fancy? A bit of wings? And they're like, oh, it tastes a bit like chicken. It's weird how everything tastes a bit like chicken. My bit tastes like pork.
+
+[00:21:51] Well, that's the thing about the cocking tries. It's so full of flavours. The bottom's got chocolate in it. Stop the podcast. Hi everyone, we'd like to let you know that this week was sponsored by LinkedIn Jobs. That's right. We certainly are. Now, these days, every new potential hire can feel like a high-stakes wager for your small business, whether you're selling slow berries to people who want to make their own slow gin at home. I genuinely go through my recent purchases and that's what I had.
+
+[00:22:29] You want to be certain you've got the best possible candidates for your job. And that is why LinkedIn Jobs is so good, because you can find the right people for your team. You can find it faster and post a job for free if you do it through us. Absolutely. It is really difficult to find the right people and the good thing is that so many people are on LinkedIn that if you're looking for the best, most qualified candidates, they're almost certain to be on there. And like Andy says, if you post through us, you can post your job for free. So the way you do that is you go to LinkedIn, L-I-N-K-E-D-I-N. You know how to spell LinkedIn. LinkedIn.com slash fish. And like I say, you can post your job for free.
+
+[00:23:07] That's right. Whether you're recruiting a slow picker, a slow packer, a slow dispatcher, you can find the right person for your business. So go to LinkedIn.com slash fish and post your job for free. Terms and conditions. Apply. On with the podcast. On with the show.
+
+[00:23:27] Okay. It is time for fact number two, and that is Andy. My fact is that sea turtles have been going to the same restaurant for 3,000 years. Blowfish. served. Yeah, it's only blowfish. Yeah, it's nice. You find a thing you like. Yeah, just eat that forever, yeah, exactly.
+
+[00:23:46] So this is about green sea turtles. It's a new study from the universities of Groeningen, Exeter, York, Copenhagen and the Society for the Production of Turtles. They've all teamed up. So they're quite pro-turtles. Very pro-turtles. The Society for the eradication of turtles didn't get a look at. Absolutely not.
+
+[00:24:02] I'm not sure if that's appropriate balance. If this was on the BBC, you'd have to have one person on the show going, I fucking hate turtles. They're a right pain eating about it. Yeah. People, you know, Americans use the same words they do for tortoises. I mean, it's just confusing. Let's just have one.
+
+[00:24:19] We don't need the aquatic version of those shell people. I've been trying to book a table at that restaurant for months. Always by the window. Party of eight turtles. Restaurant is such a way of putting it. But basically, it's a huge meadow of seagrass off North
+
+[00:24:36] Africa. And sea turtles go there to eat. They spend the first few years of their life drifting around because they don't have the control to swim and live in these meadows. And then when they do get the control, they head to the meadows. They swim miles and miles and miles to get there. And they've used archaeology and ancient samples
+
+[00:24:54] to work out these are the same habitats in use that sea turtles 3,000 years ago have been heading to. And it's just amazing. And the meadows all have their own chemical signatures which end up in the bodies of the sea turtles. Because they're kind of made of these meadows. So yeah, it's sometimes
+
+[00:25:09] turtles will visit the same 50 metres squared. Oh wow. They have the very specific. It's like having a, it is like having a table in a particular meadow that they return to. It's pretty amazing. Sea turtles, you know, conservationists have always been trying to monitor if they're declining, you know, what's going
+
+[00:25:25] on. And 2023, there was an amazing count that happened. Volunteers went around, they found 74,000 nests, a bit over that. But there's a huge problem that's happening, which is that the sex, the gender is determined by the climate. And as it's getting hotter, they tend to be born as female.
+
+[00:25:43] And so we're slowly losing all male sea turtles. It's a genuine worry that we're going to just... We've got all these women now and no men to sort of... And you need enough diversity in the population to... Yeah. It's a big problem. It's to do with the temperature of the sand, I think. So if the eggs are laid in sand that's above 31, then they're all female, you know, so 31 Celsius.
+
+[00:26:02] And if it's below 27, they're all male. And the species relies on the sand, being a range of temperatures in between, you know. And historically it's been, well, it'll be cold a year's and hot a year, so we'll get a reasonable number of both. Yeah, that's the problem, yeah. Yeah, yeah, yeah.
+
+[00:26:19] So no, it is a huge problem. So we're hoping for an hour, maybe if you get above like 32, it goes male again. Yeah. So actually now we'd be rooting for further global warming in order to push through to the really, the hot guys, let's call them, that come to start coming through.
+
+[00:26:38] again. Well, the other problem is that the seagrass meadows are also hugely under threat. So just everyone in, like lots of sea turtles. Some sea turtles are doing alright. There is, I think, seven different species of sea turtle and I think several are endangered. But there are a couple of doing okay, but several endangered.
+
+[00:26:54] And the meadows, lots of them are off North Africa, where there isn't much environmental protection and lots of the country's nearest are undergoing quite chaotic times at the moment. And so, yeah, there is a risk. Apparently we lose a football pitchers worth of seagrass, every 30 minutes.
+
+[00:27:09] Jesus. Every 30 minutes? I have to say, whatever's mowing that sea grass, we want to use that on land because that's really quick. I think it takes more than half an hour to cut the grass on a football pitch.
+
+[00:27:21] And this is just literally the use of, I mean, using global warming as a force for gardening. Yeah? Hot turtles, better gardening. Yeah, I kind of like climate change now. I'm not, to be pointed out in favour of climate.
+
+[00:27:37] Because the seagrass buries carbon 35 times faster than a tropical rainforest Another fact that I read. It's amazing. Seagrass, they take carbon from the water To build their leaves. The leaves eventually die. That sediment stays on the ocean floor for hundreds of years.
+
+[00:27:54] And so that's how they sequester. So that's essentially carbon capture. It's captured in the silt at the bottom. Yeah, it's really functional carbon capture. And I think 10% of the carbon in the ocean is buried by seagrasses or sequestered by seagrasses. despite them being 0.1% of the ocean floor. So it's really impressive.
+
+[00:28:13] Yeah, we need loads more of it. Can we plant it? There are a few plans to plant 18 hectares around the UK by 2026, which is not... Doesn't sound like that. I don't know how many hectares in a football pitch, but it sounds like a few hours and that's done no good at all. It's not, yes. I think there might be more like pilot schemes, but they are trying to get more going. And of course, if you protect bits of seafloor, then...
+
+[00:28:36] Do the turtles, answer? Did they eat sea grass? They eat the tips of it. I think that stimulates growth. Oh, okay. So there's no cause to eradicate the turtles to save the sea cows. Your anti-total society is just not going to be a thing. Let's just check. We've got to be open-minded.
+
+[00:28:51] Maybe the turtles are the villains of the peace. We're blaming ourselves for all our factories, but maybe those turtles. For the listener, right? And cleverer than they look. David's wearing a T-shirt, which is saying stop sea turtles. It's really, it's upsetting. Outside of seagrass, they're quite fussy eaters, sea turtles. Yeah.
+
+[00:29:10] They're given a bigger menu to play with. So one of the other problems of the climate at the moment is sometimes they're going off course, they're going into colder oceans and they get hypothermia. So there's a lot of turtles that wash up onto shore and either they're dead or they get rescued and taken to turtle hospital where they then get this brilliant menu of different things. And so each individual turtle has just a different kind of taste. Like number seven doesn't like the squid, for example.
+
+[00:29:37] Not interested in it's weird. A few of them don't like tails. Don't give them any fishy tails or anything like that. Really? Yeah. And also it's creating chaos because turtles are very, like, they're very solitary, but they're in tanks together to be fed. And so there's, there's turtle bullies that they have to sort of reprimand and tell off
+
+[00:29:52] and so on because they're eating the tails and so on, yeah. You can give turtles if they're not very well. You can give them mayonnaise to eat. Did you see this? So this is if there's been an oil spill and the turtles have eaten a lot of oil. If you give them mayonnaise, it helps them to shit it out. And the reason is because obviously mayonnaise is what, it's oil and whatever it is. Eggs?
+
+[00:30:16] Yeah. It's an emulsion. We're revealing our ignorance here, aren't we? And it's a really base food stuff as well. It's not complicated. This isn't off menu. We don't need to know anything about food. It comes out of a jar.
+
+[00:30:28] Let's be honest. Yeah, but it has an emulsifier in it which mixes water and oil. So if you've got oil inside you, the emulsifier inside mayonnaise can help the oil to mix with the water already inside the stomach of the turtle and then just makes it easier to excrete. That's so interesting. That's amazing. Yeah. So all these oil slicks are basically, they're just a conspiracy by Big Mayo. That causes massive spikes in the Hellman's share price.
+
+[00:30:59] Whenever BP has a little mistake, and suddenly, catching. I've got a link to the previous fact, weirdly. Oh, yeah. To David's fact. It's headline fact. So seagrasses stop people getting gastroenteritis. Oh. Isn't that good?
+
+[00:31:18] So if you have gastroenteritis, because you've drunk some water normally, which has the pathogens in it, which calls it, seagrass metals have way, way, way fewer of those pathogens in and around and among them. So that water is just cleaner. You're less likely to get gastroenteritis. from there. And they've tried to calculate it as between 8 and 24 million cases of gastroenteritis prevented every year. Wow.
+
+[00:31:42] And I think it's because the seagrass kind of uses it almost like a fertilizer and takes it into its body. Exactly. It takes the gastroenteritis pathogens out of water. Yeah. But can it grow in non-sulty water? Oh. Almost none of it.
+
+[00:31:57] No. Because it might be one fresh water. But no. It's a problem there in terms of how useful it is. Well, if you only drink sea water like me, it's actually... Yeah, that's fine for you. But, you know... Still spikling or salty, at New England.
+
+[00:32:11] I've just worked out a mnemonic. So how many cases did I say it prevented every year? Little quiz. Instant recall quiz. How many million cases? I think it was a football picture. It was between 8 and 24 million cases, right? Okay, all right.
+
+[00:32:25] Now, if you need a mnemonic to remember that, those are the ages of Matilda and the Holy Roman Emperor when they were betrothed to each other. And if you need a mnemonic the other way round How was Matilda? It was like, oh, what's the lower range of cases of gastroenteritis prevented each year by seagrasses? Beautiful.
+
+[00:32:43] You're welcome, guys. So 8 and 24 when they were betrothed, but 12 and 28 when they were married. So not that. That would be to massively overstate the beneficial effect of seagrass on gastroenteritis. I have a thing which I want to link back to the previous fact as well. So we have a mystery butcher of the previous fact.
+
+[00:33:03] I found a mystery turtle that I don't know much more about that I want to find out about and it's the first turtle to go over Niagara Falls in a barrel and survive. This was a... So I'm now plunging out of the image of people glumly looking and a huge pile of dead turtles at the bottom Niagara Falls and go, I don't know, maybe try taping the next one to the inside of the barrel. Well, this was 1930, there was a guy called George Stathicus
+
+[00:33:31] and he had this idea of going over Niagara in a barrel. And the barrel goes down. It doesn't break up, but it gets caught in a sort of a tide that's underneath. I don't know what you'd call it, but he can't escape. And he's there for 18 hours in this barrel. So when they find him, he's suffocated, he's dead.
+
+[00:33:50] And Sonny is, sorry, yeah, there's a dead man in the story. Do we suspect the turtle in this story? Oh, I haven't thought of that. Only one of us can survive this. Yeah. Well, the turtle might have been feeling quite negatively towards him, to be honest. This guy, you know, I wouldn't blame the turtle for not giving him mouth to mouth. This is the guy that's, what are we doing now, sir?
+
+[00:34:15] A hundred years old as well. Exactly. That's a very old turtle. It's a really old turtle. And the barrel is in a museum now. It's held as a kind of piece of Niagara Falls history. But where did Sunny go? No idea.
+
+[00:34:25] Like the butcher, you know. Oh, we don't know what happened to the turtle after that. Someone might know, but I couldn't find it. Because they can live a lot longer than a hundred years, can't me? Because it wasn't there a turtle? I think I had this on QI. But there was a turt. It wasn't clive of India's turtle.
+
+[00:34:39] I think that's a tortoise. Oh, no, that's a tortoise. Is it lonesome george? If I was American, that would be a turtle. Unfortunately, you're the least American person on the planet. Is that a scientific fact? Yeah. The least American person.
+
+[00:34:54] That's going on the poster. Yeah, yeah. The Dalai Lama is slightly more American than me. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that in 1861, there was one street musician for every 10 streets in London. That's... What a time to be alive. What a time.
+
+[00:35:23] Noisy, noisy time. Sounds like it was a bit of a bad time for quite a lot of Londoners. Yeah, so this is according to journalist Henry Mayhew, who's article, admittedly was relatively negative towards the street musicians, but he estimated there were approximately 1,000 street musicians, 10,500 streets. Okay. And it was a real problem. We've said before, I think that Babbage really hated them.
+
+[00:35:46] He really got frustrated with them. And he was actually him and the guy called Michael Bass, who ran the Bass Brewery. They managed to get it regulated in 1864. But for probably the decade up until 1864, London was just an unbelievably loud place to live. largely thanks to these. Yeah. And what was there, what genre of music did they favour? Oh, it was all sorts.
+
+[00:36:09] So Mayhew said there were English violinists, Scottish pipers, German brass bandsmen, Italian grinders. So that'd be like, you know, organs. And one French hurdy-gurdy player. Just one out of all the thousand. Yeah. Oh, here he comes. It was a she and the women can be a hurdy-gurdy-gurdy-oldy player.
+
+[00:36:32] I'm sorry, that's my prejudice there. She had an instrument that, according to Mayhew, had a battered, heavy look about it and was grievously harsh and out of tune. And for 43 years, she had her regular rounds. 43? Yeah, so she went to Marleybone on a Monday, Kentish Town on a Tuesday. So you knew how to avoid it. Exactly.
+
+[00:36:53] You said, I saw a herdy-gurdy player. Recently, I was in Canterbury, and it's a very hurdy-gurdy. It was the very old, old bit of Canterbury. you know, the cathedral. So you think he was a ghost? I don't think he was a ghost. No, he ran through a wall as soon as I started asking a question, but he wasn't a ghost.
+
+[00:37:11] Could you remind me what are you? There's a handle, you wind. Yeah. And he was doing something with his other hand as well. And it looks like a small violin with a handle. Oh, okay. How interesting. This is a really bad decision.
+
+[00:37:22] Is it a stringed instrument? It is stringed. Okay, so the fingers are kind of on the frets to, like a guitar. This is sounding like the car that Homer Simpson designed. It's having some strings. but also handle, little keyboard on the bottom, and then you blow in the end. I can't remember whether there were strings and frets
+
+[00:37:39] or whether there were keys to play. I think it might have been keys in a handle, but it was a very much a combo thing. Yeah, that's great. I only know it as like a comedy word, really. I know, I was staggered. That's why I said, what's that to this guy? And he just went, woo-hoo-hoo.
+
+[00:37:53] That was the hurdy-gurdy-making nice. There was one of the person, just while we're on it, described by Mayhew, who was an Italian fiddler who would go around imitating all the farmyard animals with his fiddler
+
+[00:38:09] he said he'd been doing it for 12 years and he could imitate the bull, the calf, the dog, the cock, the peacock, the ass and the hen when she's laid an egg. That's amazing. What he couldn't do is play a fiddle. What he found is that if you just bash at a fiddler, it makes this
+
+[00:38:29] that is exactly the noise of henmates and it's just later you might not be familiar that you live in central London but if you head out to the countryside and listen to it, it's exactly like that so isn't that, that's worth a bottle too how come there was money to support them? Why were, people must have been paid for it.
+
+[00:38:48] Yeah, but it was like just pennies here and there but they were doing it day and day out and these people, they had their regulars so they would go to Miley Bone or to Kensish Town because they knew there was someone there. who would give them, you know, a few hapneys here and there. And that's all they needed to live, really. Nice.
+
+[00:39:04] So these, like, grinders, as they were called. And the particular thing that people got annoyed by was people with barrel organs, because there was a bit of racism in it because they were mostly from Italy and quite poor. And the other thing that annoyed people was, you just turn a handle. There's no skill involved. There's no skill. It's not the skill of making a violin sound like a screech out. Like a goat that's been surprised, but not badly.
+
+[00:39:28] Yeah, yeah. But so you just buy a barrel, slot it into the organ, turn the handle. The same tunes come out every time. So that was a frustrating thing for a lot of people. So Charles Dickens' illustrator called John Leach claimed that he died early because... You saw him in Catterbury, didn't you, Andy?
+
+[00:39:48] He said this is killing me, and then he died, and he said it's because of this. His final words to fellow artist William Frith were rather Frith to be tormented in this way, I would prefer to go to the grave where there is no noise. There we go. There we go. Really, can, isn't it? They buried him under the bounce tag that Clapham Commons.
+
+[00:40:09] I was looking into what was going on in 1861, London at the time. Just curious. No, as in, I've got the answer. The invention of the toast sandwich. Because Mrs. Beaton's book of Household Management was first published, 1861, and one of the recipes in there was toast sandwich. Get two bits of bread, put your bit of toast inside. I've eaten that, actually, tried it.
+
+[00:40:29] Have you? Well, we did mention it on QI once, and I thought I'll see what it's like. Yeah. And it's not as bad as you might think, I would say, because it gives you a little bit of texture to what otherwise is quite boring piece of bread. So there's bread toast bread. Yeah. Well, people put crisps in sandwiches, don't you?
+
+[00:40:44] For a bit of crunch. Yeah. But there's usually something else. Although I think actually a sandwich of just butter and crisps. I mean... Flavour of choice? I mean, I'm ready salted. Oh, ready salted.
+
+[00:40:56] I think that's probably right with that combo, I think. Yeah. Salt and vinegar wouldn't quite miss. It's a lot more about texture than taste. Yeah. But you still think you might a little bit of something else. I think there was butter on it in Mrs. Beaton's version. Yes, yeah, yeah.
+
+[00:41:09] So that was invented and that was, well, the book was published and that was a very notable, notable, very odd, a bit of recipe. Black velvet. You might have seen people walking around the street, 1861, drinking black velvet. Oh. Now, this is a Guinness with a glass of champagne. That's right. It's really. And that's from then.
+
+[00:41:28] Yes, to commemorate a very big death of 1861. Albert? That's right. Albert died December 1861. And he invented a cocktail. Just before. No, no, no. He said, this cocktail's going to kill me.
+
+[00:41:42] And then he died. And then he said, that's what they've told you. Can you think why they might have invented the cocktail? I mean, to try and monetize it, I suppose, in general. Is it black for a morning? Yep. So, and then champagne for a royal celebration? So the Guinness would sit, like,
+
+[00:41:58] a black band like mourners were wearing around their arms. The idea was that it was a... It's like getting a top on your beer. Is that a lager top? Is that what... What is it lager top? It's a normal pint of lager, but they pour out the tiniest bit at the top
+
+[00:42:11] and they give you a little dash of lemonade just to take the edge off. So it's like a very, very strong shantle. Yes, exactly. When your shandy's become a lager top, you're just telling yourself, that's just beer, mate. And particularly when you're saying,
+
+[00:42:25] instead of the beer, use whiskey. Just two more things because it's quite fun to know. It was the publication of great expectations. So Dickens obviously had been printing the stories in serials, but it was the first full book bringing the chapters together. And then the last one that I found was it was the introduction of Widow Twanky into pantomime. Yeah, 1861, the first ever pantomime. It sounds like a good time to be alive.
+
+[00:42:51] It's great. It's great. for the suppression of unnecessary noise. No. This is my kind of organisation, basically. And yet you said David Mitchell is not very American. So this was a doctor called Julia Barnett Rice. Okay, she qualified in 1885, got a medical degree but didn't practice. I think, I don't know if women were allowed to practice in the 1880s, 90s.
+
+[00:43:19] I'm not sure. But she really wanted that street vendors not be allowed to shout. And she made it her life's course. and she and her husband, he was called Isaac Rice. He was an interesting guy in various ways. He invented a chess opening that was called the Rice Gambit. Really? And then spent about, apparently, the next 20 years of his life,
+
+[00:43:41] researching, analyzing, and testing the soundness of his gambit. That's great. What a thing to spend your life doing. Yeah, yeah. But the thing is that I've never heard of that, and I follow chess a little bit. So, presumably, it wasn't very useful after all the 20 years. No, he got to the end of the 20 years.
+
+[00:43:56] Like, oh, it's not allowed to move that way. Oh. Cancel that. I have never in my life met a bishop that could only move diagonally. It's just not realistic, whereas castles can't move at all without an earthquake. And they just, they had a house on Broadway, way too noisy. So they moved up to by the river, right, on Riverside Drive. They built their own house, had a basement vault dug so that they could have somewhere quiet.
+
+[00:44:27] Part of it because they had six children So the house was quite noisy So he stayed in the basement a lot of the time Doing his gambit As he called it That's actually what the rice gambit is Because they were by the river The riverboats made so much noise
+
+[00:44:45] Blowing their horns all day So she, Julia She hired students to count the number of toots per day And it was about a thousand toots per day But if it was foggy it was 3,000 So she started a campaign saying Look this is very bad for people's health particularly, and it was mostly because she didn't like it as far as I can tell.
+
+[00:45:01] Yeah. But the tugboat captains found out about this campaign of hers, and they found out where she lived, and they would gather outside on the river at night and all blast their horns. Oh no. But she genuinely got the law changed. And she got Mark Twain involved. Wow. Like she established quiet zones around hospitals. How many boats sank then? A lot of helpless chip wrecks. Trags, tragically, but very quiet ones.
+
+[00:45:23] That was the key. Yeah. That's amazing. Another person who hated it was Thomas Carlyle, just to go back. to the 1850s in London, 1850s and 1860s in London. He once wrote that he was considering to assassinate a violent Italian organ grinder who worked near his house. But I think he might have built the first ever soundproof room in his house in London.
+
+[00:45:44] This was in 1853. It had double walls and it had a slated roof with a gap in between where he could get like muffling chambers full of air so the sound couldn't get in. And it cost him 170 pounds, which according to... into one online calculator I found said it was about £30,000 today. It cost him. For a house extension, that's, you know. Yeah, in those days.
+
+[00:46:05] Yeah. I think, yeah. Why didn't they pay the annoying organ grinder to go away? Oh, I think you could do that. I think that is how they earned quite a bit of their money, just extorting it from people. That must be a, it's a glum profession, though. You know, ostensibly, you're there to, you know, to hear to entertain with our violin that sounds like a cow.
+
+[00:46:25] And you go actually never The real money is people who desperately want you to go. It would be if we went doing live shows like we do and we got on the stage and everyone had done a whip around for us not to do the show. Can I give you one last set of buskers? This is in 2009 in Birmingham. Two buskers who only knew two songs
+
+[00:46:43] and have been playing them in the same part of Birmingham for 18 months on end were given asbos. They were, they knew Wonderwall. That's the worst review. Five star. Four star, three, three, three, three, three, star, and then there is Aspo. It was Wonderwall and Faith. They had a guitar, and they had a bin lid.
+
+[00:47:04] And, yeah, but they were playing it to like four or five or six in the morning sometimes. One person said, to be fair, they didn't do a bad rendition of the songs. But then they would, if you lived in the area, that would become the main version of the song to you. And then you listen to Oasis doing, you go, no, they've got that bit wrong. There's a few classic London ones. I think most tourists will probably remember if they've got the tube, like the Henry the Hoover. What, is that a person in a Henry the Hoover costume? No, there was a guy, I think, next to it on a keyboard, but then he had accompanied by this Henry
+
+[00:47:34] the Hoover that had the saxophone that would shoot bubbles outside. Yeah. So, sorry, is the, where's the saxophone? In the nozzle, I guess. Of the Hoover? Yeah, it sucks. But the far end of the nozzle, like the bit that does the hoovering, or is it right, is it, have you removed the Hoover's trunk?
+
+[00:47:49] I can't believe. If you jam the saxophone into that. Quickly, what I thought was a solid image in my head has collapsed. It sounds great. I just want a bit of doctrinal re-rescience. If you suck a saxophone, does it make the same noise as if you blow a saxophone? Wow, great question. Yeah.
+
+[00:48:06] I don't know. I might stuming, not. You would think, that, yeah. Because you're sucking it into the, is it the horn, the mouth of the saxophone? The belland, actually. Is it called the belland? Okay. So it presumably will make the opposite, the opposite noise.
+
+[00:48:20] There's no one. There's no one. Well. we're now into quite theological what's the opposite noise to February yeah I mean no I like this yeah I think the big
+
+[00:48:35] we're finally getting to the big question 500 out soon finally doesn't noise have an opposite does noise have an opposite wave function well they can do things can't they sometimes when if there's a noise of air conditioning
+
+[00:48:47] when you're recording something they can record that and in some way inverted and then so it sucks that noise out. So if you're at home and you know what the opposite of the word February is, send it in. It's the noise that you would play over the word
+
+[00:49:02] February in order to induce silence. And all these irritable Victorians needed was to have that on their own barrel organ and turn the handle and it would go quiet. That would be amazing. The opposite of Wonderwolf. Stop the podcast.
+
+[00:49:23] Stop the podcast. Hi, everybody. Just let you know, we are sponsored this week by ExpressVPN. Absolutely. ExpressVPN, it's the place to go if you want to add a little widget to your computer or phone, which will stop someone this Halloween season from putting their eyes on you. That's right. It's spooky season, and it's a season for being observed surreptitiously from the corner of the room by a spider or a ghoul. or by powerful government agency. Sorry, I'm going into CIA territory there. And if you're listening, guys, hello.
+
+[00:50:01] The point is your internet service provider can track your activity online, and ExpressVPN allows you to reroute your activity through encrypted servers to protect your privacy online. Yes, absolutely. Another thing that VPNs are useful for is you can access material that you might not be able to get in your country.
+
+[00:50:20] So, for instance, when I was in Montenegro, I could watch the England football game, in my ExpressVPN. So it's not just about hiding from GCHQ. It's Allsards. And right now you can get three extra months of ExpressVPN for free by going to ExpressVPN. That's letters VPN.com slash fish.
+
+[00:50:42] That's right. Just go to ExpressVPN.com slash fish to learn more and to get your extra three months for free. Up with a podcast. Okay. it's time for our final fact of the show and that is my fact. My fact is that in 1993, a man in
+
+[00:51:03] in Brazil who robbed a factory of its glue was arrested 36 hours later, still in the factory he was robbing because he was stuck to the glue he was stealing. Didn't he think to steal the glue in its containers? I think what happened? So this is a guy called Edelberg. He was just putting it in his
+
+[00:51:19] pockets. I'll just take the glue loose. It's so heavy these cans. The police will be looking for tubes of glue. They won't be looking for raw glue. It was a 19 year old. He was called Edelberg Guamars. We don't have to name him. Yeah.
+
+[00:51:37] The pronunciation is the opposite of that noise. I actually think he was probably called Edilberto because I googled it and I can't find anyone else called Edelbert, but there's a lot of people called Edelberto where it runs over two lines and there's a hyphen right. That's interesting.
+
+[00:51:54] So yeah, so I saw the story in the Washington Post. It was part of a yearly round up and it was a 19 year old and he did take two large cans and since something must have happened they tipped over as he was trying to get out of the factory glue spilled everywhere he obviously tried to pick up the glue put it back in I don't know and got stuck to where he was it is very easy I had to do a minor glue job the other day and the amount of glue on my hands at the end of it was when you say glue job is that like a bank job were you also stealing glue no yeah it's just it's very easy even with a small try that quickly
+
+[00:52:27] Oh, God, that dries so fast. Yeah. This is now my... The glue is very, very annoying because it either doesn't work, like, you know, essentially prit stick. Yeah. There are other brands of glue that don't work.
+
+[00:52:41] You know, they sort of go and that's, okay, it sort of sticks it a bit, but, you know, so does snot. Or it's just so incredibly effective. You can't be angry with it, can you? Because, you know, yes, it's doing exactly what... Yes, I wanted it to stick things together. But, yeah, I didn't say my fingers. But yes, I did apply.
+
+[00:52:57] my two fingers to each other while there was glue on one. And now, you know, but it's like the glue is being facetious. You know I didn't want to stick my fingers. Whenever has anyone wanted to stick their fingers together. Yeah. Yeah. I didn't, it was through researching this fact that I didn't realize how important super glue is to the world of live music.
+
+[00:53:17] Oh. For live shows. So take a band like the Red Hot Chili Peppers, flee on the base, very aggressive with his playing, slapping and popping and all sorts. And he'll get huge calluses during the gig. And sometimes with old wounds that he's got, they'll be ripped open. So he's got missing bits of his hand.
+
+[00:53:32] So he'll run off stage, grab super glue, fill in the hole. Oh, no. Yeah, yeah. And come back on, John Frosanti does it. The guitarist of the Red Hot Chili Peppers. Stevie Ray Vaughn does it. There's so many musicians that talk about... They've got to give it a minute, or they're going to stick to their instruments.
+
+[00:53:45] I do... I know I have someone else who glued their fingers together, actually. Oh, yeah. For a specific use in film. Is it something we can guess? It's something you can guess. It's something you can guess. Oh, okay.
+
+[00:53:58] Yeah, I know it, so I won't say it. Oh, great shout. Here's the only thing I'd say is, like, an additional clue. I can't do this. So if I was in the movie as this character, I would require the super glue as well. I'm thinking of one of two things. Is it E.T. Oh, yeah, weird fingers.
+
+[00:54:15] That's good. Or, or Spock. It's Spock. Well, you couldn't do it without a clue. Mr. Spock. Zach, yeah. Zachary Quinto in the new Star Trek film couldn't be. do the Vulcan salute.
+
+[00:54:29] So they glued it. I can't do it with one hand, but not with the other. Right. Would you feel if for that reason you weren't cast as Spock in Star Trek, would you feel that that was okay? I think so. Or would you feel you were being discriminated against? Well, he wasn't discriminated against. I don't know if he showed up to the audition pre-glute.
+
+[00:54:48] I would say if I was auditioning for Spock, first thing, can you do that with your hand? If so, okay, let's look at the script. I'm too. In fairness, they don't only cast people with pointy years, so they do add some kind of... Having said that, though, if some people had pointy ears, they would have a legitimate grievance. I mean, talk about if there were real Vulcans among us, and then suddenly we're getting people to Vulcan up. Yeah, that's not appropriate, is it? But because Vulcans don't happen to exist, it's okay to pointy ear up non-volcano.
+
+[00:55:19] But similarly, the hand thing. I do feel like Zachary Quinto is taking jobs away from people like me who can... doing that. You can do it really dead easy with both. You two can't. I can do it with one and just about with the other. And you can't do it at all. I can't do it at all. No. Well, you can play Kirk. That's fine.
+
+[00:55:38] There's plenty of parts. Was William Shatner Kirk? Yeah. Yeah. So he couldn't do it either. And they tied his thing. No, no, but he apparently has to do it at one point. They tied his fingers together with fishing line. No. Oh my God. That makes sense.
+
+[00:55:55] That's very glue. It's lovely. You say I'm the least American person, but you ask, was William Shackenokey? I mean, I have to say, I really knew that. That's a piece of popular culture
+
+[00:56:07] that got through to me. Was Elvis Presley a singer? Speaking of body parts and glue, do you know what butt glue is? Oh, butt glue. I have a product at home called butt clean. It's for my... I have a water butt.
+
+[00:56:27] So... You must be disappointed when you bought that off the internet. I didn't. The amount of capsules I wasted for realising they had to be just dropped in the water butt. So that's so it cleans a water butt there. Yeah.
+
+[00:56:41] Yeah, yeah. You just pop it in and it fizzes a bit. It's kind of like... All the turtles just float to the earth. This is actually must do with the American... So what's it called? Butt... Butt glues is for a room.
+
+[00:56:52] That's a terrible bud remake. But finger. Blue. That's not for repairing water box. No, it's not. It's for the bottoms. And it's for people who compete in pageants. If you're wearing a very tight bikini,
+
+[00:57:10] you want it to be exactly straight on your cheeks. You don't want it to ride up or anything like that. You put it between the bikini and the bottom. So it sort of goes on the bikini to get it positioned. I was thinking it goes on the bum, but it sort of lifts the bum. Well, Andrew, you would be good in the pageant world. According to the Bravo show.
+
+[00:57:31] I think that as well. I'm amazed that is his line of work. You would be an innovator because according to the Bravo show, Game of Crowns, which is quite recent, some people are using butt glue to actually hold the butt cheeks together to kind of make them seem very pert because it's not very strongly. It's water soluble so you can put some water down there and it all. open them up again. So that...
+
+[00:57:56] You just need a... Thank goodness. So do not use super glue instead of butt glue. You're doing your air fix with butt clue. It's not like, oh my God. Is that a common complaint in beauty pageant terms
+
+[00:58:10] that the buttocks are too... They want them to be more hurt. Far apart. As a side of a criminal disposition. I don't think they all do this, just to say, if you're a beauty pageant... Of course not. No, no, no, of course.
+
+[00:58:21] I think, but just some people do it too. But I thought there was glue. There's all sorts of bits of glue for sticking bits of makeup to people's faces. Surely this is the same as back glue. There's no need to say that this glue is skin glue. It doesn't need to be specifically for the butt. I think there might be some marketing going on there. Like I have something called nerd wax, which you used to keep your sunglasses on.
+
+[00:58:43] Right. Because my nose is quite small, so my sunglasses slip down my nose. And you can kind of put it on your nose and it kind of keeps it there. But really it's just wax. But they've put it in a nice tube that says nerd wax on. and it made me want to buy it. So I think it's a bit of that. So, Buckle, you could use it wherever you know.
+
+[00:58:59] Bugger glue. Anyone heard of bugger glue? Okay, bugger as in the American slot? Yeah, sorry, I should explain what bugger is to the non-American here. No, I've heard the expression despite being so un-American. As in for a unit of snot, isn't it? A unit of drive snout. Like a boogie?
+
+[00:59:15] Like a boogie. Is it used in beauty pageants to hold the nostrils together because it's considered to be more beautiful? Too far apart, not. hostles. It's the remember when I used to get a card, bank card through the post and when you would take it off, there would be a little bit of glue. Yeah. That's clever. That's
+
+[00:59:33] clever. That's notty. Bugger glue. That's good. That's satisfying though because when that comes away, it's gone. Yeah. Completely, which is actually not the case for snot. I'd say snot leaves more of a sort of residue. Better than snot. Better than snot. We've invented a better snot. But now all we need to do is get it to somehow come out of our noses.
+
+[00:59:54] because at the moment it only manifests on credit cards rather than in the bank of cheats when you've got a cold. Come on, AI. I need to wrap us up in a sec. Oh, should we do some bungling criminals? Yeah, well, not a couple of bungling criminals.
+
+[01:00:07] There was a man who stole a parcel from Reading. Wasn't to contain Henry the first to remain. This is in 1994. It was in early 90s. It could still be after the first. Yeah, yeah. and it turned out to be a bomb. Oh, no.
+
+[01:00:27] It turned out to be an IRA bomb. And he ran down the road, pointing to the suitcase that he'd stolen, shouting, it's a bomb, it's a bomb. And passers-by thought that he was high on drugs, but he dumped the suitcase outside a shop, and 200 homes in Reading had to be evacuated while the bomb squad made it safe. I thought you were going to say, blew up. No, no, no, no.
+
+[01:00:48] I'll tell you how safely put it outside a shop. I'll be honest, I think he was panicking. How did he... Because there must have been... There's a moment of realisation in that story, isn't there? He's stolen the suitcase. It's labels, IRA. It's ticking or there's a fuse or something.
+
+[01:01:06] The truth is, like, you would think it probably wasn't a bomb, right? But they did, you know, they did make it safe. So the newspaper report did say that it was a bomb. Yeah, okay. Yeah, could have been. A hero butcher? You want to hear about a hero butcher? Oh, yeah.
+
+[01:01:19] Another one, yeah. This was a man who's... stole six pounds from a butcher, but the butcher was also an amateur magician. And rather than raising the alarm, because he thought the guy would run away if he said, stop thief, he decided to do a trick where he pretended that 50P had gone missing. And he said, oh, let me find it. It might be about your person. And he searched the person and found the six pounds that he'd stolen.
+
+[01:01:44] That's brilliant. This is in 1976. People were more willing to stand still there. Yeah, exactly. And the butcher suddenly, I know, I have just stolen six pounds. And now the butcher is coming around the counter and doing a bit of a trick about coin. This is an eerie coincidence. And how can the butcher prove, unless the butcher has already written his initials on the six pounds,
+
+[01:02:08] which he might have done as part of the magic trick? Just saying that's my six pounds. What are you going to do? Maybe it was a coincidence. And the butcher always basically stole all the money of the people who came in. But on this occasion, it was just money that, you know, he was nicking back. The reason we know about it is because actually the butcher let the guy go and even gave him some sausages for his tea
+
+[01:02:30] because he could see that he was in need of this stuff. But when the guy was caught for a different robbery, he was in court in Newcastle and he asked for this and a few other crimes to be taken into account and then they brought the butcher in to corroborate it. So that's how we know it happened. Why did he mention that when he was being done for something else? We know what?
+
+[01:02:50] He wasn't taking it any further. And it said, have some sausages. Guess how I got these sausages? It's a funny story, actually. I'll tell you what I should tell you. You know what? I did think that. But it is a thing that they asked for other things to be taken into account,
+
+[01:03:06] doesn't they? But that, I think, is what they're saying is it precludes future prosecution. I think that might be it, yes. But I think on this, so I suppose maybe. But on this case, there's no way the butcher's going to go, actually, I've thought about it. That was out of order and I want the sodies. Do you think it might make the judge look more kindly on you to say?
+
+[01:03:23] all right, I've turned over a new leaf, by the way. Here are some other things I did. Well, maybe. I think if you said to the judge, I've never done anything wrong before, that's fine. But the difference between saying, talking about five previous robberies rather than four, I don't think that's going to meaningfully change the judge's view on you. Because it's such a funny story. The judge must get a lot of quite grim cases of theft and burglary and stuff.
+
+[01:03:46] And actually, this funny thing that happened in a butcher shop would make me look more kindly on a crick. Now I know you're a bungling crum. Bungle him. And then the butcher, the butcher, saw the funny sign. David and Tosse. Yeah, and then I mugged an old lady.
+
+[01:04:08] Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, James.
+
+[01:04:19] At James Harkin. Andy. At Andrew Hunter M. And David. At Real D. Mitchell. Nice. But I don't actually. look at any of the replies because it's so poisonous on there.
+
+[01:04:28] Yes. So, you know, you won't be hearing back from me. Tweeting you abuse for years. You mean you haven't been reading? I'm well aware. Yeah, or you can go to our group account, which is at No Such Thing, or go to our website, no such thing asafish.com. All of our previous episodes are up there, so do check them out.
+
+[01:04:45] But most importantly of all, get David's new book. It's called Unruly, a History of England's, Kings and Queens. It's out now in all shops and online. That's it for us. We'll be back again next week, and we'll see you then. Goodbye.

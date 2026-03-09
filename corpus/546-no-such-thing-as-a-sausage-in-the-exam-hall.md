@@ -1,0 +1,267 @@
+# No Such Thing As A Fish - 546: No Such Thing As A Sausage In The Exam Hall
+
+- Episode date: August 29, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/546-no-such-thing-as-a-sausage-in-the-exam-hall
+- Slug: 546-no-such-thing-as-a-sausage-in-the-exam-hall
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing As A Fish, which we recorded at the Underbelly Theatre in London's Soho. It was the first try at our brand new touring show, but we did a full podcast in the middle of that show. If you would like to see all of the other bits and bobs that we will do on tour then you'll have to go and get tickets and you can get those at nosixthingsofish.com forward slash live. At this place you can also learn about our upcoming trip to Gothenburg. We will be playing the Gothenburg Book Festival on the 27th of September. That will be a simple podcast recording but if you want to see all the other bells and whistles including quizzes and special guests and Andy probably talking nonsense about a very obscure subject then you will have to come to one of our other shows in Bristol, Dublin, Glasgow, Newcastle, Cardiff, London or Manchester.
+
+[00:00:59] Again details for all of these shows are at no such things as a fish.com forward slash live. We'll also do some shows in Australia and New Zealand But they are frankly almost all sold out if you beg borrow and steal you might be able to find one or two tickets in Perth and Christchurch I think there might be one or two in our second additional show in Sydney But if you are living down under then really you should try and get those tickets as soon as possible because they are virtually sold out. While I'm here it would be remiss of me not to remind you that we've all written lots of books. Anna and I have written a book called A Load of Old Balls, Dan has got a book called
+
+[00:01:38] The Theory of Everything Else as well as a kids book called Impossible Things, Andy has written novels The Last Day, The Sanctuary, A Beginner's Guide to Breaking and Entering is his latest one. If you're looking for something to read over the remaining part of summer or indeed as the nights begin to draw in, then please do consider getting our books because it makes us and indeed our publishers very happy when you do so. Anyway, enough of trying to sell you stuff. The podcast is free and of course will always be free. And so please do enjoy this free podcast recorded live at the Underbelly Theatre in Soho. Okay a bath in the water. There we go. I'll let you take a bath in the water.
+
+[00:02:26] I'll let you take a bath in the water. Boulevard in Soho! My name is Dan Schreiber, I am sitting here with Anna Tyshinsky, Andrew Hunter Murray and James Harkin and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order here we go starting with fact number one and that is Anna. My fact this week is that Chinese students in the 1700s could rent underwear with test answers on it to smuggle into exam halls. Wow.
+
+[00:03:13] Do you say rent? Yes. If there are rental shops that are doing this, surely the schools would be aware that that was a thing, right? I think people were aware, but the cheaters kept on getting smarter and smarter. That's the thing about cheaters.
+
+[00:03:27] They can always outwit the boring law abiders. This is in the Civil Service exams, very famous Chinese Civil Service exams, by far the oldest meritocratic system in the world. Going since the seventh century, this exam's extremely hard to pass, but if you did pass it, you could be in the Chinese Civil Service. It was very prestigious.
+
+[00:03:49] The exam's basically unchanged for 1,500 years, and throughout the period that it existed from the seventh century to the start of the 20th century, there are these amazing stories of how people cheated. And that's- I'm sorry, I'm sorry, if it's unchanged for 1,500 years, I think I could pass. I think... Oh, yeah, Randy. We're looking at a picture of a shirt.
+
+[00:04:11] I would like to see you memorise that, even if it was in English. Yeah. It's unbelievably tiny characters on this vest, isn't it? Yeah. It is, and this is one of the cheating garments. So these things were called cribbing garments. And, yeah, so there's evidence in the 1700s of underwear made of paper with essays written on it.
+
+[00:04:31] Or it's- Well, that says to me that what you can do is just sort of remove one sheet at a time and hand it in. Surely you'd have to be rummaging around in your undergarments to get the answers that you need. Because what you'd need is to learn a lot of Confucius. That's basically what the exam is, isn't it? You have to memorize rummaging around in your undergarments to get the answers that you need because what you'd need is to learn a lot Of Confucius that's basically what the exam is isn't it? It's after you have to memorize 400,000 characters lots of learning by right Michael Gove would have loved it. Yeah. Yes
+
+[00:04:53] It's just bizarre floor in the system. They were so rigorous about catching cheaters They'd you know, they stripped actually they did everything but they then put you in an enclosed cubicle for a few days to do the exam And in that enclosed cubicle you suddenly whip out your underwear or the things you can actually rent were little scripts that you were meant to sew into your underwear or into your underclothes with the test answers on them but it was absolutely tiny the writing I think there was one which contained 722 finished compositions which was 520,000 characters and it was just in the underlining of the shirt. It's because basically it was a question you knew what the question was going to be and you knew what the answer was yeah but the test
+
+[00:05:31] was can you remember the answer and it's really long. It's a pure repetition pretty much. And that tiny tiny writing is what they use today to make the labels with the washing instructions. So into your... Is that so? Does it? My God. So they locked you away for three days? They did, yeah, yeah. To do the exam? Yeah, and you were very much locked. Could you take food and drink it? Yes, you brought your own little packed lunch. Is?
+
+[00:05:56] Well, I would write on a sausage my answers, you know? Ah, yeah. The evidence after, right? They can't find it. Why are you bringing such an enormously long sausage into the exam Andy? Well, thanks for asking. And the room where you were, at least one of them, this is the examination hall in Jiangnan, you had your little room and there was lots of different rooms and then there was sort of an outer corridor and then it was surrounded by walls full of thorns
+
+[00:06:25] so that no one could come in and give you the answers. Wow. That is clever. And yet people kept outwitting it. No one's ever gone to such great lengths to stop cheats, and it just made the cheats better and better. They used to dig tunnels underneath and then deliver notes to the students.
+
+[00:06:41] You must have had to be so precise to get the exact cubicle that the student was in, because tens of thousands of people, you just pop up in the stranger's cubicle. He's taking a shit while you're going home. I've actually written the answers on this shit. I just had to... Well, it sounds like it hasn't changed though, right? Because modern China, I think it's still the case that every year around 9.1 million high
+
+[00:07:02] school students are doing exams to go into university. And it's a nightmare getting them to the exams, like that's one of the biggest things because everyone's really on edge, you've got to get them from home there. So like on days where the exams are happening, there'll be very specific traffic lanes that are purely for students taking exams. Yeah, the families can drive them in. So it's like, yeah, exam day, this is the lane, express lane, purely for students. That's cool.
+
+[00:07:26] Yeah. So Dan, you grew up in Hong Kong, partly. I know you weren't probably there with the edge that you would have been taking these exams, and you weren't trying to get into the Chinese civil service. You don't know that. I mean, you're here now, so things went pretty badly wrong. Unless.
+
+[00:07:44] Ah. badly wrong. And less. Ha! That is deep cover. Did you ever get the advice from your parents of if you do badly, your mother will die in
+
+[00:07:56] a pauper's grave? Did they ever say that to you? Well my mum and dad are here, did you ever say that to me? No, apparently not. And where does that come from, that advice? Apparently it's a saying sometimes that Chinese high schoolers with especially straight parents get told. Wow. Do you want to hear some of the questions from modern day Chinese civil service exams? Yeah.
+
+[00:08:16] Actually these are to get into the next level of schooling, like university kind of thing. The containers for milk are always square boxes. Containers for mineral water are always round bottles. Round wine bottles are usually placed in square boxes. Write a composition on the subtle philosophy of round and square. No, I do know this one. Is that a modern one? Yeah, yeah, yeah. Yeah, yeah, yeah. Oh, I did that one. Yeah. Yeah. Is that a modern, that's a modern one? Yeah, yeah, yeah. Yeah, yeah, yeah. Oh, I did that one. Yeah.
+
+[00:08:47] Here's one. It flies upward and a voice asks if it is tired. It says no. That's it. I'd say it's it. I'd say it's it. It flies upward. A toddler in a helicopter.
+
+[00:08:59] You must be tired. We've been out all day. I'm not tired. I'm not tired. Do you know the answer? No. Why not? It's not a question. No, it's a prompt rather than a question, let's say.
+
+[00:09:14] Oh, okay. Another one. Comment on the civilised behaviour in Beijing. Don't, Andy. Don't. No, okay. For what object you have a passion deep in the soul? You could choose a plant, an animal or a utensil. It's a great question. I think I see what's happened here and it's problematic. Basically one big criticism of the civil service exams historically was that they were too
+
+[00:09:41] pro-former and they were all about learning by rote, didn't encourage creative thinking. And I think what they've done is they've swung waging far the other way. Oh. There was a good cheating scandal. Well, there have been a few great ones recently, actually. This was a niche one that I didn't know about. This was in Montana in 2014.
+
+[00:09:59] And it was about 90 young officers in the military. They were caught in a cheating scandal where they'd been texting each other all the answers for their questions. They had to do a monthly test. Unfortunately, they were the officers in charge of nuclear missile launch at the Malmstrom Air Force Base and they had just been cheating all the way through. Wow. Right. And because they'd been really worried, they thought they had to get 100% when actually it's only a 90% pass mark. So, yeah.
+
+[00:10:23] Wait, and they ended up in charge of? Nuclear launch. Right. At that point, did they think we may have prioritized the wrong thing here? They were all taken off their work. And that's why no nukes were launched in 2014. Oh, well, thank God.
+
+[00:10:37] Thank God, yeah. Did you guys ever cheat? Were you cheaters, nukes and hands? No. Goodness, no. Oh, OK. Come on. You're just more dishonest cheaters than I am.
+
+[00:10:47] No, I would have shopped a cheater if I'd seen one, but I was too busy focusing on my own work. Oh. I actually cheated for this episode. Did you? I sure did, yeah. I asked ChatGBT for an interesting fact about cheating. Did you?
+
+[00:11:00] Did you? Yeah, sure did. I said, please make it surprising, unusual, and quirky. They said, the headline, pigeons as messengers. In the early 2000s, some students in China trained pigeons to carry crib sheets. The pigeons were released from home with the arms as tight as their legs and flew to the students during exams. It was hard to detect until the authorities caught onto the flocks of pigeons loitering
+
+[00:11:19] around the exam halls. Now I have to say, I have tried to fact check this, and I can't find the evidence. But I trust the robots, as I think we all should. So why, when you can't find a source for my facts, do you not trust it? The future is not in your hands, Dan. Thank god.
+
+[00:11:41] Have you guys seen the cheating hats that you can get? So you can't actually like buy them in Retail shops, but they happen in school classes where teachers are a bit concerned and they make peripheral blockers So you wear big kind of elephant ears on the side of this hat so that if you try and look that way They're sort of sitting there blocking you in I would write the answers on the wing. Yeah. Yes, very nice Yeah, but I read an article about that and it said that actually students quite like it. They kind of feel like they're less stressed because like normally they're thinking, oh people are thinking I'm going to be cheating but it kind of takes it completely out of
+
+[00:12:16] the equation. It's like how the horse loves his blinkers in a way. Sure. Does he? I don't know actually. I mean I don't know if horses like blinkers. There's another really good way of stopping people, this is five and six year olds, but it stops them from cheating, right?
+
+[00:12:30] You get them all in a room doing their exam, they're in lines, and you walk in with a magic wand, and you say, I'm magicing a barrier between you so you can't read each other's answers, and that is enough to stop them from even trying. Really? They're faking it. You're right. That's great.
+
+[00:12:47] Now there's been a recent study and they found that cheating went down by 20% by people who did the magic wand tactic. Oh my god. The slithering. You could sort them right there and there. Yeah. Yeah.
+
+[00:12:58] So in the 15th century, there was an exam with one question that was so hard, only two men in the entire country got it, right? It was Tang Yin and his friend Zhu Jing They were both friends and they got it right They were both friends and they got it right and so obviously everyone thought just as Andy thought how interesting And so they were arrested and accused of bribing officials And they all the way said that they didn't do it He was the bribing officials and they all the way said that they didn't do it. But Zhu spent his entire rest of his life waiting for a pardon which never came.
+
+[00:13:29] He didn't get his job and it was so bad that all of his descendants also refused to take the exam. Wait, they refused to take it or they were refused? They refused to take it. They were like, no, we don't believe in this anymore. And his great, great grandson who's called Zhu Ziyaki so that's think about how long that is later he decided he wasn't gonna take this exam because his great great-grandfather had been accused of cheating and he became China's most influential travel writer of whatever
+
+[00:13:57] century was the 18th century because he would have got it he was a genius he would have gone into the civil service but because he didn't want to take the exam he did this instead that's exactly why he didn't want to take the exam. He did this instead. That's exactly why I didn't take it when I was given the chance. Because I had more to give. When are you going to start giving it down? It is time for fact number two, and that is Andy.
+
+[00:14:26] My fact is that in 2004, musician Jack White released a single through the medium of a couch. So Jack White, he was an upholsterer as a young man. And one of his first bands actually was with another guy who was an upholsterer. They were in a two piece band. And they were upholstering by day and playing by night and they had a great... The band name was, any guesses? I was like, Swades is much better.
+
+[00:14:52] Lovely. They were called the upholsterers. Okay. It's so simple, it's clever. But he is better known as being in the white stripes. Sorry, yes, white Stripes and numerous other... Not to Andy! The who?
+
+[00:15:10] No, I lost it there. No, no, no, fuck it. So, they were in Detroit in 2004, I think he just said about the White Stripes with Meg White, but they had this little band and they were working in an upholstery shop and they smuggled a hundred singles on vinyl into sofas in the shop that they were working in and armchairs and Only two have ever been found so far. Yeah, so it's worth us ripping up our sofas Yes, it is go home tonight because you don't know and get busy and and so anyway If even if you've got an x-ray machine
+
+[00:15:45] You won't be able to x-ray it because they did it on transparent Clear vinyl with transparency cover so you cannot see it you can only know by destroying the sofa They did this as a secret, but we released a vinyl didn't we years ago with Alka pop this amazing record label And we also sold two copies But they had they had this amazing idea for one of their bands where they released the album, but the only way you could buy the album was to get it on the USB stick that they provided.
+
+[00:16:12] But the USB stick only came connected to a very expensive bicycle. So you had to buy the bicycle in order to do it. So to buy the bicycle, that equates it to something like 1,000 record sales, because it was a really good bike. And so the band technically sold, in terms of building back their royalties, a thousand copies.
+
+[00:16:29] So that is ways that bands do that now. Wait, so did they just sell one? Just one. One sucker bought the bike. Yeah. Okay. Yeah. Things in sofas?
+
+[00:16:40] Sure. Things in sofas. If anyone is phobic of snakes, might want to pop out for a bit. This was something that happened quite recently. North Ayrshire in Scotland, staff were cleaning a sofa at a second hand shop and a python fell out of it. Oh.
+
+[00:16:56] Dead? Dead. So that's fine. So it was a second hand shop and they were cleaning it. Not fine for the python. Not fine for the python. But get this, the people who donated the sofa confirmed that they had never had a pet snake and that they had got his second
+
+[00:17:08] hand themselves so it had been the whole time they had owned it it had probably been in there do they not decompose pythons is that something special about them and that's why when you walk streets of London you didn't ankle deep in dead pythons yeah just stick around stick around. Yeah. Amazing. I know. Wow. And the spokesman for the second half, they said, don't let this discourage you from buying reuse from others. This is a very, very rare downside.
+
+[00:17:34] There was a study in, well, there were two studies in 2016. And one of them found that the typical Brit finds three pound 27 a year in their sofa, which is exciting. That was in March. And then in October, there was another study showing that the average Brit finds £5.77 in their sofa. What's happened? Well, obviously, the first study has brought it
+
+[00:17:56] to everyone's attention, and everyone's gone, oh, I'm going to look at myself in that. The average has gone way up. What year was this? Was this recently? 2016, yeah. I feel like it's going down. These days you'll find half a Bitcoin down there. I read this study from 2017 that said 52% of people had lost money down the side of their sofa
+
+[00:18:15] and only 46% said they found any money down their sofa. So there's money to be found? No, unfortunately 6% of people said they found money down someone else's sofa. So there's money to be found? No, unfortunately six percent of people said they found money down someone else's sofa. Hey I read a crazy thing about sofas, this blew my mind today. If you go and you're off to buy a sofa and you want to get a leather sofa and you see in the shop it says genuine leather, you go oh that's gonna be that's gonna be a great sofa right right it's a cheat it's a cheat what what it's okay there were five kind of leather sofas that you can get in terms of quality and the fourth worst is genuine leather because
+
+[00:18:58] they just call it genuine leather that's its name is it not leather no it's it can be up to the discretion of the maker it could could be anything between one and 100% leather. They could put 2% leather in there and they'd market it as genuine leather because that's what you call that style. Oh my god. Who do we write to? We are about to get sued by DFS.
+
+[00:19:16] Really? What do you have the other things called? What's worse than genuine leather? Okay, full grain leather is number one. Top grain leather is number two, which again, a bit confusing, full grain leather is number one. Top grain leather is number two, which again, a bit confusing. Split grain leather, number three. Genuine leather comes in at number four
+
+[00:19:31] and then bonded leather, which is basically just whatever the fuck they wanna put together. If it's worse than 1% leather, that's not good, yeah. Yeah, wow. So just next time you're in a shop and you see genuine leather, it's not. Good Lord.
+
+[00:19:43] That's really good. You should do consumer programs. Oh! Yeah! I think I see that in your stars. Last year, police found something down the back of a sofa in Florida, and it was a suspected drug dealer named Stacey. And she was caught between the folds of a sofa. She was in there. The arrest photo is phenomenally good.
+
+[00:20:06] It's so good. She's just emerging. But that is the most, it's one of the most insanely awesome disguises you'll ever see. I'm sure we've mentioned this a bunch of times before, but like people who were trying to get across from one side of Germany to the other during the Berlin Wall, they would go in cars and they would be the passenger seat. So they would be inside, sitting within the leather. back in the day when they were taking Victorian photos and kids because of the exposure time you'd have to take a photo take one and a half
+
+[00:20:30] minutes parents would dress up as the sofa and hold the kids on their legs so the kid would stay there for the minute and a half it took to do it like we've got a whole history of dressing up as sofas to do advance or speech. I actually want to, I've got to be in my bonnet about that since you've raised it, which you have. JD Vance. JD Vance. I was told, because I'm not on social media, and so I don't pick up on sort of the news,
+
+[00:21:01] I pick up on the real news that's not on social media, but not the crap news that the rest of you read. And you guys told me he had sex with a sofa. JD Vance for future listeners of the podcast is- Was the president. What? What? But who'd have thought that first lady, the enormous sofa that came to the White House with her?
+
+[00:21:33] Yeah, Trump's drowning me and someone just made it up on Twitter the idea that he'd had sex with a sofa And so it's fake. It's completely perfect. It's perfect. It could have been one of your facts dead It is no because not a grain of truth in it. No, it is. It's not fair It's really it's really not is it yeah, it genuinely nonsense. And now people feel they need to be referencing it. What's happened to American debate? Walt said, running mate of... Oh, he used to be the leader of the Resistance, yes. Yes. I can't wait to debate this guy, that is, if he's willing to get off the couch and show up. I mean... Yeah, it was a bit weird. It's weird. It's all gone a bit weird, hasn't it? Here's a thing to get a bit political. Which is the most English way of saying that item of furniture?
+
+[00:22:10] Sofa, couch, or settee? What's the most English way of saying it? OK, so couch is, I think, from French couche. So that's not English. Very good. So what's left? Couch and settee. Sofa, settee.
+
+[00:22:21] Sofa and settee. Sofa. Did I read that one? It's from Arabic? Very good. I shouldn't ask these questions to people who've just spent a day researching sofas, should I? I think, yes, I think it's one of the sofas in Arabic.
+
+[00:22:35] I actually don't know what seti is from. It's from the old English setan, meaning to sit down, like to set something down. So that's properly old English. So if you want to speak proper old English, I think there are different like, sofas have different arms and stuff like that these days. Do you know what, in France,
+
+[00:22:51] they call one of those sofas that has just one arm at the back of it and you kind of lie on it. I think that is a chaise longue. No, they call it a meridien in France, a chaise longue. If they're talking about chaise longue, they're referring to a deck chair. Isn't that interesting? Yeah.
+
+[00:23:08] French for deck chair is chaise longue. Genuine murmur of shock and dismay went through the roof of that. That's really interesting. What is a deck chair if not a chaise longue with all the cushions ripped off and put outside, I suppose? Exactly. Yeah, we'll see where they're coming from.
+
+[00:23:22] You'll be very one of those Chinese civil service exams with musings like that. Do you joining his sofa slang. Yeah, what is the sofa pounder? We're not back on shady Grow up Is it is it a burger but the buns look like so first really good Oh, is it when you do is it that cushion process where you do the judo chop to make the sofa plump up? Do you know what I mean? Yeah.
+
+[00:23:49] Yeah, yeah. No, it's just an observer or a non-participant. You're just sitting on the sofa. What is, what is to couch a porker? Again, guys. Did you have all this before? Anna told you that JD Vance didn't do this. It's wasted research, so I'm just reading it out.
+
+[00:24:05] Yeah, yeah, yeah. So couch park, it's something to do with pig farming? No. Is it something to do with lies? It's to just lie down and have a nap. A different kind of lie, actually. And what is couch hockey for one? That one is rude. Yeah, yeah, yeah.
+
+[00:24:22] That one is rude. That one is rude. It is time for fact number three, and that is my fact. My fact this week is that the mathematician who developed GPS didn't make it to the job interview where she'd later develop GPS because she couldn't work out the directions to get there. Ah, because she hadn't invented GPS yet. Exactly, yeah. This is an amazing woman. So Gladys West. Gladys? I think it's spelled with a Y, but I think it's just Gladys.
+
+[00:24:58] So Gladys West, yeah. Are you saying the woman who invented GPS has West in her name? Isn't that amazing? That's crackers. Yeah, yeah. So she's a co-developer and she is an incredible woman. She's still alive. She's in her 90s.
+
+[00:25:11] And she believed for numbers of reasons that she shouldn't go to this job interview, which was offered to her, which was with the Navy in America and she's an African American. She thought, they're not going to give me a job. No women like me are given any kind of job. There's only four people of color within the company, as is, why would they give it to me? I can't actually find it on a map, so I don't know where I'm going even to get there.
+
+[00:25:33] And I just don't do job interviews, because I'm that good. So she didn't go for the job interview, but then they did end up chasing after her and giving her the job. And then many years later, through lots of developments, she created what was the framework of what then became GPS.
+
+[00:25:50] And so even then, after she invented this or helped to invent this life-changing thing, she still never used it because she just preferred roadmaps. So. And I think, is this right? Because this is just from what I read. But if GPS is like satellites, it tells you where you are by things bouncing off satellites,
+
+[00:26:06] but they need to know the shape of the Earth. And the Earth is not just- Round. There you go, gladius. Oh, wow. Good, isn't it? It is a rookie error. It's not round, that's the whole point.
+
+[00:26:18] I mean, we know that it's a spheroid, it's thicker at the equator, but also there's lumps and bumps and tidal poles and all that kind of stuff and she worked out the algorithms that account for all of these little bumps on the earth. Yeah and she did amazing things like she was one of the people to determine the movement of Pluto in relation to Neptune. Amazing person, by the way Neptune was discovered by a couch. What? Go on.
+
+[00:26:43] I said John Couch Adams. He was a British mathematician and astronomer. Yeah. I only referred him as John Sofa Adams. That's from the Arabic. He's John Satie Adams, actually. I vaguely knew that GPS was a military thing, or like an American Department of Defense, something thing.
+
+[00:27:02] But I had no idea. It was really like, it's properly, it's still run by, do you know who runs it these days? Space Force. Oh! It's Space Force, it's been handed over to them, they're very new, and they've got control of GPS now. But are they under the auspices of the US still,
+
+[00:27:17] or is it being globalised? Space Force has not been spun out, it's still, yeah, yeah. It's America. America, oh, US space. Yeah, it's US government, the master control station is in Colorado, and. It's America. America, oh, U.S. space. Yeah, it's U.S. government. The master control station is in Colorado. And they're really young as well. The average age of the conduct,
+
+[00:27:30] I don't know if they're called conductors. They can't be called conductors. Like, ding, ding, ding, everyone aboard the space bus. All aboard, Earth. That's good. No, but their average age is 23. It's a very heavy responsibility.
+
+[00:27:44] Wow. I know. Oh my God. No, I can't trust that. I It's a very heavy responsibility. Wow. I know. Oh my God. No, I can't trust that. I know. But it's so... But they were all carrying on. Like NASA, the Apollo missions, everyone in mission control were youngins.
+
+[00:27:53] They were all late-age. Were they 23? Yeah, yeah. They were all late teens. Give us a cheer if you're older than 23 in the audience. Nice. Do we dare ask the following question gives a cheer of your under 23 Well, don't be ashamed
+
+[00:28:13] We've got an audience of people who are too old to be in NASA I think that's what we discovered but the aim of it according to Brad Parkinson It was also one of the one of the guys named the father of GPS I mean all sorts of people are given titles about it, but he was very important. The mission was to drop five bombs in the same hole. Wow. Wait, why do you want to drop five bombs in the same hole?
+
+[00:28:34] In case, I think he was, in a high-falutin' way, trying to say we need accuracy in terms of where we're dropping our lethal bombs. I see. I don't think there was a particularly dangerous hole that they needed to subdue. We've got to destroy that hole. Every time we hit it, it just gets bigger.
+
+[00:28:49] Ha ha ha ha. Ha ha ha ha. Ha ha ha ha. Ha ha ha ha. There was a worry, wasn't there, that UK Trident missiles use GPS, because GPS is an American military thing. And if we were to go to war with America, all they'd have to do is turn off the GPS
+
+[00:29:06] and our missiles won't be able to hit anywhere. But I believe that isn't true because I was reading about how Trident missiles find their way to places, and this is amazing. They use stellar sighting. What's that mean? They look at the stars. What?
+
+[00:29:20] Isn't that amazing? That's incredible. Even at daytime, they can lock on to 11 stars. I guess it's like, I've got an app where you can see where the stars are, even in daytime. So yeah, it's actually less impressive when you know that they actually know where they are, and it's not through vision.
+
+[00:29:37] Yeah, but you're a person. This is a piece of rock. It's a bit of rock. No. Look, it's trident, all right? It's probably going to be a bit old. But that's unbelievable. Because you don't want, if you've got your missiles,
+
+[00:29:51] you don't want them to rely on this technology, which could be knocked out by someone else's Space Force. Yeah. Wow. Mind you, using 11, why do you need to use so many? Because GPS, we use four. Four what? Four satellites, sorry. So when we're navigating by GPS, Why do you use so many because GPS we use for for right for satellites? Sorry, so when we're navigating by GPS, it means that the receiver in your car that's receiving signals from four satellites
+
+[00:30:13] But I spent I must have wasted four hours working out why the fourth one exists So three of them to basically you work out how far you are from one satellite Then there's like a radius drawn around that, and you could be anywhere on that line. And then you work out how far you are from a second, and that gives you two possible positions you could be in. And then you work out how far you are from a third, and that tells you where you are. So that pinpoints you.
+
+[00:30:34] Exactly, that pinpoints you. And then there's a fourth one. Time. And it's time, exactly, it's time. The fourth dimension. We know where the suspect is. Exactly. What about if we got there before it was a hole?
+
+[00:30:53] And that's why GPS so often makes you late. So what is it, Anna? What is it? It is time. Is it? Oh, it's time? Basically, it's the fact that the clock in your garment is shit, whereas the clock in all satellites is an atomic clock. They've in fact got four in case the first three clock up. And so the fourth satellite is sort of acting like a substitute clock. So I'm sure you're right.
+
+[00:31:11] I thought I had found out something different, which is that it's your elevation. It also is that. That's a complicated thing. Because the Earth, it's all spheres. So actually I think the other thing is that... It's all spheres discuss Welcome to the Chinese civil service exams Let me just check my pants I know this it's on my gusset. I'm sure of it. No, no guys, please
+
+[00:31:41] Yeah, yeah Why does GPS get it wrong sometimes then there's a whole Wikipedia article I saw called Death by GPS. OK, that is human error. That is people following GPS when they shouldn't be, when they can see there's a road in front of them and the GPS has made an error about the terrain. But that's more like a mapping error, as far as I understand it. But there is a thing where in the early days of GPS,
+
+[00:31:58] you could either have good GPS, which the American government had, or you could have crap GPS, which the rest of the world had, apart from a few select allies. And it was called either, what was it called? Standard Positioning Service, Crap GPS, or GPS Premium, where you have to be an ally of America. Club GPS for just 3.99 a month. We'll give you loads of extra content.
+
+[00:32:22] We'll give you more suspects to target. Yeah, but it was because they didn't want hostile nations having access to the kind of pinpoint accuracy that the US government had. I'm suddenly picturing me and my wife in a car taking the wrong turn, pummeling straight off the edge of a cliff, and our last words being, should have gone premium. Can I tell you about a GPS service from 1916? Oh yeah, wow. It was a Manhattan chauffeur called George Boyden and he painted it this new technique. And what it was, there would be a phonograph in your car and it would play recordings, say turn left now or turn right or go straight on. And it would be attached to your wheels.
+
+[00:33:05] And after you've got a certain distance, it would know to play turn left now. Isn't that clever? That's incredible. Well, obviously the problem is if you miss one turning. Yeah. Oh, yeah. Oh, yeah.
+
+[00:33:18] Yeah. ["Ice Hockey"] We need to move on to our final fact of the show, and that is James. Okay, my fact this week is that playing ice hockey can make you talk in a Canadian accent. Yes. So okay, so this is you don't even need to be around Canadians, you just are, you've picked up your- You don't need to be a boot then.
+
+[00:33:42] Right. That was a crowbar together. That's literally the only word. We've said this before, we came on stage, haven't we? I can't say any Canadian sounding words. I think a boot is the only one anyone can, and you've hogged it now. All right. So this is a linguist at the University of Rochester called Andrew Bray, and he started
+
+[00:34:01] out by studying the evolution of hockey jargon and then whenever he told anyone about the project they kept saying to him well why don't you actually look at why American hockey players start sounding like fake Canadians and he decided yeah why not let's do that everyone's asking out I might as well and so he's interviewed a lot of people it's interviewed a lot of Americans a lot of Canadians and he found that up until about the age of 14, if you're American, you don't really sound that Canadian, but from then on, you really do start sounding
+
+[00:34:33] more and more Canadian. And what he reckons is you pick up hockey terms, like ice hockey slang, and you say that in a Canadian way because that's what all your peers are saying, and it kind of seeps into the rest of your vocabulary. What a Canadian I'm thinking Zamboni. Oh That's interesting. I think that was American actually, but there was Let's say for instance a hockey arena is known as a barn and a puck is known as a biscuit
+
+[00:35:00] In Canadian terms. Okay, and what and then the accent sort of follows along after the words. Yeah, you pick up the odd word and you say the odd word in that accent and then slowly you just start saying more and more in that accent. God, we're so impressionable. It's embarrassing, isn't it? That's how it rolls.
+
+[00:35:15] You know, Gary Oldman, one of the most famous actors from Britain, he went over to America and he does a lot of movies where he speaks in an English, sorry, in an American accent. When he moved back here, he had to have a language coach and an accent coach, basically. Language coach? What accent is that? That's Canadian. Authentic Quebec. So he, yeah, he had to have someone to reteach him his accent.
+
+[00:35:47] In Canadian English, there are interesting vowel shifts that they do. I've never heard of any of this, but there's the aboot, which they don't actually say aboot. If you listen to them closely, they say the... Okay, I'm going to try and explain this. When you say the about, ow is two sounds, right? It's ah and then ooh. Ow. About. That's it, slow down.
+
+[00:36:10] Right. What's that all about? Ah and then ooh, right? Yeah. All right, Professor Higgins, move this on. But in Canada, the diphthong, which is that bit of it, it starts with an exclusively Canadian sound that not only can most people not say,
+
+[00:36:27] you can't even write it down in the... Can you say it? Well... Can you try? Starts with something like eh, and it moves to something like ooh, but it's not a boat or a boot. It's...
+
+[00:36:38] Oh. Well, exactly. Do you know that King Charles is gonna start talking like Mr. T? LAUGHTER What? When? At some time in the future. This was a paper I was reading about something called the intrusive L. And it's the fact that people often drop their L's. So Mr. T might say, I pity the fool.
+
+[00:36:59] And you kind of hear the L, but he doesn't actually say it. There's a few things like people might say, cool, cool, cool, cool, but they don't actually say the L, they're just saying, cool, really. Oh, right. Like, full fighters, right? We call them, we call them. Ha, ha, ha, ha. Yeah, or I'm just, I'm going to the zoo today.
+
+[00:37:18] Yeah. You know what is really interesting about that? So apparently, according to the paper that I said, it's basically an unstoppable trend trend and even the British royal family is eventually going to speak like that But the really interesting thing is in Bristol they add an L. They kind of overcompensate they overcorrect They know that people often drop their L's and so they'll add L's where they shouldn't really be one And so there are some people in Bristol, mostly older people, who might, instead of saying idea,
+
+[00:37:47] they'll say ideal. Or they might say, instead of piano, they say piano. Piano. It's not exactly a full L, but it's kind of a slight L on it. And your logic is that they're trying to, like there are lots of homeless L's now that have been dropped on other people's speech. And the people, the good people of Bristol
+
+[00:38:03] are trying to re-home them. Are they going to be the last people to stand against the disappearing L? Well, presumably there'll be on other people's feet, and the good people of Bristol are trying to re-own them. Are they going to be the last people to stand against the disappearing elves? Well, presumably there'll be some other people who kind of overcompensate as well. But this is true, and it's so true in Bristol, that the city of Bristol was originally called Brigstow, and the people of Bristol started saying Brigstow, and they added the L to Brigstow, and that's how they got the name. So the name of the entire city comes from this
+
+[00:38:26] overcompensating and adding Ls at the end of words. Oh my God. That's so cool. Overcompensating for what though? Yeah. Right, it's lovely of Bristol. You literally just explained it, but it's still worth saying.
+
+[00:38:38] Who does the thing that I do of adding Rs where they don't belong? Oh no, no, no. Americans do. But no American says Chicago, which is what I say. No, no, no one does. You have an international accent that's sort of. I would say some Bristolians might say that.
+
+[00:38:52] Chicago? Chicago. But again, not like that. Never like that. It's a very different musical. Yeah, she was right to shoot him. Yeah. Name me a vowel. Just name a vowel.
+
+[00:39:10] Oh, I can't think of any now. I. I, brilliant. One. U. U, I, U. E. E.
+
+[00:39:18] Annie, we know the five. O. O. And A. A, brilliant. Where's the sixth? There's a sixth one. Y. No, it's not Y. O. O. And A. A. Brilliant. Where's the sixth? There's a sixth one.
+
+[00:39:27] Is it Y? No. It's not Y. Oh. Is it ah? Ah. Get this. Ah, technically, is a vowel.
+
+[00:39:37] It's the secret sixth vowel. What's a consonant? You are closing something off in your mouth. You're using your lips or your teeth or your tongue, and you're closing something off. Th or. You're using your lips or your teeth or your tongue, and you are closing something off. Th or t. Someone just said, I agree out of nowhere. Right?
+
+[00:39:51] That's what a consonant is. But a vowel, you are an open tube. Your mouth is an open tube. And you are, you're changing the shape of the tube, but it's like A-E-I-O-U. They're all, the tube is open and R is the same. Right. What's the really cool Spanish one where they say, with this, that thing.
+
+[00:40:12] We are wondering, Dave, you drew us this. Well, no, I can't do it. And it's so exciting every time I hear it. What is it? You mean where they kind of lisp? Yeah, like, music. Yeah, there was a theory that that was, that people were trying to copy a king, wasn't it? You mean where they kind of lisp? Yeah, like mythically. There was a theory that that was, that people were trying to copy a king, wasn't it?
+
+[00:40:29] Really? One of the kings supposedly had a lisp. Every time I hear it, I just think that's such talent. I think, I feel like that was a while ago, but speaking of people talking in an offensive manner, and speaking of fake accents, in the 1800s, the late 1800s, early 1900s, wealthier people used to throw poverty parties and call them poverty parties. And the invitations would say, you are only allowed to wear rags and sacks and your worst
+
+[00:40:57] cloth and will only be served, I think it was just an excuse not to serve expensive canapes, it was like we will only serve stale bread and water and people would come and put on working class accents. So this was a fashionable thing and there were lots of invitations and Irish especially, it was in America and so an Irish accent was seen to be quite working class, a lot of Irish immigrants at the time and posh people turned up to parties and had to speak the whole night in an Irish accent. Wow. That's a full party of cancelled people. Yeah that's amazing. Right there. That is weird. Yeah. Garcia. Garcia. You've been let in. Your own voice in the post then? You're already in. Do you know somewhere where you can be killed for doing the wrong accent. Dance chair? Like... This is the ant nest beetle and it is a beetle that goes into ants nests and is able to mimic the ants chemical signatures but it's able to do lots of different ones and so if you're
+
+[00:41:59] an ant that lives over here or one that lives over here or maybe another species of ant, it can change it very, very slightly so it gets all the different dialects of ant and if it gets it even slightly wrong the ants will kill them and eat them. Really? That's incredible. Even it's just like saying tomato instead of tomato. So they can't get drunk at all? No. Accidentally drop a tea and that's it. That's really interesting because there's a lot of talk about whether animals have accents or not. It's always claimed, right? What the definition of an accent is. And there was a big story that went around about cows having
+
+[00:42:35] regional accents a few years ago. Yeah. Ducks as well. Well, I think that had more truth to it in 2006. And I think we might have said this because it was reported everywhere. It was reported that cows moo in regional accents. And it turns out that was just a big PR thing from West Country farmhouse cheesemakers. Really? To try and sell more cheese. So they quoted this professor, John Wells, who was a professor of phonetics at UCL,
+
+[00:43:05] who kept on saying, I never said this. These cheese guys called me and they said, do you think cows moo in regional accents? And he said, I think it's incredibly unlikely. And they kept on saying, is it possible? And he said, well, birds do exhibit regional variation. Yep, we'll take that as a yes. Oh my God.
+
+[00:43:24] His career has presumably been ruined. No one's talking to him. Do you know what the most attractive accent is? This is a physiological thing. Oh, okay. What makes your heart go pitter-patter? Well, we've all got opinions. Wow. A Barcelona. Oh, my God. I'm sorry.
+
+[00:43:34] I'm sorry. I'm sorry. I'm sorry. I'm sorry. I'm sorry. I'm sorry. I'm sorry. I'm sorry.
+
+[00:43:42] I'm sorry. I'm sorry. I'm sorry. I'm sorry. I got opinions. Wow. Barcelona. Yeah, that's... I'm feeling warm. Used to be an attractive accent. I think this was a study of European accents in particular. Most people would say French, right? Most people would say French. And this was an online language to you to call preple They attached heart rate monitors to a thousand adults and they played them pre-recorded chat up lines I presume the same in every language. Yeah, right
+
+[00:44:15] And it found that being chatted up in an Italian accent makes men and women's heart rates rise by 23% 15 beats a minute higher if you're getting that sweet, sweet Italian touting up. That's a lot of beats, actually. Come and stay with my mother. No. No. You know.
+
+[00:44:34] This is nice. See, you've actually ruined an entire nation for me. I am. Guys, I'm going to need to move a song. What? Yeah, I'm afraid. You're done. English is the least sexy, sorry.
+
+[00:44:44] Okay. Well, come, I'm afraid. You're done. English is the least sexy, sorry. Okay. Well, I'll come and see my mother. All right, listen, we need to wrap up our show. Okay, that is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said
+
+[00:44:57] over the course of this podcast, we'll be happy to answer any questions you have. And if you have any questions, please do so in the comments section below. And if you have any questions, please do so in the comments section below. And if you have any questions, please do so in the comments is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said
+
+[00:45:08] over the course of this podcast, we can all be found on our various social media accounts. I'm on Instagram on at Shriverland. Andy? On Twitter at Andrew Hunter. James? My Twitter is James Harkin. And Anna, how can they get to us as a group?
+
+[00:45:22] You can go to at no such thing on Twitter or at no such thing as a fish on Instagram or email podcast at qi.com. Yeah, or go to our website, no such thing as a fish.com. All of our previous episodes are up there. There's also links to the secret club, Club Fish. If no one has checked that out yet, do check that out. And of course, we're going to be on tour.
+
+[00:45:40] We're going around a lot of bits of the earth and we are going to have fun dorking out for our 10th year with Thunder Nerds. Thank you so much everyone for coming here tonight. We really appreciate it. That was fun as hell. We'll see you again. Goodbye!

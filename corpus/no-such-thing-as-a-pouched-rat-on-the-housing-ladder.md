@@ -1,0 +1,331 @@
+# No Such Thing As A Fish - No Such Thing As A Pouched Rat On The Housing Ladder
+
+- Episode date: April 10, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-pouched-rat-on-the-housing-ladder
+- Slug: no-such-thing-as-a-pouched-rat-on-the-housing-ladder
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as Official Weekly podcast coming to you from the QI offices in Holborn. My name is Anna Tashinsky and I'm sitting here with James Harkin, Andrew Antemarie, and not Dan Shriver this week. How much are we sharing about the reasons for his indisposition? Well, he did message us this morning saying that he was sick. So unfortunately he's not here, but we've all done the research already. So we're going to do it anyway. Yeah. So let's start with fact number one.
+
+[00:00:43] And because I'm hosting this week, that is my fact. And my fact this week is that a rat in Tanzania just retired after preventing 30,000 people from getting TB. Lovely. So this is a named rat. It's a named rat. It's not like a woman gives birth every six seconds. Oh, I see. You know what I mean?
+
+[00:01:03] Like every time I click my fingers, a rat. retires. Yeah, yeah. A rat who's prevented thousands of TV cases. It's a specific rat, Carolina, yes. And it's just something to make you all listeners and us feel quite underachieving about what we've done with our lives. This is genuinely the effect it had on me.
+
+[00:01:20] Carolina, she's an African giant pouch rat, and she screens phlegm samples for TB, and she does it very quickly, much more effective than humans with microscopes are much quicker. and they worked out that over seven years working in this job, she's detected over 3,000 cases of TB, and that means that she's stopped it spreading because it spreads to a certain number of people, so I think it spreads to between 10 and 15 people per infected person,
+
+[00:01:50] so by screening it, you stop it from spreading, and so she's probably spared 30,000 to 45,000 people from getting it, and probably saved over 5,000 lives in her seven-year career. So, have they put her in a nice home? Yes, they have. have actually. They put her with her friend. They do get a really nice retirement. Wait a minute. This is her friend that she's been working with all this time, right? Like, no offence to you guys, but I don't really see my retirement as sitting on a porch on a rocking
+
+[00:02:15] chair next to you two. Are you crazy? This is going to be so much fun. I haven't even looked that far ahead yet. I think that's going to be brilliant. Yeah, I found us a spot. We can podcast for the entire home, you know? Yeah, kill them off early, all the other inhabitants. These rats are unbelievable. They're so cool. Absolutely incredible. It's this amazing non-profit company called Apopo, Apopo, based in Tanzania and Ethiopia. And, yeah, it uses these giant pouch rats for various things. And they have these incredible senses of smell.
+
+[00:02:46] Yeah. They're faster as well. They can do 100 samples in 20 minutes. And the human equipment is much slower. Cheaper, I bet. They are a lot cheaper. They're very unionized. Are they?
+
+[00:02:58] And they pick it up way more. So the classic testing method picked up about 60% of cases, all, for people who had HIV as well, it was only about 20% of cases that got picked up. The rats, when they just smell a sample from a patient, they pick up about 70%. So they're really good. And humans have this ability. Like in the middle ages, doctors would ask patients, this is really cool to cough on a hot coal or spit on a hot coal, and that would generate a bit of a smell because it cooks it. And the doctor would use that for diagnosis.
+
+[00:03:26] But that works. Well, yeah, in the middle ages, famously human lifespan was very long. No, but you can smell TB if someone's got a really advanced case of it. The Dutch word for TB is tearing, which means the smell of tar. Or it comes from the smell of tar, because that's why it smells like. So yeah, having read this, do feel like we haven't really done very much with our lives. Apart from, and I'm now taking out a piece of paper. It's a certificate.
+
+[00:03:55] And Andy, do you want to read this certificate? Oh, my God. This certificate recognises that no such thing as a fish has officially adopted Tamasha. who uses her exceptional sense of smell to save lives by sniffing out TB samples in Tanzania. So we have an official no six things of fish. Oh my God. Pouched rat.
+
+[00:04:12] It's us saving the lives now. When do we get to retire? So if you want to sponsor a giant pouched rat, then you just go to apopo.org and you can do it there. I think it's 12 quid a month or something. Nice. That's the same as the license fee. Well, I don't pay that, so just as well.
+
+[00:04:31] I do. I do. Pay it. And we are sponsored today. Bye. They actually have not a bad life. They are lazy. They only have to work for about 10 minutes a day. I don't really understand why they make them work so little. They just put them in this glass container and they put the TB samples. And these are TB samples that have had negative results from the classic test that Andy mentioned, which aren't very reliable. So there are very expensive tests, which are very reliable. The classic test is not spitting on a rock. No, there's another, there is another test. Yeah, sorry. It's not the spit on the fire and sniff it. It's the classic cheaper medical test that gets sent around rural areas. Not very reliable. So if you get a negative result from that, it gets sent to the rats. And then they sniff at it. And because they're so fast, they'll cover enough cases per day in 10 minutes to then stop. And then once they retire, they get this big enclosure. Like I say, she's hanging out with her friends. They have a big party. They get cheered. They get carrot cake. They get a good life. It sounds amazing. So this place where they are, I think this is a place in Tanzania,
+
+[00:05:32] is in a place called Morugoro. And there are all sorts of rats doing all sorts of different things. It's incredible. Like there's the landmine rat division over here. There's the TB rat division over here. Every year, this centre gets through 25,000 bananas, 6,000 avocados and a ton of peanuts. Literally one ton.
+
+[00:05:49] Samash's favorite food is avocado. Which is that so nice. Avocado and banana smoothie seems to be their food of choice. So we'll send her some. Never get, they'll never afford a house when they, well, no, no, no. Yeah, so the landmine thing, you kind of glossed over a little bit. But yeah, there are these rats that can find landmines because landmines smell a little bit like TNT. And they can smell the TNT.
+
+[00:06:14] And what you do is you get two humans and you walk down a stretch where there might be some landmines, but the landmines possibly in between you. So you're not walking in a dodgy bit, but, you know. And then you tie. a bit of rope to your leg and then the rope attaches to your rat and then another rope attaches your mate to the rat
+
+[00:06:36] as well and you walk down while the rat sort of walks between you and sweeps the area so they don't run away basically. Okay so imagine a three-legged race at sports day but with the rat in between and a high chance are being blown up. Yeah but also the rope that's tied your legs together is a good
+
+[00:06:52] few metres long. You're not that close to your person. Because the rats are too like to set off landmines. That's the idea Yeah. The one problem is you have to remove all the vegetation first because they're only rats. They're not that big. Well, they're big for rats, but they're still pretty small. So the removal of the vegetation might set off the landmines as well.
+
+[00:07:11] Okay, so those are the real heroes of the gardening rats who are sent out. Yeah, they have like these lawn mowing machines that they sent out. So there's no humans involved in those. Oh, like a zumba, rumba. Like a zumba. Didn't they sing I get knocked out, but I get up again? The Apopo team in Mozambique They've destroyed 13,000 land mines
+
+[00:07:32] And they're like Mozambique is now landmine free And they declare that partly because of the work These rats have been doing And then when they have cleared a piece of land Staff from Apopo have to do a handover ceremony To the locals in the area And they have to run around across the land To prove that it's safe
+
+[00:07:46] Wow really? Yeah, because otherwise how are you going to trust it? So like you really have to... That's putting your money where your mouth is, isn't it? I'm glad we don't have tests like that at QI. If your rat has a cold that day Look out Yeah
+
+[00:07:57] Look in the eye To masher Do you promise Before you do any landmine Detection You need to do one thing Uh What the, I'm the rat
+
+[00:08:09] You're the rat handler Yeah What do you have to do To your rat before they go out Make friends Make friends, no Not bothered about that Oh I would have
+
+[00:08:16] A business like Estabish a bond Okay I mean Tie the rat to you It's a massage What? Who's massaging who?
+
+[00:08:23] It's a massage of kind With the happy ending Rub your rat That's no. Jesus Christ, Anna. That's right, because they can't concentrate on looking for love minds if they're horny. It's like, you know, football managers stay. What?
+
+[00:08:37] Get it all out of the system or something. I don't think. Alex Ferguson was doing that to his players. The hair dryer treatment is actually something completely different. I didn't go in the autobiography, but I'm telling you. No, you need to bring us back to reality. You need to rub sun cream in. their ears.
+
+[00:08:57] Oh. Because if you look at this picture of Tamasha here, she's got quite, you can see the skin on her ears, right? Oh, that's going to burn. Yeah, and they spend a lot of time underground normally, so basically they can get burnt. And they were getting ear cancer, actually, some of them. Really? In the very early days.
+
+[00:09:14] So now all handlers have to apply sun cream before they go out to work. Maybe their nose and paws too, actually, because those are the bits which are a bit more fleshy. That's so nice. They're nocturnal, aren't they, a lot of them? So they have to, that's so sweet. Do you know why they're also good? The smelling things.
+
+[00:09:28] The smelling? Yeah. Why? Well, it's all to do with their love life. So males have to be able to tell which females are sexually available. Females have really delayed sexual development. So any males which can tell are at a big advantage. If you can tell which females are ready to mate, you're at a much better position.
+
+[00:09:47] Right, because lots of them aren't. Because lots of them aren't. So there's this weird thing you can measure, which shows you which males are really, really, really good at this. It's the, I'm sorry to say it, it's the anogenital distance. So it's the distance between the rats, scrotum and his bottom, a male with a longer one of those. If those two things are further apart, then they can smell the difference much better between available and non-available females.
+
+[00:10:12] This sounds like reflexology or something. Oh, your anogenital implies that you'll really smell out of those ladies. It's to do with sexual hormones. So rats which have the sexual hormones in their system have a greater one of the. those distances. My rats got a long ano-tranital distance. How does he smell? He smells very well because of his long ano-tranital distance.
+
+[00:10:33] Brilliant. One thing I've said before on this podcast, in fact, I think the only time we might have mentioned pouched rats before is the fact that females' vaginas tend to seal up from time to time. So they are open when they're ready to mate. But if they're not going to mate, they close. And also, if you have a, like a senior female there, who's like the main one who's going to be mating,
+
+[00:10:57] she can send out a signal which makes all the other females vaginas close up. And what I didn't say last time is that if a female with an open vagina dies, then all of the other females in the area their vaginas will open. No. You can hear a little pop, pop, pop, pop.
+
+[00:11:16] Imagine at a funeral in the pouched rat weld. Suddenly all the females in the room are all opening their vaginas. And it really, because we don't have this ability, do we, to close and open them? I mean, as far as I know. No, because they're sealed, like. They're really closed up. Yeah, yeah. Like, they're properly closed up.
+
+[00:11:34] It's like closing your legs. No, it's like becoming a Barbie doll. It's like you just, it just goes. It's bizarre. We should say, while being heroes, absolutely disgusting and I still want them all to go away. Because they're huge. They're massive. Yeah.
+
+[00:11:49] But they're not rats as well, aren't they? They're not rats. They're not rats. No. I mean, Tamasha here. on our certificate, she looks quite like a rat. It looks like a rat and acts like a rat and smells like a rat. Well, it probably doesn't smell like a rat.
+
+[00:12:02] But, you know, to all intents and purposes, it's a rat. But it turns out that they're not related directly to rats. Yeah, no. They have bodies, as National Geographic put it, which I liked. Their bodies, so not including their tails, are longer than a 13-inch MacBook air. Which I think of what? The stupid thing to say. But you can't say longer than a MacBook Air, because they're probably
+
+[00:12:24] shorter than a 15 inch Macbacare. Well, think of something else. They're longer than a 12 inch ruler. Oh, yeah, thanks. You know, so I think what that means is they're longer than 13 inches. And so that does mean that with tail included, they get up to 35 or 36 inches long, like three feet long. Okay, that's massive.
+
+[00:12:41] One of these pouched rats is bigger than the world's smallest deer in both weight and length. Whoa. So that's the lesser mouse deer versus the giant pouched rat. That's striking. Who I'd watch that fight. The rat's easily going to win actually, isn't it? I'm afraid so.
+
+[00:12:59] It's going to be a walkover. Okay, it is time of fact number two, and that is James. Okay, my fact this week is that while locked away to choose a new pope, cardinals used to be banned from eating pies because it was too easy to hide messages in them. So good. I don't think it is easy. Are you joking? It would be so soggy.
+
+[00:13:23] You can't read a message once it's been drowned in stock. You insert it in a dry bit of the pie, a dry chunk of beef or whatever, or a dry mushroom. I mean, not for you, James, but, you know. I'm not having any of your pies. It says, how dry are your pies? I think the point is it's a secret pie, not the point that you have to combine the message and a terrific pie. And the other thing I banned was whole chickens as well, didn't they? So no.
+
+[00:13:47] So this is from an article on J-Star about conclaves, and it was mentioning a chef called Bartella Mayo Scapi, who was catering for the conclave between Pondes. Paul the third and Julius the third in 1549. And yeah, according to his description, you cannot send in closed pastries or whole chickens nor wine in any vessel but of glass that was not first opened out and examined. And basically, yeah, he had all these rules
+
+[00:14:12] just so that they couldn't cheat because really it was a very secretive thing and lots of kings and queens around Europe were trying to influence it and stuff. And also people from the outside wanted to know what was happening because people would gamble on it and stuff like that. Is the idea that, let's say, the King of Spain wants the Spanish Cardinal to get the gig as Pope?
+
+[00:14:35] He'll put something in the pie saying, I'll give you 10,000 Florence if you vote for Cardinal Juan, or whatever it is. That's the idea, yeah. Or that's the fear, I guess. And I did read that these rules were basically completely ineffective. And even though they existed, secret messages just always got in and out in those days.
+
+[00:14:54] There was a 16th century conclaveist. So a conclaveist was one of two assistants that each cardinal was allowed to help them inside get dressed and clean their teeth and, you know, they needed servants. Anyway. Well, yeah, you can't do a conclave if you're sexually frustrated,
+
+[00:15:08] so something has to happen before you start. I won't hear such slander about the Catholic Church. A conglave who wrote that Charles Vth pretty much knows when they urinate in this conclave. That's the level of detail he's getting about the information. Wow. Interesting.
+
+[00:15:28] And the point was, I suppose, this is a really, really, really powerful job. You have a huge amount of influence over the course of Europe. Oh, yeah. So I guess you do want to try and novel it. Yeah. I didn't know what Concliffe meant. It means with a key. Oh, yeah.
+
+[00:15:42] Because you're locked up with a key. Yeah. That's basically it. Conclave. Yeah. It's funny you didn't know what it meant because we've mentioned it on the podcast before. I don't listen to this, yeah. This one you're talking about, James.
+
+[00:15:53] this was the 1549 one wasn't it? Correct, yeah. Which lasted two months, which was actually pretty zippy for your average medieval conclave, because there was a really, really, really long one, which we may have mentioned before, which took 33 months, which is Gregory the 10th. And that was a bit embarrassing for all concerned, and he changed the rules.
+
+[00:16:11] Well, that's why they're locked away now, because in that one where it was three, however, three years or whatever it was, they kind of met, and then they would go home and just mess around, and then they would go and play golf or whatever. And then they would come back and they say, have we decided yet? And then they were like, no, no. And so from then on, yeah, Gregory came up with a rule saying, okay, well, we're going to make a new rule.
+
+[00:16:32] You have to all go into the house and you can't leave the house until we have a decision. It's Big Brother, basically. And then if you don't have a decision after three days, he gets cut down to one meal a day. And then if you don't have anything after eight days, you just get bread and water plus wine. You've got to have wine. That is like Big Brother, isn't it? They used to just like give them very, very meager rations. Did the people in Big Brother over accidentally select a new Pope, though?
+
+[00:16:56] No, John Tickle has been the Pope for the last eight years. Cardinal Tickle. But at the super long one that went on for over three years or whatever, they eventually, after reducing their rations and everything, eventually they took the roof off with the argument being that it must be that the Holy Ghost can't get its message to us through this roof, so we better take the roof off to improve access. But I think the idea was maybe that that might make it even less comfortable
+
+[00:17:21] if you've got... Yeah, whether exposed to the elements or that. Yeah. I think it's all reasonable. They're just trying to hustle it up. Do you know why it's just the cardinals that vote? No. When you're voting for the Pope, it's all the Cardinals going to this room and they have to come up with the idea.
+
+[00:17:34] But it used to be that everyone in Rome could vote. Really? Yeah, until 1059. Did they keep voting in, like, Boating McBoat face or stupid people? You know what? It is a fit like that. Pope you but Pope face. Yeah, so this was Benedict the 10th.
+
+[00:17:50] The previous Pope. Pope had made the Roman people swear an oath that they wouldn't elect a new Pope until his favoured person had returned from a trip to Germany. So he was dying. He was like, I want this guy to be Pope. Don't vote for anyone else before he gets back. Anyway, this Benedict the 10th, his family had loads of money and so they bribed everyone to vote for them. So they voted for him. And in the meantime, this guy's mate, who is Nicholas II, he's in Germany. He's going, what the hell's going on? I'm supposed to be Pope, and he's with a load of other Cardinals,
+
+[00:18:24] and they go, well, we're going to make you Pope anyway. So then we had two popes. Then Nicholas II comes back to Rome, declares war on Benedict the 10th. They have a big old fight, loads of people die, and then Nicholas eventually wins, sends Benedict to jail and said, okay, from now on, only the Cardinals vote
+
+[00:18:39] because we can't trust the people. Oh. Because the Cardinals won't be bribed, but the people might be. That's very surprisingly democratic to say everyone in Rome gets to stick the roar in about who gets to be Pope. Yeah, but I don't know. I mean, really the Pope was effectively, you know, the leader of Rome.
+
+[00:18:54] Bishop of Rome. Yeah, even though he was a religious thing, he was the guy who was in charge. Although no one else was getting voted democratically, were they? No, that's true. Yeah, that's true. Ahead of their time, the Catholics, I've always said it. If someone is a likely candidate for the papacy, they're known as Papabile, which literally means popable.
+
+[00:19:15] You're pretty Papabile. Not to be confused with the Pope Mabille. No. It should not be Pope. Popable, that's good. So a lot of this is in the recent, there's a movie recently out called Conclave. Amazing movie.
+
+[00:19:30] It's so good. It's so good. It was written by Robert Harris, wasn't it? The book is written by Robert Harris. And it has a lot of good research in it. Yeah, yeah. He really did. He visited a lot.
+
+[00:19:39] He spent a lot of time talking to people in the know. So I did find, I was looking at the kind of trivia about the movie. and firstly I found a Benedictine website which had a Catholic Film Club podcast Their episode about Conclave was titled Conclave Clueless, Evil or Both So they did not like it as much Anyway look here's this fact I found from the
+
+[00:20:02] This is all from I think from the IMDB It's just about when someone becomes Pope How they change It was reported when Francis became Pope So the current guy That on his elevation to Pope He contacted his Buenos Aires news agent Personally to let him know
+
+[00:20:16] He wouldn't be continuing his custom of returning the rubber bands from his daily newspaper at the end of each month. Power really changes people, isn't it? No spoilers for Conclave, but can I talk about Pope Joan? Oh, yeah. So Pope Joan, people might know this is a theory that we had a female Pope in the Middle Ages. And I think most people think it's definitely not true. Right.
+
+[00:20:41] But there are some people who think it is true, and some relatively serious people who think it is true, there are definitely in museums in Italy chairs that were used by the Pope which have holes in the bottom of them 100%. So in theory you could check the anal genital region of the Pope. This is a giant pouch rat in the code.
+
+[00:21:04] Damn I should have sealed it up. And we did have Ratsinger. So who knows? Did anyone properly check? Cardinal Ratsinger. Brilliant. Brilliant. So yeah, the idea of being, that people say you use these chairs to check the genitals of the Pope to make sure that they're... And it's when they become Pope, it's not for daily use.
+
+[00:21:24] Yeah. You get named Pope and then they check, which is pretty stupid, because you would think you would pop them in the chair first. But whether or not that's true, the chairs definitely do exist. Some people think they might have been to check that the new Pope hadn't been castrated. Right. Some people think that they were originally Roman imperial birthing stools. Okay. And the idea is that the papacy was trying to shun.
+
+[00:21:46] show that they were imperial and important. And so they used this very old Roman birthing stool as a throne kind of thing. Could they help get a different old Roman stool? Couldn't they have gone to the museum and been like anything except the one that women gave birth through? Yeah. Or it could have been a B-Day. Yeah? But yeah, we basically don't know why they have these chairs.
+
+[00:22:09] But there are, you know, there's the odd probably not massively serious, but there are the odd historian that thinks that this might be true. There's a guy called Michael E. Habicht, who's an archaeologist at Flinders University, and he found lots of coins from the era of when Pope John was there and found that they had slightly different monograms. What, like a typo John for Joan? Maybe there were two different popes at that time, and why were two different popes, or maybe because they found out one of them was a woman and they had to, yeah, we don't know.
+
+[00:22:38] They mint coins in between popes. In the middle ages, they would mint a coin, which had the crossed staffs, no Pope because there was no Pope. So if they minted a coin during that period, it had to be a special, there's no Pope when we're making this coin, and they still do it these days, but with a Euro. Well, the between-papersies period used to be quite interesting because it went a bit
+
+[00:22:57] lawless, apparently, because the Pope was essentially the legal authority in Rome, once all the popes disappeared for their conclave, Rome went quite mad. There was one time where I think they should bring that back. Yeah, that's great. Whenever the Pope dies, everyone just goes full on perch. Just losing.
+
+[00:23:15] Or crime is legal. Well, in fact, they basically did it. This was, I think it was in the 14th or 15th century, where as soon as the Cardinals disappeared to decide the new Pope, the local authorities hired a wizard to come and take control of the city to purge it of plague. Sorry, I know Dan's not here, but have you got his notes. I thought we have to have a nod to the poor guy. And yeah, this guy, Demetrius, used to lead this wild bull through the streets
+
+[00:23:41] calling out for the plague to be dispersed. So good. Do you not think he may be misunderstood what a papal bull was? Hey. Superb. Very esoteric joke. How many papal bull puns going around these days? Can I talk very briefly about this guy, Scapi?
+
+[00:23:58] Bartolomeo Scapi. The chef? The chef, the papal chef. He was an amazing guy. He was one of the first ever international celebrity chefs. He was the Cuoco Segretto to the Pope's, the secret cook, which probably means the personal private cook, to the popes while Michelangelo was next door doing up the Sistine Chapel.
+
+[00:24:18] So it was a time of great lavish stuff. And he had amazing recipes. He made incredibly elaborate things. So, you know, he would serve 60-course meals. Too much. It's more of a tasting menu. Yeah. Is it one where you still leave hungry?
+
+[00:24:37] You actually have time on the Thomas before you go. There's a chippy just outside is the shappy restaurant. Yeah. But like he was an amazing guy, clearly. And he arrived after Leo the 10th, who was one of the most lavish popes ever. Leo the 10th was made Pope on his first day through a massive fireworks party and feast, then disappeared for the night with his lover, who he then made the Cardinal of Sienna. Those were the days of being a pope. Yeah, yeah. Wow. But Shappi got stuck in this thing. He got caught up in a wave of puritanical reform. So when Pius the 5th came in, he was planning this huge great party, Shappi. And it would have been an amazing banquet. He wanted to do miniature food castles with live birds in them.
+
+[00:25:17] Incredible. Oh, cool. A jelly pope effigy. Jelly Pope, fantastic. And then he got told, oh, yeah, Pius I fifth is actually planning a big wave of reform, and he just wants a boiled egg for his supper from now on. Oh, really? I know.
+
+[00:25:30] Filed egg. Anyway, so then he wrote this book, Shappi. The Opera Del Arte del Cucinare, 1570, contains the first ever picture of a fork, some of the first ever recipes for stuffed pasta. Like, he... If you were hoping for an opera. from the book. That's what's confusing. It is called the opera.
+
+[00:25:46] No. But he just did... After a 60-cast meal, the fat lady. Literally. She was thin at the start. Okay, it's time for fact number three, and that's Andy. My fact is, there is only one grade one listed dog kennel in the UK. Really? Yeah, yeah. And I visited it the other day.
+
+[00:26:11] No. I did. I visit... It's at this place in Kent called Item Mote. And it's like, it's a beautiful. Beautiful medieval manor house and it's got a moat all the way around it and it dates back to the 14th century It's National Trust. It's bloody good. The trees for the oldest bits of item moat date back to the 1320s. So it's really old this place And it had this kennel built attached to it in the 1890s when they Were doing a bit of work on the house and because the kennel is attached to a grade one listed property
+
+[00:26:38] Which we should say is the highest possible grade of listing in the UK. So you're not allowed to do anything to it. It's protected You're not allowed to do anything. If something's grade two listed, you can maybe move the furniture around and maybe do a bit of interior decorating. Grade one listed, just leave it alone. Like, it's really historical, that stuff. And so this kennel is now grade one listed. Is that a nice kennel? It's really massive.
+
+[00:27:00] It was made for a St. Bernard dog. It's quite plain. It's wooden, but it's nice, you know. It's got the classic roof shape, the eaves. Does it look like just a classic what a child would draw? It's a classic kennel, I would say. Yeah, yeah. It's really good.
+
+[00:27:14] Nice. Yeah. This is a very cool, just to say on the place, it's absolutely fantastic. It's got a billions room because I bought the guide, because I'm deep in my national trust years now. Are you a member? Oh yeah. Of course you are. You do it for the parking there, don't you?
+
+[00:27:32] I just like this. This was a detail in the guide. It has a billions room with a door which opens directly onto the moat, which is quite cool. What? You walk out at the door, you find out of it? That's what it sounds like. Well, you go in the house. over the bridge and then you get into the billions room
+
+[00:27:46] and then there's a door at the other end of the billiards room and you open it you're in the moat but why? Then you fall into the moat. Yes. Okay, so why does that exist? Well, I'm coming to that. It didn't feel like you were to be honest. You're just looking at us like our questions are unreasonable.
+
+[00:28:00] You might use it if you wanted to go for a swim in the moat or if you needed to get into the moat but there was an unfortunate secondary use which is if the loo is too far away and you want to just, you know, relieve yourself in the billions room without going all the way to the loo. you pee into the mode. Pop your bum out. All right. Probably your front.
+
+[00:28:19] Okay, you're doing it. It's for a number one. Only man would be allowed to do this probably. Yeah. Do you think? I don't think people are pausing their billions getting to have a shit in the mo. I think that's a bit unkewed. Well, that's how we draw the line, is it?
+
+[00:28:37] I see. What if it flows past the window where the ladies are having their drinks? I don't know, Andy. I'm not sure. I like it. I'm going one installed in my house. I'm just reading what's in the guise. They did used to be quite elaborate dog kennels. It's funny how much we valued dogs historically, at least in Britain. And it's basically because of hunting, because they were so valuable. And so from medieval time to the 19th century, big man of houses had a bunch of hounds and they bloody love them. I was reading a hunting manual, which had chapter after chapter on how to build a kennel and what the right kennel should be. And it said, you know, the benches within the kennel around the edges need to be the perfect height for the dogs to rest on.
+
+[00:29:19] So they want to rest above ground level, but not so high that it'll be tiring for them to jump up onto after long days hunting. Okay. So five foot wide, two point five foot high. They need at least one fireplace to curl up in front of the chimney or maybe two chimneys. They also need a little dog to do a shit out of if they're going to do. You know that famous painting of the dogs all playing cards? What you don't see is the little doorway. Yep.
+
+[00:29:46] Yeah, they needed several yards, one paved and one grass, so that they can have a bunch of different, you know, surfaces to play on. As much sunlight as possible in the yards, but also shade options. And yeah, and they need to be cleaned every day. They really love it. It wasn't just that hounds were there as a utility thing. They were really attached to them. And they needed a person in the kennels living with them at all times.
+
+[00:30:09] Come on. Who's going to feed the fire otherwise? Exactly. That's not much of a job, is it? The dog boy? I feel not. I think maybe you got to climb the ranks to be top dog. Exactly.
+
+[00:30:24] You were Lord of the Manor at the end. But apparently, yeah, the dog boy or some other child must be constantly in the kennel to be preventing fights between the dogs even at night. Oh, gosh, that is a rough gig. Rough. Because if you're just putting another log on the fire and, you know, putting the dogs to bed tuck them. up reading them their story, that's fine.
+
+[00:30:43] But if the fight's going to break out at night... I feel like it worked. Yeah. Yeah, I don't know how you break up a fight between a bunch of dogs and a kennel, actually. I believe if you're up your bum, don't you? I think that is... Is that what you do? Well, that is a definitely... If a dog's clamped its jaws around your leg, that is the thing to do.
+
+[00:30:59] Finger up the bum. Or ask a nearby friend to do the same. So maybe you have two dog boys in there. Yeah. Do you know what the most expensive kennel of all time was? Oh, no. Is it guessable? No.
+
+[00:31:11] Is it... It has a hole in the roof. Elizabeth Taylor. Oh, do we know this? Can we work out why it has a hole in the roof? Maybe. Might be a chimney. That hole is what makes it very expensive.
+
+[00:31:20] Oh. And this is a kennel. Yes. Small hole. It was sold for $44,100 in 2019. Sorry, in 2020. Oh, it's a historic kennel. It's the kennel that, no, hang on.
+
+[00:31:35] Wait, let me get to the end of the wrong answer. The kennel that Scott of the Antarctic took with him for the sled dogs. I see. And it's got a small hole in the roof because you'd burn a fire in there to keep the dogs wall. Very good, no.
+
+[00:31:47] Yep, good, thank you. What might make a hole in a roof? A bird falling. Might not make a hole. It probably bounce off his tin roof. Okay. Meteorite. You are meteorite. That is correct.
+
+[00:31:59] Wow. This was the only known dog kennel to have been hit by a meteorite and it was sold by Christie's in 2020. Sorry, who the hell paid full? 44 grand for that. That's insane. Someone insane.
+
+[00:32:15] Is it Dan Shriver? Did it say who'd bought it? It was Dan Shriver. What happened to the dog? Oh, the dog was fine. Yeah, he doesn't have a house anymore because they sold it. Right. But he wasn't hurt by the meteorites.
+
+[00:32:27] Well, that's good. People go nuts for meteorites, though. Did it come with the meteorite? I believe not. What? Okay, that is some salesmanship that's happened there. One careful owner. There were a series of luxury dog kennels.
+
+[00:32:41] recently, one of them, when it was sold, came with the warning that the dog was not included, which I quite like. This was, did you read about it? In 2018, a bunch of architects, world famous architects were invited to design these dog kennels. So like Zah, Hadid's company did one and all the world famous. You've buried the lead here.
+
+[00:32:59] Lead, dog joke, good. Berry, dogs Barry, dog, it's fine. There's a dog event annually called Goodworth, like Goodwood. And the event they have is called Barcitecture. and it's they get famous architects to design kennels for dogs. Oh, this has been happening every year now? Okay, and it's to raise money for Blue Cross?
+
+[00:33:17] Yes, I think it is, in fact. They do look cool. I mean, some of them look amazing, you know. There's one called Bonehenge, which is very good. Nice. Is it all puns? Most, I mean, it doesn't hurt, I think. There's a noise cancelling kennel for use on fireworks night.
+
+[00:33:30] Oh, that's a good idea. Very good idea. That's actually a little bit like Arizona in 2018, there was a dog kennels. It was the Maricopa County Animal Care. company and they had this program called calming companions where they invited people to come and sit in their kennels with the dogs on the 4th of July so that they could calm them down as the fireworks went off 200 people rocked up sat in a kennel of cards how do you calm a dog down when
+
+[00:33:53] fireworks got off massage has evolved only they read they read them stories as you suggested earlier so you there you go played the music entertain the dogs and then we're all ripped to shreds Do you know Princess Alexandra of Denmark who was married to Edward the 7th? Yes. Yeah. Of course. She was, she loved dogs. Love dogs. And she kept loads and loads of them at Sandringham. And there was a journalist called Sarah Tooley who was shown them and wrote about them. And they just seem amazing.
+
+[00:34:25] Each kennel had a bedroom with an iron bedstead. Leading from the bedroom is a sitting room supplied with straw and a constant supply of fresh water. If there's a sitting room, is there also a... staying room, a rollovering room, shake hands room. There is in the Metropolitan Museum of Art, which I believe is in America. It's in New York. Yeah, they've got Mary Antoinette's dog kennel.
+
+[00:34:51] Really? Which is very nice. It's more of a little... Why didn't she sleep in a bed? She's very humble. Famously. So, and it's more of a carrying, you know, a plush carrying case, kind of. Because it's for a little dog, because I imagine she had a small dog.
+
+[00:35:07] Oh, okay. And it's, uh, it was made by a master furniture maker. So it's got neoclassical acanthus leaves carved around the edges and it's, it's, obviously it's gilded. Uh, the dog, amazingly was imprisoned alongside Marianne Tornet. Oh, no, it didn't get his head chops after that. I don't think they had a smaller guillotine. I don't think so.
+
+[00:35:27] There's something quite cute about that, though. No. I mean, it sounds cute, but then I think at the end it becomes less and less You're right. There's a moment where it switches, isn't there? There is a kennels in West Sussex near East Grinstead, which is a very interesting and weird place, which was built by Edwin Lutyens, who's one of the most famous architects that England has ever produced.
+
+[00:35:51] It was a huge deal. And it was built as a dog kennel, but it is currently, right now, as we recall this, it's on sale as a four-bedroom house. And it's one of these big kennels for a pack of dogs that Anna was talking about. And I've looked at the photos and it is nice. Is it?
+
+[00:36:07] I think it's more than a million quid it's on sale for. Like it's really... And dogs could afford that back in the day. Yeah, house prices were just a completely different ballgame back in the day. A ballgame. There's another one. No, good. That's amazing.
+
+[00:36:22] It's stunning. If you Google it, it's a beautiful home now and it's four bedrooms. It's all on one floor, obviously, because it was built with the kennels because they don't go upstairs. We could four bedrooms. We could do it. I mean, I'd love to live in there. No, that's not where we're retiring, guys. We'll get a dog boy to come in to look after us.
+
+[00:36:40] Put his finger up on every time we get angry. Okay, it is time for fact number four, and that is Dan Schreiber's fact. Dan, what's your fact today? My fact this week is that reenactment actors on America's Most Wanted run a higher risk of being arrested after the show goes out than normal actors. Tell us, Mark. No, he can't tell us more. He can't because he's indisposed. But James, you can tell us more, right?
+
+[00:37:13] I can because he gave us a link. And it is from the San Diego reader, and it was a letter. Someone said, hey, Matt, they've written to someone called Matthew Alice, who was a journalist here and said, are there any examples when actors in these crime-solving reality shows were spotted in the street and turned in thinking they were the actual perps? and this was a letter from Langston in Spring Valley and this journalist called Matt replied and said yeah that is definitely the case
+
+[00:37:43] and there was one woman who played an evil nanny housekeeper who was forging employers' checks and burned down their houses and the actor who played them was recognised by two teenagers and she was hustled to the prison and it had to be straightened out afterwards using her social security number to prove that she was an actor Because it's a good, it's a good lie if you are an evil nanny
+
+[00:38:08] who's been burning down people's houses and faking checks, if you're arrested in the street, you say, no, no, no, I'm one of the actors in the show, they use that image of me because for rights, for rights reasons they couldn't use the image of the real criminal. It's probably worth everyone joining equity just in case.
+
+[00:38:22] I don't know if it's the most foolproof plan. But they do choose people who look similar, don't they? They do, for sure. I haven't seen America's Most Wanted ever. I saw Crime Watch a bit when it was Yeah, which is our British equivalent, by the way, but it's quite a different tone. America's Most Wanted. I watch a little bit of it. And it's that American tone that's quite over the top and sensationalize and quite hard to watch.
+
+[00:38:42] I should just explain very quickly that these shows, so Crime Watch and America's Most wanted, basically there's a crime that's happened in the past and they do a recreation of that crime and then they have a phone number that you can call in case you have any details of what might have happened. And then they'll give you a reward if they managed to catch the person who did it. Yeah. And it has happened in the UK. in Crime Watch. There was a guy called Steve Watson who was in the reconstruction of a murder of a woman and it was shown on BBC One. This one was called Julie Pacey
+
+[00:39:14] and sure enough people recognised him in the reconstruction and the police came and they brought him in and they did his fingerprints and DNA and stuff like that. Wait, the actor? The actor, yeah. So this is incorrect. Yeah, it's the same as what happened in America. But luckily in this case they had the DNA of the perpetrator of the murder, so they could tell that it wasn't him. I'm amazed that it actually works, America's Most Wanted. I couldn't believe it, yeah.
+
+[00:39:40] Because they brought in a lot of people over the years. They were on for years and years and years and years, and they would have a huge phone bank of people taking tips from members of the public after the show. There was one, I don't know if you guys found Mark Goodman in 1988. Did you find this guy? No, someone else found him. Superb. So he had committed a burglary, right?
+
+[00:39:59] And he was in prison for it. Okay. But he was wanted in a different. bit of the country because he had been convicted for an armed robbery and then he'd escaped. So he was on the lamb for that crime but he was in prison already for another one.
+
+[00:40:13] He and his fellow lags were watching America's Most Wanted one night and his face came up on the screen and he quickly tried to change the channel. But it was too late. It's too suspicious, play it cool. Yeah, exactly, yeah. Do you think like if you're a criminal
+
+[00:40:30] Like, I don't really like watching panel shows on TV because it's my job. And it's like, I know they're really good, but I just feel like, oh, that's my job. I don't want to do it when I'm off as well. I couldn't agree more. I would have thought if I was banged up, I wouldn't want to watch Crime Watch. No. Well, they did. And amazingly, what do you think the other prisoners did?
+
+[00:40:49] They said, oh, well, we're all in it together. So let's definitely not doved you into the authorities. They dobed him into the authorities. I cannot believe. The correct response is to give them a false mustache and say, oh, yeah, funny about your brother, you know. That's prison morality for you, isn't it? I'm just really shocked.
+
+[00:41:04] It's a doggy dog world. Yeah. America's Most Wanted Alone has helped to catch over 1,200 fugitives and bring home loads and loads of missing children. Crime Watch has helped police with over 5,000 cases. So it is quite impressive. I think my favourite from America's Most Wanted Catchers was this story set in the Green Parrot Cafe in Salt Lake City in Utah, which is incredible.
+
+[00:41:29] Did you guys read about this? So basically there was a robbery of that cafe in 1992, and it was a bit botched and someone ended up dead, like one of the staff, I think, in the cafe or one of the people in the cafe. And so a few months later, America's Most Wanted, Ed, that and said, have you seen this killer? And all the staff of the cafe were like, oh, we're going to be on America's Most Wanted member,
+
+[00:41:50] because there was that murder in here a couple of months ago, let's watch. So all the staff and all the patrons in there crowded around to watch, and they watch the story and they watch, you know, have you seen this guy? And then there was another story after it that said, okay, onto the next one case of a child molester, have you seen this man? And they kept the TV running and all the patrons and all the staff watching it,
+
+[00:42:11] he went, God, he looks a lot like, do you look so much like the guy who works in our kitchen, doesn't he? Oh my God. And gradually the manager was like, they were like, hang on, it is, it is Tommy from the kitchen. Oh, my God. And they, it was Kenneth, Kenneth from the kitchen. And so they called up crime watch.
+
+[00:42:28] He gave him a false moustache. He just washed his up plate so well. Sent him on his way. Wow. Isn't that a coincidence? That's insane. Yeah, it's a dangerous cafe to be going to. All these shows are based off a German format called Acten Zeichen XY.
+
+[00:42:46] It means file reference XY unsolved. Ungalost. Yeah. And this year, in fact, that TV show managed to catch a member of the Bada Meinhofgang. Wow. And if you haven't heard of the Bada Meinhauf gang, you soon will. Because that's what they're most famous for is as soon as you hear of them once, you always hear about them again sometime in the next couple of weeks.
+
+[00:43:07] The Bada Mnhoff effect, is that what it's called? They were basically a group of, they were like a Marxist terror group who were attacking people and robbing people because of the guilt of World War II or whatever, something like that. So, anyway. 70s? 70s and early 80s, yeah. I'm sorry, is this show still going out in Germany? Yeah, yeah.
+
+[00:43:24] And they just caught them this year. They said, oh, like, this is a thing that happened, and they found this woman who was called Daniela Kletta. Wow. Who was apprehended thanks to that, and she'd done violence hacks during the 70s. And was it a bit of a forgive and forget kind of thing? Oh, you're so forgiving and forget.
+
+[00:43:40] I think generally speaking, they're not thought very highly of, the Badd of Mind Huff group. No. Anna, there's a reason your Nazi hunting career stumbled on the blocks, which is your milk of human kindness is so flowing. They were so nice when you actually meet them. Do you know who,
+
+[00:43:56] voiced all of America's Most Wanted. Who's that? It's a man who I think we've very, very briefly mentioned, but about eight years ago he's a man nicknamed Old Thunderthroat, Don LaFontaine. He died about 10 years ago, 10, 15 years ago. And he is the man who's behind every Hollywood trailer you've ever seen. Isn't that guy? In a world.
+
+[00:44:17] And he did the voices on America's Most Wanted. He didn't do the vices. He did the vice over. Sorry. Can you make this one sound like Mickey Mouse? Oh, sure I can, what? But I just got distracted reading about him. He would do up to 35 jobs a day around Hollywood, voiceover.
+
+[00:44:39] He was so in demand at the height of his career. Just he would go, in a world, you know, of crime. Just amazing voice. The Screen Nights's Guild said he was the busiest ever member of that guild. Is that so? That's really good. Because he doesn't have to go somewhere for three months on location and, you know, like. He's a job and it takes him a short time.
+
+[00:44:58] He also invented the phrases, one man army, one man, one destiny, and from the bedroom to the bedroom and nowhere to run, nowhere to hide. Like, he invented all those phrases. So nowhere to run, nowhere to hide is something I say quite a lot. They might not be things he regularly say, but you do recognise them though.
+
+[00:45:18] I recognise a couple. I don't recognise. No, no. What does that mean? Is that you shagging someone and then you hire them? Yeah. Or is it, you wake up in a bedroom, don't you? Mostly.
+
+[00:45:29] I don't know what it's just your morning routine. Yeah, I get up in the bedroom. I typically wake in the bedroom and I go to the boardroom. I very seldom wake up in the boardroom and go to the bedroom. It just doesn't feel like we need a saying for that. No, you're right. I like it, though. I do like it.
+
+[00:45:43] Yeah, because he often improvised these bits and wrote them himself. Also, he really made those up. It wasn't like they were given to him and he said them. Sometimes they would be, but sometimes he made them up himself. Because he can't make up the plot of Terminator and just bust it once they've made the film. They've made the film. They probably have an idea what they wanted to say. That's really cool that he invented those phrases.
+
+[00:45:59] Do you know who does the theme tune for Crime Watch in the UK? No. This is a guy called John Cameron. He wrote it. And he also arranged the album Mellow Yellow by Friend of the Podcast. Saffron Man Donovan. Oh, that's superb. He's suddenly popping up a lot, isn't he?
+
+[00:46:16] He's bloody bard of mine hoffing me. Yeah. The coolest thing I read about Crime Watch was they did a looking back over 40 years of it. thing and interviewed a bunch of the presenters and asked them about their favorite moments. And one of them, he was talking about how amazing the detectives are and how they spot these tiny things. And it's so Sherlock, he said that the perpetrator's alibi was cracked because a detective noticed in a photo of the crime scene there was a drip coming from the kitchen tap and the suspect had admitted that he'd used the tap before leaving the house.
+
+[00:46:50] Okay. But the police calculated how long it would have taken the kitchen sink to fill up with that dripping tap, dripping at that rate, and realized it wouldn't have filled to the extent that it had if he'd been there at the time he'd said, so he must have done the murder. Isn't that cool? That's incredible. That's Sherlock Holmes. Yeah, it doesn't feel like it would stand up in car. Do you know what I mean? I've got a tap which drips and then every now and then you get like a little spludge. I know what you mean. It could have just stopped dripping for a while and then suddenly, yeah. And it was just based on that. So it could be a wrongful. It's fantastic. I was looking. I was looking.
+
+[00:47:25] at the history of shows that tap in that basically allow the public to take part in crime solving. And the first example I could find was a TV show broadcast on the BBC in 1938 called Telecrime. And it was actually a spin-off of a... 1930s.
+
+[00:47:42] Yeah. Well, the public couldn't... That's so early. That's like they had to stop for the war. They did stop for the war. That brief thing where there was TV in the UK, but no one had a set. It was exactly then, yeah. Yeah.
+
+[00:47:53] What was it? And then they did stop for the war. Was it an invasion of Belgium? I mean, that is a big crime. That is a big crime. Have you seen this army? They have five million men. Oh no.
+
+[00:48:04] I think it's you, Pira. Quick, put on this moustache. Oh, no! It was based on a magazine series called photo crimes, where you'd be shown all these pictures of crime scenes. And then they'd write clues next to them, and then you could work out who did it. And the way the show worked was,
+
+[00:48:24] It was fictional, by the way, so it was like a who-done it. Oh, okay. Yeah, yeah, yeah. But it really invited you to work out who did it. So the idea of the show was they showed you enough evidence in the 15-minute show to work out who the killer was. And then just as the killer was about to be revealed, the screen suddenly phased a black and a big question mark came up.
+
+[00:48:40] Brilliant. And a voiceover came up saying, do you know who did it? And then it paused on the screen for a couple of minutes while you could sit there at home on your sofa, noting down on the clues and working out. There was a show only a couple of years ago called Armchair Detectors with Susan Kalman. which did a similar thing.
+
+[00:48:55] It's absolutely brilliant. And they never recommissioned it, I think, because it was extremely expensive to make because effectively you were making an entire murder mystery play each week. You're making us an Inspector Morse. Yeah, and you needed loads of cast, and the cast couldn't be the same every week because otherwise it would just not make any sense.
+
+[00:49:14] Yeah, but it was a brilliant show. Oh, there you go, nicked it from a 1938 format. So cool. Yeah. I was looking at true crime in general. Mm-hmm. Because these shows, they have a big effect on people. And people's perceptions of crime, you know, how much crime you think there is.
+
+[00:49:27] If you watch America's Most Wanted, you'll probably think there are more terrible crimes happening than there are, obviously. And, you know, podcasting, I find this amazing because it's been studied, like, the effect of true crime podcasting on people. So 35% of true crime fans say they have investigated people around them. No. Yeah. Because you start thinking, I could do this work. Are they investigating their friends just to practice? Or do they suddenly think their friends were murderers?
+
+[00:49:54] Do we think? Does it make you very suspicious or doesn't it just make you think, I'm going to sharpen my wits? Probably, yeah, probably just you see people acting like that on the show as an investigating and probably it just helps you to have a go yourself. It doesn't make me want to listen to true crime if it's going to make me think all my mates and murderers. But you're a woman, Anna, so you should like true crime. As in many more women like... Okay, then I will.
+
+[00:50:11] Enjoy true crime than men and women only like one thing. That's crime. I went to watch my favourite murderer, Hammersmith, and the audience percentage of women was through the roof. Really? Yeah. Really? It was like being
+
+[00:50:25] a guilty feminist podcast. Right. It was many, many, many, many mole women that happened. God, it's so weird. We are all quite sick and twisted. There are loads of theories as to why. Like, one theory is these stories contain kind of information about how to avoid crime.
+
+[00:50:39] If as a woman, you know, women, I think. Yeah, right. That's why they're listening. Come on. It's just a lascivious desire to hear some gruesome murders. I don't know. I'm with you girls. Or women empathize more with women victims of crime.
+
+[00:50:50] That might be a thing. Yeah. Like, it's, yeah, I can see a lot of reasons. I must admit, well, I, quite a few years ago now, I went back and read all of the Sherlock Holmes short stories. And I must admit, I'd be sat on the tube sort of looking at people's shoes and seeing if I could work out where they've been that day and stuff. That's kind of the same thing. Yeah, completely, I did the same thing. Yeah.
+
+[00:51:11] Oh, I see you've recently returned from Toulouse. It's because they've got a big suitcase with T-L-S airport on it. I'm wearing a T-shirt. I bought this T-shirt in T-L-L-UZ. two days ago in March 2025. Okay, that is it. That's all of our facts. Thank you so much for listening. If you want to get in touch with anyone here today,
+
+[00:51:39] they are all on social media. James, what are you on? Well, I'm on all sorts, but let's say this week that I'm on Instagram at No Such Thing as James Harkin. Okay, Andy. I'm on blue sky at Andrew Hunter. Dan's on the toilet.
+
+[00:51:53] You can catch him there. And if you want to get in touch with a podcast, as a whole, you can email podcast at QI.com or go to at No Such Thing on Twitter or No Such Thing as a Fish on Instagram or you can go to our website, no such thing as a fish.com where you'll find all of our previous episodes that you can binge on as well as links to various things like merchandise, a couple of our upcoming live shows that we are doing in Sheffield and in Belgium and anything else that he normally says? Clubfish.
+
+[00:52:23] Club fish. We have a secret members club called Clubfish and it's brilliant and you should join for just a couple of quid a month, you get all sorts of bonus info, add three episodes. It's the, it's the bees, balls. There you go. It's the pouched rats, anogenital region. There you go.
+
+[00:52:39] If you want to get on that, then do that. Clubfish. And if not, you can listen to this episode again. Not this episode, another one, another one of these episodes. But with different facts, next week, we will see you then.
+
+[00:52:53] Goodbye.

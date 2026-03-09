@@ -1,0 +1,285 @@
+# No Such Thing As A Fish - No Such Thing As A Squiggly Pineapple
+
+- Episode date: March 5, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-squiggly-pineapple
+- Slug: no-such-thing-as-a-squiggly-pineapple
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Schreiber. I am sitting here with Anna Tashinsky, Andrew Hunter Murray, and James Harkin, and once again we have gathered round our microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, and that's. That is Anna. My fact this week is that 19 states in the USA have banned the banning of clothes lines. It's a double ban. Does that mean clothes lines as in things you put clothes on? Or is this like a wrestling term where you kind of almost decapitate someone?
+
+[00:00:59] Surely the wrestling move is covered by other legislation. In wrestling, are you allowed to strangle people with a clothes line? No. Well, yeah, you are. You are. I mean, you know, that's modern wrestling. It's a metaphorical clothes line that I'm talking about. It's a forearm.
+
+[00:01:15] Yeah. You open up your arm, you run towards them, and you hit them across the neck with your arm, and that's the clothesline. It's like, it's a type of tackle in American football, I think, and then they turn it into a wrestling movie. Interesting. See, I knew about the, you know, sometimes someone will turn up with a steel chair or hit someone else with a table, but I didn't know there was a laundry rack or a laundry line that could also be drafted into service in wrestling matches. This makes more sense. Me neither.
+
+[00:01:39] of all my research on clotheslines did not come across the wrestling move, stuck to clotheslines themselves, and they're quite controversial, turns out. So a lot of rental associations, housing associations, ban them because they're sort of unsightly, they've got a bad image. They sort of were historically associated with poverty in the 50s when people were getting electronic washing machines and dryers. So it was like, if you hung your clothes out, it showed you're not in a posh neighborhood. And so lots of housing associations say don't do it.
+
+[00:02:09] But of course, with the environmental movement, everyone's gone, what are you talking about? It's much better to hang your clothes out on a clothes line. And so, about 2012, there was this big movement. And a bunch of states, Arizona, Maryland, Massachusetts, Wisconsin, et cetera, said you're not allowed to ban them anymore. It is weird when you think about it, though. It's the only thing that's really intimate to us that we just take out of the house to show everyone. You know, we're not showing it to them on purpose, but I don't hang my books outside or the contents of my fridge for people to see what my diet's like. Yeah, but you've got to stop washing your books. That's just odd.
+
+[00:02:45] You know, we hang underwear outside. I get it. I get the banning of it. Yeah, but then after Second World War, when they were trying to get more women in the workplace, it was kind of a new form of modern living where, you know, everything was done by machines and stuff like this, especially in America. And so, and also they wanted to sell electricity. So they kind of thought that really it's almost a patriotic duty to have a machine doing all your washing rather than your wife doing all your washing in America. And if you had it hanging outside, it was like a symbol that you were part of the old times when people used to do that. You weren't part of the new times. But it's slightly different in the UK because less than half of people in the UK have a tumble dryer. Whereas in
+
+[00:03:26] in America, it's like, I don't know, like 80% or something like that. Yeah, it's huge. I was on money-saving expert in the UK. And maybe this was you, Dan. There was someone who said, I've just moved to a new place and I'm the only person who hangs my laundry on the balcony. Is it okay? And the first response was not acceptable at all. Who wants to see your shabby clothes hanging out on the balcony? Do you think the architect envisioned that? Close on balconies are the same as broken cars in front gardens.
+
+[00:03:54] Have some pride in where you live. I really like that. So this gets called the Right to Dry, which is a catchy phrase. But like Anna says, lots of states, nearly half of them have banned it. But Utah hasn't. Utah has passed laws which allow local authorities to forbid people from banning clotheslines, but they have not passed a law themselves. So they have legalized the banning of the ban, but they have not just banned banning directly.
+
+[00:04:22] I'm so confused. Sorry, they've legalized the banning of the ban. They've said it's okay to ban people from banning them. They've passed laws saying local authorities in Utah can ban bans, but they haven't stepped in themselves and banned bans directly. It feels like you can remove at least two of the bands from that sentence. I'm not sure. I've tried.
+
+[00:04:43] It doesn't work. Really? It's exactly as I said it. Oh, yeah. Wow. Do you know the most powerful room in America is a laundry room? The White House. Like, yeah.
+
+[00:04:54] Yeah. Well, it used to be. It used to be a laundry room. So, Franklin Roosevelt actually moved the Oval Office from where it used to be. It used to be located in the center of the White House. And then you prefer to have it more by windows. was an obvious room for it to go to, and that's the room where they used to hang all of the laundry in and dry it up there. Really?
+
+[00:05:13] And he had that removed, and then the Oval Office was placed there. Oh, it doesn't smell nearly as nice now, presumably. That would have been what attracted him to the room. Very disappointing when they took the clean laundry out. When you see that centre shot of a president behind the desk, they have to crop it because just next to him there's a clothes horse. It's just packed with everyone's washing. Ah, clotheshoss. Do you guys call it a clothes horse?
+
+[00:05:34] That kind of thing. What do you call it, Andy? I just have a laundry rack. Laundry rackana, what do you call them? Call it a clothes ass. Okay. Mine's a bit smaller than your average one. Mel's worth too.
+
+[00:05:47] Because I call them a clothes maiden, right? And I was Googling this because I wanted to know where the word came from. And then from my Google, it seemed to imply that this is not what anyone else calls it. I've never heard of those maiden. It's really good. Definitely the sexiest version. Well, it's so strange. It's like, you know, when you have these words that you think are so common.
+
+[00:06:07] and everyone uses them and then you say them and then everyone's like what on earth are you talking about well this is it but maiden is like uh what people in lancashire would call i think what dan called a clothes horse and and he called a clothes rack and we gloss over what anna called it and i think i couldn't find out why they're called maidens but i reckon it's because in a spinning machine you would have two bits of wood that held the kind of spool and they were called a maiden or they were called maidens and they would stick upwards and then they would have a bar coming across them and then you would hang things on there and I reckon that that's why they call it because obviously Lancashire was like a spinning area. That's cool. It wasn't the case that historically unmarried women used to stand with
+
+[00:06:51] their arms outstretched for hours on end with clothes draped over them. It was a simpler time and a happier time. Do you know why laundry smells nice? Specifically air dried. Because you put soap in your clothes? The soap helps, definitely. But that's specifically, I think, the difference between air-dried, line-dried towels supposedly smell nicer than machine-dried towels or whatever. And scientists last year published a paper examining at the molecular level why these smells so damn good. And they got a load of samples and they used ultra-purified water and then they hung the
+
+[00:07:29] things out to dry. And then they sealed them in a bag for 15 hours once they were dry and then sampled the air that was being given off by these. things and compare the chemical profiles and la la la. And after things have been out in the sun, they emit specific organic molecules. And one of them is called octanal. And one of them is called, I think it's pronounced non-anal, non-anal, but it's spelled non-anel. Yep. And non-anel smells of roses, apparently. And it's possible that exposure to ozone outdoors transforms these chemicals and makes them smell lovely. Non-anel smells of roses. Do you think if it was
+
+[00:08:07] cold, anything other than non-anel, it would still smell as sweet. I understand that reference. Thank you. Yeah. It's from Anacarenda. It's from Anacarenda. It's not. It's the final line of Anna Carapha.
+
+[00:08:26] You know, you were saying, James, that it was the electricity movement, this push for electricity that meant people weren't supposed to hang their clothes out anymore. Do you know who the face of electricity was in the next? 1950s? Not Edison. He was dead. Long God, 50s, yeah.
+
+[00:08:42] Yeah, his face looked awful by that point. Is it like a John Wayne? Is it like a famous person? Yes, actually. You're really close with John Wayne. Think of the budget version of John Wayne. Oh, I know.
+
+[00:08:53] Reagan. It was Reagan. What was it? Very strong. Oh, how sad that I said budget version of John Wayne and you did get Reagan from that. So he must have loved the Oval Office. He would have felt right at home and there.
+
+[00:09:04] Yeah. Maybe that's why he went for president. Although actually, no, he wouldn't have liked it because he was all about anti-clothes lines. So he was the face of the Live Better Electrically campaign. And there are great adverts you can watch online which show him with his wife and his child sitting around a table and his wife just talking about how great it is that she doesn't have to slave over various things anymore because she now has an electric souffle maker, an electric coffee percolator, an electric combined toaster and grill. a lot of stuff that we do not have any more as standard in our homes. That's so cool. You know what I would have done if I was the advertising executive for that?
+
+[00:09:43] I would have had him with a weapon which fired bolts of electricity that turned things electric. So there'd be like an old kettle and he'd get his weapon and fire some electricity at it and it would turn into an electric kettle and he would be called Ronald Ray Gun. That is good. Wow. There's a career in marketing and advertising opening out. us and I like to see it. It's sad to see you go, but you're going on Twitter and got a same place.
+
+[00:10:12] I can imagine you guys sending me off a one-way ticket to Saatchi and Saatchi, and then me arriving at the front door and them going, sorry, sorry, we don't know what you're on about. We've just given you a big piece of slate with Ronald Raygun written on the front of it. Speaking of electric and laundry, you can now get a smart clothes peg, which is pretty exciting. Oh, that is exciting. Yeah. What's it do?
+
+[00:10:35] It detects UV light and humidity and temperature, and then it tells you when it's going to rain. And it also text you... Is it just one? Or do you need to put it on each of your... I can't imagine that you'd need to buy 100. We've got like 40 pegs yelling at you. Ah, it's going to rain! I don't think, yeah, because it texts you when the clothes are dry.
+
+[00:10:54] So if you've got 150 of these, I think you get 150 text saying it clothes are dry. Yeah, because if one of your clothes is dry, there's a decent chance. The rest of them are at least nearly dry. Exactly. Unless your garden is so big or your laundry is so extensive. That's really cool. I wonder if hackers could get into those smart, because usually when you have a smart thing,
+
+[00:11:12] the hackers can get into it. Well, and find out what kind of knickers you wear. You know, the internet. That's the kind of thing the internet's into, isn't it? I've read. You're right. But I think some clothes, do you take much longer to dry than others,
+
+[00:11:25] so I think you would need one for each item, aren't you? Oh, gosh, Anna, surely you just put the smart peg on the thing that takes longest to dry. Oh, God, I've wasted so much money on a thousand smart things. Do you, when you're doing their laundry and you put stuff outside, you just go out and you take one... Oh, this is dry. I'll take this in.
+
+[00:11:45] Every five minutes. It's not going to the garden. You know, washing detergent can be quite dangerous in war. So the Army actually has a list of banned detergents that they're not allowed to use because they contain optical brighteners. So imagine you wash... Are you saying, but if you...
+
+[00:12:03] use DAZ and your clothes are whiter than white. You're going to be spotted in your pocket on. No. No, this is all to do with sort of, you know, infrared and so on. You know, if you have optical brighteners in it, it'll go slightly fluorescent your clothing and that can be picked up by night vision goggles and so on. So they have a very strict list of what you're allowed to wash your clothes in. Wow. So funny. But that is another idea for James to take to Sartje and Sotchi, I think, for the next DAZ ad. I think so bright that you will. die in a war situation. Oh, yeah. So the ad is just one, there's like 50 of them, and they all get gunned down,
+
+[00:12:40] except for the one guy who then holds up a DAZ box and says, don't get shot. He's the one who does get shot. Oh, the DAZ guy's dead? Yeah. What you actually need is loads of, like, people in a battle, loads of different sides. And then they all want to give up. And so they all get a white flag. But nine of them are really dirty white flags because they don't use DAZ.
+
+[00:13:00] But then one person is used DAZ and they have a real. shiny white flag and they're the ones that survive. That is good. Is the, you know, white flag means I surrender. I surrender. Is a dirty flag mean, fuck you? What are you going to do? What are you going to do?
+
+[00:13:18] Clear signal. I don't deserve clemency because I have no hygiene. That's what it means. I've used this flag so many times it's dirty. I don't think does have advertised on British TV for some years now. But if they've been saving up in their war chest for the next big campaign, this is it. Yeah. This is the thing.
+
+[00:13:41] You know, I can't believe this fact that I'm about to say, but Queen Victoria had a special train for her laundry. Really? So there used to be a royal laundry in Richmond in London or did one and a half tons of laundry a day. So not all hers. It was, you know, palace. Yeah. She was large by the end of her life though. It's true, and she wore a lot of layers. Yeah.
+
+[00:14:09] But, and basically, wherever she was, apart from if she was in Scotland, which would have been insane for the laundry to come down from there. But even if she was on the Isle of White, or if she was at Windsor or, you know, her London Palace, a Buckingham Palace, I guess, the railway handed over all these items. And I've seen sources saying, and this is the thing I really can't believe, that it was a special miniature train, which took her lawnhouse. But she would have had to build a special railway line, like a special narrow gauge railway line for a minute to train with her pants.
+
+[00:14:40] And I cannot believe that. She should have just got a washing machine in both of her palaces. Yes. She wouldn't have to keep shipping it back. All right, Ronald Reagan. There was, speaking of railways, we as a group have discussed the Underground Railroad before a few times, but it's never been on this, I don't think.
+
+[00:14:59] and that was the idea that you would take enslaved people from the South America and you would sneak them out of places where slavery was legal and you would get them to places where they were safe. And there is a theory or there's a story that you'll see a lot online that people got messages through quilts on the Underground Railroad and that is that you would put quilts on washing lines all the way along and then you would see it and if it had like a zigzag pattern and you'd know that this was a safe way to go.
+
+[00:15:29] And if it had like a strike pattern, it'd be like, we'll turn left here and stuff like that. And this story is all over the internet. But according to National Geographic, quilt historians and underground railroad experts have questioned the study's methodology of the original study. And apparently it was invented by a woman called Azala McDaniel Williams, who was a quilt salesperson in the 1990s and wrote a book about quilts. And she came up with this idea that this happened in the Underground Railroad. And it does make sense that you can send,
+
+[00:16:03] there are examples of people sending messages using washing lines that happen in the American Civil War, I think. But this particular thing, I think possibly not true. That's a shame. It's someone trying to make the quilt a bigger part of world history. I think so. Against inequality, then it really is. It's a bit like, what was that mosquito expert that Dan had wine something? Timothy C. Wine Guard.
+
+[00:16:25] Yeah. She is like the Timothy C. Yagard of quilts. Oh, I love that, man. Okay, it is time for fact number two, and that is my fact. My fact this week is that Canadian engineers are part of a secret order designed by Rudyard Kipling. This is called the ritual of the calling of an engineer. And it is a secret ritual that most, Not all, but most are asked to take part in once they're sort of graduating to be officially a professional engineer.
+
+[00:17:07] And this little ritual started in the early 1900s, and the people who set it up wanted a really good thing to read out at the ceremony, and they couldn't do it on their own. So in 1922, they approached Rodyard Kipling, author of The Jungle Book, and they asked him to write this thing. And it's still going on to this day. you can still see, and this is how you know if a Canadian engineer is part of this secret order, look at the pinky finger, and if there's an iron ring on it, they are part of this secret sect. And there's not too much that we know about it, by the way.
+
+[00:17:39] It is genuinely, they have the ceremony. No friends are allowed to come, no partners are allowed to come, and only a few people have spoken about it publicly telling us what goes on at these ceremonies. And it all sounds really tame, not dark at all, like really boring. I don't know why they don't just tell us about it. Maybe, Dan, the people who came out, like the one or two people who've told you about it and said,
+
+[00:17:59] oh, yeah, it's really tame. I mean, that's what they want you to think, isn't it? Exactly. Yeah. Very true. Very true. There's a very dangerous cabal going on in Canada. We need to, we need to break it open.
+
+[00:18:12] It's amazing that they just got the most famous writer in the world at the time, as he was, to do this for them. They're so powerful, aren't they? These Canadian engineers, it's like, not surprising. They probably could have got anyone, really. Yeah, you're right. My very good friend is an engineer, and she worked in Canada for a year last year, a year before last. And so I messaged her about this, and she finds it pretty gross. So it's kind of disgusting because you go into the office and everyone else has this weird ring on their pinky.
+
+[00:18:41] And she also seemed to have an issue with the fact that kind of anyone can get it, according to her. So you don't actually have to be chartered. You only have to have graduated from university. In the UK, you don't get anything to your charter. much longer process, and then you get an A3 certificate, not the same. So it's kind of like piece of piss. She was like any engineers can get it, by the way, even the ones who design air conditioning units.
+
+[00:19:04] Well, Anna, it sounds like your friend is simultaneously very angry this exists and very angry she's not part of the club. Andy, she has a certificate. I don't know what else she needs. Yeah, as you say, Andy, like he was a really popular writer in that time. So it is bizarre that he was writing for them. Yeah. I think someone said I think he was probably the richest classic author that Britain's ever had. He was so bloody successful. He bought himself a mansion with his proceeds. There was one single story which ended up earning 31.5 million pounds that he wrote. No, hang on. Wow. Rich and Usman, eat your heart out. That is. And that's a short story. That's what he wrote in those days. That can't be in the money of the time because he would have been able to buy the entire country with that. Sorry. Is the equipment?
+
+[00:19:53] equivalent of 31.5 million, 250,000 pounds. Which story? Well, it's a slight sheet. It's called the absent-minded beggar, and it was, the Daily Mail was running a charity fundraising thing as part of an appeal to give money to soldiers in the war. And it's 1899. And Kipling wrote this poem, sent it to them and said, use this as you see fit to raise as much money as you can.
+
+[00:20:16] And so they did. And all the proceeds that were raised from it went to the war effort. But it really took off. It was a sensation. So it was a musical anthem, Arthur Sullivan of Gilbert and Sullivan put music to it. And people bloody loved it. Cool. Yeah.
+
+[00:20:32] He did a lot of that kind of writing with a slight element of influencing public opinion behind it. As in he was a campaigner. He seemed to dislike a lot of things and a lot of people. So, you know, he is viewed variously as either a really, you know, these days, extremely old-fashioned, jingoistic, imperialist, colonialist, racist, lots and lots of, you know, heavy criticism, kind of kicked off by George Orwell, who pointed out that people have been hating Kipling,
+
+[00:21:04] pretty much since he was writing, since he was really popular, lots of people have really disliked Bridget Kipling. But then again, he, you know, he also has written these fabulous books, which are very observant about human nature and all of this stuff, so it kind of keeps the reputation going. But one of the things that he wrote was the phrase known unto God, which went on gravestones of,
+
+[00:21:23] unidentified servicemen after the war ended. And that he was, you know, he lost his only son in the First World War and he was on the Imperial Wargraves Commission. He played a big role in that. And that was the phrase that he thought was most fitting. He was, um, he was always arguing that rich families shouldn't be able to erect loads of statues to their own children, uh, because he thought that everyone who died in the war really should have an equal remembrance. Uh, and that was a huge thing. There was like those family called the Cecil, who were like one of the richest families in the whole of Britain and he really stood up against them
+
+[00:21:57] because they wanted to do these statues and he was like, nah, everyone should have the same. That's interesting. But yeah, he was a massive racist, so that's another thing. I mean, he really, he was a white supremacist. Yeah, he's such an interesting character. So his first language is Hindi, born in India, of course, like first years in India and said,
+
+[00:22:20] apparently he wasn't very good at English when he learned it because they learned it in translation from Hindi. So you'd learn it in like a really stilted sing-song way. And he said that when he came to Britain. So he came to Britain when he was about six and was sent away by his parents and then he returned to India when he was 17. And he wrote that when he returned,
+
+[00:22:39] he found himself speaking in vernacular sentences whose meaning I knew not. He just found words coming out of his mouth that he remembered from his childhood, not even knowing what he was saying. Wow. Apparently. Vizar.
+
+[00:22:51] Yeah. He came up with the phrase, is the oldest profession to mean prostitution. So lots of people said, oh, that's the oldest profession. But before Kipling, they were talking about lots of different professions. So there was, you know, Taylor's were described as the oldest profession. That's probably the first time anyone said, this is the oldest profession. That's the oldest profession.
+
+[00:23:10] Murderers were claimed as being the oldest profession, arguably not a profession, but still. And there was this weird crossover period where lots of people were still quite innocent of the phrase, but we're using it. And then other people would think, well, I'm not sure that's what you mean. So graduating cadets might be told, you are now entering the oldest profession in the world. And not, you know, the old buffer who was doing a ceremony. Might not realize what he was saying to him. So that was a bit.
+
+[00:23:33] Apparently, he coined a few other terms and words. So some of the words include lunchless. Yeah, classic. That describes someone who has no lunch. Brilliant. Just to see you know. It was a genius of coining words. He was.
+
+[00:23:48] Apparently he coined Rito. Apparently that's his. That's the first first. First use of righto. Oh, that's big, actually. It is for you, Andy, but most people don't use it quite as often as you do. The sun rarely sets on a day when I haven't said righto at least a few times. Squidgey as well and stinky crumbs.
+
+[00:24:10] I know he coined Squiggly as well, and it seems like a cheat to coin squidgey and squiggly. I don't know if you count one if you've done the other. Oh, they're very different words. They one of them described something that's soft. and the other one describes something that goes in lots of directions. Yeah. That's a good point. You wouldn't say I've just enjoyed a lovely, moist, squiggly bit of sponge cake, would you?
+
+[00:24:30] No. You wouldn't say I've just drawn a squidgy line. No. But we all say righto. He was so famous that towns named themselves after him. So there were two towns in, I think, Michigan, which named themselves Rudyard and Kipling after him. And there's a place in Saskatchewan called Kipling. And that is an interesting place for us because it's the town where a Canadian blogger called Kyle MacDonald traded his way from a paperclip up to a house. Do you remember this guy? I do. Yeah. He started with a paper clip. She traded it for loads and loads of things. This is in about the early 2000s. And he ended up with a house in Kipling. And the town now has to commemorated it with the world's largest paperclip. They've got a 15-4-a-lip to commemorate that.
+
+[00:25:16] That's cool. Well, of course, as we said before, he was named after a place, a place where his parents met, Rodger Lake. Also quite an interesting place because that was a massive tourist attraction. So that's a lake in Staffordshire. And I discovered that as well as being the reason that Rudyard's called Rudyard. It was also the place where the African blonde in, as he called himself, a guy called Carlos Trower, in 1864, walked a tightrope 100 feet up above the lake. Wow. And it sounds great.
+
+[00:25:45] And thousands of people used to go to this place every day, apparently. So I think apparently 20,000 visitors a day. would visit this tourist attraction at its peak. And they watched him, and he did it carrying an 11-year-old boy. He did it backwards and forwards with his hands and feet shackled, which I've got no idea how you walk a tightrope like that. And then at one point, he was in the middle of the tightrope above the lake, and then he went back to the edge, picked up a stove,
+
+[00:26:10] brought it back to the middle and cooked himself ham and eggs, which I also don't know how you cook on a stove in the middle of a tightrope. Isn't he the guy who he did Niagara Falls as well, isn't he? Blondin, in Niagara Falls. He named himself after Blondon. Oh, great. Okay. Because Blondon also cooked in his walks as well, didn't he?
+
+[00:26:30] So he's a total tribute act. Yeah. That's really cool. He's a tribute act, but over a lake in Staffordshire, as opposed to over Niagara Falls, which I don't know, I really like Staffordshire as a county, but I'm not sure it has quite the same gravitas. It's not quite good. Yeah, but if you're a tribute band, you don't play the O2.
+
+[00:26:48] You play the Holy Arms, you know. No, but there is another thing that happened at Lake Rudyard, which is that Matthew Webb, who the first person to swim the English Channel, he went to Lake Rudyard to host a grand aquatic fate where he recreated his channel swim. Again, I have no idea how impressive that would have actually been, watching him to splash around in a lake for a bit. I wonder what the difference is between recreating a swim across the channel and just swimming.
+
+[00:27:16] Like, how does he make it? Does he put like a cross-channel ferry next to him or what? You're absolutely right. Details are frustratingly vague because this was 18. You'd have to have people generate waves. He probably had lots of people in there kicking and splashing. He probably had lots of people in there. Put a few poos in there.
+
+[00:27:37] I'm sure they had them. 20,000 visitors, Jane. Some of those tourists are kids. That's true. Kipling often associated with swastikas. because he was very much into them, obviously growing up in India, and they were a symbol of peace, etc., until those dastardly Nazis got in on the act in the 30s.
+
+[00:28:00] But there was a guy in 1984 called Tom Driver, who ran a bookshop, and he wrote to the Kipling Journal saying that whenever anyone comes into his shop, all they ask about is Kipling and the swastikers, because they had lots of old editions and the old editions of Kipling all had the swastika on them and then later editions didn't have them anymore of course
+
+[00:28:23] and he said we have recently kept a record and we average once a day when a visitor asks us some question about Kipling and the swastika usually at the back of it is a thought that Kipling was a Nazi and he said that they always tell them that this is an old peace sign and that's it
+
+[00:28:41] and he said yeah but that's what basically every single day someone was coming in saying, why are the swastikas on this? I've got a couple of pre-1933 Kipling and they have the swastika on them. Yeah, well, I did my dissertation on Kipling. So, yeah. Oh, wow.
+
+[00:28:56] Yeah, yeah, yeah. Oh, you didn't let on. That's sort of a sort of cheating, isn't it? Sorry, yeah. Very much cheating in advance in preparation for this podcast. It didn't do me any care. Next week we'll be doing scanning, tunneling microscopes, which was what my dissertation was on.
+
+[00:29:13] Good luck. Okay, it is time for fact number three, and that is Andy. My fact is that when McDonald's launched the Filio Fish sandwich, its main competition was The Hula Burger, which was a slice of pineapple in a bun with cheese. Yeah? Yeah. It was popular. It was so unpopular.
+
+[00:29:38] Basically, there was a bit of Cincinnati where 87% of the population were Catholic, and as a result, didn't eat meat on Fridays. And as a result, the Cincinnati McDonald's took. zero money on Fridays because they didn't have any alternatives to their, you know, burgers. And the owner said, right, I have come up with an idea called the fillet of fish sandwich. It's going to revolutionize the way we trade on Fridays. It's going to be great. And he really needed this because he was a kind of franchise holder. So he needed the business to work money. And Ray Kroc, the founder, said, he said in quotes, you're always coming up here
+
+[00:30:08] with a bunch of crap. Didn't like the idea for the filet of fish. He said, my ideas, my ideas much better. The hula burger will take a slice of pineapple. We'll grill it, put some cheese on it, put it in a bun. Sportingly, Ray Crocs didn't just steamroller, the owner who was called Lou Grun. He said, look, we'll have a competition. Good Friday, 1962. Demand for meat going to be very, very low because of all the Christians. So we will stock both in certain stores on a given day, and we will see who wins.
+
+[00:30:33] And the filial fish sold 350, and the Hula burger sold six. And so they went with the filial fish. And when did you say this was? This was 62. So this was really the heyday of pineapple and cheese being a, fashionable dish and even then. Yeah, you're right. The canapes. Yeah, yeah, yeah. It just didn't work.
+
+[00:30:53] You've got to put it on a stick. I mean, it sounds good to me. Does it sound bad to you guys? I wouldn't mind it. It didn't sound filling, I think. I think the problem is the slightly grainy texture of the bread with the smooth texture of the pineapple. I'm really, one of my biggest fads is textures. I really struggle with certain textures, and I think that would be the main problem, yeah.
+
+[00:31:14] That might be why you hate mushrooms so much. because they do have a very distinctive texture. Meat jelly, stuff like that, I can't deal with that. Oh, that's, I didn't know that you didn't like meat jelly. That's pie's ruined for you. It's basically all of Russian cuisine ruined for me as well. It's like, yeah. I think jelly should be sweet, personally.
+
+[00:31:33] And I think my McDonald's should be savory. So you're on the filly of fish side. I think I am really, yeah. Because I think, Dan, even though I agree with you, look, if someone put in front of me, pineapple and cheese and a bun, I would eat it. But if someone gave me the choice, I'd definitely go for a fish. Do you think you'd choose the pineapple?
+
+[00:31:54] No, no. I'm just saying there's a lot of options on the menu, and it doesn't stick out as a weird McDonald's one for me. It just might not be as popular as one of their biggest, most popular burgers. Also, Catholics tend to eat fish on Fridays, as opposed to eating pineapples on Fridays. So if it was for the Catholics. Yeah.
+
+[00:32:14] You're right. I see that now. Yeah. You don't see Jesus having two pineapples and 12 loaves, do you? He would have only fed the 200 if they'd had the choice. But maybe that was a secret. Maybe there was another messiah at the stall next year. Pineapple diet.
+
+[00:32:34] Oh, that's a cutscene from life of Brian, surely. But yeah, pineapples, they were, I mean, they were massive, weren't they? Well, they were the same size as they are today, a similar size. they were really popular. And it was because they were so difficult to grow. And so they just became really exclusive. And you couldn't grow them here. Oh, it was really hard to grow them here, wasn't it? So it was a code, it was a sort of code that you were incredibly wealthy. And so you can kind of date whole bits of, you know, British design and architecture to when they were built. Because if it's got a pineapple on, it's probably from that time in the 18th century that everyone
+
+[00:33:13] was obsessed with pineapples. Gateposts and railings. Yeah. But all of this stuff, by the way, I just want to give a shout out to Fran Bowman's book, which is called The Pineapple King of Fruits, which is possibly my favorite book on a single, tiny, weird subject
+
+[00:33:29] that I've ever read in my entire life. So people should definitely read it. But she basically says that once you learn how amazingly popular pineapples were for this short time, wherever you go, you'll start seeing pineapples because, like Candy says, they're absolutely everywhere. Yeah.
+
+[00:33:44] It's really fascinating. And I can't believe we've never said before, but people used to rent them. So if you couldn't afford them, which a lot of people couldn't. So there was a, again, it was a brief time. I think it was the start of the 18th century. They would cost sort of £10,000 in today's money
+
+[00:33:59] as much as a carriage. So you'd rent one for a night and you'd carry it around like a bag or you'd put it on your table if you're hosting a dinner party. And I think it was Fran Bowman who pointed out it was terrifying if you were the servant who had to transport the pineapple around. because that's the equivalent of carrying a briefcase stuffed with banknotes. Yeah.
+
+[00:34:17] But who's going to know that you've got a pineapple under your cloak? It's not, you wouldn't just randomly mug someone in the hope that they'd have a pineapple. That's jackpot for the mugger. Didn't people used to, didn't the rich used to hire people to sleep with their pineapples? Was that a thing? Am I making that up? Yeah, they used to protect their pineapples at night. Oh.
+
+[00:34:36] Yeah, from any poachers or any animals. Yeah, exactly, if you were growing them. What do you say am I making that up? Have you read that somewhere? We don't know if you're making it up. Well, I read Fran Bowman's book years and years ago, and it's a memory from that. James just bringing that up, yeah.
+
+[00:34:51] I know Charles II used to sleep with a pineapple. He'd sleep with anything, though. He'd sleep with anything. He'd sleep with a pineapple, yeah. What? What? Well, you know, his mistress, Barbara Villiers. He called her My Sweet Pineapple.
+
+[00:35:06] Okay. So, yeah, he slept with a pineapple. And Barbara Villas, amazing, isn't she? She kind of became the king's favorite mistress. And then after the king died, she just went completely off the rails. And at one stage, the absolute worst thing that she did was biting the penis off a recently exhumed bishop. I think as far as going off the rails is concerned. I mean, Pete Docherty's got a lot to learn, isn't he?
+
+[00:35:36] If he's run out of pineapple? Charles II. And he also commissioned a painting of himself being given a pineapple by his gardener. That's how much he loved pineapples. And it was kind of to prove a point. So he ordered a pineapple because the French ambassador was there. And Barbados was an English colony at the time, and they were arguing over who got to own the nearby island of St. Kitts. And he was basically asserting primacy because you could grow pineapples in Barbados.
+
+[00:36:01] And he was saying, look, we can do this with our pineapples here. So it makes sense that we should have this neighboring bit of land as well. Okay. And I think that was why he commissioned a painting of himself. just getting a pineapple off his gardener. Right. Wow. It was a little bit of an up yours.
+
+[00:36:16] I was thinking how awful it must have been when the very first king received pineapple. That was King Ferdinand. So pineapple was brought to Europe after Columbus's voyages, the late 15th century. And King Ferdinand of Spain was the first person to eat one. And he said the flavour exceeds all other fruit. But it was the only one that survived the trip.
+
+[00:36:36] And so imagine how awful that is. You know, when you run out of something delicious and you have to go back to the show. Oh, yeah. It's the most delicious thing you've ever tasted in your life, and that's it.
+
+[00:36:44] Yeah. Because they all, like, he did have loads of them, but they all just all ended up squishy and rotten, didn't they? Apart from one of them, which makes me think
+
+[00:36:53] that perhaps the one probably wasn't in the absolute best condition. If all the others have got, it's a bit like the washing on your line going dry. If all the others are rotten, then that one's probably a bit rotten as well. All the others went squidgey,
+
+[00:37:06] but this one happened to go squiggly to see you're weird. You do a typo. Have you guys ever been on a cruise? Yep. No. Okay, so, James, you're the only one who's been on a cruise. When you were on the cruise,
+
+[00:37:20] did you ever see on anyone else's door a sticker with a pineapple on it? No, I didn't go on a very high-class cruise, it has to be said. Oh, that's fine, because this doesn't apply on high-class cruise. Oh, God. There is a myth among the cruising community that this indicates, or if someone has a pineapple magnet, whatever or something on the door, that they are swingers and they are interested in having a good time. But, well, I don't know.
+
+[00:37:47] Because when I went on the cruise, the whole time I was sat on the deck reading Fran Bowman's book about pineapples. So God knows what they all thought of. Yeah. The thing is, the system is a poor one because obviously, I mean, assuming this is not complete bollocks, which it may well be. But you would only see a few doors, don't you? Because you normally, you know, you have your corridor and then you go up to the diamond. Yeah, but if you're a swinger, you're probably checking a few more doors than the average person, aren't you? That's a good point.
+
+[00:38:14] I think so. Yeah. You walk up a couple of corridors. You don't know who's behind the door either. I mean, the worst thing would be, if you've got the sticker on your door and someone knocks on the door, you open it, and they say, oh, sorry, I think I've got the wrong. Sorry, nothing. Never mind. You probably dress as like a, I was going to say cabin boy, but more like a waiter or something. And so you have the out.
+
+[00:38:36] Like, if they knock on the door and you know what? fancy them, you can say, oh, sorry, I just come to collect your room service. That's good. That's, I think, the best possible solution, but that feels like a long, now you've got to pack your cabin boy outfit when you're going on a cruise. I just think so many things have to, like, come together at once to make this work that I can't believe it's ever happened in the history of the universe. It's like, there have to be other swingers on the boat, you have to be on the right corridor, you have to know about the pineapple rule, and they have to be attractive enough for you to accept.
+
+[00:39:09] If anyone's listening, if you've ever had a successful pineapple-based cruise experience, we want to hear about it. Yeah. Hey, I was looking into other ways of presenting pineapple for meals, and I came across a dessert. I've never heard of before. Have you guys heard of candle salad? You ever had a candle salad? No, I haven't.
+
+[00:39:29] I'm part of the electric generation, so I just plug my salad in at the wall. So candle salad, it's a fruit salad. Although you do have lettuce in it as well as the base. But the idea is you take a ring of pineapple and you place through the ring of pineapple at the base a banana, a peeled banana. So it sits up. I can see why the swingers would like this kind of thing.
+
+[00:39:55] It has a red cherry on the top. And by the way, this supposedly is for children. It says it's a great way to get kids to eat fruit. It's got this cherry on the top. It's a banana sticking up through the pineapple. and you use either mayonnaise on it or cottage cheese. Come on, you know. Dan, you do not put mayonnaise on it.
+
+[00:40:18] Someone's been having you on, Dad. I swear to God, you put it on and you put it right at the tip of a banana. What are you talking about? It's a kid's food, and it looks like a robbing erect penis. That's just orgasm. Stop feeding this to your children, yeah. Come on, Dan. Which soft play area of you?
+
+[00:40:38] you've been to where they give you this halfway through. Dan is no longer allowed to go to any children's off by area. Where are you getting it from? Like, it's not, I never saw this in my childhood, put it this way. It was. And I was, I was a Catholic. It was big in the 1920s in America. And it still is around. And if you Google it, there's plenty of pictures.
+
+[00:41:00] People love popping their pictures up to show you how their candle salad looks. And, you know, it has a full-on Wikipedia article telling about its history. It's a real thing. Everything's got a Wikipedia article, mate. There's always some nut job out there willing to write a Wikipedia article. How do you balance a cherry on a banana? With clotted cream or whatever it was.
+
+[00:41:21] Yeah, with mayonnaise. With mayonnaise. James, mayonnaise. Sorry. That's the implausible bit. I was just trying to think of anything seemingly. I couldn't remember what it was. Cottage cheese makes a lot of sense.
+
+[00:41:32] Cottage cheese famously goes with pineapple. Yeah. Meonaze. Like I say, it's top video taste. Okay, it is time for our final fact of the show, and that is James. Okay, my fact this week is that there is a professional footballer called Norty, Norty. He has never been sent off. I mean, the headline that could have been.
+
+[00:41:58] Norty, naughty, naughty, naughty. Might still be because he's very young. Well, he is young compared to me. He was born in 1994. How old does that make it? Yeah, he's pretty. He's young. Yeah, yeah, yeah. So basically, this guy, I known about him for a little while. He was played for Chelsea as a youth player. And then he's played for a few non-league teams like Charlie and Dover. But recently he's gone to play for Queen of the South in Scotland. And last week he scored against Inverness Caledonian Thistle. And I was watching Gillette Soccer Saturday with Jeff Stelling. And Jeff Stelling said that this guy called Norty Norty had never been sent off. And I just
+
+[00:42:41] checked, and as far as I can see, it's true. And, you know, we get a lot of our facts from books or from scientific papers or stuff like this. And I just thought, why can't you get facts from Gillette Soccer Saturday on Sky Sports? Quite right. Facts, you can find facts anywhere, can't you? I've always said there should be an opposite of normative determinism. I reckon I've said this in the podcast, and if he's not evidence of that, then I don't know what is. Yeah. So on football was being sent off, as I thought, naughty, naughty, never has been. There have been some, wonderful sendings off in the history of English football. My God. So the earliest ever sending off was a Sunday league match in 2000 and it was between Cross Farm Park Celtic and Taunton East
+
+[00:43:23] Reach Wanderers, right? The referee blew his whistle at the start of the match, very close to a player called Lee Todd, who was a part-time bricklayer who had his back turned. The ref blew his whistle very, very loud. Todd exclaimed, fuck me, that was loud. The referee stopped the game, two seconds in and sent him off for abusive language. And it's just a glorious story. Like, there are so many crunchy details about it. Like, he was also banned for 35 days and fined £27. 20.
+
+[00:43:50] But then in the meeting about that, he went, fuck me, that's not very much. Another 35 days, mate. And his, he was tracked down 20 years after this match. Last year, he was tracked down by the website Sport Bible. And he's still slightly annoyed about it. He said, fuck me. I mean, if anything, he was wearing it himself.
+
+[00:44:10] True. Yeah, yeah. Unless it could, like, maybe the referee took it as a request. Yeah. Oh, yeah. He did have a pineapple sticker, actually, in the back of his shirt. Do you know what the record for being booked with a yellow card is? How quickly that was done.
+
+[00:44:25] It was three seconds. And that was Vinnie Jones, who most people globally will know as an actor, but used to be a professional footballer. Yeah, he was booked after three seconds. And he beat the previous record for a yellow card by two seconds. So it was a five second was the previous record. And that was held by Vinnie Jones. They smashed the same record.
+
+[00:44:46] Yeah. The red card was invented by referee Ken Astin after the 1966 World Cup. You could be sent off before then, but they didn't have card system. Because what happened was in the quarterfinal of the World Cup, which was between England and I think Argentina, it said in the newspapers the next day that both of the Chaltern brothers had been booked, but they didn't remember it happening. And so England went to the, to FIFA and said,
+
+[00:45:14] it says in the newspapers that we've been bucks, but we have no idea what happened. And it turned out they had been and they hadn't noticed. But then Ken Astin, having seen this happen, thought, well, we need a more obvious symbol of someone being sent off. And apparently he was driving down Kensington High Street, and he saw a traffic light. And the yellow, he thought, meant take it easy.
+
+[00:45:34] And the red is to stop. And so he thought, well, that's a good idea. let's have yellow and red cards. So I guess the traffic lights aren't yellow. They're amber, are they? So they should be amber and red cards, maybe. But it's literally a light bulb moment because what do you have in traffic lights? Yes.
+
+[00:45:50] You have light bulbs. It's light bulbs. But it's also an extremely obvious theft to us now, as in it's so obvious that, I don't know. What do you mean to get red and yellow and green? Well, I heard about that, Ken asked that. You should be given a, everyone should be given a green card at the start of the match. That would be a really nice. That was before the 1994 World Cup in America. They all had to have a green card.
+
+[00:46:15] In the match with the most ever red cards given, only one person was sent off. Oh. Really why? Riddle me that. This was quite... Anna's riddle corner who's open business. It was Valentine's Day and they all got a load of red cards which said happy Valentine's Day on them. That's the...
+
+[00:46:36] Oh, it's such a good answer. James, and I'm going to give you a bonus point for that, but it's not correct. 36 people got red cards, but it was in 2011, and it was vaguely famous. The referee was this guy called Damien Rubino, and one player was sent off in the first half, because he just got two yellows, and he returned in the second half to stand in the crowd in his home clothes and cheer the teams on. And then at the end of the match, this guy who had been sent off in the first half, came onto the pitch and just punched one of the opposition players in the face for reasons unknown to anyone.
+
+[00:47:07] but there's a huge brawl started. So everyone chased him. He fled to the locker room, everyone's favorite place to be. And then there was a big fight in there. And then they came back out to the pitch, big fight there. And eventually the referees gave red cards to everyone on both teams, plus all subs, plus a coach or two as well. But he's been interviewed this ref.
+
+[00:47:27] And he was like, I've got no idea why this guy just jumped out of the stands and went and punched someone in the face. And years later, he bumped into him at another match. The guy said, sorry about that incident. We actually had some personal beef off the pitch. Oh, I don't talk about. But, yeah. We never know what it was.
+
+[00:47:49] We'll never know. You can only speculate. Yeah. A woman. It's got to be about it. The first woman to ever be sent off an official football match for fighting was called Lily Parr. She is very famous.
+
+[00:48:03] She played for the Dick Kerr ladies, who are some factory workers from prehist. who we might have mentioned before actually, one of the most successful women's team of all time. Anyway, she had a shot that was so hard. She once broke the arm of a professional male goalkeeper. That's how good she was. She scored more than a thousand goals during her career,
+
+[00:48:25] more of the thousand goals, 34 of which were in her first season when she was only 14 years old. Oh, wow. How good does she sound? What a prodigal. They did used to play with bowling balls back then. much easier to break an arm.
+
+[00:48:39] Is Nanny a famous player? Yeah. Luis Dekunha, is his name of Nanny's his name. Nanny's his name is played for United, as James says. In 2013, he was set off in a match against Rail Madrid. And watching at home, one of the United fans was so outraged and enraged by this that he phoned the police. He called 999. He was a young lad, I think, he was just so angry about this.
+
+[00:49:06] setting off, he thought a crime has been committed. And then the police turned up and the car was going, nanny, nanny, nanny, nanny. If he didn't get a red for time wasting, but that's... He apologised later on. He said it was bad judgment to phone the old bill. I found a naughty manager,
+
+[00:49:27] naughty football manager. Someone very famous, Jose Marinio. So, Jose Marinio was given a two-match ban once and he found that horrible because he wasn't able to consult with his team in the locker rooms. So he snuck in and he managed to give his team a big talk. But then the problem was he got in there early so he wasn't seen. But by the time he'd finished with his team, the whole place was crowded with UEFA people
+
+[00:49:54] and he needed to somehow get out. So they popped, a kit man popped Jose Mourinio in a laundry basket. No. And wheeled him out. Yeah, and wheeled him out. So he left the lid bit of it open so that he was fine, he could breathe. But suddenly, when they were in the sort of corridors, they could hear UEFA people, and he got really nervous. The kit guy got really nervous.
+
+[00:50:16] So he slammed the lid down on top of the laundry basket. Problem is, is Marinio is claustrophobic and freaked out inside. And he thought he was dying, and he was just thrashing about. And eventually, when they got out, they opened it. And he was like, and came out. And it was a big scene for him. Yeah. The problem was he ended up on the Isle of Wight and Queen Victoria.
+
+[00:50:38] Who the hell are you? Such a good story. Wow. Did you also have that as research for the laundry section? I did. Yeah, yeah. Yeah, you've got to double that up. James and Anna, I think it's fair to say that you're the two of this podcasting team who are more interested in football.
+
+[00:50:57] Yeah. If we're ranking. Well, Anna's a Newcastle fan, but, you know, don't know. Yeah, you can't really call it football now. and a bit that. And that's from a trammeer found over there. Okay, well, I'm going to look up all these references later, so thanks for those. But are you guys familiar with the idea that it's harder to play against 10 men than 11? Is this a thing that people say like?
+
+[00:51:18] People say it. Usually you're expected to win against 10 men because they have one fewer player, but a lot of teams do struggle. Interesting. Although I've never front. Is it the psychology of it? Well, it's either that or this is just from what I've read is that a team with 10 players retreats and so they're going to be guarding the goal very carefully and all of this. But anyway, it's been studied and it's absolutely nonsense. It's much easier to win.
+
+[00:51:40] More points and more goals against 10 men than it is against 11. The stats, that's what the stats say. Makes more sense. It's good to know. Yeah. It's pretty hard to play against 15 men. This was a problem that Arsenal had in a game against Dynamo Moscow in 1945. It was a friendly game, so not too bad, but it was played in extremely heavy fog so that no one
+
+[00:52:00] could really see what was happening on the pitch. And at one stage, Moscow, Dinole played, made a substitution, but they didn't take a player off. They just brought someone on, but no one noticed.
+
+[00:52:12] And fans who are watching reckon at one stage, they had 15 players on the pitch at one stage. Arsenal had a player sent off, and the player snuck back onto the pitch for the rest of the game. And in the end, Arsenal lost four three,
+
+[00:52:28] but probably one of the reasons was because their goalkeeper knocked himself out, accidentally running into a goalpost, which he couldn't see because of the fog. Oh, my God. Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter account. I'm on at Schreiberland, Andy. At Andrew Hunter. James. At James Harkin.
+
+[00:52:56] And Anna. You can email a podcast at QI.com. Yep, where you can go to our group account, which is at no such thing, or our website. no such thing as a fish.com. Check out all of our previous episodes up there as well as old bits of merchandise that we're still flogging away. And yeah, we will be back again next week
+
+[00:53:13] with another episode. We will see you then. Goodbye.

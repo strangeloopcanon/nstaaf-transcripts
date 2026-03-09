@@ -1,0 +1,257 @@
+# No Such Thing As A Fish - No Such Thing As A Creepy Weather Forecaster
+
+- Episode date: September 23, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-creepy-weather-forecaster
+- Slug: no-such-thing-as-a-creepy-weather-forecaster
+
+## Transcript
+
+[00:00:00] Hi guys, just before we start this show, we wanted to let you know about last week's show, on which you might remember we had a few facts about Leonardo da Vinci that we were slightly suspicious about, and we just asked someone if they could get in touch and provide us with a reliable source so that all these things that sounded too good to be true could be verified as true, and someone did get in touch to tell us that they weren't true. I'm afraid Leonardo da Vinci doesn't seem to have had a long and lustrous career as a chef. He may not have even made the giant whisk. We fell for a hoax.
+
+[00:00:34] This is a hoax book that was written in the 1980s. It's called Notas de Cochina de Leonardo da Vinci, and it's full of lies, cruel lies that were then repeated in biography, after book, after history magazine throughout the decade solely for the purpose of making me look like an idiot. Thanks so much to Pedro Almada, who was the person who emailed in to tell us about that original text, and who also managed to avoid writing in huge capital letters, you total and utter gullible morons. Very grateful to him for being so restrained on that front
+
+[00:01:07] and for letting us know, and I'm so sorry to the rest of you for saying these things that turned out not to be true. It won't happen again. I promise the upcoming podcast is almost entirely true. Okay, on with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here next to Andrew Hunter Murray, Anna Chisinski, and James Harkin.
+
+[00:01:50] And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James Harkin. Okay, my fact this week is that the least creepy job is that of a weather forecast. According to you? According to a new paper from this year in the journal New Ideas in Psychology called On the Nature of Creepiness by two scientists called Francis T. McCandrew and Sarah S. Kernker. And what did they do that they personally meet up with creepy people? Yeah. No, what they did is they did a survey of 1,341 people and they asked them, they gave them a list of a load of jobs and said which of these is the most creepy. And the top creepy job was clown. Oh, yeah.
+
+[00:02:43] Followed by taxidermist. Yeah. Followed by sex shop owner. Oh. No, I'm friends with loads of those. Are you? And then funeral director and taxi driver. Is that taxi driver just because it sounds like taxidermist?
+
+[00:02:58] Is that the confusion there? It could be. So this is only a small list of jobs? Yeah, there were 21 jobs in total. So things like weird butcher weren't on the list. It might be even creepier than clown, but we don't know. You've got the normal butcher, and then the next door shop is always the weird butcher. He's always rubbing his hands on the awful.
+
+[00:03:18] So who else is on the list? So the bottom three, as in the least creepy, a meteorologist or weather forecaster came least creepy, followed by teacher and then farmer. I'm quite surprised by teacher, because not that teachers are creepy generally, but you often would hear schoolchildren saying about teachers are creepy and stuff. Yeah. Maybe it's a survey done once people have grown up. Exactly.
+
+[00:03:41] Nowadays, everyone thinks of teachers being great because, you know, you think, oh, what a good profession to be in. Sort of. Everyone has had one creepy teacher, though. It's sort of unfair to lump an entire profession into creepiness, isn't it? Based on probably one person's experience of a weird physics teacher. I reckon I'd answer that a creepy job was a hairdresser because I had like one creepy hairdresser once. Right.
+
+[00:04:02] You know, and then I think that affects your view of the whole profession, doesn't it? Yeah. My parents are hairdressers. Yeah, that's the one we're talking about. Your mom, just really strange. So what is being creepy? Okay, so being creepy is kind of a feeling of unease about somebody. And it's interesting, I read this paper, and they say it's not just that you feel like you're going to be in harm,
+
+[00:04:27] because if someone comes at you with an axe, you wouldn't say that's creepy. you'd say that's just scary it was really creepy it was so creepy wasn't it I took my hand off it's creepy such a creep we were talking about this the other day that there's sordid words
+
+[00:04:44] that I get given over to sort of like murders and stuff that are just a bit too playground so copycat that's just like stealing my murders you're nothing but a copycat it's ridiculous
+
+[00:04:58] that's the same creepy But yeah, creepiness is more like the potential to do harm, isn't it? Yeah, or actually it's more like the ambiguity of whether someone might do you harm or might not do your harm. Yeah. So, yeah. Maybe this is why, because I think this study also had the creepiest hobbies, what people found were the creepiest hobbies for people to have. And the top creepiest hobbies were collecting things. That's right.
+
+[00:05:22] Which I think that's... So the examples it gives are dolls, insects and body parts. Well, I think a dozen insects, I'd be upset if I was lumped in with body part collectors. It actually said that body parts such as teeth, bones or fingernails were considered especially creepy. So just a few more things from this study before we move on. They asked for creepy traits. And what they did was they said, imagine a creepy person is talking to your friend.
+
+[00:05:51] What traits might this creepy person have? And ones that they went for were the person stood too close to your friend. the person licked his or her lips frequently. Is that their own lips or the lips of your friend? And the person laughed at unpredictable times. I would put... Sorry. I would put oscillating on there as well.
+
+[00:06:22] Oscillating as in kind of rocking. Yeah, just rocking. I find that a bit odd. I'll be in bookshops. There's always an older guy. standing looking at a sort of the naughty section of a bookshop, you know, sort of like a romance, erotica. And they oscillate.
+
+[00:06:36] And I always say, don't go near an oscillating man. But is that more down to the position that he's in, as in he's in the sexy departments of the bookshop? Like, if he was oscillating somewhere else in the bookshop, would it be less weird? Because actually, like, sexual predation is one of the things which people associate with creepiness, of course. Right. That is creepy.
+
+[00:06:55] Yes. I concur. Did you, um, did you guys see? that on the list as well was bird watching, bird watchers. It was quite unfair. And a guy who is a bird watcher wrote an article on his website called Audubon. And he said, I'm just going to step away from my usual articles because I need to address this creepiness thing. And he said, here are a few of my thoughts.
+
+[00:07:16] Number one, first of all, only squares use the term bird watching. It's birding. That's a serious birder here. Yeah, he sounds like not a square. He sounds like he's a cool guy. And he says, and he says as well, like what they're not, what they're suggesting is, is that birdwatchers just stand there watching birds. It's not about that.
+
+[00:07:31] It's about going to exotic locations, it's adventure. This man sounds misinformed because bird watching is not going to look for a rare bird that's twitching. That's the thing that the bird watching community gets quite annoyed about. So twitching are the people who are just in it for the excitement, who they hear there's been a weird parrot spotting in Cornwall, and they get down there. Bird watching is sitting in your garden or in a forest all day, usually listening out for bird calls because you can't see them.
+
+[00:07:53] Well, he does say listening and thinking and anticipating. I mean, can't wait for the letters after Anna said that this guy who, Right to birdwatching the website. On Audubon, which is the most famous birdwatching website. Yeah, yeah. I think this is, it's his site. He, just to the final point, number four, is he says, you know who I think the real creeps are here? These psychologists sitting around thinking about what's creepy all day, constantly asking people, do you think this is creepy?
+
+[00:08:16] And how about this? Creepy? What a bunch of creeps? I think these scientists should get out of the lab a bit more. Maybe pick up a hobby. I know the perfect one. Slam. Do you know who came up with the term the creeps?
+
+[00:08:29] As in that gives me the creeps. Charles Dickens. Oh. Yeah. David Copperfield, that's the first use that the Oxford Dictionary has. And was it in reference to Birdwatchers?
+
+[00:08:37] It was not. And also around that time, mid-19th century, creepiness was known as being clammy. That was another way of describing someone who was a creep. Oh, yeah. They were very clammy.
+
+[00:08:49] Yeah. So I think the reason, just to explain why bird watching, and it was bird watching and other hobbies that involve watching, like the other examples given words. taking pictures of people, watching children, pornography and birdwatching.
+
+[00:09:06] So you can't see why he was upset of being lumped in with those guys. Yeah, yeah. But this study, the study concludes by saying that creepy people are the personification of something called the Prospect Refuge Theory, which is this idea that humans seek places where you get refuge, so safety,
+
+[00:09:23] and you get prospect, so opportunity. And basically what that means is places where you can hide easily, but you can see lots of other things around you, potential threats. And I think maybe the idea of people who watch is that they're concealed. So a bird watcher is watching you, but often you can't see him if you're a bird. And that's why in like a Victorian house we'd be creeped out
+
+[00:09:44] because there are lots of nooks and crannies people could, you know, round corners that people could be hiding in. And if you're on a big open moorland, people often find that a bit uncomfortable because there's no way you can hide. Sure. When I used to play LaserQuest when I was a teenager, I used to like to hide in the corner
+
+[00:09:58] so that no one could shoot me. And then I would shoot them from where I was. Does that make me creepy? Yes, and I also hate people who do that. Yeah, I know. Yeah, well, I was a winner. Yeah, I played two weeks ago, Laser Quest. Did you?
+
+[00:10:11] Wow. It was great fun. I'm afraid that's the extent of the fact. My fact this week. I'm back in the 90s. Really good. It's great. So I think it was discovered by maybe Richard Wiseman did a study
+
+[00:10:24] in the early 2000s and someone else before that, that any area that has infrasound, any sound that's below 20 hertz, which is basically below the level of which humans can hear, makes us creeped out somehow, even though we don't know it. So he did this study in Edinburgh, and he sent people to two apparently haunted locations and two not haunted, but didn't tell them which were which. And they were more scared in the apparently haunted ones. And then he realized that's because there was this constant rumble. I think it was caused by the traffic, but it was just below that frequency at which we can hear.
+
+[00:10:52] I'm sure this must be made up. but I remember at school someone telling me that when Hitler did all of his speeches, what they used to do is before he came on, it was that kind of noise. So there was an unsettled feeling amongst everyone who was there for the speech. And then as soon as Hitler would come out, they would turn the sound off. And the matching of the sense of calm from the sound disappearing with this person, who you were there to see was like, ah, our leaders here kind of thing. Is that true at all?
+
+[00:11:18] I've read that. Right. I don't know if it's true. Do we think Theresa Mays just keeps forgetting to turn the machine off when she starts? clowning was number one on the list of creepy occupations, right? Yeah. So the clowning community is very aware that they are being seen as creepy, and they need to do something about it.
+
+[00:11:38] So one of the things is that they teach people who are petrified of clowns, not to be petrified by inviting them to come along, and they give them clownsling, they call it. And clownsaling sessions involve meeting the person. They then get done, they're made up done and stuff in front of them, and then you see them in the circus and you realize it's a normal person behind the clown face. Did you see this last few weeks in the news there have been some clown sightings in South Carolina? No, they're not native to South Carolina. That doesn't make any sense.
+
+[00:12:08] What do you mean clowns sightings? So they have been reported sightings of lurking creepy clowns that people have been telling the police about. Police in South Carolina have warned that anyone dressed as a clown could face arrest because so many people are being scared by these clowns. And at least one performer in Georgia has decided to inform police of his movements whenever in costume so that he doesn't get arrested.
+
+[00:12:33] What's the offence, though? Because it's not an offence to be creepy. No, but there's reports of them kind of trying to get children into the woods. There you go. But here's the thing, right? In 1981, there was a very similar thing happening where people saw these clowns
+
+[00:12:50] and they were supposedly kind of lowering children into woods and stuff like that. There was one event where there was a clown who only had half his clown suit on, and he was even more scary because he didn't have the bottom half on. He was naked from the waist down. Right, yeah. But they had over 20 calls at this time, and it was in the newspapers, but they found out that basically no adults had seen any of these clowns, and they reckon that maybe it was just overactive imagination of kids,
+
+[00:13:19] and that was what caused it. okay. I'm scared of clowns again now. All that clownsling I had. It's completely gone out of four years of clownsling. And actually these ones in South Carolina at the moment I think no policeman has actually seen any of these clowns either. So I wonder if it also might be another kind of example of mass hysteria. That's another example of also a playground word for effectively what sounds like sexual predators out and they go, those clowns, we'll get those clowns one day. I have one more creepy thing before we move on There was a news report about donations
+
+[00:13:56] Left to Shelter Scotland, a homeless charity And they gave their weirdest and creepiest donations A mummified cat And a sack of creepy severed dolls heads With their eyelids glued shut Yeah That was donated to a charity in Scotland Donated to a charity!
+
+[00:14:14] What possible use could you have in the charity shop? Because sometimes the dolls heads fall off and you need to replace me. You need a replace. Well, I love these dolls heads, but I'm afraid the eyes are just too open for me. No thanks. Okay, it's time for fact number two, and that is my fact. My fact this week is that self-driving cars are playing Grand Theft Auto in order to learn how to drive better. So this is, scientists are basically teaching self-driving cars to identify stuff better.
+
+[00:14:51] That's quite hard when you don't have a program that has things mapped out because you need to do it. You need to teach the algorithms to learn better to understand what every single potential thing you might encounter on the street is. And they realize that instead of having to build all these programs that simulate a real life driving experience, why not use something that is extraordinarily detailed like Grand Theft Auto and let it play it and let it just understand and start labeling all the things that you don't want to run over. There's this lab in Germany which has developed this. It's basically a software layer that sits in between the game and the car. And the idea is that it just automatically starts classifying all the things and feeding it into the algorithm. Do you think the game would be annoyed if it knew that it was being played by a not a human?
+
+[00:15:40] What do you mean by that, Andy? I don't know. I think you thought that was a more profound question than it actually was. But it's interesting. You've got one virtual reality thing interacting. with another. Yeah, it's pretty weird. So I read a list of how detailed Grand Theft Dordo is now. Some of the things that they've programmed into it if you were playing the game that you would notice. So if it begins raining, puddles will slowly and realistically form in the road.
+
+[00:16:03] And if you shave your head or you have a clean shave, your hair and stubble will grow at the same rate that, say, if it was mine, like they just calculated one person's growth. It's stuff like that. They've really gone into... But yours is quite fast growth. Yes, mine's a very fast. was mine, it wouldn't be fast growth at all. So have they taken an average of everyone? No, I guess I guess they've just used one person's. It's the idea of hair growth. So it all, yeah, that's not realistic at all. What are the cars going to do when they're put into real life? And they come up against someone who doesn't have such fast growing hair, they're going to absolutely freak out.
+
+[00:16:35] Yeah, that's true. It's a really good point. On the bright side, people always get critical of Grand Theft Auto and kids playing it because it maybe teaches them to commit crimes. But it's quite safe for a car to play a game about stealing cars because a car has no incentive. incentive to steal a car. It's true. Yeah. It's like teaching it about real life. This is what might happen to you. Yeah, it's a warning video. Yeah. There was, I read an article about someone who was in a Google self-driving car and they were saying that it's really interesting because the car uses a mixture of 3D laser mapping, GPS, radar. And when they're using the radar, the radar goes through objects as opposed to just slapping onto something, as it were. So like our eyes do. Yeah. When your eyes slap on.
+
+[00:17:19] Yeah, when you slap on to... I'm supposed to sing through it. Yeah. But so as a result, there are moments when this person was in the car where the car would suddenly stop because it recognised a cyclist who was halted and they would have gone into it
+
+[00:17:34] except for the fact that the cyclist was on the other side of a hedge. Whoa. So it could see through the hedge to see a cyclist. It was going head on the hedge. What would it register that as? Would it register that as a sort of spread out hedge?
+
+[00:17:48] I don't think cars need. to register a thick mist, do they? Past a certain thickness, mist becomes fog. Okay, so a really heavy fog. Yeah, I think my point stands. No fog has ever been so heavy to act as a wall against a car.
+
+[00:18:03] So it would have to be, what are you saying is that they don't use cameras, they use radar? Yes. So it would have to be a fog thick enough to show on radar. Yes. Okay. Like a fog of insects. Like sometimes if there's a load of insects, kind of like mayflies all come at the same time. Right. They could show up on radar. What about that, Anna?
+
+[00:18:18] What about a plague of locusts or cicadas, which is in the middle of the road? James, I don't know why you're trying to dig Andy out of this. It's very generous on you. Help me. I thought it was an extremely profound question. Thank you. Google cars just had their first accident caused by a Google car rather than a person, I think. Do you mean fatality?
+
+[00:18:41] No. No. I mean, the smallest car accident you could possibly imagine. It was in February this year. And it actually exposed something quite clever that I didn't realize they do, which is they've trained Google cars to, you know when you're going along a main road and you need to turn right off the road. And there's traffic coming the other way. So if you just stay in the middle of your lane, then you hold up all the traffic behind you. So what you usually do is edge to the right-hand side of your lane so that traffic can get around you. And they've taught the Google cars to do that. So a Google car needed to turn right, so edge to the right-hand side of his lane, but then spotted that, I don't know why they've installed this in the area where they're training the cars. but there's a bunch of sandbags blocking its route. And so then it indicated left to get back into the middle of the lane. And it scraped up at two miles an hour against a bus that was coming on its left-hand side.
+
+[00:19:28] So that was pretty dramatic. Was it in Britain this? No, I don't think it was. I think it was in America. So that would be turning left rather than right, would it? It absolutely would be. I've said, so listen to what I just said and then swap around all the lefts and rights. Right.
+
+[00:19:42] And then you've got it. Have you seen the Rolls Rory? one that they've developed. I'll put this up on Twitter, but it's the photo on Twitter, but it's worth you guys seeing right now. What Twitter are you going to put it on? I'll put on at QI podcast. This is a design that they're planning to actually
+
+[00:19:59] square wheels. Yeah, square wheels. It's a silver beast that looks like it's from the Jetsons. Isn't that? If you're just listening to this and you're not on Twitter, it does not have square wheels. It's got sort of wheel guards on it. Yes. That's right. Are you sure that's not just a car that's still mounted on its block in the
+
+[00:20:15] display room? It looks like a monopoly piece. Doesn't it? That's the best way describing a picture of a monopoly piece. Is it real or is it a concept car? No, no, it's a real car. Imagine if all the self-driving cars all look like different monopoly pieces. That'd be amazing.
+
+[00:20:28] Oh my God, driving around it in an old boot. Yeah, giant top hat cruises past you. And what's the new one? The cat. Oh, yeah. The cat. You'd always swear at the cat, wouldn't you? Just newfangled youth.
+
+[00:20:42] Yeah. It's not gone down too well this car in terms of design. I like the design. but they said in the article one reviewer it's called the car but ugly and I think maybe a lot of people will agree but I think it looks awesome a very skilled reviewer
+
+[00:20:55] it's got a real way with words well the point of driverless cars I think of the design for instance that Google's going for is to make them look incredibly friendly because we're quite very nervous about handing us our lives over to robots even though that's not really justified we are and that looks
+
+[00:21:13] like a very intimidating car so I think they've gone entirely the wrong direction so that the Google cars, if you look at them, they've sort of made a face on the front of them. Like a friendly face, the lights are a pair of eyes and then below the bumper. It's like a smiling mouth. Saps, they must take us for. It's because these killer robots are smiling. I think it's true, though, because you know the New London Red Buses, to me, they look like
+
+[00:21:32] they're pissed off with me. Anytime I see one from the front, I'm like, that bus is angry. That's the driver's turn. And it's because you keep standing in front of them. So there was an interview with a guy called Barry Kirk, who was an expert from the Canadian automated vehicle center of excellence. And he was very worried that people would start having sex in driverless cars. Oh, yeah.
+
+[00:21:54] Because you're not driving, so what are you going to do? Like, whenever I'm not driving, I'm always having sex. But that's why you're driving to sex, driving away from sex or having sex. Or driving people away from sex. He was saying, yeah, he reckons that people will be in cars and they'll not be driving and they'll be like, well, what are we going to do? So we'll have sex. And he thinks that's going to be a problem because...
+
+[00:22:18] All right, mom. Every school run. Oh, dear. But yeah, he thinks that this is a problem because when the humans have to kind of take over because something goes wrong, they'll be... They'll be having sex. Right. I'll be playing a board game, thanks very much.
+
+[00:22:39] I'll be neatly folding a cardigan. And his post-sex ritual. Let's add these chat up line. Nice cardigan. I'll be folding that later. You know what your cardigan would look good? Fold it up in a drawer. Do you guys know how old driverless cars are when they date back to you?
+
+[00:23:08] Five years. Thanks. That's really sweet of you to do that because it's actually much longer ago than that. Is it? And it's going to make my fact sound even better. 5,000 years. You dickhead. No, so the earliest driverless cars date back to the 1920s.
+
+[00:23:24] And actually, you'll see various articles refer to the earliest one as being called the Linnrican Wonder, which was made in 1926. And it was radio controlled. And so there was someone driving in a car behind it who had a radio connection to the car in front. Then I searched in the British newspaper archive for this. And there's actually an earlier one that it referenced in 1921. So this was in Ohio. And again, it was the same idea. invented by this guy called Captain Vaughn, who drove another car 17 yards behind it and
+
+[00:23:50] controlled it with a little remote control. Oh, wow. And it said, the article said to the surprise and dismay of passes by, it made its way through the main streets, obeying the traffic signals, taking the turns and blowing its own horn at careless pedestrians. So you could have an automated horn as well. Some things on Grand Theft Auto. Yeah, sure. So if you, you can get your character on Grand Theft Auto, look at their smartphone and open some websites. and Grand Theft Auto has more websites than North Korea. Whoa. There are 83 sites available on the game, and there are 28 sites in the whole of the North Korean intraweb.
+
+[00:24:32] Wow. That they're allowed to go on. The guy who voices a character called Michael in Grand Theft Auto, a guy called Ned Luke, he put on $25 for the role. For the voice. Roll. He's a method actor. He said he wanted to really get into the physicality of this role. Put on some weight.
+
+[00:24:52] Dedication. That's amazing. That's incredible. If you complete the game, having found every peyote location, this is Grand Theft Auto 5, and complete the mission the last one without killing the Sasquatch first, and then you play another go of the game as Franklin on a Tuesday between 5.30 and 8.30 while the weather is foggy. then you can play as a big foot. That is awesome.
+
+[00:25:22] That's so cool. There must be videos of that on YouTube. They probably are, yeah, and it was for a long time it was a kind of a conspiracy theory between Grand Theft Auto players that you would be able to do this
+
+[00:25:32] but no one knew how to do it and then someone just found out how to do it. You're describing that, knowing that you've never played it, and neither have I. It was kind of like listening to grandparents talk about the internet. Like yesterday when my friend's mom
+
+[00:25:44] asked me to send her an app of the show that I do. Oh yeah. Yeah, just hearing you trying to pronounce all the words in Grand Theft also. Most of those words were perfectly normal. English words. You just sounded not comfortable doing it. You're quite right.
+
+[00:26:05] Okay, it is time for fact number three, and that is Andy. My fact is that Cucobarers are born with a hook in their upper beak, which is specifically for murdering their siblings. We all have that. Okay, that was creepy That was creepy So this is what's known Technically as a morphological specialisation
+
+[00:26:25] For sibling rivalry That's basically like having an arm Just for hitting your brother with Actually, with my brother That was his own arm Why, you stabbing yourself in the beak Yeah, so Cockaburas They have this thing where they always lay three eggs
+
+[00:26:43] And they hatch out at separate times and in about half of Cucaburroo broods the youngest one to hatch is killed by their siblings and their siblings, they peck it to death normally or they push it out of the nest and it just helps the other two get to a larger weight when they fly the nest which allows them to be more successful breeding later on and it's basically done as an insurance policy by the parents
+
+[00:27:08] because there is a chance that one of the first two will die and that will limit your reproductive success so as a result you have the third one just in case but normally it's clear that it won't be required so it's really brutal but they're a substitute it's like being on the bench except at the end of the match you don't celebrate with the team you get killed by them yeah there's a few birds that do this actually
+
+[00:27:32] honey guides they do this and one of the children will peck the other one blindly before it's even opened its eyes so it's just been born still blind and it just kind of blindly pecks around until it hits its brother or sister and then just murders them. And is it definitely know what it's doing?
+
+[00:27:51] Or is it kind of just like, I've just been born, I'm just feeling around? As much as birds ever know what they're doing. It's not an accident that. I mean, I think you couldn't really defend the accidental repeated killing of your siblings just saying you were flailing around. Oh yeah, definitely. I wouldn't say it's an accident.
+
+[00:28:09] Okay, so they mean... So for instance, Black Eagles do this, as well. And once they were studying them, and they found that one of the larger eglots peck the smaller one, 1,569 times before it died. Right. So you couldn't really call that an accident. Right. There is a thing about eagles. This is bold eagles, I think. But it's really interesting. So they have, again, three chicks. And the first two to hatch, they have this massive dose of testosterone in the egg yolk. And there's a scientist from the University of Oklahoma called Douglas Mock, who said, I think this is brilliant,
+
+[00:28:43] the yolk is like a bagged lunch that the kid takes to school. You can either give your kid a lunch packed with steroids so he'll be a brute by recess or you can give him peanut butter. And so the third one born doesn't have this huge megadose of testosterone.
+
+[00:28:57] You'd be called in by the teachers saying your son's lunchbox today was a bit the youngest with the peanut butter. That's fine, but old steroids. It's not an acceptable lunch. So this is what's so cruel about it, is the parents sort of deliberately set the situation up. And sometimes the kids will be fighting
+
+[00:29:15] and the parent knows which is the weakest, the one which needs to die, and will hold that one down so that the others can get at it. It's a really bad example to be setting your children, I think. Yeah. Yeah, it is. Do you know what I thought was weird about Cuckaburras is that the female who gives birth
+
+[00:29:31] controls the timing of when she lays the eggs, and that's part of her strategy. So by timing them so that the eggs hatch at different times, it means that they're slightly different sizes, the kids. so it sets up some to be able to beat the others. But also, the first egg that she lays is male, and the second egg is female. So the first egg to hatch is male, second is female, and the third is 50-50. You could go either way.
+
+[00:29:51] Lucky dip. Yeah. Isn't that strange? You know, Cocoa Burrows used to be called the Ha-ha Pigeon. Isn't that the best nickname? I thought they were called laughing jackasses. They get called that, they have a lot of names. The Breakfast Bird, because they have this really loud laugh, and it sounds like, they got called the
+
+[00:30:10] Sattler's clock. Well, hang on, hang on. You started explaining why they're called breakfast and they have a laugh. Wakes you up for breakfast. I'm thinking, well, I don't always laugh when I'm eating my bran flakes in the world. And I was thinking, can I buy these in Tesco? Fry them up with an egg. So you do have to finish these sentences.
+
+[00:30:28] Sorry, breakfast bird or Settlers'clock. Or they also get called the giant Kingfisher because they are the largest member of the Kingfisher family. They are in that family. I think Ha Ha Ha! Pigeon's the best, though. That's brilliant. There's a very famous Aussie song. that we used to sing as kids.
+
+[00:30:42] Cucca Burris sits on the old gum tree. Very classic song. And I was reading about that song because obviously it is very famous and I googled it. And what came up was that there's an Aussie show called Spicks and Specks. Ages ago this happened,
+
+[00:30:55] Adam Hills was the host. And it's like, never mind the buzzcocks of Australia. One of the questions was, which song, which famous song has Cucca Burrots Sips on the Old Gum Tree in it? And the answer was,
+
+[00:31:07] Men It Works, I come from a land down under. Now, no one had made that connection before. And so the people who own the rights to the song, Cuckabar sits on the Ogum Tree, got in touch, sued men at work and won, and $4.5 million roughly in that region after years and years of them having to battle it out in court got handed over. And they lost the case. And they proved that there were two flute moments in it that copied the lines from this song, which was written by an Aussie school teacher and then handed over to a library. Yeah That's I bet they felt bad
+
+[00:31:41] Whoever set that question Yeah I know I know It would have been Adam Hills he said it It would have been Adam Hills I imagine yeah Just a headline I found Which was
+
+[00:31:51] Sausage Addicted Cuccaborough Too Fat to Fly I thought I'd share that with you And yet you didn't Read the full article Which I did Oh I did as well Yeah
+
+[00:31:59] We all read the article That's all we've done Some links you just can't not click She was a Cucobar And she became very fat But from sausage handouts, as the article said. The article really is
+
+[00:32:12] kind of summed up quite well in the headline there, isn't it? Yeah, it's true. Yeah, reading it was quite disappointing, really. There was very little more to be gained. Well, it gets attacked by dogs at one point and then people notice it. Is it because they smell like sausages? Someone thought, oh no, the poor thing, it must have broken its wing and been able to protect
+
+[00:32:29] itself from the dogs. I know it's just been eating sausages so it can't fly away. Did you read that thing? Someone sent this to us. I think Mark Abrams had retweeted. it, Mark Averham's of the Ig Nobel Prize, has retweeted it, and it was from Errol Flynn's autobiography. I saw the tweet, but I didn't read it yet. Okay, so what, did you read it, Andy? It's basically, he suddenly says it as an autobiography that he started experimenting on ducks. He's like, I did a lot of scientific experiments on ducks, and he had read that if you gave
+
+[00:32:58] ducks a bit of pork, so I'm just going off, uh, kookabur's eating sausages. If you gave ducks a bit of pork, it immediately goes through those system within like two to three minutes. They pooed out on the other side. So he had a thought of, what if I tied a bit of string to the pork and let it go through the duck? And he did. And so it went through. And then he gave another bit of pork to another duck and another duck. And he basically created a string of ducks. A duck centipede. Like human centipede. And he used to charge people to come and see his scientific experiments. And people would come and watch duck centipede. This is awful. Yeah. It's in his autobiography. It's got sent around on Twitter. Wow. Yeah. Do you know,
+
+[00:33:37] There are some plants which engage in sibilicide. Really? Yeah. Wow. So there's a tree in India called the Delbergia or Dalbergia tree. And it makes all these flat pods full of seeds. And the seeds get dispersed by the wind. They get spread around, so you get more trees elsewhere.
+
+[00:33:52] In the seed pod, the very first seed to develop produces these chemicals which gas all the other seeds in the pod. Wow. Yeah. And it means that it is much likely to be the one which survives. Isn't that crazy? Very clever. Okay, it is time for our final fact of the show, and that is Anna Chazinski. My fact is that the first ever mention of paper recommended it as a cure for frizzy hair.
+
+[00:34:23] How does this cure work? Great question. Well, I don't think it does. Set one, sorry, James. Just go to Boots if I were you. But this, I read this in a book called Paper Trail by a guy called Alexander Monroe, which is such a good book. Really readable, really interesting. And he cites this bamboo document
+
+[00:34:40] which was found in a Chinese tomb in 217 BC and that document uses the Chinese for paper in it for the first time. But the context in which it uses it is it says if a man's hair without reason stands erect like worms, whiskers or eyebrows he will have... Sorry, erect like worms. Yeah, I know. I don't...
+
+[00:35:03] Maybe worms were different back then? Yeah, maybe. If a man's hair stands erect like, worms, whiskers or eyebrows, he would have encountered a bad spirit to resolve this, boil a hemp shoe with paper and the evil will be dismissed. That's when paper first came into our lives, yes, being boiled with a shoe. Wow. Amazing.
+
+[00:35:22] So this is the word, it's jie. Is that how you pronounce it? True. Je, Z-H-I. Yeah, Z-H-I. True. Okay. And I'm also reading a book about paper at the moment by Mark Karlanski.
+
+[00:35:34] and he has another time when they used this word very early. It was in 93 BC and it was when a guard advised a prince to hide his deformed nose with a piece of paper. Did he draw a more perfect nose on the bit of paper and just hold it up? Didn't say that that would make sense. I like when they do scaffolding on buildings
+
+[00:35:53] and they put on the outside of the scaffolding what the new building's going to look like. Yes, exactly. Yeah. Yeah. It's very clever. My mom said when she was a kid, the queen was once visiting the area
+
+[00:36:02] she grew up in Manchester and their line of terrorist houses, they decided, the council decided looked a bit skanky. And so they put covers on all of their houses, so they'd start all in covers so the Queen would think they were nicer. Wow.
+
+[00:36:14] Yeah. That's amazing. Yeah, how weird. Like a Potemkin village kind of thing. Yeah, exactly. They might as well have just not taken her to Manchester. Just take it to Bath. Take to Bab and say, oh, this is Manchester.
+
+[00:36:28] Oh, it looks a lot like Bath. Oh, no. So paper in China, there's a thing in China, it's a sort of tomb sweeping day, basically. It happens every year and you take paper money, fake paper money, to burn it your ancestors. Yeah, I used to go and do that, yeah. Did you? Yeah, yeah.
+
+[00:36:44] And so is it stacks of... I didn't have any ancestors myself, so I just had to use other people's ancestors. Did you? Yeah, honestly, it was a thing. It was a big day there in Hong Kong. Yeah. So is it like you buy monopoly money and you burn that? It's money for the dead.
+
+[00:36:56] It's a specific currency for the afterlife and you burn it by the grave. And it's... Did the other people not money? that you were doing it for their ancestors. Oh, I went with friends. And also, there's a lot of graveyards where it's kind of unmarked tombstones and stuff belonging to forgotten person.
+
+[00:37:12] Was it only money that you were burning then? No, because in Taiwan, is this what you're going to say? They've now started burning cardboard iPads for their ancestors so that they can have them in the other world. You get helicopters and whole models of houses and plastic servants you get. You burn a plastic servant.
+
+[00:37:31] So they do that. They do that. for funerals as well. In China and Taiwan, Hong Kong, what they do is they build replicas of the things that you had in life and maybe give it a bit of an extension so that you can bring it into the afterworld. So I've seen it go by. You see these huge, they look like giant pinata kind of things. And they bring it, yeah, to all the cremations and so on. It's amazing. Really cool. That's so cool. Yeah. I do is that you get that in the next life, is it? Yes. Yeah. So they will make exactly servants and little, little, you know, Cadillac cars and all that sort of stuff. Yeah.
+
+[00:38:02] So about the history of paper, the fact that we have paper now, a lot of it is thanks to Buddhists. So when they first started making paper, a lot of it was used for kind of holy books. But if you think about it, a Jewish book, like the Torah would be just read over and over again the same book. If you look at an old Torah, it's like really well-worn. It'll be well-read. Christian books would only be read by monks. so they don't really need that many of those and the Quran you would just memorize
+
+[00:38:35] so you don't really need many of those but in Buddhism you kind of helps you to reach enlightenment it helps you if you just copy things out lots and lots of times and in order to do that it's better to have a cheap writing material and that's where paper came in
+
+[00:38:49] or one of the reasons why it proliferated so much in the early days. Very interesting. That's so cool and we should say we're talking about tree-based paper because you've got papyrus sorry tree or rags yeah because you've got papyrus, which is earlier and is made of reeds, basically.
+
+[00:39:04] And you've got loads of other styles. And actually, yeah, when you say trio rags, this definition of paper that Monroe uses isn't rags, that he says specifically that paper needs to be plant-based and it needs to be properly pulped. So it can't even be plant-based and sort of flattened out. Paper for him is pulped, plant-based. So that's what the paper in my original fact refers to. The bizarre thing about the invention of paper, which happened properly.
+
+[00:39:30] probably in like 100 or 200 BC, is what you're doing is you're taking bits of plant material, you're mushing it down so you release all the cellulose, which is inside it, and then you're adding water and spreading it out, and then the cellulose mashes together and becomes paper. But no one discovered cellulose until 1838. So how on earth do you come up with this idea of making paper? It doesn't make any sense of it. It's cool. It's all these very, very long fibres that you get.
+
+[00:39:59] And it's better if you boil down your tree pulp rather than chopping it up. Yeah, yeah. It was very popular for making kites in China, ancient China. And there was a 5th century Chinese emperor who ordered that people should be executed by attaching them to kites and having them fly away. Which I don't think would have worked in reality, but that's what he instructed. What a way to go. Quite a nice way to go, I suppose. Everyone's singing, let's go fly a kite.
+
+[00:40:29] That would have been a morbid ending to Mary Poppin. Actually, one of my favourite things about paper has always been that paper was invented by wasps long, long before. It was invented by humans. And actually, wasps taught us how to make paper. Okay. Are you reading my notes? You have to explain this. You mean white Anglo-Saxon Protestants?
+
+[00:40:54] No. Paper wasps are wasps that make their nests out of paper. essentially, and they do it by chewing up wood and pulping it like we do and then exuding it. Wait, wait, wait, wait, wait, we don't chew up wood to make paper. Oh, is that not how you, that's what my notes are on? That's why they're a bit damp. But it kind of, it was, so it's the same process, basically. It's exactly the same process.
+
+[00:41:14] And in fact, when I say they taught us how to make paper, they taught us in the West how to make paper because we were thousands of years behind the Chinese in this. So this was in the 18th century, a French scientist called Renee Romier in 1719, saw observed these wasps making paper nests and he wrote down in a book saying I think we could use this we could make paper like this as well this seems like a really good thing to do
+
+[00:41:38] but never actually tries it and then I think about 50 years later a guy called Jacob Schaffer read his book and thought yeah good idea I'll give it a go and he made paper that way we definitely had paper before that though because the Mars brought it over to Spain in the 11th century or so that's what I thought so I wonder if it is exactly the same
+
+[00:41:56] process or if it's I think I think it might be a different hoping process. The amazing thing is that wasps do not, to this day, know what cellulose is, but incredibly they retain the capacity to make paper. Do you think we're going to be the equivalent of spicks and specks here, where a wasp is going to be listening to our show, realizing the amount of money they're owed for this invention. So for rag-based paper, sort of cotton-based paper,
+
+[00:42:21] they needed ammonia to make it. And so you would get ragmen in lots of large cities going door to door saying, do you have any spare urine? Yeah. That was the thing. And people almost always do if you wait long enough. In fact, I would say
+
+[00:42:36] that all urine I produce is spare. But that is true, actually, in all the old paper mills, it wasn't just the ammonia of the urine, they would make the paper out of old rags, and that would come from, like, soiled clothing. And so you would go to a paper mill, and it would be the smells of soiled underwear
+
+[00:42:57] and stuff. and the smell of urine, and that's basically what it would be like to. Wow. Great news. I've just shat and wet myself. I'm on paper magnate. Ooh, what's toilet paper made out of? Paper. Yeah, I was going to say, but if you've pissed yourself, is that then going into, is it like a secular... There are two kinds of loo paper. So there's what they call virgin loo paper, which is made of tree pulp that has never been used for anything before. it's only been turned into lew paper.
+
+[00:43:28] Does it have Richard Branson's face on it? Jeremy Carbin sat in the toilet going, there's nowhere for me to sit in here. And the other kind is recycled loop paper, which is not recycled loop paper, it's recycled things like office paper. Yeah. The other thing about these paper mills is at night time
+
+[00:43:49] they would close them because they're really noisy. But then often they, you know, if they had a big order, they go on, all night and everyone would complain, but they'd close them at night, and then children would crawl around the machinery, cleaning their little bits and pieces, and then in the morning, they would get hauled out, dried with rough cloths, spanked to remove numbness from their skin, given a large glass of wine and sent to bed. That's the life of a paper bill by.
+
+[00:44:17] Wow. Whoa. Sounds sort of fun. Spanking in wine, it sounds like 50 shades of grey. Okay, that's it. That's all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, Andy. Andrew Hunter, M. James. At Egg shaped. And Anna.
+
+[00:44:46] You can email podcast. At QI.com. Yep. Or you can go to our group account, which is at QI podcast, or go to our website. No Such Thing as a Fish.com where we have all of our previous episodes, and no such thing as the news.com, which has all of our previous TV show episodes. We will be back again next week with another podcast. We'll see you then. Goodbye.

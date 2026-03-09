@@ -1,0 +1,219 @@
+# No Such Thing As A Fish - No Such Thing As Sexy Mucus Pajamas
+
+- Episode date: January 1, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-sexy-mucus-pajamas
+- Slug: no-such-thing-as-sexy-mucus-pajamas
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing is a Fish, a weekly podcast this week coming to you from the Up the Creek Comedy Club in Greenwich. My name is Dan Shriver. I'm joined as ever by Anna Chazinski, James Harkin, and Andy Murray. And once again, we have gathered around the microphones, but this time with your favorite facts from the last seven days and in no particular order, here we go. Okay. I have a fact about the Silver Age of Comics. Who's that from? Hey, hello. Should we do a Twitter fact while we're waiting for the microphone to get over? So this was sent into us by John Winterholt.
+
+[00:00:50] There is a chemical called Arsol. Nobody knows what it smells like yet. I tweeted him back to say, is that true? And he said, yeah, I study arsole for a living. Apparently true. So then he also told me that there's another one called Ars Pain, which is true as well. And he said, interestingly, there's a mineral fan. near the town of Cunnington, Massachusetts,
+
+[00:01:15] and that's been called Comington Night. There's one called Welshite. It's Welshite, but it's named after a guy called somebody Welsh, Henry Welsh or something. There's a molecule called, I think it's nitrogen tri-iodide. It's one of the most crazy molecules you can get. For a molecule, it's pretty crazy. But apparently it will blow up if a mosquito lands on it.
+
+[00:01:41] Really? Yeah, it's the energy. of a mosquito landing on it will make it explode. Is the mosquito all right? It's just a molecule, isn't it? It's probably fine. Yeah. Shall we go to the fact? What's your name? Charlie. Hi Charlie. What's your fact, Charlie?
+
+[00:01:55] This is a page of comics. In the late 50s slash 60s, comics with gorillas on the front, so considerably more than comics without. DC Comics, but gorillas on every single copy, even there's no guerrillas inside. That's so good. Amazing. Pretty good. Wow. That's cool. So Superman would just be tackling a gorilla on the front
+
+[00:02:18] and then it had no relevance to the stories. A comic with Superman and a gorilla would send him a ticket or like a zoo ticket, I think. Why would a gorilla be selling a zoo ticket? It's them colluding in their own imprisonment. Do you know what gorilla's favorite films are? No. This sounds like the stat of a joke. No, this was, I read this weekend in the Sunday Times somewhere,
+
+[00:02:49] and it's by a musician who's really famous, but I can't remember who it is, because I know anything about music. But he's hung out with people who've studied gorillas, and they gave them a bunch of films, and they worked out which ones the guerrillas, you know, like, asked with their hands to watch the most frequently. And what do you reckon the gorilla's favorite film is? Planet of the Apes.
+
+[00:03:05] Very good. No. Planet of the Apes, yeah. Really? And then their second favorite was a film about a sound. A Mascotch, a Yessie. So obviously they feel very close to Yettys. Maybe they are genetically somehow related, I think they think.
+
+[00:03:18] And the third favourite was just Dan's stand-up. They didn't subject them to that, James. The RSPCA would get involved. I watched The Mummy 3 on the weekend. There's a Mummy 3. There's a scene in it where there's just so much chaos going on. The Terracotta Warriors have become a lot. There's this old Chinese group of skeletons that have come back up.
+
+[00:03:45] It's Jason and the Argonaut style. And then suddenly these two giant Yetis come in and the good guys go, uh-oh, Yetis. And the Yetis are like, we're good guys. And they go, great. And then everyone just accepts it. It's just fine. We've got Yeti allies now who are helping us.
+
+[00:04:02] Do Yeties, in the myths about Yetis, do they attack people? Yeah, yeah. Okay. They can be kind as well. They, there's a... I regret asking my original question. There's a lady in Bhutan who claims that she lived and had children with a Yeti, and the Yeti, they had about six children,
+
+[00:04:22] and then she said that she was going back to society. She wanted to bring the children with them, but the Yeti said that's not going to happen. So they went to Yeti court, and the Yeti won custody of the children, and that's why she doesn't have them. In Bhutan, this is a stretch of a link. but every government policy has to justify itself according to its world happiness index rating, doesn't it?
+
+[00:04:46] Yes, gross national happiness. Yeah. So every time you make a policy, you have to say how it's going to affect the gross national happiness. It's the only country where it's like made that, put that into policy. I've been to Bhutan.
+
+[00:04:56] Yeah, I have been to Bhutan. I remember I went to the National Museum because I wanted to see the world's biggest book. They claim to have the world's biggest book. And it's a book about Bhutan. How convenient. And I was in the museum and there was that they had a rat problem. Someone had seen a rat.
+
+[00:05:14] But because it was run by monks because it's quite a, you know, a Buddhist country, they weren't allowed to hurt the rat in any way. So they weren't allowed to put poison down or they weren't allowed to put traps down or anything like that. So all the monks were just chasing this rat. Wow. What's the name of the very famous gorilla who's in, we talked about it on the Coco. Coco. You know what Coco's favorite movie is?
+
+[00:05:38] I read this on the weekend, bizarrely. Okay, so let's just say who Coco is. Yes. So, Coco is a gorilla who learns sign language, I think, right? Yeah. And learn more words in sign language than anyone else. 300 people just pick me up at that, you know? Yeah, and it's often held up as the fact that animals might be able to learn language.
+
+[00:05:58] Yeah. So, favorite movie? Pretty Woman. Really? Oh, no. So aspirational. Yeah. Well done her.
+
+[00:06:05] By the way, Pretty Woman, the movie, they did a thing where the hotel that it was filmed in now offers a pretty woman package so you can go. Which is the worst message. I don't think they pulled that through properly. Who's it for? Bostasutes of millionaires, actually.
+
+[00:06:23] It's for couples, yeah. It's for couples. Yeah. Wow, I've got a fact about movies. This is a fact about the movie Leon. Whose facts is about the film Leon? Oh, it's over there. Oh, hey, over there.
+
+[00:06:34] If you put your hand up, Alex, he'll come and find you. In the meantime, I've got a fact that came from Twitter. And this is from someone called At Riptor. And the fact was that the 25th Amendment allows vice presidents to take over as president when the president incapacitated. It's happened three times, and each time the president was having a colonoscopy. Are those the only three times presidents have been incapacitated? Because I know that several have been shot.
+
+[00:07:04] and killed. I keep going. No, since the amendment was made. There's a thing about colonoscopy is that you can explode during a colonoscopy. Do you know that? What? Yeah, because you have a lot of gas buildup in your lower intestines, and sometimes they'll use like a cauterizing heat thing.
+
+[00:07:27] If you've got a cut, they try and kind of burn it. And so that heat and the gases can cause people to actually exploit. Yeah. Right. You would have thought, are they putting some kind of safeguards in place to stop this happening?
+
+[00:07:39] Or is it just, you know, 50-50, you'll either explode or... That's kind of like what happens to trees, right? When they get kousanoscopies. What do you mean? Similar kind of... You know, when trees are on fire, then sometimes it gets so hot
+
+[00:07:54] and there's a build-off of gas inside them and they explode. There's really good videos of trees exploding all over the world. When lightning hits a tree, it can explode because all the water turns immediately to water vapor and lots of it is near the middle side. Just goes out. Wow.
+
+[00:08:06] Not for the tree. It's about for the tree. Do we have Leon fact yet? Okay. So there's a scene in the movie Leon where there are loads of police cars parked outside a building. And while they were filming that scene, a man who had just robbed a shop ran onto the movie set, thought it was the real police and handed himself in the...
+
+[00:08:32] It's such a good fact. Sorry, what's your name? Susie. That's an amazing bag. long did they let the charade continue. God, if they were method actors, they probably would have, right? Taking them to the station, then they would have got in trouble
+
+[00:08:46] themselves. Gary Oldman's going to be arresting you today, very exciting. Someone actually tweeted in, this is from Twitter earlier, that Gary Newman is actually three weeks younger than Gary Oldman. Unfortunately. I didn't think that's true. The fact about police,
+
+[00:09:05] in ancient Egypt, the police, the police The head of the police was called the chief of the hitters. That's like we've talked on the podcast about the world's oldest parking fine issued by traffic wardens, which was to be decapitated, I believe. Oh no, no, spike. It was to be impaled, wasn't it?
+
+[00:09:26] Yeah, on a spike for crossing on the king's land. That was when, yeah, the king owned all of the roads. So I think it was quite hard to get around. Yeah, and the first ever British parking ticket that was given was, accidentally given to a doctor who was making an emergency call to a house. And so they had to override the parking ticket. So the first parking ticket was a cock up and they had to undo it. And I think the first American one was overridden as well. The first American one was a guy who said I literally just went
+
+[00:09:52] into the shop for five minutes and I've come back and my tickets here and he, you know, appealed and got it overridden. Has any parking ticket ever been successful? All the ones that I've ever got had been. Have I ever told you about the guy in London in I think it was the 60s or might have been early 70s who electrocuted his car so that when traffic wardens tried to put a ticket on them, they got electrocuted. Wow. He was in like the newspapers and stuff. He became really famous.
+
+[00:10:18] Yeah, when he was arrested, right? Yeah, well, he was arrested, but they let him off in the end because he'd become such a kind of cause celebrity. Surely electrocuting a policeman is a bigger crime than parking on a double yellow line. Yeah, sorry, like, not electrocuted, because the word electrocuting means killing by electricity. He electrified them, let's say, with like a little bit of a shut. They should have charged him? He's like angle grinder man in Kent, who was that superhero.
+
+[00:10:53] He called himself a real-life superhero, and he went around with his angle grinder removing clamps from a car that had been clamped. No one knew who he was for a long time until he did an interview with the newspaper, and then people did. You know at the end of Iron Man, when he says, I'm Iron Man, it's like, was he like, I'm Aaron Grander Man? And they went, I mean, he could pronounce it, so that helped.
+
+[00:11:17] Thought I escaped that. I genuinely as well just ran with it and went, I'm just going to mush it up so hard. Oh, is he like, I'm a grander ban? Shall we move on to another fact? Yeah, yeah, let's move on to our next fact. Okay, so this is about a ghost army in World War II. All right, so while we're waiting for the mic to get over, here's another Twitter one.
+
+[00:11:39] This is from Matthew Oglesby. the new organist of Leeds Cathedral is David Pipe. That's quite nice. I'm a massive fan of nominative determinism. Did you meet the guy who coined the term? Yeah, we met him very briefly. Was it Reginal A, namey, namey, navy, navy. Yeah, Norman determinism.
+
+[00:12:04] What was the... Remember you found the ultimate one, which was to do with... Oh, Henry Head. Yeah, that was it. Yeah. there was a neuroscientist called Henry Head and he discovered this thing called head zones. You don't have one in your head,
+
+[00:12:19] but you do have one in the head of your genitals, if you're a man. But he was the head of a journal called Brain. And when he left as head of the journal Brain, he was taken over by a guy called Brain. So head was the head of brain until he wasn't the head of brain anymore and he was taken over as the head of brain by brain,
+
+[00:12:40] who became the head. her brain. Wow. Yeah. That's the ultimate. I mean, no wonder what was going on in that organisation. I saw one the other day, actually. It was, I tweeted about it.
+
+[00:12:53] Let me think. It was a guy who'd written a book about swearing, and he was called Say Gadam. That's good. That's good, isn't it? S-A-I, his first name. Say-Gadam. That's nice. Someone sent me one on Twitter the other day, which was a hurdler whose surname is Stambleover.
+
+[00:13:09] It's so good. I think he actually famously fell over a hurdle. It's a she. It's a she. Yeah. Potato potato. I think didn't she stumble over a hurdle in quite an important Olympic event? Yeah.
+
+[00:13:22] Maybe in the Olympics, yeah. Yeah. Okay, shall we go on to the first? So your name and your fact, please. All right. I'm Nora. So my fact was that there was a ghost army in the Second World War where the Allies used rubber, inflatable tanks and recorded troop sounds
+
+[00:13:38] to trick the German army into thinking the enemy was there. What, there's a ghost army They call them Ghost Army because they didn't actually exist. Don't get excited, Dan. It's not like the end of Indiana Jones. I like the idea of having inflatable tanks because it means you blow up your own tanks. Nice.
+
+[00:14:04] Do you know where the word tank comes from? No. So tank was originally a code word. It was never intended to be what tanks were called. And it was, I think Churchill was at the head of the organization, which was, you know, pioneering tank making. And they were called something like land ships.
+
+[00:14:21] It was called like the Landships organization or something like that in the First World War when they were developing them. And they just decided to call them tanks as a code word because they were going to send them into Russia disguised as water tanks. And first of all, they wanted to call them, they called them water compartments at first, but because war officers tended to abbreviate things. People kept mixing them up. People kept going and urinating on the tanks.
+
+[00:14:41] military vehicles. So they said we can't call them WCs. But they called them tanks because they wanted the Russians to think they were tanks of water. But yeah, exactly. The Russians were on our side in the First World War. I know.
+
+[00:14:51] I said Russians and I hoped again, like, down that no one would have been able to work. You're just a little thing, like which side we were fighting. Look at the First World War. People made these mistakes all the time. Okay, I think we're going to have to keep moving on because we're short of time, aren't we?
+
+[00:15:07] Yeah, yeah. Okay. Who is Jennifer Matthews? Jennifer Matthews is over here So parrotfish Wear pyjamas Protective pyjamas at night time And then they eat them in the morning
+
+[00:15:22] Wow Yeah I don't see anything special about that No it does it We said interesting facts No that's amazing So they secrete a mucus That has a hole in the front And the hole in the back
+
+[00:15:38] So that water can flow through and the mucus is apparently meant to stop predators from smelling them and it means that they're protected overnight whilst they sleep but it's a vital source of protein so they eat it in the morning oh my god nice I'm amazing yeah it's it's not the sexiest pajamas at the world is that when you say I'm just going to go slip into something more just going to slip into something more mucusy
+
+[00:16:10] How do you like your breakfast? And parrotfish, they're the guys who they make sand as well, do they? Yeah, they poop islands. Yeah. Bit by bed. For an average parrotfish, they poop. 275 grams per day. But the biggest parrotfish can make 90 kx.
+
+[00:16:42] kilograms. Wow. I don't actually know if it's a day. It might be per year. But the biggest part... That's quite a different... When you go to your doctor, they say... How much are you booing?
+
+[00:16:56] It's either twice a day or twice a year. How big an island have you produced? But yeah, it's this white kind of white sand that they get in the Caribbean and stuff, don't they? Yeah, so they eat coral. And when they eat coral, they eat the tissue off the coral, and then they digest the calcium carbonate skeleton and poop the sand. But entire islands in the Caribbean have been made up by the sand. So you can basically lie in a pile of sand.
+
+[00:17:27] I do that anyway. Well, how do you know so much about parrotfish? I'm a marine biologist. Are you? Good. Nice. Thanks. You don't get a wolf whistle.
+
+[00:17:42] for that in many ways. Should we move on to it? Yeah, let's keep going. Yeah, let's keep going. Okay, so... So this is about the new tallest building in London. Who's that... Andy and Twitter one?
+
+[00:17:57] Actually, this is really similar to the other thing we just had. The fringe-limbed tree frog, fringe-limbed tree-frog parents grow extra layers of skin to feed their tadpoles. Oh. And this is... I like this so much because it's reminded me in my favourite.
+
+[00:18:12] fact at the moment, which is that. Breast milk, mother's breast milk, is made from arces. When you have a baby and you start producing breast milk, it's got fat cells in it, and the fat cells that are taken literally from the mother's bottom first.
+
+[00:18:28] That's where they go from. Wow. Yeah. No one else suggested than that? There's a lot of spiders who will eat their mother, aren't there? Or there's at least a few of them. Really? And so they'll give birth to the live spiders inside them
+
+[00:18:41] and they'll eat their way out. Spiders. Okay, what's your name and what is your fact, please? So my name is Bupinda, and my fact is that the new tallest building in London is going to be called undershaft. Amazing. It's a really immature fact.
+
+[00:19:03] I can't believe you're probably to the table. So why is it being called that? I don't know. I just read it on The Guardian and laughed a lot. That's literally the extent that I do my research as well, so don't worry about it. Actually, I was reading the other day, it's a building we've mentioned on the podcast before, but a building in London got voted the ugliest or the most horrible building around, and it's the walkie-talkie, and it was cited for being so bad
+
+[00:19:29] because it keeps blowing people over and melting cars. The angle of the building has this magnifying on it that it's just melting cars, and the wind that is trapping, it's literally blowing, people onto the street. People are furious. The architect who made it has designed another building in America which also has melted cars.
+
+[00:19:49] And he's not learned from his mistakes. He actually puts that on his CV now. Have you got a car you need melted? Just can be to design a multi-billion dollar building for you. Alex was actually telling me earlier that the shard in London
+
+[00:20:08] goes down as deep, deeper than Nelson's column. Does it? I thought you were going to say it goes down deeper than it goes up. I thought he was going to say that as well as you know. I was quite disappointed. Something that does do that is the angel of the north. That goes, it's pretty much exactly...
+
+[00:20:24] Goes down deeper than the shard? And the underside is devil-shaped, isn't it? Yeah. Messed up. Should we move on? Oh, wait, can I just say, because I find this really interesting, and I think I've never been allowed to say it on the podcast before, but we only recently discovered how tall Nelson's column was.
+
+[00:20:46] So it's been up since, well, since Nelson, so 200 years. And they just measured it a couple of years ago, and they realised I think it's four metres higher than we thought. Or maybe it's four feet. But isn't that weird? We'd never measured Nelson's column. Yeah, that's really cool. You know there are loads of Nelson's columns all over the place.
+
+[00:21:03] I mean, like millions. There are, I think, a good dozen of them all over the UK. And there's one in Norfolk, which is where he was from. I think, and it's just got an urn at the top of it, not Nelson. So, there you go. But it is a Nelson's column. Nelson used to, I don't know if we ever put, I tried to get this on the podcast. I don't know if it ever made on, but Nelson used to have a little hat for his eye.
+
+[00:21:27] He just had a tiny hat for his eye, and no one talks about it. And they should. You literally tried to get that on every single week for about two months. Because it was like, you know when you see American movies where they're like doing accounts and they had that sort of tennis hat that had the green that you could see through. Nelson had that on his eye, this little green thing so that he could, because his eye got too much sun
+
+[00:21:48] and he was like, I want to get less sun. So they created a little hat. I have a fact about Nelson. Okay, well. Do you have it? It's from Brian. Brian with the wife. You there?
+
+[00:21:57] We'll go for a Twitter fact first. Okay, we'll go for a Twitter fact. So this was sent to me by someone called Timworth 89. And he said that in 1774, one newspaper estimated that Out of the 872,564 married couples in England, only nine were entirely happy. You could read that as a whole nine.
+
+[00:22:24] We're entirely happy. He sent me a clipping, an image of the clipping as well. It's so good. They had a breakdown of the whole 872,000. And it's like 1,300, the wives had eloped, 2,300, the husband had run a wife. way. There's about 19,000 that were in a state of open
+
+[00:22:45] war. 16,000 had a lot of inward hatred about each other. Not that inward if they're telling the interview. And 51 couples were living in a state of indifferent hate. Oh. Hang on, indifferent hate.
+
+[00:23:05] Yeah, that doesn't make any sense at all. What period was this? This was in 1774. This is, you know, between It's for about 200 years, but between about 1675 and 1850, only about 370 couples in England got divorced. And everyone needed an act of Parliament. Exactly.
+
+[00:23:26] So how exciting is that? It's almost worth getting divorced. Every time you got divorced, they had to debate it in Parliament. I think they look good together. That was hardly Hillary Benn. Shall we move on to the... Sorry, yeah. Yeah, sorry.
+
+[00:23:45] So Nelson, in the Admiralty office in Nelson used to go for reports and stuff. And he had a small mahogany box to stand on because firstly he was quite short. And secondly, the Admiral sat on a raised platform to make them higher than everybody that would come before them to speak. So they maintained their authority. And yeah, he was the only person that ever had that concession. Wow. And I got to stand on that box. But I had to take my boots off first.
+
+[00:24:13] Right. That's so cool. Did he have to take his boots off first as well? No, because I think that does reduce your authority. That would have kind of negated the concession, wouldn't it really? Yeah, indeed. Stand up, take your boots off, oh, same height. I think Gillian Anderson used to have to do that in the X-Files,
+
+[00:24:33] Dana Scully. She used to have to stand on a box when they were filming. She's quite a bit smaller than David Dukovny, and so for scenes where they were standing chatting, she would stand on a box. And, yeah. That happens a lot in movies, I think. Oh, Charles,
+
+[00:24:47] Lady Di apparently did this as well. Ah, I have a Twitter fact about Charles and Lady Die, actually. So won't we lead into that? When Prince Charles married Lady Diana, the TV cables put in place for the wedding were run by a ferret. And I googled it, and it's true.
+
+[00:25:03] What? Yeah. What do you mean? I don't mean he was physically with like a thing here and this hang out. All right, camera two. Let's do this. Got a three. Got a three. It was, they had to get cables, I guess into May, I'm guessing
+
+[00:25:18] Westminster Abbey. They have to go into small little holes and this is, you tie it to a ferret and they run through and they... No way! Yeah, I think British Aerospace have used it for some kind of aeronautical thing. I think for building aeroplanes for some reason.
+
+[00:25:32] That's what I was going to say but I thought it sounded so ridiculous. Ferrets build airplanes. But I think they actually cancelled that eventually because they kept churning through the wires so I think they ended up being quite unreliable. Oh, right. I seem to remember.
+
+[00:25:46] Someone sent me a tweet At Bangay Shot You sent me a tweet And it's almost the same as this It's like there was a ferry called Misty Who ran cabling for the US Space Command For the Y2K Centre And her fee was a strawberry pop tart Who negotiated that?
+
+[00:26:05] That sounds like she actually asked for that Yeah It reminds me this of There's a bridge over the Niagara River Near the Niagara Falls And the problem with bridges Is how do you get the first kind of thing over.
+
+[00:26:18] So once you've got a bit of string over there, then you can pull something over, and then you can pull something bigger over and bigger over, and then you eventually have a bridge. But if it's a really big crevice... You use a bird? Well, it wasn't a bird, but it's close. Frisbee.
+
+[00:26:33] Frisbee. No, it was a kite, a kite. Oh, nice. So they flew a kite up, and then it kind of went over, and then someone was on the other side, and they could grab the kite, and then you had a string over, and then they could attach a bit of wire onto that
+
+[00:26:45] and pull it across, and then a bit of bigger wire. And then a tiny bit of wood and then a little bit bigger bit of wood and then eventually a bridge. You can't get a frisbee across Niagara Falls. Can you? This is true.
+
+[00:26:58] So, you know... How good are you at Frisbee? You can get it across Niagara Falls. You can make it hover in the air while it deposits building materials. It's incredible. You guys know the Aerobe Superdisc? Yeah.
+
+[00:27:15] It's a great... Frisbee guys. It's the one that's completely hollow. It's plastic and it's got a tough frame in the middle so it keeps rigidity and stability but it's rubber on the outside so it doesn't hurt your hands. Anyway, this week's podcast is brought to you.
+
+[00:27:32] It's the bees' knees and they can get you they've thrown one across Niagara Falls. When have you ever had a friend to throw Frisbee's stick? It does take a while to play when I'm playing with the Trophy's superness because it goes so far. Have you ever thought about it? getting a boomerang.
+
+[00:27:52] Okay, let's move on with another fact. Who has a fact that's about penises and the London Underground? James, you're going to need to narrow it down a bit. Hi, my name's Tom. So when the new headquarters of the London Underground building was opened in 1929,
+
+[00:28:10] the statue of the front of a naked boy was so controversial and there was such public outcry that the sculptor had to reduce the size of his penis by one and a half half inches. Wow. Don't we ask, from what? 12 is too much.
+
+[00:28:28] 10 and a half will be fine. So is it the short of the penis that lower the rating of the film? What's the film, it was a statue? Yeah, sorry, I was extrapolating that if that made it less obscene in the statue, is that, it becomes less obscene,
+
+[00:28:44] the smaller the penis? I mean, yeah. Are you sensing an opening for some smallly endowed people? Don't say opening. What was the... Do you know any more about why they had a statue of a naked boy in the first place? Yeah, yeah, kind of. So it was by Jacob Epstein, who is this avant-garde, quite brutalist sculptor,
+
+[00:29:11] and it was one of his first major commissions. He has this quite long history of creating sculptures. Like he has one on them. what's now Zimbabwe House on the Strand. And that's also been massively defaced because it was just full of naked people and people didn't like that in Edwardian Britain. But this one, it was kind of a compromise
+
+[00:29:27] because there was public outcry and the head of the tube at the time offered his resignation to keep the statue. It was that big a deal. And they wanted to keep the head, the CEO of the London Underground, but as a compromise, they said, okay, well, just trim the penis a little bit.
+
+[00:29:44] Is that what happened to all ancient statues? Like, did David have a massive cock originally? They thought it was more civilised to have small weddings. They thought it was better to be small because if it was too big, you would lose heat and lose vigor. But this website had a picture
+
+[00:30:03] of what had been done to the statue and underneath it just said, yeah, this has actually happened and you thought the cuts to London Underground today were controversial. That's very good. Hey, we should, we should wrap up soon. So maybe let's just do a couple
+
+[00:30:18] more. Why don't we do a Twitter one each that we all like? I'll start with mine. This was sent him by Jonathan Warlow. Claire Dane's and all her movies were banned from the Philippines after she bad-mouthed it in an interview. So they just said no more Claire Dane's movies.
+
+[00:30:34] I'm kind of using this as an excuse, though, to talk about the Philippines. Because my dad's a hairdresser and he also he likes to sing Bee Gees covers and he's got a really nice voice. And And on the equivalent of Jonathan Ross there, they don't really have many people there to go on the show. So he often got asked to go on and sing Beegee's covers on this equivalent of Jonathan Ross called the Johnny Lytton show.
+
+[00:30:57] And she was on it one day, and Amelda Marcos saw it. And she's called him up and sent a letter saying, I'd like to invite you to sing karaoke with me once a week. And you can't really say no to someone like Amelda Marcos. So he had to do it. This is the fact that I learned of him through the back of doing that is that she said, to him one day when they were mid-Bigi song. Roger, I get so tired about people talking about my having the largest shoe
+
+[00:31:22] collection all the time. No one talks about the fact that I have the largest collection of spoons. And she apparently likes to brag that she has the largest collection of silverware in the world and no one talks about it. All the shoes. She's like, oh yeah, the fucking shoes. No one talks her about the silverware. So, Anna, final facts?
+
+[00:31:41] Yeah, so my favorite fact on Twitter actually was that this is from at Gull Battle And it was that the Korean term for grinding in a club is booby-booby. Fairly? Very nice. Andy, what do you got? I really like the fact. This is exactly how it was worded.
+
+[00:32:04] It's from Mina Kozluka. Ottoman Emperor Abdul-Havit made it illegal to use the words sibling, star, bedbug and nose. And then in brackets, he had a weird nose. And James? Okay. This fact came from IDKT, IDKT. And it is that in the olden days, to send paper money through the post, people used to tear it in two pieces and post the halves separately.
+
+[00:32:38] I don't even know if it's true, but I just really like the ingenious idea of doing that. I'm trying to present a sell-a-taped-up 10-pound note to the newsagents, and they didn't like it. There was a guy in China. He didn't trust banks. And so he buried all of his money on the ground. And then it all got eaten by worms. Oh, wow.
+
+[00:32:57] And he managed to kind of save about a third of it that was all in pieces and took it to the bank in a big bag of soil. And then said, is there anything you can do with this? And they managed to retrieve about a third of his money. So the very thing that he didn't trust ended up saving some of his cash.
+
+[00:33:14] I bet he's convinced that the worms were working for the banks, though. I read ages ago that all astronauts, when they initially were going to the moon, that they were all given half notes of $1 note in America, American money, they would get the half, and they would have to present it back to NASA when they arrived.
+
+[00:33:34] And so they could put the two halves together so that they could check whether or not aliens had cloned them and come back. The idea that the aliens would not have the technology to just keep hold of a half-dollar, We can clone a human, but that half dollar bill is no way of doing that. All right, let's wrap it up on that. All right, that's it. That's all of your facts.
+
+[00:33:58] Thank you so much for listening. If you want to get in contact with us about the things that we're said, don't get in contact with the people that said them. They're all on Twitter. You can reach them at their Twitter handles, or you can track down the people who are in this room. We do have a list of their names, and we will make it public. And we'll see you again next week with a number.
+
+[00:34:15] another episode. Goodbye.

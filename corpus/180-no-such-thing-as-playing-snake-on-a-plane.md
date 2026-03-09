@@ -1,0 +1,197 @@
+# No Such Thing As A Fish - 180: No Such Thing As Playing Snake On A Plane
+
+- Episode date: September 1, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/180-no-such-thing-as-playing-snake-on-a-plane
+- Slug: 180-no-such-thing-as-playing-snake-on-a-plane
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covert Garden. My name is Dan Schreiber and I am sitting here with Anna Chazinski, Ann Miller and James Harkin and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order here we go. Starting with you, Ann. My fact is that Genoa Airport has relaxed its liquid ban but only for Pesto. I wouldn't even say Pesto was a liquid.
+
+[00:00:47] It's more like a soup, isn't it? Well soup is a liquid. You're not allowed to take soup through, right? I mean there is one group of people that you don't want to haggle with is probably airport security. They say, don't bring it, I wouldn't. I went through airport security this time and I went to the passport guy and the guy said have you got a problem and I think he was trying to be nice but he had a glass
+
+[00:01:06] Ouija accent and he sounded like he was trying to find me outside for a fight. I was like have you got a problem mate? Did he then say politely do you want to take this outside? And then he politely smacked me in the face. But the Pesto campaign, so basically this airport was confiscating about 500 jars of Pesto every few months and decided it was gone too far and so this is sort of a charity thing really. It's a campaign called Pesto is Good.
+
+[00:01:31] You're allowed one 500ml jar of Pesto and you buy a 50 euro stamp which will let you take it on board and they scan it through the same machine that medicine and breast milk goes through. And so is this a tourism thing? Were they feeling a financial knock? Well I think partly because they are known for Pesto in that area so it's nice to bring but also I think it's a charity thing so the money goes through a company called the Flying Angels Foundation which brings in kids from the developing world who need to have operations.
+
+[00:01:56] But a similar thing happened in City Airport. They were using an awful lot of Marmite so this summer they did a Marmite amnesty where you could trade in your big jar for a small pot. Marmite's an interesting liquidy one. Is it a liquid? Is it a liquid? Well it is unless you bash it really hard and then it turns into a solid because it's non-Newtonian.
+
+[00:02:12] That's not true is it? Yeah. So all we need to do is invent this non-Newtonian liquid to be applied to things like bottles of water and you can give it a smack before you get to immigration. It goes in as a solid block. Bring in a block of ice. You have to clean it. Why don't you just bring in a massive block of ice in a bottle?
+
+[00:02:28] So you can do that. Do you know if you freeze your water and you bring in a bottle of ice then they will let you bring it through? I think actually some will and some won't. Maybe, yeah. It's actually an interesting thing with airports confiscating things. A lot of airports don't have the same rules so in some airports lipsticks count as liquid and some they count as solid.
+
+[00:02:45] It's so weird what you can and can't bring on to planes. I was reading this year that the TSA in America confirmed via their Instagram that you're allowed to bring live lobsters on as part of your carry-on luggage. Well they're not liquid. That's true. Humans are quite liquid by that logic. So why should we be allowed on? That's true.
+
+[00:03:03] We're 70% water. Oh yeah. So why are we allowed on? Why are we allowed on? Because someone gives us a slap before we go through immigration. But the other thing is your live lobster presumably likes living in water. So how do you keep it alive without bringing the water in? Yeah.
+
+[00:03:17] You put it in any waters and then you put it together and then you put it in Pesto. The photo in question on the Instagram that they uploaded was of a 20 pound lobster. It's ginormous and it was allowed on because lobsters are allowed on. They're just put in the overhead carry storage. Do you know that the TSA, their Instagram is crazy popular, it's got 780,000 followers and at Rolling Stone named it the fourth best Instagram accounts in the world, beating NASA. No way.
+
+[00:03:43] NASA, Beyonce and the TSA are the top four. No, TSA are the top. So it's Kim Kardashian, Nat Geo, somebody I've forgotten, then TSA, then Beyonce, then NASA. Poor somebody who you forgot that they've worked so hard that they've made it the top three of all time. My favorite. It's probably Justin Bieber.
+
+[00:04:00] What a slam. I'm really sorry. Number three. But so their account is amazing. So they confiscate nine guns a day in American airports, most of them are loaded. On this Instagram, basically the Instagram is pictures of stuff that's been confiscated and their dogs. It does very well on the internet.
+
+[00:04:16] But things they've taken include live eels, a live grenade, a knife hidden inside an enchilada, a medieval mace, a dagger hidden inside a replica of the Eiffel Tower and a chihuahua that sneaked into its owner's bag when they weren't looking. You know when they started banning liquids on planes, they weren't short to do about breast milk at first and they quite quickly decided that breast milk should be the one exception, which it is, but it used to be the case that women were sometimes asked to prove that it was their own breast milk by drinking it. But they all, a lot of them said it was disgusting.
+
+[00:04:44] So one woman said it was embarrassing and disgusting having to drink my own breast milk. I wonder if it goes back in and just refills. I don't know how that works. But not directly. In terms of the body. I think it spoils it. I think there was an article a while ago with someone that had got me made to do that. And I was like, but if I do that, they won't all keep like in it, I think she'd be on a
+
+[00:05:00] business trip or something and they made her taste it all and she said, but then it spoils and you can't keep it. So what's the whole point? So when they first started banning things, they originally banned pens for the first couple of weeks on the grounds that the ink they contained was a fluid. Yeah, makes sense. How come they were allowed back on? I think if your pen has more than 100 millilitres of ink in it, then you've probably got the
+
+[00:05:20] wrong pen manufacturer. It could be one of those novelty life large pens that you bring in. Oh, I just I'm signing a massive check for something. I need this enormous pen. And then they also stop people from bringing phones on for a while. And so many people were upset about that, that people were switching their Paris or Brussels flights from London at a rate of 10 a minute. Oh, yeah, they lost loads of money, British Airways, didn't they?
+
+[00:05:45] They lost like a million dollars and a really short amount of time. Oh, 50 million. But yeah, because people are so desperate to have their phones for just a one hour plane journey. It's not a long trip from London to Paris. No. And you can't use your phone in the air. No, but maybe if you had a Blackberry, you could kind of draft some emails. Yes.
+
+[00:06:04] Or play on. Yeah, play snake. Snake was huge back then. Snakes on a plane. I was reading about things that have been left at airports this year. So the first is a headstone that was found that had the inscription, you will always be remembered, never forgotten. That was left at an airport.
+
+[00:06:25] That was a doublet airport that they accidentally left. They never forget headstone. There's also a toilet seat, a cistern, human ash, false teeth and glass eyes. So that's all from the last few years. Did you say a toilet seat and a cistern? Yeah, that sounds like someone on a gap year who's heard the facilities in Indonesia are really bad and they brought I'll just bring my own toilet. It's fine carrying around with them.
+
+[00:06:48] Well, speaking of toilets and airport again, just news from this year involving airports and toilets, there is a airport in Tokyo that for a few months of this year provided toilet paper for anyone on the toilet for not only themselves, but then a separate toilet system that provided paper for their smartphones. So you'd wipe your bum and then your smartphone with the toilet paper. No, so you would have one toilet roll for your bum and then another toilet roll for your smartphone, a smaller mini roll, because they were worried
+
+[00:07:22] that so many people use their phone now on the toilets that they're getting all sorts of dirty bacteria on them. And then that goes on to their head when they hold it onto. So this is just a little bit of toilet roll to just wipe your smartphone down once you're done on the toilet. You can't fold up toilet paper and make it smaller. OK, it is time for fact number two, and that is James. OK, my fact this week is that it has been scientifically proven that the
+
+[00:07:52] Beatles were an average band who didn't really influence music. Outrageous. Proven by whom? What are you talking about? It's just outrageous. Well, I'm mostly saying this just to wind down up, but this is a real study. It was done by a biologist called Armand LaRoy, and he's from the Imperial
+
+[00:08:09] College, London, and what he is, he's an evolutionary biologist, and he plotted the 50 years of hit singles from the US Billboard chart into a computer program, The Model's Evolution, and found out which song was influenced by which song. And he found out that the Beatles are just kind of an average band who didn't really influence that many people. Oh, yeah. And really around that time, it was more the who and the rolling stones that did the influencing, and overall, it's more hip hop music.
+
+[00:08:36] So is this sort of changes in musical style? Like kind of that changes in the direction of where music was going? Yeah, kind of. So what they did was they got 30 second snippets of music and they put it into the computer program and the computer program could tell the difference between different musical properties, like instruments used or chord patterns or whatever, and they looked to where they might have got that idea from in an evolutionary way.
+
+[00:09:00] OK. But I think it's an interesting point, isn't it? No. Yeah. Because if you like, you're more likely to find bands that say Beatles are an influence to them than you are not, I would say. So I think what we're saying is all those bands are wrong. I know. Who knew? I think this guy did acknowledge that the Beatles were still part of that
+
+[00:09:19] revolution in American music. It was just like the Rolling Stones and the Who seemed to create more of a change. And he also did acknowledge the very obvious truth that because the Beatles were heard so widely by so many people, even if age change was coming in music that influenced them, they were then the ones who influenced so many more people because they were just so popular. Bob Dylan. I can't remember the exact quote, but Bob Dylan said that the Beatles changed America completely.
+
+[00:09:44] They knocked America into basically a revolution of culture. Bob Dylan and the Beatles had a bit of an awkward relationship, though, didn't they? Like John Lennon loved Bob Dylan and, you know, was inspired by some Bob Dylan songs to write things like Norwegian Word and to go a bit deeper. But Bob Dylan, I think people think, wasn't really influenced by the Beatles at all. And yet now has written one of his best new songs on his new album is called Dear John or something is a really moving song about John Lennon. Is it? Yeah.
+
+[00:10:10] So Armand LaRoy, who is the guy behind this study or one of the guys behind this study, he's also one of the guys behind a thing called DarwinTunes.org. And this is a website from a few years ago where they would play you some music and then you say whether you liked it or whether you didn't like it and they keep doing that. And then eventually they hope to evolve the perfect bit of music that everyone liked. So again, it's a kind of evolution through music. So I'm going to play you some of this and see what you think about this. So this is a song that in theory, all of us in this room should like.
+
+[00:10:42] Well, I'll start off doing something that was from 150 generations. So 150 times people have said, I like this, I don't like this. And it kind of evolved into a certain kind of music. So this is this. It's not bad for something to play with a Nokia. Yeah. Yeah, you're not impressed. Well, no. OK, so what I'll do now is I'll play you something from 8,700 generations.
+
+[00:11:18] So this has gone through much more evolution. So this, in theory, should be much more nice to the ear. See what you think of this. Exciting. It's slightly better. I still feel like it's not quite at Beatles level. Songwriting genius. Well, pop music is repetitive.
+
+[00:11:55] That definitely was. I found a few interesting connections between Beatles and comedy. OK, so this is this is an interesting thing to me. And perhaps comedy fans out there. There was a team called. But I can't imagine any comedy fans are listening to this. No, yeah, that's true. So I'll do a bit of explaining.
+
+[00:12:15] There used to be a group called Beyond the Fringe starred Dudley Moore, Peter Cook, Jonathan Miller, Alan Bennett. They were the big awakening of comedy in the 1950s in Britain, did a lot of satirical stuff, kind of kind of the birth of satire, some would say. And the applause that was used at their show for their recording was taken by the producer, George Martin, who did all of the Beatles stuff. And he put it to the beginning of Sergeant Pepper. So if you know the song, Sergeant Peppers, when there's that,
+
+[00:12:45] let me introduce to you the actor. No, there's lots of applause going on. That's from Beyond the Fringe in the 1950s. Yeah, it's a comedy applause going on. So this year has been the 50 year anniversary of Sergeant Peppers Lonely Hearts Club Band. That's right. Do you know that Adolf Hitler is on the cover of that album? So they have, if you know the iconic album, there's loads and loads of faces.
+
+[00:13:07] They didn't have Jesus on there and they didn't have Gandhi, but they do have Adolf Hitler. OK, do they? I don't remember him being on there. Well, he is a little bit. He's behind the Beatles. He's completely obscured, completely obscured. This is according to the guy who made it, who's called Sir Peter Blake. Yeah. And I don't know if he's joking or not, but he did say that
+
+[00:13:31] when you look at the photographs of the outtakes that they were doing at the time, you can see that Hitler was there. But actually, when they did the final picture, he was hiding behind the Beatles themselves. That does sound a bit familiar, actually. Yeah. Oh, God, they should. They need to do, you know, when they do sort of weird ultrasound scans on great works of Renaissance art and they find another Mona Lisa underneath
+
+[00:13:50] Oh, no. They need to do that to the album cover. Yeah. Could be also as a people under them. Yeah. I was reading about how people, lots of times it said that John Lennon created sort of flipping sound round when he threaded up his real player the wrong way round. Was there before, but they popularized it. And I apparently, George learned his solo backwards for I'm Only Sleeping, then they reversed it in the recording.
+
+[00:14:11] I wouldn't know. It's not cool if he did that. True, very cool. He recited the words backwards. No, and the solo on the guitar. Oh, really? Which, if true, is quite cool. Because he would sound editing now. Things like splicing, cutting, moving around is really easy, but then it was all actually cutting up the film yourself and moving it. Yeah, like that.
+
+[00:14:27] So when they did a take of Strawberry Fields Forever, John Lennon wanted part from one take and part from a different take. And so they, but they'd be recorded at different tempos and different pitches. So they had to try and sort of merge the two because otherwise it can't just switch halfway through from like different keys. Yeah. The reverse technique thing is really interesting because they do that in comedy films as well, particularly for slapstick movies. They do it for when the slapstick stunt is so outrageously harsh.
+
+[00:14:51] They start it backwards. So say, for example, in Guesthouse Paradiso, they slam in two sharp forks into Adrian Edmondson's nostrils. So you see the hand go, and just hook his nose right up and you couldn't do that even with rubber. It's such a tight, precision thing. Oh, I see. But you can start with it and pull them out. So Adrian Edmondson had to learn his lines backwards.
+
+[00:15:12] No, say it to the screen and then they remove it. And then when you flip it the other way around, it goes in and then his lines are forwards. There was another music study I was reading about that was done quite recently, which was a study that was done in Spain, which looked into how pop music has changed. And if just to kind of satisfy, I guess, our parents' generation, it found that it has got too loud and it all sounds the same now.
+
+[00:15:35] So a study found that a study found this. They analyzed four hundred and sixty four thousand songs from 1950s to 2010. And they looked at like the diversity of note combinations and they looked at different chord progressions and when they changed keys and stuff like that. And they found that the melodies of songs today are all more similar to each other and that they don't have as many changes within them, that the timbral palate employed is less.
+
+[00:15:59] So that's a different kind of instruments in the olden days. You'd have some trumpets and you'd have an organ suddenly and you'd have a triangle. But now it's just, you know, a lot of it's more electric. Are we necessarily saying that that is worse or better? They certainly weren't because they are objective scientists. You're not a proper scientist, you see, but I am. So what you could say is that they really tried lots of different things over the years and now we've found something that really works.
+
+[00:16:23] And it's Taylor Swift's new song. You could say that for currently breaking all records on YouTube. Guys, is it only half of them are me? OK, it is time for fact number three. And that is just in ski. My fact this week is that when the first pilgrims went over on the Mayflower, one of them brought 139 pairs of shoes with him. So this is the voyage of the Mayflower, which was in 1620,
+
+[00:16:53] when a bunch of pilgrims went over and they landed in America and they set up the first permanent settlement in New England. And so obviously extremely famous and it's the Pilgrim Fathers. And yeah, they actually were not very well prepared to go and take over a new totally unexplored really land. Well, it sounds like they're prepared if they're going to do a lot of walking. I'm not even sure they were practical walking shoes.
+
+[00:17:16] I've got to say really it was 126 pairs of shoes and 13 pairs of boots. And to be fair, he was a shoemaker. It was a guy called William Mullins. Maybe he was going to sell them to the locals. I don't know. I mean, what else is he going to bring with him? Yeah, he's not going to bring sausages with him. Is he a shoemaker? He's a shoemaker. Actually, there were over there was around 130 passengers in total on board.
+
+[00:17:39] So a pair of shoes for each. So maybe he was thinking business terms. But the rest of them didn't go barefoot. They just all brought the sensible one pair, one spare pair. But yeah, they weren't very well prepared. They didn't bring kind of useful things like kind of fishing lines or a plow. But yeah, some other people brought a trumpet, someone brought a drum, someone brought a complete history of Turkey.
+
+[00:18:00] So these were sort of almost gentlemen, these people. So they wanted to take stuff that they valued, which wasn't necessarily the super useful stuff that a laborer would be able to work with. Do you know there were two babies born on the Mayfly. One was born when they docked in America and one was born at sea. And they named him Oceanus. That's so nice.
+
+[00:18:18] I was actually reading into Oceanus. I would pronounce that Oceanus. So Oceanus Hopkins was his name. Had he kept his mother's maiden name, he would have been called Oceanus Fisher, which is quite nice. It's ocean and fish. Solitude, determinist. Yeah. So unfortunately, Oceanus didn't live too long.
+
+[00:18:39] He died probably six years into life. They're not they're not fully sure. But his father, Stephen Hopkins, has an interesting story because he was part of the crew on the Mayflower. But he was also on a boat that tried to settle in the New World ten years earlier in Jamestown in Virginia. And on his way there, the boat got wrecked off the coast of Bermuda.
+
+[00:19:03] And he got stranded there with a bunch of other fellow passengers for several months. And the story of that rescue that brought them back was what William Shakespeare says he based the Tempest on. On a way. Yes. It's speculated. It's speculated he did. But they're questioning whether even one of the characters as well was named after Stephen Hopkins, Oceanus's dad. Because there's Stefano in the Tempest.
+
+[00:19:29] And supposedly Stephen Hopkins was one of Shakespeare's neighbors supposedly lived in the same area as Shakespeare. So quite a famous family by default and situation. Quite a lot of adventures for one guy. And he worked with John Smith as well of Pocahontas fame. So that was Jamestown. Well, that was because he was a guy who went to Jamestown ten years earlier, whatever.
+
+[00:19:48] So yeah, he was working with John Smith to try and set up their colony there. He had like a mission to get as many movies as possible. Four movies were a thing. Yeah, good point. He's like, you know, those actors that you get that are in basically every movie. Yeah, like they've just got the one line or whatever. He's a bit like John Goodman who's in every good movie. Like he was, for ages, whenever there was a best picture, he was in Argo
+
+[00:20:10] and he was in The Artist and he was in everything, wasn't he? But never had a main part. Do you know, James, that is unbelievably weird that you've just said that because a John Goodman was on board the Mayflower. No! Was it the same guy? Yeah, he's much older than he looks. He's got really good at moisturising.
+
+[00:20:27] Oh my God. They were also, I was just looking at the names. There were some other good names because they were pilgrims, they were religious, a lot of them. So they named their children strange things. Like there was someone called Remember. There was someone called Resolved and someone called Humility. And then there were...
+
+[00:20:40] Actually, Remember, they left him in the departure lounge. Double airport. There was William Brewster, who was one of the most famous people who went across and became an elder in the community. He brought his children who were called True Love and Wrestling. Yeah, Wrestling. I saw that. Wrestling.
+
+[00:20:57] That's so cool. Wrestling Brewster was his name. Such a good name. That's something straight out of Lockstock or something. Can I just say, Dan, you are about to have a baby scene. Yeah. Wrestling is a strong name. Wrestling is an incredible name.
+
+[00:21:08] Wrestling Triber. Yeah, that is good. Yeah. Oceanus is also a very strong option. Constantly correcting the pronunciation of his name forevermore. It's actually Anus. So they were trying to escape religious tolerance or intolerance, depending on which way you look at it.
+
+[00:21:31] They were basically trying to escape the Anglicans with the Puritans. But of the 100, just over 100 people on the boat, more than 60 of them were Anglicans. So they were trying to escape them, but they were basically with them on the boat the whole way. So they called themselves the saints, the Puritans, and they called the Anglican strangers. But the crew on the Mayflower called the Puritans
+
+[00:21:54] sound singing puke stockings. In a flattering way. Did that mean something different? I'm not sure how that can be flattering. Puke stocking. I can only imagine that they had puke coloured stockings. Okay, I thought it was seasickness. Yeah, because the Mayflower left a bit later than the Menti
+
+[00:22:13] because there was another ship called Speedwell. And I think they've both done part of the journey, but then Speedwell got a leak. And so its passengers went on to Mayflower because they wasted time and meant the Mayflower had to go through sort of chop your water and storm season they've been trying to avoid. So you probably would want a puke stocking if you were on there.
+
+[00:22:28] So do you think maybe they were just puke-ing a lot? That's why they were called puke stockings. Probably into their stockings. The stick bag is the 17th century. So it's the 400th anniversary of the trip in 2020. And I was reading that in order to celebrate it, there's a company that is creating a virtual reality. So you put on the VR thing and it's going to place you on the boat
+
+[00:22:53] and it replicates the whole journey. So they're going to make it sail from Plymouth to Plymouth. So you can do some virtual puke-ing into your stocking. Exactly. I wonder if that's an element that they're going to add. The job that's been in the car there. Yeah, exactly. Okay, it is time for our final fact of the show.
+
+[00:23:13] And that is my fact. My fact this week is that a new scientific paper on why horses only have one toe has been published. The author of that paper is called Brianna McCorse. McCorse. That's brilliant. It's not even a name. It's not a surname that anyone's ever had before.
+
+[00:23:31] It's a name. It is a name. It is a name. It is a name that people have had before. Yeah, in fact, if you go to mccorse.com, there's a man charting all the McCorses through history. They say that they're all descended from John W. McCorse, who was born in 1819.
+
+[00:23:45] No, really? And no one's quite sure why he got called McCorse because it doesn't seem like there were any McCorses before him. But according to one idea, he was in America and he was hanging out with a guy called Sam Houston, but he was called McCuse at the time. Sam Houston said McCorse would be a better name for a Texan than McCuse.
+
+[00:24:06] And so maybe the name came as a joke. Yes, and McCuse slash McCorse went on to have 12 children. So the name spread like wildfire, even in its first generation of use. And if you go to mccorse.com, the guy who runs it, who is a McCorse himself, he... No one else is going to be running McCorse.com, aren't they? Dad likes a Saturday job.
+
+[00:24:28] He has a spreadsheet of the genealogy and family tree of all the McCorses since that guy. And it's amazing how many McCorses you can get since 1819. There's a lot. It's quite cool to have a name where you can pinpoint when it came and then to see, like, tracing it back, because there's tons of millers. Like, you know, if you're a McCorse,
+
+[00:24:45] the gods that you're related to, that McCorse, pretty hard. McCorse does sound like it's a burger you can get in French McDonald's, doesn't it? It does, yeah. Yeah. It also sounds like, if it means son of, then it sounds like you'd call someone McCorse as an insulting joke saying,
+
+[00:25:00] your mom obviously shagged a horse, doesn't it? Because you're saying son of horse. I'm putting that forward as an alternative theory for the origin of the name, based on no evidence. Don't tell the guy that runs that website who'd be gutted. Yeah. So the paper that McCorse published, Brianna McCorse, is Mechanics of Evolutionary Digit Reduction in Fossil Horses.
+
+[00:25:18] So the thing to know about her is, she doesn't study horses for a living. She is an evolutionary biologist, and she's just been looking into why horses now have this one toe, as opposed to five, which is what their ancestors might have had. Their ancestors might have had four on the front and three on the back, I think.
+
+[00:25:37] Okay. If you look at tapirs, that's what they have, which is like similar to an old kind of horse. And they reckon that basically it helps them to run faster, because if you've got long, slim legs with just these one toes, it helps you to gallop. And the reason they had to do that is because they stopped living in the forest
+
+[00:25:56] because there were no forests when the Ice Age hit America. So there were no forests. They had to live in the open, so they had to run away from predators. And so they needed really speedy legs. If horses had feet, like we have feet, so like literally a foot, would that be better for them? Or are they the ultimate?
+
+[00:26:13] I think what we're saying is for what they evolved into, which was this large, open pastures with no forest, this was the best that they could come up with, presumably. That's how evolution works. I think probably the more direct answer to your question is no, if a horse was randomly born with four human feet on the end of its legs, it would be at a disadvantage.
+
+[00:26:31] But if it had human feet, it could wear trainers rather than having to go to a blacksmith. So it'd be more convenient. That's a really good point. And they don't make those bouncy, Nike horse shoes, do they? They don't get horses. Also, horses did evolve in America, so maybe when this guy came over on the Mayflower,
+
+[00:26:46] he thought he could sell his shoes to all these four footers. He's like, come on, guys, this is really going to help you out. But he said Breanna didn't, she didn't set out to study horses, but she may have been drawn towards them. So there was a 2002 academic paper about nominative determinism, which is brilliantly called
+
+[00:27:00] Why Susie Sells Seashells by the Seashore, Implicit Egotism and Major Life Decisions, which found that people disproportionately do tend to pick careers that mirror their names. So they have a larger proportion than you'd expect of Denises and Denise's in the dentistry industry. Although not everyone believes it today.
+
+[00:27:15] There have been a few papers since that kind of think that maybe they slightly cherry-picked their data. That's true. I read that paper by Albert Skeptical. It's really hard to please that guy. A great one. This is not nominative determinism, but I was watching What I Lie to You Last Night, the comedy panel show,
+
+[00:27:33] and David Hay, the boxer, was a guest on it, and he named his son Cassius after Cassius Clay, Muhammad Ali. But that means his son is called Cassius Hay. It's fantastic. Okay, well, Rob Brydon got a big laugh on the show with that. That's the way he tells it.
+
+[00:27:52] I just, that reminded me of a fact, which is in our new fact book, which comes out this year, which is that on the USPGA, most golfers play with a glove to keep their hands from blistering. But the one of the only players that doesn't use a glove is called Lucas Glover.
+
+[00:28:07] Do you know, James, just while we're talking sports, do you know who the new reigning champion of most bullseyes in a minute is for darts? Phil Taylor? No. If I name a load of darts players, will I get it? No, you're in the wrong industry. Oh, is it Steve Backley, the javelin thrower?
+
+[00:28:27] No. Robin Hood. It's Lee Mack, the comedian. Come off it. What? Lee Mack set the record this year. And he beat it by one for most bullseyes within a minute.
+
+[00:28:38] And I learned this on a TV show called Would I Lie To You? Was it true or was it a lie? It was true. Out of interest, just so we know, how many of your facts this week have come from Would I Lie To You? And should we give them a credit at the end? If the whole thing's just that.
+
+[00:28:52] Is it more or less than 20? Less. That's a lie. Yes, damn it. Points to James. Have you guys ever seen... You guys would have seen this because I put it on the camera for you.
+
+[00:29:02] Would I lie to you? Yeah, loads of times. Yeah, it's great. How good was that whole Cassius Haver? Have you guys ever seen the feet of a newborn horse? No. They are incredible. So guys, if you're listening at home,
+
+[00:29:18] you've got to Google image this right now. What they look like is... I was trying to work out a good metaphor for them, actually, for how to describe them. They look like kind of a cross between a squishy crab claw and an anemone with like a bit of cat's paw in it. And they're really slimy. And what it is, is if the horse was born
+
+[00:29:37] with its hoof fully exposed, it would damage the mother's birth canal as it came out. And so the hoof is covered in this kind of grotesque, slimy anemone layer which stops it from being damaged and then it falls off as soon as the horse is born. So the way that some animals would do it is they would come out not quite fully formed
+
+[00:29:54] so that it wouldn't do that. But horses are in danger as soon as they're born because the mother spills her birth fluids everywhere and immediately that alerts predators to the scent. So the foal needs to be ready to run as soon as it pops out. So it pops out and then it sheds this slimy layer of goo on its feet and then it gallops away. But it's the most amazing thing.
+
+[00:30:14] If you see it, you would never guess it belonged to a horse. Scary, isn't it, with animals like that? It's almost like you're being born into the beginning moment of the Hunger Games. Like, the platform comes up and there's a siren and you just have to survive. Yeah, you're right. That's your opening moment into life.
+
+[00:30:29] I've got something on a race horse, the greatest race horse of all time. He was called Eclipse and was born in the 1764 Solar Eclipse around that time. And that's why they got the name. And he had to retire from racing because he won so often that no one would ever bet on any other horse.
+
+[00:30:49] No way. And at the time, I mean still, but at the time horse racing was all about the gambling. Wow. And so he was so good, they just wouldn't let him race anymore. And he was extremely famous. Bits of his body after he died
+
+[00:31:02] would kind of materialise like holy relics. So there were nine authentic hooves of his turned into ink stuns. Now, if he did actually have nine legs, then that could explain why he kept winning these races. Okay, that is it. That is all of our facts. Thank you so much for listening.
+
+[00:31:24] If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At Eggshaped, Ann. At Miller, underscore Ann. Chazinski.
+
+[00:31:35] You can email podcast at qi.com. Yep. And you can also go to our group account which is at qipodcast. You can also go to our website, no such thing as afish.com, where we have all of our previous episodes. There's links to many things as well.
+
+[00:31:49] For upcoming tour or upcoming book, you can also join us on a Monday for our Facebook lives. That's 5 p.m. UK, British, whatever time. London time. Just find London. When it's 5 p.m. in London on a Monday.
+
+[00:32:02] That's when we'll be there. And we'll be back again next week with another episode. We'll see you then. Goodbye.

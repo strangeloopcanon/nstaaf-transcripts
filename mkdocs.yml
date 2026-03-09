@@ -1,0 +1,35 @@
+site_name: NSTAAF Transcript Search
+site_description: Search the No Such Thing As A Fish transcript archive.
+docs_dir: site_docs
+site_dir: site
+use_directory_urls: true
+
+nav:
+  - Home: index.md
+  - Episodes: episodes/index.md
+  - About: about.md
+
+not_in_nav: |
+  /404.md
+  /episodes/*.md
+
+theme:
+  name: material
+  custom_dir: theme_overrides
+  language: en
+  palette:
+    - scheme: default
+      primary: teal
+      accent: amber
+
+plugins: []
+
+markdown_extensions:
+  - attr_list
+  - md_in_html
+
+extra_css:
+  - assets/stylesheets/site.css
+
+extra_javascript:
+  - assets/javascripts/pagefind-init.js

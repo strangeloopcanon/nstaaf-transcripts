@@ -1,0 +1,19 @@
+.DS_Store
+.venv/
+nstaaf.egg-info/
+__pycache__/
+*.pyc
+
+# Generated download/index artifacts.
+/data/html/
+/data/index/
+/site/
+/site_docs/
+
+# Legacy local artifacts from the original notebook workflow.
+/Transcripts/
+/faiss_index.idx
+/id_map.pkl
+/processed_files_set.pkl
+/test-1.ipynb
+/urls.xlsx

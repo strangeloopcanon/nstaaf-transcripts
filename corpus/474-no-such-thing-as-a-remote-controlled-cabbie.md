@@ -1,0 +1,455 @@
+# No Such Thing As A Fish - 474: No Such Thing As A Remote Controlled Cabbie
+
+- Episode date: April 14, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/474-no-such-thing-as-a-remote-controlled-cabbie
+- Slug: 474-no-such-thing-as-a-remote-controlled-cabbie
+
+## Transcript
+
+[00:00:00] Hey everyone, welcome to this week's episode of Fish. Before we get going, I just want to let you know a couple of things. Firstly, the episode you're about to hear is the last ever episode to be recorded at the QI offices in Covent Garden, as we pack up shop and move on to our new offices in Hoburn. So, we thought, you know, if we're gonna go out, we should go out strong, so we reached out to Nerd Royalty, and fortunately, she said, yes, it's Hannah Fry. My goodness, we are such huge fans of her at the QI office. I think every elf has probably read her books. Hello World, if you've not read that, by the way, is an incredible book. I'm sure you've all seen her TV series, which was out November of last year on BBC Two, called The Secret Genius of Modern Life. It was absolutely phenomenal. She makes incredible TV, she writes incredible books, and she is such a good guest on this week's episode.
+
+[00:00:51] You have to, by the way, check out her latest show. You can find it on Bloomberg.com, and it's called The Future with Hannah Fry. It is a look into the world of scientists and inventors who are changing the way the world is gonna be over the next century. These are people who are looking into seeing if we can live a life beyond 150 years old, who are working out whether or not computers will be able to read our emotions, and trying to find out if they can make a planet that will be utterly transformed by unlimited clean energy. So do check that out. It's on Bloomberg.com, or you can find the entire series on YouTube as well. And otherwise, you know, next time you happen to be in Covent Garden, do take a walk down Maiden Lane, and if you look above the barbershop that's called Ruffians, you'll see a window there. That's where we were.
+
+[00:01:39] For nine years, James Andy, Anna and I just sat there dorking out, and we're gonna miss the place, but we're looking forward to the next chapter, and that will be next week's episode. But for now, let's give a good old goodbye with Hannah Frye to the QI offices in Covent Garden. On with the show. Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I'm sitting here with James Harkin, Andrew Hunter Murray, and Hannah Frye, and once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in a particular order, here we go. Starting with fact number one, and that is Hannah. Oh, me. My turn. Okay, here's my fact. The Malyard reaction, so the thing that makes your bread turn brown when you toast it,
+
+[00:02:44] is actually the same thing that makes fake tan work. Interesting. Okay. I mean, do you want more? Do you want more? Yeah, so you're being... You're under-impressed. You are being toasted. No, it's just so weird. I'm trying to make the connection between you being toasted effectively. You would think, like, if you had a normal suntan, you know, like, you'll lay in the sun, you would think that's being toasted. That's toasted, exactly. But this is a spray on, or this is a cream, right? So there's no toasty.
+
+[00:03:12] What if you put fake tan on bread? That's what I wanted to know. Good question. This is a great question. Someone needs to experiment. Yeah, perfect toast every time. Okay, so the best thing about this, my favorite thing about this, is this was discovered completely by accident. So there was a researcher called Ava Wittgenstein, and she was looking into... There were some children who were having problems, their bodies were having problems in breaking down glucose. So there's a sort of simplified sugar that you find in the body, which is called dihydroxyacetone, easy for me to say. And she was seeing if you could feed them this sugar, whether their bodies could break down that sort of simplified sugar.
+
+[00:03:48] And every now and then, some of these kids would, like, accidentally dribble a little bit of medicine down their chin. And when they did, they would have a perfectly orange stain. Wow, so funny. And then she was like, what's going on here? And what she realized is that you have these amino acids in the skin, and when that reacts with the DHA, the dihydroxyacetone, it creates that sort of reaction that is the same thing that ends up turning your skin brown in the sun, that is the melanin in your skin. Anyway, this idea was picked up by Copitone and then released into Faketown. And it's still the same thing, still the same stuff, the DHA, which is a thing. But they've just become much better at making it less smelly and less orange.
+
+[00:04:33] So did Eva Wittgenstein, did she see this little bit of orange-ness and think, what if that was my whole face? Or she's more of a scientist than someone else picked up on the idea? She's more of the scientist. I mean, look, who doesn't want to have an entirely orange face? I'm sure she had ambition. But here's the question that I've got. I spent ages, hours trying to find anything about Eva Wittgenstein. There is nothing that I could find. Were you trying to find out if she was related to Ludwig? No, I don't know. Because I did.
+
+[00:05:04] Right, and did you find anything? No, exactly, there's nothing about it. So she does this in the 50s, and then she kind of disappears. And I asked a friend who knows how to go into sort of American records just to see if he could find her. And he searched the whole records. All he could find was an Eva Wittgenstein who died age 97 in North Carolina. We don't know if it's her, but she showed up as being on a government watch list. So it's kind of a cool idea that maybe Eva became a spy and could like change her disguise by going orange and then back to white. It's the original mission impossible, isn't it? She runs into a tanning booth and comes out half an hour later completely unrecognizable.
+
+[00:05:41] What a disguise, yeah. So have any of you guys ever been fake tanned? No. Almost non-stop. I'm not joking. My skin is important for anybody who doesn't know what I look like. I am the most ginger person that a ginger person can be, right? I am fully ginger, which means that my skin is not just white.
+
+[00:06:02] It's like translucent with a hint of blue. So I put on fake tan just to make my skin look like pasty skin. Wow. Do you have it on right now? I don't, actually, but I have got bronzer on. Can you not tell? Well, you just look variously. It looks fine. It looks normal. That's okay, but you can be kind of under pale.
+
+[00:06:24] You're not even pale. No, I aspire to be pale. So have you tried that? Because I know there are loads of different methods you can do. There are the beds on there and then there are the booths. Oh, no, so beds are not fake tan. So the beds, you go in, that's a real tan. That's very, it's looked down on.
+
+[00:06:41] Okay, it's not very good. It's a little bit skin cancer-y. Right, so I didn't realise that these, the spray that you can put on, is also a risk. Is it? No, I mean, not, sorry. Okay, just for any big tanners listening or sort of like legal teams, whatever. The point is that I... One of that track.
+
+[00:07:01] Big tan might be coming to get you. It's actually good for you. No, it makes you look like you are protected from the sun, but you're not. It hasn't had the actual effect. It's reacted, produced these pigments, these melanoidins in your skin, but you are then totally unprotected from the sun. So some people would think you, and I don't think this is even proper, but some people think you get a little bit of a tan
+
+[00:07:23] and that will protect you from other, you know, stronger... From the sun. Which it doesn't. This definitely doesn't. This is a bit sciency for me, but doesn't it in... Sorry, doesn't it actually kind of make you more susceptible to having the sun's harm you? I don't know. Big tan's coming for me now.
+
+[00:07:41] I think no. I think no. There was a study that was done in 2007, which showed, and this was by Katinka Jung. I don't know if there's any relation to Carl. I don't know if it can be a fine situation. Yeah. And this was in Berlin, which showed that 24 hours after having the tan are on, ultraviolet, you become more susceptible to it.
+
+[00:08:01] 24-hour period. According to this study in 2207. Interesting. Look, all I know is I never leave the Blumen House without Factor 50 on. Really? Oh, God, yeah. So I was once in Cuba. Don't like to brag.
+
+[00:08:17] I was wearing Factor 50 and sat in the shade all day. And I was burnt so badly from the reflection of the sun on the sand. But I got blisters. Right, that's the sort of situation. You people without ginger hair, you don't know. You don't know how we suffer. I do have transparent skin as well, actually.
+
+[00:08:33] I like Irish skin, even though I have dark hair. Like, when I was in a similar part of the world, I put sun cream on, Factor 50, every 20 minutes. And one of the times I didn't put it on properly and I blistered in the shape of a handprint on my chest. Oh, God.
+
+[00:08:49] I went to a pig farm in Scotland recently. Oh, God. All these showbiz angles that we've got coming. Again, again, don't like to brag. What I hope you're going to say is you realise that pigs shelter from the sun by rubbing themselves in mud and you did the same?
+
+[00:09:05] I mean, close, close. It's because you said Irish skin and when I was going around this pig farm, I realised just, I mean, genuinely, these pigs have identical skin to me. Identical skin. And I was like, why do all these pigs have Irish skin? And as you say, it makes them really susceptible
+
+[00:09:21] to sunburn. So that's why they have to keep them in sheds. But actually, the reason for having Irish skin is a bit grim. It's because when you are breeding them for meat, you can see if there's bad meat much easier through see-through skin. No. Wow.
+
+[00:09:37] What? Is that true? That is super fast. So look, you and me, if we ever get hung up for meat. Yeah. Do you both have any advantage to having pale skin? Can anyone see something? We are vitamin D superheroes. Okay, right.
+
+[00:09:53] That's genuinely a superpower of pale skin people. What does that mean? Not enough that you can come in and extract it from me. Can't make a vitamin D farm out of us. We haven't tried yet. I read an article that said
+
+[00:10:09] the Maillard reaction is by far the most widely-practiced chemical reaction in the world. Hang on. What about breathing? That counts as a chemical reaction, yeah. Well, this was at the 100-year anniversary of the Maillard reaction.
+
+[00:10:25] Which is a huge thing. They got skin in the game. Yeah, exactly. And it was a chemist who said it. Nobel Prize winner Jean-Marie Lane who said it. But there was a huge conference. It was 100 years since it got discovered.
+
+[00:10:41] And there's a group, the Maillard reaction group. Does the Maillard reaction society have conferences just about the Maillard reaction? Yeah, as you said, James, they were established in 2005 and it's just food-browning scientists having a while of a time, I bet. But actually, I think James's case
+
+[00:10:57] said it's the most-practiced chemical reaction on the planet. Well, this was Jean-Marie Lane who said this. I'm supporting it, because not only is everyone who's ever made a slice of toast engaged in it, but also the Maillard reaction is happening in our bodies all the time. And so when you toast something, it happens at a very high temperature.
+
+[00:11:13] But generally, it's a reaction between amino acids, which are, you know, building blocks of proteins, and sugars. So that is constantly happening in the human body anyway, but at a very slow rate, much, much more slowly
+
+[00:11:29] than toasting or the faked anything. Are you saying I'm orange on the inside, too? I'm afraid so. And it's bad for you, though, because when you make toast, the Maillard reaction produces about a thousand new molecules. It's really complicated. It's one of the chemicals it makes is acrylamide.
+
+[00:11:45] Acrylamide is carcinogenic. You know, if you have just a slice of toast every day, it's not nearly enough to be a problem. But they found that the Maillard process that they use in highly processed foods, so if you're making some really highly processed food
+
+[00:12:01] and you want it to last for ages, one way to do it is to heat it up really, really quickly at a massive, massive temperature. And that kind of Maillard reaction gives this acrylamide. Can you talk about processed foods, though? If you're like home cooking and you're browning off the chicken
+
+[00:12:17] and then browning off this thing to try and get loads of flavour, something I've discovered recently, don't bother doing any of that, right? You can get MSG from the internet, buy it, right? A little sprinkle of MSG makes everything taste amazing. And because I am a scientific in nature,
+
+[00:12:33] I've A-B tested this stuff with guests coming around my house. Sorry, what's A-B testing? It's where you basically have one bowl with, one bowl without and see which one goes down quicker. That's interesting. It's an experiment when they came around. They did not.
+
+[00:12:49] I would say it's an assumption. If you ever go and visit Hannah, it's like you're probably in an experiment. It's kind of this release form at the door. What was in the bowls? I made a chicken curry. Look, don't get me wrong, my chicken curry is absolutely delicious.
+
+[00:13:05] Both bowls were finished eventually. The one with the Kraken. The one with the Kraken was more enjoyed, yeah. MSG is my... I grew up in Hong Kong, that's my life MSG. I'm very excited. Do you have buckets of it that you like spoon from?
+
+[00:13:21] I do get pot noodle and I collect just the sachets so that I can use it on other things. Are those sachets of MSG that come with pot noodles? MSG is inside the actual powder that you get of the... I didn't know that. I can't remember when I last had a pot noodle, but it's been a while. Some of us...
+
+[00:13:39] This is my version of... Cuba recently. I haven't had a pot noodle in the last few years. Can I tell you something about airline food specifically relating to Mayard? You can't do the Mayard reaction
+
+[00:13:55] on a plane. Most planes these days don't have stoves. You need an open plane. How do they heat the food? The microwave it. What's the maximum temperature it's 100 degrees
+
+[00:14:11] because it's heating the water molecules so you can't... That's part of the reason why plane food tastes bad. I know it affects your taste buds if I brought a Bunsen burner onto a plane it would be possible. Unfortunately it's actually on that little card at check-in. They do say
+
+[00:14:27] have you brought a Bunsen burner for your toast? There's a picture of a guy with a medieval toasting fork as well. If you put one of those little plastic bags you can get that through. Lots of food is pre-Mayard before it's loaded onto the plane. And then it's microwaved.
+
+[00:14:43] So you get a bit of the flavour still. The Mayard reaction works on poo. That's why we have that's why we have copper lights. A copper light is a fossilised poo.
+
+[00:14:59] Our listeners will know that. Of course they will. Basically let's say you have a dinosaur they do a poo. The Mayard reaction works on the surface of the poo. That's what crosses it over. And then eventually that's what helps it become
+
+[00:15:15] a copper light. So if I take my dog out for a walk I spray the result with fake tan. Sprinkle a little bit of mascara. Come back millions of years later. Leave a sign near it. Do not touch. Experiment in progress.
+
+[00:15:31] One of Hamlet's experiments. I'll fuck it up. You said Hong Kong because we were talking about MSG. Have you heard of wok hei? It's the breath of the wok. It's quality that
+
+[00:15:47] if you're cooking in China and particularly in Hong Kong it's the perfect seared taste of the rice that's been cooked in a wok. It's because the rice gets tossed really fast. It uses the Mayard reaction to get the trajectory of the rice
+
+[00:16:03] right. And it's cooking at the right temperature. It's absolutely delicious apparently. And there's a restaurant called the Chairman in Hong Kong which is one of the top restaurants in Hong Kong. And chefs there have to spend a year practising the tossing of the rice in the pan. They're only allowed to cook for other chefs.
+
+[00:16:19] They're not allowed to cook stir fry for customers. They're not allowed to cook a stir fry for a year so they can get the tossing right. That's amazing. I have heard about washing woks is a bad thing, right? You're not supposed to wash a teapot kind of thing as well, right?
+
+[00:16:35] Yeah, that's just lazy people. Really? I seasoned a pan recently. What does that mean? It's where you get a new fried on your face. It was quite the thing. It was kind of like, yeah, I'm living that Fraser life now.
+
+[00:16:51] I really am. That's what noddles for you. You toss your pot noodle for a year and then you cook it. It's where you get a new cast iron pan. No nonstick stuff. Just pure, you know, lovely cast iron, whatever. And then you put this tiny layer of oil in
+
+[00:17:07] and you cook that very slowly and then it kind of bonds with the pan. And then you do that a few times. Again and again and again and do it all over the pan. You're kind of lathering the pan and then making a tiny thin layer. And it makes it really good at cooking, I don't know, more stuff.
+
+[00:17:23] Andy's usually very private. I feel like I've learned a lot of it. Can we cut that bit out? I'm exposed. Stop the podcast. Stop the podcast. Hi everyone. We'd like to let you know that this week we're sponsored by Express VPN.
+
+[00:17:43] James, can I ask you about your bathroom habits very quickly? Oh please do. When you go to the bathroom, you close the door behind you, right? You don't want a random passerby and saying, hey, how's the poo going? Yes, I not only shut my bathroom door, I also tend to shut my front door
+
+[00:17:59] and the front door to the building in which I live. So the chances of a passerby seeing me in the toilet is almost nil. But what kind of security do you take when you're out of the toilet and you're on the internet? Oh, very little. Ah, well here's the problem, mate.
+
+[00:18:15] Not having a VPN is like keeping your door open in a toilet and allowing anyone to walk by and see what you're doing. You allow for all the things you're googling, all the places you're going, to be absolutely open to anyone who's got basic hacking ability. Absolutely. Express VPN creates a secure,
+
+[00:18:31] encrypted tunnel between your device and the internet. And to get three extra months of Express VPN free, go to expressvpn.com slash fish. That's EXPR EWS VPN. So go to expressvpn.com
+
+[00:18:47] slash fish. And get three extra months free with your purchase. OK, on with the podcast. Not on with the podcast, because today we are also sponsored by Squarespace. Absolutely. Squarespace is a brilliant place to go
+
+[00:19:03] if you want to make a new website. In fact, I've already started making my Squarespace website. I have made some videos with my video studio. I've got some emails ready to send out with the special email campaign tool. Squarespace is ready for when someone
+
+[00:19:19] comes to my website. Whoa, whoa, whoa. What's this website? I haven't been told about this. I haven't decided what it is yet, but I've got all the tools ready so that as soon as I decide what my website is going to be, it's going to be absolutely top notch. And to get involved with Squarespace,
+
+[00:19:35] you should go to squarespace.com slash fish. Because when you do that, you'll get a free trial. And when you're ready to launch, if you use the offer code fish, you're going to get 10% off your first purchase of a website or domain. Okay. Now it's definitely
+
+[00:19:51] on with the podcast. On with the show. Okay. It is time for fact number two and that is Andy. My fact is that Japan has just found $7,000. $7,000.
+
+[00:20:07] $7,000. $7,000. $7,000. Is that Japan has just found 7,000 islands that it didn't know it had? Hmmm. Japan's doubled basically in one specific respect.
+
+[00:20:23] It's double the size just in number. It's still exactly the same size. It had 6,800 before. It's double. It's a good day, isn't it? It's a great day. It would be great if one of them was, like, Honshu or whatever the island is.
+
+[00:20:39] But they're all small, right? I feel like we need more detail. Where were they? They were all around the main ones, you know, and offshore mostly. Did they find them all in one day, in one go? Well, they've been doing some digital mapping. Japan since 1985 has had the same set of maps, which I think are based on older maps, whereas now you can survey much more accurately, and so there are now 14,000 Japanese artists. Are any of them in like the South China Sea and claimed by other people, do we think?
+
+[00:21:10] I don't know how many are totally undisputed. Because you know the Kuril Islands, which is in the north of Japan, which is claimed also by Russia? Yes. That is a dispute that's still been going since World War II, and which means that technically World War II hasn't finished, because Japan and the Soviet Union haven't agreed on who owns these islands and it was part of World War II. Seriously? The last time they talked about it was like, I don't know, 10 years ago, something like that, and they didn't agree with it then,
+
+[00:21:40] and I can't see them agreeing with it now. That's amazing. What amazing tourist attraction that you can go there and you're in World War II. One of the other things to say is that Japan's major land masses, the four or five islands, I think predominantly four are 90% of the land mass, so we're talking about the final 3% here that make up the 14,000 extra islands that they have. Are any of them big enough to put a house on? Yeah, I'm sure. Yeah.
+
+[00:22:05] You might not want to put a house on them just in case of sea levels. Yeah, I mean, if you're a short-termist about it. Oh, yeah, yeah, yeah. If you're a dodgy property developer, this is a boon for you. This is great. But it also depends on what you call an island, right? What's the difference between a rock and an island size, but where does one end and the other one start, right? And in Scotland, they had a traditional thing which was if you could keep a sheep on it, it's an island,
+
+[00:22:28] and if you can't keep a sheep on it, it's a rock. But when you say keep a sheep, you mean, can the sheep, is there enough grass for the sheep? Can it survive for a few years? I mean, because presumably you can keep a sheep on basically any rock. It just depends on the level of quality you're willing to. Just stick on a strong rock. Yeah. It's spiky, no?
+
+[00:22:44] Yeah. But yeah, so like what I'm saying, I guess, is like a lot of these islands will be super small and whether they're officially rocks or islands, we don't have a way of deciding. That's why you can't say how many islands there are in the UK or how many there are in Canada or even which country has the most islands because different people count them in different ways. You also couldn't say the circumference of the rock to give you a definition of whether it's a rock or an island because you know this, if you measure the circumference or the length of a coastline, it depends on how big your measuring stick is as to the answer that you get.
+
+[00:23:21] Go on. Okay, you're close. You're about to get masked. Buckle up. Buckle up. Okay, so if you just have a map, let's say of the British coastline and you get like a 30-centimeter ruler and you go, right, how long is the coastline? Duh-duh-duh-duh-duh, like, you know, whatever.
+
+[00:23:37] But then if you've got a more accurate measuring stick, right, so one that you were measuring to the millimeter, you could get in there in the nooks and crannies a little bit more and go all around them, right? And actually, you will get longer and longer and longer each time because every time you add in a little crevice, a little nook and cranny, you're kind of adding length to it. So in the limit of, like, looking at an infinitely detailed ruler and the infinitesimally small, like, nooks and crannies, you have an infinite coastline. Wow, so cool.
+
+[00:24:06] That's so interesting. Can I tell you a story about my favorite island in the world? Yes. Okay, so there's a little place in France. This is not my favorite island in the world. There's a little lake and it's got a little island in it, right? So you cross over a little bridge and then you get it. And then when you're on the island, it's got a pond in the island, right?
+
+[00:24:24] Or maybe sort of like a small lake, pond to lake. What really is a rock pond? In the middle of the pond, there's a little island, right? So you've got an island in a lake and on that island, there is a lake which also has an island in it. Wow. So essentially recursive islands. Now, there are a few of these places around the world. Okay.
+
+[00:24:45] But the best one of all is called Vulcan Point and it's in the Philippines. And it's a tiny little island that is inside a lake. Oh, okay. Right? It's a very, very small little island, like a little rock. And that lake is inside a volcano. Cool. Which is itself surrounded by water, which is on an island, right?
+
+[00:25:11] In a lake. And it's in the Philippines, which is in itself an island. Wow. Now, the thing is about Vulcan Point, is that unfortunately the volcano exploded and the Vulcan Point was destroyed. But there is nonetheless photographic evidence of the point where there was this level of recursive islands. Wow. And do you know what? I think you could put a sheep on it.
+
+[00:25:31] Really? Yeah. It had a great big spike in the middle. You could keep a lamb kebab on it. Yeah. Wow. That's so cool. That's extraordinary.
+
+[00:25:39] I love that. There's a really cool island on Japan which is called Gunkanjima Island. And what's amazing about this is it was once the most densely populated place on our planet. Wow. It's quite small. Does that mean there's a lot of people or it's very, very small? A lot of people for a very small island. It's a mixture of the two.
+
+[00:25:58] So this is the 1900s. And this island, there was Mitsubishi. They looked at it and thought there would be a lot of rich submarine coal deposit underneath. So what they did was they built these buildings on top of the rock. They fitted 6,000 people. There was nothing else you could do but just be in these apartments and then drill downwards to get it. And they were right. There was stuff down there.
+
+[00:26:18] You'll recognise it, by the way, possibly if you like popular movies. It's in James Bond's Skyfall. It's where Bond goes to this weird island where it's completely abandoned. Oh yeah, yeah. So people go there now to... It was Havia Badem. Yes. Exactly.
+
+[00:26:33] Why was it abandoned? Either they mined enough of it or... No. I don't think it was that. I think Japan switched to petrol. Tragically. Sorry. Give it away.
+
+[00:26:44] Sorry for that, Hannah. I've got substantial interests in coal. We really are finding out. What about you? Wait till you hear the gun to electric down. Oh no. Anyway, Japan just had a big switch over. The most populated now is Monkok, isn't it, in Hong Kong?
+
+[00:27:03] Just what we were talking about before. Really? I think so. That was always intensely popular in Hong Kong. This island was 216,000 people per square mile. Which is because it was a fraction of a square mile. Feels like a lot, yeah. Give us a comparison, though.
+
+[00:27:16] What is it like in central London? I don't... I know that the least densely populated countries are places like Mongolia, which have about four people, I think, per square mile. And this was how many? 216,000. Quite a lot more. Quite a lot more, yeah.
+
+[00:27:32] I went to an island in Japan that has all the rabbits on. And it's just like you walk and there's just rabbits everywhere. And you walk down and they follow you. Are these naturally occurring rabbits? Or have they been placed there for the interest of tourists? The story goes that there was a chemical weapons factory and they were used as experiments and they were let go. And then they proliferated.
+
+[00:27:55] But... Bread like rabbits. Well, yeah, exactly. It's not. I can see why they went with the lizard for the Godzilla origin story. But what we think actually happened is there are a lot of school kids nearby and they put some rabbits on there. And then the rabbits did what rabbits do
+
+[00:28:09] and became more and more and more rabbits. And now, because it's known as Rabbit Island, kids will just come and put their rabbit on there because it's where rabbits live. And it's almost advertised as this wonderful place where rabbits roam free. Sort of like your dog's gone to the farm. It's like we're just putting your rabbit on Rabbit Island. Yeah, a little bit like that.
+
+[00:28:27] Are they fed? By tourists. Right. And that's the problem really because the tourist season is quite seasonal. And so for some of the year, they don't really get fed at all. Oh, no. Okay. Yeah. So you think that'll be a natural population control there, wouldn't you?
+
+[00:28:41] I think it is. But the population is quite high still. Yeah. And you walk around and there's a few rabbits there and they're chasing after you because they know the tourists feed them. And then you walk and then you turn around and there's a few more. And then you walk a bit further and there's like 20. Wow.
+
+[00:28:57] It's the scariest. It's like... Like the birds, but rabbits. Yeah. So a few animals are fine, but when they accumulate that turns to... There's a number where it gets scary, isn't it? When you turn around and there's 40 rabbits. For me, it's like if there's only two and then you turn around and there's like six,
+
+[00:29:11] I think that's scary. Oh, yeah. Have you ever had the work of Greg Gage? Greg Gage. So this is a guy, he has this amazing stuff. He can put a device on your arm that sends a little electric sensors and moves your hands for you, right? So he can sort of stand there with this thing on your arm and with his iPad he can like move your arm. Oh, wow.
+
+[00:29:29] That's cool. This thing, which actually school kids around the world can do, where you can operate on a little cockroach and insert a little wire into their heads, right? And then essentially control them using a PlayStation controller. Oh my God. Right? It's absolutely wild. Anyway, the thing is, is that, you know, you got this like remote controlled cockroach.
+
+[00:29:48] I always thought that he was missing a massive trick though, because what he should do is get sort of gloves, which can tell where his hands are. You know, those kind of gloves that connect to it, and then have an entire army of cockroaches behind him, right? Like a rabbit. And then summon them by like lifting his arms up. Like a Marvel superhero, but cockroaches. Wow. Maybe next, he can do rabbits.
+
+[00:30:11] Yeah, I'm up for it. The rabbits had nothing like me, because I accidentally kicked one. They just ran around. Accidentally, here he is, getting his defence in first. They just run around your feet the whole time. Oh, sure, sure. Yeah, yeah. Wow.
+
+[00:30:24] But you converted it through a rugby post that was nearby. So I was just looking up things that are going on in Japan at the moment. Oh yeah. And have you heard of the Sushi Terror? No, I don't know. Japan is in the grip of it. Right now, as we're recording this, there's a huge problem, because there's a craze that's developed. It's an online craze, and it's spread to offline.
+
+[00:30:47] You know the conveyor belt sushi restaurants? Yeah. People have started mucking around with stuff on the belts. Not in Japan. They're touching the things. What? Licking bottles of soy sauce. No.
+
+[00:30:57] It's very bad. They're filming themselves as they do it. And this is obviously really bad, you know. Can you just have a little quiz for you guys? Oh, cool, great. When did the first conveyor belt sushi restaurant open? What year? 1990 in New York.
+
+[00:31:09] Very nice. Oh, not at the location. Very nice. Oh, okay. Wrong, though. Look at his face. I'm not saying until we've got all... Look at his face.
+
+[00:31:17] Oh, please. ...came in Harrods in the UK around 1920s or something like that. It's not really playing the game to use previous knowledge, but okay, I like it. So, I'm going to say it was in Harrods. They decided to open one. They took that technology and just put little sushi on it. Okay.
+
+[00:31:37] And a year? Probably 1927, I should think. Right. Dan? Oh, there's not much... No, it's not happened yet. Brilliant. 2029.
+
+[00:31:48] 2029. Any day now. Yeah, it's all an illusion. Bad. Well, okay. It was interesting to me. James' lowball, that's so much. Oh, sorry.
+
+[00:31:58] No, it's quite all right, but it's 1958. Okay. I am surprised by that. That is quite a long time ago. Pre-dates Cliff Richard's first album by a year. And that is how we judge every single one. Hannah, you haven't been on the show before, but that's our part.
+
+[00:32:10] That's amazing. That is a long... I'm surprised. Yeah. I was going to say, I don't know if we've ever mentioned that, I don't think we have, the first ever English teacher who was of a foreign country teaching English in the country was a guy called Ronald McDonald.
+
+[00:32:26] He was the first person to teach in Japan, which would be a great, nice coincidence if Ronald McDonald, who is a character in McDonald's in Japan, was called Ronald McDonald, but he's not. What? It's called Donald McDonald. What? Who?
+
+[00:32:40] What? What? Yeah. He's been online when people have written about it. There's been tweets about it. And if you go to the replies, there's a lot of Japanese people who are like, you know, in their 30s going, he's called Ronald?
+
+[00:32:52] Like, so it's like a genuinely amazing thing, but over there, he's Donald. Did you say you were in Japan recently? I was in Japan, yeah, filming. I was in Tokyo, but the good bit, I got to go inside of the exclusion zone in Fukushima, which was wild. The whole place is extraordinary.
+
+[00:33:10] There were these buildings, there was one sort of town hall that we went to and the doors are locked, but inside you can just see everybody's slippers and there was like a kid's toy on the floor and then, you know, like beer bottles, right? They'd had a party or something the night before and there's like a crate with sort of the empties that they hadn't got rid of.
+
+[00:33:28] Wow. And just like everybody left in such a rush because of the tsunami. But one of the reasons why we were going there, we were looking at wildlife and how wildlife has changed and there were reports before we got there that there were radioactive bears inside the exclusion zone, which I was obviously very excited about.
+
+[00:33:44] Yeah. So we got there, we started, right, we're literally on a bear hunt. And we asked her. Yeah, so many of the radiation, but, you know, whatever. Anyway, we went to talk to a sexist and we're like, okay, tell us about these bears. We couldn't find any bears.
+
+[00:33:59] Okay, so how much have you seen these bears? And then it transpired that actually the bear researcher themselves had only seen one bear once. Right. Okay. Actually, there wasn't radioactive bears at all. It was radioactive bear, which may or may not be there. Wow.
+
+[00:34:16] Yeah. I'd love to find that bear. That sounds amazing. The radioactive bear. I strongly suspect it was a boar. Just, you know, on a spiky angle. Right. Okay, it is time for fact number three
+
+[00:34:34] and that is James. Okay. And my fact this week is that if you grew up in a city, then you have a worse sense of direction than someone born in the countryside, though it doesn't seem to work if you're from Hungary. Okay. Again, we're going to need more data.
+
+[00:34:49] So this is a study published last year in nature and it assessed the navigational skills of 400,000 people across 38 countries. And what they did was they asked people to memorize a map in a video game and then once they memorized it, they got them to get their characters to go through this map and they worked out how good everyone wasn't navigating and they found that it was very clear that the people
+
+[00:35:12] who grew up in cities tended to have a worse sense of direction. People who were in the countryside had a better and people in the suburbs were always in between the two. So it was a real good correlation. And they said it was strong in places like Argentina, the UK and the US, but there were countries like Hungary, for example, this is a quote where there was no real difference but on average, the trend held.
+
+[00:35:34] So is that because Hungary has very simple cities or complicated countryside? Well, I've been to Hungary and like for instance, in Budapest, I would say it's not that different to London because it's an old, very old city that's built up. It's here in Pagodin. Yeah. Not like New York, which is in like a grid.
+
+[00:35:51] And that's what they said, people with the worst sense of direction, people who grew up in grid cities. They tend to be the worst. I mean, well, that makes sense, right? And they kind of speculate slightly that, you know, you don't have as much like signpost telling you which way to go and that kind of stuff. It's pretty amazing.
+
+[00:36:07] So the game that was created for them to do this is called... Is it Quest? It is. It's Sea Hero Quest. I need to tell you about... Do you know it? Yes, keep going. So this game, as of April 22nd, 2022, has been now played
+
+[00:36:20] by over 4.3 million players, not necessarily all for this exact thing that you're talking about, James. It's just an incredible way of gathering data. Is this a particular thing that's used in science too? Yeah. It's like this amazing kind of game that is fun to play, but then you're also collecting data from it.
+
+[00:36:36] But the reason why I love it so much is that, okay, so there are particular cells in your brain that help you with navigation. And they found these in mice and rats. So some of them are called play cells. And essentially what happens, right? Let's say you put a rat in a rectangular room. Okay.
+
+[00:36:55] You can put a kind of cute little hat on the rat that will measure what's going on in the brain. And you can work out when particular neurons are firing. Okay. And it turns out that in, let's say, the northeast corner of the room, if there's one neuron that fires in this rat's brain while it's in that location, it will not fire anywhere else.
+
+[00:37:14] It's like a specific neuron that is like, this is the northeast corner, a play cell. And actually what you can do is you can elongate the zone in which that neuron fires by putting a rat into an identical room that is just stretched out longer. So it's like the northeast corner becomes bigger. And so where this neuron fires also becomes bigger.
+
+[00:37:33] Anyway, the thing is, is that they have to do this while the rats are going around in little rooms. But it's quite hard to hook up this rat to the hat that's measuring what's going on in their brain. You're not going to put a spike in it like the cockroach. Are you? I was a bit squeamish about that. It's only tiny.
+
+[00:37:49] The cockroach is fine. The cockroach is fine. Okay, okay. No, so what they do is they put the little hat on the rat and then they put the rat on a ball and then the rat can run around and the ball moves underneath them as though they're running freely. And then they put it in front of a computer
+
+[00:38:04] and get it to play a quest. Yeah. Wow. Yeah, so the rat is like running around playing this computer game. Oh my God. It's almost like VR for the rat, right? Totally.
+
+[00:38:13] It thinks that it's in this well that I get, I don't know. It probably doesn't even know it's a rat, but it's like, you know, it's like, it imagines that it's actually going round, right? Yeah. And it's the screen. It's like a little rat-sized IMAX.
+
+[00:38:25] Amazing. Well, one more thing about this study and why it might be important is because poor navigation skills are sometimes used to help identify dementia in people. And so you need to know what your base level of navigation skills would be for a normal person. So if you live in the city or the countryside
+
+[00:38:42] and you have poor navigation skills, it could be because you have dementia, but you need to know what your original thoughts are. That's clever. I read that if you follow Google Maps, if you follow the blue line, your sense of direction gets much worse over time. Yeah.
+
+[00:38:55] Well, it's like your brain's like a muscle, right? You've got to practice it. Yeah. So I turned it off yesterday. I turned off the blue line. I had to get somewhere. I had to walk for about half an hour across London. And I turned it off.
+
+[00:39:03] And it was only about three corners in the whole journey. So that was really... Well, it's the blue line. Sorry. On Google Maps, you know, there's a blue line. You put it in directions to somewhere. Okay. It gives you a little blue line.
+
+[00:39:12] Right. You follow that line and then you get to the place you go. Okay. Yeah. And then you get to the place between Holborn and Concordant. Just now. I mean, that's what I'm saying. It's like...
+
+[00:39:21] I've lived here for 20 years. I used to have an A to Z in my pocket. I used to be able to like... I was fine now. I just can't do it. Yeah. You know what? There's a cabbie who I use quite a lot.
+
+[00:39:32] And I have a game that I play with him where I'll be in a part of London. And I'll just send him a photo of like a jaw. And it's unreal. Sorry. You've got your own personal cabbie. No, not my... I just... We say chauffeur normally.
+
+[00:39:45] You'll never have guessed who I am in this car. It was you. Yeah. It was you. No, he's not my personal cabbie. He's like... He's a tame cabbie. I think that's still very impressive.
+
+[00:39:55] Like, I've never... Yeah? Look, first you give up pop noodles. And then this is the next step. Has this cabbie feels got a spike in his head? And you just raise your hand and he arrives. Wow. I'm sorry.
+
+[00:40:08] You send him photos and he just says that's where you are. Yeah. He knows. He knows the door. He knows. So I take a face out the window. Yeah. Don't put a street sign on.
+
+[00:40:18] That's great. Hannah's just hanging out the window of our office right now. We could even say where we are because this is the last time we're ever in this office. Yeah. Yeah, yeah, yeah. So, yeah. So let's see if he comes back with this. But we're on Maiden Lane.
+
+[00:40:30] Let's see if he gets Maiden Lane. So exciting. It's extraordinary. I used to live on a street where, which was in the cabbie's knowledge exam. Oh, yeah. And that was really useful because you didn't have to give them anything. You were on that street and they'd be like, oh, yeah, we know what that is. I did too.
+
+[00:40:46] So I lived on Sandwich Street and they always do bacon lane to Sandwich Street. Lovely. Right. What was your one? It was Dickby Crescent. But I don't know where they would have gone to. Everard Dickby. Everard Road.
+
+[00:40:57] Yeah. Dicky Crescent. Yeah. Oh, he's typing. Oh. Okay, hold on. Hold on. That's quick.
+
+[00:41:05] Okay. He's too quick. I'm going to have to edit in a space. Exactly. Yeah. He says, is it an official test? I think yes. Yeah.
+
+[00:41:13] Yeah. Yeah. Yeah. Yeah. Well, let's do a bit of talking and then see. Yeah. To give it some space. Come on.
+
+[00:41:21] Just very quickly, you're mentioning you got lost from Holborn to Covent Garden. So I've discovered and made contact with a guy called Tristan Goole, who's an amazing guy. He writes incredible books about how you can anywhere in London orientate yourself by various things. Yeah. Yeah. If you're in the morning, go against the flow of people walking towards you because
+
+[00:41:38] predominantly that group will be coming from a tube station. And if you need to find a tube station at the end of the day, Not if you live in a commuter town, they're all going to the tube station. Oh, sorry. This is, this is London, central London. But you've, you've, you've woken up and the kidnappers told you you're in central London, but I'm not going to tell you where zone is like one or two. And at no point to this day, just ask somebody where you are.
+
+[00:42:00] Well, his idea is, is that you shouldn't ask someone where you are. You should make the challenge of working out your navigation better. If you see a tree in London, look if it has a tilt on it, because if it has a tilt, that will be pointing to the south. I always think in London, go downhill, you'll get to the river eventually. Yeah. Right. Okay.
+
+[00:42:18] I don't know if that's true. I mean, they're our local Maxima. I was, I was reading a book called The Lost Out of Finding Our Way, which is by an author called John Huff. And he was talking about urban myths of navigation. How, you know, there's one of, it's not the tilt on the tree, you know, the other one of the tree. Like moss on one side of the tree.
+
+[00:42:34] Moss grows on the north side of a tree because it's cooler, darker, shadier and not on the south. And it doesn't, it only happens in mid-latitudes in the northern hemisphere. So you need to know which hemisphere you're in. So it's not a perfect test. Can you flush a tile at first and see which way the, what, I don't know. There's a toilet next to a tree. So you do know that here.
+
+[00:42:52] But also. If you don't know what hemisphere you're in though, I think you're in Marble of Trouble. You can look at the stars. Okay. How long was I blindfolded for? Was it enough to do a 16 hour flight? Shall we look at the phone? Yes.
+
+[00:43:04] Yeah. Let's have a look. Let's see. Okay. We sent this at 1237 and he replied at 1239, maiden name. Oh my God. I want to know how he did it though. What's in the photo that you can.
+
+[00:43:18] Can I call him and ask him? Yeah, go for it. Put on speaker. Yeah, well. It was the moss on the north side. Yeah. How did you do it? I knew roughly where you were because there's a safe door.
+
+[00:43:33] Oh. Yes. And I'm there's, there's no traffic in that street. So I know it's somewhere annoying. I'm so home or common garden. Right. And then I just use my pals and deduction. Wow.
+
+[00:43:49] Hi. So Richard, Dan Schriver here. No such thing as a fish. Thanks for being on the show. What did you, is that genuinely the final guess was a punt or did you know it? I did recognise the street. I did use a stage door and the fact that I could tell there's no traffic in that street anymore.
+
+[00:44:05] I'm not allowed to drive down it. So it did look familiar and I can't have worked it out from back then. Amazing. All right. Cheers, Rich. I'll talk to you later on. Amazing. Thanks, Billy.
+
+[00:44:16] Oh, I wish he ended that by going up. Got to go. Professor Brian Cox is calling. Picture for me to analyse. That is good. That's good. Yeah. Yeah.
+
+[00:44:24] Wow. He's never not got one. It's one day, one day. That's so cool. That's really cool. We were talking about Holben earlier and do you remember when they changed the rules that you're allowed to stand on both sides of the escalator in Holben? Yeah, I do.
+
+[00:44:39] It's a very long escalator. Were you angry about it? Yeah. Why? You know I'm going to tell you you're incorrect to the angle. I know. I do know. Okay.
+
+[00:44:47] Just warning. TFL justification for the trial. So just to explain. Sorry. In London when we go down an escalator in the underground you have to stand on the right hand side and you're allowed to walk along the left hand side. Yeah. But they said from now on everyone's standing on both sides.
+
+[00:44:58] Yeah. Right. My problem with it is, I know what you're going to say, Hannah, you're going to say it's mathematically more efficient. You will get more people on and through the escalator if everyone's just standing. I will say that. Okay. My perspective is as a commuter it's less pleasant.
+
+[00:45:15] It's okay standing and there are people moving past you. If you're standing with people in front behind and next to you it's a bit of a squash. And there's this awkward thing where you might have to make conversation with someone or you'll make eye contact or they'll start, you know, start a fight or they'll say, what are you doing? Start a fight. It's too tight. It's too tight.
+
+[00:45:32] Look, I would accept that as a response and I would accept that you would prefer to have a slower journey time to avoid that, but for the fact that you're just about to slam yourself into a tube carriage with 50,000 other people into their armpits, you know, it's definitely no more Sardini than when you get on the tube. It feels impersonal and cold. I love the freedom of just running up those escalator steps and, you know, it's, you know, you feel like you're really getting somewhere like, oh, these slow coaches are standing on the right.
+
+[00:46:01] You're just putting, yeah. Chumps on the right. Yeah. Chumps on the right. Legends on the left is what I would have to find. Do you know, well, basically a lot of people felt the same way as you, Andy, but like Hannah says it was successful and way more people could get down the escalator. People don't like math, James.
+
+[00:46:17] People don't like math. Forget about the maths. Just think about the gaps. If you were looking down on it, say you were like, you know, in the control room, looking down on the escalator, if people are walking down, there's much bigger gaps, which basically means you've got all of that wasted space, right? So you get a much higher flux. It's not wasted space.
+
+[00:46:34] It's the hero's aura. It's, it's, it's, you're spotting who's a drone, who's willing to do what the system tells them. Please stand on the escalator. The Sheepholes. Yeah, yeah. Exactly. I like standing in the fast lane when there's no one there.
+
+[00:46:46] Only when there's no one there. Only when there's no one there. Yeah, and that's because you like, you like to play with norms, you subvert, you twist. Exactly. You kick rabbits when. I don't. Really? Oh, is that still in place, that law in Holborn?
+
+[00:47:01] Which one? The, the Tiefel, the Tube Law. No, no, no, it was a trial, the double in a state thing, and it didn't really take off. Thanks to my letter writing campaign. Yeah, I was going to say the QI offices, we are moving and we're moving to Holborn and it's just the sadistic bit of me would love to know that that's now your tube station. I sabotaged it by leaving small pieces of sushi, which I had licked on every other state. Stop the podcast.
+
+[00:47:31] Hentinkan podcast, Nya. This week's episode of Fish is sponsored by Babbel. That was Indonesian, first stop the podcast, because I was looking at all the different languages that Babbel does and they have 14 and can you believe that Indonesian is one of them? It is an extraordinary place, Babbel, that they've created. There's over 150 language experts that they use around the world. These are real people who put together real world conversations so that when you're learning,
+
+[00:48:04] it's actually with language that you would use in real day situations. You want to head to it. You want to learn more because of how much fun it is. Absolutely. Now, Babbel is offering our listeners three months free with the purchase of a three month subscription and the way you get that is go to Babbel.com slash podcast 23 and Babbel is spelled B-A-W-B-E-L and if you use the promo code no fish, you will get that extra three months for free.
+
+[00:48:32] That's right. So all you need to do to get three months of free Babbel usage, go to Babbel.com slash podcast 23. Use the promo code no fish, one word, active dangun podcast on with the show. Okay, it is time for our final fact of the show and that is my fact. My fact this week is that an inventor called Yifei Chen has designed a gun which collects tears from your face so you can shoot them back at the person who made you cry tears. And if you're really upset, it's not a super soaker, is it?
+
+[00:49:13] No, it's not. But have you seen it? Have you seen the video? It shoots out with more force than it built it, hasn't she? Yeah. Yeah. Yeah. Yeah.
+
+[00:49:23] Yeah. Yeah. Yeah. Yeah. Yeah. Yeah. Yeah. Yeah.
+
+[00:49:31] Yeah. Yeah. Yeah. Yeah. Yeah. Yeah. Yeah. Yeah.
+
+[00:49:39] Yeah. It's cool. The tears are cold. It's kind of what it is. Weirdly. Right. Yeah. Yeah.
+
+[00:49:48] But then, at the time it takes to freeze. I know. Are you still going to be upset at the person who made you cry? No, exactly. So it's not an immediate... I wouldn't bring it to an actual gun fight. I think... Is it like your tears are best served cold?
+
+[00:49:58] Right. Yeah, exactly. I don't often, you know, one finds that you're actually the one who's made yourself cry. Wow. You know, you have control over when you're crying. And he goes home, has a little cry, and then fires about himself. This is all your fault.
+
+[00:50:15] That's interesting that you think you have control over with the Ukraine situation. Yeah, I'm now thinking about my tear ducts so much. You look like you're crying, I know. I definitely do not have control over crying. It's involuntary tears, yeah, yeah, yeah. I cry all the time, I try not to. Yeah, because I'm often, I'll watch like a really,
+
+[00:50:31] like a really heartfelt, like Oprah Winfrey, the YouTube clip on the tube or on the train. And it gets me every time, and it's embarrassing because you have people next to you, right? So hang on, is that why you don't want this escalator thing? So then you can get on that moment of privacy. It's really, yeah, the length of a Holburne escalator is about a one classic clip of Oprah, length of time.
+
+[00:50:52] So run. Do you watch that Tom Cruise jumping up and down on her sofa? No, it's not emotional, I like the emotional stuff, yeah. Do you like Dr. Phil? No, I don't watch Dr. Phil. I like military homecoming videos or pregnancy announcement videos. I quite like homecoming, yeah.
+
+[00:51:08] The other one I really like, when I just want a really good cry is a dog rescue. Oh, nice. Yeah, because sometimes you get the dogs and they're in such a little state. Oh, I haven't done that yet. And you know, like, they'll often have like, you know, loads of lice and loads of like ticks
+
+[00:51:21] and things and horrible, like scaly skin. And then what's really nice is when they patch them all up and then they get ready to be rescued by, you know, go to an adoptive home. They're all fluffy again. Oh my God, well, you need to do this yourself. I do. It's very therapeutic.
+
+[00:51:36] There's a Fenn diagram that you, I'd love to introduce you to, which is military homecoming videos, but where they come home to the dog and the dog reacts. Whoa, that's a new level of emotion. Whoa, there. And you do that on the tube.
+
+[00:51:48] Yeah. You just go on the tube and you just want to cry when you're on the tube. Well, I just suddenly have a hankering to, it's the algorithm, you know. I'll be watching something, but I've watched so much of it. I'll, you know, it'd be like a comedy clip
+
+[00:51:58] of someone I want to watch in an underneath. It's like Oprah gives $16,000 to a desperate mum who lost her house in a hurricane. Is this actually just to stop people sitting next to you on the tube? I was like, Andy, what do you watch to make you cry on the tube? I don't think I consciously watch things
+
+[00:52:18] that will make me cry. I've seen, sometimes you'll see a clip that's doing the rounds online and you find it moving. I just think about my career. I would say for me, the only thing really that makes me a bit like that is sporting events when people, you know.
+
+[00:52:34] Like a classic turnaround? Like a last minute Hail Mary? Yeah, someone who's like reached the life's ambition. Yeah, the Olympics. Oh man, Croft Fest. I'll tell you what you'll love then. The, it's called the knock. It's when the NFL players are told
+
+[00:52:48] they've made it into the Hall of Fame and someone goes around knocking on the door. Oh, the emotion in that. Especially when there's a dog involved. The poppy ball. The Crofts with the Hall of Fame. Anyway, that's, gosh, we've learned a lot. So, how about Yifei Chen?
+
+[00:53:04] So she's actually, we say inventor. She's actually a designer and she was at a design school. And this was the thing where she grew up in Taiwan and you're trying not to return anger towards authority, your school teachers or your parents or so on. That's just part of the culture a bit so much there. Less so when she went overseas and she was studying in the Netherlands
+
+[00:53:24] and she noticed that she was not a good teacher. That she was being told off and she watched someone step up for her but she realized she couldn't do it for herself. So she had a cry and she thought, I felt really weak. So I want to use my weakness and turn it into power. What if I invented a gun? What if I did the most punishing
+
+[00:53:41] and literal interpretation? It's very cool. It's an amazing looking invention. It's beautiful. It has these tear collecting half moons under the eyes and a little pipe that then leads down into the cartridge or chamber or whatever you call it. And she did it as part of her course.
+
+[00:53:55] She designed the gun. So on her graduation, she actually went up and she fired the gun at the head of the department, Shannon Bollinger. I know what you're thinking. Did I cry six tears or only five? Do you feel weepy? Tell you about another inventor.
+
+[00:54:13] Yeah, of course, please, please. Have you guys heard of the knee defender? No. I think we're about to. Yeah, if you're on a plane. Oh no, I know. You fit this to the seat in front of you, to the back of the seat in front of you
+
+[00:54:25] and it means the person in front of you can't recline their seat. Oh, wow. And then they're banned on a lot of airlines. There they are. They're a controversial contraband thing. And the inventor is six foot three. And he says that it was more to start a conversation.
+
+[00:54:39] I bet it does. It does. So it's basically, it comes with a little card for your fellow passenger if you get one of these. And it reads, I realized that this may be an inconvenience. If so, I hope you will complain to the airline. Maybe working together we can convince the airline to provide enough space between rows
+
+[00:54:53] so people can recline their seats without banging into other passengers. What a dick. What a dick. And I guess you have got some of these, haven't you? I don't know. I mean, it's like, I fundamentally agree that the airlines do put them too close together
+
+[00:55:07] and it means that actually you have to, one person has to sacrifice their comfort and that seems unfair. But him being like, one of us has to sacrifice their comfort and this time it's not going to be me. And in fact, on no occasion it's going to be me. Well, yeah. What he needs to do is fly business like I do.
+
+[00:55:22] And you manage to do that by eating nothing but pot noodles and saving your money. If you fly first class like I do, then you all recline and you know, it doesn't look so bad that sometimes I get cabs now, does it? I actually have my own airline pilot. Take a photo of some sky.
+
+[00:55:44] Oh, that's a new jersey, isn't it? Lovely. I got, we got an email in the fish inbox about, this is about innovation rather than about inventions exactly, but it's just so interesting because it was a guy called Mark Emmerton who sent in a fact about something, a nuclear test. Okay.
+
+[00:56:02] And he said, I have a fact from my late great uncle who actually worked on the nuclear test program, the British nuclear test program in the 50s. And he says, this is probably classified for all I know, but fuck it. So. My kind of guy. Yeah, right.
+
+[00:56:18] The UK and US used to share test sites in the Pacific, but each would bring their own instruments to measure the power of nuclear tests on the ground. The US had very sensitive state of the art pressure transducers, but they kept getting broken or having their readings wiped by shockwaves and radiation. Okay. The UK with a much smaller budget
+
+[00:56:36] realized that you could measure the pressure of a nuclear blast just by getting a squeezy tube of toothpaste, taking the cap off and then placing a ruler next to it. The pressure of the blast would squirt out toothpaste proportionally to the blast strength and there were no electronics to go wrong. They work.
+
+[00:56:55] Oh, that's amazing. Okay. I mean, there is a story about this about, about Fermi. Do you know this story? So Fermi, this amazing, amazing physicist. And he had, Enrico. Enrico.
+
+[00:57:06] He had a reputation for being able to do calculations in his head. And during the first test, he decided he wanted to try and work out how strong the blast was. And so he stood in the observation tower, which I think was some distance away from the block. I mean, you would assume it was from the block.
+
+[00:57:24] And he tore up a tiny bit of paper, sheet of paper into tiny little bits and he held it in his hand. And then as the blast exploded, he opened his hand and then paced out how far they'd been blown across the room and then got within, I think, a factor of two of the equivalent in dynamite. So I think, I mean,
+
+[00:57:40] it's totally legitimate that you can do this. You don't get like perfectly accurate results, weirdly enough, but yeah, you can get really close. That's really cool. Just on classified stuff. I read the other day about a girl in America who went to her school's show and tell with a load of classified U.S. government documents.
+
+[00:57:59] What, from like her dad or mom? No, it was even worse than that. So there'd been, someone from the government had been at something and then had lost their briefcase. So I just left it there and their dad, this girl's dad had found it and sort of just picked it up and looked through it and it all said classified and stuff.
+
+[00:58:18] And then he just took it home and then they kept it in the attic and never did anything with it. And then like five or six years later, she was like, I need something for show and tell, went up and then, oh, I'll take this. And then took it down. And it was like all stuff about Iran and Libya and stuff.
+
+[00:58:32] Lord. Was she detained? Well, yeah, she's- She's in Guantanamo. Guantanamo. The teacher got in touch with the CIA and is that the right person or the FBI? Yeah, the CIA.
+
+[00:58:45] Yeah, yeah. And said, we have this and they came and sent some people in dark glasses to retrieve them. It's quietly waiting at the back of the show and tell while Blooming Tilly talks about a conch that she's found, you know? Because he's got a conch. And I think probably the person who lost it
+
+[00:59:02] might have killed or killed him. It was all a happy ending. That's amazing. That's so cool. Here's another new invention. This is from, I think, 2022, which I've mentioned it to my wife and she's looking into getting one.
+
+[00:59:14] It's a motion pillow three. Is it a mega hanky? It's a YouTube Prime account. I can get rid of all those nasty ads getting in the way. It's a what, sorry? Motion pillow three, it's called. It's a pillow, right? And you're a snorer, damn it.
+
+[00:59:34] Is that where we're going? Ooh, yes. I thought of it as- Does it smother you? Yeah, my wife is very keen on getting one. It's a weighted blanket for the face. It's how it's sold, yeah. No, is it a pillow that moves under you,
+
+[00:59:47] it undulates under you to keep you asleep? No. Does it massage you? No. Does it do what Andy said but stop you from snoring? Exactly. I can't believe that you didn't build on the snoring thing. What it is is when you're laying down,
+
+[01:00:00] if you're snoring, there are four airbags inside and it's AI kind of generated. So it inflates to move your head around until the position where the airwaves are opened up properly and you stop snoring, and it means that you just reduce snoring. No way. Yeah, this is a motion pillow three.
+
+[01:00:17] You're gonna say you're not waking up when someone is, your pillow is slowly grinding your head in the ground. It doesn't make a noise? Is there a- When your neck snaps, it does. It's a way to assassinate someone, is it? Hacked a fellow.
+
+[01:00:33] Is that why motion pillow one and two didn't make it to one? Yeah. Can I tell you about the Corby Trazer Press? Yeah. Just while we're on game-changing inventions of the 20th century. Please.
+
+[01:00:44] Yeah, yeah. We're losing a lot of inventors now who invented really big things. And I'm not saying that Corby- And. And. But like the inventor of the kettle off switch, for example, is still alive.
+
+[01:00:55] Oh yeah, it's me. It's still there. Professor of invention in Oxford or something like that, Cambridge. John Taylor. This is a slight tangent or a tangent to myself, but it's, do you know how the kettle off switch works? A bimetallic strip.
+
+[01:01:06] Yeah. I just love bimetallic strips. What is it? What is it? That's interesting. I haven't thought about this before. I do remember trying to buy a kettle which didn't have one and it was really hard.
+
+[01:01:15] Really? Yeah. Why were you trying to? I don't remember, but I think it was something to do with stamps and legal activity that the post office can't find out about. What?
+
+[01:01:27] So bimetallic strip is, but it's as it sounds, it's a strip of two different metals all the way along, right? Yeah. Expand and contract at different temperatures because of the chemical composition. So as it gets hot water on it, the strip,
+
+[01:01:43] it will bend because one side is expanding more than the other and you can develop those and it snaps the kettle off at a certain temperature. Yeah. It's bimetallic strip. I think that I love bimetallic strips is the most Andy sentence. I've ever heard you say that.
+
+[01:01:57] Well, we had one in the house when I was growing up and it was a very cool scientific experiment. What, a kettle? Yeah. Oh, that's all those pot noodles you're having, isn't it? Okay, that's it. That is all of our facts. Thank you so much for listening.
+
+[01:02:13] If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At James Harkin. Andy. At Andrew Hunter M.
+
+[01:02:23] And Hannah. Friarsquad. Friarsquad, yeah, nice. Or you can go to our group account, which is at nosearchthing or our website, nosearchthingasafish.com. Check it out. All of our previous episodes are up there,
+
+[01:02:34] as well as merchandise. Do have a look. But most importantly, make sure to watch Hannah's latest show. It's called The Future with Hannah Fry. It's on Bloomberg or you can find it on YouTube. It's, the whole series is up now, right? You can take it all in one go. If you finish that and you're on YouTube,
+
+[01:02:50] why not check out some Oprah clips? There's really good ones to watch. Anyway, that's it. And that's it from us, from this office. This is where QI's office was for the last nine years of our existence. Fish started here nine years ago. This is the last ever episode we're doing in our HQ.
+
+[01:03:09] So we'll be from somewhere new next week. So thank you for being our final guest ever, Hannah. Thank you. In our HQ. And yeah, we will be back again next week in another building with another episode. We'll see you then. Goodbye.
+
+[01:03:21] MUSIC

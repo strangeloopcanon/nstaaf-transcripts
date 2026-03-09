@@ -1,0 +1,427 @@
+# No Such Thing As A Fish - 471: No Such Thing As A Toin Coss
+
+- Episode date: March 24, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/471-no-such-thing-as-a-toin-coss
+- Slug: 471-no-such-thing-as-a-toin-coss
+
+## Transcript
+
+[00:00:00] Hi everybody, Andy here. Just before we start this week's show we have two exciting announcements to make. The first is about who our special guest is this time and the second is about a live show we have coming up. So firstly our guest this week is the brilliant comedian Rachel Parris. Rachel's been on once before but if you haven't heard of her or you didn't hear that episode she is a fantastic writer, comedian, presenter, musician, you name it. She's an ostentatious, the Jane Austen themed improvised comedy show. She also is in the throes of publishing her first ever book. It's called advice from strangers
+
+[00:00:34] everything I know from people I don't know. She toured around for a year asking her live audience for advice and this book is the brilliant result. It's funny, it's uplifting, the advice rate is from be kind to never pass up the opportunity for a wee. It spans the gamut. It's a brilliant book and it's out in paperback now so do check it out. The second thing to say is that we have a live No Such Thing as a Fish coming up on the 21st of April and this is a global streaming event. Very exciting. We're doing a show at the British Library, the World Hallowed British Library as part of their season special season all about
+
+[00:01:10] animals. It's called Fantastic Beasts and we're going to be having a very special guest on the show and the show will be streamed globally. If you go do nosuchthingasafish.com forward slash live you'll be able to get streaming tickets so you can sign up buy a ticket and watch from the comfort of your own home wherever in the world you are from Kettering to Kalamazoo. All the tickets as I say at nosuchthingasafish.com slash live we hope to see you there. Alright that's it. On with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast
+
+[00:02:03] coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I am sitting here with James Harkin, Andrew Hunter Murray and Rachel Parris and once again we have gathered round the microphones with our four favorite facts from the last seven days and in a particular order here we go. Starting with fact number one that is Rachel. My fact is Dame Maura Limpany remains the only castaway on Desert Island Discs to have chosen entirely her own recordings to be marooned with, which I admire. Me too, bold. Straight in. I feel like I should say straight away like in her defense, it was her second appearance on the show. Her
+
+[00:02:45] first was 22 years earlier and she didn't want to repeat any of her choices. And there probably hadn't been any music in the years. It's the problem, back in the day there was eight songs so that's yeah, that's a big problem. We should quickly say because our British listeners will obviously know what Desert Island Discs is, but we're not the young ones. Not the young ones possibly, yeah, but and international people won't know it either. This is children and foreigners. A new book by Sally Rooney. Yeah, so it's the UK's I believe longest running radio show, if not, it's right up
+
+[00:03:20] there at the top. It's an interview show and the basic premise of it is you bring eight records onto the show, songs you love that mean something to you and then at the end you're asked to make a decision. You're going to be marooned on the Desert Island. What one song are you going to save while the seven other wash away and you get to bring a book and you get to bring a luxury item and it's awesome. It's my favourite radio show. Yeah, and they use that to talk about their life and thoughts and everything as well. So it's really like esteemed, isn't it, in British culture. I think it was Dame Elizabeth Schwarzkopf who did a lot of her own
+
+[00:03:54] recordings. She was a soprano, but it was only Maureen Limpany who chose entirely her own recordings. I read that Schwarzkopf picked seven out of eight, featured her voice and was Dame Maureen Limpany, she was a... She was a pianist. Pianist. Pianist. Okay, okay. Is it pianist? Pianist. Pianist. There's a hinge in Pian. Pianist. Okay. Pianist. To be fair to her, Limpany, she didn't pick songs composed by her. They were Mozart songs and they were Chopin and stuff like that. So they were all classical pieces that she was playing on, but then you get people like Norman Wisdom who is, for children and overseas people, he was a comedian, very big in Albania. I mean, anyone under 80 is going to struggle with Norman
+
+[00:04:36] Wisdom. And what about him? Well, he chose five of his eight as his own songs, but I think his actual own songs don't laugh at me because I'm a fool, stuff like that. Someone who chose three of their own, for foreigners and not for children, was Rolf Harris. Oh gosh. Just for the edit. Wow. One weird one was David Frost, who picked David Frost interviews, so not even music. Did he do the next one? Must have done. I'm not sure that he did, bizarrely. With those people, I do wonder if, was it just a matter of having not thoroughly researched what the program is? Well, it could be. In the early days, I think. It's so eminent.
+
+[00:05:19] These days, being invited on Desedon Desk is basically, in Britain, it's kind of a minor gong. Yeah. It's like getting an MBE or something. Yeah. I'm sure you guys found out that some people have done it twice. That's pretty eminent. That's like double gong. Yeah. And you've got some people who've done it three times. Only two people, as far as I can tell, have done it four times. Oh really? Yeah. Do we get to guess who? Have a guess. Someone like Maggie Smith. Yeah. I would say even more eminent. David Attenborough. Oh, wow. And if you guys guessed the other one without having it, having read about it. Oh, yeah. I was going to try and word by word. Wait, I don't know. Is it one of the Chuckle brothers? It's Barry Chuckle.
+
+[00:05:59] Yeah. And his luxury was Paul Chuckle, which was nice. Sorry. Is it actually bad? No, no, no. Don't do that. I believed you. But it is a comedian, isn't it, from old? Yeah. Arthur Aske. So modern name that cuts a lot of ice today. But like a musical guy, was he? Yeah. Yeah. A really, really famous comedian in the 50s and 40s and 50s. Yeah. The original host was a guy called Roy Plombly who invented it. And he invented it during the Second World War, actually. It was a sort of wartime commission to cheer people up and it was just clearly a good idea. But he was incredibly austere about it. And in fact, he was so controlling that the early shows were scripted. So he would script each dialogue in advance and then they'd just sit and they'd read the script.
+
+[00:06:41] Really amazing. And then that was it. And it was largely just about the music, wasn't it? It was basically like being Zoe Ball and sort of going, let's listen to this next track. It was, you know, they were DJing to an extent. Also, he would ask about whether you could survive on a desert island as in he was incredibly interested in it. He would ask like, can you build your own shelter? Can you fish? Can you swim? You know, what are you going to do about the sun? It was almost purely. It was really fun, I think. Do you know before he pitched this, so he was like 27, I think, when he pitched this and he came up with it. And he thought that it was going to be six episodes and that was it. He thought they paid him quite well. And so it was a shock that it
+
+[00:07:24] lasted for him like 41 years and became this national institution. But before that, he used to pitch shows to the BBC. And one of the shows he pitched was called, I Know What I Hate. And it was a show in which guests choose songs that they hated. And they would just have them, you know, Room 101, basically, I guess, the pre Room 101. Imagine if you got them mixed up and you're Dame Mora, then they would just bring your own songs. Has desert island discs ever had a gap, or has it just run continuously? It has, yeah, the early days it had. And I think these days they only do 40 a year. Oh, right, okay. There are a few gaps. But there was a couple of years of like five year gap where it kind of just went off air altogether. He also did a panel show called Many a Slip,
+
+[00:08:08] which sounds amazing. So in a typical round, he would read out a piece of text, and there would be some grammatical error in there. And the panel had to find the grammatical error. Bring it back. Isn't that amazing? I absolutely love that. I would really enjoy being on the panel for that. Yeah. I was reading the early guests, like the really sort of the first 10 guests they had. So did you guys read at all about Captain Dingle? Sounds great. He was unbelievably interesting. So he's just listed as explorer, right? Dan is very interested by this. Yeah, keep talking. Well, Captain Elwood Edward Dingle was born in 1874. And then he was on the show in the mid 40s. So he's pretty old by this point.
+
+[00:08:51] And he was uniquely qualified to be on the show. Can you guess why? He was especially good. Because he'd lived on a desert island? He had lived on a desert island himself. Or he was a disc. He was both. He was a uniquely circular guy. No, he had been shipwrecked five times in his life. Brilliant. Wow. In 1893. So he was 19. He was in a schooner called the Black Pearl. He and his shipmate were going to retrieve gold from a sunken ship, which had sunk 20 years before. It's the Black Pearl from Pirates of the Caribbean. It's the same one. Yeah, yeah. And so then they got shipwrecked. And it was only two of them in this boat. And they spent 11 weeks on a desert island eating raw penguin and drinking rain. Wow.
+
+[00:09:30] There's some good news, which is that while on the island, they found some other treasure from a different shipwreck. And the two of them got along so badly, these two, that they weren't speaking at all. Like a few days in, they were just not speaking for days on end. Right. It's kind of understandable, isn't it? Yeah, completely. Yeah. This would make such a better episode of Desert Island just because of how difficult your childhood was. Bring it back. Bring back exclusively shipwrecked guys. So who did Dingle's partner do an episode as well to sort of counter BDC balance? What a shame. Can I just say one thing about Plomley?
+
+[00:10:10] His grandfather was called Wright Hayhoe. What? Excuse me? He was called Wright Hayhoe. And his surname was Wigg. So his first two names were Wright, W-R-I-G-H-T. Okay. And his middle name was Hayhoe, H-A-Y-H-O-E. What? He was called Wright Hayhoe. Do we know the story? That's amazing. That's not one of those Bible things, is it? You know how people were named after just putting a... They were just normal names back in the day. Imagine at school, like the teacher goes, right, Hayhoe. Everyone would start packing up.
+
+[00:10:42] So good. There's an episode that Dan will be especially interested in. The Buzz Aldrin episode. Oh, okay. Which we've never heard. Okay. It was during Sulawli's tenure. She's massively respected, obviously. Amazing broadcaster. And she and the production team went to Buzz Aldrin's house in California. And they were setting up, you know, doing all the sort of pre-chat bits. And Buzz Aldrin left the room and never came back. Oh, really? So they didn't make it? Where did you...
+
+[00:11:15] Did they do it in 1969? I've just got to quickly do something. And that's why Lawley was second on the moon, because she was trying to get the interview. That's amazing. Was he pissed off, or do we know? We don't know anything. He just walked out. Okay. I don't know. Someone will know. Buzz will know. Yeah. Let's ask him. Let's ask him. I mean, he came on our show in my museum of curiosity.
+
+[00:11:41] Came all the way over here. We didn't even have to go to California. Yeah, you should have done a reverse Lawley on him. You should have... You should have tied your audience leaves. Alistair McClain, who's a novelist in the 20th century. Like a detective E.U. kind of guy. Where Eagles Dare and Guns of Navarone, huge author, right? And Plomley was a mega fan. He loved Alistair McClain. Really excited. And he arrived and they were doing the pre-interview.
+
+[00:12:08] You know, they were talking about... Just talking about what they're going to talk about. And as they were doing the pre-interview, Roy Plomley realized he was not talking to Alistair McClain, the novelist. He was talking to a guy called Alistair McClain, who was the head of the European Tourist Bureau of the Government of Canada. He must have got the letter and said, can you come on and do the island this? And thought, finally, my work has been appreciated.
+
+[00:12:34] Why have they waited so long? I've got so much to say about Canada. That's amazing. Can you guess what we did? I would say, I think you style it out, don't you? You have to just say, this is the person we've asked. I reckon he just basaldrined it and just walked out. Well, he stuck it out. They just recorded it anyway and then didn't broadcast it.
+
+[00:12:57] Was it just terrible? I have no idea, but I don't think it was broadcast in the end. That's a shame, because it is a format that thrives on just someone you've never heard of, because the songs allow you in. As a Canadian, this guy would probably be quite good at wilderness survival. Yeah, you like some islands in Canada, one of the most islands. Is it? I think that's absolutely heartbreaking for Alistair McClain, the Canadian.
+
+[00:13:21] Imagine you get the letter and you're so flattered and you're like, I knew, actually, that my life did mean something to people. This really validates everything that I've had doubts about, I'll be honest. Years of misery being the head of the European Taurus Bureau. Am I on the right path? Then you even record it and it goes fine. And then it never airs, and you inquire why it's never aired. They must have told him the tapes were burned in a fire.
+
+[00:13:49] I hope so. I hope that's what they said. Yeah, the UK's burnt down, unfortunately. And he'll be like, I can come back, I can redo it. And they'll be like, sorry. No, we're booked up, sorry. Until 2023, you're booked. Yeah. I was wondering how many islands there were in the Pacific, for instance,
+
+[00:14:05] if you put one celebrity on each one, would that have run out now? Could you fit everyone who's been on Desert Island Discs onto their own? I think even just in the Pacific, you would easily be able to do it. Wow, amazing. Yeah, but it wouldn't be good for the local flora and fauna. Yeah, why not? Well, Desert Islands, usually, they have lots of species on, because there's no humans, there's no cats, there's no rats,
+
+[00:14:28] there's no, so it's quite good for species. But if you put, you know, Barry Chuckle on. The insects will be hurting themselves on the pane of glass. He's accidentally smashed, carrying. There's a story, Herbert Morrison, who was a politician, he was sort of under Clement Attlee in his government. He, when he died, he was found to have his eight songs in his wallet waiting. Should he ever be called at moments noticed to suddenly appear on Desert Island Discs?
+
+[00:14:57] That's lovely. I think quite similarly, I have on purpose learned all of the words to trouble by Iggy Azalea, just in case I ever get asked to do Celebrity Lip Sync. No way. Is that with Jennifer Hudson? Yeah. Because I know the chorus. I will be your great.
+
+[00:15:14] You can be Jennifer Hudson, I'll be Iggy Azalea. Is this very much the same and equal esteem? I, um, I've actually learned a lot of ice skating moves in case I'm ever invited on. Yeah. I don't even know the name of the show. I've actually been practicing eating kangaroo testicles for the last five years, just in case. It's a must of mine. Kangaroo snackers.
+
+[00:15:43] Stop the podcast. Stop the podcast. Hi everyone. We'd like to let you know that this week we are sponsored by Augusto. Yummy. Gusto is the bring it to your house box full of food that you can take recipe cards out of and turn yourself into a Michelin level, my words, chef by enacting what's written on the cards. Michelin level.
+
+[00:16:06] That is something. In this house, in this house, anything above baked beans on toast is Michelin. I see. It's comparative. Well, no matter what your current level is, you could definitely improve by getting meals from Gusto. They have over 250 recipes every month that you can choose from and it makes it much, much easier to plan your meals. There's very, very little food waste and you can have them delivered to your house at any time of the week.
+
+[00:16:34] That's right. James, I've just started learning how to drive a car. Gusto is very similar. It just slowly builds you into a chef as you eat meal by meal. It's really amazing. And if anyone would like to try it, all you need to do is go to gusto.co.uk and use the offer code FISH and you'll get 60% off your first box and 25% then of all boxes for two months. That's right.
+
+[00:16:56] So head to gusto. That's G-O-U-S-T-O.co.uk and use the offer code FISH. And Dan, can I ask you about these driving lessons? Are you expecting to become a Formula One driver maybe just after four or five lessons? That's what I'm telling my kids. Okay, on with the podcast. Not on with the podcast because we are also sponsored this week by Squarespace. That's right.
+
+[00:17:19] Squarespace is the place to go if you want to start your own website. It is an incredible place. It's so easy to use and there are so many product features. They have members areas. They have appointment scheduling. They have video studio email campaigns, connected social media accounts, analytics, all sorts. And that is just the start. I know.
+
+[00:17:39] Do you remember back in the day when we used to push adverts for build your own website? There was like four features. This is everything you would ever need for a business. You've got everything from online stores through to custom templates. This is a whole new world. This is very exciting. And if you do have a website you've been meaning to make, this is the place to do it. So all you need to do is head to squarespace.com slash FISH.
+
+[00:18:02] You'll get a free trial. And then when you're ready to launch, use the offer code FISH and you'll save 10% off your first purchase of a website or domain. That's right. So go to squarespace.com slash FISH. And when you go there, you will get your free trial. But in addition, when you're ready to launch, use that offer code FISH to get 10% off your first purchase of a website or domain
+
+[00:18:24] and get all of those features on with the podcast. On with the show. Okay, it is time for fact number two. And that is my fact. My fact this week is that a man called Mike Merrill found making decisions so hard that he floated himself as a publicly traded person. And for over a decade now has had over 800 people making his decisions for him. Great.
+
+[00:18:52] Very clever. So this guy, yeah, so this was back in, I think it was 2007. His career was sort of at a point where he wasn't knowing fully what he was doing with his life. So he decided to separate himself into 100,000 shares and float himself and ask the people who were interested in purchasing these shares at one buck a piece, would you like to make the decisions for me? Ironically, that is quite a big decision to make.
+
+[00:19:19] And he kept the majority shares, right? Yes. But he made his majority shares non-voting. Oh, I see. So he didn't have any sway. So no one can own him. Yeah, no one can own him. But he doesn't have to make the decisions.
+
+[00:19:34] That they can rule him. Exactly, they can rule him. But he throws up the question that he needs deciding. So it's not like they can just say, we've decided this week we want you to dye your hair pink. He has to say, should I dye my hair pink? So he set up a website, it's called k-mikey-m. And you can go, I went to it in the course of doing the research. I tried to buy some shares, but none are up at the moment,
+
+[00:19:54] because he's very popular at the moment. He sort of releases them in small batches on demand, and they fluctuate with the demand. So they could be anything as low as 99 cents, but they can go all the way up to $18. That shares for you? Yeah. And there was, well, I mean, it was...
+
+[00:20:09] Has anyone made a big profit on Mike Merrill? Yeah, his brother, who sold when he got to a high point. Really? Yeah, he sold all his shares and bought a new dishwasher, I think, or something. He did. He does make the decisions about what they vote on, but when he moved in with his girlfriend, he got complaints from the shareholders who said,
+
+[00:20:30] this is a decision I think you should have consulted us on, because he's definitely going to affect your life. It affects the value of him, doesn't it, if you get married? Because someone else is then not making decisions, but helping him make decisions, as in if you're living with a partner, you do chat stuff over with them, they might have an influence on you.
+
+[00:20:47] Well, the other thing is, shares depend on how much he's valued at, right? And his value is going to change when his life changes. So the amount of money you have changes when you get married, it might change for the better or for the worse. But are you saying his value would either soar or crater when he moved in with a girlfriend? 00:21:06,600 --> 00:21:07,080 It's plausible.
+
+[00:21:08] But it's your value on different markets, isn't it? So on the dating market, your value is... It sinks when you're... Does it sink when you... Up from supply and demand, you would think it would increase. Well, some people say that. Some people say, oh, no one's interested in you, and tell you that you move in with a partner,
+
+[00:21:23] and then suddenly everyone's after you, you know? Yeah. But then... Is that your experience? No. So you're backfired. My experience is total indifference. You can maintain very nicely consistently.
+
+[00:21:34] Thank you. When this happened, and he had to explain to his girlfriend that he had to consult his shareholders, he issued her with a relationship contract that she had to sign. What? Which sounds bonkers. But I'm reading that this is quite bonkers,
+
+[00:21:52] but also relationship contracts instead of getting married or before marriage are very much on the rise the last few years. Especially, I think. In the relationship contract, do we know any details or is it simply... I don't know the details of that one. I did want to tell you, though, about another relationship contract that was in the news recently.
+
+[00:22:10] So the independent reported that Shailene, someone called Shailene, or at Salami Queen on TikTok made headlines because she made her boyfriend sign a relationship contract that said that if he cheated on her, he had to pay all her bills. Indefinitely. But that's the thing I put for how long.
+
+[00:22:28] I don't know what he said, and her comment on it was, I'm so smart or crazy. I don't know. That's the Salami Queen. Hold off and cart that, I think. She was unconscionable to me. Apparently, it was a legal contract,
+
+[00:22:44] and yet I don't know if the contract just said pay her bills with no other parameters. You've got to define the terms, haven't you? You've got to define what cheating is. Yeah, exactly. You know? Is it casting a flirty glance at someone in which case he's going to be paying bills pretty quickly?
+
+[00:22:58] Is it hiding money underneath the boarding monopoly? Right. Yes. Is it making a cup of tea quietly? So you don't have to make the other one a cup of tea. Is it with sleeping with someone else? We don't know. Something like that, we don't know.
+
+[00:23:15] Did you hear about Patrick Campbell? No, no. So he owned a company called Profitwell.com, and he sold it in 2022 for $200 million. And he decided to do a hostile takeover of Mike Merrill. And he has since bought 15% of Mike's shares. And he reckons, because you can tell how often people vote,
+
+[00:23:38] and usually his shareholders, Mike Merrill's shareholders don't vote. Most of them, it's just a joke, and they might vote once or twice, but they don't really do it. This guy, Patrick Campbell, reckons that with 15%, he has enough power to influence all the shareholder votes,
+
+[00:23:51] and he can basically tell him to do what he wants. Wow. Wow, that's amazing. That's exciting. But he's still got to only tell him to do what has been presented. So Mike can still only ask certain questions, and it's up to him.
+
+[00:24:02] But he basically now reckons that he will have the deciding vote on any question that he's asked. He reckons Mike's undervalued at the moment. Well, here's the kind of things that he's probably influencing his decisions on. So he would have possibly been part of the decision
+
+[00:24:19] of whether or not Mike invested in a Rwandan chicken farming business that was approved by the shareholders. Grow a winter mustache. That was denied. No winter mustache happened. Cold upper lip for Mike. They decided on whether or not
+
+[00:24:36] Mike believes in ghosts. He asked, do I believe in ghosts? They voted on whether or not he does. 66% said, yes, you do. So he does believe in ghosts. I'm sorry, I've been on board with this. Until that makes the whole thing look ridiculous. It does, yeah, yeah, it does.
+
+[00:24:51] I found it interesting that when he made the decision to embark on this, he valued his life at $100,000 and sold shares on that basis. But that was a very low calculation compared to what economists value your life at. Because they have to calculate this in terms of what the government make decisions on.
+
+[00:25:12] Officially, economists think the average human life in the US is worth about $8.7 million. Really? Yeah. Wow, that's a lot. It varies a little bit. I'm rich.
+
+[00:25:23] So like the Environmental Protection Agency uses $7.4 million, another one uses $9.6 million, but there is a figure on it. How does Andy get at this point? Yeah, I'm theoretically loaded. I don't know that you can access it, but it has a huge...
+
+[00:25:36] What if he cuts off his leg? Yeah, he's got a worth of $1 million. On the open mark. Wow. But I found it so interesting what this means to us in terms of rulings in government. So for example, in 1972,
+
+[00:25:53] the auto industry put a life's worth at $885,000 in today's dollars. And then two years later, the figure was more or less the same, the Department of Transportation rejected a regulation to install bars at the rear of trucks to prevent passenger vehicles
+
+[00:26:10] from sliding underneath them. So a safety measure for trucks was rejected because they did the maths on it and it wasn't cost effective because the lives that it would save weren't worth it for the price that it would cost to install them.
+
+[00:26:23] That's so interesting. Which is bleak, isn't it? Bleak. It's like it would save so many thousands of lives, but they weren't worth enough for them to do it. I guess there's got to be some kind of calculation. Is it like,
+
+[00:26:36] sorry, sorry, sorry, sorry. You're making decisions about your unlimited amount of resources, all your income in the country, and you're trying to maximise the human life. We all agree I'd rant. But is it like if you're mountaineering and you know, you get lost
+
+[00:26:53] and the government are like, well, he's actually already had $3 million because we put him up in hospital that time. If you're in one ravine and in the next ravine there's a lot of Bitcoin. It makes more sense for the government to go for the Bitcoin. Yeah.
+
+[00:27:08] Depending on how Bitcoin's doing, you know, it's very variable. Yeah. Food for thought. I mean, food, big food for thought. You know, the calculation was actually, there's a bit more to it, the 100K. So it wasn't that he thought that was his full life
+
+[00:27:23] that was worth that amount. He calculated it based on the fact that he had a day job and that this decision-making was only going to apply to his free time. So 100K is based on his nights and his weekends. So yeah, there's still, so if you round him up, it's still low.
+
+[00:27:38] It's still, he'd be about a mil, just under a mil maybe, I guess, for the rest of the, and there's bleed between your, you can't separate those perfectly. As in if you grow in the start, that will affect your job. Depending on what you do for a living.
+
+[00:27:48] If you believe in ghosts. Exactly. If you work... It's a 24-7 activity. He works at a creepy old house. This is true. Yeah. Yeah.
+
+[00:27:56] I think it's harder to make decisions everywhere, for everybody at the moment, because there's a thing about how many more decisions you have to make. So there's an economist called Eric Beinhacker. I think it was very eminent and famous and he wrote a book. It was a huge sellout about this kind of thing.
+
+[00:28:10] And he had estimated that between 10,000 years ago and the modern day, human choices had multiplied 100 million fold. Wow. Oh my God. I have five or six different eye creams in my bedside table.
+
+[00:28:24] Okay. And every night, I choose one of those five or six eye creams. Based on mood. Yeah, based on mood. Right. Based on vibe. And I sort of enjoy that process.
+
+[00:28:36] Yeah. Yeah. That's just one of the many examples. Yeah. I've walked 40 minutes near the office wondering what to have for lunch. Yeah. And I've gone into four places
+
+[00:28:46] and not had lunch in any of them. Back in the day, Andy, you would have been walking around the jungle going, shall I kill that buffalo or shall I go after that? Exactly. That lemon. Probably took the lemon the other day. Returning it when it doesn't taste as good.
+
+[00:29:01] Yeah. So a bit of a habit of Andy's. Right. Sorry. Remember the time you returned that sausage? I once. One time. I once went back to a local restaurant.
+
+[00:29:10] And it wasn't because it didn't taste good. It tasted great. Was it a single sausage? Well, yeah. And I was 11 pounds down on the transaction. A single sausage. I ask you. We must have the picture of you on the door
+
+[00:29:22] when you walk in and say, do not allow this man to return his sausage. They gave me another sausage in the end. But by that point, the whole transaction was so spoiled. You know. Yeah. I wasn't able to enjoy either of the two sausages I ended up taking away.
+
+[00:29:33] Yeah. I like that you holding a fork with a sausage on the end, walking around the restaurant trying to find the manager. Tutting. Well, it was a takeaway. So I actually had to go back in. He came in. So you take the box on trust, don't you?
+
+[00:29:51] I'm sure this is a nice test. You take it away. You open it up. I think this is ridiculous. Yeah. Was it a hot dog? Painful, no. No, it was just a sausage.
+
+[00:29:57] Rachel, it was a sausage. Why did you buy a sausage to take away? It was a sausage. I don't understand the meal. It was a sausage and rice. Okay. It was so depressing. It was still odd.
+
+[00:30:08] It was a very nicely spiced sausage, but it was still ridiculous. What was wrong with it? It was too small. It was two, it was 11 quid. One small sausage for 11 quid. This was about five years ago, I should say. This was before the cost of living crisis.
+
+[00:30:20] Yeah. You know, at the time, sausages were going for like two quid. You know, this was ridiculous. Yeah. This is ridiculous. So you didn't think you were getting your money's worth? I did.
+
+[00:30:28] And I went back and I ran it straight for quite some time. But you stay. I mean, we had a good 20 minute chat here where you were deciding whether or not and building the fury. I mean, this is not me remembering a random thing. This was a big incident. This was sausage gate in this office. I've just got a couple of things on decision making.
+
+[00:30:46] One of the great ways of deciding is just coin flipping. So many things in history have been decided from just getting a flip of a coin. So, you know, the company Packard Hewlett. Who you like? Packard. That's right, because he won the Toinkos. And that's the way he got named that.
+
+[00:31:01] It could have been the other way around. We could have had Packard Hewlett. Did you say the Toinkos? That's, well, and that could have been called... That was a coin toss. That wasn't that way around as well. We went that out with a computer, didn't they? Yeah.
+
+[00:31:13] So we've got Hewlett Packard off the back of that. Portland, we've all heard of Portland, the city in America. Yeah. That was meant to be called Boston. But they lost the Toinkos. The Toinkos? What? What was that saying, Toinkos?
+
+[00:31:27] We don't keep saying it. Should we call it a Toin? Great. Yeah. So that should have been called Boston. Wait, they were trying to call themselves... But what did Boston have to say? I don't think Boston was called Boston at that point.
+
+[00:31:40] Oh, okay. I'm guessing. Oh, James thinks it is. I think what Boston's very well-known. Portland was found. They were called Boston. Why would they have called it Boston then? That was just another thing.
+
+[00:31:48] Just another Boston. Okay, right. Yeah. Yeah, the Wright brothers as well. So Wilbur Wright... We're going to be called the wrong brothers as well. Should we go in the air or should we go underground? So Wilbur became the first person ever to fly a plane because of a Toinkos.
+
+[00:32:17] And but this was an unfortunate one because Wilbur's first flight didn't go. It didn't work. So the second flight then went to Orville, who then became the first person to fly a plane. So sometimes it can go against you. Yeah. And that's why the duck was called Orville and not Wilbur.
+
+[00:32:32] Was it? No. No, no. He famously couldn't fly Horville the duck. I wish I could fly way up in the sky, but I can't. You can. I'd like to pick that Lauren as my desert island. Thank you very much.
+
+[00:32:48] That one's going out for the children and the foreigners. Okay, it is time for fact number three and that is James. Okay, my fact this week is that according to a survey of pubs in 1930, the average time someone in Bolton took to drink a pint of beer was 52 minutes. In Liverpool, it was 22 minutes. 52 is a long time. 22 is quite speedy. I'm in the like 10 to 15 mark, I reckon.
+
+[00:33:20] Well, on average, like if you have five pints in a night, it slows down, doesn't it? Yeah, okay. So I read this in a book called Darts in England 1900 to 1939, a social history by Patrick Chaplin, which I've mentioned before, which is an amazing book, which is mostly about darts. And he really does talk about darts quite a lot in this context as well, because it was related to a thing called mass observation, which was it was this thing in Britain where they got a panel of observers
+
+[00:33:51] and they made a diary about what was happening in their day to day life. And the idea is they do it over time and in different places. And it would give an idea of what was happening in the country. But anyway, there was this thing in Liverpool that they banned darts and actually any pub games. And they thought it was encouraging people to go into pubs. And so they wouldn't let you do it. In fact, Liverpool was the only city in the country where no one played darts in pubs. But what happened was it had the opposite effect.
+
+[00:34:18] Because you couldn't play darts or pool or dominoes or whatever, you had no distractions. So you just drank more because you didn't have anything. You know, if you're playing darts, you have to go and collect the darts and come back and stuff. And it's and you're not drinking. Whereas in Liverpool, they were just getting drunk. Then eventually they brought sports back into pubs in Liverpool. Whereas that is that why?
+
+[00:34:37] Yeah, because in Bolton was famously at the time, a lot of people played darts and played pool and stuff and still do. That's really interesting. This is weird because I was separately reading about pubs in Bolton. But I got a fact from the mass observation study. Oh, really? Yeah. So it was in this one was in 1937 and 38.
+
+[00:34:56] I don't know whether is that about the right time? Yeah, 30s. So and yeah, as James says, massive survey of people. But I think they didn't have many people who were from Bolton doing the study. Yeah. So what they did was they got a lot of middle and upper class southerners who dressed as northerners and put on accents and went incognito in pubs in Bolton and just drank.
+
+[00:35:19] And you reckon they got away with that? Because I'm from Bolton and I don't think they did. I just wonder what it was like. What were they doing? They were observing for the mass. I think observing in people's behaviour in pubs and recording and to say, you know, what was said. So I just a couple of nice details from this study.
+
+[00:35:36] One observer who was EL in the notes was rendered incapable of doing any observation after drinking eight pints in an hour and 45 minutes. They got into a lot of fights. It was all kind of glossed over. I think it was a pretty inglorious. I mean, if you're a middle class or upper class person from the south going to the north, dressed as a northerner and doing a fake northern accent, you're going to get in fights. And they also had a cova photographer in the corner.
+
+[00:36:03] What dressed as a whip here? Taking secret pictures, I guess, of the fights as they broke out. So funny. Do you want some pub slang? Sure. Quiz. Pint hole. My mouth.
+
+[00:36:16] It's not the mouth. Oh, dear. How are people drinking pints? We need a funnel. Pint hole. Is it like the cellar where you go and get the beer from? This is actually the least good answer of the three that I've got. It's just the public bar.
+
+[00:36:33] All right. A wobble shot. Wobble shot. Wobbling, like, you know, unsteady because you're drunk. It's just another word for a pub again. It's an unlicensed pub, apparently. It's down the wobble shop. Do we get unlicensed pubs?
+
+[00:36:48] Well, they're not loud. But it's quite bold to be calling yourself a pub. All right. This one's hard, but it's good. You're an admiral of the narrow seas. Okay. Does it just mean drunk? It is something you do when you're drunk.
+
+[00:37:06] You sway like you're on a boat. Very nice. No. Buy some stuff off eBay that you really shouldn't buy. That's it. That's it. No, it's drunkenly throwing up into someone else's lap. All right, but admiral of the narrow seas.
+
+[00:37:19] You can say. It's okay. I'm qualified. Take it up with the Navy. Come on, Captain Dingle. Let's get out of here. There's a pub in Bolton called the Old Madden Saif. We talked about Bolton before.
+
+[00:37:33] It's possibly the oldest pub in the country. It's certainly in the top 10. And there's a mention of its name from 1251. So we know it's at least that old. But it's where the Earl of Derby was executed in 1651 for his part in the Bolton massacre. This was during one of the civil wars. And there's a chair there.
+
+[00:37:50] It was the last chair he sat in before he was beheaded. Wow. At the pub. It's in the pub. Yeah, it's quite very famous in Bolton this. And they have 53 ghosts in this pub, apparently, including a ghost dog that's known to lick the manager's feet when he lets them hang out of the bed
+
+[00:38:08] in the middle of the night. Oh, good. Well, Mike Merrill, if you're listening, you need to get there ASAP. But that's a lot of ghosts for one pub. It's an old pub, though. It's from 1251. So, you know.
+
+[00:38:19] Oh, that's, yeah. Because as I was looking into is that the most, there's usually the most haunted everything in Britain. And I couldn't find pub. And that, and then the ones that I read didn't have, they had like four ghosts. So that's huge. I would imagine with pubs, unlike houses or hotels or anything,
+
+[00:38:36] because you don't stay there overnight, it's a lot less spooky, isn't it? Because you can just leave. Do you know what I mean? Like, it's such a fleet that you go to the pub for a few hours, but then you go home and also it's like busy and social. So, I don't know. It's got a lot less spook factor to it.
+
+[00:38:51] But most pubs outside cities would have rooms, wouldn't they? And, you know, there are taverns, you know, Jamaica Inn, that kind of fine spooky old pub up on the moors. And, you know, there's dark business going on there. I've been to the pub that's based on Jamaica Inn. Yeah, I accidentally backed into someone's car. Wow. Are you the real pirate?
+
+[00:39:09] I know. Well, I went into the bar and told them that I did it. Oh, okay. There was no problem. But yeah, I've been there. And also, I've been to what I think is the most haunted, or they say it was the most haunted, which is the mermaid in Rye, which has got a billion ghosts in it.
+
+[00:39:24] What, Rye and Sussex? Yeah, or Kent, it's on the coast, yeah. Rye's in Sussex, yeah, yeah. Rye is a lovely town. It is, very nice. The mermaid's a lovely pub. You've been to quite a few supposedly haunted places. Yeah, I'm a big fan of them.
+
+[00:39:37] Maybe. I've got a little purpose. I don't believe in any of it. Maybe you're a ghost. That's spooky. Maybe you're Hailey Joel Osmond. I don't know. Grown up.
+
+[00:39:47] Six cents. Oh! He's the kid. Sorry, right. I was watching clips from the Sixth Sense the other day, and that joke still went over my head. Sorry. No, no, I love it.
+
+[00:39:58] Thanks for calling it a joke, though. I was just looking into drinking beer fast, which is related to what you're talking about. Yeah. So before we get to beer, the fastest drinker of a fizzy drink, certainly, is a guy called Eric Badlands Booker. Such a sexy, outlawish name,
+
+[00:40:21] because obviously you could just drink fizzy drinks fast. Yeah, yeah. He drank a litre of Mountain Dew, the American fizzy drink, from a measuring cup in 6.8 seconds. What? And previously, his record was drinking two litres in 18 seconds. That was just last year. But I came across this guy who is a British man
+
+[00:40:41] called Peter Dowdswell, and he has not only got the record for drinking a pint of beer the quickest, but he's got records in so many food and drink speed competitions. So he had to retire a few years ago when he suffered back and shoulder injuries as he tried to sink a pint while being held upside down. He was 71.
+
+[00:41:10] You were 71? 71? Yeah. Oh my God. He was dropped twice by the men who were employed to hold his legs. Who was holding him? Yeah. That's amazing.
+
+[00:41:20] So he holds like all, he's gone through, he's really like belt and braces. He holds the records for drinking ale, beer, coke, champagne, milk, and milk upside down. And he holds records for eating quickly, raw eggs, cocktail sausages, pies soaked in Worcester sauce, sushi, wieterbix, sausages upside down.
+
+[00:41:46] And my favourite, eating quickly, sausages on John Evans' head. Okay. What? Do we know John Evans'? No, I don't know. I don't think we're meant to know. Right. Actually, I am impressed by that because it's hard,
+
+[00:42:01] I would imagine, to eat a sausage off someone's head because heads are not plate shaped. Oh, you see, in my head, he was sat on the guy's head. I thought he was sat on. I think you're right. I think you're right. Sorry, you're correct. I'm sure you're right.
+
+[00:42:14] Evans is probably not a plate. I think either could be possible. I don't know. Do you know that the, I was reading about pub quizzes and that when they existed, when they first came about. And if you look at the internet, it says that they came about in the 1970s. But I found in the newspaper archives,
+
+[00:42:32] there was definitely one happening in 1954, in Neath in Wales. So we reckon around just after World War II. But probably they didn't exist in 1947, because I found an article about a pub quiz in Sunderland. And this was, they advertised it as the pub quiz. And what it was is young people could go to a pub and ask a panel of married people about the intricacies of sex.
+
+[00:42:58] And that was called a pub quiz. That's amazing. It was not amazing. Quizzing someone as in asking them questions. Yeah, yeah, yeah, yeah, yeah. That's, I could do with that. Is that still a thing? I think any good pub quiz master will be able to answer
+
+[00:43:11] some of your questions, not all of them. I didn't have to do it between the rounds as well. But yeah. And I think it's like World War II had just finished. They're trying to get the population up. That's amazing. Young married couples got questions, so they... That's so cool.
+
+[00:43:26] God. She just finished the music round. Any questions? Dan sticks it hands up. Yeah, it's foreplay stuff. Is sexual or optional? I wonder what the questions were that were asked. I didn't say it was just like,
+
+[00:43:42] this is a thing that's happened in the newspaper. That would be great if you could ask married people what it's like. Well, can you remember what it was like? I think I remember a question when my mum told me about sex, when I was, I don't know what age, I think I was nine or something. I think I remember, she described it to me,
+
+[00:44:08] and I think I remember asking, how do you both move at the same time? Which I still think is quite a valid question. I don't know, I've never had sex, but... The answer ultimately, you know, you just sort of works most of the time. Just kind of happens, yeah. Did you, the very first time, say to someone,
+
+[00:44:33] hey, don't worry, I know what you're thinking, but I've got it covered. I spoke to mum, she explained it. It will work. It's a to-me-to-use situation. The Chuckle Brothers were the greatest lovers in history. Stop the podcast. Stop the podcast.
+
+[00:44:59] Hey everyone, this week's episode of Fish is sponsored by LinkedIn Jobs. Imagine you're looking for someone who works in comedy, has science-y kind of backgrounds, does facts, and then you get me. Absolutely. The one place you can go to, make sure you get the James Harkin, rather than the Dan Shriver when you're trying to hire,
+
+[00:45:15] is LinkedIn Jobs. LinkedIn Jobs is really easy to use. It's really easy to create a free job post, and when you do so, you basically, you add this purple hashtag hiring frame to your profile, and that spreads the word that you're hiring. Yeah, that's so cool, because if you're just on your LinkedIn and you're looking through,
+
+[00:45:33] every time you see that little purple frame, you instantly know that this is a job opportunity, but it's even better for the person with the purple frame, because they've got then all of these tools to help make sure that they've got the right person. They've got screening questions that they can focus on the candidates so they can find the right skills and experience,
+
+[00:45:51] and they've got options to quickly prioritize who they want to get to the interview. It's a really perfect way to reduce the risk when you're hiring. Absolutely. Small businesses rate LinkedIn Jobs number one in delivering quality hires versus leaving competitors, and you can post your job for free
+
+[00:46:07] by going to linkedin.com slash fish. That's right. Don't get stuck with the shrubs. Find your harken today by going to linkedin.com slash fish and post your first job for free. Terms and conditions apply. Okay, on with the podcast. On with the show.
+
+[00:46:31] Okay, it is time for our final fact of the show, and that is Andy. My fact is, when he was approached for the role, the first actor to play Mr. Blobby was simultaneously appearing in Shakespeare's Measure for Measure. I just imagine him turning up in the wrong outfit. I wish I knew any quotes from Measures for Measure.
+
+[00:46:55] You meant you were playing the Duke of Venice. So this is about Mr. Blobby, and I think for international lessons we should just quickly say... Our children. Mr. Blobby is kind of like one of the national animals of England, I would say. He's a big pink object, humanoid creature.
+
+[00:47:15] And yellow. Pink and yellow. He's seven feet tall, he wears a bow tie, and he screams Blobby, Blobby, Blobby. And he wears a big inflatable suit, and he just turns up on TV and causes mayhem. And I think he... Mr. Blobby doesn't wear a big inflatable suit.
+
+[00:47:28] Mr. Blobby is the inflatable suit. It's not like inside Mr. Blobby there's a smaller Blobby. No, inside there's a man who it turns out is classically trained. Inside there's just a very big heart. Thank you. So basically, Mr. Blobby's been having a bit of a moment because he was really big in the 90s,
+
+[00:47:45] and he was on a thing called Noel's House Party, hosted by Noel Edmonds. And he's been sort of back in the news recently, just there's been a few sightings of him, and there's been a costume put up on sale and all this. And I was reading this piece in the news statement, Beautiful Piece, by Stuart McConey, all about Mr. Blobby.
+
+[00:48:02] And I just wanted to read you this line. I think maybe the most beautiful thing that's ever been written about Mr. Blobby. Malice and stupidity were never far from Blobby's puce bulbous surface. There was surely something of Antonin Arthaud's Theatre of Cruelty in Blobby's defiantly senseless, nihilistic interventions.
+
+[00:48:20] He's such a great writer. He's great. And so he basically, he would just cause absolute mayhem and break things and, you know, sit on people and throw them and get in fights. Yeah. What was the name of this guy who played him? He was called Barry Killaby.
+
+[00:48:34] Barry Killaby. And he's gone off and done other things. He's done bits of acting. He was in ChuckleVision, for instance, with his Chuckle Brothers on one stage. Yeah. Yeah. And just before COVID,
+
+[00:48:45] he put on a one-man theatre show about the final days of Harry Houdini. Again, not in the Blobby costume. He was just doing that. But he has come back and he is doing the Blobby from time to time. He still goes into the Blobby suit. The reason being that actually there's a lot of acting
+
+[00:49:03] is, you know, it's a difficult thing to do to get the point across when you're in a massive suit. But recently he was on This Morning on ITV and he was punched in the stomach by Maggie Philbin. And the article said that he let out a piercing scream and fell down like a sack of spunts. Now, what I find interesting about that is that Barry had just done a play about Harry Houdini.
+
+[00:49:25] How did Harry Houdini die? He was punched in the stomach. He was punched in the stomach. Oh, yes. Barry must have thought it was the end of his days. Wasn't it? Yes. Oh, it's happening again.
+
+[00:49:35] Does Blobby have an appendix? Which I think Houdini had appendicitis and that's... We don't know about Blobby's organs. We don't know about the organ structure of a Blobby. No, we don't know. That's very exciting. That's really... Oh, God, what a spot. That's interesting.
+
+[00:49:48] What your mind does because I definitely thought that Houdini died from getting trapped in one of his boxes with chains wrapped it. And that's obviously something I've just invented in my head from films or something. That would be a good dramatic irony. Yeah. Barry was just...
+
+[00:50:03] Well, we're talking about his sort of other life outside of Mr. Blobby. So he was married once and then he and his wife broke up and then he got together with someone else. And do you know who it was? Miss Blobby? It was Mr. Blobby. No.
+
+[00:50:20] Yeah, not Mrs. Blobby. Mr. Blobby. So he was split from his wife and he was invited down to the staging of the crinkly bottom castle show. So crinkly bottom is where Noel's House Party took place. It's where it kind of... It's a fictional village.
+
+[00:50:34] Fictional village. And they opened up a theme park. They did three in total, which were basically Mr. Blobby theme parks. And part of it was that obviously Mr. Blobby's a character there. So Barry got invited down to teach all the aspiring Blobby's how to move inside the suit.
+
+[00:50:49] And one of the people, one of the Blobby apprentices was this woman who he then got on with and they ended up getting together and moving in with each other. So yeah, he's with another Blobby. Yeah, just stuck it out. I mean, I want to know so much about the story.
+
+[00:51:04] I want to know what Blobby Academy was like. I want to see a boot camp montage of Blobby's school. And then I want to see the moment where she takes off the Blobby head and he realises, oh my God, you're the love of my life. And they lean into kiss, but they can't quite make it to this reason. I looked at other trained actors in costumes like that.
+
+[00:51:27] So Teletubbies, Simon Shelton played Tinky Winky and he was a trained ballet dancer and choreographer. I mean, many of them, you know, they're just classically trained actors and often dancers because of the movement. And I don't know if I think we've all got boys, haven't we, little boys? I've got a girl.
+
+[00:51:49] Oh, you've got a girl? Oh, yeah. But does anyone actually delete all of this because it's completely irrelevant to what I'm about to say? But in the Night Garden. Oh, yeah. So that's my dad's favourite show. Yes.
+
+[00:52:00] Yeah, my boys love it. It's Billy's favourite show. Iggle Pigle is played by Nick Kellington, who also starred in two of the recent Star Wars films and The Dark Crystal. Whoa, is that right? It's quite a range. Wow.
+
+[00:52:13] I read the other day that Little Monster from Justin's house while we're on there was also in Jurassic Park, like one of the new Jurassic Parks. Okay, right. A dinosaur. No, so Little Monster's like a little Muppet thing. But it's the person whose hand is up,
+
+[00:52:29] Little Monster was also on the dinosaur. Wait, so were you watching Jurassic Park and some random guy goes, could I get the, and you're like, I know that hand. That's brilliant. Didn't Barney the Dinosaur, he went on to become a Tantric sex instructor? The guy who played the witch.
+
+[00:52:47] There was some controversy wasn't there with Barney the Dinosaur. Was that what it was? I think that's what he did. That's so interesting. Because there was a New York Times article about Mr. Blobby in the 90s saying, what the hell is this thing in the UK?
+
+[00:52:58] And they compared him, they were saying he's basically Britain's Barney. Yes, he's very similar except with chaos because Barney's a very measured safety, health and safety guy. I was reading a piece comparing the two. The Fence magazine, which is a brilliant magazine, it said Blobby was a dark mirror to Barney the Dinosaur.
+
+[00:53:17] And a later Blobby called Paul Denson said he was a reaction to that to Barney the Dinosaur to say, what would England have if it was shite? And that's what Mr. Blobby is. That's so funny. He was created by a man called Michael Lego. What? Yeah, I just like that.
+
+[00:53:37] Yeah, just in keeping with kids, he was called Mr. Lego. Oh yeah. Can I just say one more thing about In the Night Garden? Yeah. It's worth just mentioning while we're on this topic that obviously the narrator of In the Night Garden is National Treasure multi-award-winning Sir Derek
+
+[00:53:52] Jacobi. Yes, that's right. So you've got this, you know, absolutely hugely famous fantastic actor going Is that a pip? He goes like this all the time. But they're all like that, aren't they? It's like who does the clown?
+
+[00:54:13] Is it someone really famous? That was Olivier. Late Olivier. What was that? Yeah. Blobby. Oh yeah. I can't go again.
+
+[00:54:23] Please, Mr. Sorry. I'm so sorry. How familiar are you with him? I'm not. I'd love to meet Blobby. It's kind of hard to overach how much a big thing Blobby was in the 90s in Britain.
+
+[00:54:34] So was he? So I wasn't here. Huge. Yeah, right. Huge. Oddly huge. Okay. Let's, Dan, you want some stats?
+
+[00:54:41] Yeah. His Christmas single in 1993. Yeah. Sold 600,000 copies, which is pretty good. Thank you. Got the Christmas number one. Yeah.
+
+[00:54:50] Nearly didn't, was knocked off the top spot by Take That The Week Before and then reclaimed it the following week to get the Christmas number one. Yeah. Merch included lemonade, bubble bath, knitting patterns, pasta, lampshades. I mean, anything you can imagine had Blobby put on it.
+
+[00:55:04] One of the businessmen evolved so that they'd done some research in the 90s and found that every household in the country owed at least one piece of Blobby merchandise. Wow. That must have been on average. I think it was. Because we didn't have any growing up.
+
+[00:55:17] Had two. Exactly. There we go. There we go. The system works. Rachel, how many did you have? None. Oh, okay.
+
+[00:55:22] Okay. Anna will have had two. Yeah. Yeah, yeah. Knowing Anna. I was trying to look into, I'm sure everyone else did, other similarities between Shakespeare and Mr. Blobby.
+
+[00:55:33] What a great idea. And I couldn't find many. I found a couple. One is that, one thing they share is that, so this theme park stuff I was talking about, there was an abandoned place of one of them and one of the houses there that survived was called Dun Blobbyn House,
+
+[00:55:50] which is what he, is that where he lived? Dun Blobbyn House? Blobby if he had a house. Well, this was his house in the place. And so they left it and it was abandoned. And so what would happen is, is that ravers would come and have parties
+
+[00:56:03] all night long in it. And they would just use it as an abandoned party house basically. And so the local guy who owned the area was so pissed off that people kept coming that he smashed it down. Not dissimilar to Shakespeare's home, do you remember Shakespeare's house?
+
+[00:56:18] Is that the link? I thought your link was at Dun Blobbyn's house, but like Dun Sinane maybe? Oh yeah, yeah. No, so where Shakespeare's house was, there was the owner of it was so sick of tourists coming and taking photos and messing about that he just knocked it down.
+
+[00:56:32] And so we lost Shakespeare's place. So there's one similarity. Well, second similarity. Oh, sorry, I don't know how to do that. I worked really hard Andy to find this, so I'll just quickly get this over with. So the 1993 Christmas single that you were mentioning, in which there's a very famous video
+
+[00:56:48] that goes along with it, it was a parody video. And there's a parody video, it's the link, by Shakespeare's sister, the band. They parodied that. So there's your second Shakespeare connection. You're welcome everyone. It's almost too close actually. It's eerie.
+
+[00:57:03] I was thinking of links, and I didn't put in as much work as Dan. No. How could I? But I was just thinking measure for measure, which Barry Kiloby was starring in. Is a problem play. As in, there are these three categories of Shakespeare plays.
+
+[00:57:19] The tragedies, the histories, the comedies, and you know, they're all clear. And then there's this fourth quasi category, which is called the problem plays. And it's basically they don't obey any of the rules of any of that. So measure for measure is kind of, it has comedy elements, but there's also a really serious death penalty plot line.
+
+[00:57:35] So it's a problem that you can't put it into a category. Is that the problem? Yeah, it's just, it's more problematic for scholars studying it. It's kind of one of these weird and lots of the later plays are more problem play-ish. I think people say the tempest is one as well. And I, in a way, blobby. Jesus.
+
+[00:57:49] Well, he doesn't catch the late comedy and tragedy. Exactly. Exactly. He is comic and tragic at the same time. He puzzles scholars. Exactly. So I think that's watertight. I've got a link between blobby and Dickens.
+
+[00:58:01] Oh my God. Well, this is cool because actually, like the thing about Noel's house party is they were just looking for something for Noel Edmonds to do. So they gave him 18 different shows that he might possibly do. And they chose this one because it was the best one. But they had complete autonomy,
+
+[00:58:17] so they could do what they wanted. And they didn't have a commissioner telling them what to do. They didn't have someone at the BBC saying, you can do this or you can't do this. They could do whatever they want. And quite often when you find that in TV, it's like people take a lot of care about things and there's lots of like hidden jokes and stuff.
+
+[00:58:32] And apparently there's a bookcase, or there was a bookcase on the side of the set that you never saw. You couldn't read any of the books, but all the books had got blobby titles. Oh, cool. And so there was like blob finger, instead of gold finger. Oh, I love this.
+
+[00:58:47] And Martin Bloblewitt. That's one of the books. That's brilliant. But didn't Dickens have a fake bookcase in his house? He did. He did. He did. He had a bookcase in his house which had fake book titles,
+
+[00:58:57] and it was hiding the door to another room or a panel or something, but it was or it was above a doorway. And so both Blobby and Charles Dickens had the same idea. Amazing. Blobby is basically a literary great is what we're saying. Yes. Yeah.
+
+[00:59:10] Yeah. Yeah, he's huge. Interestingly, we'll never know what Barry Killaby thinks about Mr. Blobby, because he's never done an interview. Isn't that weird? Ever. Sorry.
+
+[00:59:19] I only thought you were going to a really macabre ending. Because he's dead. Yeah. No, I don't think he'll ever do an interview about it, as in lots of people have tried to make contact over the years. And I think either he just thinks of it as a job and he just doesn't want to become a personality associated with it.
+
+[00:59:36] Whatever the reason, he's never, ever done it. And it seems like he never will. Interesting. Yeah. And he's... Sorry. I was just going to say, I like the idea of the people who don't know about Mr. Blobby and Noel's house party
+
+[00:59:50] Googling it and seeing what it was. Yeah. That's such a treat I had to do. Such a treat. And also, if you just see, like, say a one minute clip of that show, that will in no way explain what happens in the rest of the show. No.
+
+[01:00:04] You really have to watch our show. Yeah, I had no idea when I see it, what it is. It was a lot. One of the things you were saying about how so much weird stuff happened on that show. One of them was MTV. I don't know if you remember that. So what it was is they would go into someone's house
+
+[01:00:18] and they would put a camera on their TV and they would talk to them live. Oh, wow, cool. Oh, yeah. It was amazing. It was so cool they could win prizes or something. And did they know? Did they know that was it?
+
+[01:00:28] No, they didn't know. And the amazing thing was, when you see interviews with Michael Lego, he basically said, every day we didn't know if it was going to work. Right. And you would be stressed out all the way through the week. And the only time you could breathe is when that person didn't swear or say something
+
+[01:00:45] terrible live on air or whatever. Stop masturbating. Oh, blobby. But apparently there was a researcher who would go and meet this person the week before surreptitiously and pretend that they were just randomly meeting this person. Didn't tell them they were on TV or anything.
+
+[01:01:01] So get into their house, set up the camera. With the, with the, yeah, exactly. But they're applying the camera to the TV. Yeah. So someone would have to nominate you. And that person would have access to the TV. So they'd make sure you weren't in at the time. But a researcher would just come up, someone you've never met before,
+
+[01:01:16] and you would come up with some story that they would chat to you to make sure you weren't, you know, a person who was going to do something terrible live on TV. I feel like if you flunked out of MI5, that would be a job that you could take. Yeah. As in it's spy adjacent, but you're not actually
+
+[01:01:33] doing any spy. I feel like you would get, because the cold war's finished at that time in the 1990s. A lot of those, a lot of those spies went on to do a TV, a blobby. There was a lot of gunging as well on it. The gunge tank where, sometimes guests, wouldn't they get, would get gunged. So you'd be in a big glass tank and gunge would fall on you.
+
+[01:01:55] Right. Okay. But gunge featured fairly heavily on British TV. Yeah. Get your own back. With Dave Benson, very gunge heavy. There's someone, this won't make the edit, but there's someone, a guy on social media, I think it's only on Instagram, who I sort of assume it's all women,
+
+[01:02:15] but certainly as me and a load of women I know, constantly comments, Rachel, will you get gunged? Are you willing to get gunged? Please respond. Just back on the gunge question. Would love to see you get gunged. Are you willing? Always very polite, like wants it to be fully consensual.
+
+[01:02:35] Right. And very persistent, like to be fair, I don't think I've ever replied, but like the comments to everyone are the same. He just wants to see certain people getting gunged. Does he have the capacity to gun? I don't think I should ask. I think he'd take that as a maybe.
+
+[01:02:54] Just ask, what's your setup? Is he using a classic 90s gunge recipe, or is this him? Has he recreated his own gunge in a sort of... I don't like to think of that. Oh, God. Well, or is it someone who worked on 90s television and has kind of picked up this fetish?
+
+[01:03:13] He's got all this leftover gunge after the show got cancelled. What am I going to do with this gunge? It reminds me of the story. This isn't my story, so I'm not sure if we can keep it in, but you know Rich Turner, our very good friend, who Dan and I work with a lot, and as a radio producer and worked on TV
+
+[01:03:28] for many, many years, he worked on a kid's show in the 70s for the BBC, and he said that there was a child, and they kind of... They'd been... It wasn't gunged, but there was like a flower fight, you know? So they covered him flower like this, and then someone on set had to shout out,
+
+[01:03:45] can someone deflower this child, please? And that was the only time that was ever heard in the 1970s at the BBC. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts.
+
+[01:04:08] I'm on at Shrybland, James. At James Harkin. Andy. Will you be gunged? LAUGHTER At Rachel Parris. Yeah, and remember, as we said at the top of the show, you can see Rachel live on stage
+
+[01:04:23] as part of the great ostentation of the BBC. Part of the great ostentatious ensemble. It is such an amazing night. It's live improvised Jane Austen novels that have never been performed before. They've been written over, I think, 6,000 of them or something like that, that were lost to time, have been found.
+
+[01:04:40] They perform a new one each night, and that's on in the West End. So do check out online to find tickets for that, or make sure to get her book. It is now out on paperback. Advice from Strangers. It's out March 23rd. It's where Rachel spent basically a year of stand-up life
+
+[01:04:56] going around the UK and in Edinburgh, taking advice from Strangers and working out the answers and working out the philosophy of what they were saying, meaning it's a brilliant book. It's out now on paperback. So do check it out, and do come back next week. We'll have another episode.
+
+[01:05:08] We'll wait in for you. We'll see you then. Goodbye. MUSIC

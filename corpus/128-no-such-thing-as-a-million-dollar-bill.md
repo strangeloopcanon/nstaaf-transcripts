@@ -1,0 +1,229 @@
+# No Such Thing As A Fish - 128: No Such Thing As A Million Dollar Bill
+
+- Episode date: August 26, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/128-no-such-thing-as-a-million-dollar-bill
+- Slug: 128-no-such-thing-as-a-million-dollar-bill
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, and I am sitting here with Anna Chazinski, Alex Bell, and James Harkin, and once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, Alex Bell. My fact this week is that the controls in the world's first combat submarine were lit up with glowing mushrooms.
+
+[00:00:44] That is disgusting. Amazing. When you say the controls, were the controls themselves the mushrooms? No, no, no, it would be amazing. It was actually like in your car at night time when you were driving all the dials kind of lights up. So it was literally the little needles on the dials and things that had tiny bits of foxfire, which is the type of bioluminescent fungi attached to them.
+
+[00:01:04] I think foxfire is what Americans call any kind of glowing fungus, and it comes from fox more like foe, as in fake, fake fire. Used to call it cold fire, didn't they? I think maybe Aristotle or someone said it was cold fire. When was this, submarine? This was a submarine called the turtle. It was more of a kind of submersible, it looked like a giant lemon, a one man submersible. It was built in 1775 in America, and it was to fight British Royal Navy ships.
+
+[00:01:30] So if you imagine a kind of acorn or lemon shaped thing that's big enough to keep one man in, and that floats just under the water, and then it's got a little knobbly bit on the top that sticks above the water with windows in, and you put your head up in that bit so you can see the ships. And it's the first submarine to use water as ballast, so when it needed to sink it has water pumped in, and then you can pump it out again. But the person who would claim to have built the first submarine is Cornelius van Drebbel, and that was at the very start of the 17th century.
+
+[00:01:55] And he sort of did the same thing, I think, where the way his submarine worked is that it was like a boat, but with a roof over the top, and under each seat there was a huge pigs bladder, and the pigs bladder was filled up with water, and when it was filled up with water then it would sink, so that would be what weighted it all the way down. And then I think they would just squeeze the pigs bladder so that they emptied in order to rise to the surface again, wouldn't they? So if you were sitting on your seat and you had to go up to the surface again, you just push down really, really hard on your seat, and then the water pumped out of the pigs
+
+[00:02:26] bladder and into the water. Like a whoopee cushion kind of thing. Exactly, like a whoopee cushion. Did it make a noise? Hopefully, yeah. Just to amuse the fish. But then that would give away your location to the enemy. So obviously this is pre-electricity.
+
+[00:02:38] Did they use bioluminescent fungi for any other kind of household lighting? I mean, it's weird that they cracked the idea that you could use this in a submarine but not use it in homes. I know that the Scandinavians were supposed to have used it at night time during the long sort of winter nights, and there was a guy in the 1600s who wrote that Indonesians used fungus as improvised torches, and also Micronesians used to put bioluminescent fungus onto their clothes like for sort of raids. I think they still do.
+
+[00:03:10] I think they still decorate their faces and their headdresses with glowing mushrooms to scare people. That would scare me. The idea is hopefully you just get a massive mushroom of hope in every battle. So I was looking into things that glow on Earth, and one of the things I found was there's all these forests that glow with bioluminescent fungi as well. And I've just never seen it before, and you can see pictures online. It's stunning.
+
+[00:03:35] It does look like you've gone into laser quest but a forest. And we only found out exactly the mechanism by which they glow a couple of years ago, I think, although it's just a chemical process that I didn't understand anyway, but we didn't know until a couple of years ago, and now that means hopefully we can replicate it, and they're thinking about using it in street lighting. I think there's a Dutch designer called Dan Ruzegard, whose name I will have mispronounced, and yet he's looking at bioluminescent creatures in order to make street lamps. I mean the one day we might plant street lamps and they'll just grow.
+
+[00:04:04] Yeah. That'd be cool. That'd be pretty good, wouldn't it? Yeah. They've been making glowing plants in the ISS in the International Space Station. Remember we spoke about the crests that they were making up in space? Well, the crests, they genetically modified, so it would glow a different color if it was feeling stressed, because that's what they wanted to do.
+
+[00:04:21] They wanted to test the stress levels of plants. Crest stress. Crest stress. So, yeah, they managed to make these glow so they could be like, oh, it's really stressed, but they were actually pushing the stress on the crests as well. They wanted to see how far they could push it before it starts withering and... So it can't handle it anymore? Yeah, yeah, yeah.
+
+[00:04:37] Sending them back down is not doing well up here. How do you put stress on crests? I guess by putting it in space. I'd just be like, I'm the most important crest, I've got a really important job. Yeah. I think it's kind of lack of water would be stressful for plants or poor soil. I remember once reading that if clover is stressed, then it grows extra leaves because it needs to get more nutrients.
+
+[00:05:00] And so if you see a four-leaved clover, it's more likely to come from a stressed environment. Oh, really? It's actually an upset clover. It's terrible luck. It's good luck for you, but bad luck for the clover. Oh, no, that's so sad. Oh, wow. That's just really interesting.
+
+[00:05:16] Yeah. That's what we're here for, Dan. Finally, 130 shells in. That's how it's going. On mushrooms and fungi, some fungi make a noise when they release their spores. So there's a fungi called the Devil's Cigar, and it only exists in a really remote place in the middle of Texas and in Japan, but apparently it makes a weird whistling noise. Oh, yeah?
+
+[00:05:40] Okay. While you were saying all that, I was just trying to imagine what kind of noise is it. I just want to be hilarious. It was just like... I was thinking more like tennis grown. Sex noises. Well, that's what they're doing, aren't they? They're releasing spores.
+
+[00:05:57] They are having sex, I think. No, they sure are. It's more like masturbating, I think, because you're putting it out there, aren't you? Yeah, you're right. Although I think masturbating, you're not kind of throwing your sperm out there in the hope that it collects someone's... Does that know why you do it in the hope that it finds an egg somewhere? So I am not allowed back to the sperm donor hospital.
+
+[00:06:19] There is a famous thing about giraffes when they have sex. They can't always mount each other correctly, and so they often ejaculate, and their ejaculate is kind of lighter than air and drifts around. So sometimes if you go to some zoos, there could be like little strands of giraffe ejaculation. Flying giraffe. Oh my God. And is that like the equivalent of a bride throwing a bouquet? Do they just chuck it into the wind and see which female giraffe goes through?
+
+[00:06:46] No, no. Badly get out, female giraffe. But underwater is the same, isn't it? Lots of species of things underwater release their sperm just into the water when there aren't females around. In the assumption, it'll get somewhere. Yeah, right. Curls.
+
+[00:06:58] Fungus actually is weird that you suggested the farting sound because fungi do make their own wind, so they generate their own weather, and this is a way that they disperse their spores. So they've looked into this with oyster and shiitake mushrooms, and what they do is they give off water vapor, and that cools down the air just above them, and that makes this convection current, which makes the air as, if you remember, the old GCSE physics kind of spin round, and so the convection current means that the spores get blown further away, so they're able to disperse. That's like the opposite of sweating, because we sweat in order for air to evaporate it,
+
+[00:07:30] so it cools us down, but they're sweating in order to make the air move. Yes. It's like an alternative to sweating. I don't know if it's the exact opposite. The exact opposite is like sucking in salty water. James always says that when you're in a club, there's always a weather system above you in a club. Yeah, people have been to clubs, I'm sure, where it's so hot and sweaty that it starts
+
+[00:07:49] raining sweat from the ceiling. So is it like that? Yes. It's like a disgusting cloud of mushroom sweat. But a single fungi creating that kind of... Yeah, although there are lots of them there, I guess you get a big cloud, a big sweat cloud of spores. You guys always say that I'm wrong to be disgusted by mushrooms.
+
+[00:08:04] Yeah. But the more I hear about their sweat rain, the more I think, yeah, they're lovely. It's also an alternative answer to why did the mushroom go to the party to create better airflow within the rave room so that it would rain. Oh, yes. Yeah. Yeah. That would be the answer from the mushroom expert.
+
+[00:08:22] Actually, the reason he went to the party. I think I tweeted once that because it's why did a mushroom go, he's not a fungi, he's a fungus. It should be. Why did the mushroom called Gus go to the party because he was a fungus? I don't want to go to any party that involves James plus an expert, but going around ruining jokes. The fastest accelerating thing on earth is a fungus.
+
+[00:08:48] It's known as the hat thrower or the dung cannon fungus and it lives on feces and so it needs to blast its spores away from the feces because the way it procreates is by having spores eaten by let's say cows and cows do not like to eat where they defecate like a lot of us. It's sensible. So, yeah, they have to blast the spores far away and they accelerate to 45 miles an hour within the first millimetre. So, it means the spores will travel at more than a million times their body length in
+
+[00:09:18] one second. Interesting what you say about cows because I was just thinking they do eat where they shit, don't they? In a field. Yeah, so in a field. It's like we sometimes shit and eat in the same house. No, no, very different because it's not often that I will be in the kitchen or at the dinner table and there's a shit next to my plate.
+
+[00:09:36] That's true. Is there a kind of code amongst the cows to shit on the left hand side of the field and dinner's on the right? That does happen with some animals. Yeah. There are some burrowing animals that will have a special place where they defecate and definitely do. They have a special toilet where they excrete.
+
+[00:09:51] Generally, for animals like that, as long as you are a few metres away, I think you're okay, but you might see a great patch of grass and you go over and you go, oh, someone's shouting on my potential dinner. The other thing is that the shit is obviously going to make the grass grow better because of the fertilisation. So really, you do want to eat where you shit. One cow's shit is another cow's dinner. That's the old cow proverb goes.
+
+[00:10:14] Here's a really good story that I love. Jim Lovell, the man who piloted Apollo 13. Don't know if I've mentioned him in this office before. He may have come up. Yeah, he's my absolute hero. He almost didn't make it to Apollo 13 because he almost had to go down in an airplane when he was fighting in a war because his radar got jammed. So he turns his map light on, which is inside so that he can guide his way home looking
+
+[00:10:38] at all his instruments. The map light short circuits the entire cockpit. So as a result, he's got literally no light. So he looks down into the ocean and suddenly notices in the ocean this huge long trail of bioluminescence, green algae that's just lit up the ocean. And the only way that this lights up is in the wake of a massive ship going by. So basically, it's a ginormous runway leading him back home. And he follows that trail and he lands back on the aircraft carrier and survives.
+
+[00:11:05] It's extraordinary. It's so ridiculous factors. Like the fact that he couldn't even see it when he turned off all his normal light, every single light in the cockpit had to go off for a second for him to notice it at all because it was so faint. Yeah. So he needed all those things to go wrong. His radar to jam to be a short circuit.
+
+[00:11:18] It's extraordinary. Yeah. And nature guided him home. Yeah. It's incredible. Well, technically, it was the aircraft carrier destroying nature. Oh, yeah. Yeah.
+
+[00:11:31] Okay. It is time for fact number two, and that is James. Okay. My fact this week is that while he was president, Woodrow Wilson played more than 1200 rounds of golf. How many terms did he do? He did two terms. So it's what?
+
+[00:11:46] Eight years? Yeah. The historian Don Van Natter says that it's between 1200 and 1600. And 1600 goes into eight a lot more nicely. So that would be 200 rounds a year, which let's say 50 weeks is four rounds a week. And just to be clear to those of us who aren't golf knowledgeable, how long does it take to do a round of golf? Depends.
+
+[00:12:07] But I should think it would have taken him at least four hours if he's, you know, taking his time. And also he wasn't very good, was he? No, he wasn't. I think he was actually not very good despite all the practice. So he probably did take images. Yeah, he wasn't very good. But there's kind of a big history of American presidents playing golf.
+
+[00:12:22] And this particular fact came because this week Barack Obama played his 300th round. And a lot of his opponents are saying, well, he shouldn't be playing so much golf. He should be concentrating on being president. And it turns out being president seems to just entail playing golf. I did see a really funny anti-Obama website called Obama Golf Counter. Oh, yeah. And it just slowly tallies up how many days he's played golf on. And it just has audio of him just in a loop about 12 different versions of him going,
+
+[00:12:54] I will not rest until, and then an example of like, you know, ISIS are taken down. I will not rest. And it's just counting up and up the amount of days he's played golf. But you're not resting if you're playing golf, are you? It's very physical stuff. It's extremely mind driven. So just to state how ridiculously popular it is among presidents, there have only been three presidents in the 20th century who weren't golf fanatics.
+
+[00:13:16] And they were Herbert Hoover, who just felt it was disrespectful during the depression. And actually, I think George Bush did a similar thing when America was at war in Afghanistan, Iraq. He said it was disrespectful. So he gave up golf. Did Trump not do that quite recently? So Trump's making a golf course in Scotland, Disney, and he went to look at it and they said, well, why don't you have a few, play a few holes? And he was like, I don't want to be seen with a golf club in my hand because I'm slagging
+
+[00:13:41] off Obama that he's playing. So I don't want to be seen playing golf. Yes. And then the only other two are Harry Truman and Jimmy Carter. And all the other presidents of the 20th century and 21st century have been obsessed with golf. Woodrow Wilson apparently had the secret service paint his golf balls black so he could play them in the White House. I thought it was in the snow. It was in the snow.
+
+[00:13:59] That makes way more sense. I don't think the White House is totally white. And it sounds like the outside walls of the White House are absorbing the balls. Woodrow Wilson is on an American bill, money bill. Yeah. Didn't know that. It's Bill Clinton. That'd be good.
+
+[00:14:16] That would be very good. No, he's not. What's he on? He's on the $100,000 bill. Yeah. Which was only circulated for a few months, I believe. It was just you couldn't get any change from it. Well, actually, funny you should mention that because I just read that in 2004, a woman in Georgia in a place called Covington
+
+[00:14:35] tried to pick up a $1,675 tab at her local Walmart with a forged $1 million bill. A $1 million bill that had just been made. It's got the Statue of Liberty's head on it in place of where a president should be. And police quickly arrested her. What kind of change did you think you were going to get from your $1 million bill at Walmart? On Woodrow Wilson, actually, he was in love with the Lake Districts, which I thought was quite bizarre. The British Lake District? The British Lake District.
+
+[00:15:07] So his family came from Scotland and from the north of England. His mum was born in Carlisle. And he visited the Lake District for the first time in 1896. And he went there five times altogether. So he was a cycling fanatic. A lot of people say he was the first person in the state of North Carolina to get on a bike. But he used to do that. They all owned them.
+
+[00:15:28] Everyone was too scared. Isn't the capsule of North Carolina Rally and they make bikes? It sure is good. Well, he was the first man to own and ride a Rally bike in North Carolina. But he used to go to the Lake District and do these long cycle rides. So he did one from Glasgow to Carlisle when Scotland came back down. And then Keswick to Grassmere. And this is what he loved.
+
+[00:15:53] And before he died, he was planning his sixth trip. And then they popped his clogs instead. So this afternoon, instead of researching, I've been watching the Olympics Golf. And this is the first time that golf's been in the Olympics for ages and ages and ages. The last time was in 1904. It was at St. Louis. And there were 77 players. 74 of them were American and three of them were Canadian.
+
+[00:16:17] And a Canadian won. And is that why they stopped doing it? America just shut down golf for a century. It was a guy called George Lyon. He was in his mid-40s. And he only took up the game at age 38. And the following Olympics in 1908, they were going to have a competition. But none of the players from the Royal and Ancient could decide what the format would be.
+
+[00:16:41] And so everyone withdrew. The only person who didn't withdraw was George Lyon again. And they offered him the gold medal. But he decided, well, I'm not playing. So I don't really deserve it. So he didn't get it. I think that's really mean on George Lyon. How annoyed would you be if all these people just didn't bother?
+
+[00:16:56] It is bad, isn't it? It's robbing him of his glory. Isn't the Olympic golf course being overrun by capybaras? I saw someone tweet a picture because I think they built it on a nature reserve or on a bit of a swamp that's in a nature reserve. And there are capybaras popping up. The real story is that the capybaras and nature reserves have been overrun by golfers. Well, that's what they're discussing on there.
+
+[00:17:15] Oh my gosh. Jeremy... Sorry, go. Jeremy Kyle. Oh, it might be Corbin. I read an interview with him. In fact, I read an interview with his wife and he licks his golf balls before he takes a shot each time. Because he says he doesn't want to get his golf towel, his white golf towel dirty.
+
+[00:17:33] Often when you go and play golf, it will say, do not lick your balls. And that's because they use a lot of chemicals on the greens to make the greens grow and a lot of them are quite poisonous. So you can get really sick by licking your golf balls. There's a genuinely aside that says, do not lick your balls. Quite often. I think it's done knowingly. Is it a habit that people have? Is this not abnormal then for people to lick their golf balls? If you had a little bit of mud on your balls, just one ball.
+
+[00:18:01] In fact, because you only use one. If you had a bit of mud on, then you just wanted to clean it. Then you might lick your finger and just wipe off the mud. And then next time you get some more mud on it, so you lick your finger again. If I have a muddy finger, I'll wash my hands. They don't bring soap and sinks around a golf course with you. President Eisenhower was on the board of the Augusta National Golf Club in Georgia. And there's a tree on this golf course that he kept hitting.
+
+[00:18:25] So he thought it was in the way. So during the ball meeting, he asked if it could be chopped down. And the chairman was too embarrassed to just say no, because he was the president. So instead, he just immediately ended the meeting. Really? Yeah. That was a stop and a half. Yeah, I thought it was weird. I'm pretty sure that tree got hit by lightning or something.
+
+[00:18:38] Ice storm, I think. That's the official story. Got hit by lightning. Also, the chairman's gone. What happened to the chairman? He was hit by lightning. Just very quickly, I was just looking at the hobbies of the two presidents who didn't like golf to see what they did in their spare time.
+
+[00:19:00] So one of them was Truman, a woman once wrote to President Truman asking what he did in his spare time. And there was a reply from his spokesperson who said, the president has no hobbies and his official duties leave him little time for recreation. Most of his activities are reported in the daily newspapers, where no doubt you're afraid of them. That's the end of Truman's, no hobbies. That's a really good reply, isn't it?
+
+[00:19:20] That's what you want. Busy making the country run, yeah. I don't want that at all. It's a bit snippy, though. It is a bit snippy. But the other one is much better. So Jimmy Carter, my favorite president anyway, is into woodwork, but really into woodwork.
+
+[00:19:33] So he makes all this furniture and he sells it. So he's made loads of cradles. He made a four-poster bed that he sold for a quarter of a million dollars. What? He made a cradle in 2007 that he sold for $320,000. Now, it's possible there's a slight inflation on these prices given that it's made by Jimmy Carter and the money goes to the charity. I doubt it.
+
+[00:19:54] But I think it's just good quality furniture. I read about Lyndon B. Johnson, apparently, according to Forbes, an article on there, his hobby was drunk driving around his property. Yeah, he had a ranch and he liked to drink drive around there and especially he had an amphibious car which he would pretend that he was accidentally driving into a lake. Oh, yes, he was just as scared people. He would do that with guests, right?
+
+[00:20:19] He just would be, and then they'd be fine. That is so fun. A quiz question about Jimmy Carter. Jimmy Carter is the 39th president of the United States of America. What first does he bring as a president? And this is something to do with his personal life. That's probably, I've definitely phrased this question.
+
+[00:20:38] Was he the first to write a children's book? No. He was the first to put a bowling lane in the White House? No. Basically, he's the first president to have been born in a hospital. 39th president. A lot of them were born in wood cabins, weren't they? Yeah, he's built by him.
+
+[00:20:55] Okay, it is time for fact number three, and that is my fact. My fact is that when the poet's Shelly and Byron went on a rider's retreat to Lake Geneva in 1816, the hotel opposite them hired out telescopes to their guests so that they could spy on them. So funny. It's so surreal. So this, by the way, was a very, very famous trip
+
+[00:21:16] that Shelly and Byron did. It was a very, very famous trip. So this, by the way, was a very, very famous trip that Shelly and Byron had made because they were sat in the house one night and there were lots of storms that were going on for about three days solid, and it's during one of those storms
+
+[00:21:33] that Shelly's girlfriend at the time, Mary and Byron and Shelly started coming up with ghost stories and scary stories, horror stories, and that's where Frankenstein was born. So the five guests, there were three great writers and then two really tragic figures, one of whom was Claire Claremont, who was Byron's flus, who he'd impregnated,
+
+[00:21:51] and he really wanted her to stop trying to get off with him, and she followed him there, and so he invited this other guy, his doctor, called Polidori, to act as, like, a third wheel to make sure that Claire didn't get a chance to get Byron in a corner and snog him, whatever. And, yeah, Polidori had the most awful time with Byron, employed as his doctor,
+
+[00:22:09] and they were asked to write these ghost stories on this night. Byron challenged him to write a ghost story, and Polidori wrote this story and wrote the first ever vampire story in the English language, and he just kind of forgot about it. He sent it to a friend when he got back to the UK, and it got lost somewhere, and then a few years later, it got published in this monthly magazine,
+
+[00:22:28] just under the title The Vampire, A Tale by Lord Byron. And so Polidori has spent, you know, many years being so jealous of Byron and hating him, resenting him, and then he finds that this one story is written, is published under Byron's name. I like that it sort of is a ghost story that was accidentally ghostwritten. Not really a ghost story, because there's no ghosts in it.
+
+[00:22:48] Anyway, let's get back to this hotel. What's quite amazing about it is, A, I didn't realize celebrity paparazzi things were going on back then. I think Byron is often credited as being a part of the birth of that whole session. Yeah, one of the first, Bobromo as well. Yeah, he was basically the Anna Wintour of the time. He was defining fashion purely by what he would write as reports of a sort of vanity fair party or a folk party.
+
+[00:23:14] So they found not too long ago, in the last couple of years, the addition of Frankenstein that Mary Shelley signed for Byron. So she sent him a letter saying, I'd love to hear if you think this is a good book. He never sent back a comment. And then he then wrote, someone asked him about the book, and he wrote his opinion to them in that, and he said, he thinks it's a wonderful work for a girl of 19.
+
+[00:23:37] So he did like it, but a kind of patronizingly liked it. Also, anyone who starts with me thinks. I know, I thought I was like, it's George R. Binks, right? He thinks it's a wonderful work for a girl of 19. She was pretty weird actually, Mary Shelley. Was she? Well, I think she did a couple of weird things. So Percy drowned in a shipwreck.
+
+[00:24:00] After he died, she bought this cliff top house in Bournemouth, and this was in 1851. And then she moved there with her children, but she also moved the remains of her parents there. So her parents were buried near King's Cross, and she was just like, well, I'm moving. I guess I'll just bring my parents along. Oh, you mean as in she dug up the graves?
+
+[00:24:18] Yeah. She had the graves dug up and had them re-buried in Bournemouth. Isn't that strange? Yeah. Well, she also kept Percy Shelley's heart in her desk. So the rumor goes. I don't think we have any evidence of that. Okay, because I think that more modern historians would say
+
+[00:24:32] they actually think it was Shelley's liver that they mistaken for a heart. I think the story was told by one of Shelley's friends, was that when Shelley was being cremated, his friend dived into the fire and seized the heart. So it's very possible that he would have accidentally seized the liver, because they weren't very anatomically good then anyway, and there's a big fire in the way. So I guess he just went for the first organ and he could get his hands on.
+
+[00:24:50] Yeah, who knows. Byron had a coffin at the end of his dining table. They really kind of loved that kind of stuff. He used to get skulls and have them converted into... Drinking cups. Yeah, drinking cups. In fact, he wanted Percy Shelley's skull as well. He jumped into the fire,
+
+[00:25:05] but accidentally brought his femur out. But they were worried. I've got a straw at least. Can I talk about my favourite spice satellite? Yeah. You've been listening to all this literature. If you've got more literature. No, no, no.
+
+[00:25:22] The corona spice satellites, reconnaissance satellites, they were kind of made in the 60s and 70s, and they were one of the first reconnaissance satellites to be put up into space. And they had cameras in them. But they were normal Kodak film cameras. So when all the pictures had been taken, the satellite would jettison out a canister of film, which would fall to earth.
+
+[00:25:37] And so it would come through the atmosphere, and then a parachute would open, so it would be parachuting down. And then a plane would fly alongside it and grab it out of the air. That is unbelievable. I know. What? How does that work?
+
+[00:25:49] Yeah, why would you fly alongside it and not just wait for it to land? Well, they meant that it was safer because there was a risk that someone would pick it up. But there were examples of them not catching it in mid-air, and they landed on like a farmer's land and stuff. And they used to write the words Top Secret on it, but they stopped doing that because everyone kept opening them. Yeah.
+
+[00:26:06] Have you ever seen the capsules which the cosmonauts came down in? And then it would say in Russian, person inside do not be scared, this is not an alien, it's a cosmonaut. No. It's amazing. He said this is not an alien. It's something like that, yeah.
+
+[00:26:22] It's like, do you not be alarmed, there may be a person inside, please help me give them water and stuff. Do not lick balls. Andrew Hunter Murray, who's away at the moment, he was telling me that NASA have a telescope on a plane, so they fly the plane up and then they start observing through a telescope on the plane.
+
+[00:26:41] Do you have this on the list? I don't, I only put my top one because I didn't think you'd listen to me for that long. I read an article from 1998, and it was about people buying telescopes in New York, and 5,000 people had bought a telescope, but because of the pollution, you can't see any stars.
+
+[00:27:00] And so they asked a lot of these people why have you bought telescopes, and the most common answer was to spy on my neighbours. Really? Yeah. There was a survey done in Switzerland that asked people if they spied on their neighbours, and 22% of people admitted that they did actively
+
+[00:27:14] use equipment like binoculars or camera phones or through the spy holes in their door, and they were asked why they spied on their neighbours, and in Switzerland, the most popular reason for spying was to check out a neighbour's plants. 28% of people. That feels like a Swiss euphemism or something, doesn't it? Look at the plants on that one.
+
+[00:27:34] Well, they did the same study in the UK, and a third of people said they spied on their neighbours, and in the UK, the most commonly given reason is to check their all right. It's to check open brackets if they're a bit of closed brackets, all right. OK, it is time for our final fact of the show, and that is Czazinski.
+
+[00:27:56] My fact this week is that famous historical games of Go include the Blood Vomiting Game, the Ear Reddening Game, the Famous Killing Game, and the Atomic Bomb Game. So this is about the game Go, which is a very famous game that comes from China originally. It's the oldest board game in the world that's still being played. So not Pokemon Go then.
+
+[00:28:16] Sorry, no. That's obviously one of the oldest games in the world that's still being played. It feels like to some of us. But no, and there have been games documented throughout history for hundreds and hundreds of years, and there are these famous historical games. So what were they again?
+
+[00:28:31] So the Blood Vomiting Game. OK, so what happens in the Blood Vomiting Game? It's a lot like it sounds. It was in 1835, and it was a game where there were two players, one was beating the other, and then the other had these four spectacular moves, and the first move was a move that his school of Go
+
+[00:28:46] had been planning for months and months. So he won that, and then the next three moves were given to him by Ghost. So he won those three as well, because Ghost came down and helped him out. So he won that game. In fact, I read that sentence, and I just sat back and just let it soak in.
+
+[00:29:00] It's the most enjoyable little nugget I've read in a fact for a very long time. How is that not cheating? I don't understand how that's allowed. Well, because in Go it turns out that you are allowed help from other people. You just need to pause the game. Just to jump forward very quickly,
+
+[00:29:12] I think we should stick on the Blood Vomiting Game for a minute. But to jump forward to the Ear Reddening Game, that game took three months to play. It took three months because each player was allowed a 24-hour period of thinking time in between each move, and they took it. Were spectators sport ever? If you bought a day ticket to a game of Go.
+
+[00:29:31] And what they would do in that 24-hour periods is often the person who was playing would go back into wherever they lived, and they would have a group of students study the game up to the point it was at, and they would then decide on what potential new moves could be done, the next move. And just to finish off the Blood Vomiting Game,
+
+[00:29:48] if anyone's still wondering about the name. So as this guy started to lose, he keeled over, collapsed on the board, and started coughing up blood, and he was dead within a couple of months. I thought he probably had TB, but it might have been just the pain of losing. And the Ear Reddening Game that Dan mentioned is called that.
+
+[00:30:04] This was in 1846. It was a hot century for Go. But in 1846, it was a game that a doctor happened to be watching, and everyone else who was watching it thought the one guy would lose, and the doctor said, no, I think the other guy's going to lose. And people said, why?
+
+[00:30:18] And he said, because I saw his ears flush red when his opponent made a move, and that means he's distressed. And then DT was right, so that's the Ear Reddening Game. And then sadly, the famous Killing Game is just a really intense game.
+
+[00:30:28] Wow, so he glowed under stress as well. Like the Space Crest. That's amazing. Maybe that's how you stress out a bit of Crest. You just beat it at Go. Should we quickly explain what Go is? Yes. Just very, very simply,
+
+[00:30:42] it's a board game, a bit like chess or drafts, and each player has white or black pebbles, and you put them on the board. It's quite complicated, but the basic thing is you're trying to encircle your opponent's pieces and get territory.
+
+[00:30:57] Yeah, encircle bits of territory, and it's like one Go at a time. And it's incredibly simple, the rules, but very complex, as James says, to get good at it. The strategy is unbelievably complex. And the famous thing recently is it's really hard for computers to play.
+
+[00:31:11] Because there are so many different possible combinations of moves, and one move that you do now in 100 days' time could be really important in ways that you haven't foreseen, and so the computers can't work it out. Although recently, I think,
+
+[00:31:26] they might have won, did they? Yeah, I think this was a bit of a blow for the Go community, but Alpha Go, which is made by Google's artificial intelligence arm, and it's Alpha Go, this thing that beat this Korean guy Lee Sedol. And then, so Lee Sedol is currently ranked
+
+[00:31:40] fourth in the world, and the person who's ranked first in the world is called K.G., and I'm really sorry, that's mispronounced. He's 18, and he said, when he saw Alpha Go being so good, I don't want to play Alpha Go, because I know that I'm better than Alpha Go.
+
+[00:31:54] I've watched his matches with Lee, and Alpha Go is weaker than me, and I don't want him stealing my moves. So he's backed out of it, saying he doesn't want to copy him. This sounds quite familiar from when I used to play chess as a child, and my little brother started beating me, and so I kept playing until I beat him once and said, well, now I'm the reigning champion,
+
+[00:32:09] I don't want to play anymore. But if you look at the rankings, I think they're on official rankings, but you can look at, say, the top 200 or whatever, and they're all from either China, Japan, or Korea, apart from the world number two, which is Alpha Go, which is technically a British player.
+
+[00:32:30] We're number two in the world. That's very good. Can I bring up another game that you mentioned in the headline fact? Yes, sorry, the Atomic Bomb Game. The Atomic Bomb Game. Yeah, this is amazing. So they were in Hiroshima, they were in the outer suburbs, they were about five kilometers from where Impact Ground Zero was
+
+[00:32:46] for the bomb detonating. So they were mid-game, and suddenly the bomb goes off, and there was damage to their building, people were injured around them. This is what's remarkable. They resumed play after a lunch break, and then it was by the police coming around, saying you need to go elsewhere,
+
+[00:33:04] and they just went further out to continue the game. Just on artificial intelligence and computers that we were talking about, as James was saying, it goes quite a hard game to beat with a computer. There is a game that was specifically designed to be difficult for a computer to beat by a guy called Omar Syed, who was inspired by watching Deep Blue defeat Kasparov. So he invented this game called Arima, which is it can be played on a chessboard,
+
+[00:33:24] and it's basically a bit like chess, but there are different pieces. There's like an elephant and a camel and a horse and dogs and cats. The idea is that it's supposed to be difficult for computers to play, but easy for humans, because the computer can't use kind of like tree logic by looking up every single different combination and then working out what the best one is by comparing them all.
+
+[00:33:41] It's slightly intuitive, but despite that, a computer eventually won in 2015. They had an international competition every year. There were three competitions. There would be a human-only competition, a computer-only competition, and then the third one where computers versus humans, and for ages, computers always lost,
+
+[00:33:56] and then in 2015 they won. It would be good if they had Olympic boxing, and then robot wars, and then the best Olympic boxer fought against the best robot wars guy. Well, they do robot football slash soccer now, don't they? And they do have the robot to play a human team,
+
+[00:34:12] and Leven Skaira, who is a very good friend of ours, been on the show a few times, he reckons that by 2050, the robots will beat the human team. Yeah, he does say that, although they do look hilariously bad. It's unbelievably bad.
+
+[00:34:27] It's like just putting a bunch of pigs into a football arena and saying, try and score. They just have no interest in scoring. They have no anything. They're just running into walls. Pigs do play football sometimes, don't they? I knew I'd say something that would,
+
+[00:34:42] I would hope, make no sense, and James would come in saying, actually, I think by law you're supposed to give them things to play with because they get bored, and quite often they give them bowls, and they kind of like to nuzzle them around, and I'm pretty sure I've seen a video
+
+[00:34:54] of pigs playing football. Wow. Maybe they're just licking them because they think it's good luck. Okay, that's it. That's all of our facts. Thank you so much for listening. If you would like to get in contact
+
+[00:35:08] with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At Eggshaped, Alex. At Alexboil underscore. And Chazinski. You can email podcast at qi.com.
+
+[00:35:21] Yep, or you can go to atqipodcast. It's our group Twitter account, and you can also go to knowsuchthingasafish.com, where we have all the previous podcast episodes, and you can listen to them there. We'll see you again next week for another episode. Goodbye.

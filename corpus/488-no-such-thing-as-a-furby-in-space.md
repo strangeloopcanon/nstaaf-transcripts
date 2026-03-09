@@ -1,0 +1,375 @@
+# No Such Thing As A Fish - 488: No Such Thing As A Furby in Space
+
+- Episode date: July 20, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/488-no-such-thing-as-a-furby-in-space
+- Slug: 488-no-such-thing-as-a-furby-in-space
+
+## Transcript
+
+[00:00:00] Have you ever wondered why this week's episode of No Six Things A Fish? Which is the first in our run of live summer shows at the Soho Theatre in London. We have all sorts of amazing guests lined up for you for the rest of the summer. I won't go into that now because I really don't want to spoil it, especially for the people who have tickets. But what I can tell you is that in this week's show we were joined by Jamie Martin. Now you will know Jamie if you listen to No Sixings of Fish Before because he has been on quite a few shows, this is his third appearance, but of course he is most well known for being
+
+[00:00:34] one third of, let's be honest, the greatest British podcast of all time, My Dad Wrote a Pono. Now, one important thing to say about that is that the My Dad Rods Pono team have chosen some of their funniest moments from across the six season run, including some unheard gems, and they'll be releasing best off episodes once a month, starting on Monday 31st of July. I absolutely can't wait for those best off shows, I'm sure you can't either, but in the meantime, please do enjoy this week's episode of No Six Things A Fish with Jamie Martin. Okay, on with a podcast.
+
+[00:01:10] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from the Soho Theatre in London! My name is Dan Schreiber, I am sitting here with Andrew Hunter Murray, James Harkin and Jamie Morton and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Jamie. My fact this week, boys, is in 1782,
+
+[00:02:01] a woman found a drag performance so hilarious that she literally died of laughter. Wow. Probably not gonna happen tonight. Not with me here, for sure. But yeah, it's not mad. Yeah, it's insane. So this was an act that was a... It was a play called Beggar's Opera
+
+[00:02:21] and it was someone called Charles Bannister who was playing a character called Polly Peachum and yeah, to give us a story. Yeah, so Mrs. Fitzherbert. Okay. Suspiciously, there's no first name. But she was a widow of a North Hampton Shire clergyman. She was quite, it was quite salacious
+
+[00:02:41] that she was even at this kind of submersive show. Okay. And she found it so funny that this man came out It's quite salacious that she was even at this kind of submersive show. OK. And she found it so funny that this man came out, and he was described as Lanternjord with five o'clock shadow and a double chin. In a lovely pretty dress. And she just found it so funny. She just didn't stop laughing. For three days.
+
+[00:03:01] Oh, wow. That's the amazing thing. Like, she had to leave the theatre, didn't she? Yes. Because she was laughing so much. But that's not when she died. No. The newspaper report said she couldn't get the figure from her memory. So it's just every morning she just wake up and go, ah!
+
+[00:03:17] I mean, what a sheltered fucking life. I'm sorry. Like, if that makes you laugh that much, to kill you, yeah. Maybe it was a really good show. Yeah. You know. Oh, the Beggar's Opera. It's a classic. And the actor, who he's in, he was one of the great actors of the day. He was very young.
+
+[00:03:30] And he was famous. A good name, too. Charles Pellister. Yeah. So John Gay, the Beggar's Opera, actually, that was the first play which had songs in it that were part of the narrative. Oh. The Beggar's Opera.
+
+[00:03:42] So Briss pretty much the first musical, I would say. Yeah. And it was so popular there first musical, I would say. Yeah. And it was so popular there was a thing called Beg Emania. And so you could go around, you could buy matchboxes, fans, fireguards, everything with this show on. Oh. Oh. Oh, it's like, no, it's just a fish. On your tables, there is a merchandise leaflet.
+
+[00:04:01] I think it's got a QR code. Jenny only as I can see it right now. Go nuts. Get us in with that merch. Jamie, please, we rely on the merch. It's all that's keeping us going. I was looking at people who had died on stage. And I have a weird connection to one of these.
+
+[00:04:19] So Molly-Air. Oh, yeah, yeah. Very famous French playwright, actor. He collapsed on stage, yeah, yeah. Very famous French playwright, actor. He collapsed on stage, ironically playing the lead in his final play called the Imaginary Invalid. So he was, he literally died playing a hyper-conductor. Right. And I have also... That's method. ...played the lead in the Imaginary Invalid. Really? Yes.
+
+[00:04:44] Yes, I know. That's cool. It's not that cool. I sort of said that on autopilot, Jamie. I wasn't actually taking that. That is really cool. But back in my youth when I used to, you know, tread the boards. I didn't die, obviously. The thing about him, actually, is because he was an actor
+
+[00:05:03] in those days, actors couldn't go to heaven. So... Wow! If you... I'm not sure anyone could go... Well, now let's not get into that. That's an actual medical matter. But, like...
+
+[00:05:15] So, um... The thing was, if you're an actor, it was like, yeah, you had to renounce your acting job before you died. So... On your deathbed, you might say, oh, I was never really an actor, or I wasn't a very good one or whatever, and then you would be allowed to go to heaven. If you said, I'm really more of a playwright.
+
+[00:05:34] So I'm more of a sort of immersive media creator, really. I facilitated the heathens. That wasn't one of them, myself. But yeah, and the thing was, is that that man that he was buried without, he wasn't allowed to be buried in a church yard Or anything like that because he died so quickly after this event. Oh I want to see a moly at play a few years ago. I am storing Jamie Morton. Yeah. No, no, how how how was I? Well, it wasn't it wasn't one with you in but I did I did leave it halfway through
+
+[00:06:02] Oh, really? Yeah, so in a sense, Molly died a second time that night. Wow. I'd say it's in the translation. I think he's a fantastic plumber. I'm sure he is. There was a school party all around us. And this is tricky. They were not having a good time. Neither were we. I've got a little quiz for you guys.
+
+[00:06:20] Oh, great. All right. So this is... I'm going to say a thing, right, an object, and you have to say what it's used for by the Royal Shakespeare Company as stage gore. Oh, great. So in 2010, for example. But Shakespeare specifically. Yeah, yeah, right.
+
+[00:06:35] These are all used by the RSC, right? So in 2010, the Royal Shakespeare Company, they used three tins of lychee's during their summer season. Bueboz. Not Bueboz? I was. Well, it wasn't exactly like that. 2010, the Royal Shakespeare Company, they used three tins of licees during their summer season. Uh, pubos. Not pubos? I was... Well, it wasn't actually an everyone-play game.
+
+[00:06:51] That's goal parties in again, these two. Please do. No, just wait for a second, just let the... Ibles. Yeah, let's... The kinetic, though. We can add that. Well done. Well done to the people who knew it and thank you and yeah I will do okay That's the cuz what's seen yeah, where they blind you could cluster. Oh, yeah, actually
+
+[00:07:17] Oh, yeah, okay, well here's another one chicken fillets chicken fillets boobs To pump up the bras. Actual, what's the real thing? That is all I think. That's a locally called chicken fillet. They're not actual chicken fillets. Well, I've got an amazin delivery for my wife and then she's going to be very confused about that.
+
+[00:07:40] Lapping skin and muscles. Oh, nice. Yeah, no, it's a anyone anyone in the audience. Yes, it's tongues And finally tinned pairs Um tennis ball. No nothing tennis I said half of it and then I pulled back yeah, I think testicles is a good call. Yeah. OK, testicles. All right.
+
+[00:08:07] No. You complete full deck. No, it's penises. It's penises. Tin pairs or penises? Sorry. What? These are your...
+
+[00:08:18] Yeah. Andy. What? Sorry, what's the answer? I've either been buying some really odd pairs or I need to see a doctor. I think they're shaped a little bit, but I think it's the consistency...
+
+[00:08:31] The consistency of a tin. Also, what are they doing? ...with these fake fetuses that they need a good consistency? I'm not sure I've seen that shape to be playing where they all get their cocks out. What? Which one is that? Is it Measure for Measures, right? Thank you.
+
+[00:08:54] I don't actually... Yeah. Wow. Yeah, it's amazing. There we go. And they have, they're real. Like, they have an amazing department. And they have fake blood as a... I don't know why. Could it be... Could it be that you put it in your stockings and it gives you a shape, maybe? I think it was for some...
+
+[00:09:10] Horrible. Like Titus Androlica says, lots of terrible torture and gaw and all this stuff. So they put like, it's rare. It's not across the canon that you need a tin pair in the background. But they've got these tin pads. The fake blood recipe is secret and they've got three different consistencies. And there was an interview with Helen Hughes,
+
+[00:09:27] who's one of their very senior prop and design people. And she was being interviewed about fake blood. And the interviewer asked her, like, what kind of what do you use for your fake blood? And she said, what kind of blood? There's vein or blood, arterial blood, newly dry blood, crusty old blood. They've got, they can do all of it.
+
+[00:09:44] All the blood. She's an artist. She knows her craft. I know. Yeah. Heaven. There was a story which is, because you got this story from a Jarls Brandrath, anecdote book didn't you? Yeah, Theodoranic, the word fact would be questionable. Yes, I did.
+
+[00:10:01] But there was a guy who was called William McReady, and it was early 19th century Shakespearean players that he was in. And he forgot basically to put blood on his hand because he was in McBeth. And he needed blood on his hand. And he went to the side of stage. And it wasn't there.
+
+[00:10:16] It wasn't on the side. And he desperately needed it. But there happened to be a bystander there. So he punched him in the nose. And the brunt all swiped the blood off his nose and ram back on. Yeah. According to Giles. Yeah, and that's what falls down.
+
+[00:10:33] That's incredible. But what happens when you die? What do you mean? What would happen to you as a person if you died? What would you... I think what would you become? A ghost? A ghost? A ghost.
+
+[00:10:46] I got so into theatre ghosts. Oh, right. Researching this, there are so many. Yeah, yeah. Some of them are really tragic. So actually, where this woman died of laughter at the theatre Royal Jury Lane? Yes.
+
+[00:10:59] They're kind of, they've got, I think it's the most haunted theatre in the world. Or they claim that, you know. And that kind of main event, their big star is what's his name? The Man in Grey. Who can be seen on the upper circle, I think, and he just has a big cloak and is very menacing. And it's actually found in truth, because when it was being renovated in the 1800s, they kind of found a bit of a fake bit of the wall, and they looked into it, and it was a little cubby hole,
+
+[00:11:28] and inside that cubby hole was a skeleton of a man with a dagger through his chest. Wow. And that's the exact place where this ghost has been spotted for centuries. Very cool. That believes it. That believes it. The theory of everything else. I think I feel like that would be retroactively
+
+[00:11:51] have been inserted into a wall in order to... Really? Yeah. I've got very skeptical recently. We need to move on, guys, to our next slide. To me, okay. Well, laughter can be very dangerous. Yeah. Right, so there was a study from the University of Birmingham. It was a metronalysis, so they looked very dangerous. Yeah. Right. So there was a study from the University of Birmingham. It was a meta-analysis, so they looked at loads of papers. And they found that laughter can cause abdominal hernia,
+
+[00:12:12] dislocated jaw, incontinence, fainting, infectious diseases, because when you laugh, you breathe in a lot and you get lots of germs in your mouth, yeah? Thanks for coming, everybody. LAUGHTER There's a thing called Bohavus Syndrome, of germs in your mouth, yeah? Thanks for coming, everybody. LAUGHTER There's a thing called Bohavus Syndrome, which is you laugh so much that you rupture your esophagus. That can happen.
+
+[00:12:32] But despite this, they have laughing contests, and this is becoming quite common in America now. Basically, you go in and you just try and make each other laugh. And there's loads of different types of laugh. It's like best giggle and best knee-slapping laugh and best belly laugh and stuff like that. And apparently, the woman who won the American Championship last year, she didn't tell anyone until afterwards,
+
+[00:12:52] but she pissed her pants in the first round. Oh, wow. Is that an illegal move? I... Feels like it must be, right? Yeah. Wow. I... It was only like a couple of years ago. I pissed myself
+
+[00:13:06] while laughing. And it's honestly, it's one of those moments where it's not embarrassing. It's great. It's a really wonderful feeling. You feel like you've done laughter next level. You feel like you've... What was it?
+
+[00:13:17] Well, it was a late night. I was quite drunk. Someone said a joke. And I just laughed so hard. And it wasn't even like a little bit of a wee. It was like, psh, pfft, like total flood. And I, I would just say I did not apologize. I was like, guys, you all need to try this.
+
+[00:13:31] I think we've forgotten how great this feels. Okay, well, we've got three more facts. Yeah. Stop the podcast. Stop the podcast! Everyone, this week's episode of Fish is sponsored by Canva! Yes, Canva is a design platform. It allows you to create beautiful content in any format whatsoever, specifically they have a thing called Canva for Teams.
+
+[00:14:00] So you and your team can design gorgeous things. It might be social media posts It might be videos or presentations. It makes it very easy to design digital content Which is lovely it is lovely and it has everything from premium fonts to photos that you can use as graphics as videos You could have your documents that you're sending out to business partners all done up nicely You can have your presentations where you're showcasing the latest business numbers or whatever it is you're showing out on the most stunning looking possible thing.
+
+[00:14:29] And then you can even print them through Canva onto Mugs, Posters, whatever you like. I actually used Canva recently and I used it to design a little invitation. And it was very easy and nice. Yeah, and did you then print it onto a mug? Yeah, and it was RSVT instead of RSVP. Little joke about mugs having tea in them there. So I guess the point we're trying to make here
+
+[00:14:52] is that if you want to design and collaborate with Canva for Teams, you can right now get a free 45-day extended trial. All you need to do is go to canva.me-slash-fish. That's C-A-N-V-A.me-slafish. That's right, so head to canva.me-slafish. Get that free 45-day extended trial and get designing. OK, on with the show. On with the book, guys. MUSIC OK, it is time for fact number two, and that is James.
+
+[00:15:27] My fact this week is that the first modern water bed was filled with jelly rather than water. The problem was that it was too heavy to move and started to go rancid after a few weeks. Isn't that incredible that it was jelly? I find that one of the most astonishing facts. Yeah. It makes sense, really, doesn't it, if you want something nice and soft to lie on? Isn't that incredible that it was jelly? I find that one of the most astonishing facts within this show. It makes sense, really, doesn't it, if you want something nice and soft to lie on?
+
+[00:15:49] So was it the bed kind of the mold? The jelly mold, if you like, and you pour it in, and then it says, always in. Oh, I see what you're saying. Yeah, I guess it must have been really, because you'd be weird to just shove in solid jelly. Yeah. I'm not quite sure.
+
+[00:16:04] He also used cornstarch as well. So cornstarch would be soft, but then it's non-Newtonian. So as you sort of push on it, it would get more solid. But again, that went rancid as well. This is a... What's a liquid that doesn't go rancid? But he started it not as a bed. It started as a chair. Yeah, so Charles Hall this is what it's like a bed, it started as a chair. Yeah, so Charles Hall, this is for me. Yeah, yeah.
+
+[00:16:29] Yeah, Charles Hall. So it was called the very first thing he invented. It was called the incredibly horrible thing. And it was a... It was a chair. It weighed 300 pounds. It had liquid starch inside it, and had a vinyl skin. And the point was, is that when you sat into it, the chair would creep up around you because you were molding into it.
+
+[00:16:48] It sits on you. Eventually, yeah. Yeah, I love you. Okay, so he made that. Yeah. But what he really, really wanted to do was make an entire room that was a water bed slash chair. Oh, wow.
+
+[00:17:01] So it was almost like a padded cell, I suppose. But you would walk in, close the door, and wherever you were, you would just sort of sink into the wall or sink into the floor. Oh my god. But it was only because it was so expensive to make that you decided to go for the water bed instead. What was expensive manufacturing the jelly
+
+[00:17:18] or the materials? Well, the thing is, if you want to buy a room, you kind of need to have, buy a house as well. Do you know what I mean? Yeah, I do. It's like renovate your whole house to do that. Well, if you just want to buy a room, you kind of need to have buy a house as well. Do you know what I mean? You can be to like renovate your whole house to do that. If you just want to buy a bed or a chair, you could rent. Yes, you could. Oh, but I don't think I want to rent a water bed.
+
+[00:17:34] No? No, that's not what you could rent a flat and put your water bed in there. Yeah, you could do that as well. Have any of that? Have any of you other slaps on the water bed? Yeah, my parents, you serve one. What? I don't think I have. I don't think they're really. Yeah, really?
+
+[00:17:47] They're so uncomfortable. Yeah. Oh, are they? They're horrible. I thought they were... I read about them and said they're amazing. Like, they're the equivalent of pissing yourself while laughing. Yeah.
+
+[00:17:58] But maybe... Mine was like a... Like, it was a friend's parents' bed when I was a kid. And it was like being seasick. It would like move. It was honestly vile. And it was really cold. But they hadn't heated the water.
+
+[00:18:14] Oh, but you can't get those now. Oh, thank God. This is a tool change. Charles Hall, these days, who invented this thing what, 50 years ago, he now... He has two water beds. No, that doesn't sound very impressive, but he's got, because they come in different,
+
+[00:18:31] it's different bladders. You can say how many bladders are there in your water bed. So he's got one King size single bladder, but he's also, if only you had a King size bladder that night. He's also got a... In his guest room, he's got a double mattress, which has adjacent double bladders, which...
+
+[00:18:49] So you can heat one... If you want your bed a bit warmer, then whoever you're sleeping next to... Oh, yeah. You can... Oh, that's excellent. You can afford a bottle, you're... Your whole bed is the hot water bottle. Wow. Oh, you're actually selling it.
+
+[00:19:00] Maybe we should have got one, guys. What's incredible? This first one was the one that Hall invented, I think it was 1968, he invented it. Maybe we should look at one, guys. What's incredible? This first one was the one that Hall invented. I think it was 1968, he invented it. He called it the pleasure pit. And we should probably talk about the slightly... There was a slightly sexy reputation they had.
+
+[00:19:13] Yeah. Oh, yeah. One of the manufacturers in the early days was called Wet Dream. LAUGHTER That was an advert. I don't know. Not a great advert. But it said, she'll admire you for your car. She'll respect you for your position, and she'll love you for your water bed.
+
+[00:19:30] No. So it was a kind of... Well, it was a lot of creepy. He had that to begin with. So he had invented it. He had patented it, but everyone just did sort of spin off water beds. And he said that there was one company he noticed that it was,
+
+[00:19:43] it was sort of sexy, because like there are other products were orgy butter and things like that, right? And then when you read into orgy you say, the sexual connotations about the early sales of the water bed. So a lot of it was that it was basically like having a threesome, because the bed acted as the third person, because it molded around you as you... It feels like a third person is part of the... But hang on, honey, El. I'm sorry. Just like...
+
+[00:20:23] It's just like... I've seen the matter on this. Taking this like, I assume that we're on this. Taking this like, I'm just telling you about my experiences. Well, these are the facts. Well, you're telling us what parents did have once. So you probably, you probably conceived in it. Were you? Are you from a water bed?
+
+[00:20:36] From a water bed. Oh, you're a water baby. I'm curious. Because like, I don't want to be, like, let's all get too graphic. But like, there's got to be a purchase problem. Supposedly not. Supposedly not. It's a water, but like, you're like sloshing around. It's not really...
+
+[00:20:52] A pageusive to... They were good times. I know they were popular. At one point, I think a fifth of mattresses being sold were water-beds. Yeah, mattresses. I read that. I thought that was... I actually read that in 1987, which the year I was born. LAUGHTER Yeah, I read that. I thought that was... I actually, 1987, which the year I was born. I was saying.
+
+[00:21:05] LAUGHTER And Hugh Haffner famously bought one for the Playboy Mansion that was upholstered in Tasmanian Possum hair. Isn't that the most disgusting thing you've ever... Also, it's not ever heard. They're not very big. Possum hair. So many Tasmanian possums has. Yeah.
+
+[00:21:25] So it had this reputation for being very kind of like a sexual aid. Because another tagline for it was two things are better on a water bed and one of them sleep. I know. Like one in five, kinky people are just like getting off of your parents, one of them, Two of them. Two of them here. Getting off on water beds. And honestly, must have felt so sick,
+
+[00:21:49] because it's the worst thing to sleep on. Isn't there a point where you stop... If you stop moving, the bed will eventually stop moving. No, no, it keeps moving. You're kind of like... You're lost at sea. It's a extraordinary experience. I can't... But that's a...
+
+[00:22:04] I'm not going to imagine you ringing up the coast guard. LAUGHTER How are you? Away from the sexual side, it was also seen as quite therapeutic. So, for example, the friends of Charles Hall, when he first invented it, said, you should name it the Bed Wum, because it feels Wum like it feels like it's...
+
+[00:22:22] It's quite good. It's good, good, good, good. It's a good line. Get a Bed Wum for your bedroom. It's a good line. It's a good line. Get a bedwimp for your bedroom. It's a good line. It's a good therapist, thus. And then there was, in 1988, the American Journal of Disease of Children published an article in which they said that, for infants that were born to drug addicted mothers, if you kept them on water beds rather than bass and ets, that would be better for them, this sort of constant womb-like movement going on as they sleep. Yeah.
+
+[00:22:45] So it was seen as therapeutic as well. Well, the thing is that he did invent the modern water bed, but actually there were earlier ones, and they were used therapeutically. So they were used during the war to prevent bedsoars. And these weren't like the ones that we had in the 80s, but they were just kind of like, I don't know, like you know one of those blow-up mattresses, but they were just kind of like, I don't know, like, you know one of those blow up matresses,
+
+[00:23:05] but we're water inside of it. Matt Twain wrote about them, and Elizabeth Gasko wrote about them. Charles Hall couldn't get a patent originally, because they'd been described by Robert A. Heinlein and quite a few of his books mentioned them. And when he tries to get a patent, they went, well, it's in all these science fiction books, so you can't have invented it,
+
+[00:23:21] so he had to change if you think so, yeah, that. But when they became quite lame, which was quite quickly, so they were like massive in the early 80s, right? And then by the late 80s, they were really passe, like no one really wanted them anymore. And they had all these water beds. They didn't know what to do with them. And they gave them to dairy farmers,
+
+[00:23:38] and the cows would sit on them. So... Oh, and that's still the... They still have the cows. The cows... They famously sleep on water beds. The Kings cow. sit on them. And that's still the other thing. Yeah, the cows. They famously sleep on water beds. The Kings cows. Well, now the Kings cows, yeah.
+
+[00:23:51] I don't know if he's changed it though, but the... Sure, OK. I've been waiting 70 years to kick those cows off that bed. My cows now. That's what he was waiting for. So most, if you're... They're so heavy. As you say, they're so heavy. Like a normal...
+
+[00:24:07] In practical thing, ever and ever. Like a normal mattress is quite heavy, you know? Yeah, but you fill it with water? You're joking, you know? It's like... So some of them can weigh 900 kilos, if you've got a big double or a king's size. That's a lie.
+
+[00:24:19] And there's a concern in some buildings, if you're in a flat or you're in an upper floor, obviously, and you know, then it'll go through the floor. And most New York leases contain a standard clause which says, no water beds. Right. I mean, probably because of, you know, maybe it's just bureaucracy, but in California, on the other coast, the civil code says landlords cannot discriminate against people who own water beds.
+
+[00:24:41] No. As long as they have taken out water bed insurance. Right. And responsible thing to do, you've got to do that. It is. Well, I quite like as well in 1990, speaking of California, the Compton Fire Department within their fire station changed all of the mattresses to water mattresses. Not so that, like, if there was an emergency. Just if they needed more.
+
+[00:25:00] No, no, no. It was the effect on their back, apparently. They, someone had said, I sleep better on a water bed And so they all but that's all been disproven that it doesn't actually help because there's a lot of things It helps like your posture like your joints that it isn't true. Really, okay. Yeah, apparently it's not true I'm just obsessed that there was a water bed magazine. Oh, yeah, I know I tried in the 80s. I tried finding it Yeah, so did I. Oh my god, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, What... I mean... What other interpretation... I... I... I was double checking, because I thought I'd buy'd have heard you say,
+
+[00:25:51] flick your mattress, and I wasn't sure. How often do you flick your mattress? Twice a night. Oh, how often do you flip it? Well, this is what's amazing. Not as often as I should, I'm sure. And I was planning tomorrow to flip my mattress out of here. No, yeah, yeah, absolutely, because both Finale and I are falling off the edges
+
+[00:26:07] on both sides at the moment. It's gone soft on the outside. On the outer edge. Yeah, on the outer edge. That's not going to help, though, because it's still going to be the outer edge. I feel like it's upside down anyway, because I noticed recently I've been sleeping on a zip the whole time, and I'm pretty sure that's the wrong side. Okay. So, I thought you'd just sort that right out. Just grab it in, you'll be fine.
+
+[00:26:29] Anyway, half Americans claim they flip it every six months. And I just think half Americans are liars. I think no one possibly does it that much. But why should you flip? I think it's... It's... No, it's... Well, I'll be fine. I can tell you exactly why. You get soft on the outside.
+
+[00:26:45] Yeah. Then you fall off on that. That's why we're doing it. Is it not to try and aerate out a little better? I think it's not the same bit of you always hitting the same bit of the mattress. Right. So it refreshes it a bit.
+
+[00:26:56] It moves the scene around. Because matches are disgusting, because they're full of skin cells sweat, like bed bugs. So I think this is the way of just sort of redistributing the skin cells sweat. Yeah. You should really get ripped. They're so expensive mattresses. Yeah. They're like thousands of pounds.
+
+[00:27:11] You can't just, because you should really replace them regularly, I think, but that's why you should get a water bed. Mm-hmm. Oh, yeah, because you just changed the water. Well, not even, you know. Because water doesn't go rancid. I don't like jelly. Yeah. To bring us back toancid. Unlike jelly. Yeah.
+
+[00:27:25] To bring us back to the start of the fact. I need to move us on to our next fact, guys. MUSIC OK, it is time for fact number three. And that is my fact. My fact this week is that there used to be a room in the Pentagon where employees met specifically to have Pokemon battles.
+
+[00:27:46] This is a discovery that was made back in 2016. Was there a situation room elsewhere in the Pentagon where other officials monitored the progress of those Pokemon battles with the screens? Do you think they have tables where they're pushing the Pikachu along? Yeah, exactly, yeah. That's the situation room, That's what it's for.
+
+[00:28:06] Yeah. So this is Pokemon Go. There was a huge craze, particularly about... Still is. Yeah, but there was a mo... Well, James is... What's that T-shirt you're wearing, James? This is... I mean, this fact is up my street, because I do like Pokemon and changing regimes in countries that I don't like, so...
+
+[00:28:24] Ah! Oh, James is.... So... Oh, my God. James loves political tonight. James loves Pokemon Go so much. I don't know if we've ever said this. Do you like it so much that when we went for a meeting for the first time ever, we were going to have a book of the year, no such thing as a fish book, and we were going to pitch it,
+
+[00:28:38] we ended up being a bit late to the meeting because we were following James, but it turned out James had spotted a very rare Pokemon down the road from where we were... And we just blindly followed him, and then we were following James, but it turned out James had spotted a very rare Pokemon down the road from where we were, and we just blindly followed him, and then we were like, where are we? And he was like, yes, snuff a lot for us all, whoever it is.
+
+[00:28:52] LAUGHTER It was that week they did a Sesame Street special, wasn't it? A Pokemon Go. OK, so here's the thing, it's Pokemon Go, and Pokemon Go was the app, and you would go, and you would collect the Pokemons in various different places. You had to walk around, didn't you? You would walk around, and yeah,
+
+[00:29:07] and then what they had as part of the app, I've never personally played it, so this is one of one for people at two. You have gyms where you can take the Pokemon two, the Pokemon you have collected, and they can train there, but they can also battle for dominance of the gym, and those would be plopped all over the world
+
+[00:29:24] in random spots. And it just so happened that one was in the Pentagon. And so anyone who was an employee there, and it would be specifically employees, because if you ever go on a tour of the Pentagon, you have to leave your phone. You're not allowed to bring your phone in with you. So it was specifically employees
+
+[00:29:38] that were going to a very specific spot. And then they'd battle each other for dominance of this gym. And this was a huge problem because the Pokemon app can track where people are going. So their worry within the sort of the Pentagon was that it shows the roots that people are taking. So was there a secret passages within the Pentagon
+
+[00:29:57] or even just mapping out the general landscape? That's something that the information could possibly be hacked into and retrieved. Someone might know that the Pentagon is Pentagon-shaped. I mean, that would be awful. Do you imagine? So they said, no more Pokemon go in the Pentagon. Do you know why the Pentagon is Pentagon-shaped? I think this is amazing. No.
+
+[00:30:16] It's because they were going to build it on a Pentagon-shaped piece of land. And so they wanted the right shape of building for that piece of land. So it had to be a Pentagon. And then they wanted the right shape of building for that piece of land. So it had to be a Pentagon. And then they decided to move it somewhere else. And they thought, well, we've gone so far with this shape. We might as well keep it. That's literally the only reason. I mean, there's lots of good things about it being Pentagon's shape. But the reason is just it was supposed to go on this bit of land. That's incredible. What are some of the good good things? Well, a circle is very good, because you can get from one bit of a circle to another bit of a circle really quickly.
+
+[00:30:48] Yeah. And a Pentagon is a bit like a circle, but it's got straight edges, so it's easier to build the circle. Yeah. It's more of a circle than a square. Absolutely. Yeah.
+
+[00:30:59] Less than a hexagon. Oh, sure. Food for thought tonight. And in the centre of the kind of circular Pentagon is a now closed hot dog stand. Yeah. Yeah. During the Cold War, the Russians always had at least two missiles aimed at this hot dog stand, because they thought that that was the Pentagon's most top secret meeting place. It was just where people got lunch, but they were convinced that it was...
+
+[00:31:34] Was it because they saw people kind of congregate there? And they'd be like, what... That has to be the... That's the heart of the Pentagon when actually... Wow. It was just a hot dog stand. I know. Was it... Was it a part of the Pentagon, this hot dog stand? Yeah, yeah. OK. It was inside.
+
+[00:31:48] I still feel like if the missiles hit it, the other bit of Pentagon would suffer some damage. Yeah. They're not really so specific, the missile, that it's like, no, yeah. But it's not fascinating, I think. Did they know that? The hot dog owners at the time.
+
+[00:32:02] I think they did because everyone used to call it ground zero, didn't they? That was the nickname for it. The reason being that if the Russians hit, it would become Ground Zero, it would come flattened. Blimey. Yeah, right.
+
+[00:32:13] I read a thing that the Pentagon owned. Just their cool stuff division. They own a laser, which, that's not the cool bit, which can analyze who you are based on your heartbeat alone. Really? So, you know, all of our hearts have the unique cardiac signature, how our hearts beat. And they can point that laser at you from 200 metres away
+
+[00:32:34] and say, there's Dan, or whatever it might be. Why, if I've let you just gone up a flight of stairs or something, would it change my heartbeat or... Which I personally... So maybe it changes with the same, but it's still recognizably you. Yeah, they're good. That's James, and he's very unfair. LAUGHTER
+
+[00:32:51] There's a few flaws to this thing, though. It's called Jetson, which is what they've developed. And the flaws consist of the fact that, A, we don't really have that bigger database of people's unique heartbeat. So when everyone's coming, they can go, ah, no, I didn't do that. That's right.
+
+[00:33:08] And then the second floor, and this is, you know, 200 meters away we can do this, is there a claim. The other problem is, yes, they can do it if you're wearing a t-shirt, but if you're wearing a coat, they can't get you. Yeah, so it's half useful. Yeah, it's not as good as the fingerprint yet, or the eyeball. The light sheet? The light sheet. Thank useful. Yeah, it's not as good as the fingerprint yet, or the eyeball.
+
+[00:33:25] The light sheet? The light sheet. Thank you. Yeah. I was reading about the Pentagon generally about tour guides, because you can go there. I imagine Jamie, that's somewhere that you might have gone, but maybe not yet.
+
+[00:33:37] I haven't. But you love this kind of stuff, right? So yeah, I actually have a friend that worked at the Pentagon. Do you? He didn't reply to my emails about fun facts about the Pentagon. So the security is really high, guys. We're safe.
+
+[00:33:52] But one of the things is the stats that you get told about the tour guides that work there and one of it is that they walk two to three miles per day, but entirely backwards. Because when they're doing their tours, they never turn around to lead because they always need eyes on the people that they're taking on the tour guide. So they guide themselves? Yeah, they guide themselves by landmarks. So as they're walking back the go there's the fire extinguisher. That means you know 10 steps until you get to the next corner then I can round it like that. And so yeah, every day two to three miles of backward walking. That's what they say. And there's loads of ramps. That's really quite impressive to walk down a ramp backwards. You know, there's like no lift to the Pentagon.
+
+[00:34:32] It was built with one lift because it was built during the... Because it was made of concrete. Yeah, it was made of concrete. And it was, in fact, it's nicknamed the concrete cobweb, which is cool. Right. And it had one lift for 33,000 people in the early days because you can't make lifts out of concrete. That's right. And they were saving steel for the war efforts.
+
+[00:34:51] They didn't want to... Yeah, yeah, yeah. They've now put some more in. They've now got thousands and dozens. I love the idea of you repeatedly emailing your friend. He's in the middle of looking at a screen. And there's like a bomb counter on it. I know.
+
+[00:35:02] It's somewhere in Ulam-Bar, but I don't know where. Just ping, ping. I just want to give you some of my previous, as like fun facts, request me, man. Is it true that they used to have office chair races down the ramps in the pentagon? That's all I wanted to know. I think what he's really going is, God damn it, snuff a luffagus. Come on, win this.
+
+[00:35:18] Pokemon, Pokemon, Pokemon. No, he can't because they've banned the Pokemon. Yeah, of course. They also banned... Yeah, well, that was the whole thing that you aren't allowed it anymore. Yeah, it's out and out. Because they've, that banning things left and right at the Pentagon, like TikTok's now banned at the Pentagon.
+
+[00:35:32] But they also banned Furbies. Oh, yeah. In 1999. Because they're called, what do you say? Well, they don't. But they kind of marketed themselves as the thinking toy or the chatty toy or something I don't know and they were like concerned that it would be a security risk that they would like yeah record what you were saying and then say it back to you
+
+[00:35:51] I think it's fair enough to ask people not to bring furbies in It's like a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad team and a bad You say that. The Pokemon Go is just as kind of making childish. I don't want to, you know. But the... I think we say for all ages. For all ages. Sure, sure. It's a game. Three in the end, three episodes of No Six. They say it.
+
+[00:36:16] Yeah. The Burpees was really interesting, wasn't it? Because the way they worked is they had a stock number of English words they had. And they had a stock number of fur words they had and they had a stock number of Furby's words that were just like no no no no all that kind of stuff and it started off they could just say the Furby words and then as you owned it for longer and longer it kind of put more and more of the English words into the
+
+[00:36:38] vocabulary and so people thought that they were picking up words that you would say today but actually it was just programmed to do that but that's a bit like how it is with children, isn't it? Yeah. Like they start off talking complete nonsense, and then by the end of there saying, like, no, no, or dog or whatever. Oh, no. Yeah, yeah.
+
+[00:36:54] So that's kind of, maybe that's why they made the Furby like that. Yeah, I just say. Or maybe all children are actually fake. LAUGHTER Prove me wrong. Which is more likely, I don't know. But yeah, like the guy, or the CEO of the company that made Furbies had to come out and say,
+
+[00:37:09] this isn't true. Our Furbies actually aren't. It's clever as we've been lying about. Wow. And then he also said, you know, there was a rumor that they could send, they had enough technology to send something into space. And they said that one woman...
+
+[00:37:23] Wait, wait, sorry. Yeah, just break that out a bit. Wait, what are the... Like, somebody thought the Furbies had so much power that they could send a rocket into space. Are we talking about a complete Cape Comever all set up? Yes! ...with his entirely starved hair.
+
+[00:37:38] Furbies are all the desks, like there's a Furbie in it. With the briefcase going on to the ship. LAUGHTER Actually, if Elon Musk zips down his jacket, it's just furbies all the way up. He is a furbie. What does that mean? He could send a rocket to space.
+
+[00:37:54] Well, it's the AI worry of its day, I guess, right? It wasn't true. That's what he was saying. Because he also said that there was a woman who was absolutely insistent that her furbie was singing Italian operas. That also wasn't true. Oh my God, but she was hearing. She was convinced that she taught this firby anaria. And she's like, my firby's really good at opera.
+
+[00:38:13] And he's like, they literally don't have that capability. So they kind of had to backtrack on all of their marketing campaign of the... Wow. These would like, yeah, clever toys, but they were actually all pre-programmed in the ball. Scam, was it? It would be a haunted firby. And that's a ghost, clever toys, but they were actually all pre-programmed. God, cool and cool. Scam, was it? Imagine being a haunted Furby. And that's a ghost I will believe.
+
+[00:38:29] Yeah, yeah, yeah. Imagine the next, like, crude moon mission, but it gets them. It finds they have built their own society without us noticing. The Furby's beat us to it. The dark side of the moon is entirely Furby. I'm denobrated now. Now, have you heard of Tia Piccachu? I'm not excited as the moon is in tiny, Kirby. I'm denobrated now. LAUGHTER
+
+[00:38:45] Have you heard of Tia Pikachu? Oh. So she is a Chilean schoolteacher. And they've had a load of protests in Chile against the government. And she decided to go dressed as a giant Pikachu. The reason being that her seven-year-old son had maxed out her husband's credit card buying detective Pikachu merchandise, they managed to send loads of it back, but some of it they couldn't send back and this giant sort of inflatable Pikachu they couldn't send back. Okay, so then
+
+[00:39:18] they have some protests in Chile and she decides, well, I'm just going to go dressed as a Pikachu, because why not? It's a protest. And she just became really, really, really famous, because there was video of her being watered, fired with water... Canada? Water cannon, yeah, in a big Pikachu costume being forced back. She was shot with rubber bullets dressed as Pikachu. Oh! It's absolutely amazing, but because she became so famous,
+
+[00:39:46] she is part of the team who are writing the new Chilean constitution. So after the protest, they decided that they were going to write a new constitution. Every five quarters is just going to say, becaue, becaue, becaue! LAUGHTER MUSIC
+
+[00:40:07] Stop the podcast! Stop the podcast! Hello everybody, just wanted to let you know we are sponsored this week by Squarespace, the fabulous website design website. That's right, yeah, design website for websites. If you are looking to have your own website, this is the website to go to. There are so many things that you can do using Squarespace to design your own website, this is the website to go to. There are so many things that you can do using Squarespace to design your perfect website, be it for business or personal use, you can do things like create your own merch, for example. You can actually design it on Squarespace and then
+
+[00:40:35] using the feature of the online store that they provide as well. You can then send your merchandise to whoever you want and it will deal with the production, inventory, and shipping, all done for you. There are so many templates that you can use to design the best looking version of the website and also, and you get very excited by this, there's a fluid engine. Ooh, I do. Fluid engine is basically the next generation website design system they've got. It allows you to start with a brilliant template and then customize every single detail very easily.
+
+[00:41:05] So if you would like to get your entrepreneurial website going today, just go to squarespace.com, that'll get you a free trial. And then when you're ready to launch your entrepreneurial website, you go to squarespace.com slash fish and you'll save 10% of your first purchase of a website or a domain. That's right. So squarespace.com, head there first for your free trial, and then once you've got it all go and looking good, head to squarespace.com slash fish, and you're gonna get 10% of your first purchase of a website or domain.
+
+[00:41:35] Do it now, okay? On with the show. On with the bookers. [♪ OUTRO MUSIC PLAYING [♪ It is time for our final fact of the show, and that is Andy. My fact is that, in 1972, a family who had survived a shipwreck kept themselves alive by giving each other turtle blood enemas. Guys, it's a light-hearted and funny fact.
+
+[00:42:01] Um... Well, I just imagine, like, that family's seeing each other at Christmas. Yeah. You know, they haven't seen it. Should we talk about it? No, let's never talk about that again. Never talk about it again. No, go on.
+
+[00:42:11] Give us the context. This comes from an amazing piece that was in the financial times by a writer called Kitty Drake, and she was interviewing people who had real knowledge of shipwreck and being cast away. And she spoke to a man called Douglas Robertson, who was sailing around the world with his family, his siblings and his parents.
+
+[00:42:30] He was 18 years old, and their yacht was attacked by killer whales. So they were halfway across the Pacific. They completely battled the yacht. The family all abandoned ship into a small dinghy that was, I think there were six or seven people in this dinghy that was designed for one fewer than the number of people who ended up in it. They were 200 miles from the Galapagos and the wind was going in the wrong direction. So they were really in trouble.
+
+[00:42:54] They spent 38 days stranded in a Pacific and they were sailing towards the doldrums. They were trying to get weirdly to the doldrums because there was a better chance of being spotted and detected where they were heading to. So the doldrums is where there's not as much wind or... Exactly, sorry, yeah, the region where there's no wind. But it does get lots of rain. So anyway, so they're in big trouble. They did manage to get some turtles on board and they had to hunt the turtles that approached
+
+[00:43:19] them. And they used their blood as soup, so that's a good thing. Then unfortunately, the water ran very low, and they only had the old fish polluted rainwater in the bottom of their dinghy. And it wasn't safe to drink. But the mother of the family, Lynne, was a nurse, and she realized you could absorb it safely
+
+[00:43:37] through your bottom. And so, everyone in the family got a rain. Guys, this is funnier than we're... LAUGHTER I feel like it's tension in the room. They all make it. They all made it and they got a rain. Guys, this is funnier than we're... I feel like it's tension in the room. They all make it. They all made it and they got picked up. It was all right. That's phylloreal, that's sorry. They were all right.
+
+[00:43:53] But anyway, she worked out brilliant and intuition that you could absorb it through your bottom. So everyone in the family got a rain and turtle blood. Enema, and it gets into your system, but it doesn't go through your... But so, what's... I'm getting confused when you say the enema bits. What do you mean?
+
+[00:44:06] Of the bum. Squirted up the bum. Oh! What have you been researching for? What have you been researching for? Yeah. Oh! Where, where, Dan?
+
+[00:44:15] Dan, Dan, Dan. Just, where does the orgy butter go? Think... In those terms. That's way more disgusting than what I've had. Yeah, it's horrible. Because that's a thing. Like, it's not just turtle blood.
+
+[00:44:28] Animals, it's disgusting. Rainwater is like infected fish guts water. Like, it's foul. So the point is... Yes, it's amazing. If you drink this stuff, it's got all sorts of horrible things in it, and it can make you really, really sick.
+
+[00:44:43] Now, if you go the other way, then there's a way for the water to go into your body through your rectum. But, because you're already getting disgusting things going down there anyway, your body is protected against those disgusting things. So, you can still get the water, but it won't get the bacteria and the not that.
+
+[00:45:02] So, here's what I thought they were removing the rectal membrane from the turtles and using that as a as a fact to collect the water genuinely. That's what the guttural. I like to collect the water. Well, you need to collect water to drink it through your fucking mouth. That was why you're collecting. It's got a massive fucking shell on it. If you want to keep water, if you ever get a turtle and you want to keep water, don't take the little bag out of it, say this. Just turn it upside down. We've got to get to its asshole.
+
+[00:45:32] Jesus. Wow. Turns out it's Dan's last appearance on those things as well. I'd love to see you on one of those reality ship like that was done. Meanwhile, on Dan's Island, things have gone for a bad for worse. Um, cool, that makes you... Oh, Dan, you're... I weirdly still think your one makes less sense. I mean, it's incredibly clever.
+
+[00:45:58] It's incredibly clever, and it did... It was the thing that saved their lives. I mean, you were really on the... And they all just trusted Lynn when she said that. She was a nurse. I get that, but like, how often are you...? I did a nurse, then. OK.
+
+[00:46:11] That's not common knowledge, I would say. I don't know. Wow. What I think is amazing is that there was the group... There was the husband and wife. And I think they had... Was it three off four kids? There were three. There were four, but one of them got off before this leg of the journey.
+
+[00:46:25] But that was lucky. Fuck that. Oh, it's gone, I'll die. I'll just die. Someone up, so in this family of everyone putting stuff up there as there was one guy who'd only just met them. Yeah. Is, did you read his name? He was called Robin Williams, weirdly.
+
+[00:46:43] Was he? Yeah. And he'd just taken a job on the boat and returned for his birth. And, you know, just... Yeah. It sounds like such a tough journey. But why are you all right? Oh, God. They had to spend six hours a day just blowing the dinghy up, you know, just because it was constantly losing air.
+
+[00:47:01] Yeah, yeah, yeah. Six hours a day. What could that be? What could that be? It was supposed to be fair thing. Well, you know, of day time. What could that be? To be fair, the weight wasn't even... Pass at the time. Yeah. And they eventually got back, didn't they? They did. And then the husband and wife just immediately divorced.
+
+[00:47:11] No! Did they really? Yeah. So the guy who was kind of took them on this trip, Douglas, he wrote a book and went to live in the med, and his wife became a farmer. Oh, because they were farmers before they saw it. Yeah, yeah, yeah. So they completely split up, yeah.
+
+[00:47:29] Wow. Gosh, that's sad. Is that it, is that it? Yeah. Did you hear... There was a recent someone stranded out in the ocean and having to get by with what materials they had, and it was a guy called Elvis. And he was...
+
+[00:47:42] He was found 120 nautical miles, northwest of Colombia's Puerto Boliva, I don't know how to pronounce that. Lovely, yep. And he survived, he wrote help on the hull of his sailboat and so someone saw that, but he was stuck out there for a long time. And he was 24 days, I think he was out there, and he survived almost exclusively on tomato ketchup from Heinz.
+
+[00:48:04] And so that became the story when he got back. And so they found him after being missing of all this time. And then Hines decided that they wanted to give him a new boat because they thought this was amazing. I thought you were about to say, give him some more ketchup. Yeah, yeah. That's much better. That's good PR behind, yeah, yeah.
+
+[00:48:21] So they thought they'd done it. They'd done that. Well, ages, they couldn't find him. So he disappeared again, but just into his normal life, because he was, you know, he didn't make a big they done it. They done that. Well, ages, they couldn't find him. So he disappeared again, but just into his normal life because he was, you know, he didn't make a big fuss of it. So there was a huge campaign to find the missing boat guy who then, and they found Elvis, basically, that, I mean, it was, yeah, a hard hashtag to use, but they, they found him and he's now got his boat. That's great. The tomato ketchup is exclusively what he was surviving on. Gosh. You can, just a tip for any of us who get shipwrecked, do have a plastic bag if you can. If you don't have a turtle to hand.
+
+[00:48:54] Yes. Why would that be? Well, you use a bag of water. What are you using this bag of water for, guys? We're inking out of. Making fire. You can make fire with a bag of water. Oh, like a lens. Like a lens. If it's a clear bag, do make sure it's a clear bag. Lot of caveats on this. No, I'm back for life.
+
+[00:49:14] I run it clear. Back for life, wouldn't work. That is. Yeah, and you'd be kicking yourself. Wouldn't you? Pay 30 papers. No, a box standard, like a clear plastic bag. If you can make it into a round shape,
+
+[00:49:31] you can use that to focus the rays of the sun onto your... On your tender. And then, and it makes fun. And if you don't have a plastic bag, you can use a light bulb. So, if you don't have a light bulb... Just have an idea. LAUGHTER Excuse my ignorance. Like, would it not... So, if you don't have a light bulb, just have an idea. Excuse my ignorance. Like, would it not melt the plastic?
+
+[00:49:50] Who is that a stupid thing to us? It's not a stupid question, but I don't think it would. I don't know why. OK. Maybe because of the point... Oh, the point of which the race focus is going to be the hottest point, which is not all the surface of the bag. It's on the whatever you're pointing at.
+
+[00:50:03] Interesting. I was reading some advice from a guy called Paul Hart, who is the Royal Navy. He's a lieutenant commander for the Royal Navy. And he was asked, if you get shipwrecked on an island, what should you be doing in order to survive? So he wrote this big list of stuff. And so here's a quiz-like moment here.
+
+[00:50:20] Oh, great. Yeah, great. So your boat has crashed on the shore, or your airplane has crashed into the ocean ocean and you've made it to shore. What is the first thing that you should be collecting in order to survive? From the... You're in an island. You're in an island.
+
+[00:50:36] Yes, so the food. Okay, so food would be a good one. Well, I would say the eight single CDs that I carry with me everywhere I go. I copy of the Bible that you always have. Copy of the Bible. And what would you like to read me? A lovely bottle of Tabasco sauce. Oh, lovely.
+
+[00:50:52] So the answer is he says... So, no, no, no. A lifetime supply of Marmite. Sorry, sorry, sorry. Oh, go on. Get that right. Orgy Butter, if that's not the way to go. One of the same to him. So, life jacket.
+
+[00:51:05] Life jacket? No. No. Seats can be used as floatational devices. I'm trying to remember what they've said to them. What things that you're going to take from your wreckage or things that are on the island? No, things that you take from the wreckage. Oh.
+
+[00:51:17] Something to say at the radio from the... A knife. Well, knife is, yes, it's up there. But he says... Clear bag. A clear plastic bag. That plastic bag. That's it. That's it. He says Wellington Boots.
+
+[00:51:28] Oh, OK. What? Sorry, when you get on a plane, do they just hand you some Wellington bits? He's saying any kind of very strong footwear that you can have, because you're going to be going into the ocean a lot in order to get food, you're going to be traveling an injury as the thing you need to avoid. Most of all, and your feet are most likely to be getting injured. Because actually, on that Ryanair thing, it tells you to take off your high heels
+
+[00:51:50] before you jump on the slide, doesn't it? Yes. And you're saying, you're saying, keep them on? Is that... We're like, no, so that's the biggest thing. That's interesting, yeah. That's interesting, yeah. I mean, Welles, it is quite a niche thing,
+
+[00:52:04] as James just said. Yeah, yeah. It makes sense. I would personally get a knife, because then you can fashion some sort of like... Make some... Well, come on, mate. No, welles! Come on! But you could like...
+
+[00:52:16] You could carve your own... No way. But you know what I mean? A knife shorty is the most important thing, because that can do a knife you can... You can tap... You can make shoes to yourself. You can tap the rubber tree, and then... LAUGHTER
+
+[00:52:29] With a simple mould, fashion from Bach. LAUGHTER You can go to your own Wellie factory, then. Look, yeah. You could trade the knife for some Wellies if there's some local Wellie owners. LAUGHTER There are local Wellie owners.
+
+[00:52:44] I don't think you need the well-eaters. You can just leave. You're probably in North Devon. Yeah. Oh, my God. Funny. I read the US Army Survival Manual. Oh, yeah. I'll see if the Enemies were part of their, yeah, suggestion.
+
+[00:53:02] There is one mention of En in the whole survival manual, and the idea is to use warm water animals as a way to treat hypothermia. Oh, OK. Apparently it's a good cause it warms you up from the inside, if you think about that. Oh, right. The thing that they said to drink is the aqueous fluid
+
+[00:53:21] found along the spine and the eyes of large fish. Right. Oh, god. That's interesting. Is that because it's less salty? Yeah, so everything else that's in the fish, all the other bodily fluids, I've got lots of protein, lots of fat, so it's going to make you more thirsty. Yeah. But just the water around the eyes and the water around the spinal fluid,
+
+[00:53:38] that stuff is just perfect. Right. I just want to quickly mention this guy, because one of the other things that this Paul Hart, that I was talking about, the guy who said that Wellington boots or what you needed. Oh, yeah. One of the things that he said that was really important was having positive mentality.
+
+[00:53:56] That's the main thing. As soon as you crash, you go, fantastic. This is great. And if you can keep that mindset, then you're going to be fine. And that really kind of is, that comes into play when you read about the story of Jose Salvador Alvorenga, who was a guy who was out at sea with one other person for 438 days. They were lost out at sea. And it was a positive mentality that kept him going.
+
+[00:54:18] And when he was interviewed by a journalist who wrote a book about it, he said, what's the thing that you remember most about it? And he said, my imagination, I imagined good food and I had the best sex in my life. And he used to, so they used the two guys used to see the planes that would fly over, that would never see them, and they would go, what do you think they're eating up there? And they would picture the food that they were eating. And they've had sex with each other. No, they never, they, they both would then have, the best food of their lives on a plane. Has he been on a plane?
+
+[00:54:49] Better stale bread and something a little reheated tray. Yeah, great. Better than whatever they were eating up their assholes at that time. It was that smell. They're on a dinghy out. And so, and yeah, diggy food. Yeah, diggy food is terrible. What's that all about?
+
+[00:55:04] Yeah. So he used to, both ofie food is terrible. What's that all about? Yeah. So he used to, both of them would do this. They would sit, but in particular, he'd sit there every day. He'd close his eyes. He'd imagine that they'd actually crashed onto a beach and there was a beautiful woman walking towards him and they would have sex. And he said, every day, he just had amazing sex in his head and that kept him positive. Wow.
+
+[00:55:22] Yeah. The other guy died, right? Did he? I think so, yeah. LAUGHTER He wasn't positive enough. LAUGHTER God, say... LAUGHTER
+
+[00:55:33] I believe if you were just a bit more positive... LAUGHTER ..as he's throwing him off the edge of the tinky. LAUGHTER LAUGHTER I was going to ask, actually, who? LAUGHTER No, just quickly. Who, out of...
+
+[00:55:49] Say, the three of you got shipwrecked. Who would you think would survive? I would die first. The fur... Like, I... I died within 30 seconds. Did you think... Yeah, yeah, yeah. I would start a leg. I would start now. We're going to have to eat him.
+
+[00:56:01] We're going to have to eat him. There's a guy selling Wellington Bimson. No, no. Cannibalism returns to North Devon today. Oh, God. And Dan's probably the most positive, so I guess you will. Oh, yeah, yeah. Dan will be having fantastic sex.
+
+[00:56:20] And eating delicious plain foods. Oh, God. I want a treat. All right, we need to wrap up. That is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on At Shrivelad, James.
+
+[00:56:46] At James Harkin. Andy. At Andrew Hunter M. And Jamie. At Uncle Eagle. Yep. Or you can get us on our group account, which is at No Such Thing. We can go to our website. No Such Thing. Asafish.com. All of our previous episodes are up there.
+
+[00:57:01] Do check it out as well as Club Fish. Very exciting place. But that is all for tonight. Thank God. previous episodes are up there, do check it out, as well as Club Fish, very exciting plays. But that is all for tonight. Thank God. LAUGHTER Pretty good end to this. Thank you so much, SoHo.
+
+[00:57:12] That was awesome. Thank you for coming to our show tonight. And we're going to be back again next week with another episode, and we'll see you then. Goodbye! CHEERING AND APPLAUSE Thank you.

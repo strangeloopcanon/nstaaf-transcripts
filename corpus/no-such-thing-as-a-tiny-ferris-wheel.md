@@ -1,0 +1,263 @@
+# No Such Thing As A Fish - No Such Thing As A Tiny Ferris Wheel
+
+- Episode date: March 27, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-tiny-ferris-wheel
+- Slug: no-such-thing-as-a-tiny-ferris-wheel
+
+## Transcript
+
+[00:00:00] Hey everyone. Welcome to this week's episode of Fish. We hope you're well. We hope you're safe. And we hope you're not going outside. This week's episode is actually our first work from home episode. We're all in different locations. Andy actually is so far away that he actually didn't make it onto the show at all. So Alex Bell is joining us for this one. But Andy will be back next week. He will be back next week. He suddenly will. He can't wait. All right, mate. Not yet. But we, yeah. So this will be our first. episode, but we thought in order to help distract you, to stop your mind from going crazy, we re-uploaded 52 episodes that were taken off a few years back. It's our second complete year of
+
+[00:00:40] fish, and you can listen to them wherever you get your podcast from. That's over 30 hours of old material that we've brought back to the surface. So we hope you enjoy those. We hope you are staying safe, and we'll continue to do this. So here we go. Let's do our first work from home episode. On with the show. And welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you not from the QI offices in Covent Garden, but from four self-isolated bits of the UK that we cannot disclose the locations of. My name is Dan Schreiber. I'm sitting not with Anna Chisinski or James Harkin or Alex Bell, but once again, we have gathered together over the internet to share our four favorite facts from the last seven days. and in no particular order, here we go. Starting with you, Anna. My fact this week is that before we had the technology
+
+[00:01:47] to take photos for mugshots, policemen had to visit prisons to memorize all the inmates' appearances. All of them? Well, in some prisons, I think. Is that like the knowledge for taxi drivers? It was exactly that, yes. And then a lot of it got automated
+
+[00:02:04] and put a lot of the old-school taxi driver slash memorizers out of business. Does that mean if you're like me and you can't recognise people's faces, you can't be a policeman? You would not have fared well in that phase of the interview process, certainly. So I'm reading the Pickwick papers at the moment. And there's a scene where, spoiler alert, Mr. Pickwick goes to a debtor's prison. And then suddenly the scene came up, which was Mr. Pickwick sits for his portrait and described him being sat down and a policeman saying, okay, it's time to sit for your portrait, sir. And it said, a long, thin man planted himself opposite and took a good long view of him.
+
+[00:02:40] A surly-looking gentleman stationed himself close and rested his hands on his hips to inspect him narrowly. And then two others came in and studied his features with the most intent and thoughtful faces. And then they took this likeness and at length it was completed. And then they said, okay, you can go into the prison. And it seemed to be just standard practice as you're going into jail. That sounds like a date to remember you.
+
+[00:03:02] Sounds like a date. What very weird, awkward dates you have. Do you just stare at the person across the table? Well, otherwise he'll never know on the second date who it is if he hasn't memorized what they look like. Dickens must have known the Pickwick paper Debtors jail really well because his dad was in there for a long time, wasn't he? Yes.
+
+[00:03:21] Well, he based another little Durrett is based half in Adetter's prison and this was like his warm up. Yeah, he knew it very well. And it was Fleet Prison that this was set in and Fleet Prison was next to the River Fleet, which is a now underground river that runs through London. Wow. So that's amazing that you used to get your portrait done
+
+[00:03:39] because that's a very lengthy process. No, no, no, it wasn't taking his portrait. No one was drawing his portrait. It meant getting his portrait done as in people staring at him and memorizing his face. It was a metaphorical portrait. A metaphorical portrait. Indeed.
+
+[00:03:55] But then the first things that they did record when they started thinking, actually, we should probably just stop trying to work everything out by memory is they didn't, they still didn't take pictures or portraits or photographs or anything, or even do sketches, they started taking measurements. A Belgian prison warden called Stevens in 1860
+
+[00:04:12] is one of the first people who started measuring criminals like heads and their ears and their feet and how tall they were. Like basically if you were measuring them up for a suit or something, which feels like incredibly like lengthy way to, you then have to re-measure every single suspect that comes in and line up all of the measurements with everyone. Yeah. Also, a lot of people have quite similar measurements.
+
+[00:04:32] You know, when you're roughly six foot with brown hair, average weight. It's very hard to narrow it down. It's not going to be like this person's ear is two and a half feet long and this person's, you know, lips are five inches in width. No. I should say that I did further research into this other than just assuming that a fictional book contained the truth. So just to be clear, this was definitely the case and it was a thing that was done
+
+[00:04:57] to identify criminals. And it's mostly to spot reoffenders, right? So if someone comes into the prison, it's so a policeman can say, oh, yeah, he's been in three times before. And it was really. pioneered by this guy called Eugene Francois Vidoque, who was right at the start of the 19th century criminal, in fact, a criminal turned policeman who pioneered this mass memorization program. So he would train up all his agents to make regular trips to all the prisons around the country
+
+[00:05:22] and wander around the prison yards and memorize all their faces. And it was thousands of faces they memorized. I think something like 30,000 prisoners they had committed to memory. So it did happen. He was an extraordinary character of this guy, wasn't a Eugene Vod. So he was first put into jail when he was quite young by his own father. He had robbed his dad's pawn shop. Can I just say when you say pawn shop, you mean people were giving goods to get money back for them?
+
+[00:05:50] Or was it a pornography shop? No, specifically that one chess piece. A lot of people losing them. So yeah, did a good business out of that. Yeah, no, it was for pawning items into a shop. So he stole from there. His dad put him into prison. he stayed there for about two weeks.
+
+[00:06:08] Then when he came out, he robbed the shop again, took all the money and ran away and was going to go on a ship to America, but then heard that there was a circus in town, so tried to join that, but quit because he was too afraid to bite the heads off chickens, as was one of the acts they needed him to do. Also, he started making out with the puppeteer's wife
+
+[00:06:26] while they were doing the show. Yeah, that was geeks, wasn't it? Wasn't it geeks who were the people who bit the heads of chickens at circuses? Is that right? That's right. Yes. That's why they called me a geek at school.
+
+[00:06:37] Sure, I did, Alex. So Vidok had a really good memory, didn't he? He could memorize all these people absolutely perfectly. But he said that he couldn't really require the same of his agents because he initially hired 28 detectives, all of whom were also criminals, to join his kind of police force. And then he decided that he would set up index cards with all of these different aliases, convictions, what they would do, how they would like to break into.
+
+[00:07:05] to places and stuff like that. And basically that was the start of intelligence. Yeah. So it was like flashcards, but for criminals. Exactly. We're like a massive game of guess who. Yes. James is looking so blank like he has no idea what that game is. I know. James would be so terrible at guess who. Yeah. It's just the same face on every card. He wasn't very popular. He wasn't super popular because of his habit of just employing criminals. So he wasn't very popular among criminals because he went to prison and then he used the fact that he was a criminal to report on all his other. mates who were criminals and get them in trouble. And then, yeah, he employed these people in the force who kept on just recommitting crimes.
+
+[00:07:43] And so I think the police weren't huge fans of him. And in fact, when he became the head of what was essentially the sort of undercover police force, then he was still a wanted criminal in another place. And there was this constant back and forth between the police force that he was running, saying, no, no, we need him. And the prison's saying, well, we want to put him in jail. Wow. Fingerprinting, another useful technology.
+
+[00:08:06] We used a lot. So this was proven to be superior to the old just like taking someone's measurements, height and weight or memorizing their faces. It was proven to be vital with the case of Albert and Ebenezer Fox. I didn't know about these guys. They were identical twins. And this was the turn of the 20th century. And they were both serial criminals. They were poachers and thieves.
+
+[00:08:27] And because they were identical twins, they just played this really fun game. whenever one of them got arrested, they sort of say, no, it's my brother, mate. And what are you going to do to prove it wasn't? Or you can do is memorize my face. And so there was this one policeman who said, we've got to get a better system here and realize that their fingerprints were actually different to one another, even when everyone else is the same. But what I like is that, there's an estate in Woolmer Green,
+
+[00:08:50] which is a place in Hertfordshire. It would be so great if there was someone listening who lives there and who didn't know this. There's an estate in Woolmer Green called Twin Fox's estate. And these guys are pretty obscure now. almost lost to history, but the Twin Fox's estate has these two busts at the entrance to it of the identical twin Fox brothers. So it's an estate which is just in honour of these serial criminals. That's incredible. Do you think if you were the sculptor of that, would you do two different sittings with the two different brothers or would you just think, you know what?
+
+[00:09:22] Well, you think he sculpted the individual fingerprints on the fingers. Just back very quickly to Vidok. So he was quite famous in his day, wasn't he? He was someone who was notorious for these stories of adventure and espionage and so on. So much so that he was actually, he inspired characters and fiction. So Le Miz, it's said that he is the inspiration for Jean Vajon. Oh, is he? Yeah.
+
+[00:09:54] But not only that, he is also the inspiration in the same book for the policeman character. What's his name? Javier? I haven't read it, mate. He's played it, James, didn't you? Well, I read the first hundred pages over the cost of about four years. In the movie, he's played by Russell Crow.
+
+[00:10:15] So I think he's called Javier. But I might be pronouncing that wrong. But it's the two different stages of his life. He was so inspiring, both in his notorious criminal activity and his police work, he appears twice as inspiration. Either that or Victor Hugo is an incredibly lazy author who just couldn't even be bothered to reach to two sources for inspiration. Well, I was wondering if it's just like one of those really hack horror movies where it turns
+
+[00:10:41] out that it's two parts of the same person's psyche that does the murder or whatever. Do you know what I mean? Like he's a Jekyllyn Hyde. Are you describing Fight Club as a really hack movie? I haven't seen Fight Club or even be dreading. Wow, you just spoiled it. for him Anna. I have just done that.
+
+[00:10:59] Do you not know the first rule of fight club for fuck's sake? Damn it. Okay, it's time for fact number two, and that is James. Okay, my fact this week is that scientists working in the Arctic Ocean have caught chlamydia, and they can't explain how. Okay. So, when I say caught in this response. I mean like catching a fish or catching some species of organism because they've gone down to the bottom of the Arctic Ocean and they've extracted some sediments from there and they've looked at what life forms are down there and they've found chlamydia.
+
+[00:11:44] And it's strains of the chlamydia family. So it's not the chlamydia that you get as humans, but they're related organisms of the same family and they can't work out why they're there. it doesn't make any sense. Chlamydia tends to, or always, as far as we know, needs a host. So it needs to live inside the body of another animal. But when they found these things, there was no other animals there. So they just can't work out why it's there and how it got there. And has the Arctic denied all knowledge?
+
+[00:12:11] As it said, you know, me and the Pacific are just good friends. I don't know what you're suggesting. I think protesting that it's not quite the chlamydia you know doesn't really make it any better. No. I think, well, the thing is that the Arctic is being. penetrated by the Atlantic at the moment because of the change in temperature on earth and warm, salty water coming from the Atlantic
+
+[00:12:35] is kind of coming into the Arctic at the moment and causing quite a few problems for the global climate. So maybe it's something to do with that. You think there'd be enough plastic in the oceans that they could penetrate each other safely, but apparently not. Indeed.
+
+[00:12:50] Yeah, the number of condoms we've given them over the years. You're right. So there you go. That's a thing that's how. And they found it out quite recently, and it's been in a lot of the science sea kind of publications and new scientists and a few things like that. And I just find it really interesting. So are we going to give the ocean bed antibiotics? Or are we just going to let them suffer? That's what we need to do, pour more chemicals into the ocean. I think it's not that they're suffering. These are just organisms that live there. They're just living their life. As far as I know, they're not doing anyone any harm. They just, they're part of the of the biosphere, really. Okay. So like I say, we don't really know why they're there because they've tried to get the microbes and grow them in the lab,
+
+[00:13:31] but they've not been able to do it because the pressure underneath the sea and basically the conditions down there are very different than what we can make in the lab. So it's really, really hard to study. And it could be that they're using other microbes that are living in these sediments and they're using their bodies, as it were, to live.
+
+[00:13:49] But we really just don't know. I was reading about other symptoms of, just for this podcast, of normal chlamydia. And did you know that if it goes untreated, you can get a symptom called saxophone penis, which is when the penis bends into the shape of a saxophone? Okay.
+
+[00:14:07] Hang on with a big open end bit. No, you can't play it. It doesn't turn into a saxophone. No, but you said the shape, so does that mean it's kind of thin at the top and then bends around and it's got a big bell at the end? It's basically a big bend where it shouldn't be, and it looks like a saxophone.
+
+[00:14:22] Sexing is a little bit of a saxophone. like as well that's yeah good luck getting that one convincing pickup line you sure that that does look like extreme chlamydia to be speaking of the arctic and penises there is a thing called polar penis that you can get oh wow um this was um an antarctic adventurer called Alex Brazier um who reported this um only last year i think it was so he was walking through the Antarctic and Obviously, his trousers were not thick enough, and he said he suffered from an extremely cold, painful and swollen member. And the only way he knew how to treat it was to put a hat on it.
+
+[00:15:05] Right. Is that effective treatment ever? In this case, he had a woolly hat. His penis was too cold and it was getting sore, so he put a hat on it. And it was fine. And I like to think, you know those innocent smoothie bottles that have the little woolly hats on? Yes. I like to think it would be like,
+
+[00:15:23] one of those little hats that you carry around with you or something. Wow, you just made them a lot less cute for a lot of people. I don't think that a cold dick doesn't warrant a medical name. You didn't need... Well, I believe it was a lot more, you know, it wasn't just like it suddenly started to look like a piccolo. It was like really kind of quite painful. Quite a lot of instruments we can get out of penis conditions. I've got a trombona.
+
+[00:15:51] Oh, God. Wow. Do you know who has chlamydia? Is it you? Okay. This is just a gossip podcast now. Of course it's koalas, famously. Coalas have chlamydia.
+
+[00:16:07] But it's actually not the same strain of chlamydia that infects humans. But it does seem that they get it through sex, and it's probably around 100% of wild koalas who have this. There's one or two populations that don't have it. Famously, I think there's one on Kangaroo Island that don't have it, but pretty much all koalas in the wild have this disease. And the problem with it, the main problem is, of course, antibiotics are quite good against chlamydia, but if you're a koala, you can't have antibiotics. Do you know why?
+
+[00:16:37] You can't open the bottle because it's like having kids. No. Are they just too embarrassed to get it checked up? They just never get it diagnosed. These are all great answers. But the answer is that they have a very, very specific gut microbiome, because they eat eucalyptus leaves only. don't they? And they have very, very specific
+
+[00:16:55] bacterias that live in their stomachs that let them eat that and nothing else. And if they take antibiotics, then it can upset that and they can even die because they're not getting all the nutrients they need. Someone needs to introduce the koala community to Yackel, surely. Get some good bacteria in them.
+
+[00:17:10] Because I think they're talking about giving they're talking about giving them fecal transplants, aren't they? Which obviously you do for humans to regenerate their gut bacteria, but so they could have that. Which seems sort of fitting because I think they get chlamydia from fecal matter. So there are two ways you can get it. You can get it sexually as a koala,
+
+[00:17:27] or you can get it from your mother's pap, which is this disgusting substance that they consume between drinking their mother's milk and eating eucalyptus. And it's thought that they eat their mother's pat, which is essentially fecal matter that their mum feeds to them, their own poo. And then it's thought that that's what builds up their gut bacteria to help them digest eucalyptus. Can you imagine ever going to a dinner party if you had that job when someone asks you? And so what do you do? you know, I give fecal transplants to koala bears. I don't know about you, Alex. That is the kind of person I want to be sat next to at a dinner party.
+
+[00:17:58] Yeah. I want a fetal transplant on the left. I want saxophone penis on the right. I am. Dream dinner party. Do you know who else has chlamydia? Parrots. Hmm.
+
+[00:18:11] So parrots can get something called cytokosis, but with a silent pee at the start. And it's known as parrot thither. Is it the peeler? Very good. But yeah, this is a illness that they can get, and it's caused by a chlamydia bacterium, and it can sometimes go to humans, and that is one theory.
+
+[00:18:32] And actually, it's definitely where the popularisation of the phrase, sick as a parrot, comes from. No way. Yeah, so there are bits in, I think there might be in Shakespeare somewhere where someone says, you're sick like a parrot. But the specific sick as a parrot came from the 1970s and it was just at a time when there was a bit of a worry about parrot fever.
+
+[00:18:56] Wow. Which is the type of chlamydia you get from parrots. Wait, and when you say it can go to humans, is that sexually transmitted? It is not. It's because zoonotically transmitted. Okay, fine. It's not because they can sweet talk you, parrots. But with your own words, your own picketop.
+
+[00:19:15] Oh, that's the sexiest words around for most people. You're like, oh, you're looking nice today. You're looking nice today. All right. Is it more embarrassing to say to your spouse that the reason you've got chlamydia is that you've been having an affair or that it's from the pet parrot?
+
+[00:19:31] They're both quite embarrassing. I've got chlamydia. I've got chlamydia. Imagine trying to hang up on a nice late-night phone call with your parent. No, you hang up first. No, you hang up first. No, you hang up first.
+
+[00:19:45] No, you hang up first. I found a story from, 2004 from Sweden when the number of chlamydia cases were like really spiking and the government had to do something about it. So they started offering like a service three days a week. I think it was something like Fridays and Saturdays and Sundays where you could ring, you could ring like a condom ambulance and it was called the Chusanne Express because the Chosan is a well-known make of condoms. And for about four quids worth, they would deliver 10 condoms to any address. within the city of Gothenburg or Stockholm or Malmo.
+
+[00:20:23] Okay. It's great. It's pretty good value. Did they get the sort of ambulance-level siren? That's the kind of urgency you want when you can't find a condom. That's so funny. Yeah, especially the people who feel embarrassed buying condoms and you just get this big siren.
+
+[00:20:37] I want the St John's Air Ambulance outside my window, airlifting. I was once in a shop in Bolton, and there was like a middle-aged man wanting to buy condoms, and he was really embarrassed because it was a lady behind the counter. And he just went, excuse me, love, you got any rubber gloves? She went, what? He went, you got any rubber gloves?
+
+[00:21:02] And she took him to the other part of the star and gave him some actual rubber gloves. And then he had to go, no, I don't mean those. Poor guy. I just felt so embarrassed for him. I mean, it was just a story. If only he'd had five,
+
+[00:21:18] small penises, that would have been going on. He had a penis like a set of bagpipes. Okay, it is time for fact number three, and that is Alex. My fact this week is that Jessica Alba has ridden the London Eye 31 times. She holds the record for the international overseas celebrity to have ridden it the most times. It's such a good fact. So do you know it's it because she really loves the London Eye? I wish it was because I just I love the idea of having a massive fan of it
+
+[00:21:53] But no, it's actually because she was doing press for the movie Fantastic Four Rise of the Silver Surfer Which came out for years ago and she did the press interviews on the London eye because part of it takes place in London Hang on, did she go off it and go back on it? No I don't think she went and queued every time she had a new interview Oh, so she's done 31 rotations a one single rotation visit yes That's right. What happened was it was like a press junket, and it was Jessica Alba, Michael Chickles and Chris Evans, and they were all doing this thing, and they went around 30 times, and then she must have gone on one more time when she just enjoyed it like as a punter, right? But what that says to me is that the other people don't really like it very much, and they decided, nah, we've done our 30 times. Now, we're not going to go back again. Yeah, I think that's fair.
+
+[00:22:44] Do you? Well, I think it's a bit weird that she went, can I have just one more just. just for me. Is that the longest press junket of all time? That is a 15-hour press junket. It's a long time, isn't it? Is that right? Yeah, half an hour each time.
+
+[00:23:01] Holy, holy. Wow. I wonder if she did it all in one day, though. Or maybe they did it over two days. We'll never know. If only she had some kind of media outlet that she could... I messaged her Instagram feed
+
+[00:23:12] to see if she'd tell me anything about it. She never replied. In the article I read about this, it had a few other celebrities, that have been on it quite a few times. Matt Damon, I think I've tied with. I think we've been on about the same number of times. How many?
+
+[00:23:28] Well, he's been at least five times, and I've done at least six times. Really? Why have you been on it six times? See, I mean, 31 sounds ridiculous, but then, I don't know, six is actually is outrageous as well. For a normal person. Well, I used to live outside of London, so if I came and visited family of friends in London,
+
+[00:23:44] it was a touristy thing that they would take you to do, and then I became that person, who they would say could we go and do it. So I've been on quite a few times, yeah, six. But do you've been on the same number as Charlie Chaplin? Have you? Yeah. Amazing fact.
+
+[00:23:58] Dan is such a fan of Charlie Chaplin. He's so happy that James shares that very, very ubiquitous thing. No, my pause was I was suddenly very annoyed that James knows something about Charlie Chaplin, that I didn't, so much so that I didn't notice the joke in what he was saying. All I know is that he died before the London Eye was built. That's all I know. And I saw that entire thought process in Dan's face on my laptop gradually happening. So the London eye really, it rejuvenated the Ferris wheel industry.
+
+[00:24:32] It really did. Before it came along. It came around again, the Ferris wheel industry after that, didn't it? Very good. It did. So it was a big deal around the turn of the 20th century. And the tallest Ferris wheel in the world was the Grand Rue de Paris, which was built in 1900 for the world.
+
+[00:24:47] Fair and demolished in 1920, but it was 100 metres high, and that wasn't beaten for almost 90 years. It's amazing, isn't it, how the tallest wheel is not that much taller than the first ferrous wheel? You'd think that the first one would have been like, I know, four metres or something hilarious, and it's actually pretty, it was a pretty good, like, for a first attempt, I was pretty impressed. Decent. Also, do you know what one of the limiting factors, which is why they can't really go any taller? This is, according to Mitsubishi Heavy Industries, who are one of the world's biggest manufacturers of giant Ferris wheels. I don't know how many there are. But take a guess.
+
+[00:25:22] A problem that I don't know how Jessica Alba dealt with, for instance. Oh, okay. Okay. Is it because they can't go that fast, so if they're really, really big, it's going to take your ages to get all the way back around to the start again, and people just get bored. Is it going to be something to counterweighting?
+
+[00:25:41] It's close. No, James is a lot closer. It's bored. And also, bearing in mind, maybe it's quite a lot of older people, or very small children, it's a bowel issue. No toilets. No toilets. Yeah.
+
+[00:25:55] And there's sort of like a maximum amount of time that you can have people trapped in a room without lose before there starts being sort of disastrous situations and more cleaners need to be brought on board and it's just not worth it. I do have a fact about Jessica Albram Pooh, actually, if you want to hear it. Yeah, please, why not?
+
+[00:26:10] She starred, in fact, in the 2011 movie Spy Kids 4D and the director Robert Rodriguez was inspired to write that movie after he watched Jessica Albert's baby do a poo. Interesting. Sorry, what was the movie again? Spy Kids 4D. What's the relation?
+
+[00:26:31] He thought I'll just maybe write a shit movie? Yeah, pretty much, yeah. No, he um, so he watched, he was working with her and she was doing another press thing and she, her baby did a big poo in the nappy just as she was about to go on camera. So she, he watched her change a nappy like really quickly, while kind of like getting ready and doing all of her like makeup and stuff. And he had,
+
+[00:26:50] he like was amazed at her watching her kind of be a mother and also do this very professional job with like literally the same time. And so he thought, wouldn't it be fun to have a spy who's also a mum? And then he wrote a movie with a spy who's a mom in it. Really? Is that what it's about? Yeah. Weirdly the first three are also about that. So I don't know why he required new inspiration.
+
+[00:27:09] But this is what it says in the, yeah. That's amazing. You know you were saying about how they can't get much bigger. Have you seen the new biggest Ferris wheel, which is about to be open this year? Is that the one in Dubai or something? Yeah, the one in Dubai is called A-N-Dubai, A-N-Dubai. It's going to be 210 metres tall. And the current highest, which is in Las Vegas, is 167 meters tall.
+
+[00:27:36] So it's way, way, way, way bigger than that one. London is about 130, something like that. And it means that each of the spokes of the wheel is about the same length as a full. football pitch. Wow. That's how big it is. On the on the flip side, I tried to find the smallest Ferris wheel that we have. And there's a list on Wikipedia of Ferris wheels and unfortunately the smallest fair will didn't have a hyperlink to it. But the second smallest did. So I can tell you about the second smallest Ferris wheel. It's called the Uni-Royal Giant Tire. And it was built by the same team or company that built the Empire State Building.
+
+[00:28:15] right wow how cool is that how big is it um it is uh but that's extraordinary someone has deleted that information from my mouth have they
+
+[00:28:28] wow that's amazing unbelievable that my son is in so much trouble right now um can you give us a rough size yes okay imagine the largest
+
+[00:28:39] non-production tire so it looks like it's the time hang on how I need largest non-production tire let me just bring up the very clear image and scale in my mind because I'm so familiar with that. Is it like a monster truck tire?
+
+[00:28:51] Yeah, but like about 10 times the size. It's massive. Yeah, yeah. I mean, this is, this is, guys, it's really big. I've seen smaller ferris wheels than that. You see, like, kids ones, don't you, in the background? What about, like, Lego Land? They have a tiny model one.
+
+[00:29:03] Or like, those were Connect's ones you get in the windows of Harrods. Probably someone's made one that I have a needle out of chromium or something. Yeah. I suspect the Wikipedia decided not to list every single Ferris wheel in the world right down to the very smallest. Guys, I did say it was the second smallest. That's a good point. Hey, Dan, do you remember in 2013,
+
+[00:29:27] before we started this podcast, we did a whole load of practices, and one of the first ones we ever did was someone asked us a question, what is the name for a phobia of ferris wheels? Do you remember that? I do. Do you know, weirdly, I got really emotional researching this fact,
+
+[00:29:42] because that was the conversation that has led to this whole. podcast. That's singular one, yeah. I went through and found all my old emails and went through all my research for it, which is pretty cool. It's actually quite common for people to have a phobia of Ferris Wheels, as I see if I Google it or go on Twitter and type in phobia of Ferris Wheels. It seems to be quite common. And I went on to Big Roundwheel.com, which is like a Ferris Wheel fun site. And there's an FAQs there and they say, you know, what am I going to do if I'm scared of Ferris Wheels? and they say, consider sitting on a park bench
+
+[00:30:16] which could probably support about £1,000. While sitting on this bench, are you afraid the bench will suddenly break and you will fall? Most likely not, because the consequences are falling 18 inches and not very dangerous. Now consider the ferris wheel seat.
+
+[00:30:32] Yes, this is much higher, but it is also designed to carry about three times the weight of that park bench it is designed for. So basically, if you are worried, and it goes on and it goes on, but if you are worried... I don't think, you know, giving people fear therapy, you don't have to use that mocking tone, James.
+
+[00:30:47] I think you have a bit more understanding. You fucking idiot, face, get a Ferris wheel. It didn't have the tone on the website because I was just reading it, but that's how I imagine they wrote it. So when we had that initial fish chat before Fish started, one of the topics we also spoke about was the person who created the Ferris wheel, the first one being George Washington, Gail Ferris Jr., which is where Ferris gets its name. from and I read about its inaugural run. It's very first time it showed members of the public and press the first time it was spinning in all its glory. And the first time it did that, it did it with no carriages hanging onto the end of the spokes.
+
+[00:31:26] So what did people just hang on with their hands? They had the people, the construction site workers, climb to the end of the spokes and sit there on a nice angle as it was going. Now that is a legit fear, I think. Like if you're scared of Ferriswell and they make you ride it like that. Because have you imagined just sitting on like a log, for instance? You don't worry about falling off a log, do you? So why should you worry about?
+
+[00:31:50] Sure, it's a lot higher. It's famously very easy to fall off a log, James. But this was in 1893. So this was first showed at the Chicago World Columbian Exposition. And it was just a ridiculous thing to do. It was so ginormous. It was bigger than the tallest buildings, really, at the time. Or at least on par with them.
+
+[00:32:11] a pretty extraordinary feat. Well, the reason they did it is because they wanted something that was better than the Eiffel Tower. Because the Eiffel Tower had been built in Paris, of course, and everyone thought this was amazing, but they had this new world fair, and they thought, well, we can't be outdone by Paris. We need something which is as good as that.
+
+[00:32:30] And so they had almost a competition to see what might come in the place of, you know, as their kind of version of the Eiffel Tower. One idea was they were going to have a 4,000 foot tower, with a car that seated 200 people that was on a bit of bungee rope and then people would push this car off the top of the tower and then all 200 people inside this pod would do like a joint bungee jump so like a bungee jump but inside a bus
+
+[00:32:56] exactly like that yeah what a bloodbath that was well that can only be the reason they didn't do it another idea was they would have a 5,000 foot tower made of logs and at the very top of this log tower there would be a log cabin I don't know how you would get there There was another one which was a 9,000 foot tower And at the very top they would have a toboggan slide And you would kind of go on like a crest of run All the way down to the bottom
+
+[00:33:23] Oh no, that sounds amazing Were these increasingly desperate pictures In the same person They kept saying no And they were just like he was like going down down Then they were like, what are a 20,000 foot for a tower Monkey tennis? Yeah, yeah
+
+[00:33:36] And then what happened was They were looked at all these things I thought, this is ridiculous. And they got a letter from Gustav Eiffel himself, who said, you know what, I'll just make you another rifle tower. I'll make it a little bit bigger than the other one, so it's better than the one in Paris. And that's what they were going to go for. But then it got into the newspapers and everyone was like, no, you can't have a French person
+
+[00:33:57] building something in America. It needs to be an American. And then that's when this guy, George Washington, Gail Ferris Jr., came along and said, I've got this idea for a big wheel. Didn't a French person build the Statue of Liberty? Sure. Because they did. Yeah, Bart Haldi did, yeah.
+
+[00:34:15] And it was built in the head there. There's an amazing picture. I nearly put it in the QI titles, actually. But like, it's just the head of the Statue of Liberty sitting in a park in Paris where they sort of put it on display before they shipped over. It was really cool. Yeah, that is cool. Do you know why George Washington, Gail Ferris Jr.
+
+[00:34:32] was called George Washington Gail Ferris Jr., by the way? Was it because his dad was called George Washington, Gail Ferris Jr., by the way? Was it because his dad was called George Washington. Washington Gail Ferris? No, it wasn't, weirdly, actually. That's quite weird, isn't it? You'd think so, but no, he wasn't. It's just such a stupid name, I thought I'd look it up.
+
+[00:34:46] And the reason was that he was from a town called Galesburg that was named after a guy called George Washington Gale. And his parents were so proud of the town, they decided to give him the entire name of the founder, and they'd just put their family name Ferris at the end. No way. So it's like me calling my children Andrew Hunter Murray Harkin. It's like putting the entire name before your surname. Although it does sound like the mum did have an affair with George Washington, Gail,
+
+[00:35:15] and had to pull the wool over the eyes of the husband. When Gail insisted he have his son named after him. That is a convoluted situation you've set up there, Dan. So the mum's had an affair with a guy who's insisted that even though she's married to someone else, she named her son after him. He's the founder of the city. He's got ego running through his veins. Fair point.
+
+[00:35:38] And she's just got to cover that up. That is a difficult position you're putting that woman in. I don't know why she tagged him in the first place. He sounds like a dickhead. Did you know that one of the two feet of the London Eye, so the London Eye have to pay rent on one of the feet of the London Eye, but not the other one? Oh, yeah.
+
+[00:35:56] Really? Why? Well, because the, let me see. The foot that is closer to the South Bank Centre is owned by the South Bank Centre. The land is owned by the South Bank Centre. and when it was built as the Millennium Wheel it was supposed to be a temporary structure and there was an agreement for five years and then when everybody wanted to keep it
+
+[00:36:13] and make it a permanent installation the South Bank Centre asked for well they pay half a million pounds a year as a lease it's a lot of money for But did you read about the dispute? It's crazy, I know, and because the South Bank Centre were basically able to hold them to ransom The South Bank Centre served the London Eye
+
+[00:36:30] with an eviction notice It's crazy They wrote to them and at the time the London and I was paying rent of 65 grand for this one foot that was on their land. It was just on a bit of concrete. It wasn't like it was in the middle of the South Bank Centre itself. And the South Bank Center said, we're going to up that from 65 grand to £2.5 million.
+
+[00:36:48] Or you have to, and they said this in May, I think. And they said, oh, you have to clear off our property by the 1st of July. Wow. By July. Five July. A month. That's too big. See, that's the benefit when you're a smaller Ferris wheel that you can relocate to
+
+[00:37:04] different places, much like the second smaller Ferris wheel in the world, which did relocate. Easy to do when you're only 86 feet tall. Okay, it's time for our final fact of the show, and that is my fact. My fact this week is that in 2003, the County of Ottawa, Michigan,
+
+[00:37:25] released a brochure for would-be residents to prepare them for living in the countryside. It included a scratch and sniff that emitted the smell of manure. Nice. Yeah, you can see this brochure online. It's really good. And the whole premise behind it was that they kept having people move to these rural bits of Ottawa and complaining all the time about the realities of it. One of the main things being a lot of places you live in will be coated in the odor of manure. So at the scratch and sniff, they say if you're not ready for this, maybe you're not ready to live here. I think it would have been more effective to just send them a small sample pack, like a welcome box of shit. It's very confusing that there's a place in Michigan called Ottawa. Yes.
+
+[00:38:10] When that is relatively quite close to Ottawa. It's closer to Ottawa than I'm comfortable with it being without getting confused. So scratch and sniff is quite an interesting technology, actually. Yeah. So I didn't realize how long they can last scratch and sniff patches. They work in this really clever way, which is that you basically have the scent chemicals. So whatever is scent you're trying to broadcast, whether it's a smell of shit that you want to send to an urban dweller, or whether it's a smell of perfume in a magazine.
+
+[00:38:37] that you want a lady to buy or a man, then it's tiny little scent molecules encased in tiny bits of plastic or gelatin. And when you scratch it, you break a few of those bits of gelatin or plastic and it releases the smell. So it's kind of like there are hundreds and thousands of tiny little bottles and every time you scratch it, you smash some of those bottles and the scent goes up into your nose. And what this means is that it does last for years. So it can last for, you know, more than a decade because the bottles that you haven't broken by scratching, the scent's still in there waiting for you to experience it. It's insane.
+
+[00:39:11] I just feel like there should be a smell archive and a smell library where we can preserve smells and put them in a pyramid maybe and then in thousands of years times. I feel like there must be one of those things. I don't think they put it in a pyramid though. I want it to be quite epic. The pyramid is the main thing, yeah. Yeah, I want someone to uncover it.
+
+[00:39:31] I went to a smell museum once. It was in Sunderland, I think, for some reason. and you went there and they showed you lots of things from history and you could go next to them and they would fire smells out and tell you what it was like so they had like a pharaoh's tomb because they were buried with lots of specific plants and perfumes and things like that and you could smell that and then in another room that was my idea well it this happened a long time ago this is like 10 years ago I went to this still I had the idea originally so it's proof of concept and they also had a
+
+[00:40:07] a smell of the sun. So you went in this room and they had a big picture of the sun and you can go over and they sent out the scent of the sun. And it just smelled really metallic and it got you at the back of your throat. Really?
+
+[00:40:20] Yeah. And then I bought the book that went with the exhibition and had that book in my house and I had to throw it away after less than a week because it just stunk out my entire house. Really?
+
+[00:40:31] My whole house smelled like the sun. Wow. Was it a scratch and sniff book? it just smells? I think it was supposed to be scratch and sniff, but someone might have scratched it before I brought it home because it just smelled really bad. They're not that reliable.
+
+[00:40:47] So I found a story from 1987 where the Baltimore Gas and Electric Company sent out letters to educate the public on the smell of gas leaks and how to detect gas leaks, and they included a scratch and sniff sticker that you could scratch and get a sample of what the gas smells like. The result was that the gas, was too strong and leaked out of the envelopes and the stickers before anyone had opened them
+
+[00:41:12] and resulted in hundreds of people ringing up thinking that there had been a Catholic in their house and it was a false alarm. Wow. Where was it that you bought that book, James? Did you say? It was in Sunderland, I think. Sunderland, cool. That's Sunderland.
+
+[00:41:25] Is that why the Suns thing? The Sunderland. Wow. Well, I mean, it makes sense that it would smell metallic as well because as we established on this podcast a while ago, the sun is not in fact on fire. It is electromagnetic things. No, go on. Go on.
+
+[00:41:44] Tell us more. So the second smallest peters wheel, if it was attached to a car that could fit it, would be 200 feet high that car. Anyway, so back to Sunderland. The thing about Sunderland is they've got that book, and I found another book, which is actually a Scratch and Sniff book,
+
+[00:42:03] and it's in York. and it's the smells of the city of York, basically. It's just a beautiful collection, so you get horse stables, you get the York Moors, you can smell the Moors. But I particularly want to get this book, because one of the smells is the smell of a ghost. Right. How cool is that?
+
+[00:42:25] Okay, and what does that smell like? Do you know? Apparently, it's not very good. It's a bit musky, according to people who've bought the book. weirdly the people who complain about the smell of the ghost say it doesn't smell like a ghost which begs the question how do they know what one smells like wow what two combinations of madness do you have to have to have to have thought that you've seen lots of ghosts and then to decide to create a smell that people can experience the ghost with there's a scratch-and-sniff movie that was released in the cinemas once
+
+[00:42:57] called polyester it was by this guy called john waters he makes um quite quite cult-cultish movies and this was a real gimmicky thing where he called it you know on the poster it said it was being released in Odrevision and it was a sent sensational movie that kind of terrible punning you'd love that kind of thing that gets bombs on seats yeah and yeah so the idea was that you got 10 scratch and sniff cards and you sat there and as the movie was going on it would come up with a number and everyone in the audience would scratch it as they were going along smell what it was and he tried to toy with the audience so you would think it was definitely going to be the object that was on the screen and as you were scratching it they would suddenly chuck in
+
+[00:43:40] some old shoes so it was suddenly the smell of a boot. Do you know what? There were 10 smells and do you know what some of them were? I have some of them. Oh yeah go for it. So there was flatulence obviously because that's the first smile you're going to put into anything. Okay, but then do you have to write your script to include these things? Because it sounds to me like you're saying well you have to have flatulence in because that's an obvious thing but then if you have a really kind of tender love story
+
+[00:44:05] and you just have someone farting half the way through just so you get that smell. Exactly. I think they probably I bet there was a bit of a kind of putting the cart before the horse sort of like we've got these smells available to us and you're going to have to include them if you want. But those flatulents
+
+[00:44:20] there was skunk so really not a great great experience so far. Do you mean the drug? No, I think the animal. Natural gas which again That's the same as farting. It's a bit, yeah, it's true. I don't know.
+
+[00:44:33] I feel like you're going to empty the cinema if they can all smell gas. And air freshener, which I presume got rid of all the other smells. Yeah. That just sounds like a necessary one. Yeah. For all the rest of it.
+
+[00:44:45] So Dan, with this, what's the idea of having the smell not relate to the image? That's like showing a film and have it be a funny gimmick that the visuals you're saying don't match up with the sound. That just sounds quite annoying.
+
+[00:44:56] No, it always matched up. What it would do is you thought you were going to scratch and it would be the smell of say roses because there was a big vase full of roses on the screen and as you scratch suddenly in shot comes smelly shoes so it flips your yeah that's clever do you know what other film employed the use of scratch and sniff
+
+[00:45:15] technology? Spying kids 4D you're kidding no true that's what the 4D was Jessica Albert is back was smell did they send in the smell of Jessica Alba's child's poo how that worked right at the beginning of the movie you show the inspiration yeah
+
+[00:45:33] at the same time did you say it was aromarama um dan or smell ovation your odoorama i think it's oderama oderama okay so there were a few of them around at the same time that were trying different methods to get smells in and the reason was tv had taken off and the cinemas were really worried that they go out of business because everyone was watching tv at home and another one that they had was smello vision
+
+[00:45:56] and the way that smell ovision worked is all the bits of the cinema had little kind of vents which would send out smells rather than scratch and sniff but unfortunately didn't really work that well because people who were in the balcony would get the smell a little bit too late so you would be like you were supposed to smell one thing and then the scenes moved on and then suddenly you get the smell and then in other parts of the theatre the odours were too faint and so you just have lots of people going and then just sniffing the air and then everyone else just got really annoyed
+
+[00:46:33] because they couldn't hear the movie because everyone was just sniffing the air on the plus side you could get away with farting whenever you liked and you could be like oh I guess there's a farting scene coming up and if they heard you can be like wow this surround sound
+
+[00:46:48] is really getting amazing the base in our seats did you feel like the seats are moving It's 40. Okay, that's it. That is all of our facts. Thank you so much for listening.
+
+[00:47:04] If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, James. At James Harkin. Alex at Alex Bell. And Chazinski.
+
+[00:47:18] You can email podcast. At QI.com. Yep. Or you can go to our group account, which is at no such thing, or our website. No such thing is a fish.com. We have all of our previous episode.
+
+[00:47:28] up there. We're going to be back again next week, guys, with another one of these pods where we're all in four separate places. Hopefully we'll have you listening to us then, but in the meantime, stay safe, stay at home, and let's beat the shit out of this horrible thing going around. Okay, we love you all. Thanks so much for listening. We'll be back again next week. Goodbye.

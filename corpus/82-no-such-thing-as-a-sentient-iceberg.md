@@ -1,0 +1,221 @@
+# No Such Thing As A Fish - 82: No Such Thing As A Sentient Iceberg
+
+- Episode date: October 9, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/82-no-such-thing-as-a-sentient-iceberg
+- Slug: 82-no-such-thing-as-a-sentient-iceberg
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of None Such Thing as a Fish, a weekly podcast this week coming to you live from Up the Creek Comedy Club in Greenwich, London. My name is Dan Schreiber. I'm joined by the three regular elves. Please welcome to the stage Andy Murray, Anna Chazinsky, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order, here we go, starting with me. My fact this week is that in winter, we should all wear our socks outside our shoes.
+
+[00:01:08] Right. And this is this is science that says we should do this. Oh, Mr. Science. Yeah, this is a really interesting thing. It was a thing that they did in New Zealand. What they did was in New Zealand, they were saying that, okay, people keep slipping over. How do we fix this? And someone has worked out if you wear your socks outside of your shoes, it gives you
+
+[00:01:27] incredible grip, which means you will never slip on ice. So in wintertime in London, where we're recording this, or if you're overseas and you get winter and you get all the icy floor, take your socks off or get a get a second pair and put them outside your shoes, treat yourself. But yeah, so it's a really interesting study. I read the study. I think it won or it's been reported by the Ig Nobel people. It might have won an Ig Nobel prize.
+
+[00:01:58] And I read the report and they said, although participants in the intervention group were told they could keep their socks, many who appeared to have image issues opted to return them, including one young man who probably fell on leaving the assessment area. Amazing. Have any of you guys seen the video posted by Alan Anderson online? And it's him. He's a father of a girl who goes to school and he goes to pick up his child from school and he spends six full minutes filming people slipping over.
+
+[00:02:36] Does anyone see that? Are they all like children? Yeah, they're all children. He just sits in this and it is extraordinary the regularity with which they slip over. There's this corner of pavement and every single child that walks around it falls flat on their arse or their face or their head, whatever. Was he out there before he set up the camera pouring cold water on the pavement? You don't want to waste a morning's shooting, as honestly.
+
+[00:03:03] It also shows his good fathering skills because it went about three minutes into the video when he's filmed about, I don't know, 55 children falling over. His daughter leaves school and turns up at the car and he's like, not going to go yet, watch this, honestly. There's another three minutes of him and his nine-year-old daughter going, yeah, that is hilarious. So good you should watch it. The thing about the socks going over your shoes, it doesn't work apparently if the socks are wet
+
+[00:03:31] and obviously if you're walking on snow or ice, they will be soon. Just speaking of kids, it's interesting that I think it is a New Zealand thing that they have recognized as just a local thing that people do, they know to wear socks outside their shoes because in 1989, two researchers extracted gossip from a group of young 7 to 11-year-olds. That sounds really sinister, would you? Now that I read it again. Extracted gossip. It's just a single needle.
+
+[00:04:02] So these were, I'm corrected rereading my sentence. It wasn't in New Zealand, it was American school children. Oh, well that's all right then. And they asked each child to discuss the reputations of each of their classmates and this is what they said. Some of them were warning signs of weirdness apparently. It said, eats like a pig, that's one thing they would say. Bangs head on desk, sounds like a car.
+
+[00:04:33] Fidgety acts like a monster, wears socks over shoes. Sensible. They should have said that after that. Brackets, sensible. Sounds like a car. Was that all one guy? What, when everyone's slipping, he's going past going, No.
+
+[00:04:58] Do you know that they wear over socks in pro cycling sometimes? Really? Yeah, wearing socks over your shoes is a thing in cycling. Really? Yeah, well in the spring when they're racing, it gets really kind of grotty and muddy and whatever and they have these really lightweight shoes and the idea is you put your socks over it and it won't damage the shoes.
+
+[00:05:17] That's good, isn't it? But the shoes aren't on the ground. You're a much better cyclist than I am. Yeah, no, it gets muddy and it kind of splashes up and you know, and there was, I saw an FAQ on a cycling website and the question was, what is the point of wearing socks over your shoes? And the answer was, experiencing the thrill of having non-cyclists within earshots impertinently observing that you have forgotten your shoes
+
+[00:05:58] or that you have put them and your socks on in the wrong order. That does sound worth it. There is something you can do if you're not into the socks over shoes. Look, the Canadian researchers have discovered recently, which they've developed a new material where you implant glass fibers into shoes and they're selling these shoes where these little shards of glass act as these tiny spikes. That sounds very, very safe.
+
+[00:06:25] I think that, I mean, it's not just a kid at home, jabbing broken wine bottle up into his own trainers. We've all been there. No, but I like this. So it was casually reported in New Scientist, the researchers who tested this material did it in a floating lab, which was casually referred to as a floating lab, is a lab that gets hoisted into the air and then tilted at whatever sloping tilt
+
+[00:06:53] or whatever gradient you want to tilt it to. So that's how they test these kind of things, is you just hoist this whole laboratory up and then you get people to wear these ice shoes, glass shoes, and you tilt it. I think that's so cool. Floating labs. Just genuinely interesting. Here's something that's not that interesting.
+
+[00:07:13] I thought I'd look into sock puppets. So I went on to Wikipedia and Wikipedia says that a sock puppet is a puppet made from a sock or similar garment. And I would argue that something made from, that something that's not a sock really isn't a sock puppet. You've got sock puppets which are made of socks. You've got glove puppets which are made of gloves. You've got finger puppets, obviously, which are made of fingers.
+
+[00:07:41] I think they're creepy, though. And he approaches every normal human. Take off those finger puppets. Show me your true hand. I got told on the way here by Alex Bell, who always appears on our podcast. I got told that just because we were talking on the way over here about how when you do slip on ice, obviously, you can break your ankle.
+
+[00:08:19] You can hurt yourself really badly. And he told me that during the filming of the movie Troy, the filming was actually delayed because Brad Pitt, who was playing Achilles, injured his Achilles here. No. Yeah, true fact that I didn't Google. I just believed it. So I read an article in The Independent from 1993,
+
+[00:08:50] which opened congratulations to the several hundred readers who wrote in with creative suggestions for using an odd sock. So this is obviously a competition they were running. And it said, this list, which is by no means exhaustive, will be put to good use and suggestions for using an odd sock. And they are good suggestions. They include, with suitable holes, as a coat or balaclava for a furry animal.
+
+[00:09:24] That's the best bank heist you've ever seen. Frozen, if a sock is frozen, use it as a boomerang, because I guess the heel has that shape. And if it's unfrozen, as a bag for a boomerang. We should move on to a second fact very soon. I'm sorry. Well, what else? What else you guys got?
+
+[00:09:58] The original fact was about snow and ice. Yeah. And just this is just something I found interesting. You can start a fire using ice. Pretty cool. If you carve a piece of ice into a lens and you focus the sun's rays through it, you can start a fire in a few seconds.
+
+[00:10:15] Wow. What was that? And you need the tools to chip away at a chunk of ice, but you can do it. Well, you've seen it being done. That sentence could have read, you can turn your child into a car. Well, you could do that with most things, presumably, right?
+
+[00:10:30] You can't focus the rays of the sun through a child. Well, then my experiments have been all in vain. Shall we move on? Yeah, let's move on. Okay. It is time for fact number two, and that is Andrew Hunter Murray. My fact this week is that Ancient Jerusalem's
+
+[00:10:53] lost property office just involved shouting about what you had lost in the hope that somebody had found it. Well, so, wow. Really? Yeah. So, they've just found in the ruins of Ancient Jerusalem a particular podium,
+
+[00:11:08] and there are a couple of theories about its use. One is that it was a sort of speaker's corner, and the other is that it was a lost property office, because there are a couple of ancient Jewish texts which mention a stone of claims, and that's where you would go if you'd lost something. And the idea is that you would tell an announcer, and then he would shout out to the crowd
+
+[00:11:26] and see if anyone had found anything that was like that. And that was how you were reunited with your lost stuff in Ancient Jerusalem. I just think that's the best idea ever. Yeah, that's amazing. Well, you kind of need everyone in the country to be stood around the guy at the time. It's not really going to work in London, is it?
+
+[00:11:42] That's the floor. It was, never been tried in London. Oh, yeah. Yeah. We've just found this out as well, right? Yeah, they've just found the podium, and so they're trying to work out what it was for. So, this is one of the theories.
+
+[00:11:52] Yeah. The wailing wall is in Ancient Jerusalem, isn't it? Is that...? I don't think that was originally a lost property. I mean, aren't we definitely sure about that wailing? And it's a bit like town criers, I think. You know, you would have, oh, yeah, oh, yeah, someone's lost their socks or whatever.
+
+[00:12:10] That probably happened in the olden days. True. In Goslar in Germany, they had a town crier who was employed to remind the local poplates not to urinate or defecate into the river the day before the water was drawn for brewing beer. Which I think we'll see. I think we can all agree is a very useful job.
+
+[00:12:34] There was a town crier called Keith Jackman of Christchurch, and he has been deafened by the sound of his own bell. He's been doing the oh, yeah, for 25 years, and now he's gone deaf. That's really sad. It is, isn't it? He should have won those headphones, the earmuffs that build his way.
+
+[00:12:54] Yeah, he should have done. He should have done. One idea. This is the absolute worst kind of tinnitus, isn't it? Though it's just like, don't, don't. Do you remember the guy? I haven't, I can't remember his name, but when Prince George was born,
+
+[00:13:10] was announced by a town crier, and everyone was like, oh, this is fantastically old school. This is wonderful. And it turns out it was just a guy who just decided to arrive and announce it. And he is a town crier, but in a very different town to where it was being announced. And he just walked up it, here he, here he announced it,
+
+[00:13:26] and everyone's like, oh, this is so nice. And the royal family were going, who the hell is this guy? Do you remember that? I hope he drove down all the way saying, I've got to tell them. How else will they know? And the bell's next to him in the car
+
+[00:13:42] with a little seatbelt on it. Just you and me this time, Glenda. Um, the town crier championships, I just think this is so amazing that these kind of things have the budget for this. I've been there once. What?
+
+[00:13:58] Did not place. LAUGHTER What? Do you know where they were held, the last ones? The one I went to, the one I went to, the one I went to, the one I went to,
+
+[00:14:14] the one I went to was in either Lancashire or Yorkshire, I can't remember. Cool, the last one was in Bermuda, so I feel like... Do you ever get the feeling you chose the wrong year? I mean, who was paying for town crier? It's good. Anyway, this year, it's the first time a Brit
+
+[00:14:30] has won the town crier championships. It was very exciting. Mark Wiley beat off 24 other championships. LAUGHTER And they were like, oh, yay! LAUGHTER It's one of the requirements these days.
+
+[00:14:54] LAUGHTER He actually said... For legal reasons, we have to correct that. LAUGHTER Sorry. So, this guy won over and above 24 other contestants.
+
+[00:15:10] What he won was an awful lot of rum, he said, which I needed for medicinal purposes. He explained which is understandable after the trauma he'd undergone, so... LAUGHTER Oh, God!
+
+[00:15:32] Has anyone got anything I've lost and found? Yes. Yes, I've got stuff I've lost and found. OK. Um... This story is... This is from the BBC News website for Berkshire in 2011.
+
+[00:15:48] A mother has praised Reading Buses for finding and returning her son's sausage casserole! LAUGHTER Her son's sausage casserole are fake! After he left it on a bus. LAUGHTER LAUGHTER
+
+[00:16:12] I'll carry on. Yeah. Carry on. Suzanne Stout sent an email via social media network site Facebook to thank staff at the bus company for saving her family's dinner. LAUGHTER
+
+[00:16:27] The sausage casserole, which was made by her son in his food technology class at school, ended up in lost property. The casserole was retrieved by Mrs Stout and Eaton. Having taken an unscheduled route around West Reading! LAUGHTER Which, for my money, is the greatest story ever! LAUGHTER
+
+[00:16:53] There was the guy who, did you read TFL published a couple of years ago? List of the most interesting stuff they've had in their lost property that's been claimed or not claimed. One of which was... ..one item to have a lost property is false teeth, which is weird, anyway. People, I don't know, relax, take them out, leave them there. Anyway, a man came back, claimed his false teeth,
+
+[00:17:13] took them away, and then returned a few hours later, grimacing and saying, actually, these aren't mine. LAUGHTER You know that Kent Police are now saying that they're no longer accepting lost property items? Yeah, yeah, so if you bring them a lost property item, they say, take it to Facebook or Twitter,
+
+[00:17:34] and you now have to tweet or Facebook the lost property item. Yeah, they no longer deal with it. Which really messes around with the law on lost property, because you're meant to take reasonable steps to return it to its owner, and if you go to the police and then several weeks pass and they haven't reunited it with its owner, then you have the best claim on it after the owner, because you found it.
+
+[00:17:53] So I don't know how it works in the age of doing it on social media. What qualifies as a reasonable effort? Yeah, and very quickly, there's a thing, the Code of Hammurabi is the oldest legal code we have, and it has a section on lost property. So if somebody finds something, he's lost in the possession of another man, right, and the person who has it now bought it from a salesman,
+
+[00:18:16] and they've both got witnesses that they bought it, honestly, and that they owned it before, then since the seller was the thief, he should be put to death. LAUGHTER But if the man who was found with the property couldn't produce the seller to make the sale, but the original owner did have witnesses, then since the professed purchaser was a thief,
+
+[00:18:36] he should be put to death. Finally... I think you know where this is going. If you could not produce witnesses proving that you, in fact, owned it before, it was found in the possession of the other guy, since he was a cheat and stated a false report, he shall be put to death.
+
+[00:18:53] Oh, Jesus. There's no scaling down in this lost property. We need to move on. OK, it is time for our next fact, and that is Czaczynski. Yes, my fact is that the man who discovered why we sweat did so by getting in a sauna with a dog, a steak and an egg. LAUGHTER
+
+[00:19:17] And the... LAUGHTER And then it just came to him. LAUGHTER I think you're going to have to explain, Anna. So there's this guy called Charles Blagsdon, who not very much is written about, and so he was a British physician in the late 18th century,
+
+[00:19:35] and he was invited, actually, by other scientists to get into their sauna and find out why we sweat, and he decided when he persuaded a whole bunch of friends to come in with him, and he subjected himself to ridiculous temperatures. So in 1775, he went up to 127 degrees Celsius, so way above boiling point. Wow. Sitting in the sauna was found he was able to sit there.
+
+[00:20:00] He was, in one, naked from the waist up. In others, he had to wear clothes because otherwise your skin, singes... Were there any way he was naked from the waist down? LAUGHTER The dog's looking worried. But, yeah, so there was a thought that how could he possibly have survived this,
+
+[00:20:17] because people didn't know that humans could thermoregulate like we know we can now, so how could we possibly survive being 127 degrees Celsius? So there was an idea that the thermometer must be wrong, so rather than get, like, a few thermometers in there to, you know, controls, he invited in his dog and an egg and some steak, and... Nature's thermometer. LAUGHTER
+
+[00:20:42] And he found that the egg cooked extremely fast. The steak cooked almost even faster. And the dog? LAUGHTER 25 minutes of gas mark, eight. No, the dog's fine, because animals can thermoregulate. But the way, when you read his write-up of it, it reads a bit like a cookery book,
+
+[00:21:04] because it's mainly... He seems to be focused on how well cooked the steak is. He's sitting in there, you know, like 150 degrees C. He says, we put eggs and beef steak in there. After 20 minutes, the eggs were taken out, roasted quite hard. In 47 minutes, the steak was not only dressed, but almost dry. Another beef steak was rather overdone in 33 minutes. And then in the evening, he explained that you could cook the steak even faster
+
+[00:21:31] by using bellows to blow the hot air onto it, and he explained that the greatest part of the steak was pretty well done within 13 minutes. So he's either telling you how to cook steak well, or he's explaining that humans can thermoregulate in a way that the steak can't. So yeah, this is how he discovered that by sweating, we are able to not boil to death when temperatures reach somewhere.
+
+[00:21:55] I guess this guy today is most famous for Blagdon's Law, which is the idea that if you put salt in water, it takes longer to boil. That's what he's famous for. Do they use that in freezing on the roads? Is it the same principle? Yeah, it's kind of the same principle. If you put salt in, then ice doesn't form as... Yeah, it's similar to that.
+
+[00:22:15] It's similar to when people put salt into water to boil pasta or something, they think that the temperature will boil lower, but actually that's not really true. You could put as much salt as you want, like a hell of a lot of salt into a bowl of pasta, and it would change the boiling point by four hundredths of a degree. So we're only going to make much difference. But I read the article on him in the Dictionary of National Biography,
+
+[00:22:39] and Dr. Johnson, who wrote the Dictionary, said that he was a delightful fellow, this guy. But there was another guy called Count Runford, who didn't really like him as much, because Blagdon had fought against him for the hand of Lavoisier's wife. So Antoine Lavoisier, he was a person who... There was an idea that people thought that when things burned, there was an element called flogiston,
+
+[00:23:03] and this was the element that allowed things to burn. And then he died, and then his wife married this guy called Count Runford. And weirdly, he is the person who disproved that something called caloric, which was another element, which was what happened when things heated up, happened. So she was married to the guy who disproved flogiston, which was a fake element for burning, and then was married to a guy who disproved caloric, which was the fake element for warming things up.
+
+[00:23:34] Wow. That is really interesting, but not funny. She was niche, no. She had a very niche taste. Yeah, really niche, isn't it? Bizarrely, I have a fact about Dr. Johnson and Sweat. Great. So in Dr. Johnson's dictionary, the word Swelt, as in swelter these days,
+
+[00:23:53] but the definition for the word Swelt is, to puff in Sweat, if that be the meaning. Which I decided at the briter of the dictionary, so it be the meaning. So the fact is about why don't people cook effectively when they're in a sauna, because that's what he was trying to find out. Well, that's, I mean, that's slightly what he was trying to find out. It wasn't what he was trying to find out.
+
+[00:24:23] I have mis-researched this fact. It was more about how steaks do cook. Exactly, humans, how can you get this kind of heat? And with the dog, it was the tongue that was panting that allowed for it to regulate its heat. I feel like we have to explain why that was confusing, maybe to some people and to you. When you say why don't people cook, you mean why don't people themselves
+
+[00:24:45] cook when they're in a sauna? It's not why don't people enter a sauna to make a fry up? Yes. So I googled, how hot can a human get? And... Did my photo come up? Well, there were a lot of really interesting articles. It looked like there were...
+
+[00:25:15] They looked like there were good answers to the question, but I got really distracted because you know when you google something... James, negative from the way it's done. So when you google something, at the very bottom when you scroll down, it says related searches. You know when you see that? And then it gives you a new sentence. So I googled, how hot can a human get?
+
+[00:25:40] And the related search that I got was, can a human get a dog pregnant? And I really want to do research for tonight on the facts, but... But is Charles Blagdon discovered two things in that sauna? The answer to the second was no. Well, that's a thing, can you get a dog pregnant? Was that someone...
+
+[00:26:09] Is that a lot of people typing that out of curiosity, or are they worried? It didn't say. But it is interesting that all dogs can mate successfully with all other dogs. That is true, isn't it? Yeah. I just find that amazing.
+
+[00:26:28] Yeah, like a tiny chihuahua can mate with a massive... Yeah, great name. And make a new dog, right? Make it that's the point of it. Oh, we've got a lot of explaining to do once the show's over. Do you know, in Finland, there's a sauna elf. Oh. So, we've spoken about this on the podcast before.
+
+[00:27:01] Finland loves saunas, like crazy. Their parliament has a sauna, and a lot of very big moments have happened in a sauna. When they've been negotiating, they'll go, let's go to the sauna, and they'll sit it out until they decide. But part of their... There's an occasion, and I think it's a good thing,
+
+[00:27:20] that they don't sit out until they decide. But part of their... There's an equivalent of the boogeyman in Finland, which is the sauna elf, and he's called Sona Tantu. And I'm sure in a different accent. And Sona Tantu... Basically, if you're naughty in a sauna, he'll burn it down and kill everyone.
+
+[00:27:42] LAUGHTER Um...Yep. So, on the... You better watch out. Sona Tantu's coming to the town. And he's burning the sauna down. That rhyme, that's very good. We're going to have to move on to our final fact.
+
+[00:28:15] OK, time for our final fact, and that is James. OK, my fact this week is that stick-insect sex can last for 79 days, and the insects are stuck together the whole time. Wow. That's like Sting and his wife, right? Isn't that... Is that Tantric?
+
+[00:28:37] I think you've got confused. It stings is what this says. Yeah, so stick-insects, you would think they're really boring, but actually they have quite, well, lengthy sex. I wouldn't say it's that exciting. I think, yeah... I don't suppose stick-insects could probably, like, have sex that quickly because they might set each other on fire.
+
+[00:29:06] That's a really good point. But these guys, the genitalia are in contact for 40% of the time of the 79 days, so they are kind of at it for a long time. I read a theory that the males drag it out so as to stop other males from mating with the female. Yes. I read that from an entomologist blogger called Bug Girl,
+
+[00:29:34] which is where I got this fact from originally, but she actually found several reports of stick-insect group sex in the literature, which means that maybe he's not trying to keep it in the... No, in the couple. That's why dogs do it, though, right? So if anyone's had a dog who's mated, dogs can stay attached to their bitches
+
+[00:29:55] for up to 40, 45 minutes, standard. And it's so that another dog... Only Anna could get away with that sentence. These are just zoological terms, guys. But yeah, that's to stop another dog getting too involved. So sometimes other males do sneak up, not in that way, but just to try and sneak in when the first male breaks off to feed,
+
+[00:30:19] as sometimes happens, and the intruder will start having sex with the female. But then if the first male finds out, the two of them will have a fight while both holding onto the female, they'll kind of bassid each other with their legs. That's good. That's so distracting.
+
+[00:30:35] What is going on back there? Anyway... So this actually isn't true of all stick-in sexes. It's true of a lot of them. So there is a stick-in set called ectatosoma tiaratum, and the females of that species can reproduce without the need of males.
+
+[00:31:10] So they can, like, auto-reproduce. But no one seems to have told the males. So the males find the females really attractive and try to mate with them whenever possible. But the females have involved an antiafrodisiac to keep the males away, and when eventually they manage to get past the antiafrodisiac, and they melt them,
+
+[00:31:30] they can kick them with their back legs to get them off, because they just want to say, no, no, we don't need you guys. We can just have sex on our own. So I think this is actually very confusing to evolutionary biologists, because usually asexory production evolves because of a lack of males.
+
+[00:31:46] And so, you know, a female will asexory reproduce, but really, you want the male to be there because of diversity of genes. But yeah, these stick-in sexes are saying, no, we actually way prefer it this way. We get clones of ourselves, who are very easy to get along with. And yeah, they bat them off,
+
+[00:32:02] and it's this kind of conundrum, like, aren't they going to outlast males? Are these males... So I think it's the spiny leaf stick-in sex in Australia. That's right, yeah. Will the males die out first, or will they evolve to manage to, I don't know, like assault the women enough
+
+[00:32:18] that they can still... Because if the male managers have sex with the female, they produce both male and female offspring that are directly fertilised. And if it's just the female producing... Parthenogenesis, then they only produce clones of themselves who are obviously all females.
+
+[00:32:34] So it's a real genuine battle of consensus. Like utopia versus dystopia, kind of all female world versus... Yeah, I wouldn't call that dystopia around there. I mean... Do you want to hear something cool about stick-in sex? Yes, please. So some of the eggs have this special capsule
+
+[00:32:52] that's got another good tasty stuff called a capitulum at one end of them. And ants like eating the capitulum bit, so they carry the eggs back to their nest and they eat the capitulum bit and then they throw the eggs onto a kind of rubbish heap where they remain incubating and they can stay incubating for up to a year.
+
+[00:33:08] And then the babies stick-in sex just hatch and then they walk out of the nest. And I read that this was compared to paying a babysitter to look after your eggs, to look after your offspring. But it's not really because I think this is the equivalent of
+
+[00:33:24] leaving your child abandoned but with a Toblerone attached. And then someone who likes a Toblerone will say, oh, I love a Toblerone, I'll just take this and watch this on the... It is the worst parenting in the world. Check off your own child.
+
+[00:33:46] Because the ants do eat some of the eggs. I mean, yeah, yeah, they will eat thinking they're edible. So, yeah, it is saying that this guy might eat you but if he doesn't, then you might be okay. I'm off. I was... properly when I was researching today
+
+[00:34:02] I was looking into pictures of stick-in sex. And something I think that's not said enough is, they're really weird, eh? Like, they look like... They look like sticks. Well, yeah, they look like trees to become conscious and we're just not acknowledging it.
+
+[00:34:18] It's just... They do. It just looks like a bit of stick has gone... I'm alive. Oh, my God. What is the world going on here? I'm probably an insect. It's just an insect. No, a tree has woken up. That's a good point. Like, if you had two stick-in sex
+
+[00:34:34] having sex for 79 days attached to each other, how do you know it's not just two sticks? Yeah, exactly. What if you've been watering it the whole time and they're just like, we're trying to have sex here and you're like, who's this guy every day?
+
+[00:34:50] It is difficult for researchers to find stick-in sex because they're nocturnal and they pretend to be sticks. It's quite hard to study them. And you know, the best thing is a lot of stick-in-sex eggs look like seeds. How cool is that? Yeah. Extra camouflage.
+
+[00:35:08] That is smart. It's not. They are conscious trees. That's what happens. We're all dancing around it because there's two mind-blowing for us to accept. Oh, their children look like seeds. They're fucking seeds. Do you think that all things that are
+
+[00:35:28] camouflaged are actually the thing that they're camouflaged against? We're not camouflaged. Look at us. There's no camouflage on us. There's a stick walking past me and I tend to go, oh, that makes sense. But if you have an Arctic fox, which is camouflaged as snow,
+
+[00:35:44] you don't think, oh, my God, snow is... No, because it's not like an iceberg walking past me and you're going, oh, hi, iceberg. It's a fox. I feel we might have hit a nerve here. We've found a stick-in-sex which is 126 million years old. Older than a lot of dinosaurs.
+
+[00:36:06] I think that's just a stick. LAUGHTER Do you know more about this? I think you and I, let's talk. No, well, the cool thing is about it is that we know that a lot of them imitate flowering plants and we know... ...flowering sticks.
+
+[00:36:32] I'm convenient. We know what plant it would have mimicked because if its wings were folded, it would have looked like a stripy tongue and there were stripy tongue-looking plants around at the time. And we know those in the fossil record and we know this and we can kind of imagine what it would have looked like. Yeah, it's just so cool.
+
+[00:36:50] And there are 3,000 species in the genus which include stick-in-sex and leaf-in-sex, which is another kind of insect. So this is one extraordinary stick-in-sex which was thought to have gone extinct on Lord Howe Island, which is in the South Pacific, thought to have gone extinct in 1920. So it used to be known as the tree lobster
+
+[00:37:16] because it's absolutely enormous. It's 12 centimetres long on average. I also heard that it was known as a walking sausage. They can also imitate sausages. LAUGHTER Down's next fry up is going to be... I mean, I do a lot of stick work, but I also dabble in sausage stuff.
+
+[00:37:34] LAUGHTER I wish that was the first time I'd ever heard you say that. LAUGHTER So these stick-in-sex, we thought had disappeared, these giant insects, in 1920. And very recently, within the last 10 years, there were rumours that they were still existed on Ball's Pyramid, which is a pyramid that drops out of the ocean very near to this South Pacific island.
+
+[00:38:02] And these four Australians went to investigate these rumours and see if this giant stick-in-sex had existed. They climbed up this vertical rock face and they found under one bush, these stick-in-sex have been living for almost 100 years. They found 24 insects under one plant, one single plant. And we don't know how they got there. People think they might have hitchhiked over on birds,
+
+[00:38:20] which I quite like. Wow! Yeah, and so now they really want to reintroduce them to Lord Howe Island. And the reason they went extinct in the first place is because there was a rat infestation that we introduced. And now Lord Howe Islanders are being faced with the choice between would you like to keep your horrible rat infestation or would you like us to get rid of that in exchange for giant, horrific-looking stick-in-sex
+
+[00:38:45] the size of your head? I'm going to wrap us up very soon. So anyone else got anything? I just, on duration of copulation, there is a map of the US that says there is a map of the US that's been compiled because there's an app where you can report how long your sex lasts in America.
+
+[00:39:09] And then there's a map of the US which tells you which states have the longest sex. Or which states are the biggest liars? Well, I don't know if anyone's lying because they are not long. People are refreshingly honest. New Mexico wins. Copulation lasts 7.01 minutes on average.
+
+[00:39:35] Alaska loses. The average copulation is 1.21 minutes. Yeah, but it's cold, it's cold. You want to get back inside, don't you? Wait! Only Alfresco for some. Okay, that's it. That's all of our facts.
+
+[00:40:04] Thank you so much for listening at home. Thank you so much for being here tonight. If you want to get in contact with us about any of the things that we've said over the course of this podcast, we can all be found on Twitter. I'm on at Shriverland, Andy at Andrew Hunter M, James at Eggshade, Chazinsky.
+
+[00:40:22] And we also have a website, NoSuchThingAsAfish.com. We've got all of our previous episodes up there. Go to that if you want to hear previous episodes. Thank you so much for being here, guys. That was really fun. We're going to be back again next week with another episode. We'll see you then. Goodbye.

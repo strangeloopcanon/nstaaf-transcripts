@@ -1,0 +1,261 @@
+# No Such Thing As A Fish - 397: No Such Thing As Sexy Toda Milkman Time
+
+- Episode date: October 29, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/397-no-such-thing-as-sexy-toda-milkman-time
+- Slug: 397-no-such-thing-as-sexy-toda-milkman-time
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Redding! My name is Dan Schreiber, I am sitting here with Anna Tyshensky, Andrew Hunter Murray, and James Harkin, and once again we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go! Starting with fact number one, and that is Andy. My fact is that the 1890s Irish rugby captain D. B. Walkington would play wearing a monocle, but he took it out if he had to tackle anyone.
+
+[00:00:58] This is a real person, he was called Dalloway Bell Walkington, born in 1867, he played for Ireland eight times, he was the captain twice, and he wore a monocle while he was playing. He was extremely short-sighted, and he'd just pop it in, pop along, pop it out, make a tackle, pop it back in. What a hero! Yeah, this guy was a great player, wasn't he, for Ireland. He played in the first ever team to beat Wales in 1888, although the Welsh team all claimed to have had seasickness on the day, and they played so badly in that game that eight of
+
+[00:01:31] the team never represented Wales ever again. Wow! Oh my God! He played in the 1887 team that beat England, so that was the first Ireland team ever to beat England, and there was another guy in that team called John Macaulay, and John Macaulay, so they had to go to England to play the game, but he couldn't get the time off work, and so he said to his work, I'm going to go and get married, and they said, are you? And they went, OK, I'm going to have to get married now.
+
+[00:01:57] So he got married just so that he could get two weeks off, so he could play this game. Oh my God! Wow! Isn't that amazing? That's incredible! Did he get married just to a randomer? No, to his future wife. I mean, I know!
+
+[00:02:12] I know that! She was happy with the arrangement. They were going out. They were going out, yeah. They were a couple, right. Rugby players, especially 19th-century rugby players, just seemed like really interesting and fun people. Have you heard of Edward Pegg?
+
+[00:02:26] No. Edward Pegg was a Welsh player, and he once missed the team train. They were going to Devon to play a match. He missed the train, so what do you think he did? Got the next train? He chartered a special train to catch up with the previous train. Was it like two men just pumping up and down? Yeah.
+
+[00:02:46] He didn't jump onto the train in front of you. He wasn't the Indiana Jones. No, he was. Yeah, it was real. I mean, because back then the rules were all a bit wishy-washy, weren't they? So, like, there was a famous match in the 1884 Home Nations Championship. It was Wales versus Ireland. Ireland went over to play the Welsh.
+
+[00:03:04] When they got there, though, they didn't have enough men to play the match. So the Welsh team had to loan them two of their players to play the game. Did they win? Because you would have thought those two players, if they're gentlemen, they'll play well, and if they're not, they'll jeopardise your chances. Yeah, no, the Welsh won that match, so even though the Irish got the two, yeah. That's what you'd expect. The first international between England and Scotland was in 1871.
+
+[00:03:28] It was quite a boring affair. It came down, and it was quite close as well towards the end. Scotland scored the only try of the match towards the second half, but the English team were not happy. They were like, this is not fair. So there was a massive argument between the referee and the two teams. Eventually, the referee gave the try to Scotland, and afterwards, when they asked him about it, the referee, Dr Rolmond, he was called.
+
+[00:03:52] He said, I do not know whether my decision was correct. He said, but when an umpire is in doubt, I think he is justified in deciding against the team which makes the most noise. Mmm. Good point. That's fair. The days before Hawkeye, you had to have something else to judge. In 1889, the Kiwis came over.
+
+[00:04:12] So it's kind of amazing. Even back then, it was already big enough that people were making these international trips, and it was New Zealand versus England. It was in Blackheath, and there was this incident where an English player was tackled, and his shorts got ripped off accidentally, and it was very awkward for him. Hi, hi. The Kiwi players. Put his monocle in.
+
+[00:04:32] What's going on here? Because the good, honest players, the Kiwis, surrounded him, making him a little changing room so that he could put his pants back on again, his shorts back on again. As this was happening, all the other English players continued to play. One of them, Frank Evershed, picked up the ball and scored a try, completely unopposed, because the Kiwi players are protecting that guy. And then the Kiwi players understandably stormed off, bit pissed off, and had to apologise afterwards for abandoning the game.
+
+[00:05:02] Wow. That was not a good game for them. I've found someone who I think might be the most historically significant rugby player of all time. Not because of anything he did on the pitch. He was called Charles Cathcart, and he was a Scotland player, and he had a brief career playing for Scotland. Then he became a doctor, and then a surgeon, and then a fellow of the Royal College of
+
+[00:05:23] Surgeons, who was very senior and eminent, and what he did was, he pioneered the use of sphagnum moss. Jesus. To dress wounds. And that was used in the First World War. There were a million wounds dressed per month at the height of the First World War, thanks to his innovation that it could soak up so much liquid. And that is my rugby fact.
+
+[00:05:44] I was like, finally, a fact about sport. You can start talking about sport, and not fucking must. Sorry. But that's, I mean, it's so interesting. All the early rugby players, particularly the Irish team in the late 1800s, went on to become quite prominent scientists, like, if you look at that team. So there was a guy called Sir Thomas Rankin-Lyle. He was an Aussie slash Irish who moved to Australia.
+
+[00:06:08] One of the awards that gets given in science to this day in Australia is named after him. He was a real pioneer in science. There was a guy called Daniel Frederick Rambout. He played again in the 1800s. He was an Irish psychiatrist, and he was one of the pioneers, a modern psychiatry. All of these guys, like a big portion of them, went on to be game-changers in the world of medicine. Actually, that guy, Daniel Rambo, he had the nickname, The Fat Little Fellow. And he played in the same team as the Monocle guy.
+
+[00:06:37] And he played rugby, international rugby, for Ireland, but never told his parents. Isn't that amazing? His parents didn't know. Why? Because he was worried that if he told them, they might stop him from doing it, because they thought they would interfere with his studies. Oh. So he just refused to tell them. It's so funny.
+
+[00:06:57] Where have you been, nowhere? Why are you covered in mud? Whose monocle is that? No one's. Where are your pants? Wasn't there one player on the team who had one hand? I think there was on the same team. Thomas Gisborne Gordon.
+
+[00:07:12] Yeah. Only ever players have played international rugby with only one hand. Wow, really? It's really amazing. There is a thing in rugby called a hand-off, where you kind of push someone away. So he literally had his hand-off. Do you think he just misinterpreted that rule in the changing room before the match? I found a guy who I think Dan might like, so this was a story in the Times about great
+
+[00:07:34] old rugby players by Alistair Reed, and it was a rugby player called Graham Donald. He played for Scotland, and then the First World War broke out, cutting short his career, but he signed up. He was in the RAF, and he was, I think, on a training flight, and he was doing a loop-for-loop in his plane. Jesus, man. And what? A safety belt snatch.
+
+[00:07:53] Oh, my God. Oh, no. Come on. And he fell out of the plane. No, no, no, no. That guy. This is amazing. He fell 2,000 feet.
+
+[00:08:01] He landed on the top wing of his own plane. Yeah, yeah. This is okay. And he had time back in. Never happened. Never happened. I said this a long time ago. I've been given shit about it.
+
+[00:08:10] I swear it's true. I've read multiple accounts, so he was doing the loop-for-loop at the top, seatbelt snaps, he plummets down, but fortunately, his plane is continuing the loop-for-loop, comes back around, and he lands back in it, and he survives. No. It's not going to make us believe it more, just because Andy's now also said it. Two out of four. Come back in a couple of years.
+
+[00:08:31] No chance. You'll get us eventually. In Samoa, they play a lot of rugby, and the Samoan Times in 1926 reported on an international match against Tonga, one of the early matches they played, and the report went like this, apologies, our rugby correspondent has failed us this week, and owing to a previous engagement to the hopscotch match near the market hall, did not see the rugby game. Oh, my God. Was rugby underappreciated then, or was hopscotch a huge sport?
+
+[00:09:04] Guys, we need to move on to our next fact. Can I get one more player? Yeah, go for it. This guy called Tom Youngs from this year, a modern rugby player, plays for Leicester, and he plays, you know, in the front line of the scrum that you've got, is it what, two props, and the hooker is the position in the middle, because you hook the ball back with your foot is the idea. And he was in the news for some reason.
+
+[00:09:25] He was being charged with some disciplinary action. But an American news website writing it up seems to have had some auto replacement software on, because it wrote Leicester Tigers' prostitute charged by RFU. We don't know that he wasn't a prostitute. No, that's true. And this keeps happening. There's a player called Ross Batty, who also plays as a hooker, and they wrote about him. Bath Hall announced his medical retirement from the matter of the rugby.
+
+[00:09:58] All right, look, we need to move on to our next fact. It is time for fact number two, and that is my fact. My fact this week is that the engineers who sent the first woman into space forgot to give her two things. One, a toothbrush, and two, the ability to return back to Earth. Wow. So she's still out there. Still there? Boasting around with rotten teeth.
+
+[00:10:23] So this was a cosmonaut called Valentina Tereshkova. She went up into space in 1963, first woman ever to do it. And the program inside the craft had in it the program to ascend, but not to descend, but to come back into Earth. And she was hours up there when she suddenly noticed that she had no ability to get back to Earth, had to call back down to Earth and say, hey, tiny thing, we'll get to the toothbrush later. But can you give me the code to get back to Earth? And they had to send it up to her and she had to plug it back in.
+
+[00:11:00] And fortunately it worked and she was able to come back down. But had they not had the ability for her to reprogram it, she would have just been stuck up there. Literally the difference between going up or going down, wasn't it? She pressed, OK, go back to Earth now and they're just getting further and further away. So stressful. It's like being on an inflatable and just bobbing a bit far out to sea. Yeah. It's a bit like that.
+
+[00:11:25] Maybe it's even more stressful than that. I don't know. That's in the interview, that's exactly what she said. She was like, oh, you know Andy when he was on holiday? It was like that, only not as bad. And even worse, it really rubbed salt in the toothbrush wound, I guess. Because if you know you're going to be without a toothbrush for three days or whatever, however long it was, that's kind of OK. But when you know it's going to be forever.
+
+[00:11:47] Yeah. That's way worse. So she was up there orbiting the Earth for three days. And then the way it worked back in the day was there was no exact science to where you were going to land. So what you had to do was you descended back into Earth, you came down and you literally ejected yourself at a good height with a parachute. And then you just landed wherever you landed. And she landed in a small town in Kazakhstan. And some local villagers came, found her, got her out of her suit because it's really hard to get out of.
+
+[00:12:15] And then she just... Whoa, God, you need to brush those teeth. Put that helmet back on now. Yeah. And then she just had dinner with them while, I guess, everyone with the space agency was just trying to locate her. She got in a lot of trouble for that, Tereshka, actually. Because, like, really, they didn't know if she'd caught some space cooties or something while she was out there. So, like, coming down and going straight to see these peasants was, like, it was a real no-no.
+
+[00:12:40] Yeah. Wow. She logged in that flight more flight time than the combined times of all other American astronauts who had been in space up to that date. Up to that date, right. And the weird thing about it is another woman didn't go to space for 20 years. Yeah. So odd, isn't it? She used up all the flight time.
+
+[00:12:56] That was it. Selfish. Selfish. Shouldn't have demanded that extension, should you? The other thing about when she landed is, so she did land and then she went to see these people and had dinner with them. But obviously, the Soviet Union had propaganda to sort out, right? And so what they did was, and she had a bruise on her face because it was quite a tough landing, so they came and gave her a load of makeup, shoved her back into the capsule and said, OK, let's get some actors here.
+
+[00:13:20] And they got some actors to open the door and say, ah, Valentina Tereshka, you are back home. Amazing. That's so funny. It was very managed. Like, I think the government sort of arranged her marriage after this, right? Or strongly encouraged her to marry another astronaut, basically. Yeah, the difference between arranged marriage and Khrushchev saying to you, I think you should get married. Yeah.
+
+[00:13:43] There's not much difference. And Khrushchev officiated. I thought he had better things to do, but Khrushchev's there as the priest, basically, marrying them to each other. Isn't that weird? I don't know if you did that online thing where you get your credentials in advance the night before. That's so interesting, because I always thought, so she was up in the Vostok 6, it was called. And she often does talks around the world, and they bring the actual capsule to different places. And she really loves it.
+
+[00:14:09] She always strokes it. And she said of it, my lovely one, my best and most beautiful friend, my best and most beautiful man. And I always, you know those people who like marry the Berlin Wall? I was scared. When you say people, it was one time. Well, there's somebody married a roller coaster in the Berlin Wall and the Eiffel Tower as well. Yeah, I feel like Valentina's, you know, one of them. She's on the path.
+
+[00:14:31] Yeah. Did she stay married to the human she married? No. No, she was called in bed with the Vostok 6. She was ready to mingle. Actually, one thing that she had in common with a rugby player we mentioned before is that she never told her mother that she was going into space. And her mother only found out when she saw it on the news. What?
+
+[00:14:52] Yeah, because it was really classified. Like the Soviet Union didn't tell anyone that it was happening, possibly in case things went wrong, right? But when she went to the place to do it, everyone said that she was doing like a parachute jump. And she kept it up. She said, no, I'm just doing a parachute jump. I'm just doing a parachute jump. Actually, this was what she was doing. I guess at the end of it, she was very, very big with a three day run up.
+
+[00:15:15] Wow. I tell my family so much stuff. I tell my family, you know, when I've had a cup of tea, I don't think I can keep secret that I was going to be the first. They don't bring back. Yeah, they've stopped answering in recent years. Yeah. My wife never told her parents when she became a helicopter pilot until after she'd done it. And she's Russian, so maybe it's in the jeans.
+
+[00:15:33] Yeah, because actually she also kept the parachuting secrets. In fact, the two first women in space, both of whom were Russian, both basically went to space because they were really into parachute jumps. I genuinely think it was for the thrill of that final bit where you parachute out. And they were both parachuting surreptitiously without telling their parents. I don't know what Russian parents are like. They bound their children from jumping from high things. Well, putting it this way, the first time I met my in-laws, I was in my mid-thirties and they wouldn't stop telling me to put a hat on. Otherwise, I'll be cold.
+
+[00:16:06] For the listener at home, James is wearing a hat right now. He took it to heart. You never know where those Russians are watching. So China are currently building a new space station, and they have sent recently a very clear signal that one of the crew is going to be a woman. I don't know if you can guess what the sign is. It's not an announcement or anything, but they've announced... They've painted it pink. They've announced the lineup of stuff that's going to be put in the payload to go up there, and it includes 30 bottles of face cream, 30 of serum, and 60 bottles of toner.
+
+[00:16:41] So that is the indication. Toner, not for a printer. Not for a printer, for a human face. And I don't know any more than that about what toner does. Tones you up, I imagine. They had a lot of weird stipulations, didn't they? The Chinese about the female astronauts. They had to be married. They've had to have given birth. Oh, really? This might be the old Tyconauts, as opposed to this new batch that you were talking about.
+
+[00:17:07] Yeah, because it was the having children element of women, that inconvenient element of females that put Russia off sending any more women into space. So when the first one went up, came back down, and then Russia went, actually, this is super dangerous, and you might have kids. So they thought it's not fair on the potential children that were around. Like radiation or this kind of thing. No, more like you might die in space. Oh, yeah, and then you definitely can't get pregnant and have kids after that. Yeah, very good point. If you already have children, they'll be upset. They'll be sad, especially if you didn't tell them you were going in the first place.
+
+[00:17:38] They thought you were just doing a parachute jump. One other thing about Toreshkova is that she was really sick when she went up. And there are a few reasons that she might have been sick, and if you look at different sources, it's different things. So some people think it was because she was on her period and she felt really ill when she went up there. Some people thought it was because she'd eaten some tinned fish and lemon pie on the way up, and that's why she felt ill. The nicest combination of foods in the world, tinned fish followed by some lemon pie, nice and quickly. I read in one Russian sauce that she, when she was sick, she didn't want the people on the ground to know she was sick, so she hid her vomit behind some panels in the space station.
+
+[00:18:14] What is this woman's thing with secrecy? Why is she telling anyone anything? I didn't see that in any other sauce. It might not be true, by the way. What if the vomit fried the electrics on the spaceship and then she couldn't get home? This woman is a liability. But you know, we're saying like the Russian and the Chinese, the Americans were very much, you know, 19 years after Valentina went to space is when someone else went up, and that includes the Americans. And famously, earlier with Jeff Bezos, Wally Funk went to space. Finally, after a lifetime of wanting to go to space, and she was part of the original astronauts that were training with the Mercury,
+
+[00:18:49] so John Glenn and so on, who went up and orbited the world. She did everything that they did, and she did it perfect. So the things she had to do is the preparation included, she had to swallow three feet of rubber hose. She had to drink a pint. It's not some kind of hazing ceremony you have when you get on the spaceship. Why? I guess you should have read up on that, really. That is a odd sentence. Three feet is a lot. Three feet is a lot.
+
+[00:19:15] That's coming out the other end. That's like a weird dental floss thing. It's a huge enema. So three feet, she swallowed three feet of rubber. She drank a pint of radioactive water. Again, should have read up on what reason that was for. And she did this thing, which is extraordinary. She stayed in an isolation tank for 10 and a half hours, which was a record time,
+
+[00:19:44] even for the other male astronauts that were doing it. And she was chilled. And when they checked in on her, she was basically like, has it been 10 and a half hours? Oh, keep me in. I'm fine. Oh, you mean chilled? Sorry, I thought you meant chilled like in a fridge or something. She was in complete darkness and silence. She passed every single test, and it was basically John Glenn, who was the first person to orbit the earth as an American,
+
+[00:20:06] said, I don't think women should do this. It's the only reason that Wally Funk wasn't allowed. I mean, to give them their due, the Soviets were a bit better in some areas of gender equality than the Americans. Yeah, it was equally shit for everyone in the Soviet Union. It was equally shit. There certainly just seemed to be a sense that women weren't quite expected to fulfill that very stereotypical female role that women were expected to perform in America.
+
+[00:20:30] And so like the second woman in space, the second woman in space was Russian as well, and was Fetlana Savitskaya. And she was awesome. She led an all-female team to victory in the World Aerobatic Championships in 1970. That's amazing. No woman had ever really flown aerobatically like that before, and it was a full-female team, thrashed all the men. That's amazing.
+
+[00:20:53] And did they do that thing when you do a loop-the-loop, and you kind of fall out halfway around? Such a good move. That's the main one, isn't it? But Donald. Yeah. All right, well, we need to move on to our next fact. So we're going to move on to fact number three, and that is James.
+
+[00:21:07] Okay, my fact this week is that in the Toda Society of Southern India, Milkman are not allowed to have sex. Was this brought in after an incident? They've just been fathering too many goddamn kids. It was not that. Okay. So this is a society from the Tamil Nadu area, and all the traditions are centered around the buffalo.
+
+[00:21:36] Okay, so all the rituals around the buffalo, so, like, whenever they do any dairy activity, there's loads of rituals, whenever they're looking after the herds, there's loads of rituals, and they have this guy in their society called the Holy Milkman, and he is basically a priest. He does all of these things, and it's a really tough job being the Holy Milkman,
+
+[00:21:55] so he has to be celibate, as I said, the whole time. He's never allowed to visit his family while he's the Milkman. Like, you can stop being the Milkman at some stage if you want, but while you're the Milkman, you're not allowed to visit your family. Except for when you're leaving milk outside the door. Well, no one's even allowed to talk to you if you're the Milkman. What, it's so early in the morning, isn't it? They're allowed to approach you two days a week,
+
+[00:22:20] Mondays and Thursdays, they're allowed to come over to you and chat to you, but any other day, if you want to speak to the Holy Milkman, you have to stand on the other side of the street, or the other side of the field, and go, How's it going over there? Can we change to three pints, please? Next week, thank you. And if there's like a funeral in his family,
+
+[00:22:38] and he needs to go to the funeral, or there's a real reason that he has to go back to his family, he has to resign as the Milkman. Well, also, if someone touches him by accident, he has to give up office, which feels that's quite risky as a job. I'd ask someone to do it immediately, it's the shittest job. I think they liked it, though, right?
+
+[00:22:56] I don't know, man, it sounds really rough. Even to qualify to become one of these priests, which, as I say, is very undesirable, you can't really spend time with anyone, ever. To qualify, you have to do this massive fast of starve yourself for a while, and then you're sent off to sleep in the forest, naked and alone for several nights in succession,
+
+[00:23:14] and there are tigers around, and other things that can happen to you, and it is quite cold, because it's quite high up. So, yeah, I don't know about days lying naked. But you get status, you do get big status, so there was an account of the milkman, and he was asked whether the Todas salute the sun, whether it's a sun-worshipping religion,
+
+[00:23:37] and he said, those poor fellows do, i.e. the other members of the Toda group, but I, a god, why should I salute the sun? Wow. It's a status bump, definitely. A perk, not having to salute the sun. Can't ever have sex again, but we can't have to salute the sun. Do they live with the buffalo?
+
+[00:23:57] Because they live in what's called the sacred dairy. Yes, oh, kind of they do. So, basically, each family lives in a barrel-shaped house, and in that kind of community, there's quite a few families all live together, and that group all have the buffaloes that they look after, but there's one guy who's in charge of the milking. There was a TV series about that, exactly.
+
+[00:24:22] It was Billy Piper was in it. It's called the Sacred Dairy of a Coal Girl. I don't know if you saw it. Wow. Oh, wow. That was actually a misprint, because she was actually playing rugby. She was a Coal Girl after all.
+
+[00:24:41] They have a lot of change about the Toda, and one of the things from back in the day is that the women of the Toda used to practice fraternal polyandry. They would have to marry all the brothers of one family, and that would be the husbands. Yeah, exactly. Like you say, this doesn't really happen anymore. The milking stuff still does,
+
+[00:25:03] but a lot of the old stuff doesn't really happen. But it used to be that when a Toda woman was pregnant, and she had all of these different husbands who were all brothers, so you knew who was the father, they would give her a toy bow and arrow, and the husband would give them that. That's how you would know that he was the father of the child. That's the weird thing about the bow and arrow.
+
+[00:25:22] They had no idea what it was for. Really? People were astonished when, I guess they were studied to be studied in the late 19th centuries, and bows and arrows, and bows especially, have a hugely significant place symbolically in their society. They used in weddings and funerals, and they have no idea that they're actually weapons.
+
+[00:25:41] They don't hunt. They don't use them for hunting. They've just got defunct bows and arrows. There must be accidents happening all the time if you don't know that it's a weapon. The arrow in the bow, would you? That's a good point. Yeah, you're right. They're pastoral, so they're really only bobbin' about the buffalo
+
+[00:25:57] and getting all the stuff from the buffalo, and then they trade that for the meat, so they're not hunters. They actually were a very hierarchical society. Back in the 19th century, they were king of the hill, literally, so the Toda are basically in charge of a bunch of other tribes all around them.
+
+[00:26:13] It's the Nilgeary mountain area, and like James says, all they're doing is making milk, and they basically made everyone else give them everything else, so other tribes would have to pay deference to them, taxes to them, basically, so the Vadakas tribe would have to pay 10% of their vegetables
+
+[00:26:30] they grew each year to them in rent, and yeah, it was impressive. They sort of made people happily subservient to them. It is impressive. Another impressive thing about them is their language, the Toda language. The Toda language has six trills that no other language has,
+
+[00:26:46] so you know, like, when you roll your Rs, that kind of thing. Don't say that to the milkman. He's not allowed to reply. I read a paper in the Journal of International Phonetic Association by Sinisha Spijic, and they say, you know, you need to get
+
+[00:27:02] all these trills right, otherwise you're not going to be able to say the words right. The first paragraph of that paper ends, Toda is a rich source for trill-seeking phoneticians. Brilliant. More people have probably heard that joke now than have ever heard that joke
+
+[00:27:18] since it was written in the academic paper. You have been the super spreader for that joke. That is really nice. It's a great joke. If you want to get married in the Toda society, as a man, you have to lift a 120 kilogram stone. Right. And if you don't lift it, then you won't be able
+
+[00:27:34] to get married to someone. 120 kilos stone, in case you don't know, is just over twice as heavy as Emma Stone. LAUGHTER That puts it into context. Puts it into context, that, doesn't it? Milkman? Yeah. Let's have some milkman.
+
+[00:27:50] Some American houses back in the day had a milk door. Isn't that cool? Was it a normal sized door, or was it a tiny little, like, cat flap side? It's a tiny cat flap side. Don't mix it up with a cat flap, though, because don't leave your milk where the cat's going to go in. Danger, yeah. Danger. But it was just a way of getting your milk
+
+[00:28:06] without talking to the milkman, if you didn't want to. Is that right? Yeah, but that sounds like in the UK that that was a thing anyway, that you used to just leave your windows open or your doors open, and during the middle of the night the milkman would sneak in. Milkman.
+
+[00:28:22] It would fill up your jug. And then you would sneak back out again, and you'd never know he'd come down. You've been watching some soft porn films from the 1970s. I never get to the sex, I'm just like, rewind that. There's milkman bits, fucking amazing. But the milk door, sometimes,
+
+[00:28:38] so there's a door on the outside of your house with a little ledge where the milkman puts the milk and then he closes the door, and then you open it from the other side. There's another door on the other side, but the clever thing is, on the milkman's side of the milk door, there is a dial where you could adjust the milk meter
+
+[00:28:54] and you could show the milkman how much milk you wanted in your milk door every morning. I wonder if that was used as a euphemism very often. I bet it was. I bet that was mostly used by housewives when their husbands had gone to work. It's a green or a red light. The milk meter is set to a full fat today.
+
+[00:29:16] Have you guys heard of Sean Garvey? You must have done, right? Sean Garvey, milkman of the year 2004. Right, actually. Oh, well, he won milkman of the year in 2004 after he rescued a 92-year-old customer from a gas-filled kitchen. Oh, OK.
+
+[00:29:32] Have you guys heard of Ian Beardwell? Definitely, yeah, milkman of the year 2007, right? I think he was a milkman of the year. I just can't remember the year. 2018, of course. He kind of was chasing car thieves. He returned and lost laptop after finding it on the road.
+
+[00:29:48] So, yeah, he won milkman of the year. Sorry, what's that got to do with milk? That sounds like he's a milkman by day, but a Superman vigilante by night. He's a milkman by night. OK, have you heard of Steve Leach? No, what year? Did he win milkman of the year?
+
+[00:30:04] Oh, he didn't win milkman of the year. Oh, gosh. He won milkman of the millennium. Wow. That's huge. It's huge. In 2002, when he put out a raging fire with 320 pints of milk, he said,
+
+[00:30:20] I kicked the door in and started pouring milk everywhere. It was hard work opening all those bottles as they have tamper-proof lids. It was even harder trying to explain to my boss where all the milk had gone. What?
+
+[00:30:36] That is insane. I don't buy this story. I think that... This is crazier than the fucking guy falling out of the plane. That... I was thinking, when you said 2002, you're a milkman of the millennium, I thought, that's a bit early to be dishing it out. There are 998 years left to order.
+
+[00:30:52] I say, give it to him. That's incredible. That's insane. Hey, listen, we need to move on to our final fact of the week. Let's go and that is Anna. My fact this week is that George Lucas owns four ranches in the Lucas Valley,
+
+[00:31:08] which is named after a completely different Lucas. Did he go to the Lucas Valley because it was named that? I don't believe so. No. It is a beautiful valley in California where a lot of people like George Lucas hang out, so I think that helped.
+
+[00:31:24] I was reading about his ranches, which are pretty jolly. That's named after him, but it's not. It's named after John Lucas, who I'm sure you've all heard of, the 19th century rancher, who was... He won one of the year, didn't he? 1879. Yeah, yeah. Exactly.
+
+[00:31:40] There's not much on John Lucas on the internet, is there? No, he was roped into running the ranch, as far as I could tell by his uncle, who drank him over from Ireland, but then wasn't really into it because he was a bit uppity. And so I think his wife, Maria, basically ran the whole estate for a long time.
+
+[00:31:56] Yeah, he was roped into it a lot because his uncle died and left it to him. That was a lot of it. His uncle was called Timothy Murphy, and he first got the area because it was owned by Mexico in those days, and Mexico had a rule that if you were Roman Catholic
+
+[00:32:12] and you had a Spanish name, then they would give you some free land. But this guy was called Timothy Murphy, so he changed his name to Dom Timateo Murphy. Very nice. There is a place from San Rafael, which is the area
+
+[00:32:28] that Lucas Valley is in. There is a Native American group from there called the Miwok. No, really? Sounds a little bit like Iwok, which is some of the things, and they're the teddy bears. Yeah, yeah, but that's not a coincidence, though. No, it's not a coincidence, and they're not teddy bears,
+
+[00:32:44] but they... Yeah, and now in a weird kind of full circle thing with Lucas, because he has the Skywalker Ranch there, which is where... Which is named after a completely different skywalker. So weird. But there is now, in this
+
+[00:33:00] Miwok territory, a lake which they made, a man-made lake, which is called Lake Iwok. Yeah, he did name, just to clarify, the Iwoks sort of after the Miwok people, but it also happened that it is Wookiee backwards, which is another sort of teddy bear, isn't it, but a bigger teddy bear.
+
+[00:33:16] Yeah, sometimes you can just feel the emails and tweets coming in. But he liked naming places, particularly for Star Wars, with things that were relative to the places he was, or that he wanted to go to.
+
+[00:33:32] So Tatooine, which is where Luke Skywalker's from, is actually named of the town, Tatooine in Tunisia. So he picked that up, yeah. Was that like, that's where they filmed it, didn't they? Yeah, exactly. R2-D2. That was when he was working on his previous film American Graffiti. There was an editor
+
+[00:33:48] who's shorthand for what was real to dialogue to. He would say R2-D2 and that just stuck in his head. And then here's a weird one, but I'm a Star Wars fan, and this might be quite obvious to Star Wars fans, but I'd never heard it. Luke Skywalker is Luke S. Lukeus.
+
+[00:34:04] Okay. He's not wearing a mask, is he? He's called George Lucas. Sorry. Yeah, yeah, yeah, yeah. He's named the hero of his whole thing. That's interesting. So it's like Luke Skywalker, do you think it's based on him? He's like, he wrote himself into it. Possibly, yeah. He definitely wrote his dog
+
+[00:34:20] into it. Did he? Yeah, so Chewbacca, who's the big teddy bear was based partly on his dog. Malamute, I think it's pronounced as this great big shaggy dog, but get this, that dog has inspired two of the greatest cinematic creations ever, because
+
+[00:34:36] he had this dog, which was named Indiana. Yeah, Chewie and Indy are both named after one dog. That's amazing. The dog was the inspiration for both of them. He sounds like an unimaginative egotist so far, doesn't he? Well, ouch!
+
+[00:34:52] I like the guy, but just based on this. Just while we're on names very quickly, there's obviously, Star Wars was George Lucas' thing, and then it turned into this giant empire, and there's comic books, and there's, you know, animations, and all new characters are created all the time, so there's a big encyclopedia
+
+[00:35:08] of all the different Jedi masters and Siths and all that, and there was someone who was working for the Lucas Company, and he created a Jedi, which he did as a bit of a joke. He was called Soon Bates, and Soon Bates was a Jedi master, and he wanted to get it as a
+
+[00:35:24] joke, but it made it through, so there is now a Jedi called Master Bates, who is an official Jedi, and created by a guy called Randy. No kidding. And it made it past the editors, and they regret it so much, so he has
+
+[00:35:40] to appear, because he is canon in the official encyclopedia, but he's one of the only Jedi's who just does not appear anywhere else. He's in his bedroom most of the time, isn't he? I am unaware of most of the things in Star Wars, but do you guys know something?
+
+[00:35:58] If I say this, tell me if this makes sense. In one of the films, there is a resistance base on the planet of Dakar, and it's the scene of an epic battle between the resistance and the first order on Starkiller base, and was featured in the scene where Rey heads off to find an iconic Luke Skywalker.
+
+[00:36:14] Have you thought about doing the audiobooks? I don't know what any of that means. I don't know what any of it means. This is the latest batch of Star Wars. But it was filmed in a place called Greenham Common, which is in Berkshire, which is just down the road from here.
+
+[00:36:30] And what is amazing about Greenham Common, and back more on to my kind of territory, is that there was a protest there in the 80s, and they were going to put a load of nuclear weapons there. And in 1982, 250 women decided to protest, and said that we don't want this here.
+
+[00:36:46] They decided specifically it had to be just women, because they wanted to say, well, we don't want our children to have nuclear weapons in our area. So it started with 250 women. All the media outlets just really vilified them. They called it a witches cover, and all this kind of stuff.
+
+[00:37:02] That was in 1982. But by 1983, another protest happened there, and there were 50,000 women in this protest. It was insane. They held hands for 14 miles all the way from their camp to a place called Older Mastin.
+
+[00:37:18] Isn't that amazing? And that's why no one has nuclear weapons anymore. Well, that is why they don't have nuclear weapons in Berkshire anymore. You know May the 4th be with you when it's May the 4th, and it's Star Wars Day, and we all say that.
+
+[00:37:34] Maybe you all say that. People say that. Only a few times a day. Once a year. And it's a cool thing. Does everyone know where that came from? You'll never say it again. Yeah, someone knows it. It was Margaret Thatcher
+
+[00:37:50] who was the reason for it. She won the election in 1979. It was her first day in office. It was May the 4th. And so the conservatives put a congratulatory advert in the paper the next day. Saying May the 4th be with you, Maggie. Congratulations.
+
+[00:38:06] So, and in one fell swoop, we've killed that saying forever. You know the Star Wars merch. This is a huge element of the thing. So George Lucas he was given the chance to try and haggle upwards on his feet
+
+[00:38:24] because he made a film called American Graffiti and it became a huge hit. And he'd already signed up to Star Wars and he was sort of thinking about, well, should I go for more of it? And he said, no, I'll take more of the merchandise rights. Some big percentage of the merchandise sales. Which didn't really exist for films at the time.
+
+[00:38:40] There wasn't much, there wasn't George's merch in the way that there is Star Wars merch. And the merchandise was so popular that the firm he got to do it, a firm called Kenner, they belonged to General Foods. They were so taken by surprise. They were taken on Christmas
+
+[00:38:56] 1977, it had been out for months and months in the USA, I think just out in the UK. Kenner was so short of stock that what they sold, an early bird certification package which was basically an IOU saying we do not have these toys,
+
+[00:39:12] but if you send in a form we will give them to you between February and June next year. And it was the hit of the Christmas. An IOU, there were no toys, no form. And these empty boxes now sell for up to, you know, $8,000
+
+[00:39:28] on eBay. If you have an unopened IOU box with no toy, it's mad. It was the equivalent of like when you're trying to book Glastonbury tickets and you're in that queue where you see the man walking towards the tickets, it's like, okay, I'm there, I'm there in the queue, I've got my box. I've never tried
+
+[00:39:44] to buy Glastonbury tickets in my life. Is it like when you try and buy Glymborn tickets? Yeah, got it. Do you guys know Michael Leeder? Is he a milkman? For God's sake. Yes, he is a milkman.
+
+[00:40:00] But on the desert planet? No, in EastEnders. He's a milkman in the TV show EastEnders. No, is he really milkman? He was 16 years on EastEnders as a milkman before he ever uttered his first bit of dialogue in the show. No, I'm not allowed to have sex.
+
+[00:40:16] He spoke to a cabbie called Charlie Slater. Oh yeah, I know that part. His line is, is this your squire? That was his big break after 16 years of being the milkman on EastEnders. Prior to his career as a milkman there,
+
+[00:40:32] he was in Star Wars as a stormtrooper. Now very hard to pick out your stormtroopers in Star Wars, but it just so happens that he's possibly one of the most famous stormtroopers that the series ever produced because a few people in the audience
+
+[00:40:48] might recognize this. There's a scene where stormtroopers are running through the Death Star and one clumsy stormtrooper cracks his head on the side of an archway. It's become a famous scene to the point where in 2004, when they re-released the DVDs, they added a thud
+
+[00:41:04] so you could hear. So he ran into it and went I mean we need to wrap up the show on that note, right? What? How the fuck are we going to top that? Okay, that is it! That is all of our facts. Thank you so much for listening.
+
+[00:41:20] If you'd like to get in contact with any of us about the things we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shribiland, Andy. At Andrew Hunter M. James. At James Harkin. And Anna. You can email our podcast at qin.
+
+[00:41:36] Yep, where you can go to our group account, which is at no such thing. Order our website, nosuchthingasafish.com. We have all of our previous episodes up there. We have links to all the rest of the dates on this nerd immunity tour that we are currently on. We have links to our merchandise,
+
+[00:41:52] including this really cool new booklet that we've done for our tour. I hope some of you've got some. We're going to give one away right now to one of the members of our crowd. This is for a 10-year-old in our crowd called Jamie. There you go, Jamie.
+
+[00:42:08] Hope you enjoy it. Thank you so much, Redding. You guys have been absolutely amazing. We'll see you again. We'll be back again next week for another episode. Goodbye!

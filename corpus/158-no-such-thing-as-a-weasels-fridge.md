@@ -1,0 +1,227 @@
+# No Such Thing As A Fish - 158: No Such Thing As A Weasel's Fridge
+
+- Episode date: March 31, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/158-no-such-thing-as-a-weasels-fridge
+- Slug: 158-no-such-thing-as-a-weasels-fridge
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I am sitting here with James Harkin, Andrew Hunter Murray and Anna Czazinski and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order here we go. Starting with you, Andy. My fact is that sometimes racing ferrets fall asleep halfway along the course. So it's a bit like the tortoise and the hare story, so that the hare is a ferret.
+
+[00:00:50] The tortoise is another ferret that doesn't fall asleep. All the animals are ferrets. Yeah, and sometimes they fall asleep. I've confused things too much by introducing me. It's a bit like Sleeping Beauty on the edge of sleeping ferret. Wishing halfway through a race. I miss that bit of the story. Just a sleeping bit really.
+
+[00:01:08] Right. Yeah. Yeah, yeah. And then I had some Prince turns up and kisses. But he's a ferret. He's a ferret too. This is an article from the Derby Telegraph who did a report. They've had a ferret race up in Derby recently at a place called Long Eaton and there's
+
+[00:01:23] no track. There is, is a tube and every ferret has its own tube. Oh, I was going to say not just one tube, but otherwise a person who goes in first would be the winner every time. Also, you could just fall asleep and that's it, yeah. It'd be like having Bob sledding with just one of those courses and you'll go one. Oh, yeah, yeah. That is not the case in this race.
+
+[00:01:46] No. Every ferret gets his or her own tube and you race along it and the coach has to encourage the ferret along to the other end. But sometimes a ferret can be winning according to a spokesman and then decide to lie down for a nap. So a race can take two minutes or it can take 10 minutes. This place in Long Eaton, last year they had a thing called ferret roulette. Is it like Russian roulette?
+
+[00:02:07] Yeah. The ferret's got a gun? Yeah, maybe. No, no, you shoot a ferret into the side of your head. It's not like that. No. You had to bet on which tube a ferret would go down. You could put on loads of different pairs of trousers and one of them's got a ferret
+
+[00:02:26] in it. That is ferret roulette. That's really good. I read, I think it was the same one, tickets were £12 each. Is this the same one? I didn't check the ticket prices. How many ferret racing events can there have been in Long Eaton recently? Yeah, probably a few.
+
+[00:02:45] Tickets were £12 each and they included a fish and chips supper. Oh, OK. And in my local fish and chips shop, fish, chips and mushy peas is £9.80 on its own, so you're paying £2.20 for the ferrets, really. That's very reasonably priced. Good, isn't it? Yes, very good. They should really make the tube see-through, I've just realised, because I was thinking
+
+[00:03:05] what you're really paying for is nothing, because you don't get to see any of it until the ferret pops out. Of course the tube is see-through. No, no, no, no, no. Yeah. No, Dan, it's not. It's the one I watched. What?
+
+[00:03:15] It's a solid tin. You've been watching the luxury ferret racing. You clearly paid a bit more than your 12 quid. No, there are sections of wire in the tube, so occasionally you see a ferret passing by. But that's more like a way marker than a... That, my one's way better. You get to watch all the workings of the race, like a race. Imagine if there was like a pool cover on the top of an Olympic swimming pool.
+
+[00:03:37] Hello. Oh, let's see who pops out at the end. Oh, they all drowned. I shouldn't have put that cover on that. So have you guys heard about ferret legging? Yeah. God, it's exciting. Best thing in the world.
+
+[00:03:51] Yeah. So it's where you put a ferret down your trousers and you see how long you can keep it. You tie up the ends of your trousers, put a ferret down there. It's nice for the ferret, because it reminds it of hunting rabbits, I presume. Yes. Well, what's it hunting in that case? What is it in your trousers that reminds the ferret of a rabbit? Um...
+
+[00:04:11] Aren't you supposed to... Flopsy! Aren't you not allowed to wear underwear in ferret legging? You have to have your genitals exposed, I think, in some of it. Show us the expose. Exposed to the ferret. Exposed to the ferret. Yeah.
+
+[00:04:25] I definitely would have got that memo wrong and arrived. Balls out. But that's the only occasion where actually you can claim you're exposing yourself for a very good reason, which is to protect your genitals from the ferret. That's true. Are you cheating, though? Officer. I think this might have been enlist first, actually, that one of the biggest names in
+
+[00:04:44] ferret legging is Reg Mella. And he introduced the concept of wearing white trousers to better display the blood spilled from the bites. Ooh. In 1972, the ferret legging record stood at 40 seconds. A few years later, it rose to over one minute, and eventually to 90 minutes, which is quite a leap. Yeah, that's...
+
+[00:05:03] And then, in 1977, Edward Simpkins from the Isle of Wight set the New World Record of five hours and 10 minutes, although he only had one ferret in his trousers during the first four hours and two for the last 70 minutes. Simpkins sustained two large bites during his record-breaking attempt, but continued to play a game of darts under turds. Wow. What a hero. How did he do it in the darts?
+
+[00:05:23] Did he hit anything? It doesn't relate. He actually won the BDO World Championships that year. Beat Jocky Wilson in the final. But that's only because he trained the ferret to carry the dart over to the dartboard and hammer it in. Apparently what you're meant to do when you do ferret legging is to feed your ferret a lot, so you don't put a hungry ferret down your trousers, which is what leads to a lot
+
+[00:05:55] of the bites, is because four hours in, they might get a bit hungry and start nibbling on you. So, if you really feed your ferret, you should survive a bite. Yeah. I think, because ferret is, I had a look in the slang dictionary, the Partridge Dictionary of slang. Ferret is slang for penis, and it's also an RF slang term, which is rhyming slang for beret.
+
+[00:06:15] That's not very good, rhyming slang, is it? It says in the dictionary, brackets deliberately bad. I think you can tell by the tone of voice in which someone says, I've got a ferret in my trousers. What kind of ferret they're talking about? Do you think so? I think it was someone saying, I've got a ferret in my trousers! That's a penis.
+
+[00:06:35] That's a penis, yeah. They're banned as pets, aren't they, in certain places? I think New York. Penises. Yeah. I wasn't allowed to bring mine in. Do you know which area of Britain owns the most ferrets? London.
+
+[00:06:51] Pretty much, yeah. London and the South East. It's traditionally thought to be a Northern, or especially a Yorkshire thing, but 27% of the ferrets in the UK live in London and the South East. Yorkshire only has 7% of the ferrets. No. Are they domesticated, or do we have wild ferrets? This is as pets, I think.
+
+[00:07:13] Yeah, these are as pets. I have seen someone near where I live walking around a ferret on a leash. I was so excited. Oh, I've seen that before, yeah. You can get little harnesses for them. Mitch used to have a pet ferret. Did he? Did he?
+
+[00:07:27] John Mitchinson of QI. Wow. That's cool. I met him. I've been to meetings with him for years. He had big paws and whiskers. Yes. That's great.
+
+[00:07:38] Pretty much. That's him. Constantly trying to get into your trousers. Good old Mitch. So they're really vicious, right? Animals in this kind of group, like weasels and stoats and ferrets, are... Mustelidae. Yeah, mustelidae.
+
+[00:07:53] They're so voracious and such good hunters. So there was that David Ashmore clip of a stoat that caught a rabbit that was 10 times its size and the way they do it is they wrap their bodies around the animal they're trying to catch. So they're like a little snake and then they bite it always exactly between the skull and the spine. So it cuts that off. But yeah, they're really good hunters and one of the ways they hunt is by doing the...
+
+[00:08:14] I think it's called the weasel war dance and it's where they just flip their body around in insane kind of configurations. They can hypnotize a chicken, can't they? The idea is that they transfix their prey and their prey is so distracted that they get... It's slightly different to hypnotizing a chicken. Isn't it? If they've just...
+
+[00:08:33] This is what the all black rugby team do before every game. Hypnotize chickens. Their war dance is they hypnotize the England team into being completely pathetic and rugby. Have you heard of the vigilante group, the 12 Just Men? No. They were in a Welsh market town called Newtown. There was a report about them in The Independent in 1992 and what they did, they thought that the local punishments dished out to criminals for vandalizing and burglary and things like
+
+[00:09:01] that were really pathetic and weak and that the police weren't doing anything. So they formed this vigilante group. They would find out about crimes and then they would... The spokesman said, our plan for keeping law and order is simple. Anyone we catch in the act of committing a crime will frogmarch off to the hills where there's nobody to hear the screams, will hold him down and slip Fred into his trousers. They had a ferret called Fred. What do you mean by ferret?
+
+[00:09:30] It will be painful and terrifying, but it will teach him a lesson he won't forget in a hurry. Do you know, so weasels make their own fridges, basically have their own fridge set-ups? No, they don't. They do. They've mastered electricity and they've made, no, they store food underground and they dig underground compartments near their den entrances. I see, I see, no, I see Annie, you're right, they've mastered the art of fridges. I would say they are some way along with the art of fridges, but mastery is a way off.
+
+[00:10:00] And let me finish, they plug it into the mains. No, fine, they dig holes underground because they'll sometimes go on a big killing spree and then bury most of their prey underground where it's nice and cold so it gets preserved. But they can store huge numbers of things in there. So scientists once found a stash in Greenland that was stuffed with the carcasses of 150 lemmings. Lemmings? Yeah, lemmings. That is a weasel serial killer who needs to be brought to justice immediately.
+
+[00:10:28] Hang on, am I thinking, lemmings like the size of a sheep, right? No. No, no, no. The size of like a guinea pig. What are you thinking of? I thought it was just this cave of dead sheep, 150 of them. What are you thinking of? Lemmings, aren't they the ones that ran off the cliff that Disney-
+
+[00:10:46] Yeah, well, no. But that's the myth, right? Yeah, exactly the trope. So the trope is like 100 guinea pig-sized things, ran off a coil. That was big. In my head, they were sheep-sized. Okay, I mean, we're all learning, so this is great. You've learned about ferret fridges, I've learned about the size of an animal that everyone knows.
+
+[00:11:05] Can I just tell you one thing about a different kind of animal racing? Yeah. So I think the equivalent of ferret racing in the US is Frog Jumping Contest. And this is based on a Mark Twain story. I think it was the story of the first story that made Mark Twain famous that he wrote in the 1860s. It's about a fictional frog jumping contest in a county in California, which now happens every year. And they attract up to 10,000 people, I think. Lots of people go and attend, and you can do stuff like blow on the frog's nether regions.
+
+[00:11:35] And that kind of makes the jump further. You have to pay extra to do that. Or is that included in your 12-toll entry fee? It's included in the entry fee. It says, fish and chips. Do you want to blow up the anus of a frog? It's included, so... It's a frog jumping competition.
+
+[00:11:52] Is it height, distance, speed, or what? I'm pretty sure it's distance. And I think they're allowed to do three jumps, and then they measure how far they've gone in three jumps. It's like the hot pop and the hot pop. Exactly. But they have to be played soothing music. So in the rules of this contest... They don't. They like it. They like it. They prefer it.
+
+[00:12:12] They like a bit of soothing music when you're blowing on the genitals. It's a romantic scene. There are actually rules that say when the frogs aren't working, they have to be kept underground. They have to be kept in a fridge. With a massive lemming. They have to be kept in the dark, in the cool, and be played soothing music to calm their nerves. It sounds like the frogs get a pretty good deal out of this. You get to go to a nice competition, you get your own green room,
+
+[00:12:43] and then you get someone blowing on your genitals. I know what your ride is going to be on that next time. God, hairdryer is in the dressing room, Mr Murray. Can I really want to ask people something that I have to have a mystery? The reason I brought frogs right was because I went to the countryside this weekend, and I went on a walk and noticed a dead frog on the path I was on. And then another one, and then I was with this other person, and we counted the dead frogs, and in the space of about half a kilometre, we counted 59 dead frogs.
+
+[00:13:16] And not all of them squashed, they were all black. They looked like they'd just been frozen in time, kind of black frogs. And I don't know why, and I've tried looking up why there would suddenly be 59 dead frogs in the countryside of Oxfordshire, and if anyone has any idea. What about if it was one of those supposedly things when it rains frogs? So if anyone has a better suggestion. Okay, so there is this idea that sometimes it rains frogs. And the idea is that a water spout is created by like a mini tornado,
+
+[00:13:45] and it sucks it up into the air, and then they rain down. Now, a lot of people think that they're not real, but what happens instead is it's been raining, pond kind of overflows, all of the frogs kind of go into the overflow bit of the pond, and then it dries up because it gets evaporated, and then they all have no water, so they all die. Okay. Was it near water? We looked for water, we think it must have been near water because the dog disappeared and it came back wet, yes.
+
+[00:14:13] So it was near water. We have it in blood. 60th frog in its mouth. I love that, that's your method of dividing for water is. Is the dog wet? We must keep moving then. Okay, it is time for fact number two, and that is James. Okay, my fact this week is that according to Venezuelan law,
+
+[00:14:41] 90% of wheat must be made into loaves of bread rather than cakes or pastries. It's very harsh. Why? Well, this is what they're calling the bread war in Venezuela at the moment, and they're obviously having a lot of financial problems, and what the government don't want bakers to do is to waste flour on cakes and things like that. They want to make sure that they have enough bread for all of the people. And they're properly arresting people, aren't they?
+
+[00:15:09] Oh yeah. Like for making brownies and stuff like that as well. It's not just, yeah, yeah. But this is like the history really of how important bakers have been, all the way through history, bakers have been one of the most important people in society. If they do anything wrong, they'll get punished a lot more than normal people. It seemed like such a high-risk job looking into history and sort of recorded statements about if you mess with the weight of your bread, if you miss sell your bread, you will be killed.
+
+[00:15:38] Like that, it was as harsh as you'll be killed or you'll be paraded through the towns. Get this, there was a thing where in France, if you were found guilty of swindling customers, you would be imprisoned immediately and your shop would be walled up for two years, which is pretty serious. Or sometimes they would have all your crimes printed on a massive sheet of paper and they would make you wear a sandwich board through the streets. Isn't that neat? It's quite cool, so a sandwich board as well.
+
+[00:16:05] Exactly, yeah, I don't think they call it a sandwich board at the time. And sometimes, this is from a book about the history of it, the police just looked the other way and let angry customers, often women, beat the bakers up. Whoa, no way. There was a law in Britain until 2008 that you couldn't sell a 600 gram loaf of bread. The law was that you had to sell it in 400 grams or 800 grams or 1200 grams, it had to be a multiple of 400. Really?
+
+[00:16:34] That was a law that was from the size of bread and ale in 1266. And it was still going until 2008 when they made it legal to sell a 600 gram loaf of bread. Most loaves are still 400 or 800 grams, aren't they? Yeah, so even now it's still happening. Well, yeah, that's just left over from the olden days. Is it a myth that this is where bakers doesn't come from? So the idea is that because bakers were so afraid of being punished for underselling to customers, they would always give them a little bit more than they'd ordered, wasn't it?
+
+[00:17:05] So they didn't get stopped and I think it's been written in various places that that's where bakers doesn't come from. I've never seen anyone asserting that it was a myth. And it's the kind of thing that I would have seen, I think. So I think it maybe is true. But I don't know, if it's not true, if you know about that, then keep it to yourself. There was a paranoia in the 18th century that bakers would steal human bones and ashes and they would use the bone ash to increase the weight of their flour. It was not true.
+
+[00:17:34] There's no evidence it ever happened, but people really hated bakers. And as a result, well, not as a result, but just in general, bakers had to carve their initials into the underside of every loaf of bread they made. Really? Yeah, to sort of show this was made by Fred the baker and it's the appropriate weight. So in 2009, Venezuela banned video games where you shoot people. Did they? Yeah, because there was so much shooting going on that they thought that this is just not a good influence. So they actually took a stand and completely banned it.
+
+[00:18:07] But anyway, one other thing that they almost banned quite recently, it's because they went through an energy crisis. The president did come out and say he urged all women to stop using hairdryers because that was using up too much energy. He thought hairdryers specifically were causing huge shortages. Were people using them to blow on the genitals of frogs and jumping competitions? He said, I think a woman, this was his justification for why they should stop. I think a woman looks better when she runs her fingers through her hair and lets it dry naturally. But yeah, they try to stop hairdryers in Venezuela as well. Venezuela has the world's largest oil reserves.
+
+[00:18:45] Does it really? Yeah, overtook Saudi Arabia in 2010. That's amazing. The first documented shipment of petroleum from Venezuela was in 1539, when a single barrel of oil was sent to Spain to alleviate the gout of Emperor Charles V. Wow, this oil stuff is great. Can you send another million barrels of it, please? Our gouts got really bad.
+
+[00:19:10] The first breadmaker was horse-powered that I could find. So the person, the baker was horse-powered? Yeah, he was. No, it's a dough mixer. It's a mechanical dough mixer that was referenced in 150 BC. It was invented actually by a freed slave and it was this massive basin and it had wooden paddles in it that would mix the dough around and horses were attached to them so they'd just go round and round and mix up the dough.
+
+[00:19:38] Wow. Quite cool. The first bread was horse-drawn. Yeah, just one more thing about Venezuela. Do you know what it means, the name, Venezuela? It means little Venice. Oh, I didn't know that. In spite of the fact that this is almost completely unlike the North London area known as Little Venice.
+
+[00:19:53] It's not even like Venice either, really. No, but they will have named it when they arrived at the Gulf of Maracaibo or whatever it's called. Yeah, exactly, Lake Maracaibo, yeah. I just thought there's water here. There's water in Venice. It's a dog's wet. That's exactly right though. It was Amerigo Vespucci, who is America named after him or do we think it's not?
+
+[00:20:16] Well, QI thinks it's not. I think it is. I think it is as well. Okay, but when he got there, whatever the rights and wrongs of that particular story, he saw indigenous stilt houses which were designed to avoid floods. And a guy in a gondola. Yeah, and a cornetto. Is that what they have?
+
+[00:20:32] Yeah. So he said this is just like Venice. Okay, it is time for fact number three, and that is Chizinski. My fact this week is that GCHQ has an internal ghost hunting club. So cool. Internal ghost hunting. It's not looking for internal ghosts. Find your inner ghost.
+
+[00:20:58] Wait, is it the first group of spooks to be found looking for ghosts? No, it's not that either. So this came out a couple of years ago. It came out in 2013, actually. It was the WikiLeaks leak of lots of GCHQ correspondence, a lot of which was very important. And then there was this, which was just a exchange of emails that confirmed it's got a ghost hunting group. And it arranges trips to kind of haunted houses. It's advertised to staff and partners, whether they're skeptics or believers.
+
+[00:21:30] And yes, for visits to reputedly haunted properties. That sounds good. And that's how they spend their spare time. Yeah, so that was a part of a Edward Snowden leak. That was the big Edward Snowden leak. And it was one bit of it, wasn't it, where it kind of showed the inside social life of the people who work at GCHQ. Because it goes beyond just having a ghost hunting club. It would be weird if that was the only social I've ever had.
+
+[00:21:57] Look at the notice board. There's only one that is covered in exo-plaza. But yeah, apparently they have their own sort of internal social media platform, which is called a pun on my space, spy space. It's good that you clarified what that was a pun on, otherwise we wouldn't have got it. They should call it Facebook. What's that parody? So they have a good social secretary in GCHQ. And it sounds like they have a really fun time.
+
+[00:22:33] So there was another bit of correspondence that was leaked about the football tournament. They have a sports day every year. And the main event is a football tournament in which every team has to have one lady player at all times. Which I thought, saying lady player sounds like a weirdly old fashioned term, isn't it? It also sounds like a bloke who sleeps around. I guess I'm a bit of a lady player. Yeah, maybe that's what it was asking for. That was amazing.
+
+[00:23:00] They sported the football tournament ahead in which that rule was issued. Came with a six page rule book. It said the wearing of shin pads is caps lock on compulsory caps lock off. There were a lot of capitals in the correspondence and it made me think they're a bit trumpy in the way they communicate in GCHQ. They need to chill out a little bit. Do you think maybe GCHQ learned the art of shouting in capitals from Trump when they were wiretapping him? Oh yeah, good point. And if you're listening in guys and we know you are naughty, you can't believe you're wiretapping Trump.
+
+[00:23:30] I think it's been there from the beginning because if you look at it you'll notice GCHQ has written completely in capitals every single time. So they sometimes do little things to engage with the public. Obviously they're very very secretive but they had this Christmas card puzzle last year which you may remember. So 600,000 people tried at least the opening stage which is amazing. One percent of everyone in the country. Nobody got it in the time allocated. Three people got close and they each won a paperweight. What was the actual prize if you got it all?
+
+[00:24:03] I don't know. You became a spy. I believe so. Do you reckon they tell us if the person got it and was become a spy? That's a good point. I'm not going to put his picture on the front cover of a newspaper. Maybe hundreds of people got it. They've all become spies.
+
+[00:24:14] Yeah, you're right. I just can't believe that if you're in the top three of 600,000 people they're just giving you one paperweight. That must be a code for something. Yeah, exactly. It must be an extra bit of puzzle. On the bottom of the paperweight it says Midnight Tower Bridge. Yes. Leave your family behind.
+
+[00:24:34] We're going ghost hunting. I went on the GCHQ website and they have some FAQs there. Oh yeah. FAQ, does GCHQ have rabbits running around the garden in the middle of the building? Answer, sadly no. We don't have rabbits in our garden. The only wildlife we have here are ladybirds, sparrows and pigeons. Why would they?
+
+[00:24:59] I think they're ducking the big questions about their role in working with the NSA. You might be right about that or I might have deliberately chosen the most risible of all the questions. Or maybe it's a bit of both. Do they have any moles? Very good. Yes, very good, very good. Well there is a question, do you have a network of underground tunnels beneath Cheltenham so staff can move around the town without getting stuck in traffic?
+
+[00:25:24] Yes, and have all their ferret racing tournaments in privacy. It sounds like maybe it was a ferret asking about the rabbits actually. Maybe FAQs is ferret questions. So I know that GCHQ is involved in code cracking and deciphering and stuff. Are they the sort of digital security for the UK? It's eavesdropping basically. I think it's essentially our eavesdropping agency. So it's tapping into people's phones, it's hacking into people's computers, that kind of thing.
+
+[00:26:00] But predominantly office-based, as opposed to in the field. Yes, so I actually read an interview with a woman called Anim Kmaan. I'm not sure if that's how you pronounce her name, but she worked at MI5 and she was describing the difference between MI5, MI6 and GCHQ staff and she said, GCHQ staff tend to be the boffins, the types that are technically brilliant at things like coding and encryption but perhaps not brilliant at a party. That's their vibe.
+
+[00:26:25] Another Edward Snowden leak was it was a list of GCHQ techniques and their code names. I don't know if any of you saw that. Some quite good names. The ones which the newspaper article picked up on were Concrete Donkey, Angry Pirate and Swamp Donkey. And then a few others that I found are Nuttology, Countryphile, Dirty Devil, Clumsy Beekeeper and Pistrix.
+
+[00:26:54] Wow! Is that the Donald Trump related? Hacking, wiretapping operation. They were all so technical I couldn't really understand what they meant. I met a year ago, I made a UFO documentary, remember that back in 2014 and I went around meeting a lot of people who both believe in UFOs but I met one guy as well called Mark Pilkington who made a documentary about the idea that the governments are seeding disinformation into the field of ufology
+
+[00:27:27] and things generally, so they're kind of creating distractions and part of the leaks from the Snowden leak was a PowerPoint that showed members who worked at GCHQ how to spread disinformation. It was a whole thing, really interesting. So do we think this whole ghost hunting malarkey is just a bit of a red herring to throw us off the centre of the fact that they're hacking into all of our secret information? Maybe they're going, oh, I believe that the Russian Embassy is haunted. Let's go and see if we can find some ghosts in there.
+
+[00:27:59] Oh, I think your laptop is haunted, Mr. Ivanov. Look, the mouse is moving all by itself. So outside the front of GCHQ there were these things called the listening stones. Have you guys heard of this? An artist created them. There's nine of these stones and they're carved with codes and some of them have just odd headlines. The theory is that the stones are using a very old theory about what ghosts were, which is, have you heard of the stone tape theory?
+
+[00:28:32] No. Stone tape theory, this was put out in the 1960s, I believe. The idea is that this person thought that when you exude energy, energy can latch onto things in life, and so the idea is that ghosts are merely a sort of audio recording, as it were, not the spirit of someone that's hanging around is dead, but it's sort of leftover energy. Like if you're getting murdered, you exude a lot of energy and it traps it there.
+
+[00:29:00] And so the idea is that the listening stones are there to trap human conversations that they can later listen to. If GCHQ is spending all of our taxpayers' money just eavesdropping on these stones outside the building and be very disappointed, is that what they're doing? They think that dead people have trapped their voices inside these stones and that's how they're trying to find stuff out. The blog society ex believes so, yeah.
+
+[00:29:25] They should go back to doing their proper job tapping Donald Trump's emails for Barack Obama. Okay, it's time for our final fact of the show, and that is my fact. My fact this week is that there are now washing machines in India that have a button specifically for curry stains. Is there really a button just says curry? Yeah, well, I saw a picture on the BBC website and I don't know if they mocked it up as a sort of joke picture,
+
+[00:29:57] but there's one extra button which is a setting. Obviously, this is a Panasonic, it's a digital interface kind of thing, but it says curry and then it says oil as well. There is one, it's an extra setting for hair oil traces, yeah. Yeah, so basically what they've realized is obviously the main staple of food in India is curry and the way that it breaks down in a washing machine isn't that good. Predominantly, that's the main stain that you're getting as well, so they wanted to deal with that.
+
+[00:30:26] So Panasonic have spent two years analyzing the ingredients of curry, they've been studying water temperatures and so on, and they've now worked out a way that removes the stains properly, but not many people have washing machines in India. It's only about 10% of the population, so it's a sort of just an innovation that, I mean, I guess 10% of a billion still a lot, but I just quite like the niche sort of the dealing of niche stains. They worked out sort of the optimal current strength of the water
+
+[00:30:57] and the optimum, you know, the washing time. It just sounds like a very intense washing cycle. You know, when you go to different settings on your washing machine and it claims this is for cotton, this is for special weave, this is for, and actually, isn't it just that the time goes up and up and up? Temperature. And yeah, time and temperature go up and up and up. Maybe it's the spin, I think it might be the spin speed too, possibly.
+
+[00:31:20] But they're not, are they adding in any special ingredient, do we think? They suddenly inject in some kind of acid as soon as you click curry. No, if you get a red curry on your clothes, you have to wash it out with white curry immediately. It's very cool. Are they going to do a British one for fish and chips? Or do you get home from the... Ferret bites.
+
+[00:31:40] Yeah, I don't know. I don't know what they would do for us over here. I mean, it would also be curry, wouldn't it? That's true. They have, though, Panasonic. It's not the only sort of laundry product that they've been looking into. They've funded 10% of this new product, which some people have dubbed a Laundroid, and it is a machine that folds your clothes for you.
+
+[00:32:05] So, the company that have sort of talked about this and invented this say that they've worked out that the average person spends 9,000 hours of their life folding clothes. Well, I bring that average really, really far down. Yeah, me too. I don't fold any of my clothes. But I do bring it quite far up again, because I fold my clothes very neatly.
+
+[00:32:26] So, Andy, as someone who does it a lot, you're wasting, according to them, 375 days of your life. I don't think of it as wasting, then. I think I have a better life as a result. And I think with those, I wouldn't know what to do with that extra time, frankly. What am I going to do? It's on a beach somewhere. No, thanks.
+
+[00:32:43] I'll be folding. I'll be in the folding room. Is it a beach with unfolded clothes? So, this machine, it's been launched, and you can see a video. It's ridiculous, and you have to put in one shirt at a time. So far as I could see, you put it in. It closes these doors like an oven, and then after 10 minutes, it's folded your shirt.
+
+[00:33:03] Wow. 10 minutes per fold. I don't like to boast. But I've managed to get it down to something a little more like seven. So, what was the company? The Panasonic. Panasonic did this, yeah. So, I think we should give a little bit of balance.
+
+[00:33:21] Samsung have got some good innovations in washing machines at the moment. Some of the more recent innovations, I'm not quite sure what all these are, but the latest models have got eco-bubble, whatever that is, wobble technology, you know what that is, and a magic dispenser. That is another nickname for the penis, actually. Yeah, I don't want that magic dispenser setting anywhere near my clothes
+
+[00:33:48] that is supposed to come out washed. Magic dispenser, and that's a lot of models in Samsung have got magic dispensers at the moment. I mean, they also have an explosion setting at the moment, don't they? It was Samsung washing machines that started exploding last year as well. I don't think it was an actual setting on it, but yeah. They liked their phones, they were exploding, and so they had to recall a lot of washing machines.
+
+[00:34:11] I think it's one of the largest ever product recalls in history. I think it was something like 2.8 million washing machines, and that is a lot. That's a lot. If you're wondering at home, that is a lot of washing machines. How many was it? 2.8 million, I think. Oh, that's a lot.
+
+[00:34:24] Yeah, I told you. Actually, I read a news report about that this morning, they are still hunting for 5,000 in Western Australia. Hunting? They should do it with helicopters. Are they out in the wild? Yeah, they roam in herds of 20 to 30. Yeah, my washing machine escaped the other day.
+
+[00:34:41] Genuinely, it sits behind a cupboard door, so you pull open the cupboard door and the washing machine is behind it, and I put a wash on, and I came out and it had thrust the door open, and it was poking about four inches out of it. Good job you got there in time. Wrangle it back. It could have been rampaging across London as we speak. I try to find a scientific report on, you know,
+
+[00:35:04] it's that trope you see that women sit on washing machines because it leads to orgasm. Because they've heard about the magic dispenser. Yeah, exactly, yeah. But no, I couldn't find anything except a lot of videos of women doing it, which I didn't watch. I was folding at that time. No, that's what the video was.
+
+[00:35:22] Because I had to watch a few to make sure that that line was correct. Well, other naughty things you can do with washing machines keep cocaine in them. So a policeman in Yorkshire has just been found guilty of a range of drug offences, but one of the things was he was taking drugs that the police had seized and then selling it back onto the streets. He found out about this, so he's just been found guilty, he hasn't been sentenced yet, and he was found to be keeping 11 kilos of cocaine in his washing machine.
+
+[00:35:49] Was he like, because it's a white powder? And then you've got white powder going into your washing machine, so was he pretending it was personal? Oh, the detergents come out of the plastic bags, the detergent comes in again. Well, the prosecution lawyer opened the case by asking the jury, what do you keep in your washing machine? Keith Boots had over 11 kilograms of cocaine worth hundreds of thousands of pounds on the street in his.
+
+[00:36:13] I found my cocoa pops in my washing machine the other day, and Fenella put them in there because at our house we were selling our flat at the moment. She thought they'd go through the cupboards and they would be put off by seeing a box of cocoa pops in the cupboards. They'd be put off by seeing a box of cocoa pops. So she took the cocoa pops out and she put it in the washing machine, but she didn't tell me. So when I went to put the washing in the washing machine,
+
+[00:36:32] my box of cocoa pops are sitting inside there. Was it that she thought they'd be put off by particularly dirty cocoa pops and they needed to go through a cycle? No, I always ask, my first question actually on viewing any property is, are there any cocoa pops on the premises? I think it was partially that we didn't have space in the cupboard for it and she didn't want it out and display. I think your wife is embarrassed that you eat cocoa pops in the washing machine.
+
+[00:36:54] Do you keep finding the cocoa pops in the washing machine? Yeah. I should put my crunchy nut in the dishwasher box. Yeah, it's like a funny treasure hunt in my house for breakfast in the mornings. Have you guys heard of Ricky Maisel? Yeah, Ricky, Ricky Maisel. I love him. No, who is that? No, who is he?
+
+[00:37:16] Ricky Maisel says he's the world leader in escaping washing machines, right? So he climbs into a washing machine. Or Dan's wife throws him into the washing machine because there's someone coming around. Well, he's got something to eat in there. Is this where you have to go after you've had an argument? Do you have to sleep in the washing machine? I'll be in the machine. So Ricky gets into these machines or Finella puts him in there
+
+[00:37:41] and as long as their machines with at least a 14 inch drawer and a 27 inch drum apparently and he boasts that I have successfully escaped from 40 brands of washing machines in 42 countries. Wow. Watch a video. I've watched three. That's why you and Dan were both sitting there watching washing machine videos. Dan of women sitting on them and you of this bloke climbing out of them. He climbs in and the way it happens is it gets, he climbs in
+
+[00:38:07] and it's very small, it's impressive and it gets turned on and he starts spinning around. It gets turned on. Yeah, it gets turned on and the soap starts pouring. It starts filling up and then after a certain amount of time he starts banging really, really hard on the window and the assistant has to stop it and let him out. What? Is that the plan? And that happened in all three videos.
+
+[00:38:28] I think that technically is an escape. Yeah. It's like when Houdini's wife just lets him out of the handcuffs, isn't it? So I think very much don't try this at home. Yeah, but also I'm starting to question Ricky. I don't know. Well, yeah, I thought the claim to be a washing machine escapist was a strong one given that what you do is scream out for help and the person nearest has to open the machine.
+
+[00:38:52] I read a website saying that the first modern washing machine was invented in 1899 and I don't think it's true. But when I was searching to see if it was true, I found a movie from 1899 called Scrubbums Washing Machine and I can't find the video of it so I'm not sure if it even exists because it's so old. But there is a review from 1902 and it was two girls in a hotel laundry
+
+[00:39:15] are experimenting with a new washing machine. I've seen that video. They turn the handle the wrong way and the machine explodes, drenching them with suds and wrecking the place generally. The scene is very humorous and exciting. Sounds great. So then I went on to IMDB and search for washing machine and it's really weird.
+
+[00:39:36] There's hardly any movies called The Washing Machine for most of cinematic history and then there was one in the 90s or something and then in 2010 there was a movie called The Washing Machine. In 2012 there was a movie called The Washing Machine and in 2014 there was also a movie called The Washing Machine and they're all different movies. Wow, so not reboots.
+
+[00:39:58] Not reboots, completely different. The synopsis are completely different. Wow. And also there is an actor called George Washing Machine. No. He's known for a country practice 1981 and a place to call home from 2013. What is it one nicest way?
+
+[00:40:16] I would say he is not known for those. In a very nice way. I think he is more known for being called George Washing Machine. Is that double barrel surname or one? No, one word. I mean unless it's some kind of auto correct in IMDB or something and it's supposed to be George Washington who was famously known for his cameo roles in whatever
+
+[00:40:37] place to call home. Auto correct is bad. I don't think it's that bad. It incorrects Washington a word and a name. So my other thought is maybe he's called George Washington and there's another one, a famous one. So he had to change his name and this was the first thing he thought of.
+
+[00:40:55] He's standing in the utility room looking around on the phone. Washington's taken. George Coco Pops? I was reading that in Australia researchers are on the brink of making a new innovation which is clothes that wash themselves. So it's quite interesting. It's all about the fabric that they're using
+
+[00:41:21] and what they're harnessing is sunlight. The idea that as soon as sun touches the fabric it burns off whatever organic matter is on top of the fabric itself. So it says to grow special nanostructures which can degrade organic matter when exposed to light. Hang on, when I'm on the beach in the sun in my stained clothes
+
+[00:41:44] and no one near Andy is folding in the hotel the stains don't disappear as I expose myself to the sunshine. Because you're not wearing the new technology. You don't have the nanostructures. So they're harnessing sunlight in a specific way. It looks like you can flash sunlight on something and it cleans it. They're inventing this thing.
+
+[00:42:06] I was reading a paper about the history of the washing machine and it's written by a really angry man who opened his paper by saying the entire history of washing machines is one of the most ignored and most misrepresented segments of the history of technology. And the whole thing is a diatribe against all other washing machine historians who are misquoting these first washing machine patents.
+
+[00:42:26] He's really upset. But I did find in the course of that the patent for the travel washing machine. Have you guys seen this? This was in 1952 and they actually trialled this and the idea was that people were getting into going out in camper vans and they wanted to be able to wash their clothes on the road. And it was a washing machine where you affixed the drum
+
+[00:42:46] to the wheel of your car, to the back wheel. And as you drove it spun around. People was killed after cutting in the wrong washing machine. Okay, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James at X Shapes,
+
+[00:43:14] Andy at Andrew Hunter M and Chazinsky. You can email podcast at qi.com. Yep, or you can go to our group account at qi podcast or go to our website. No such thing as a fish.com. We will be back again next week. We'll see you then. Goodbye.

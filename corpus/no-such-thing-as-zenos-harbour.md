@@ -1,0 +1,367 @@
+# No Such Thing As A Fish - No Such Thing As Zeno's Harbour
+
+- Episode date: February 1, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-zenos-harbour
+- Slug: no-such-thing-as-zenos-harbour
+
+## Transcript
+
+[00:00:00] Hi everyone, before we start the show, we wanted to let you know that there's no Dan Shriver today, I'm afraid. But in good news, there is our very own QI elf, Ethan Rupertellia filling in. He is brilliant. He does so much of the stuff behind the scenes on no such thing as a fish. You may well have heard him on Meet the Elf, our special Clubfish episodes where you get to meet the QI researchers. If you haven't heard those, you only have to join Clubfish in order to do so. So enjoy some of Ethan's work in front of the scenes. Today. On with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming
+
+[00:00:52] to you from the QI offices in Hoban. My name is Andrew Hunter Murray and I'm here with James Harkin, Anna Tzzynski, and special guest Ethan Ruperalia. Hi Ethan. Hi, Andy. And once again, we've gathered around the microphones with our four favourite facts from the last seven days. And in no particular order, here we go.
+
+[00:01:10] Starting with fact number one, and that is Ethan. My fact this week is that in the 2020 token. Olympics, archers competed on top of a rubbish heap. Lovely. Yeah. That's interesting. And was there a kind of fun, whimsical, like, did they have to aim at a particular can of Coke? Yeah, they had them all lined up in a row.
+
+[00:01:29] They were the targets. Yeah. No. So this is not a typical rubbish heap. It's not kind of compost heap in the back garden sort of thing. This is a whole artificial island made out of rubbish. Wow. So off the coast of Tokyo in Tokyo Bay, there's an island.
+
+[00:01:45] called Yemenashima, which translates to Dream Island. And it was created in the 1930s to begin with. So around Tokyo, they were dredging up a lot of the bay to provide channels for ships to come through and accidentally formed a sandy island around the area. So Tokyo saw this and they're like, great, let's turn this into a new resort. But then there were typhoons and financial problems. So they closed it down. And in 1957, Tokyo couldn't really.
+
+[00:02:15] keep up with the amount of waste that they were producing. They couldn't incinerate all of it. So instead, they decided to make an artificial island lasagna sort of thing. So they would alternate layers of construction soil and food waste from households. Hmm. Yeah. And then nowadays, it is a beautiful place to be. But it stinks of old rotting food.
+
+[00:02:37] So not anymore. Not anymore. So in the 1950s, when they did have this initial load of landfill. kind of household waste that came along. They didn't do a very good job of making sure it didn't smell horrendous. There were loads of flies. There were loads of gases
+
+[00:02:55] that were setting off spontaneous fires in the area. Nice. It sounds like actually, I would say, a more fun Olympics thunder dome to have. Oh, yeah. You're running 400 metres away from the flies. Maybe the archery just started as target practice for all the flies
+
+[00:03:10] that were around. Oh, yeah. I did actually see an archer online. He's an American guy called Byron Ferguson, who people call the world's greater stature. This is his mates. But he is good. And anyway, I watched a video
+
+[00:03:22] where he shot an aspirin out of the air. Stop it. Yeah, pretty cool. Really? How many attempts did that take? Because you always see these videos online, don't you? These people doing amazing tricks, and you think that's taking you four weeks to do that, hasn't it? How many aspirin were in the air?
+
+[00:03:36] More than you're allowed to buy it, Kenneth. He shot an aspirin out of the air. Yeah, it's pretty cool. But then here's the greatest stature in the world. Right. Supposedly the greatest stature in history was a guy called
+
+[00:03:46] Howard Hill this is American guy and I now think he might not be the greatest stature in history because his main trick you know how William Tell shot an apple
+
+[00:03:56] off someone's head his son's head yeah that was the main part It was the emotional jeopardy Yeah yeah But this guy He did do that Like to show off
+
+[00:04:05] but he would also sometimes shoot a prune off someone's head Wow That's impressive It is But if you put an aspirin on someone's head I think that might be
+
+[00:04:13] even more impressive. That's really good. You know that thing where the previous archer in the competition has got a bullseye, right? Yeah. How do you beat them? You have to split the arrow like Robin Hood.
+
+[00:04:24] Exactly. Okay, in 2008, a 74-year-old grandmother and archer whose name was Tilly Trotter, great name. Nice. She split an arrow that was already in the target with another arrow, despite the fact that she was blind.
+
+[00:04:37] Whoa. So you get a little bit of assistance with the target, but genuinely not much. So you... It's not so... someone standing next to the target with a bell. No, it's not done by cues. I think some of the people who do it are partially sighted,
+
+[00:04:49] but some of them are, some blind doctors are not very sighted at all. And she would kind of insist on not getting too much help from her husband. He wouldn't say left or right when she was aiming. That's amazing. It's very, very cool. I think of you and I went to archery, Andy, and I hit a bullseye,
+
+[00:05:05] and then you hit my arrow, split it in two and also got a bullseye. I would probably argue that that means I've got two bullseyes now, and so I win the game. Well, that's why we never go down the butt. The butts. The butts, yeah, yeah. What do you mean the butts?
+
+[00:05:21] The archery butts? That's the archery, isn't it? I didn't know that. Pop down the butts. A box full of the rubbish heap on the bot. I believe the butt is the name for the target, and it's what you're aiming towards because in Othello, he says,
+
+[00:05:34] here is my journey's end, here is my butt. Lovely. And he's referring to the journey of an arrow. And there are these roads, aren't there? The base is the cool thing. like but road or we covered the road I can't remember where it is Lestershire maybe it's called butthole Lane and it's where someone shot an arrow and it went so far into the butt that it made a hole I don't know what the hole is but it
+
+[00:05:59] definitely is like this is the old archery ground and people get confused and think it's butthole lane for another reason we don't need to go into children the Robin Hood actually is called the Robin Hood, all one word, that move where you slice an arrow up from behind. And it's not that hard. Okay. It's not that hard. I'll see you down at the butts later. Who can test your theory?
+
+[00:06:21] Okay, probably we couldn't do it. But I've been spending some time on archery forums, and it's not unheard of. I think it seems a little bit like getting a hat trick or something. So people will say, oh, I just was down at the butts and I did a Robin Hood. How amazing is that? And people respond saying, oh, yeah, Robin Hood. nice shooting. That's pretty cool. Oh yeah. And one of these guys
+
+[00:06:42] said, actually, a Robin Hood's mostly a hassle because it just breaks your arrow and you have to get a new one. So a lot of guys use either pin knocks or uni-bushings instead of arrows. A uni-bushing? A uni-bushing? Yeah, that's right. No, I didn't bother looking at one of those things. I think we can imagine. Actually, just on that, on breaking
+
+[00:07:00] things, the official laws of archery I was reading them. And there's an etiquette section. And it says a good archer does not leave litter. It says a good archer does not touch anyone else's equipment without permission and if they break another's arrow through their own carelessness, they must
+
+[00:07:16] pay for it in cash on the spot. That's in the official laws of archery. Do they accept contact list of these days? Have you heard of Lottie Dodd? No. Lottie Dodd. She is actually quite brilliant. She was the youngest ever woman to win the Wimbledon singles
+
+[00:07:33] 15 years old, which is incredible. And then she went on to win it another four times. And then she was like, okay, I'm done. I'm going to try another sport. She went on to win the British Ladies Golf Championship in 1984, played twice for England's national field hockey team. And then in the 1908 London Olympics, she commuted as an archer, won the silver medal alongside her brother who got the gold in the men's,
+
+[00:07:56] and they became the first brother-sister duo to win medals at the Olympics together. Really? Yeah, she's very cool. And then she went on, she worked as a nurse for the Red Cross in World War I, and then passed away at 88 in Bournemouth, listening to Wimbledon Commentaries on the radio. Did she? Just going, I could have done that one.
+
+[00:08:15] Have you heard of target panic? It's the, um, is there a thing called the yips? Yeah. Oh, is it like Mertitius. It's basically. Like DARTitis. Bowman's, yeah. Well, spinnies in gymnastics, I think is quite similar things.
+
+[00:08:26] Yeah, genuinely. Spinnies. Spinnies. Simone Biles was like, in the past Olympics, there was a whole thing about how she might have the spinies because she ended up having to not do a lot of the events that she was set up for. And dartitis is where a dart's player
+
+[00:08:38] wants to throw the dart but can't let it go. Oh. And they fly towards the dart. Holding onto the dart. No. But that is the thing. No, that's exactly it. So archery is very, very similar.
+
+[00:08:49] Basically, you either lose the bow as soon as you see the target, you kind of premature, far the arrow. Look, it's a very common problem. Or you freeze up and you can't release it at all. There's no way of saying it's about making it sound penitty. Yeah, and it's basically like it's a curse and some people get it and they never shoot again.
+
+[00:09:10] Yeah. And it's really and it's and you know, lots of actors get it from time to time and then get over it. And it might be just in the mind, but there is a theory. It's called focal dystonia. It's a condition where you have a particular movement you're doing again and again and again, right? Like firing an arrow or firing a dart. And the neurons in your brain devoted to that get worn out from overuse. How weird is that?
+
+[00:09:32] Like there are sort of four cells that have been doing. all the firing for you and you've used the... I wonder how long it takes for the podcasting neurons to wear down. Oh, how long you got that? Two years, two years, yes. Do you guys know about the Archer's paradox? Oh, I don't think so. No.
+
+[00:09:49] Is it the same as Zeno's paradox? It's the tortoise and the arrow. Not to be confused with Zeno's Archer's paradox. So Zeno's arrow paradox is that movement is impossible. Yeah. Because he says at any one moment that an arrow is traveling, it's not moving because it's like if you say we're 10 metres away then in half the time you'll be 5 metres away
+
+[00:10:10] no that's a different one oh is it yeah I thought that was that's the daughter's and hair one that's the daughter's one that is a Zeno's paradox that's another Zeno's paradox he didn't have much on he spent his time making up these pointless mind-bedings how's it going Zeno yeah pretty good I'm working on a really good new paradox but actually I feel really bad about it I'll come down to the pub in a minute
+
+[00:10:33] Well, I'd love to come to the pub But movement is impossible So you could just bring me a drink That'd be great Guys, what a shame Zeno's not coming to the pub again Oh yeah, shit What a nightmare
+
+[00:10:43] Anyway, so he has the arrow Paradox which he uses an arrow To prove that motion is impossible But that's not what the Archer's paradox is The Archer's paradox is this thing Where so imagine you're shooting a bow and arrow If you point it at the target Then you let go of it
+
+[00:10:59] Can you describe how the arrow travels? Forwards quickly through the air. Like an arc maybe? You have to aim slightly above. Is it parabolic? Parabolic? Actually, I've worded this so badly, it's extraordinary that I write few eye scripts. Basically, they wobble and they have to wobble,
+
+[00:11:18] and there's nothing to stop them wobbling. And if you imagine that you've got an arrow and it's against the wood of the bow, the curved wood, when you release it, as it rubs against the wood as it's going forward, that wood forces it a bit to the left, if you're shooting a right-handed bone arrow, forces it a bit to the left. But then that arrow wobbles back round to the right. So it snakes towards the target.
+
+[00:11:40] And it's explicable by some physics. Like you, Professor Bryok. I'm just waiting for my science podcast to really take off. It's because arrows that can bend. So because they're not pointed straight, they'll bend around. So it bends around the bow. But whenever an arrow shoots towards the target, the only reason it can hit the target is because it wobbles around
+
+[00:12:02] and snakes like a snake. And if it didn't wobble around, it would just go off on a diagonal every single time. Okay. It's not going to Zeno's sitting around not being invited to the pub. I get it. The oldest arrow is ever found, guess how old they are? What, like 5,000 years?
+
+[00:12:19] Yeah. Older. 50,000. That's a crazy increase, Anna. But yeah, it's about 65,000. It's just stunning. They were found, they often found in peat bogs. So the oldest ones found in the UK are actually only 6,000 years old, give or take.
+
+[00:12:33] It was a found in a peat bog. I think it's got them called Rotten Bottom. Yeah. Guys, do you know that the person who was ranked 9th in the Artury World Cup in 2006 and actually went on to live in Japan and broke a bunch of Japanese archery records? I feel like I am going to know this. I just have a hunch that it was a time. Yeah.
+
+[00:12:56] Is Erica Eiffel. And who is Erica Eiffel? Descendant of the Gustav Eiffel? No, but related. She was in the news in 2007. She was sort of the first person who brought object sexuality to the headlines of the strong word. She married the Eiffel Tower. Famous for marrying the Eiffel Tower.
+
+[00:13:19] She had a career as a great archer before that. That's brilliant. Apparently she lost all of her sponsors after admitting to her relationship. with her bow. Wait, wait. I'm saying bow. How you're spelling bow? Okay, it's time for our second fact of the show, and that's my fact.
+
+[00:13:42] My fact this week is that the man who invented the electric blanket also invented a device to electrocute squirrels to keep them off his bird feeder. Oh, so are we saying he's a good guy from history? Yeah. Oh, you don't like squirrels, do you not? Not much. He didn't kill the squirrels. it was just a little shock to get them off.
+
+[00:14:02] I think it was a one-volt shock, I believe. But if you can't tell the current, you don't know how, you know, how harsh it's going to be on the body. I mean, you did use the word just because I couldn't feel James getting upset inside. You did use the word electrocute. You meant to electrify. I meant zap. So this is a guy called George Crowley, or Crowley, and he's the one who invented, before you all start writing in, the first modern electric blanket.
+
+[00:14:28] There had been a few before that. They've been used before for patients in sanatoriums and things like that. And they were small and very expensive and not very good. And George Crowley was alive and working at the time of the Second World War and had worked as an engineer on the idea of electrically heated flying suits for pilots. Ah, when you say flying suits? Suits that they would be flying in rather than suits that make you fly. As in, sorry.
+
+[00:14:53] You're like Iron Man. No, I think his work was secret, but not that secret. Sorry, yes. Rather than your kind of Biggles-style sheepskin leather jacket, he was working on how pilots could stay warm. Because lots of pilots were just open to the air, it turns out, in early ballpins. It was so, so, so cold. So they had to wrap up warm.
+
+[00:15:13] And he worked on making electric suits for them. And I think that gave them an idea of how to make an electric blanket. Yeah, they were freezing in the war, weren't they? And it was quite risky because your hands, I think, could get stuck to metal equipment, like frozen to metal equipment, a la dumb and dumber. very embarrassing and quite dangerous in the air. Apparently, pilots would have to get dressed at the last minute so as not to get their clothes wet with sweat
+
+[00:15:36] because you had to put on very, very warm clothes if you're going up in a plane. But if you put them on too soon, then you're going to sweat loads because you're boiling and then as soon as you go up in the plane, your sweat all freezes and you've got a co-made device. Tough gig. I looked into some of Crowley's other inventions.
+
+[00:15:53] So he works for General Electric so there are a lot of patents that he kind of put out as part of his job. There was a golf ball painter, so if your balls become bit too dirty, stop it. You would tip them into a vending machine and then it would blast like a little jet of air to hold it in the air and then spray paint it. That's very clever. Just kind of like the hover painting.
+
+[00:16:12] Yeah, exactly. That's pretty cool. It's very cool. That seems unnecessary. Well, how else are you going to paint the last bit? Exactly. Yeah, because if you're holding it, you can hold the ball and the top and the bottom. How are you going to paint the bit under your fingers?
+
+[00:16:24] That's the Achilles story. Instead of Achilles, it's a golf ball. It's like the Zeno Gull. golf ball paradox. Yeah. The golf ball is impossible to think. He also did a heater for shaving cream. I guess to, you know, if your shaving cream is just a bit too cold,
+
+[00:16:39] needs to heat up. And a ball bouncer, which would be to test and kind of that standardise the effectiveness of a ball's bounce after being kept in storage. But then he quickly abandoned the idea because he realized you could just do it as easily by hand. Ah, which makes sense. That was like to test tennis balls, right? To make sure that they all bounce evenly.
+
+[00:16:55] I think so, yes. That's pretty good. Because it sounds like. you'd be a kid just being like, should we go out and bounce the ball? Be like, no, my ball bounces doing it. The squirrel electrifier, Zappa, apparently, according to his son-in-law, David Scott,
+
+[00:17:10] he abandoned it when he began to feel bad for the squirrels. There you go, so he had a conscience. Yeah. Did he feel bad for the birds that were then starving to death? History doesn't relate. When he was a child, he invented a device that warned him when his parents were coming into his room. Brilliant.
+
+[00:17:26] Useful in the teenage ears. Yeah. Don't come in! I'm electrician. I'm a little bit of that. He was six years old when he invented that. No, he wasn't. Very cool.
+
+[00:17:41] And then at 12 years old, he set up a light sensor in the dining room door so that if his mum passed by with like an arm full of dirty dishes, it would open for her. He wired up the living room curtains to a light switch. So when you'd switch the light on at night, the curtains would close. He basically built like the first smart home. No way. He's like Kevin from home line.
+
+[00:18:01] I really thought you meant Kevin from Kevin and Perry go large and only masturbating in your room. Another attempt to truly shake off the international listener. Yeah, I suppose so. And when he was in his prime at work, he was brought in as a witness in quite a lot of court cases. What it would be is people would have a fire in their bedroom and they'd say that their electric blanket had set on fire
+
+[00:18:27] and he would always come in and say, yeah, it's absolutely impossible that that's happened. Because his improvement was the thermostat. When we say modern blankets, the ones before you couldn't really set them, they just got hotter and hotter and hotter and hotter. But his, like, had a limit. It would always turn out that someone was smoking in bed and go to it. Because that always used to be the fear. I had an electric blanket when I was a kid at some point.
+
+[00:18:51] I was desperate for one. I went to stay at my grandma's house who had one. And I was like, well, this is the dream. I wanted a Sony PlayStation. when I was in a cold. To be fair, the reason I brought this fact to the attention of the table in the first place is I recently slept in a bed
+
+[00:19:05] for the first time which had an electric blanket. A game changer. I got mine for the first time this winter. Yeah. It's amazing. I don't know how I've ever lived without it. But I thought they were very much for your granny, basically.
+
+[00:19:17] Well, they are. You're getting up that age now. They're a new PlayStation. But there was always the fear of dropping water on it and you'd somehow electrocute yourself. But I think that is very unlikely, but I did, when I was checking if that could happen,
+
+[00:19:33] I did come across a Sun article where the headline was, you've been using your electric blanket all wrong. Oh, yeah. It's shoving up my ass every day. It's red the sun. Oh, what? It's so weird.
+
+[00:19:48] It's always all wrong in those headlines, isn't it? It's never you've been slightly misusing it or you've been slightly misleading. Yes, there might be something you've occasionally done. You meant to turn off when you get in. into bed so you don't keep cooking yourself overnight. Yep, you're meant to do that, everyone knows that.
+
+[00:20:00] Don't fold it. Why would you fold it? It's just on your bed all the time. So that is actually a good point. And that's what I think Crowley actually solved with the thermostat. So the thermostats for tiny things on and off, but also local hot spots because if you fold it or bunch it up, you'd get all these heating filaments getting closer and close to each other.
+
+[00:20:17] So it wouldn't spread out the heat uniformly and so you would get too hot in certain places. Oh, hot patches like a microwave. Exactly. If you, sorry, This is a question for Ethan, who's a physicist? If you had these electrical wires going around you and you folded it round yourself, would you become magnetic?
+
+[00:20:37] That's a very X-point, James. Magneto. He originally gets his powers after it. He gets tangled up in an election frame. You never see what's under that cape of his, do you? No. So you're running a current through it. It's going to be a relatively low current because it will be high-resativity to give off more heat.
+
+[00:20:53] But also, it's not straight wires going round on a coil. It's actually like lots of different ones. There'll be lots of interference, lots of different magnetic flux cancelling each other out. So I don't think you'd be net magnetic. Sorry, James. Sorry. What's happened to all my spoons? Do you want to hear about an electric blanket owner who did use it?
+
+[00:21:11] All wrong. Oh, God. This is... Occasionally, I think that there are risky ones. If they're very old, you should be really careful around them and all of that. Do be careful around them. But this happened in 2006, which was a Burmese python called Houdini, living in California
+
+[00:21:27] don't call your pipe in Houdini honestly call it like happily caged they're always called Houdini aren't they? Every animal that escapes that's because you've just stumbled upon the reason why it's the problem that there's no one's super super
+
+[00:21:42] famous for not having escaped the man of the iron mask just call your python yeah the snake of Monte Cristo lots of anyway you obviously didn't get very
+
+[00:21:55] far into Monte Cristo. Did you just remained in prison? It was so boring. It was just in prison for ages so I gave up. Great. In 2006, Houdini, in California,
+
+[00:22:04] mistook a queen-sized electric blanket for a rabbit. He was halfway through eating. So his owner had given him a rabbit, right? To eat. Right. And left it in his tank. But then Houdini, for some reason,
+
+[00:22:18] was able to access the electric blanket too. Unplugged it from the wall, in many ways, the most impressive bit of the whole procedure. And the rabbit was kind of tangled up in the blanket and I guess was white and fluffy and who did he then just ate the entire queen size electric blanket
+
+[00:22:30] and just sort of kept going. Like he'd started, you know when you start to eat a long like a bit of pack joy or something? You think, oh I started to finish. Yeah. It's so relatable. I'm not taking relatable from Mr. Cat Evianne over here. No way.
+
+[00:22:49] And the good news is there's a happy ending to the story. She can still use the electric blanket It was used as like a doorstopper. No, vets were able to get it out. It was good news. Genuinely, the snake made a recovery. The vets made an incision of very, very, very slowly removed the entire electric blanket,
+
+[00:23:08] which must have been a magic trick for the ages as well. And she must have gone back to her fellow snakes saying, I had this unbelievably hot rabbit. James, you mentioned getting too hot with electric blankets. Yeah. So I wouldn't have an electric blanket because I like to be cold in that. I actually agree, and I went off my electric blanket very fast when I realised that. But you definitely wouldn't have liked this then.
+
+[00:23:31] So the precursor to Crowley's electric blanket was some less good electric costumes. And in World War I, the French and US military made electric suits, in fact, for pilots. But they weren't that effective. They'd short out in the middle of a flight, so the pilot would be freezing cold. Or sometimes the power came from a windmill that was attached to the outside of the plane. That's amazing. That was the Dutch Air Force, wasn't it? Terrible news, all the tulips have gone from the wings where we were growing them.
+
+[00:24:04] Oh, God. No, they just get quite hot because if you're playing went into a dive, probably not the main thing you're worried about if your plane goes into a dive. The windmill obviously starts going quite a lot faster, and your suit gets incredibly hot. That's very funny. Again, well, well done, cruelly for inventing that thermostat. More dangerous for the little boy who's being used as a fuel cap.
+
+[00:24:24] With his finger in the hole. Don't stereotypes. I've been working on something about the tail having holes in it already because it's made of EDAM. It's not ready. It's not ready to be rolled out. Okay, it's time for fact number three,
+
+[00:24:44] and that is Anna. My fact this week is that there's a sea harbour in Uzbekistan that's 150 kilometres from the sea. Ooh. How can it be? Zeno's harbour. This is the town of Moyniak in Uzbekistan, technically in the autonomous republic of Karakal-Pakistan. And it used to be on the sea.
+
+[00:25:10] It used to be on the Aral Sea. And the Aral Sea was the world's fourth largest inland sea. So really sort of a lake. And it's now shriveled to about 10% less than 10% of its size. But there is this amazing place. And you might have seen pictures of it, heard of people who've sort of done that. disaster tourism thing of going to visit it. Basically, there's a harbour which still
+
+[00:25:32] has a bunch of the old boats still in it. I think it's got 12 or 13 boats that are all rusted and just lingering there. But it's 150 kilometres to the sea at this point. So they're just marooned. And there's a lighthouse. Yeah. There's a lighthouse. That's very spooky. Yeah. Haunting
+
+[00:25:48] place. There's when Geographical Magazine went to visit, apparently there's a local joke that if every tourist journalist and scientist who visits brought a bucket of water with them, the entire Aral Sea would be replenished by now. So the Aral Sea is a very, it's kind of interesting. It is an ecological disaster zone.
+
+[00:26:06] So it's not very cheery to read about, but it is kind of fascinating. So I didn't really, you hear about the fourth largest lake in the world and you think, well, probably quite big. It was half the size of England. It's so big. Or the size of Scotland, if you don't want to be so Anglo-centric. Or a third of the size of the United Kingdom top to bottom. Brilliant. Oh, but nothing for the Welsh in here, I see.
+
+[00:26:31] They always have the size of whales, aren't they? They've got the amounts of the Amazon being cut down. They should be happy with that. No, you never see the size of it. But anyway, imagine that. It's so big. All water thriving with fish. And it was just kind of botched.
+
+[00:26:45] And it was a very quick botched during the 20th century. Because it used to be, the water was always slightly drained off. There were a couple of rivers that fed it. And the water was traditionally controlled. by the Mirabs, who were the water masters in the area. They ensured that farms in the area got enough water to irrigate their crops, but not too much, basically. But then during the Soviet times,
+
+[00:27:09] because both Uzbekistan and Kazakhstan were part of the Soviet Union, and the Aral Sea kind of straddled both, that was all centralised, and also there was a mega drive to farm cotton in Uzbekistan, and cotton is a very, very thirsty crop, and they diverted the rivers so much that this entire sea just started receding disaster state. And it was so fast, wasn't it?
+
+[00:27:32] So it was 1960, essentially, the Soviets launched their big sort of redirecting the main feeder rivers. And by 1970, then, in fact, I thought this was really interesting because it's a measure of saltiness of water, which I didn't really realize existed. But by 1970, it was officially brackish. So mangroves could live there. Exactly, mangroves can live there. I don't think they had time to set up shop. So the freshwater fish started dying,
+
+[00:28:01] but it was officially salt water by 1987, which is another level above. And it became officially, do you know what the last designation of saltiness is in 1996? Super saline. Oh, that's good. Much more common word that... Oh, really?
+
+[00:28:15] Salty. Yeah, briny. Oh, briny. Oh, the briny. Brassy. Didn't realize. Brackish salt water briny. So only nematodes and microbes can survive.
+
+[00:28:23] But also, awfully, it's split in two, the Aral Sea, so it was the North Arial and the South Arial. And the North Aural levels actually stabilised. The water levels stabilised about 1988, but by then it got quite salty and saltwater species has started to thrive in it. And then it started sort of getting a bit fresher again, replenishing a little bit, so all the saltwater species died out.
+
+[00:28:44] Oh, no. Oh, no. It's a nightmare. Because one of the problems that they had was basically Moscow kept saying to these stands, okay, you've made this much cotton this year, and next year you need to make 5% more or 10%. 10% more. And they went, all right, yeah, fine. And so then they would divert some river. And then they say, okay, well, next year we need 10% more. And they keep doing that. And they keep doing that
+
+[00:29:05] and keep doing that. And in Russia, it's known as the Uzbek Skoya Diyala, which is like the Uzbek business. Because even once the RLC disappeared, they still kept saying, well, we need another 5% next year. And the people would be like, yeah, fine, that'll be all right. And they just kept saying that they were creating all this cotton, but they weren't making it. And so they, they sound like me. They sound like me at work. Yeah, yeah, yeah, I've got that covered. Exactly. You can imagine.
+
+[00:29:31] In 1983, they claimed that 981,000 tons of cotton were being harvested that were not being harvested. And then when Brezhnev died and Andropov came in, Andropov decided he wanted to do this sort of big anti-corruption drive. And they picked on, because there was corruption happening everywhere, obviously, but they picked on this in particular. And it was so huge. that Sharov Rashidov, who had been in charge of Uzbekistan, until then he'd been buried in some huge place in the middle of Tashkent.
+
+[00:30:04] They exhumed his body and buried him in like a normal grave. That's how much of a big deal it was. What to punish him for the fact that he'd lied about this is cotton? Isn't that amazing? And then in 1991, when Uzbekistan became its own country and Islam Karimov came in, the first thing he did was just pardon everyone. So anyone who'd been in prison,
+
+[00:30:25] About any of this stuff, he said, oh, well, it was just Soviets being Soviets, so it's not your fault. Wow. That was, I mean, you know, a bit of reconciliation with the past. Probably a good thing with you come in. I know, Islam Karamov was not a great president. It depends who you are. Yeah, it's true. If you're one of the security apparatus, it's a great guy.
+
+[00:30:44] Yeah, so the RLC, just quickly, one more thing on that. This is a really cool thing about it, and it's a reason that you, James, might want to go there. Well, I do. Well, you could be, James. The first person on earth. to map the Aral Desert as it now is. You're doing your impression of the Watermen again. Yeah, I don't know what that's about.
+
+[00:31:02] Yeah, yeah. It just sort of like feel very connected to it. No, there is a theory that this is the last land surface on Earth that is not mapped. Satellites have taken pictures of it from a very long way away, but no one has done on the ground cartography because it's new land. Would I have to train as a cartographer before I do this mapping? I should think so. I can I just do it on a piece of paper.
+
+[00:31:23] I mean, what kind of cartographer do you want to be? Do you want to be a 17th century one? Or you're telling you and say, I'm naming that after my wife. Well, you said I could do it. You could do it. I mean, you could do a very, very amateur issue. I was like a big show.
+
+[00:31:37] But I love that theory, this desert. Yes, it's a new land. It's the Aralcum Salt Desert is known as today. And it's 5 million hectares, which is bigger than Denmark. Wow. No idea how it is compared to Wales. But, yeah, that's mega. Yeah.
+
+[00:31:55] Wow. OS Maps app wouldn't work there, is what you're saying. No. And I don't think those Google cars have quite got to. Your Uber is 17 days away. Oh my God. Now he's 18 days away. Just one more very quick thing about Moyniak, which is the town.
+
+[00:32:15] When they, Aralc first began to really deplete and the Soviet Union still existed around that time, They weren't on the coast, but they had all these factories that were for canning fish. And so what the Soviet Union did is that they were transport fish all the way from the Pacific to Moyniak so that the townspeople could still work in the factories canning fish, even though they were nowhere near the sea anymore. Wow. Isn't that amazing? Oh my God. That's very cool.
+
+[00:32:45] At some point they must have thought, this is not a very sustainable line of work. I'm sure they did think that. The Mirabbs would have thought, sorry. The mirror. There you go. Wow. Interesting. And the other thing about Aral Sea is that there's an island there which in Russia is known as Vos Rajdegnir, which means rebirth.
+
+[00:33:05] And it's where it's mentioned in Call of Duty Black Ops, which I believe is a video game. It is. Certainly is, Your Honor. But it was also a place where they had a biological weapons research facility and where a big cloud of smallpox was released in 1971. Tremendous. A happy place. Did they dump the stuff in the water? Did they dump it?
+
+[00:33:29] It just kind of, there was a explosion, a load of smallpox when, and then it's landed. So when I'm making my map and say there's Pallina Hill and there's Pallina Valley and stuff, I need to watch out for smallpox because it might still be there. And the big, big problem about that is now that it's not a lake anymore, animals can just wander to this island, which they never would be able to do before. So it means that if there are any biological things on that island. We're going to get mutant animals who can take over the world. We're going to get bears of wings.
+
+[00:34:01] Precisely what I'm saying. Yes. Yeah. Or just sort of smallpox deer spreading it. All that. Yeah. That's actually, I thought it was quite interesting reading about that chemical weapons testing area because the area where it happens, in fact the capital of Karakil-Pakistan, which is the region this is in, is called Nukos.
+
+[00:34:22] Which feels like a very dangerous name to give yourself middle of the Cold War when you've got some military stuff going on, doesn't it? Oh, Newcast. Yeah. I thought you were saying it sounds a bit like Newcastle. That's what I thought. I never realized that Newcastle sounds like Newcastle. All the macums are going, all the people from Sunnillin are going, yeah, well, we've had that in our head for a long time. Yeah, we wish.
+
+[00:34:48] Just one more thing about the Aral Sea, which I thought was very interesting. because I looked in some newspaper archives sort of what people have said about it before it got all the pressing and whenever it's mentioned in the 18th and 19th centuries in early 20th century it is mentioned as a sea which keeps on disappearing
+
+[00:35:04] so it was very shallow and actually there are all these articles like there's a travellers report from 1910 that says it's so shallow that if a strong wind picks up it blows the sea away as far as the eye is annoying that's amazing
+
+[00:35:18] what are the fish do I guess they get blown away I'm sorry kids we've come to the beach but it was a bit windy and the seas blown away what can you do can go home so funny yeah and they kept saying there was an 1890 newspaper article about it saying it's undergoing
+
+[00:35:36] a process of desiccation that makes it seem like it's going to disappear altogether how interesting so maybe because it was very shallow it was susceptible to that it was clearly and it had happened entirely almost entirely I think in the 14th century there are documents which show it basically fully dried up.
+
+[00:35:51] And they're still finding as it dries up, it recedes, and it reveals old sites of medieval settlements. No, that's really cool. Yeah. So maybe 600 years from now, it'll be back? Fingers crossed. Maybe. Unless we think it was a Soviet or Russian problem,
+
+[00:36:06] the Great Salt Lake in America has lost 73% of its water and is unable to sustain a lot of wildlife because local people are using so much of the water around there. And the Colorado River, which used to reach the Gulf, doesn't reach the Gulf anymore. just dries off and it hasn't since 1998. What? Really? A river just sort of ends? Yeah, it just dries.
+
+[00:36:26] So it's like, it becomes a river, becomes a river, becomes a river, people in like California, they're using the water so much. It's a little bit. Gosh. That's awful. It's a problem all around the world. Yeah. It's terrible. So I was kind of looking at other Langlock countries that kind of had a very strong kind of
+
+[00:36:44] association with the seed despite, you know, obviously not being next to it. And I read into Belmont. which is landlocked and they're so obsessed with the sea. So it goes back to the War of the Pacific, which was in like 1879, 1884. Bolivia and Peru were up against Chile. And Chile ended up winning and annexed about 149 miles of the coastline and stopped Bolivia being able to access it.
+
+[00:37:10] That's a real dickhead bit to annex. I know, I know. And Bolivia just haven't forgotten about it 140 years later. So they made a peace treaty in 1904, which granted Bolivia access to the Pacific ocean, but it meant that they still had to go through lots of checks and it was still, you know, subject to loads of fares duties. What are the checks doing there? They put in an official plea with the Hague in 2013, but it was rejected that they didn't have to do anything. But the kind of culture that sprung up around it is really funny. So on the 23rd of March every year, Bolivia
+
+[00:37:41] celebrates the National Day of the Sea. And that date was chosen because it's the day that one of Bolivia's kind of iconic war heroes from the time. Eduardo Abaroa was shot down by Chile, and his reported dying words were, surrender. Your grandmother should surrender, you fuck. Wow. But yet they have a navy as well. They've got 500 troops in their navy.
+
+[00:38:04] They have like Ticacca, don't they? Exactly. So is that where they do it? They do a lot of their training around there. They patrol the area. They also patrol the Amazonian rivers in Bolivia. And, yeah, helpful. Yeah, and the official motto is
+
+[00:38:17] The sea is ours by right To take it back is our duty Wow And I mean, let it go No, no, no, no Get it back, get it back All right, Elsa Kling desperately on
+
+[00:38:28] That's my version of the time I was reading What was I reading? I was reading the article About the re-measuring the Amazon Because they want to prove That the Amazon's longer And they're going to travel
+
+[00:38:40] From the new source That they found Which is in Peru And they're going to travel down Because you were saying About like the Navy are there. Do you know what is the most dangerous animal that they might meet? Is it man?
+
+[00:38:51] It is. Oh, is it? Man. Is it like the remote communities or maybe the indigenous people that haven't been? You know what? There's some of that, but actually it's loggers. Loggers, yeah. Oh. I was so primed to like the guys who were doing logging in the Amazon rainforest, but now you've said that they're harmful. I like them even left. Yeah. There's a bit of good news on land blockery. So half a dozen landlocked countries in Africa. are going to get their own coastline before long.
+
+[00:39:18] Oh, nice. This is really interesting. So Rwanda, Uganda, Burundi, the DRC, Malawi and Zambia, between 5 and 10 million years from now, as the Somalian-Nubian tectonic plates move apart from the Arabian plate, cracks keep appearing. In Ethiopia in 2005, a big crack just appeared in the desert. Terrifying.
+
+[00:39:38] I was reading an article about this on Quartz, and I just want to read you the last sentences. This also means, as well as getting seaside, Great news. These countries can finally be directly connected to subsea internet cables. If that technology will not have been bypassed by them, assuming that millions of years down the line, nation states will still exist in the form that they do now. Actually, just on the internet in Uzbekistan, so there's a lot of issues in modern day with corruption and cheating and exams. You've got about 400,000 students each year
+
+[00:40:10] competing for about 50,000 university places. So they have loads of different kind of ways of cheating to try and, you know, get them into uni. So they bribe invigilators to turn blind eye to phone use, and people will use the parachute technique. Can I have a guess? Gone, gone, yeah. Parachute is very tightly folded, aren't they? They're very tightly folded.
+
+[00:40:28] So have you folded up? And you pull a card. And a huge bit of cloth with all the answers comes out. Yeah, you've sort of written incredibly tiny writing on a very tightly folded bit of silk. I love that. It's not, I'm afraid. It's basically they just chuck it out the window to somebody below.
+
+[00:40:44] who then just correct the exam paper out the window and to correct the answer and they just chuck it back up and they chuck it back up. So hang on, you're doing your exam. You have to find a way of going oh no! And then you also have to find a way of unfolding the paper airplane in the way that no one notices.
+
+[00:41:09] Yeah, basically now the telecoms companies, the three major kind of network providers, all very conveniently have technical difficulties that they need to solve for this five-hour period where everybody's taking exams. But it's, yeah, it's just mad. Oh, another way that people would do,
+
+[00:41:24] they would hide notes in, I quote, renaissance-style hairstyles. So they're just kind of crib sheet stuffed in there. If you have a big enough rough, you can just write the answers on your rough and spin it round to whatever bit of the curriculum. Ask about it. There we go.
+
+[00:41:38] Very nice, very nice. James, did you ever see those landlocked, I'm asking James specifically, the landlock population of sharks in Australia. Oh, no, I haven't seen. Are they on a golf course? They're on a golf course. Yeah, I am aware of them.
+
+[00:41:51] Yeah, yeah, yeah, yeah. And they washed in in the 90s. And for years, they were like the nessy of this golf course. Because there was a big lake on the golf course. It's called the Carborette Golf Club in Queensland. How did they wash in? Well, exactly. The area floods every now and again.
+
+[00:42:07] It's prone to flooding. Right. So every several years, they might have a really big flood, which sort of connects the sea to the... Oh, my God. And bull sharks are very good at living in water of mixed salinity. Brackish, like you said. Rackish.
+
+[00:42:19] Not for any. They're at home in the brack. They have special, fun fact, rectal glands, which allow them to excrete salt. So they can survive in saltier water or they can survive in less salty water. Do they do it as like table salt or like mold and flakes? No. That's the third pot on the table, isn't it? Shark, anus salt.
+
+[00:42:39] It'll catch on. Yeah, and so someone went there, a golfer named Scott Wankyton. staff said, I'm going to prove that this Aussie Nessie is down here. It went down there with a camera and some meat and he got him, he got him on film. And yeah, they haven't been seen since 2015 and the area did flood again
+
+[00:42:55] in 2013, so it's possible they washed out. That's interesting. I once went to a restaurant where there was sharks. Well, it was... Where was it? It was Dr. Evil secretly. It was like that. I think it was in Mauritius and you were, be on tables and the tables
+
+[00:43:11] were floating on the Some sharks swimming around? Yeah, yeah, yeah. And then the... Did they have signs like, do not feed the sharks under the table like a dog? Yeah, yeah, you weren't allowed to feed them. But the waiters would come round. They would bring some meat and they would throw little bits of meat into the water next to you.
+
+[00:43:29] And then the sharks would come up and snap, snap, snap, snap, snap. And then you'd eat the rest of your meal. That's an incredible restaurant to go to. Isn't it? So if you were the waiter and someone really annoyed you, could you accidentally spill a tray of meat on them, so they'd be developed by the shark. The shark would have to be able to jump out.
+
+[00:43:47] It would have to be like one of those meiko sharks that can jump out of the water, but I don't think they were those. Sorry, you're sitting with your waists. There's water. No, no, no, no. You're on an island.
+
+[00:43:56] No, no, no, no. Right. What I got is. You're on a floating island where your table is. The table must have a platform underneath it, right? Because you don't have the tables are floating. So you're not saying that you're waist deep in water
+
+[00:44:08] and there are sharks. That's what I am in. That's what I was guessing. I mean, you wouldn't go. twice, would you? You're very cold and you're very tense. Wasn't that huge tip? Was the food good?
+
+[00:44:20] Yeah. It was good. Did it cost an arm and a leg? Okay, it's time for our final fact of the show, and that is James. Okay, my fact this week is that wombat burrows can be explored by a special robot called a wombat. Oh, it's so good. Why are we exploring wombat borrows?
+
+[00:44:50] Yes. It feels like it's none of what business. Well, you might want to learn stuff about wombats. None of my business. With that, the spirit of the Enlightenment die forever. Does it look? Is it a fake wombat? Would a wombat be able to know that it was a wombat?
+
+[00:45:07] No, it doesn't look like a wombat. It looks like a small black box with tank wheels. Okay. Caterpillar tracks. Yeah, nice. Okay. And this was something I read on the improbable website run by our friends at the Ig Nobel Prizes. And it was made by Scott Carver and Robert Ross.
+
+[00:45:29] And I think an honoured student called Elizabeth Brown as well. Yeah, that's right. But this was at the University of Tasmania. And this is a really interesting thing, right? So I've written to Dr. Carver and he's given me lots of information. And this is incredible. So wombat burrows are really difficult to get in because they're quite smart.
+
+[00:45:52] They're the size of a wombat. One bat's quite big. I've seen a one bit in the zoo. They're big, but they're smaller than you, for instance. Yeah. Okay. It'd be tough for you to get in. Yeah, yeah.
+
+[00:46:02] But it would be possible for, say, a 13 or 14-year-old boy to get in. Okay. And until Scott Carver and Rob Ross and Elizabeth Brown and their friends made this machine, the only information we had about wombat burrows was from a schoolboy called Peter Nicholson, who in the 1960s with a torch and a spade went into wombat burrows
+
+[00:46:31] and made observations of the wombatts that he encountered. It's so good. It's so good. Literally, he wrote up his account in the school magazine and until the last few years, this was the best information we had about wombat burrows. Burrows. I'm so jealous. That's the fan. That's a childhood fantasy. You crawl into a badger set and you find them all drinking tea on the ground. So I read, there was a documentary by ABC, so the Australian Broadcasting Corporation. And they kind of interviewed Peter Nicholson. So he was at Timbertock boarding school in Victoria. And he and a friend stumbled upon the burrows. He was, I think, nine stone and six feet tall. So he was, you know, skinny enough that he could shuffle down. He was chased out by a female wombat at the time. A wild.
+
+[00:47:15] Or forwards or backwards? I think you'd probably end up shuffling backwards and out sort of, you know, beat first. Yeah, yeah, yeah. If you have to, also, and if they tilt down, you'll have to climb backwards and upwards. Oh, God, you've taken me right back to a very upsetting experience I had in an underground car park in Slovenia where I had to reverse out. Oh, my God, Andy, enough about your travel having house. Jesus Christ. All you're ever talking about.
+
+[00:47:41] Oh, it was the first time I'd driven for years, and it was right down, like a very steep ramp. down to the barrier, which was then closed for whatever reason. And I had completely forgotten how to do a reverse hill start. And that was the most stressful 20 minutes of that year. It was horrible. And there was sharks swimming under it. There was no agreed female wombat outside of the barrier, which would have made it worse. There weren't all horrible wombats, though.
+
+[00:48:07] He did become friends with one wombat in particular. So when he would go down there and he would go, genuinely, he would go down and he would, he would go down. and he would just sit with the wombat for a while. Sometimes if the wombat would grunt, he'd grunt back just to try and, you know, kind of replicate what he was doing. The wombat would come over and sniff him and put a paw on him, even followed him out on a cloudy day because they're normally nocturnal,
+
+[00:48:29] so they would stay inside during the day, but he came out on one day. And they just sat together outside, him and this friendly wombat. It's incredible. That is a beautiful story. It's a kid's book in the major. It's unbelievable. But anyway, now we can do it with robots.
+
+[00:48:42] So kids get out of it. And the wombat is fitted with lasers and it can eliminate any one bat it comes across. Well, they have to, like for instance, because of your problem, Andy, they have to have, like, cameras on the front and the back because so often you have to reverse and you can't turn round. So that's one problem that they had. They tied a rope to it just in case they got completely stuck and they could just drag it out. So that's kind of a lo-fi way of dealing with it.
+
+[00:49:10] And they found something really important, which is wombats have been getting this parasite, it's like a scabies kind of thing, and it's been very, very bad for the wombat. And they found, thanks to their wombat, that mites can survive much longer inside the burrows, which people didn't realize before. People felt the mites would just die. But now we know that if your wombat leaves a burrow, and then another wombat goes in, which happens quite often, that's a way that this disease can spread from one wombat to another wombat. That's interesting. And that's something we didn't know before. That's very cool. James, just quickly, that vision of the one bot with a rope tied around it is kind of like an Australia version of the Theseus and the Minator myth, isn't it?
+
+[00:49:51] That's exactly what I thought of weirdly when you said that. One of my favourite facts about Theisius and the Minator. So a ball of string was called C-L-E-W, a clue. And essentially, that's where our modern word for clue comes from. You're following a clue backwards out of a maze. So it's a lead, essentially. Yeah. That's so good.
+
+[00:50:09] That is so cool. Yeah, it's really fun. but I also know something about wombats and that is that they are fluorescent under UV light but so are scabies however the wombat's glow blue but scabies glow green so if you were to shine a black light at a wombat
+
+[00:50:26] you could tell if it's got scabies if it's got little kind of green flex coming through the blue question yeah if there is a bit of a scabies outbreak in the UK at the moment apparently and if I went to a nightclub as I haven't done for 10 years
+
+[00:50:40] But if I was to go to a nightclub, would I be able to know that someone talking to me had Skaibis because they would glow? There would be like little green kind of areas where they are on the scale. If you're going to close and take their clothes off, which often people go in nightclubs anyway. People are scantily clad, yeah. Yeah, easy. Okay, that's public service. Yeah, yeah. So yeah, so thank you to Dr. Carver for sending me all this information.
+
+[00:51:07] If you want to learn more, then you can go to his Twitter, which is at Scott underscore S underscore Carver. And the last question I asked him was, do you know that there's a US zoo which claims to have had the world's oldest wombat and it was called Carver? Lovely. Isn't that amazing?
+
+[00:51:25] Did you know that? I said, I just thought you'd be interested in that coincidence. And he said, cool fact. That wombat is a southern hairy-nosed wombat, whereas our work has been bare-nosed wombat. You must have felt so stupid when he's like an idiot. Oh my God. And apparently, to the best of his knowledge, the oldest bear-nosed wombat,
+
+[00:51:47] captivity is in Japan and is called Wayne. So that put me in my place. Here's a riddle for you all. What animal is the biggest user of a wombat burrow? Wombat. Yes. Thank goodness. Someone's fallen into my cunningly laid trap.
+
+[00:52:05] Australian teenage boys. That's it. Okay, so something else uses wombat burrows. Is it going to be something of a similar size to a wombat? Sounds like it's going to be bigger, isn't it? Oh, hold on. No, no, no, no, no. I'm not sure it does happen.
+
+[00:52:22] I've misunderstood the question. It was ambiguously worded, and I thought you meant, biggest in size. Oh. You know, like maybe a wallaby sneaks in there. She's got it. I don't know how you've done it. The most frequent user of wombat burrows is... To be fair, Anna.
+
+[00:52:37] I did notice you throw a piece of paper out of the window just before the moment. The blackfooted rock wallaby. But wombats will tolerate other animals in their burrows if there's something like a fire going on above ground. There was a story that went kind of viral that the wombats were rounding up other animals. Rounding them up and then sort of assassinating them in the boroughs.
+
+[00:52:56] No, protecting them from the wildfires. Oh, right, sorry. Right. And they're amazing thermal buffers. You know, it can be incredibly hot above ground. Even if there's not a fire, everything. It's just, obviously, it's very, very hot. Underground?
+
+[00:53:07] Leveled. That's very sweet. Look out for a wombat borough. Last resort. Just on robots and mimic animals. Oh yeah. Biomimicry. Bio mimicry. Apparently, we are soon going to have zoos full of robots instead of animals. This is the great suggestion. And they've started making robots that look exactly like certain animals so that when you go to a zoo, rather than keeping, I don't know, a panda captive or a cheetah or something, You just look at a robot. And they've actually, they've got Del the Dolphin, was one that I discovered. Del Boy. Also, roughly, the Dolphin.
+
+[00:53:49] So Del the Dolphin is designed by one of the creative directors at Disney, in fact. It was now working on this and the person who made Free Willy, which we talked about recently. They're more cost effective because obviously you don't have to feed them. But then you can't really do feeding time, which is part of the fun of the zoo, I suppose. Well, unless you're feeding them a robot fish. and that'll probably be fine. Yeah, although then that sort of has been cost-effective, I suppose, when you've got to generate a hundred robot fish every day.
+
+[00:54:12] But, yeah, apparently, rather than having animals, we'll just have robots. I think that sounds great. Yeah. There is a temple in India which has replaced its elephant with a robo elephant. Oh, yeah. And that's, again, on grounds of animal stress levels.
+
+[00:54:26] Lots of temples in India have live elephants. So the Iringa-dapili Sri Krishna temple now has an 11-foot-tall robo-nelly. She's good. I don't know what it can do. I don't know if it can amusingly hoover up a peanut. Just attach a Roomba to its trunk. Yeah.
+
+[00:54:49] Here's one more thing. In America, they have a problem with poaching, some places. And one way that they deal with it is they put liars out to the poachers. You don't really want to lure with a real animal, so they started doing it with robots. and the idea is you would get a robotic, say, bear, and the poacher would shoot it, and then as soon as they did it, you could arrest them for shooting bears. Brilliant. Even though they didn't technically shoot a real bear, the intention was there.
+
+[00:55:20] The problem is that poachers kind of get used to it, and so you have to make them more and more and more realistic each time so that they think it's real. And so the latest thing they've done, this guy in America called Volslagel, who makes these props has invented a deer which picks up its tail and poos out brown M&Ms so the roaches sit there thinking
+
+[00:55:46] that animal hasn't pooed for a while I think it might be a robot and then the M&Ms come out and they go and they shoot it and apparently this guy of Volslagel who made it has three kids and they get to eat all of the other coloured M&Ms
+
+[00:56:02] whenever he buys them. Brilliant, brilliant. So that's cool. And that's why Van Halen wanted to have no brown eminence on the right. They knew they were needed for the robot. Okay, that's it. That's all of our facts. Thank you so much for listening.
+
+[00:56:20] If you'd like to get in contact with any of us about the things that we've said, we can all be found on our online accounts. I'm at Andrew Hunter M. James. I'm on TikTok at No, 6th thing as James Harkin, but I haven't ticked any talks. Okay, so look out for that. I try to do a new one each time,
+
+[00:56:36] But I'm kind of froning. You're running. Ethan? I'm on Twitter and Instagram at Ethan Rupertellie. And Anna? You can get in touch with us as a group by emailing podcast at QI.com or tweeting at no such thing. That's right. And if you would like to go to No Such Thing as a Fish.com, there's all sorts of extra stuff there, including a portal to club fish.
+
+[00:57:01] The exclusive members lounge where you can kick back, enjoy some bonus content. some ad-free shows, all for a very reasonable price. And if you do it via Apple Podcast, you can get a free month trial membership of Clubfish, which we also recommend very highly. Okay, that's it. We'll be back again next week with another one of these. We'll see you then.
+
+[00:57:19] Goodbye.

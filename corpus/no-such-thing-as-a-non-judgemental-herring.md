@@ -1,0 +1,275 @@
+# No Such Thing As A Fish - No Such Thing As A Non-Judgemental Herring
+
+- Episode date: June 7, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-non-judgemental-herring
+- Slug: no-such-thing-as-a-non-judgemental-herring
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Adam. And Shriver, I am sitting here with Anna Chazinski, Andrew Hunton Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go, starting with you, Andy. My fact is that in 18th century Scotland, people believed that herring would punish people for adultery by leaving the area where the adultery had occurred. This is a genuine... Wait a minute, so they're not in the bedroom. They're not...
+
+[00:01:02] No, sorry. That's disgusting. But people at home, that was the amazing herring impression. Good grief. I mean, if anything, that would be... be a relief for the adultery commissioners, wouldn't it? Yeah, it's true. Once the herring flops out, you can really get down to it. As the old saying
+
+[00:01:22] goes. Well, we got there quite quickly, didn't you? Oh, God. So this is from a book, it's called Herring Tales by an article Donald Murray. And so this is because herring used to be absolutely enormous. So in the early
+
+[00:01:40] 20th century, there were three million barrels coming into Scotland every single year. But the thing is, they're fickle. So they would frequently appear in massive numbers in one year, and then the next year they wouldn't be there anymore. They'd disappear. And so in 1703, there was an author whose name genuinely was Martin Martin. And he wrote about this superstition.
+
+[00:02:02] He said it is a general observation all Scotland over that if a quarrel happen on the coast where herring is caught and that blood be drawn violently, then the herring go away. So it was true of violence and it was also true of adultery. Wow. Yeah. They're very judgmental, famously, Herring. They do turn up in massive numbers when they do turn up, don't they?
+
+[00:02:23] They really come in a crew. I think we think it could be the largest gathering of animals anywhere, Herring schools. Wow. They're gathering groups of up to 250 million they've been found. They've only quite recently been counted. So the schools, the shoals will be 40 kilometres wide. And we're not totally sure.
+
+[00:02:41] They do it for synchronized spawning. They get together at night. That's terrible. Olympics events, isn't it? That's on at 2am. Yeah, so, you know, they do their little dances and then they spawn. How they count them? Imagine having that job.
+
+[00:02:59] Yeah, it was using different radar from different ships and bouncing it off all of them, I think. Computers did it. There wasn't a guy who was there making a tally. Yeah. So supposedly, in the 12th century off the coast of Scotland, there were so many herring in the water that boats sometimes get stuck in the water. No way. This was what was said.
+
+[00:03:20] This was a guy called Saxo-Gramaticus, who wrote in... It's true. He was in 1204. He wrote, the whole sound contains such plentiful shoals that sometimes boats striking them have difficulty in rowing clear and no fishing gear, but the hands is needed to take them. So you could just reach in and grab a herring. Because they're quite thick, thickly packed, aren't they? So you know in some shells of fish,
+
+[00:03:45] you prod your finger in, they all scarper off. But herring, I think, because they line up where your nose will be lined up with a torso of the bloke in front of you. So basically, if you can imagine there are almost no gaps between them in a shoal, because they're sort of like a jigsaw perfectly fit together. So it does mean that if you come across them and you're
+
+[00:04:00] fishing, if you're in the middle of that group, you cannot move to one side or the other. You're just completely stuck. Oh, wow. So you can just scoop them all right up. But fisher people are very superstitious, aren't they? Especially in Scotland I found. In Scotland
+
+[00:04:16] they used to, if they weren't catching fish, they thought they would have to show this sea what they were trying to do and then the sea would work it out and then it would give them some fish. So as a last ditch effort, you would get one of your fellow fishermen and throw him into the water
+
+[00:04:31] and then catch him with a rod and then the sea would go oh, that's what you're trying to do. Really? Yeah. That is amazing. That's like having to take a crap in your cat's cat litter box in order to... Fan, what? He doesn't even have a cat.
+
+[00:04:55] What? I understand the principle. I'm saying, have you done it? Wow. No, once, but... This is kind of related. It's to James' thing about fishing people, fishermen out of the sea again. but this is a related tradition several hundred years ago
+
+[00:05:14] which is that it's bad luck to save someone from drowning because that sucks when your job's a lifeguard at the point was there yeah because the sea needs its sacrifice so if you have picked like the work experience fishermen to throw into the water you should check so people genuinely wouldn't save people because they thought it's bad luck I don't know how much it happened it might be that there's one fisherman who has been getting
+
+[00:05:41] everyone's nerves for a long time. Oh, sorry, no, there's nothing we can do about it. So there is another bit of superstition in the Scottish Lowlands and that it is, by saying good morning to someone, it's considered bad lucked fishermen. And so there are some fishermen, apparently, who would walk down the street and if someone says good morning to them, they'll go off, fuck's sake, and just go home.
+
+[00:06:05] Oh, I read that it was that you go home and start again. Oh, and go back home again. You have to press a reset button on the expedite. For other seafaring Scottish superstitions, there's in the Hebrides, a tradition of tossing porridge into the sea, which I didn't know about. And this particularly happens on what's called
+
+[00:06:23] Big Porridge Day or Great Grul Thursday. Big porridge day. Big porridge day. This is from a 19th century book of customs. I don't know if everyone still does it. But this is... It happened in places like Iona. And basically, it was you'd make a big dish of porridge
+
+[00:06:39] with some butter and lots of other delicious ingredients and then you overturn the whole thing into the sea and that sort to attract really valuable seaweed because they want it seems like a bad swap to me seaweed for porridge but um they you know want to eat and cook with seaweed but also the seaweed is used as like a fertilizer i think right fertilizer yes that'll be it and also it was on morn de thursday and so apparently morn de thursday was doubly holy in the hebrides because not only did it have the whole easter thing but also it was when you did the porridge seaweed swap. We're going to have to move on to our next fact very shortly.
+
+[00:07:14] If you work in the herring industry, you can develop asthma from all the herring protein in the air. So you get a condition which is called herring lung. Oh. No. Yeah, just absolutely microscopic particles of it in the air. Wow. Well, there used to be a really big thing.
+
+[00:07:30] The Herring Girls was the sort of collective name for the women who processed herring. It's a really important job. and on a Saturday night apparently they would have to wash their hair six times to get the smell out before they could go out because you're just working in herring
+
+[00:07:44] and gutting herring all week long Did you know it was because of herring that probably the most important collection of musical manuscripts was saved Herring saved them so this was after the Second World War there were loads of original
+
+[00:07:59] Mozart, Beethoven and Bark manuscripts all the famous ones you've heard of like all the Big Beethoven symphonies all the Mozart's and all of them they were moved from the Berlin Museum because people were worried about the fate that might befall them. They were moved and then they were sort of lost
+
+[00:08:13] as things happened in the war and they all disappeared. And then in 1973 there was this guy called Dr. Peter Whitehead who was working in the Natural History Museum and he was a biologist and he was just obsessed with finding this picture of this herring. So he kept on reading in really ancient documents about something that was either a herring or an anchovy and he couldn't find the original picture
+
+[00:08:34] that they were all referring to to deduce which of those two it was. And he was obsessed with this. And so he looked all over Europe to find this ancient picture. And finally, he ended up in a library in Krakow, going through this massive crate. And he was like, oh my God, I've found this 1648 picture, and it's definitely a herring.
+
+[00:08:51] I've absolutely nailed it. Thank God. By the way, sorry, I don't know who to tell. But I've also found all the old manuscripts, original manuscripts of Beethoven Mozart. But have you seen that? Herring? And so we're still hearing that music today.
+
+[00:09:09] Yep, deserve the boo. All right, it's time for fact number two, and that is James. Okay, my fact this week is that the most fashionable person of the 16th century was an accountant from Germany. It doesn't seem likely. Well, it is true, I think. That was an early backtrack. No, he was called Matthias Schwarz. He was born in 1497, died in 1574,
+
+[00:09:38] and he was a German accountant, but he is most well known for compiling a book called Clydungs Buchlan, or Bookline, which means book of clothes, and it's probably the world's first fashion book. And he was, he basically took pictures or did drawings of every single thing he ever wore for 40 years, and he wore unbelievably amazing clothes.
+
+[00:10:01] And he was probably the first person, in history to be interested in fashion as like a cultural thing rather than just to show off to their friends. Yeah. It was, yeah, amazing. And he commissioned these watercolors, didn't he? So he had artists just come and constantly paint him, which really pissed me off, actually.
+
+[00:10:16] The Independent covered this. And they kept on talking about it as fashion's first selfies. And I would say, if you've commissioned a person to do a watercolor painting of you, there are so many levels on which that's not a selfie. No, but he, so what, he back. tracked it to his earlier years. So he commissioned, he started it
+
+[00:10:36] when he was at the age of 23, so he worked backwards and got a bunch of those commissioned. He also did a nude of himself. So in this book, there's a front side nude and a backside nude. Kind of like, you know, those kids books you used to get, where you would put the clothes on Barbie?
+
+[00:10:51] Weird childhood, Dan. Where childhood you had? We're back to the kitty litter, aren't we? It's sort of like you've got the body and you can put different clothes on them with magnetic strips. Not normally a nude 16th century German accountant, though. I mean, what a world it would be.
+
+[00:11:13] Because this clothes were amazing. They were so cool. So it was really interesting because this was a time where there were lots of legal restrictions on what you could wear depending on your position in society. So you couldn't dress more fancally than your employers. But he was the head accountant for the Fugger family, who were a very powerful banking family. And they were very worried about being seen as too. too rich. So they tried to tone down what they were wearing, so they didn't seem too extravagant.
+
+[00:11:38] And so he had to come up with all these clever ways of showing off fashionably. So there are these things called pinks, which is where you make a tiny slash, just a tiny, tiny, tiny cut in fabric so you can see the colour of the fabric beneath. And his doublet, so that's what, that's the sort of upper trousers. No, the doublet is like the long-leined shrunken waistcoat thing. Sorry, the jacket, his doublet had 4,800 pinks in it. Which will all be handmade. How much dobblet was there left after you put 4,800 toad it? Just very quickly on the Fugger family.
+
+[00:12:11] So the guy, the guy who started it was called Jacob Fugger. And he was genuinely the richest man who has ever lived. He was the right rich fugger, wasn't he? Yeah. Yeah. Who's born from nothing. His dad and his motherfugger. Had no...
+
+[00:12:31] Had virtually no... It's so childish. They virtually had no money and he built it all in his lifetime and if you took the amount that he had and you translated it in today's money, he was worth 400 billion. Wait, are we going to get a currency on that
+
+[00:12:50] or what's this in, yen? Oh, American dollar. Herrick. Sorry, yeah. He was the richest man who ever lived. But this, I mean, so he was, probably the most fashionable person, but fashions around this time and Renaissance fashions
+
+[00:13:04] were quite exciting, weren't they? So we had, I think, one of my favourite was the Henin. This was a really early fashion. This was basically medieval. And it was the, if you look at kind of Renaissance and pre-Rnaissance art, it's that weird steeple that women wear on their heads.
+
+[00:13:20] So you know they wear a massive long cone that comes up on something falls off the back of it and they would go up to a metre high and people were criticised for wearing these because they thought they looked really ridiculous, which they did, and also it was kind of a sign of lavishness. And I was reading about a friar called Thomas Connect, who would give pocket money and pardons
+
+[00:13:37] to any boy who was able to get one of these off a woman's head. So he paid these little boys to go and pull down these monstrous headdresses and chase these women out of town. In the Italian city of Oviedo, this is also during the Renaissance fashion, there were rules, again, about what you could wear. So your cleavage, as a woman, could not descend past a certain point. and the way they did it was with a measurement of the hands, it was two fingers width below the super sternal notch on your chest
+
+[00:14:07] and that's basically the sort of the front of your collarbone here, your clavicle there, so it was two fingers width. I mean, your cleavage is going nowhere near that. One's cleavage is going nowhere near that. It would be very unusual woman who had cleavage that went to like an inch below her clavicle. That means you've got breast coming out of your neck. Just on breasts, another thing in the 16th...
+
+[00:14:31] Another thing on the 16th century was that there was a fashion to just have your top open and breasts out. And there's an account from 1593, the French ambassador, Andre Harout, described meeting Queen Elizabeth I first and arriving with her having... Wait, her naked boobs out. Yeah, yeah. The queen, Elizabeth, the first.
+
+[00:14:55] Yeah. She was 65 at the time. Was she? Yeah. He wrote this in his diary, so whether this is true or not, we don't know. But he did say that. Do you have what he said?
+
+[00:15:05] Yeah, he said, kept the front of her dress open so one could see the whole of her bosom, could see all her belly to her navel. So it was just an outright open shirt, and it was seen, according to his diaries, as less a risque thing than a woman showing her ankles at the time. Yeah, ankles were pretty bad. Disgusting.
+
+[00:15:25] Well, there was actually a... a fashion in France about 200 years after that to have sort of nakedness showing through your outfit. So I really didn't know about this, but this was in the 1790s, straight after the reign of terror, when a lot of the aristocracy had been wiped out
+
+[00:15:39] and beheaded, the aristocracy remained fought back by developing these lavish fashions and they were known as the Uncriabler and the Mervilleuse. So the men were the Incredibles and the women were the marvellouses. And they would sport these ridiculous fashion, so they would go around with these
+
+[00:15:55] giant monocles. They'd have rings on all their toes. They had, probably like the size of your face. They wore huge hats with dog ears coming off them. And they pretended to have a lisp. And they walked around with hunches because they decided that was a funny thing to do. And it was just this weird thing. And it was all this comment on, you bastards, you've like murdered our mates. Some of them, there was a fashion to brush their hair forward and shave off the back bit of their hair as if the guillotine was about to fall. And sometimes they'd wear a wreaths.
+
+[00:16:25] necklace to show their red, yeah, like their heads were chopped off. But yeah, it's amazing. They had these balls which were called Bal de Vic Team, which were balls which only the children or the families of people who've been beheaded could attend. But they were super cool. They were just prancing around the streets of Paris in these crazy outfits. That is amazing.
+
+[00:16:44] Fuck you. Wow. In 1463, England's Parliament ruled that men were no longer allowed to wear short coats that did not cover their penises. They said we've had enough of that. We've had a great time, but the party's over. Were they wearing trousers? Were they like Donald Duck?
+
+[00:17:02] Was it a... They kind of were like Donald Duck. Wait, sorry, they were naked from the waist down. They were not completely naked from the waist down. They had a hoseary. They had hose, but hoses just tights, really. Yeah. They just had tights that were making it very obvious what was where.
+
+[00:17:19] And the jackets kept getting shorter and shorter and shorter. And eventually you could just see, you know, lunchbox. Well. And the thing was, and that was when... cod pieces came in as a fashionable thing because they weren't allowed to show their genitals or their bulges or whatever and they didn't want to have long coats that covered up
+
+[00:17:37] they still wanted to have the fashionable ones so they would have the cod pieces instead. Really? Because I've always thought the codpiece is the most weird thing that we just accept that people just, I thought was to show off your genitals and I think then it became something to draw attention to it and you'd have an elaborate one. They got bigger and bigger and bigger in the 16th century
+
+[00:17:54] before disappearing completely by the end of the century So there's this really weird thing where they get bigger, bigger, bigger, bigger, and then suddenly smaller, smaller, smaller, smaller. I think we can all. Well, the reason that they, the reason they think they went out is because there was a new thing that came in at the end of the 16th century called a peas cod belly. And what that was, it was like you kind of stuffed stuff inside your shirt.
+
+[00:18:18] Like, imagine you have a shirt here, you stuff it down. And then it kind of makes you a little bit fatter, but then it goes down to a peak where your genitals are. And so they're fighting over the stuff. same real estate kind of thing. And so they had this kind of thing, but it meant there was no space for the cod piece anymore. And they were called women wore them as well.
+
+[00:18:36] They were called stomacers. And sometimes there would be a fashion to wear a bigger stomacher, and that would make you look a little bit pregnant, and then sometimes not. And the reason they were called Peas cod is because they looked a little bit like a pea pod because they kind of tapered at the bottom. And they were a very potent sexual symbol,
+
+[00:18:55] and this is one of the reasons that the phrase shelling peas became a euphemism for sex. Really? You did it? It did? Well, I mean, it was in the 16th century. Okay. And some of us haven't moved on.
+
+[00:19:11] But also because at pea fields, people used to have sex in pea fields as well. Of course it is. Peas were just very sexy. Peas were just very sexy in the 16th century. Beds were hard to come by. You know that outfit that you see a lot of in medieval depictions of gestures and so on.
+
+[00:19:30] It's the two-color outfit that is horizontally split. Yes, exactly. So yellow on this side, red on this side, completely down the middle. That is called my party outfit. What do you mean? We've been to a party with you, that we know that that's what you were.
+
+[00:19:46] It's great. So it's MI, so I guess me, technically, and P-A-R-T-I, me party outfits. Oh, and is it like, it separates me? It parts me. No, that's probably Italian or something. But probably in Italian means this parts me.
+
+[00:20:05] No? I think it's Geordy actually. Where's me helpful? It feels like it feels like if we talk about fashion, we have to talk about Bo Brumel, who was the creator of fashion
+
+[00:20:24] even today. So Bo Baudremmel was the most fashionable man at the turn of the 19th century, basically, wasn't he? Very early 19th century. And he used to take five hours to get dressed each day. He polished his boots in... I know, how does he get anything else done? Polish his boots in champagne.
+
+[00:20:39] He had three separate hairdressers, one for his temples, one for his forehead, and one for the back of his head. That's incredible. They must have all... Were they doing it at the same time? It's not going to be like a game of consequences where you do one of them and then you have to work out what they want after that. Desperately hope they match.
+
+[00:20:58] There must have been turf war as well between the temples and the top and the top and the back. Yeah. Yeah. Yeah. Be very tense back there. Yeah. He also had separate glove makers. So he had a glove maker for the palm,
+
+[00:21:12] glove maker for the fingers and a glove maker for the thumb. No. You've got to have different, because it's different skills making the thumb to making the fingers. Is it very different, though? Very different, yes. Doesn't feel like it. Well, you don't know fashion.
+
+[00:21:24] That's true. We're going to have to move on, basically. I should just say Bo Rommel is the reason that you're dressed like you're dressed today, all of you. And because everyone looked absurd until he came along. They all wore these like powdered wigs and these big ruffs and frills and colors. And he basically said, take all the colors away, all the textures. What you want is neutrally colored clothes that are cut with precision. He banned perfume and jewelry for men.
+
+[00:21:46] And men basically dressed like that today. That's why you're all stuck in these really boring clothes. Yeah, but then it's still took him five hours to get ready. He got rid of all that stuff and he's like, but it's still going to take me five. five hours to put on a pair of trousers and a shirt. But he was exclusively dating herring ladies who are still shampooing for the first time. Okay, it is time for fact number three,
+
+[00:22:09] and that is Chazinsky. My fact is that the North Pole is moving so fast that we can't keep up. So, what, the next polar expedition is going to go on indefinitely. They're just going to be running after it. Yeah, chasing it. This is a real worry.
+
+[00:22:25] This is the magnetic North Pole we're talking about. And specifically when I say we can't keep up, our phones can't keep up, our maps can't keep up. So there's this thing called the World Magnetic Model. And basically, this is the model that works out where North is. And it's updated periodically. And it was supposed to be updated, I believe, in 2020. And then they had a quick look at where the North Pole has got to since 2015 or something, and it was last updated. And it's moved so fast. They've got to update it now because all of our maps are wrong. And so this is announced by scientists at the National Center for Environmental Information
+
+[00:22:56] and they said because of unplanned variations in the Arctic region it's fucked if you try to get to the North Pole sorry that's part of the official press release I slipped out of the quote marks without making that clear on the current model
+
+[00:23:14] if you tried to fly to the North Pole using your phones without the update you'd end up 25 miles away from it which is quite fun Oh I could walk 25 miles in the Arctic Do we know why it's moved? No, we don't. So it's always fluctuated because we think it's because
+
+[00:23:33] that this big molten core of iron in the middle of the earth and it's sloshing around. And so that is causing this magnetism to slightly slosh around. But we really don't know why it's accelerating so fast. So it's suddenly started massively speeding up. Over 30 years, the rate of distance move per year has sped up from 15 kilometres a year it was moving to 55 kilometres of.
+
+[00:23:53] year. And no, we don't know why. We don't know what's happening in the middle of the earth is causing this. And this is just to make it clear, this is not the normal north pole, which is the bit that the earth spins on. This is where the mag, where your magnets points are. I mean, I don't know who you are to label one normal. But yeah, so it's not the geographic North Pole, which is like, the top of the other, is where your compass is going to probably. Really, I believe that the magnetic South Pole is not moving. It is moving a little bit, it's not moving as much. But it's slowly getting more out of kilter.
+
+[00:24:28] So the opposite of the magnetic North Pole is not the Magnetic South Pole. Weird. That's so weird. It's crazy. I read that, so you were saying that they had to redo it and announce it. So they finally got all the stuff together, all the information about where the magnetic North Pole is. They were about to release the information for people who needed it.
+
+[00:24:45] And then suddenly in America, that government shutdown happened. Oh, yeah. And they weren't able to release it. So they had to sit in limbo. with the updated information and anyone who is 25 miles closer to the North Pole than they thought was suddenly unable to access it.
+
+[00:25:00] It affected millions of people. I think it's moving towards Russia, isn't it? It's currently still in Canadian territory, but it's moving up towards Siberia. Putin's declaring war on it. Well, I read that in 2001, Russian researchers made the world's biggest magnet. And I'm not saying that that's what caused.
+
+[00:25:21] Wow. But they created a 2,800 Tesla magnetic field by getting a massive magnet and then doing a massive explosion around it, so it really pushed it in. And this was the biggest magnetism that had ever been created on Earth. Wow.
+
+[00:25:39] And I'm not saying it's anything to do with that. I didn't know we were in the business of encouraging conspiracy theorists, but... What does he gain from seizing the North Polvo? Santa. Give me that good bad list Trump badness
+
+[00:25:59] So I was looking at sort of the history of the North Pole And there were people really didn't know what was up there In the past Because nobody had been there So Fair enough Yeah So this is related to the hollow earth theory
+
+[00:26:19] while we're on conspiracy theories. So this was proposed by Edmund Halley of Halley's Comet fame in 1692. He suggested the planet was a series of shells inside each other because that would explain anomalous astronomical data, you know, when stars appear to move back and forwards.
+
+[00:26:35] So that was his great explanation for it. But this theory got taken on by other people and it evolved. And in 1812, there was a war veteran called John, I think his name was Sims, S-Y-D-M, and he wrote that the Earth had massive hot at the North and South Pole,
+
+[00:26:51] and that that was the way into the hollow earth. And that the entire earth inside, that he called them Sims Holes, and he campaigned to launch an expedition to the North Pole so that he could go into the Sims Holes and explore what was on the inside of the earth. And Congress voted on funding this expedition.
+
+[00:27:11] Yeah, I mean, they voted against funding it. But Hitler was obsessed with it, wasn't it? Hitler... Really? Yeah, he had expeditions. I think I'm right in saying, this. I only know this from reading a tie in Indiana Jones book called Indiana Jones and the Hollow Earth. But in that, Hitler does go exploring for the Hollow Earth had actual expeditions.
+
+[00:27:32] We have to have some basic standards of acceptable sources. But they're written based on history, like with the Young of the Covenant and the aliens. Just thinking back to a young Dan in his Jester's costume, squatting over the cat litter train, reading Hitler-Indel Jones stories. You know, not only is it the North Pole that we're sort of losing track of, GPS-wise, but Australia as well. Whoa. Yeah, Australia is... Oh, well, never mind.
+
+[00:28:05] Australia moves a lot. It's shifted by 4.9 feet since 1994. That's not a lot. Is it not? Well, Australia's massive. and four feet is not massive. Oh, but for a whole thing to share that way. But you're not going to get to Airs Rock and be four feet away and go, I can't see it anyway.
+
+[00:28:29] Yeah, good point. I've programmed the boat to stop right at the edge of Australia, so we're just going to step off the boat to presumably appear that we'll be waiting for us there. But there was a bigger problem. I don't know if anyone here uses Bing Maps. Yes. You use Bing Maps?
+
+[00:28:49] Of course, Adam uses Bing Maps. It's on Microsoft. So, unfortunately, it turns out that I can't believe you use Bing Maps. That was genuinely not expecting. Sussi caused me some problems in the past, but go on. Well, yeah. Like, for example, if you were looking for Melbourne, because Bing Maps had Melbourne placed off the coast of Japan.
+
+[00:29:11] That's not for the same reason as the four feet thing. That was it. This explains when we played Australia, Dan, you were four feet away every gig. You were just off in the wings. And I was in Japan. It was a bizarre show. So here's the weird thing.
+
+[00:29:27] Bing Maps is updated, not completely, but a bit, by information via Wikipedia. Now, obviously, Wikipedia is often tampered with, and in this circumstance, when they did an update, they had ingested someone who'd tampered with where Melbourne was, and suddenly Bing Maps was registering it off the coast of Japan.
+
+[00:29:46] Well, so Bing isn't the only one, right? Apple Maps had serious problems. So in 2012, they dropped Google Maps as their provider, and they went to Apple, and maybe people remember there were some serious issues. For instance, there was an Australian town called Mildura, which was placed 75 kilometres from where it actually was. Problem is that it was in Victoria, and it was sort of in the bush.
+
+[00:30:06] So there were four separate incidents in the space of a week where groups of travellers went, so were hiking to this town, ended up 75 kilometres away in the middle of the remote Australian bush in 40 degree heat and all had to be rescued. Wow. Also, if you search for Manchester United Football Club,
+
+[00:30:23] it directed you to Sail United, I think. Sail, yeah. It was like an under 12th team or something. It's for ages 5 and above, sorry. And it had Sassauai images that it advertised, this is Apple Maps again, but it hadn't worked out to penetrate the clouds,
+
+[00:30:41] so a lot of it's satellite images, if you went to look at somewhere, it was just you were above the clouds, you just saw cloud come up. What a weird thubble team to have a policy of accepting anyone above the age of five. You're going to get a very mixed range of ability, right?
+
+[00:30:56] Time for the final fact of the show, and that is my fact. My fact this week is that the British vegetarian movement was started 200 years ago by a man called Reverend Cowherd. Yeah. Yeah, and this was in Salford in England, and this was 200 years ago.
+
+[00:31:16] He was the reverend of this chapel, and in January 1809, he stood at the pulpit, and he made a plea to say to all of his congregation, we need to stop eating meat. They all agreed, and that was the fundamental beginnings of vegetarianism in the UK. Yeah. Wow. And he was called cowherd. Yes, so he said that if God had meant us to eat meats, then it would have come to us in an edible form, like a fruit.
+
+[00:31:42] So, makes sense. Sushi is arguably. Fine. But Cowherd, he wrote hymns that were pro-vegetarianism. So he wrote one hymn called Little Lamb,
+
+[00:31:55] Who ate thee? That's amazing. He wrote another one called Eaters of flesh. Eaters of flesh, could you decry our food and sacred laws? Did you behold
+
+[00:32:08] the lamb can die and feel yourself the cause. Lo, there he struggles, hear it moan, as stretched beneath the knife. I mean, this is pretty tough stuff, isn't it? But that is there something to rhyme with knife? Because that's not a good ending to the poem.
+
+[00:32:24] Its eyes would melt a heart of stone. How meek it begs for life. Wow. Because we did all just have quite a big meaty curry before we came on stage, and I'm now feeling quite guilty as well as sick. Yeah. I like, my thing that I like about this,
+
+[00:32:39] obviously it's vegetarianism started by a man called cowherd and I love those little name connections when they go anti the thing that you're talking about and weirdly the whole setup of vegetarianism in that period of the 1800s was completely rife with that kind of names that were connected to either animals or meat so the key groups that formed the vegetarian society which eventually got its name in 1847 were people who were called the Bible Christian Church which was what He was a part of Cowherd. You had the Concordium, which was a boarding school, and then you had the readers of the Truth Tester Journal.
+
+[00:33:16] So Concordium, which was the boarding school in 1837, they were located in Ham Common. Nice. That's where they were. And then the truth testers, who were the magazine that were pushing it, were, it was taken over the editorship by a guy called William Horsal. No way. Yeah, so you suddenly have horse in there.
+
+[00:33:37] And then the truth testers, they basically they got this other guy who wrote a very important letter who was called William Oldham Yeah So then in 1847 For the listeners at home
+
+[00:33:52] Dan has pointed an enormous board behind him With bits of string connecting everything else To everything else And so in 1847 They officially named the vegetarian society Where William Oldham was the treasurer And Horsal was elected secretary and that conference that they had to name it was in Ramsgate.
+
+[00:34:13] Wow. It's just loised. When you sort of climax at the end there, it did sound like a crazed person. Like we need to call a doctor. And by the way, for the people at home, he really did climax at the end of that. The herring of fleeing the area as we speak. It's like synchronised spawning on the stage. Well, one of the other pioneers was a man called, I hate to add to Dan's crackpot theory,
+
+[00:34:35] William Lamb. He was a doctor in 1815. he came up with what he called a water and vegetable diet and he said it would cure acne, tuberculosis, scrofula, asthma and lots of other diseases. Wow. I don't think it did, but it probably wouldn't have done your harm. If you've got scrofula, give it a go.
+
+[00:34:54] You know, they nearly weren't called vegetarians. Oh, what were they going to be called? So, you know, there were lots of potentials. Pythagorean was one of them, was it? That's true. That's an old one. Pythagoras, supposedly. Sorry, I'm actually meeting vegans.
+
+[00:35:07] So vegans were nearly not called vegans. So in 1944, there was a member of the Vegetarian Society in London who was called Donald Watson, and he set up a new newspaper for vegans. He wanted to go a bit further with the vegetarianism. And he asked his readers for suggestions as to alternatives, and they came up with things like dairy ban, so that would be the noun, I am a dairy ban,
+
+[00:35:29] or benevolent, like instead of omnivore or carnivore, a benevolence, someone who eats good things, or bea monger. I'm a beau manger. So it was a big thing in the 19th century, the vegetarian movement. It was a big thing in London and there was one vegetarian restaurant in London in 1878
+
+[00:35:49] and by the 1880s there were 52. So it suddenly took off. But the most popular one around this time was started by the best real tennis player in the world. That's pretty weird. He was a guy called Used to Smiles and he was basically the real tennis so you know real tennis is sort of
+
+[00:36:07] like weird indoor royal tennis, pre-carsity tennis, and he was the world champion, basically from 1898 to 1911. He was the best player in the world. And he was also obsessed with fad diet, and he was a vegetarian. And he opened this restaurant that was incredibly popular. And it had stuff on the menu,
+
+[00:36:24] like little acronyms on the menu like we have today, we have a V for vegetarian. He had NN, which meant very nourishing. And he also had, next to many of his items, FU. and that meant free from uric acid. Oh, obviously. I love my meals free from uric acid. I always ask.
+
+[00:36:45] Free from uric acid? It was quite a big thing then because it sort of caused gout. But he was a bit weird. He wrote an article once about how everyone should be able to live on a diet of two plasmon biscuits and one lentil a day.
+
+[00:36:57] One lentil? It was just the one. Yeah, don't overdo it. Wow. You know, in Australia you get kangatarians. Oh yeah. I was a Cangetarian in Australia. Were you? Yeah. Okay. So if anyone here doesn't know what that is,
+
+[00:37:11] Kangatarian is where you eat purely kangaroo and no other meats. And there's an ethical and moral logic behind the idea of becoming a Kangatarian. One is that one of the big problems we have with farming cattle is the methane, the farts are ruining the ozone layer, whereas kangaroos really emit a very, very tiny fraction of the amount that it cow does. So if you started farming them, that would be fantastic, for the environment. Although one of the reasons
+
+[00:37:37] that also is ethical is that they're not farmed, so they're wild. There are a whole host of reasons. And they're a massive pest, aren't they? They're a pest to, yeah. I always think pest is a subjective term, isn't it? We're probably a pest to them as much as they're to us. But they're very hard to catch, though,
+
+[00:37:52] because they're always four feet away from where you actually thought they were. So, this is a whole theory. There's a guy called Jackson Landers, who's written a book, proposing that vegetarians who want, to be vegetarians for planetary reasons, but they like meat, he suggested they should only hunt
+
+[00:38:14] and eat invasive species. And he wrote a book where he did exactly that. So he ate pigeons in New York City, which I think is brave. Yeah, there's a whole theory behind it. Again, I don't like to be a dick at here, but I always think invasive species is a very human term, isn't it? Because that implies they have a concept of nationhood, which most animals don't. So they're like, I'm allowed to be in New York. The pigeons, they're not, they don't have the kind of strict immigration policies that humans have, I don't think.
+
+[00:38:46] At time of recording, anyway. The, so on sort of stigma against vegetarianism, this is a weird thing. There was a study by the University of Southampton and it found that men in particular don't like choosing vegetarian dishes when they're with other men, particularly, for fear of being ridiculed.
+
+[00:39:06] and this study was a year long it was called man food and the sample was small it was only 22 men so it was not a comprehensive citywide thing but basically if even men who don't like meat or men who find it hurts
+
+[00:39:24] their digestive system or men who've been literally asked to eat less meat by their doctor or see themselves as green they want to eat meat particularly around male friends because they think it's sort of Ah, okay. Athetic.
+
+[00:39:37] And presumably that's Western men. It's men in Southampton. I can't stress enough how small the sample was on this study. It's two football teams in Southampton, isn't it? 22 men.
+
+[00:39:53] They had a game of football. From the age of five upwards. There was a study done in Canada which actually showed that you can calm a man down by showing him a picture of a piece of meat. Stop it. No, you can't.
+
+[00:40:09] That is so stupid. No, no, no. This was at McGill University in Canada, and they... What do they do? How did they do it? They did to meet in bar fights with a big laminated steak.
+
+[00:40:23] Don't worry, lads. Chill out. If I was a general, I would make all my soldiers carry pictures of meat on their rifles, on the bayonets to completely neutralize the opposing army.
+
+[00:40:35] If it like a... a pub, wouldn't it? On your bonus. It's such a great idea. What it was is that they had 82 men sit down and an actor read out a script to them. And if the actor ever stuffed up,
+
+[00:40:51] and as the actor was reading, they were looking at different pictures. Every time the actor stuffed up, they were told to send a loud sound to the actor to sort of as punishment for stuffing up. So they would stuff up and they would press this button
+
+[00:41:06] and there would be levels of loudness. Whenever the actor stuffed up while they were looking at a piece of meat, they decided to not really give any punishment whatsoever. Okay, so maybe it's more that they're distracted by the meat. No, it's according to, they were calmed by it. I'm doing my best here. This is my study.
+
+[00:41:27] Are there any speculations as to why? Yes, actually, this is really interesting. It's because the idea that men, once they see meat, and it's in a cook form. It's so they can see the charcoal, grilled kind of nice. It's a slab of steak. Oh, that's been properly barbecued someone. But also they think it's caught.
+
+[00:41:44] Like, I don't need to go hunting. I don't need to be the man who's going to be aggressive and stuff. I can calmly eat my meal now. And again, this is not my study, but I... But you wasted everybody's time with it. So it's reassuring them that they're going to get... meat. They're thinking of meal time with their families, so thinking this is a nice
+
+[00:42:09] image. This is a pretty picture? Frame it. I got another thing about, this is about veganism this time. President Eisenhower from America, his great granddaughter thinks that veganism is going to help us to contact aliens. Great. This is actually, this is fractionally
+
+[00:42:26] more plausible than the last thing you ran up the flagpole. She said, we have to understand that we are multidimensional beings and based on our frequency perceptions and vibratory levels that we are functioning from, we are going to see different things. So that's her. Sorry, that's Eisenhower's great-granddaughter. She thinks that meat holds us down the density of our bodies. And if we want to connect with the higher beings, the vegetables are going to be much lighter. It's interesting because some political families, you just think, oh, they've got so much, you know, power stored in the family. They're just
+
+[00:42:58] going to be in the front of politics for generations to come. I don't think the Eisenhower family is one of these type of these. They're never going to elect an idiot to the president of the United States, are they? It's also not super reassuring what she says. That implies that if you adopt a vegetarian or a vegan diet, you're just going to float away. Is that the implication? It's true. Okay.
+
+[00:43:21] I can't believe we're ending on that, but that is... That is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland, Andy. At Andrew Hunter, I'm James. James Harkin.
+
+[00:43:38] And Chisinski. You can email a podcast at QI.com. Yep, or you can go to our group account, which is at no such thing or our website. No Such Thing is a Fish.com. We have everything on there from our previous episodes to upcoming tour dates and all the stuff that we've released,
+
+[00:43:52] merchandise-wise. Thank you so much, Edinburgh. We'll see you again. Goodbye.

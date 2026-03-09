@@ -1,0 +1,339 @@
+# No Such Thing As A Fish - 418: No Such Thing As A Pub Full of Corgis
+
+- Episode date: March 18, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/418-no-such-thing-as-a-pub-full-of-corgis
+- Slug: 418-no-such-thing-as-a-pub-full-of-corgis
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Dublin! My name is Dan Schreiber, I am sitting here with Anna Tyshinski, Andrew Hunter Murray and James Harkin and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order here we go. Starting with fact number one and that is my fact, my fact this week is that there is a town in Russia that hosts an annual festival to celebrate mosquitoes. The main event is the most delicious competition in which girls compete to see how many times
+
+[00:01:06] they can get bitten by a mosquito after standing around for 20 minutes. Now I should say it's not one mosquito that's doing the fighting. In actual fact sometimes it's no mosquitoes. So in 2014 this was the second version of this festival. They did it next to the City Pond but it was so cold that all the mosquitoes had died. And so it was a no scar draw in the end, everyone got no bites. Can you lure mosquitoes to you? No, there are kind of strict rules about this.
+
+[00:01:39] So this is in Berezniki which is in the Ural Mountains, this is in Russia and you would send out these girls with their parents into a forest and they would go picking berries. It's a sort of a Grimm's fairy tale. I think so the idea is that they just pick berries and it's very kind of yes, dark but Wait, do the girls know they're in this competition to be fair? I assume they must do, yeah. And so they spend 20 minutes or so in there and then they come back out and then they all have to stand on a stage and a panel of judges including a doctor comes and inspects
+
+[00:02:13] where all the bite locations are and the one with the most bites wins. And so the reason I think that this got a bit big was because there was a report in 2013 I believe it was where they announced Irina was the winner that year, she had 43 bites. And you know, remember 2013 was the year of Zika, they were sort of saying, oh, this is a bit bold isn't it, sending a child but obviously they don't have Zika there or at least. I think the other person who just booed Zika, I think we all can agree with that sentiment.
+
+[00:02:45] Your liberal credentials are impeccable, yeah. That was actually in 2016, the one where Irina Ilyukhina, she got 43 bites, the next year in 2017 the winner got more than 150 bites, she was nine years old. What? Her social service has been informed about this. Well according to the local newspaper in Russia, they said that the nine year old winner did not even move her eyes because she wanted to not just have the most bites but also be the most patient.
+
+[00:03:16] Oh, isn't that cute? All right, no, there's no prize for that, is there? Jesus. And what's with the berry picking, it seems like it's just an excuse to get small children to harvest berries for free and then you lure them in with the temptation of getting... With the promise of repeatedly being bitten. Exactly. But it's a three day festival, they all know why they're there, there's lots of different
+
+[00:03:39] things. What, there are more events? There's more events, yeah, you've got the other events include most horrible mosquito squeak contest, I actually don't know how a mosquito squeaks, I've just realised. Very, very high pitched, so you almost can't hear it. You have heard it, they go... Dude, I always thought that was the wings, that's them, them just going... Oh, that is the wings.
+
+[00:04:01] Oh, it is the wings, okay. They squeak with their wings. I'm not just going around going... That's what I thought. And they have a few more things they have, they have mosquito legs competition to see who has the legs most like a mosquito. Okay. I don't think that means having six of them.
+
+[00:04:21] Spindley. Spindley, yeah, it's like knobbly knees, they have a comedy song competition where you have to make a comedy song about mosquitoes and they have a thing called Games of Winners, which are sports competitions for children who have overcome serious illnesses. Right. Very serious and noble last one on top of two ridiculous contests. I should have finished with the funny one, shouldn't I? Apparently mosquito legs is just a thing, so they have other competitions like this around
+
+[00:04:49] the world. In Texas, they have a similar mosquito festival in Clute and they have a mosquito legs competition as well, separate for children and adults and the organisers are called the SWAT team. Very good. But yeah, other weird festivals. Yeah. There's a vaguely similar festival, the Bee Wearing Festival in the Hunan province in China, a festival where you wear bees, which is, I would say...
+
+[00:05:12] What do you mean by wearing bees? Oh, like having a bee beard, we talked about that. Exactly. And you do it by hanging the queen bee next to your face, basically. Oh, that would have been. Another little bee cage. Yeah, and so they have a festival to see who can wear the most bees and it's pretty impressive. And the winner was Wang Dalin of the most recent one.
+
+[00:05:28] He got 27 kilos of bees to sit on his body. Sorry, sorry, can I just stop you as well? Wang Dalin, did you say that? Yeah. Dalin doesn't feel like a very... It's not Wang Dalin. He's not related to the Dalin family of Peter Pan, I don't think. Dalin.
+
+[00:05:45] Dalin. I got it. Sorry, Dalin. Anyway, he got 27 kilos of bees to sit on it. Sorry, I just love that there are people in China going, all right, Dalin. All right, Dalin, how are you doing? Anyway, you're only allowed to wear shorts and the rest of you are naked, except for some goggles and plugs up the nose, so that's permitted.
+
+[00:06:05] So are they not worried about any of the other orifices, like ears, I'm thinking, like an eye? Yeah, I think we've mentioned before the most painful place to get stung is inside your nose, right? So maybe you're only allowed, maybe you're given one plug. They say, you know, you put this where you choose. Yeah. It's a one nostril, I mean.
+
+[00:06:22] One nostril. Save one nostril. Right. Wow. So I wonder at what point when you're wearing so many bees that you keel over, that you're weighed down. Because 20 kilos is pretty heavy. Yeah.
+
+[00:06:34] It's like... Yeah, I guess that's... I mean, they are sort of flying. I'm not sure the extent to which they are sustaining keep themselves up, for sure. Opposite question, then. At what point do you levitate when you have many bees? Maybe that's what they're trying to do. There's a festival in Portugal in a town called Amarante, which I really like, and it's a
+
+[00:06:54] romantic festival, and it all centres around unmarried young people exchanging phallic cakes. And it's a really charming thing. The whole town gets involved. You know, these grandmothers will be selling these massive Willy cakes stuffed with cream as well. It's all really suggestive. And they were...
+
+[00:07:12] This festival is a very... It's quite an old one, but it was banned under the days of the dictatorship in Portugal. And the cakes were kind of driven underground. But they were... I think they were secretly traded. And then in 1974 they had a revolution, and then they were liberated from not being able to openly sell... When they were driven underground, was it like the Reformation?
+
+[00:07:33] Did you have sort of priest holes, like cake holes, where you retreat in your house, and you do a little cake sermon, do we know, or did it just disappear? I don't know. Maybe it hasn't been written down because it's too secret still, but they are sold year round now. So it's kind of been untethered from their original... Really? So in Portugal, you can get, instead of hot cross buns, you get penises?
+
+[00:07:57] No. Well, you can get... As in you used to only be able to get a Willy cake at the right time of year, like a hot cross bun, but now, in an arguable step forwards, you can get a hot cross bun or a penis cake all the time. It's good. I like the idea of a phallus untethered from its origins. I think if you...
+
+[00:08:16] If you attach enough bees to it. I was reading about a festival which happened in Mexico. It's called San Juan de la Vega, and it's been going for 300 years, and this is a festival where locals will attach a homemade explosive to the head of their sledgehammer, and then they will wap it into the road and let it explode in front of them, and people will watch that. And the article I read said, because there's so many people saying, do you think we should stop the explosives on the sledgehammer slamming to the road, bit of the festival?
+
+[00:08:49] And they say, absolutely not, 300 years. And then the same article from 2020, they said, 43 people were injured this year. Wow. Yeah. So it's got a high... Every year. High injury rate, yeah. Is that in honour of something?
+
+[00:09:02] Did some saint explode? Yeah. No, no, it was. There was someone who was supposedly the Robin Hood of this area. In fact, the town is named after this person. I don't think they exploded. I should have read it really, the article further. No, no, the mystery is better.
+
+[00:09:23] How far do you think you could throw an uncooked sausage? Straight from the freezer, or is it...? No, I think it's malleable, so it's been defrosted, but it is wrapped in plastic, so you've got, you know. So, is it different to a cooked sausage? Yes, OK. Someone in the audience leapt right in there. The voice of experience feels like it's speaking from the audience.
+
+[00:09:46] I reckon I could throw one into the circle from here. All right. Do it! Do it! Let's all get the sausage we keep on our pocket out. Everyone. What do you think? We're just carrying raw sausages around with us.
+
+[00:10:02] I reckon around 40 yards. 40 yards. 120 feet, pretty good. I said 17 metres. Sorry, I don't know why I'm giving such a thought through the answers. Yards and answering metres. Dan, do you want to throw in furlongs, maybe? Yeah, yeah.
+
+[00:10:19] That's what makes us nice and comparable. 20 leagues. Great. Well, I'll tell you, the record for throwing a standard raw at the Harwich Essex Sausage Festival is 171 feet, which I think is very good. What did I say I could do? You said 120 feet. Not bad.
+
+[00:10:37] That's held by a man called Todd Rothwell, just to give him his due, and that was apparently thrown under perfect conditions. There was... Was the wit, like, wind-assisted? I don't know about prevailing wind, but the previous record was about 140 feet, and that was held for years and years, and then he smashed through it. And they take it very seriously, obviously not very seriously, because it's not a very serious thing to do, but it's judged by a proper cricket umpire to prevent any foul
+
+[00:11:00] play, and there are sausage marshals who stand along, you know, sausage alley and observe the throws. Oh, OK. To look for the throw itself. You wouldn't... It's like to stop people walking up to a sausage and then just kicking it another few... I just don't see how, if you're a cricket umpire, that job sort of transfers. I don't see what's special about it, unless there's loads of cheating Australians in
+
+[00:11:23] this spot. I don't... What? Ow! If you rub some sandpaper on the skin of the sausage, it will... Right. Um, guys, we need to move on to our next fact. Ah, um, you can get tornadoes of mosquitoes, you know, that with millions of them.
+
+[00:11:39] This is in Russia as well, in Kotatka, so you can see videos of them online, there's millions and millions of them, and they're going round and round, just like a tornado. And if you walk into them, like, literally, you're going for a second and you're covered from head to toe in mosquitoes, but you'd never get bitten. Do you know why that is? They're... They're... They're dead.
+
+[00:11:59] They're dead? How are they playing? They've been picked up by a tornado. I've got confused. Got it, got it. They're not dead, they're not dead. You're dead. You're just going to get...
+
+[00:12:11] I know you can get this. I... They're all what? They're all males. They're all males. They're all males. Yes. There is...
+
+[00:12:19] There are a few females there, but these are all really, really horny males that are spinning around in a tornado to attract the female in, like, a mating dance. Wow. And eventually, you know, they'll have sex, but in the meantime, if you walk in them, they won't bite you because only females bite. Well, that's so nice. So, not only if they come towards you, will they not bite you, but it sort of means they fancy you, presumably, because...
+
+[00:12:39] I think they'll be disappointed if... I mean, they might see my legs and go, they're mosquito legs. I need to move us on, guys. We need to go on to our next fact. It is time for fact number two, and that is Anna. My fact this week is that pigs used to walk to market wearing woolen socks. Oh. This is pigs when they were being walks to market.
+
+[00:13:05] So they would be drove, drove and driven, you know, like, castle driving, pig driving. It's when people would hire someone to take the animals from their farm and walk them all the way to the nearest market to flog them. And it was a huge deal in Britain until the Industrial Revolution, in Ireland until the Industrial Revolution, in Australia and America after it. But they had to walk huge distances, and you had to present your pigs at the other end in good condition, and so you protected their feet. And to do that, they used to put little socks on them, but with leather soles, so they'd
+
+[00:13:37] keep them warm, protect them, and then they wouldn't graze their hooves on the path, and then they killed them when they got there. I presume they killed a sheep for their wool, maybe not killed, but also the cow for the leather. It's three animals in one, you're getting, for your money. Droving is very cool stuff. I... I...
+
+[00:13:59] No, I... Buckle in. I didn't know about droving at all, or drovers, and it was a career that was very well respected. So I really liked this. In Wales, you would have lots of cattle being driven to market, and they would often walk from Wales to London, and there would be 12 drovers who had 300 cows between them, right? Pretty demanding stuff. The animals which kept the cows in line were corgis.
+
+[00:14:24] That was the original use of the corgis. I'd be horrible. They must have been fucking knackered by this time they got to London. Little legs, I know, but they were low enough to avoid being kicked in the head by a cow, so that was their superpower. Okay, get this. They get to London, the cows are sold, whatever, the humans, drovers, and the corgis would then travel back to Wales, separately.
+
+[00:14:46] The corgis would go a couple of days ahead, because they just knew the way home. No. Who was droving the corgis? Nobody. The Queen. No. Genuinely, nobody, nobody was... What, they just walked back on their own?
+
+[00:14:58] The corgis just remembered their way home. Like a homing pigeon? Like a homing dog, and they were just, like, and the drovers had to prepay the dog's food and accommodation in the pubs along the way. They had nowhere to stop for the night? No. It's true. They don't know which pubs to stop at.
+
+[00:15:16] Look, I read this. I read this. They walk in on two legs in a waistcoat and say, yeah, yeah, you put 200 quid behind the bar. Three corgis in one waistcoat. Is that why there's never any humans in those poker paintings with all the dogs? Absolute nonsense. It's true.
+
+[00:15:33] It's true. Unbelievable. You can believe it. I read that when the drovers would come through the countryside, I read that the noise that they would make was neither shouting, nor calling, nor crying, nor singing, nor hallowing, nor anything else. Oh, sorry. I just didn't say anything.
+
+[00:15:51] No. I think the idea was they would go, like that, just make a whole load of noise, right? And you would hear them coming from miles and miles away, just this holler-balloo of noise. And what would you do if you're a local farmer? You would hide all of your cows and all of your cattle. And the reason being that there were so many of these cattle coming down the road that if your cattle got stuck in there, you'd never get it out again, and they'd end up taking
+
+[00:16:18] it. So, like, a conga line kind of thing, they would just... Yeah, like a conga line. Wow. That's very interesting, because the reason I started reading about this is because my great-great-grandfather was a drover, and we are all, on that side of the family, irritatingly loud and shrill. It all makes sense.
+
+[00:16:36] That's where it came from. What was that noise you made, James? Oh, yeah. Yes, they always had five bottles of wine by that point as well. Some Scottish drovers. This is a cool thing. The diet would be very limited when you're on the road, so their diet would mostly consist of oats, whisky, and onions.
+
+[00:16:52] I don't know the proportion, but, like, there wasn't much variety in the diet. But sometimes they would have a little bonus meal because they would drain some of a cow's blood en route and then mix it with oatmeal to make black pudding. Oh, would they? But then the cow would kind of stay alive, right? They would just do... Yeah. That's quite cool, isn't it?
+
+[00:17:12] It's like... It's almost... It's not vegan, I wouldn't say. But at least you're not... How is your restaurant going, Kate? But at least it's sustainable. It's sustainable, yeah, yeah. I still think the cow's looking at the oat supply dwindling, going, oh, fuck.
+
+[00:17:29] Oh, Jesus. They also... They got quite bored, I think, drovers, on the walk. Yeah. Because it was very slow. Like, pigs could only go about 10 miles a day. And like, pigs are very unwieldy. They were the worst.
+
+[00:17:41] They never stuck together. Every time they saw mud, they rolled around in it. Taking the socks off. I know. You can see it's a pig with three fucking socks on. Well, now we all have to go back, don't we? Because Vinny's lost his sock. Right.
+
+[00:17:56] It was tedious work. Apparently, what they did was they got into knitting, which had the obviously double bonus of being able to knit the pig's new socks. But some of them... There's a really nice description of these huge drovers, because they were the toughest of the tough guys, and they often had a bit of a criminally background. Often were into stealing livestock, sort of alongside the droving.
+
+[00:18:19] And like, quite intimidating guys. And the description of these big, wild, hairy men is how it's described. Definitely knitting away a little hat for their niece at the back of a bunch of cows. So cool. That's really cool. Did you hear about the terrible knitters of Dent? It's a Yorkshire village called Dent, and it was a place which was famed for his knitting.
+
+[00:18:38] People needed to supplement their income, very poor area. So they were called terrible because of how terribly fast they could do it. You know, kind of terrifying. Oh, really? Like, awesome. Oh, God, he made me a shit job. I would say that's quite bad branding. Yeah, it is.
+
+[00:18:51] If you're selling your socks, and you say, these are terrible socks, but by terrible, I mean, I do them terribly quickly. But yeah, all the guys in Dent would knit, and they had a thing called a knitting stick, right, where you stick in your belt, and it kind of anchors the wool. Oh, yeah, yeah. So then you can knit with one hand as you're walking along. Oh, God.
+
+[00:19:09] Some people would knit with one hand and churn butter with the other hand. What? How cool is that? Who's holding the butter pail? You're balancing that on your toes? I don't know. Wow. And the socks that these guys had,
+
+[00:19:22] the other famous thing is that they used to put tar on the feet of geese, didn't they? Yes. That's quite a famous one. So they would take the geese to London from possibly from Norfolk, somewhere like that, and they would put tar and sand on the feet of the geese, and then when they would walk all the way,
+
+[00:19:38] it wouldn't hurt their feet, and they would be much better to sell. On specialist aggregates.com, which I'm not sure whether they're exactly right, but according to them, the current surfaces on roads, which is bitumen and like some little bits of aggregate as well, that directly comes from this putting the tar on the feet of geese.
+
+[00:19:59] That was invented, then this was invented, and then the road was invented. So without the geese having tar boots, we wouldn't have roads today. Wow. No way. Apparently. Yeah.
+
+[00:20:10] According to specialistaggregates.com. A website. I don't even understand the name of it. Hang on a minute. I love it. But it's got the word specialist in it. Yeah, it sounds like they know what they're talking about. They're specialists and they do aggregates.
+
+[00:20:23] That's like, that's big stuff. .com as well. Yeah, yeah. It's not .co.uk or something. Oh, yeah. It's a big dog. It's a big dog of the domains. Yeah.
+
+[00:20:32] So these specialist aggregates are saying, it was only when we saw tar on the feet of geese and realized it wasn't urgent that we thought, let's cover everyone's feet in that way. That's unsustainable. We'll have to peel the tar off every day. Let's just cover the roads in that. That would have been a way more sustainable way for us all to do it.
+
+[00:20:49] No, because you don't want tar on your feet the whole time. You're going out in the morning. You just dip in the tar bath. Like you just tread through that. Like at the entrance of a swimming pool, where you have that little bit to walk through to clean your feet. Yeah. You can just walk through that on the way.
+
+[00:21:00] We never bothered inventing the road, because everyone's wearing their own road on their feet. You'd have to cover all your car in tar, wouldn't you? Yeah. I'm not sure how the wheels actually work. It was tar spray and chip, which is a process that they used on the feet of the geese. And that is exactly the same process as we used to make.
+
+[00:21:19] I'm going to go out on a limb and say, We would have managed the whole tarring roads thing without even the geese. So I'm going to keep eating one at Christmas. I would criticize that. But to be honest, I'm looking for a bit of support for my corgis thing. And I'm willing to say, I buy it.
+
+[00:21:35] Have you guys heard, it's quite a famous pub in Scotland called The Drowers Inn. Yeah, I've stayed in that pub. You've stayed in The Drowers Inn. On my honeymoon, I did. You're kidding. Yeah. Just, I spent the whole time telling my wife
+
+[00:21:45] about the history of droving. Yeah. In between fending off corgis from the door. This is in Loch Loughman in Scotland, right? It's near Loch Loughman. Yeah. So tell me if you experience this. It's a ghost.
+
+[00:21:59] It's one of the most haunted places in... That's why we stayed there. What? Yeah, yeah, yeah. Get out. It's haunted by a ghost drover called Angus. And Angus, so he was killed as part of his droving. His droving group of animals were stolen
+
+[00:22:14] and they supposedly killed him. But there's all these reports from the inn where they say, like someone said that they fell asleep one night and when they woke up in the morning, their camera was sitting in a different spot. Oh, yeah. And then when they looked in the camera, there was all these photos of them sleeping in the bed.
+
+[00:22:28] That's not true. That was when I was there. That's just proof of a pervert. It's not a ghost. What pervert goes in doesn't bring a camera, hoping that someone else has left the camera, takes the photos and then leaves them. A very specialist one.
+
+[00:22:49] That's amazing. Yeah. I saw it. What was he called? Angus. Yeah, I saw him and he said, that thing about geese is definitely true. Any word on the corgis?
+
+[00:23:05] We've got to move on very soon. I've got to think about transporting animals from one place to the other. And I know the four of us know this, but I do love how they often have to transport rhinos in Africa to different places. And the best way that they've worked out to do it is to sedate the rhinos and then carry them, tie up their legs
+
+[00:23:24] and carry them upside down by helicopter and fly them to the destination they go to. So it could be the case that if you're in certain parts of Africa, if you look to the sky, there will be an upside down rhino flying past you. And the article I was reading, they were transporting 10 rhinos. So 10 rhinos were going past in the sky.
+
+[00:23:44] I'm not sure at the same time, but you would have seen 10 rhinos during the day. And one quite nice thing that they do as part of the process is so the rhino is sedated, but they blindfold the rhino because just in case it wakes up mid-trip, they go, What?
+
+[00:24:01] It's just a little sweet touch to make sure at least it's like, oh, okay, some sort of prank is going on. It is amazing. It's not that common. If you do take a safari just to see that, it's not guaranteed. But they tried it with bees first, didn't they?
+
+[00:24:15] But you need too many to lift them up. That's the thing. We need to move on to our next fact, guys. It is time for fact number three, and that is Andy. My fact is that when hosting parties, singer Dean Martin would sometimes ring the police pretending to be an angry neighbor
+
+[00:24:33] so that they would ask his guests to go home instead of him. So good. What a genius. You know what? When you sent this, when you sent this back round, the first thing I thought is, I bet Andy's going to do this.
+
+[00:24:48] 100%. I don't have guests, but... This has been documented in a few places, so it was in a documentary about him, and his son wrote a book about growing up being Dean Martin's son. Dean Martin, an incredibly famous mid-20th century singer, member of the Rat Pack, and he was very reserved.
+
+[00:25:05] Actually, he gave the impression of being a very sociable, heavy drinker, great party guy. He really wasn't. His wife was very sociable, and they would have a lot of parties. And Dean Martin wanted to be up in bed, basically. Yeah, apparently. I read that he often wanted to play golf in the morning
+
+[00:25:20] and so would get an early night, which really endeared me to him. Yeah. This is the kind of guy we like. Yeah. Well, I think he was... We say that he didn't drink that much, and that was the impression.
+
+[00:25:31] We've mentioned on the show before, Dean Martin used to have his own TV show, and he would constantly have a drink in his hand, like a whiskey or something. And actually, it was apple juice, because it was part of his stick that he would be drunk on stage. But he was someone who did drink a lot.
+
+[00:25:44] Like, his license plate to one of his cars was drunky, so it had a Y at the end of it. That's just asking for trouble from the police. Yeah. Well, it definitely did when he had to change it to another car because he crashed that car when he was drink-driving and was arrested. Okay, I'm not saying he never had a drink.
+
+[00:26:00] It's true. But he did. You know, he was a lot more reserved than the impression he gave. And basically, the story is one night that his wife was having yet another party. He was upstairs in his pyjamas just wanting the noise to stop.
+
+[00:26:11] And so he phoned the police and complained, and the police turned up at the door, and they said, look, we're sorry we've had a complaint from the neighbors. It happened again a few weeks later. He phoned the police and put on a voice that I'm a neighbor. His wife started getting suspicious,
+
+[00:26:22] because the neighbors lived about two miles away. They had a big home and a big property, and they were moving that much noise. Anyway, it happened again a few weeks after this. And he phoned up and said, oh, I'm a neighbor of Dean Martin's, and he's having a party. And the police just said,
+
+[00:26:38] okay, Mr. Martin, we'll be right over. He was really reserved. Jean Martin, who was his first wife, she said that when she first met him, it was love at first sight. They got married really quickly. And she said that she'd married him knowing nothing about him.
+
+[00:26:52] And when they divorced 23 years later, she still knew nothing about him. Except that he hated parties. Yeah. I'd say on a personal level, as a kid, I grew up on Dean Martin and Jerry Lewis movies. And he was so cool. Like, as he was part of the Ramp Act,
+
+[00:27:08] which was Frank Sinatra, it was Sammy Davis Jr. They were this group of crooning singers who also acted and had these mafia ties. And they used to do Las Vegas. Cool. But they were seeing that at the time. And Dean was seen as the coolest person within that.
+
+[00:27:24] And part of his cool was that he was just an incredibly lazy guy. So he never used to do rehearsals for the show that he did, which was a weekly show. He would have a stand and do every rehearsal. This was part of his contract, for which he was paid tens of millions.
+
+[00:27:36] And he would just rock up and just do the lines on the night. And then leave before the show is even done to get home, to be boring as fuck, as you pointed out. His producer said, when Dean walks through the studio floor on the morning of the show,
+
+[00:27:49] he doesn't know what he's going to sing, what he's going to say, who the guest stars are going to be. And it reminded me of working with you, Dan. Cool guy. Yeah, cool. Heavy mafia ties is what I'm trying to imply. There's an Italian word for this called
+
+[00:28:07] a menefligismo, which I have probably mispronounced, which basically means, I don't give a damn. I don't give a damnism, which is what he did, which sounded a bit cocky. But he admitted it himself.
+
+[00:28:17] He said, I can just about carry a tune, but I'm not really a good singer. Right. We crew members just get by on being lazy and painless to listen to. This is how lazy he was. He did a movie called The Caddy. And in The Caddy,
+
+[00:28:29] he sang a song that Capital Records said, we want to re-record this because we want to release it. We think it's a hit. And he just went, I don't want to do that. And they were like, please, we think it's a hit. He said, I don't want to do that. So Capital Records just had to go into
+
+[00:28:41] the movies recording that he did, take that and release it. And that song was That's Amore, which went on to be his biggest hit and sold millions of copies. He wasn't interested. When you don't give a shit about your biggest hit,
+
+[00:28:54] that's Amore. I think we're a bit harsh about him being so reserved and anti-social and stuff because I think the reason is, or one of the main reasons, is that he didn't speak any English until he was about five or six years old. He was brought up in an Italian family.
+
+[00:29:14] And so he was never really confident in his English. And when he would have conversations with people who would often feel like he didn't really know what to say and stuff like that. Yeah, that's true. There's another just a nice thing about him, which is, again, a mark of him being reserved, which is he and Frank Sinatra were in Las Vegas
+
+[00:29:30] and they were having a great time. Frank Sinatra was surrounded by foxy ladies at the Blackjack table, whatever. The rest of them were corgis that were stopping along the way. Loader corgis around and Dean Martin went to bed because, as James pointed out, he was playing golf the next morning, wanted to get a good night's sleep.
+
+[00:29:48] The story is that Sinatra gave a call girl a thousand dollars to go upstairs to give Dean a good time. And Dean then gave the call girl two thousand dollars to just go downstairs and say he had been amazing. Was that in the... Could have been in the Sands Hotel, which they were particularly famous for staying here.
+
+[00:30:07] There's just the Rat Pack Hotel that Frank Sinatra and Dean Martin, the rest of the Rat Pack, stayed in. And they caused various scandals there, mostly Frank Sinatra behaving badly, I think. One night he was served mushrooms in his meal and he didn't want mushrooms in his meal, so he tipped the entire meal over his own head, which I quite like.
+
+[00:30:26] And then he started, he chased the waiter into the kitchen shouting, I'm not a fighter, I'm a lover. Terrifying. He obviously doesn't hate mushrooms as much as me, because I can imagine chasing the waiter and stuff, but pouring it over your own head, that would be awful. Yeah, well maybe you'd go one step further.
+
+[00:30:44] You might have done actually what he did, which is eventually get kicked out because he had accrued so many gambling debts that he had to leave. So he climbed onto one of the tables, threw a chair at the casino boss, who then punched him in the face, and then apparently he exited the hotel
+
+[00:31:00] by driving a golf cart through the window. Wow. Sounds like me. So he was a shoplifter as well, wasn't he? And apparently what he would do is he would go to a clothes shop and he would buy loads and loads and loads of stuff, but then he would steal a couple of things.
+
+[00:31:16] And he would be like, well, they don't mind because I'm spending so much money, but he just wanted the thrill of stealing some stuff. When you walk from the till for a bit of a thrill, that's a moray. Yeah. It was less. It was less applause that time.
+
+[00:31:32] I think everyone saw me... Have you ever heard the phrase diminishing returns? Everyone saw me slowly approaching the goal line on that one from a distance. Is he going to get there? Shortlifting would have been a particular challenge for him because he had huge hands. That's better.
+
+[00:31:50] What's better? You can hide the object better. You can conceal small objects in your fist. Yeah, but you can't do it sneakily. Everyone's going to be like, what's that massive hand coming into the pick and mix? He's not stealing pick and mix, you see? I think because you knock a lot of other stuff off and they were quite fat hands.
+
+[00:32:06] I mean, they were wide hands. He was self-conscious enough about them that according to a friend of his, he used to put makeup on them to make them smaller. No, stop. Shade lines, you mean? What are you talking about here? You can't make your hands look smaller with makeup, surely?
+
+[00:32:22] Well, you don't need to, so you've never had to investigate this, Andy. Excuse me. With that wanting to go all Donald Trump here. There's no problem. I don't know. I haven't tried it. If anything, my hands make it look enormous. So, jokes on you.
+
+[00:32:38] I can't see how it was hindering his stealing. How a shade line is going to be like... Who was that guy with the miniscule fingers of a pianist? He didn't wear the makeup to aid his shoplifting career. That's not what I'm claiming.
+
+[00:32:56] I think the wide hands wouldn't help. If you're trying to pick something off a shelf to put in your bag and then you knock 70 and other things off because you have flabby fingers, wafting everywhere, then I think that's a hindrance. But also, his hands, they were quite mangled, weren't they, as well,
+
+[00:33:12] so I think that would be one reason. Yeah, as a late teenager in early 20s. And apparently, he got really badly injured on his hands. According to his obituary in the Guardian, he gave up boxing because his hands were quite mangled, and then he became a card dealer and he gave that up because his hands were on show so much. Right.
+
+[00:33:30] And he didn't want people to see his hands. He was quite embarrassed by them. I wouldn't box someone who had hands the size of a head. That feels like cheating, doesn't it? But if he was wearing strategic makeup on his hands to make them look tiny, then he'd be in the ring. He used to do almost like weird fight club-style fighting.
+
+[00:33:48] But we can't talk about that coming. Yeah, let's move on. But I did read this in one place where in the apartment that he lived in, people would sort of buzz in and they would come up and then him and his flatmates would just beat each other up until one was knocked out and then people would leave
+
+[00:34:04] and then they would just still be in the flat with each other and go, same time tomorrow, what's for dinner? You know, they were flatmates doing it. Yeah, yeah, yeah. You came to watch a boxing match in someone's apartment. That supposedly is a story. I would 100% go to that. The two of my friends said they're going to have a fight.
+
+[00:34:20] Yeah. Having met some of your friends, I actually wouldn't go to see that. I'm afraid. A couple of scratches, some hair pulled and then a couple of teeth. OK, well, we do need to move on
+
+[00:34:38] to our final fact. Anything before we do? He opened the restaurant, didn't he? So basically you had Dean Martin and you had Jerry Lewis, did you say? Yeah, Jerry Lewis. And they were kind of partners in crime and they had all these films.
+
+[00:34:54] Dean Martin was the crooner and Jerry Lewis would always kind of jump in and do a funny thing and he never kind of get to the end of his songs and stuff like that. And then Dean Martin really hated this towards the end. He was kind of a little bit jealous, I would say. The two of them fell out.
+
+[00:35:10] Anyway, Dean Martin started a restaurant and then about maybe half a year later, Jerry Lewis started a restaurant just down the road and stole his head chef and brought him in as a matriot D. And what was brilliant about that is that Dean Martin was really, really cool.
+
+[00:35:26] Like you said, he's a really cool guy. He had all of his wrap pack friends came and it was a really nice ambience. But Jerry Lewis, he just had a massive picture of his face and just loads of gaudy Jerry Lewis stuff everywhere and he ended up losing
+
+[00:35:42] about $300,000. And he only opened it because he wanted to piss off his mate. So it was Jerry Lewis who lost the money. Yeah, yeah, yeah. I ain't not a kick in the head, you know. That's... OK,
+
+[00:35:58] it is time for our final fact of the show and that is James. OK, you haven't heard it yet. OK, my fact this week is that caves in Tasmania include
+
+[00:36:14] Poo Shooter Cave, Itchy Hole, Horrible Accident Cave and Dead Horse Cave which was named because at the bottom of it they found the remains of a cow. I've just got that joke. It's not a joke, it's true.
+
+[00:36:32] It's what happened. They called it Dead Horse Cave even though there was a cow. It's good. Are you doing the subtitles for people who don't get jokes? They're all for me, Anna. They're all for me. A lot of questions but I guess that's
+
+[00:36:48] start with the horse cow confusion. OK, yes, so they found the skeleton and at first they thought it was a horse and it turned out to be a cow. Earlier this month we're doing the T-Series of QI at the moment where we're looking for things beginning with T and I was looking at something called Tachycardia which means like a fast heartbeat
+
+[00:37:04] and I found a place called Tachycardia Cave which is in Tasmania and because when they first went in the people they got a real like shot of a heart almost like a heart type but they were like wow this is amazing. So then I just got into a massive detour about caves in Tasmania and spent about a week
+
+[00:37:20] looking at these things and I found a list of caves and this is just in the Junay-Florentine area in southern Tasmania and it was in a caving magazine from 2006 and there's a guy called Greg Middleton and he listed all of the caves and where all the names came from
+
+[00:37:36] and I love it and I messaged him and he got back to me and he says his database now has 6,955 Australian caves that he's gone and tried to find the etymologies of. Can we read some? Oh yeah, I mean my favourite of all I'll just go straight to my favourite
+
+[00:37:52] which is Hairy Goat Hole Okay and I spoken to this guy Greg Middleton about this and apparently the name Hairy Goat Hole comes from a job which was a Hairy Goat so this was a human who would be this and what you would do is you would walk around
+
+[00:38:08] an area of Tasmania with a pair of shorts on and you would walk and you would just wait so you felt a little bit of air going up your trousers and then when you felt that little tickle it meant there was a cave below you and that's how they used to find caves and they used to call them the Hairy Goat
+
+[00:38:24] and one of the ones that they found was called Hairy Goat Hole I love it, no way I've got a question, these cavers are they the ones who are choosing the name or do some of the caves already have names? It's usually if you've found one you get to name it and it seems to be that they have a board of
+
+[00:38:40] caving experts who are doing this and they meet together and so they write the sort of notes so you have ones that are like called Menage à Trois and the notes will say cave with three tiny entraces no no further details or you have Tosspot the description of why it's called that
+
+[00:38:56] says I took a long time exploring and on emerging from the hole Gavin made the remark gee you took your time what were you doing there having a toss that's why it's called that Is the cave and committee comprised entirely of 13 year old boys? There is another theory
+
+[00:39:12] that that comes from the like they threw a lot of rocks down there and they were tossing rocks down there. Yes there's two reasons for it in the in the spreadsheet Names in Tasmania in general are extraordinary there's a British firm called Strumpshaw Tinkleton and Giggleswick and they
+
+[00:39:28] they are like they're a comedy firm they find interesting and amusing place names for all over the world and so they did Australia and Tasmania recently and they make maps of them so Tasmania has thrush forest mossy nipple bend misery knob funny knob
+
+[00:39:44] creek guys dirty hole the butts the nipples tongue's point it's got an incredible number of really it's weird because it's an absolutely stunning place yeah I don't know what they're trying to do repel tourists it's very weird lovely bottom
+
+[00:40:00] plays up thank you but we are in the middle of a show Dan I had to acknowledge it we were all thinking it I mean lovely bottom is one but of button number of bottoms in Tasmania lovely bottom prickly bottom deep bottom officers bottom broad bottom bottom
+
+[00:40:16] bottom fancy boomers bottom round bottom stumpy's bottom bottom lagoon lake fanny the butts and the but of liberty they're all Tasmania all named after one person also they've got a place called Baghdad
+
+[00:40:32] and Baghdad Baghdad and Tasmania it's only got about 650 people living there but in 2003 a lot of people America invaded job W Bush is like it's around here somewhere cover all the bases
+
+[00:40:48] and they still lost but their website the our website got inundated with people messaging them with sympathy going if there's anything we can do for you you're joking no they did it was reported that they had something like 15,000 hits in the month
+
+[00:41:06] after the invasion of Iraq where they had people mistakening them as the actual Baghdad which doesn't make sense because this is going to the website manager Lorraine Bennett who said you know our number of hits doubled to 15,000 now the town population is 650 I do not believe they were
+
+[00:41:22] getting 7,500 hits before that I thought that as well what an insane what is it Baghdad.com because they might have like got people accidentally it's just it's back down without the age in the middle right so it's felt very slightly differently but and if you mistype it you land up there you think oh Baghdad looks a little different
+
+[00:41:38] how I imagined a major Middle Eastern city would look but okay did they take did they take the money they should have it wasn't it wasn't comic relief it was they people were writing offering help I know it's just support like good luck
+
+[00:41:54] wow and I'm skeptical again because Lorraine Kelly said we're getting messages from everywhere we're getting messages from Yugoslavia sorry Lorraine Kelly Lorraine Bennett you can see how this kind of thing happens
+
+[00:42:10] I did have to check Lorraine Kelly is now getting messages from locals asking about this week in Baghdad in Tasmania are we still having the market sale or are there funny place names in Tasmania if you want to really dig deep if you go to the government
+
+[00:42:28] list of them so it's place names or one word place names.taz.gov.au you can search any name of anywhere in Tasmania and you will get sort of a full list like a really proper official list of when it was discovered when it was named who named it
+
+[00:42:44] there is debates that have happened in various council meetings over the years about whether they should change the name from Tit Valley to Boob Valley or whatever and it's incredible they've gone into the reason for all of these names so Milkshake Hills named due to apparently the similarity of the hills to women's breasts
+
+[00:43:00] okay there's lots of that in the states as well yep but Milkshake Australian women's breasts produce Milkshake another weird thing about Australia there's Trousers Point which apparently commemorates the lucky escape of a certain
+
+[00:43:18] John Burgess who without his trousers escaped from the wreck nearby of the Sarah Anne Blanche in 1871 just so good Mount mismanagement bloke who was naming it left the compass behind got all the way back to base had to go back there
+
+[00:43:34] I love this place in Tasmania and if we ever get back there I want to visit it's called Dewtown D00 town and so this is 79 kilometres south east of Hobart and it was established in the 1830s and it was a sort of timber station which
+
+[00:43:50] eventually has become a shack community so there's a lot of people living there and in 1935 an architect called Eric Round put up this name plate that said Dew I 99 that was just the name of his house then someone next to him saw the dew
+
+[00:44:06] and put do me as their sign and then the next person put a sign saying do us and then slowly everyone just started renaming their places as something to do with dew so if you go to Dewtown now
+
+[00:44:22] which is what it's called you will find houses that are all called didgeridoo you got do nothing doctor do little love me do and do fuck all is the last one there's actually isn't there one house
+
+[00:44:38] that hasn't abided by this and it's called Medhurst and everyone in that town must really hate them it's like come on you've got to do it Susan you sure you don't want to because we're all doing the cool thing and they're all going do it
+
+[00:44:54] that list of places in Tasmania that you were talking about Anna I found one on there which is called hard to find dam it does seem like it's a place according to the website but there's no results on google maps really there's a thing in Tasmania that they started
+
+[00:45:10] doing last year which is enhancing their dual naming policy so basically Tasmanian places had settler names and then started to be giving a range of aboriginal names in the late 19th century because Tasmania has a horrendous history of dealing
+
+[00:45:26] with the aboriginal community there was a time in 1876 where it was close to extinguished where everyone suddenly went shit we should start calling stuff aboriginal names so now there's a policy of renaming a lot of places or giving places two names one would be the aboriginal name
+
+[00:45:42] and one would be the settler name but they were quite random and often had no relation to what the actual place was so they named things like a Marawa which means number one no one knows why Kamuna means venom and Tanina
+
+[00:45:58] Tanina Bluff means to fart no one knows why they used one which was Liowini it means frigid or cold they just randomly gave it that name but they later found out that it is actually the coldest town in the whole of Tasmania we're going to have to wrap up soon guys
+
+[00:46:14] I'm sorry I've got some Irish cave names if you want to hear them ok that is the best reaction that has ever got anywhere in the world Irish caves here we go
+
+[00:46:30] Cockpot Cool Cave Dave's Pot No Name Hole Rubbish Cave and Tory Hole and apparently every year there's a party
+
+[00:46:48] it's on the first it's a work event James they've been incredibly clear basically loads of people flocked to Tory Hole and apparently what happened was many years ago there was a fiddler and the fiddler went inside
+
+[00:47:10] Tory Hole and come on like grab guys it's your own time you're wasting he was never seen again the fiddler and now every year people go to Tory Hole and they can hear music emanating
+
+[00:47:26] from Tory Hole wow I just think it sounds like Boris Johnson's chat up line well fancy a fiddler in Tory Hole yeah music comes out once a year all right all right look
+
+[00:47:42] we need to wrap up that is it that is all of our facts thank you so much for listening if you would like to get in contact with any of us about the things that we have said over the course of this podcast we can be found on our Twitter accounts
+
+[00:47:58] I'm on at Shriverland Andy at Andrew Hunter M James at James Harkin and Anna you can email our podcast at qi.com or you can go to our group account which is at no such thing or you can go to our website
+
+[00:48:14] nosuchthingasafish.com all of our previous episodes are up there do check them out okay that is it thank you so much Dublin that was fucking awesome we had such a fun night and we will see you again sometime too and everyone else
+
+[00:48:30] we'll be back again next week with another podcast we'll see you then bye

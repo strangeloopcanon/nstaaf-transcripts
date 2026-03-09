@@ -1,0 +1,319 @@
+# No Such Thing As A Fish - 175: No Such Thing As A Rice Krispie With Feelings
+
+- Episode date: July 28, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/175-no-such-thing-as-a-rice-krispie-with-feelings
+- Slug: 175-no-such-thing-as-a-rice-krispie-with-feelings
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I'm sitting here with James Harkin, Anna Chazinski and Andrew Hunter Murray and once again we have gathered round the microphones with our four favorite facts from the last seven days and in no particular order here we go starting with you, Andy. My fact is that it takes ten years to learn how to make artificial sushi. To make it well.
+
+[00:00:49] To make it well, sorry. Any mug can just make… Anyone can get some plasticine and make some fake sushi, right? You're absolutely right. Toysushi. Not toysushi, as in, so in Japan there's this amazing tradition where basically all restaurants have their whole menu reproduced in plastic outside the restaurant to lure you in and say how good this looks.
+
+[00:01:12] Like when people, there's a place around the corner from us that is a restaurant and they cook one meal every day and they put it on a table outside and it's just a display meal. Oh yes, a display meal. I always wanted to take that display meal because they put a whole pizza outside and you think why doesn't someone just come along and have this? I don't get it. I'm so close.
+
+[00:01:29] How has someone not got that one? They must be poisoned, right? And there's a glass of wine. They must be. And there's a glass of white wine just sitting there. We're going to take it, guys. You know who you are. Have any of you ever eaten in that restaurant?
+
+[00:01:39] No. Oh yes, I have. I have. That's great. It's kind of just society, isn't it? You just don't steal things? Yeah. I'm not saying it's a bad thing that people don't steal things in general.
+
+[00:01:49] It's a trust exercise. Yeah. But it will go to waste, won't it? It's like taking something out of a bin. And we all do that. I guess. Anyway, this is kind of like the equivalent of high street shops having mannequins in the window displaying their clothes.
+
+[00:02:05] This is just... Apart from all the clothes are fake. Yes. And there's an actual industry devoted to making fake clothes, which no one will ever wear. Yeah, but you might make the clothes out of, say, toilet paper or something instead. Yes. Because it's cheaper and it shows them off. Yeah.
+
+[00:02:21] Or is it not cheaper? It's not cheaper. Why? But there was an economist article all about this and then it turns out this is a massive thing. And because I was in Japan about five years ago and it is true. It's basically every restaurant has this stuff outside it. And the thing is buying these things is really expensive.
+
+[00:02:36] As in the sale price is about 20 times the price of the actual piece of sushi to buy a plastic piece of sushi. But then it lasts a lot longer is the good thing. And you're only buying one. And you're only buying one. But lots of train restaurants just hire them so you can rent a burger for a month for a thousand yen. No way.
+
+[00:02:53] Because getting a whole menu done is because thousands of pounds equivalent of. I was reading that actually a lot of the companies that make these things don't do very well in business because they are so long lasting these things. So once you've sold it to someone, then that bit of sushi lasts 10 years and so they keep going out of business. And so they're trying to sell them to China and to Europe now because everyone's got them in Japan. They should do what Apple do and make them break after two years.
+
+[00:03:15] That's very obvious. Intentional obsolescence or whatever they call it. Yes. Or like football kits, they should make new ones every year, new kind of sushi. So you always have to have the most trendy sushi outside your restaurant. That's what I was thinking. I wonder if there's a plastic sushi sushi chef who's innovating new meals and releasing them and they're going, God, we got to replicate this now.
+
+[00:03:34] Well, they don't they don't really do that because the way they make these plastic imitations is so precise. So get this. They will send a designer to the restaurant where the food is made, who will observe it, take lots of photos of the food, he'll make an architect sketch and then he goes back to the factory and he says, we have to make it precisely like this. And every individual piece is made with a mold. Okay.
+
+[00:03:57] So he makes the mold first and then he visits the restaurant, sees the food, designs the mold, builds the mold and then presses a single amazing piece. So the mold for making a bit of tuna is actually made by pushing a bit of tuna into the machine. They use the fish to make the mold. I believe so. Wow. Surely the fish will get squashed. Yeah.
+
+[00:04:17] That's not going to retain its shape. This is what I read. I agree. I have had sushi once. One more time than you've had McDonald's, right? Yes. But no, it's incredibly precise and 80% of the industry is one set of factories is one company basically.
+
+[00:04:33] Okay. And all the rest is little cottage industries and workshops and artisans around that. So why does it take 10 years to learn how to be a plastic sushi chef? It's very precise and it's a very artistic thing and to make it really good, you know, to be a master, which is about as long as it takes to become a master sushi chef. Does it? So there are people out there who have both spent 10 years of their life. I wonder if at a certain time at culinary school, you have to decide if you're going
+
+[00:04:57] to go into plastics or real. Yeah. There must be a time. Do you reckon it's the best ones who go into plastics or the slightly rubbish ones who don't get very good grades? The thing is they make these plastic vegetables and then they do cut them with real knives. So it's this bizarre proper sheffing mixed with plastic sheffing. And they've been doing it for ages, haven't they?
+
+[00:05:14] So I think it started in about the 1920s and it was because they didn't have menus. And so instead of a menu, you'd have this display of apparently that was easier. I would have thought drawing something on a menu was easier. Yeah, crazy that that came first. They were getting new foods from the West as well. So to explain what these are to your customers, it's easier to have it on display outside because you can see like on a menu, it could be any size, for example. Or as you've had it molded.
+
+[00:05:42] You can put something next to it for perspective. Next to every meal, you could put like a little dog and then you would know how big it was. But that's the thing James. Dogs vary in size, famously. All right. I should have chosen something more standard. Well, a plastic bit of sushi. Just put that next to it.
+
+[00:05:56] And then that will show you next to your tuna sashimi, which is how big your steak is. Just putting plastic sushi next to real sushi to give an impression of the size. No, next to real Western burgers and stuff like that. That would be a good idea, yes. Have we ever said about salmon sashimi? No. The good thing about it is that it's just not at all Japanese and that it was brought to Japan by Norway.
+
+[00:06:17] Oh, really? So people didn't eat salmon sashimi in Japan until the 1980s. And then Norway had a shed load of fish that it couldn't sell and it had to offload. Really wanted to sell out its fishing industry. And they had a meeting with the Japanese and thought, well, this is a country that loves eating fish. And so they started offloading all their fish and selling it to Japan and trying to market it as sushi.
+
+[00:06:37] And even then, so it was in about 1985 that they started eating salmon in Japan. And then it took about 10 years before they started eating it without cooking it. Wow. Isn't that weird? Yeah. Do we know what brought the country to sort of shift the attitude? Norway just kept forcing it down there for it to take it. That is true.
+
+[00:06:53] I think they just had loads of it to sell, didn't they? Yeah. And they just needed a new market for it. Yeah, okay. That is amazing. It's 1995. But I guess, even if you're used to eating raw tuna, it doesn't follow that you should eat raw salmon.
+
+[00:07:05] Because some people eat raw beef, don't they, when you have the steak or chopped up. But if you were to give someone raw chicken or raw pork, all chopped up, it's not a natural thing. No, you're right. Yeah, it's a mad idea, actually. I don't know. You crack a raw egg on top of that. I'd probably give it a try.
+
+[00:07:21] Raw chicken. Yeah. Probably just the once, but... That's true. Actually, sushi isn't quite as old as you might think. Modern sushi, anyway. The first kind of sushi was nare sushi, which is from the third century BC. But that was basically just pickled fish.
+
+[00:07:38] So you put fish in a barrel with some rice and with some vinegar and leave it there for like a year. And then when it came out, it was pickled and, you know, it was edible. But actually, they would also scrape all the rice off. So unlike this kind of sushi that we eat today, they would deliberately get rid of all the rice and only eat the fish part. That's amazing. So did the rice help pickle it?
+
+[00:08:00] It helps the fermentation, yeah, because if you ferment something, you need a carbohydrate to do that. So we're sort of eating the packaging when we eat sushi and rice. Yeah. Did they eventually just get tired of scraping off the rice and a couple of grains of rice stayed on? And then there are a few more grains of rice and then eventually there's a massive lump of rice.
+
+[00:08:18] I think what happened was the next one that came was hand-nare sushi. And that was, they didn't leave it in the barrel for nearly as long. I think they probably got a bit bored of waiting for the sushi. And so they would open the barrel a bit earlier and then they would eat the fish with the rice. My guess is, and this is just a guess, maybe it was a bit more sour, a bit more prickly, so that kind of took the edge off a bit. I don't know.
+
+[00:08:41] I'm guessing as well that they were always eating sashimi with a bowl of rice next to them. They just combined the two as a single meal. And eventually someone dropped one bit into the other and magic happened. Yeah. I think they would have combined it as in they would have dropped sushi on top of their bowl of rice and eaten the two together like we do corn flakes into a bowl and then put milk in it, but you don't sell milk and corn flakes together.
+
+[00:09:06] They should. Exactly. Why don't they? Because they go soggy. They go soggy. Oh my God, it's such a bad idea. Don't do that. You warden about faith in just a second or so.
+
+[00:09:18] Quickest switcheroo I've ever heard. You'd be great on Dragon's Day that night because I'm in, I'm in, I'm in. No. So brilliant. Okay, just while we're on milk and cereal, so I was reading and asking, this is kind of related, it's about how food is represented. There's an amazing Guardian article about the secrets of food photographers because in the West we basically do this.
+
+[00:09:36] We basically make artificial food in order to make it look good, but we're doing it with real food. Like in advertising you mean this stuff? Yes, exactly like that. So strawberries get covered in lipstick. This is all from individual photographers. It's not like these are industry standards, but everyone has their own secret box of tricks. Mexican food is sometimes sprayed with WD-40.
+
+[00:09:57] The milk is almost never real milk when you see a bowl of milk and cereal on a cereal packet. What is it? It can be hair cream. It can be white glue. That's a big thing. And then you just shove the cornflakes into the top of it to make it look delicious. That makes sense.
+
+[00:10:11] Sometimes if you need steam, if you've got a pasta dish and you're steaming in a bowl, one photographer puts incense in there and lets it smoke away and then just remove the incense in post-production. One photographer said she, her method was to microwave wet tampons and then put them behind the pasta so they were steaming. Wow. Is steam particularly on photogenic on its own when it's naturally just hot? Yes, yes it is.
+
+[00:10:39] There must be. There must be a sign. Is milk on photogenic? Well, I mean, this is, I mean, it's quite well known that they do use different things in adverts. Yeah. I didn't know any of those examples, but I think that is quite well known. John Lloyd, for people listening, he's a guy who created QI, he used to do a lot of
+
+[00:10:54] adverts and he used to say that whenever he did a food product like a cereal or something that in between takes, there was someone who would come and sort of move a rice crispy into a better spot of the bowl and like, you know, as if you were doing someone's makeup between takes. Do you remember when China hosted the Olympics and there was that girl who sung the solo, but they put another more attractive girl on the TV for it? Yeah, it's a bit like that, but then it's more serious to do that than to change a rice crispy, I think.
+
+[00:11:21] I guess the rice crispy doesn't mind as much. No one is pretending that this is a photo of a real bowl of rice crispy. Yeah, they are. They are. They are. Actually James, I can't see any difference. Except that rice crispies can't be. They don't have feelings.
+
+[00:11:34] They don't have feelings. They can't be upset. They don't have those faces and those costumes. If you think they don't have feelings, yeah, then the advertising hasn't worked on you, I don't think. That's not what they're trying to do, because if I thought the rice crispies had feelings, I probably wouldn't want to eat them. I think I would enjoy it more as they screamed.
+
+[00:11:54] So on sushi, sushi obviously depends on that seaweed that wraps around it to be maize. And so, do you know basically the person who brought sushi to Japan, who made it a viable commercial product in Japan? No, is it Mr. Nori, because I saw it's called. It wasn't Mr. Nori. Was it Jack O Nori, the Irish? It wasn't that, though, very good suggestion. It was a woman actually who was from Lancashire.
+
+[00:12:18] It was a woman called Kathleen Mary Drew Baker, and she was studying the Welsh equivalent of Nori, which is the Japanese seaweed that wraps around sushi. And in 1949, she discovered that this tiny algae was actually the lava of Nori. And before that, no one in Japan had known how to farm it commercially, because they hadn't been able to work out how to get it to propagate successfully. So in Japan, they loved it. They loved sushi, but they couldn't sell it ever because they would eat little bits of it, but they couldn't farm it.
+
+[00:12:45] And this woman just figured out this random thing. I think she was studying it in Manchester at the time about Welsh seaweed, and they picked up on it, and suddenly it revolutionized sushi, and it meant they had a sushi industry. And they now celebrate her. So she's this woman who no one in this country has heard of, and who never visited Japan, is celebrated there. She's known as Mother of the Sea. There's a festival held in her honor every year in Osaka on April the 14th, and people
+
+[00:13:09] go and they pray to her, and they give offerings, and they sing these special songs that there's thing called the Drew Monument, which is a monument to her. Sounds like it should be a monument to you, Drew. No, well, that's not my name. My name is Lightning. So I don't know why everyone's... Japanese restaurants still don't hire women sushi restaurants. I think most of them don't hire women.
+
+[00:13:27] This is in... we're talking in Japan. In Japan. Yeah. At one time. When I went to it, see that one time. Because one woman was behind the counter. They don't... Why don't they hire women?
+
+[00:13:38] As the chefs. As the chefs, yes. Sorry. So I think there's a superstition in Japan that women's body temperature is too high, or there was a really... I think we don't want to cook that raw fish. Scientific fact. Leave all your touch.
+
+[00:13:52] Good luck running your raw chicken restaurant, then, because that chicken's going to be fried. OK, it is time for fact number two, and that is Anna. My fact is that when Mount Vesuvius erupted, it created mini-volcanoes in some people's heads. And look, this is really... OK, so first of all, it's not... when you say in their heads, you don't mean they're thinking about it and it didn't really happen. No, no, it was very much real.
+
+[00:14:26] This is... I'm talking about the famous eruption in... oh god, 49? 79. Thank you. That's good that I wrote that down. 1979. Yeah, yeah. Wow. It was over by Thatcher's election when, but it happened.
+
+[00:14:39] So this is the eruption of Vesuvius in 79, 80, and it's the fact that I read about this in a review of a book called Caesar's Last Breath, which has just come out. It's by someone called Sam Keane, and it's about the history and the science of air. Yes. Sorry, I think we all pause because I think that's a familiar name. Yeah, he's written a book that we've got called The Disappearing Spoon, I believe. That's it, yeah. It's really good chemistry.
+
+[00:15:02] Yeah, he's a great author, yeah. This sounds incredible, and I've ordered it, and so he wrote about this, and he said that when Vesuvius erupted, the heat made a hole in some people's skulls, and then because of the pressure and the heat, the water in people's brains started to boil, and then all the chemicals and substances in their brain started to boil, and they turn into a gas, and then they were ejected out of the little holes in their skulls. So they had these holes in their skulls that were ejecting steam and other chemicals, and it's really gruesome, but it was 2,000 years ago, guys, so I think we can laugh about it.
+
+[00:15:32] It's amazing. It's really grim. It's really grim. I know, but it's extraordinary, right? Because, like, what did it do? The heat burnt through the air, just through the skull, boiled and created a mini volcano erupting out of the people who were being killed by the volcano. That's insane.
+
+[00:15:50] It sounds like, you know, in a cartoon, when someone gets really mad. Yes. Yes, and smoke comes out of their ears, usually, but if they got really mad, maybe it would just burst out of their skulls. Or it sounds like someone's microwave to tampon and put it in their ears. But, yeah, that's it. I've never heard anything remotely like that happening. It's weird, and I just love the fact that he's obviously made that.
+
+[00:16:13] So it was all Sam Keane saying, it created mini volcanoes. It's not a real volcano, because it's not magma. It's not magma. No. And they're not large geological formations, but it did make people's heads steam. It made them explode, didn't it, let's be honest. It made them explode, yeah. Sorry, because there are lots of different stages, aren't there, of the explosion.
+
+[00:16:31] So there was, you know, part of it, people were being buried in ash, and then part of it, is this when the pyroclastic flow hit? This would be when it was at its hottest, so yes. I think it was a combination of that sudden heat and the sudden pressure difference. Yeah. Yeah, crazy. And so, this year, interestingly, scientists have pieced together bits of a skull that was blown up in this way.
+
+[00:16:53] Wow. And they've got all the bits together, and they've put it through a computer system, and they've managed to get a picture of the guy what he would have looked like. Wow. And he just looks like a Mediterranean person who lived around that time, but it's amazing that they can get all the bits of skull that have exploded from a volcano in someone's head, and then see what they look like. That's incredible.
+
+[00:17:12] Because presumably, with the explosion, it would have gone off into various places, so you'd have to be, like, mixed-matching, yeah, jigsawing. It's like Funny Bones, that children's book. It's like the adult version of that children's book. Yeah. Do you know how they defended themselves in the initial stages? What do you mean? In the initial stages of the eruption.
+
+[00:17:32] Oh, yeah. So, we're talking about, are we talking about rocks falling from the sky, or are we talking about... Yeah, there had been earthquakes for a few days, and then there was a huge explosion in the mountain, and a mushroom cloud went up something like 20,000 metres. So, there were little stones rattling around onto the ground, and people tied pillows onto their heads and walked around like that.
+
+[00:17:52] Anyway. Yeah. That was how they defended themselves. Do you know what that big mushroom cloud, those big plumes, are called to volcanologists? What? They are called plinians. Oh, really? After Pliny?
+
+[00:18:07] Yeah, which Pliny, though? The elder. No, so the elder famously died when he was so curious. The younger? He got into a boat. The younger. Yeah. There was only one other...
+
+[00:18:18] The older, older. Pliny the younger. So, he described the eruption when he was watching it as well. So, it wasn't even just Pliny the Elder, who was trying to describe it. Pliny the Younger was back on land going, I'm going to describe this as well. He saw the giant plumes of smoke that were erupting around it.
+
+[00:18:34] He called them umbrella pines, and that's been lost, but as a tribute to him naming it, it's been Plinyan. No way. It's amazing. Isn't it amazing that 2,000 years later, he's still Pliny the Younger?
+
+[00:18:47] He's not graduated. But younger doesn't matter how old you are, you're still younger. It doesn't mean you're young just because you're younger. That's true. He's a big rock, isn't it? He's knocking on a bit now. He should change his name to Dadrock now, shouldn't he?
+
+[00:19:00] LAUGHTER Do you know what the clouds are called? The clouds of pollution that form around volcanoes. So, obviously, a lot of sulfur dioxide and lots of other gases come out of it, and they react with the moisture in the air and with the oxygen and the debris, and they form this, if it's daylight,
+
+[00:19:18] they form this big cloud that you can't really see through. And it's called a Vogue. A Vogue. What is that? A volcano fog? Well, as Wikipedia says, it's a portmanteau of volcano fog and smog. So, I don't know which one the O comes from. The O is from fog.
+
+[00:19:32] Is the O from fog? OK, the G. So, the G is from smog. Yeah, they call it that in Hawaii, I think. OK. Yeah, as in they'll say, there's a lot of fog out there because it happens relatively regularly.
+
+[00:19:44] Really? Yeah, I think so. It's a bit of a foggy day. Have you got your fog lights on? They think that Pompeii had a one-way traffic system. Oh, really? Yeah. Based on the wheel ruts and the arrangement of it.
+
+[00:19:58] I just think it's amazing that you can know that there was a one-way traffic system 2,000 years ago. Yeah. So, I've been to Pompeii. I went last year. Have you been to Pompeii, James? I went to a sushi restaurant once.
+
+[00:20:12] I don't have to go on about it. If you've not been to Pompeii and you are listening to this podcast right now, definitely go. It is genuinely the most exciting archaeological thing I've ever seen in my life. It feels like time travel because everything is still there, including the people, which is mad.
+
+[00:20:28] You just walk around and there's this body of a person who was there on the day that it happened. You don't see that anywhere else. So, it's pretty amazing. The day that we went, I went with my wife, Finella, and she was really ill. So, she took a lot of Lemsip and she had a lot of coffee, and it was boiling hot.
+
+[00:20:44] And she started hallucinating. Here's another tip. You can't afford LSD. Lemsip and coffee and heat. That's what you need to do. And it was crazy because there was all these dead bodies around, obviously. And so, she was going nuts over it. You don't see the actual bodies, though, do you?
+
+[00:20:58] You do, yeah. They're in the pottery section. They're not plasticasts of the bodies, I think. So, what's happened is, the people get buried, and then they rot away. And then there's a hole where the body used to be. And then the way that they get them is they pour concrete or something into it,
+
+[00:21:14] and then they pull it out as a cast of a person. Oh, I thought that that was them. You should have really read some of the information plaques while you were in Pompeii, Dan. I tell you what, I did read an information plaque. I was stuck on it for ages, and then I realised Pompeii doesn't have information plaques.
+
+[00:21:30] And what I was reading was three different translations for how to use the recycling bin. That was... So, there are really few household objects left behind. And it's partly because people had 18 hours between eruption and the arrival of the huge hot cloud. So, most people had left and taking whatever they could carry with them.
+
+[00:21:51] But also the reason there's nothing there is that people returned, as soon as it was all over, dug down, you know, into the ruins and nicked what they could. And some of them fell in and died. So, some of the bodies are those of looters whose tunnels collapsed. Wow.
+
+[00:22:08] There's a German prince who made a replica of Vesuvius. So, this is in the 18th century. It was in 1794, and there was this guy called Prince Leopold, the third Friedrich Franz. And he took... It sounds German. It's the most German name you could have. And Prince Leopold went travelling round Europe,
+
+[00:22:28] and he visited Vesuvius and thought, well, that's very impressive, this volcano they've got. I'm going to build one when I get back home. And he got back home and he built something that he called the Stone Island of Verlitz in the countryside near Berlin. And it was a five-story high
+
+[00:22:44] kind of brick and stone building that he covered in all these boulders, so it looked like a volcano. And then he built a cone at the peak of it, and he put three fireplaces inside this, like, hollowed-out comb. And then he made this crater and he filled it with water
+
+[00:23:00] and he erected some red lamps. And then, when he set the fires and tipped out the water, the red lamps illuminated the water, looked like lava running down his fake mountain, and him and his mates used to get together with some booze of an evening, and then they used to light the fires
+
+[00:23:16] and set off a volcano and watch Vesuvius erupt. Wow. That's quite cool. I got one last thing, which is from Pompeii. It's just to give a bit of insight into the type of people that live there, because it's hard to kind of picture their day-to-day activities. They discovered, in the ruins,
+
+[00:23:32] graffiti that's just remained on walls of various places. It's a message to make out the full sentences of, one reads, if you're going to fight, get out. And that's written on the side of a tavern wall that they had. Another reads, I don't care about your pregnancy, Sylvilla, I despise it.
+
+[00:23:48] That's a private message. I don't know how, because it would have been on a wall. That's a PM for a female. That's a PM for a female. Wall, I am amazed you haven't fallen into ruin since you bear the tedious scribblings of so many writers, and that was found at four different walls there.
+
+[00:24:04] That's funny, that's like you get where people write on toilet walls, isn't it? They write stuff like that. Well, the final one is a bit of a toilet wall. It's a... It's a motus. You suck well, and that was found at a brothel. Well, good you kept yourself busy
+
+[00:24:20] while you were there, Dan. I can't believe Finella let you have a pen. OK, it is time for fact number three, and that is James. OK, my fact this week is that the first bendy straws were used by people in hospital. And why?
+
+[00:24:43] Well... I mean, there's a more convenient way to drink a drink, I guess, but why just in hospital? You've just answered your own question, Anna. It's that, isn't it? It is. So I just kind of like this, because I associate bendy straws more with fun times and parties and stuff,
+
+[00:24:59] but the guy who invented them, the first place that he managed to sell them was to a hospital. And like you say, it's so that people who are kind of lying down or not quite vertical can drink more easily. Because before that, they would always drink out of glass straws. Glass?
+
+[00:25:15] Oh, wow. Yeah. And that comes with a risk? Yeah, but you're in a hospital, so... That's true. It only comes with a risk to the extent that drinking out of a glass glass comes with a risk. Anything that also comes with a risk.
+
+[00:25:31] You never drink out of beakers, don't you? Yeah, I have tippy cups. I don't know what a tippy cup is. Is that one of those things that a kid has with two handles on either side, and they kind of suck? Yeah, it's got two handles and it's got a little spout. And also, it's amazing, because you can tilt it upside down
+
+[00:25:47] and none of it falls out even through the little spout. It's like suckling on a breast. That's why my kitchen cabinet's full of them, James. So I've been reading about the plastic straw apocalypse. So that's kind of why I wanted to talk about straws, because we should all stop bloody using them. Right.
+
+[00:26:03] And our grandchildren won't have heard of them ever, will they? What's happened? They made a plastic, mate. So is...Sushi. I know. But plastic can damage the environment, and the thing with straws is usually if you're in a bar or whatever, you get a straw,
+
+[00:26:19] you kind of throw it away. It's mixed in with all the detritus and glass and whatever, and it's really hard to kind of try and take it out so you can recycle it. So no one recycles it. So the problem is they're not being recycled. And what do you do? You have it for like, what, 30 seconds?
+
+[00:26:35] And how long does it take you to drink a gin and tonic? But you have it only for like 10 minutes or whatever. Do you mean when I strawpedo them? So 80% of the time it takes about a second. And sometimes they give you two straws. Yes. Completely pointless. Do you want a stat, Dan?
+
+[00:26:51] Can I just also just quickly say that plastic is bad for the planet? I was more trying to work out why. And that makes sense, because we do. I always throw straws just into anywhere. Pigeons. You're always buying packets of straws and chucking them about.
+
+[00:27:07] Stats, please, Andy. Americans use 500 million straws a day. Wow. Only about 300 million Americans. So some people are having a couple of straws. It's more than one each. And the total number used a day, you know, comparison.
+
+[00:27:24] It would fill 125 yellow American school buses each day, full of straws. That's more than a mile long queue of American yellow school buses. And there's no children in them. They're all full of straws. Each day, each day. It's a complete waste of buses.
+
+[00:27:41] That is a waste of buses. You have to make the buses to keep the straws in. Exactly. We can't carry on like this. I mean, the thing is, if we recycled them, maybe it wouldn't be so bad, but no one ever does. And they're just completely pointless. Although I said this to you the other day, Anna,
+
+[00:27:57] and you said you quite like a straw with a gin and tonic. I need straws, and I always ask for them if they don't give them to me and my gin and tonic. Otherwise, the ice gets in the way of the liquid, and so I push it too hard towards my mouth, and the liquid goes all down my front. So I do actually need straws, but I'm not averse to like glass or metal or something.
+
+[00:28:13] Would you be happy to have your own personal straw which you carry around with you? I'd love that. I could get my initial engraved on it or something. My personal straws in the future. I think that's a really good call. Yeah, you could kind of have it hanging off your belt. Like people used to have with a knife. No one used to have a knife draw.
+
+[00:28:29] You'd just have a knife which you hung by your side. For dinner, or like croc dundee style. For dinner. You know the one that you're carrying around, would it be metal or would it be made of plastic? It'll be a metal one. Otherwise, you can't really engrave in plastic. And then you can use it for an emergency tracheotomy.
+
+[00:28:45] Everyone will always have one. Yeah, perfect. So in other plastic news, plastic recycling news, the bad thing about a lot of plastics is they end up in the ocean, right? We should say, and they choke various animals. I think you were saying that straws specifically go up turtles' noses, don't they?
+
+[00:29:01] Well, when Dan's around, they do, yeah. When he can't find any pigeons. That does happen. And a couple of years ago, there was a video of one being extricated from a turtle's nose. And that was kind of the impetus that started this whole kind of, we need to stop. Having straws.
+
+[00:29:17] Yeah. If you're in a bar, by the way, not if you're in a bar, but if you run a bar, get rid of your straws. And if you're listening to this podcast in a bar, talk to someone. But more importantly, throw away your straw. Actually, all bar one are banning them, aren't they?
+
+[00:29:33] Yes, good for them. So I think you won't be able to get plastic straws in all bar one very shortly, because of this very reason. And are they going to have no replacement? Yeah, people are just expected to drink stuff straight from the glass, which I agree is a travesty. Yeah.
+
+[00:29:49] What are your feelings on crazy straws? Oh, are they the funny, windy ones you get for birthday presents for your kids? Yeah, love them. Well, because you don't usually throw those away. Those are keepers. They're solid, they're hard plastic. I was reading about crazy straws online,
+
+[00:30:05] because they believe deeply that it's more than just a straw, that it's a philosophy. I was read an interview by the guy who invented the crazy straw glasses. You know the one where you... Yeah, classic. He said that
+
+[00:30:21] we say it's a metaphor for life. Take extra time to go on a winding country road as opposed to the highway. That's how he sees the crazy straw industry. It's not only are you buying something more long term, but you are experiencing the drink in a more philosophical fashion.
+
+[00:30:37] It's taking the scenic route. It's the Buddha of straws. It reminds me a bit of... You know that magazine that you get and the delayed gratification? Yes. Which you get the news like three months later. It's a bit like that, because you're drinking your Coca-Cola or whatever, and there's a few seconds
+
+[00:30:53] when it's not quite got to your mouth yet. Yeah, that's true. You can kind of imagine what you're going to taste. We did it as a quote on QI in the very early episodes. Stephen Fry quotes from James Bond saying the best martini of the day was the one just before the first one.
+
+[00:31:09] It's the anticipation. It's the taste just for... By the way, mentioning delayed gratification, Andy got his latest copy the other day. Can you quickly mention this? It came with a letter saying, you probably have noticed this issue of delayed gratification has got to you a bit late.
+
+[00:31:25] None of the news is from before, I think, March. You think the letter would be apologising if it came early? So, do you know, Dan, what's the longest length of straw
+
+[00:31:45] that you could drink out of? If I put, say, a can of beer on the floor, and I gave you as long a straw as you wanted, but you had to suck from the top of it, what is the tallest it could be? I'm going to say two floors. That's a lot.
+
+[00:32:01] Two floors, so how many metres are you saying? So that door is two metres. Oh, OK. I'll say 16 metres. The floors, I'm talking about, have a very high ceiling. Oh, yeah, because you live in Versailles, don't you? Yeah.
+
+[00:32:19] I mean, guys, do you think it's less or more than 16 metres? Or maybe there's an infinite amount. I think it's going to be less than that. So I guess you need to have enough to be making a vacuum in the straw that the water fills up to fill. Can I breathe in?
+
+[00:32:35] I think I can breathe in long enough to suck in three metres' worth of air towards me. No, put up. Yeah, but the difference is with the straw, you can pause, you can take breaks. As in, if I was sucking on the straw, I could put my thumb over the straw and it will hang there. That's not going to lose it.
+
+[00:32:51] I can then re-suck. Yeah, but once you've got all the air out of the straw, surely you can't remove more if there's a complete vacuum in the straw, right? I'm going to go on the route here. So if you had a perfect vacuum sucking up, that's the best sucking you can do.
+
+[00:33:07] You can't do any better than that. And to get, if you're on earth, so you have to pull it up against the atmospheric pressure, the highest is about 10 metres. If you had a vacuum, a perfect one, so obviously humans couldn't do any more than that. 10 metres is cool. That's still high enough
+
+[00:33:23] that I could be on the second floor of a building and get someone to deliver a drink to my door and pour my straw out and drink it. It does. The reason that that's kind of interesting or kind of important is because if you've got a mine and you want to suck the water out of the mine
+
+[00:33:39] so people can go down and dig for rocks or whatever, you can only suck it up to 10 metres. So anything lower than that, you need to do some pushing as well as sucking, which means you need an engine, which is why in the Industrial Revolution you had all these people who were inventing engines like water and nukemen and people like that
+
+[00:33:55] because they needed to get this stuff up there without... No matter how wide the straw, 10 metres is the limit. That is really interesting. So you think, here's the next question that you were just about to ask Dan. How do trees suck up water
+
+[00:34:11] from the roots to the top of the trees? I was just thinking about it. I was saying a xylem in a plant must work like this. Can we work it out? Is it possible to be worked out? Well, this kind of thing is always the same answer. The butler did it. Capillary action.
+
+[00:34:27] Oh, OK. So if you get a really, really, really thin straw kind of thing, then there's another force that kind of sucks it up there. And there's also the cohesion of water, which means water molecules kind of pull on each other because they have surface tension. Oh, yes, because they're hydro... That is amazing. So if the straw is thin enough,
+
+[00:34:45] it can be longer than 10 metres, is what we're saying. If it's super, super thin. So like one of those tiny ones that you do get in a bar. Like liquid out of those tiny ones, I think. Which is why they give you two? I always thought they were just for show, like off a steering, which is why I think
+
+[00:35:01] they should get bloody rid of them. I'm very excited that we might launch an anti-straw revolution. Big straw is going to come after us. But the big straw can't be more than 10 metres or something. All we need to do is go on to the third floor of a building. OK, it is time for our final fact of the show. And that is my fact. My fact this week is that
+
+[00:35:20] bomb detectors in America work 16 times better when they are fitted with a fake dog nose on the end. This is such a silly fact. But it's real. I know, I know. It's astonishing, isn't it? But it's amazing. Yeah, so they basically
+
+[00:35:36] tested this out in America. They 3D printed out the bomb detectors. They 3D printed out the nostril of a dog and they stuck it on to the end of a bomb detector. And they use the methods by which bomb detecting dogs
+
+[00:35:52] use when they're sniffing for bombs. So a usual bomb detector will sort of take in a bunch of air and it'll analyse it. Dogs do quick sniffs. So they did that with this fake nose as well. They did these quick sniffs. And as a result, they found that it produced results that were
+
+[00:36:08] 16 times better by having the weird nasal structure of a dog on the end of their bomb detectors. I didn't quite realise this about how dogs sniff and how they take in air that they exhale in a completely different place to where they inhale, don't they?
+
+[00:36:24] What? So they could probably play really long notes on a trumpet. Or didgeridoo. They'd be amazing at didgeridoos. The way dogs breathe is that they inhale through their nostrils on the front of their nose. But if you look
+
+[00:36:40] at any dog's nose, you would have seen if you've got a dog, they've got these slits down the side of their nose and that's where they exhale. So if you looked at a picture of a dog now... What? I'm actually just going to show you. No way. Just super quickly, you would have seen it on every dog. I've never seen a dog that much.
+
+[00:36:56] All dogs have different noses though. They've all got this same nose. Like a pug has a different nose to a... They've all got dog noses though, haven't they? Do they? It's like a human nose. I'm going to look for a variety of dog noses. OK, OK.
+
+[00:37:12] Right, so here you go. Look at that. All dog noses have this here and then that slit there. OK, Anna is not lying. We can confirm. All dog noses have this slit and they've got this thing called an alar fold or an alar fold in their nose and they inhale air and then they pull the fold
+
+[00:37:28] down so the air can't come back out the way it went in and they exhale it out of the slit and that makes their sense of smell better because it kind of stops the air from being exhaled down the same channel that they're trying to breathe in more sense. So it stops it all getting mixed up together. It means they can smell all the incoming air
+
+[00:37:44] more intensely and in a more concentrated way. So that explains why this bomb detector kind of stuff works, right? Because it means that they're just passing loads and loads of air over it rather than bringing the same stuff in and blowing it out again. That is the most surprising thing I've learned today. I was really surprised I didn't ever think about that
+
+[00:38:00] or even noticed that slit in a dog's nose. Yeah. I was reading in Australia they have dogs that sniff out koalas. So there's like, for example, there's one dog who in 2014, I think it was called Maya was trained specifically to cover a 480 hectare
+
+[00:38:18] bit of land in order to map out where all the koalas were. However, she was not trained to smell out koalas themselves. She was trained to smell out their feces. So she would not disrupt the koalas and get into, I guess, any fights or scare them or whatever. She was just looking
+
+[00:38:34] for the poo. So her nostrils were trained specifically just for the feces as opposed to the koala. This year there's another dog in Australia that's been put into the same kind of role and he is a dog called Bear. And so Bear is also sniffing out koalas. Who calls a dog Bear?
+
+[00:38:50] Yeah, I know. It's confusing. One that's looking for bears as well. Oh, yeah, and he's looking for bears. Yeah, it's very confusing. Yeah. Do you object to that? I do. Yeah, okay. I mean, you're sat right here so it's hard to say it to your face
+
+[00:39:06] because it's a stupid name. Wait, he went for it. You actually didn't even feel like you found it that hard. Yeah, but you can't just say that all dogs should be called dog. I don't think I was saying that. The way of inventing
+
+[00:39:22] that's why we have names is to differentiate things. James isn't saying we call dogs dog. I think there's a bit of a straw man argument going on here. I'm just saying that you should give it a name which is not another animal. But what do you object to them
+
+[00:39:38] being given human names like Fred? Because I do object to that. I think it's lying about the fact that this is a dog. It's not lying. I think it is a lie. First of all, the secret slit and now it turns like you're not even a human. I think there should be an approved list
+
+[00:39:54] of dog names called Rover and Fido and that's more or less it. I think you should be able to pick from list of ten dog names. You don't need that many, do you? So humans need lots of names because you go into lots of different social situations
+
+[00:40:10] where you need to know someone's name. Most dogs are with their owner the whole time. I know, but if you're in a park and you go Rover and the entire parks where are the dogs? It would only be a maximum of one in ten of the dogs called Rover. That's not how probability works.
+
+[00:40:26] It wouldn't be a maximum of one in ten of the dogs called Rover. It would be a maximum of all of them obviously, but the ultimate thing would be the very slim. There is a chance of it being none of them of us. That relies on your dog having left the park
+
+[00:40:42] and there being no other dog in the park called Rover, which is also a possibility. So anyway, what the hell are we talking about? Bear has the civility, right? So check out the slits on Bear. He can sniff out not only
+
+[00:41:00] a koala, so he's been trained not to sniff out the feces. He's been trained to sniff out the hair of a koala bear, but the malted hair of a koala bear and fresh malted hair. So he's specifically going for a hair that is not attached to a koala
+
+[00:41:16] just so he's still... I didn't know that hair smell different when it wasn't attached to you than when it was attached to you. Another thing that dogs are really good at doing is separating smells, so they've got a smell filing system in their noses. So what they might be doing
+
+[00:41:32] is smelling that there's hair, but without the smell of the flesh of a koala. Yes, yeah, yeah. Because they've got this mucus in their nose and the reason that their nose is a wet, what it helps them do is file away the smells into different parts and molecules travel through the mucus faster
+
+[00:41:48] than others, so it knows that the first molecule that gets to it, the bit that actually smells is likely to be poo, whereas the second molecule that gets through is likely to be beef, and if a molecule takes ages it might be grass or something. So if you have pooey beef, it knows that it's pooey beef because it's gone through both of those.
+
+[00:42:04] Precisely. Whereas if it only gets the first smell that hits, it's just poo. It's like an and or decision gate in a kind of a computer, right? So you're saying that it can get the hair and then gets a live koala. Yeah. But if it only gets one of those two,
+
+[00:42:20] it knows that it's just the hair or just the shaved koala. Did you know that blood towns who have an amazing sense of smell smell with their ears? No, stop it. Yeah. My dog has no nose. How does he smell?
+
+[00:42:40] That's how the joke should be told. True. This is actually a bit of a stretch, but... This is the old Tuschinski special. So it's something ridiculous and they're backtracks immediately. Well, what they do is they've got these really long ears
+
+[00:42:56] blood towns and you'll notice that their ears are placed further down their heads than most dogs and they also have really, really droopy jowls and really lots of wrinkles and what these all do is they trap sense and their ears are supposed to drag along the ground so their ears goop up lots of smells
+
+[00:43:12] and then they get flicked and carried in the wrinkles of their skin because they're so flabby and up to their nose. So their ears there to drag along the ground and pick up smells for them. I think that's not far off, is it? That's so close. How long does it take for them to smell something then?
+
+[00:43:28] I guess sometimes it would take a while and then you've lost where the smell was. I have one thing about bomb disposal. It's just a headline from a local newspaper. This is the Bristol Post. The headline is, Bomb Disposal Squad called to Western Supermer Beach only to find a really big plate.
+
+[00:43:48] There's a bloke who found something metal on the beach who started digging it up and it was huge and he thought, oh god, this might be something really serious and so he reburied it, phoned the Bomb Disposal Squad, they arrived. That was a plate. Who's taking such a huge plate to the beach? It's like a platter for sandwiches maybe.
+
+[00:44:04] Yeah, yeah, yeah. It looks like the top of a mine. Completely, yeah, yeah. It's not a crazy decision to make. But with hindsight, it turns out to have been funny. Okay, that is it. That is all our facts. Thank you so much for listening.
+
+[00:44:26] If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James and Shazinsky. You can email podcast at qi.com. Yep, where you can go to our group account, which is at qipodcast, or you can go to our website.
+
+[00:44:42] No such thing as a fish.com. We have links to the tickets for our upcoming tour up there. You can get a link to the book that we're releasing in November called Book of the Year and you can also get our new mug. But the big thing that we hope you join us for is next Monday, Facebook Live.
+
+[00:44:58] We will be dissecting this episode, talking about all the facts that we didn't manage to get in and please, if you were thinking of anything you wanted to add to this episode, bring it to the Facebook Live and put it in the comment bar and we will talk about it. So that's Mondays. Go to our Facebook page to see the exact time.
+
+[00:45:14] We'll see you there and see you again next week with another episode. Goodbye.

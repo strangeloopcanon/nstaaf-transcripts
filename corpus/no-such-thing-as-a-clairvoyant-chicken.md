@@ -1,0 +1,189 @@
+# No Such Thing As A Fish - No Such Thing As A Clairvoyant Chicken
+
+- Episode date: October 30, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-clairvoyant-chicken
+- Slug: no-such-thing-as-a-clairvoyant-chicken
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. No, seriously. It's in the Oxford Dictionary of Underwater Life. He says it right there. First paragraph, No Such Thing is a Fish. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast.
+
+[00:00:22] Coming to you from the QI offices in Covert Garden. My name is Dan Schreiber. I'm sitting here with James Harkin, Andy Murray and Anna Chazinsk. and once again we have gathered around the microphone with our four favorite and spooky facts from the last seven days. For this, our Halloween special and in no particular order, here we go. Okay, fact number one, Andy. My fact is that until the year 635 AD, Halloween was on the 12th of May. Why was it on the 12th of May and why did we change it?
+
+[00:00:58] Well, it's only really on the 12th of May because Halloween is the day before All Saints Day. Yeah. I was under the impression that that was the 1st of November. Yes. Well, basically Halloween is part of the All Hallowed Tide Festival. That's three days, which is All Hallows Eve, which we call Halloween, All Hallows Day, or All Saints Day, and All Souls Day. It was introduced in 609 AD, but it was on the 13th of May, and everyone would travel to Rome and do pilgrimages there. But in 835, Gregory the 4th, who was then the Pope, said that it should become the 1st of November.
+
+[00:01:27] and we're not really sure why. There is a theory that it was because it was sort of a way of adopting other religions or other traditional rights and folding them into the church. Because there already was a kind of a middle of autumn festival. Yeah, it's called Sowan, and it was the festival of the beginning of winter, and there was a lot of death around in the air, and that's what people saw it. Also, autumn is just a spookier time. Spring isn't a spooky time, that's when life starts to happen, and the sun's coming out.
+
+[00:01:55] Except that. Autumn's spooky? Well, when people used to visit Rome, there is a theory that it was moved to autumn because when so many people visited Rome, everyone got malaria, which is itself quite a spooky, zombie-like thing to happen to all the cords of pilgrims. But it used to be, because obviously we've transformed it into a time of the undead and all that stuff. It wasn't really about the uned. Was it as spooky back then? Yeah. So that might be why it might have been nice in May.
+
+[00:02:21] Yeah. There are amazing Halloween traditions, which sort of evolved from the whole Remember the Dead thing. So trick or treating came from solding. It was originally not just children. It was poor people and children. You would go door to door praying for people, dead people, in exchange for cake. I've heard some other ideas about where trick or treat came from. Yeah, me too.
+
+[00:02:39] That's debate. All right. So here's one. For instance, they had mischief night in Leeds and Bradford in Yorkshire. And the children would go around causing trouble and the authorities would just let them off. And they say it's no but mischief Nate. Oh, okay. There was also a thing called Hop to Nah in the Isle of Man
+
+[00:02:58] And that had people wandering around Armed with bits of turnip Singing in Manx and demanding cash And the idea is that these guys From like Yorkshire or Isle of Man or Ireland or Scotland It all gone over to America During the you know Whenever that was
+
+[00:03:16] And that's they brought it there And then it's come back over here That's one theory behind Trick or Treat Well I thought it was a I think it was originally a German tradition, but it was popular in Pennsylvania and Dutch communities in America, up until the early 20th century. There are first-hand accounts of it, and it's called bell-snickling, which I think it should be because it's just a good name. But it was a Christmas tradition,
+
+[00:03:37] and it happened on Christmas Eve, but it's so similar. So basically, the teenagers of the community would dress up as various different characters, fictional characters, and they'd go around kids' houses and they'd scare the kids, and the kids would have to guess what they were dressed up as, and if they guessed right, they got a sweet. So basically, there's lots of different things. theories to trick or trees. It's probably just something that builds up all over the world. Like, it's an obvious thing, isn't it? One night, a year you go a bit crazy. Yeah, like the purge that movie. Like the movie The Purge. So bobbing for apples is Halloween tradition now, obviously. It seems like it should be more
+
+[00:04:10] of a Valentine's Day tradition. So it was a way of people selecting a future husband. So each apple would be dropped in water and assigned a man's name. And then a bunch of women would rock up, plunge their faces into the water, and the apple that they bit. If they bit the apple the first time, then they'd marry the man and live happily ever after. If they bit the apple successfully the second time, then he would court her, but their love would fade. And if they bit the apple the third time, the relationship was doomed. But it used to be that. Is it called bobbing for apples because the name of the men you might marry would be Bob? It was always Bob, yeah. Only people called Bob could attend. All apples were called Bob.
+
+[00:04:45] It sounds like swinging, you know, when you throw your car keys into a hat, but with more commitment. Yeah. Yeah. It feels like. It's weird because Halloween has turned in these days into a scaremongering time where everyone thinks bobbing for apples were filled with razor blades and... Oh, yeah.
+
+[00:05:03] That's a big scare, wasn't it? It was a big scare, yeah, yeah. And just general, you know, like you've got to watch out now and it's not safe to be on the streets. That portends badly for the relationship, doesn't it? If the apple you've bobbed into, the man's name is full of razor blades that pierce your mouth. But I got it first time, so I'm sure the marriage. she'll be successful.
+
+[00:05:22] Have you guys heard of a singer called Keisha? Yes. Spelt with a dollar sign in her name. Okay, cool, because I read something about her, but I just wanted to check people have heard of her. I hadn't. She has a song called Supernatural.
+
+[00:05:32] Do you know what that's about? Ghosts. It's about her having sex with a ghost, her experience having sex with ghosts, which she does on a semi-regular basis, apparently. She once had to go to a hypnotherapist who told her that she had dead people
+
+[00:05:46] living in her body and specifically in her nether region, and so she had to have her vagina exercised. Sorry, that's exal size. Exal size, yeah. It's not true. It's on Keisha's new DVD following the footsteps of Davina McCall. There's a word for someone for the ghosts that has sex with people, but I can't remember what it is.
+
+[00:06:07] Sucubus. Sucubus, yeah. Or an incubus. Are they the female and male versions? Yeah. Yeah. That happens in Ghostbusters. Yes.
+
+[00:06:15] Is it? Yeah, yeah. I saw a bus yesterday, which had ghost bus tours written on it. it, which I think is an amazingly good way of doing it because they do ghost bus tours. It's better than calling it, suck your boss. Just quickly on the night terrors and being assaulted by ghosts in your sleep, there's a folklorist David Hufford who estimates that 15% of people will experience that at some point in their lives.
+
+[00:06:41] So don't, genuinely, don't feel bad if you've had it. It's perfectly normal. There's one thing where you're kind of just kind of on the verge of waking up or on the verge of going to sleep and your consciousness comes back but your body's still asleep and so you can't really sit up and you kind of get a bit of a terror that you can't sit up I think that's quite a common thing yeah it is and people believe that it's like people believe it's a devil that they're being held down by ghost yeah because the consciousness has come back before the body is woken up properly that's right wow I had that uni it's absolutely terrifying yeah so do you know what the
+
+[00:07:12] number one Halloween costume is uh what is the most popular uh a witch still yeah what I thought it was going to be something really surprising. Like, it's actually... Isn't that surprising? Yeah, but I thought it would be like, I don't know, a superhero costume. Like Spider-Man. There's a list online of the most popular ones, isn't there? In America, this is.
+
+[00:07:28] And there are 7 million children dress as witches in America this year, they think. And there's going to be 5.8 million princesses, which is the second most. But how's that scary? Yeah. There's a theory that the costumes comes from this tradition, which is in the Middle Ages, where churches would display their relics for all-Hallows Eve and all-Hallow's day. but if they didn't have any, they would let the parishioners dress up as the saints instead. Oh, how cool is that?
+
+[00:07:52] Which saint would you dress up as, Ani? Um, I don't know, St Jerome. Oh, yeah? What did he look like? I don't know. If I dress up as St. Martin of Tor, would I be allowed to do what he did, which was he went around exercising people, and one of the ways he did that was to push his hand down their throat and push the spirit out of their anus? Oh, he's going the wrong way about it if he's trying to exercise Keisha, isn't he? Apparently there's a quote which is something like the spirit left a muddy, filthy trail behind it has it left.
+
+[00:08:29] Okay, time for fact number two, and that is my fact. My fact this week is that witches used broomsticks to put hallucinogenic drugs up their bums. What? Turns out that a lot of historians suggest that the imagery itself is actually representative of what they were going through. which is that they used to do hallucinogenic drugs. And the tripping and the flying that they used to do was actually fly to the mind. It was stuff going on inside their head. And it was all just one big drug trip.
+
+[00:08:57] Which is insane. A drug called Dator, a European drug that you could get, which was a hallucinogenic. And they just used to go through their mental landscape. And the flying bit of it is just representative of what they were going through in their heads. I suppose that's more logical than them actually flying. What about the broom? Well, okay. The broom was a way of applying the datura drug, which it was an application device for the bum.
+
+[00:09:26] Oh, wow. A suppository. A suppository. So all the imagery that you see is not them flying on a broom. It is using the broom as a suppository for the drug. A guy called Jordan de Bergamo in the 15th century, who was one of the guys who wrote about it, said, they anointed the staff and then anointed themselves. under the arms or in other hairy places.
+
+[00:09:50] Which is another way one could refer to it. Yeah, exactly what you meant. Yeah, so I just like that. I like that because everyone dresses up as a witch and they have an impression of why they're dressing up as it and it turns out there's a whole different connotation to what they're... So do we think this is definitely true about the broomstick car? Because there must be some other theories about why they have...
+
+[00:10:07] Yeah, I... So I found this out via a ethnologist called Wade Davis. Oh, yeah. He's a guy who's made extraordinary adventures. He's written great books. was just a passage inside this book. The book was actually about zombies on a trip that he did to Haiti. He went to five separate villages and in those villages, they all used the same combinations of thing to create this thing where people were cited as being supposedly being zombies.
+
+[00:10:32] So his idea is that he did discover what makes zombies in Haiti and it's this potion. I like the idea on potions that, so I was reading about in 16th century Spain, this physician. He raided a house basically, which was occupied. by what they thought was witches and he confiscated from it a pot full of a certain green ointment composed of herbs such as hemlock, nightshade, henbane and mandrake
+
+[00:10:57] from home of a couple of keys of witchcraft. And I just like the idea that's the 16th century drugs raid is you said, the doctor who's going, well, I've got some mandrake, some hemlock under the bed. The first woman in Germany to run a post office was burned as a witch? Oh, was she?
+
+[00:11:13] Was it for running a post office? No, it was for raising the price of stamps? No, she was called Katerina Hennot, or Heno, and no, she was just a big member of the community, and then she got accused to be in a witch, as they often did, and then she was burned, unfortunately. Some extraordinary number of witches or alleged witches who were killed in Europe in the 15th to 18th centuries. Is it 50,000? Yeah, something like that. But like the Salem witch trials, that basically came as just someone accusing someone else,
+
+[00:11:43] and then it went bigger and bigger and bigger. but it ended when the wife of the mayor or something like that got accused of being a witch and then suddenly the mayor went oh this is all rubbish you guys stop it but until then the authorities are kind of agreed to it all and then as soon as like one of the wives of the main guys in the town was accused then suddenly they were like nope no no yep definitely not true bloody politicians they're still in papua new guinea there's still a tradition of kind of hunting down witches and accusing people of witchcraft and that's mainly focused on men at the moment apparently, has quite a heavy focus on men.
+
+[00:12:16] Yeah. And also, when I was reading about this, I learned the difference between witchcraft and sorcery, which does make total sense. But what would you guess it was? Men and women. No, witchcraft is something that you are born with, that you have a gift inside you. And sorcery, you can learn. So we could all be sorcerers, but only I am a witch. One way of finding out if someone was a witch in Africa was administering poison to
+
+[00:12:38] a chicken, they're mentioning the name of a suspected witch. If the chicken dies, then the suspect is a witch. Which it might be because the suspects is a witch or it might be because you've just poisoned it Wow that's a stacked legal system you've got there Yeah In the 19th century there was a chicken that kept on laying eggs saying that Christ was coming in the end of the world was nigh And everyone got really panicked by this for a while it was and so it was written on the eggs and eventually a guy went to investigate it and it turned out that it was being written on the eggs and then they were being shoved back up inside this poor chicken It was being forced to lay them again
+
+[00:13:12] Insuricism Have you heard of witch bottles? You would bury them. This was in the 16th and 17th centuries. You would bury them to ward off witches, basically. And you would fill up an ordinary bottle with hair and urine and pins. And that was the person you wanted to protect. You would put their urine in.
+
+[00:13:34] And it would throw any spell they cast back on you. And they keep finding these things buried all over the place. That's weird, isn't it? Because that's almost like a spell in its stealth, isn't it? Yeah, kind of exactly. doing your own little bit of witchcraft to get rid of the witch, which kind of makes you a witch as well. I don't know. It's a never-ending cycle.
+
+[00:13:49] Eventually, we'll all be witches. Yeah. Pins are quite important to witches. They use them a lot in their spells. The Pender Witches, who are from my neck of the woods, they were found to be witches because one of them went to town to try and procure some pins because they needed them for the spells. Asked this guy for some pins. He said no.
+
+[00:14:10] He walked away. She swore at him. or something, he then had a stroke or a heart attack and they thought that she'd caused it. And then that's why they all got caught and then hanged for being a witch. Oh, really? Brum's traditionally used in marriage ceremonies
+
+[00:14:25] in a lot of cultures because one end represents the phallic kind of male end and one end is the bristly female end. But also, the youngest person to get a patent on something is a little boy who's got a patent on a double-headed broomstick and it's Sam Hoffton of Bucksson in Darbashire. He was three years old when he came up with it And by chance his father was a patent lawyer
+
+[00:14:46] So Okay, time from fact number three And that is Chazinski Yeah, my fact is that the woman who played the voice of Reagan In The Exorcist Only agreed to play the part on the grounds That she have two priests in her sound booth at all times Could be constantly drinking whiskey,
+
+[00:15:07] chain smoking cigarettes and eating raw eggs Coincidentally, very similar to Anna's rider for all much thing as a fish recording sessions. We just haven't mentioned Gregori and Samuel. Haydian boys. Obviously she had a majorly raspy, angry voice in there.
+
+[00:15:24] But why the priests? Well, because she decided that, yeah, as you say, she wanted to do the whiskey and the cigarettes and the raw eggs because she thought that would give her the right voice. But she was an alcoholic and she was dry. Was she also addicted to raw eggs and priests? She was, yeah.
+
+[00:15:41] So she thought the priest should. monitor her because to make sure that she wasn't falling off the wagon in the process of drinking the whiskey oh they weren't there to kind of exercise any demons well that's what i thought i thought presumably it was because of spiritual so i've read both but the either the director or the producer i can't remember who just had an interview where he said that it was because she was an alcoholic but then i have also read that it might be because she wanted to make sure no evil spirits got into her while she was playing the part but yeah warner brothers who were talking about last week failed to credit her for voicing her and the exorcist well it sounded
+
+[00:16:10] like from what I read she didn't want to be credited initially because she just saw I'm just doing a voicing and it was such a popular movie in fact I think still to this day it was the highest grossing film of the time that they that Warner Brothers had I think adjusted for inflation yeah adjusted for inflation that was the highest grossing film that they had so I think as soon as that happened she suddenly wanted to be credited oh yeah you know the scene where the girl's neck spins around and snaps back into place yeah that sort of sound of her neck and like creaking around it was actually made by the director's wallet. He had an cracked leather wallet
+
+[00:16:44] and he just sort of twisted it around near the microphone and that made this extraordinary creepy sound. I just love the idea that he's such a cheap skate that whenever he opens his wallet it makes his creaky sound. And the shot of the cobwebs close up that was inside there.
+
+[00:16:58] He used to, the director used to, in order to achieve the requisite levels of fear on the faces of the actors used to fire guns during filming at certain points. He just fired a blank. I could never take. hell if this stuff is true when you read this about movies. He was interviewed.
+
+[00:17:13] Yeah, I know, but like... Okay, in Scream, Drew Barrymore, this is the opening scene in Scream, if you remember the movie, where she's chased and she becomes the first victim of the villain. Apparently, in order to keep her scared on set, Wes Craven would go around telling her stories of animals being harmed because she loved animals,
+
+[00:17:32] and that would put the fear in her. It's like, no, she's an actor. She knows how to act scared. It's kind of insulting, into the actors a little bit, isn't it? It's like, oh, you can't do a scared face, I'm going to have to pretend to shoot you. Yeah. Yeah. So in Alien, the famous, spoiler alert, chest bursting scene, the actors weren't told about it beforehand. And I think, I've read a bit more, I think they were told, but not in detail. They weren't told exactly how horrible it was going to be. And they did use four
+
+[00:17:58] cameras for the take, so they got to see the real sort of horror on the face of the actors reacting. Well, there's another one in the Alien movie, which is that they needed a shot of a cat looking scared. apparently it wasn't scary enough for someone in an alien costume to be there. So what they had was they had a screen down with the cat sitting there as the cameras filming it, lifted the screen and there was a dog sitting there. And they didn't tell the cat that there was going to be a dog. That's kind of insulting to the cat saying that he can't act properly. Yeah, it's true.
+
+[00:18:24] The Exorcist wouldn't have been written if it weren't for Groucho Marx, I don't think. Who wrote it? Yeah. Yeah, a little known fact. Actually, the guy who did write it had only ever written comedy before and then wrote the exist. but so he's called William Blatty and he went on this show called You Bet Your Life which was hosted by Bradshaw Marks
+
+[00:18:44] and he won $10,000 which allowed him to take some time off more gruelling work and write the exorcist That's great Harper Lee who wrote to Kill a Mockingbird worked on an airline booking desk or maybe she was sort of managing an airline booking outfit and then she was given a sabbatical by her employers and that's when she wrote to Kill a Mockingbird
+
+[00:19:05] Wasn't Kafka just a clerk and then he just used to go home and write and stuff like that. I always love that idea of these great writers actually doing other normal jobs. Yeah, writing in their spare time. There's a thing in the latest fact book we've just done, which is that there are 500 references to Jeffrey Chaucer in his lifetime, which is a huge number for someone living at that time. Not one of them says that he's a writer. He's a spy, wasn't he, or something?
+
+[00:19:27] Really? I think so. Oh, he's a good one, then. I did not get that. You haven't read the spy's tale. Jack Nicholson was a firefighter and in The Shining when there's that really famous scene in The Shining if you've seen it where he has to hack down the door with an axe
+
+[00:19:43] The props guys originally made a prop door that was really easy to hack down And because even a firefighter he hacked it down too easily So they had to get an actual door put in for him to hack down Because he was too supermanly and strong Wow That's cool What a cool guy I have a thing about E.T
+
+[00:19:58] E. E.T was originally conceived of as a horror movie Was it? Yeah It was after Close Encounters of the third kind. Spielberg wanted to do more alien stuff. But he wanted to do something darker and more threatening than close encounters. And so he commissioned a script, and it featured aliens who could kill you just with one long bony finger. Remember E.T's finger?
+
+[00:20:17] And they made a load of prototypes of the models of it. And they basically looked like evil ETs. You know how in Gremlins, the bad mogwis look a bit like the good one. That's basically... And then did they realize that Drew Burymore was incapable of doing the requisite scared face? So they had to change it. So Stephen Spielberg came in and said, animals are being attacked.
+
+[00:20:38] Yeah. Can I tell you one quick thing about exorcisms? Please do. I know we've got to move on shortly. So this is the thing. The Catholic Church still has five or six hundred exorcists, official ones. One of them,
+
+[00:20:49] Gabriel Amorth is the kingpin of them. He's supposedly done 100,000. He used to do 20 a day. 20 a day. Yeah, but they do they. That's a lot, isn't it? You can rattle through them quite fast. They're easier than you think.
+
+[00:20:59] Yeah. No. They are. True. Brand, the comedian, she used to do them. Really? Yeah. Katie Brand used to be a part of a church and one of the things that she used to do was
+
+[00:21:09] demon exercising. Did she do the hand down the throat version or was it? I think it was more. What do you have? I think you just bell, book and candle. Yeah, I think also it's a lot of yelling like the power of Christ compels you. It's that sort of stuff and people are talking in tongues and yeah.
+
+[00:21:24] St. Hilarion used to could exercise up to 400 people at the same time so I think you can do them ensemble. They feel very good. She also once exercised a camel. It's amazing. So I just wanted to tell you one thing I found from an article about these exorcism conferences the church has. During the conference, the Reverend Caesar Trucui, an exorcist based in Switzerland, recounted one experience he had aboard a Swiss air flight. Two lesbians, he said, had sat behind him on the plane.
+
+[00:21:48] Soon afterwards, he said he felt Satan's presence. As he silently sought to repel the evil spirit through prayer, one of the women, he said, began growling demonically and threw chocolates at his head. Typical demon behavior. asked how he knew the woman was possessed. He said, once you hear a satanic growl, you never forget it. It's like smelling margarita pizza
+
+[00:22:09] for the first time. It's something you never forget. Margarita pizza. Do you know what the first ever horror film was? Oh, yeah. It was in 1890. No, it wasn't. It was before that.
+
+[00:22:22] It was a George Melius movie. It was like two minutes long, wasn't it? Yeah, it was about two minutes long. And he followed it up with another movie. So it was cool, I think the first one was called the haunted castle. Yeah. The second one was three minutes long and everyone said, no, they've gone overboard this. Yeah.
+
+[00:22:39] I thought I can't take it. So the second movie, this was the plot. A man tries to go to sleep but is disturbed by a giant bug climbing up the bed onto his wall. He attacks the bug with a broom and disposes of it in a chamber pot in a compartment of his bedside table. And that was it. That's the second horror movie ever made. Third horror movie ever made was a remaking of the haunted hotel by George Relyer. by another group of people.
+
+[00:23:03] That's amazing. Yeah. And Nosferatu, that was the first version of Dracula, but the first movie to have the name Dracula on it was in the, I believe in the 20s. They did this really interesting thing where they made Dracula in the daytime, the English version, and a Spanish film crew came in at night used all the same sets and made a Spanish version of Dracula. So they made it in tandem, which seems like a really great idea.
+
+[00:23:27] They were using the same sets, but they were using totally different. But also, it means that the whole of the British one has to be set during the daytime, which is probably not when Dracula only came out at night. It doesn't get out much in that version. So, yeah, exactly. That version of it, it's just a guy. He keeps intimating that he has a secret at night, but we never see what it is. The actor who played him Bella Lagosie.
+
+[00:23:47] Oh, yeah. But he was buried in the cape that he wore in the Dracula movie. Was he? Yeah. It's just a nice little... He was the first time anyway. Okay, time for the final fact of the show. James.
+
+[00:24:04] Okay, my fact is that the secret of youth is drinking youngsters blood. Great thing to be condoning on our podcast. We should also mention that next to Anna's two priests are some youngsters for James. I'm worried. Open brackets, if you're a mouse, close brackets. And they're also mice. Sorry, I should have said. So these are some studies done quite recently where they've transplanted young mice blood
+
+[00:24:30] into older mice and they've reversed some of the signs of aging in these mice. What signs? They stop being racist and stuff? That's amazing. That's really incredible. No, it is amazing. They're not quite sure why. They think there might be some compounds in there which help you.
+
+[00:24:48] But it's like muscle mass. It's the brain tissue. It's all sorts of all sorts of things. Wow. Probably won't work in humans just for a disclaimer. But worth a try. Is that because of the ethics committee? Yeah.
+
+[00:25:03] Yeah. Well, I mean, you couldn't really do it, could you? But I don't think there's any evidence that it works in humans. Very good. I'll do it. Yeah? You're younger than me. Yep.
+
+[00:25:11] Oh, no, damn. Remember there was the theory that the Queen mother was constantly having... No, I've not heard that theory. Get out. Of course you've heard that. No, I really haven't. Dan, remember, we move in different circles to you. No, there was the big...
+
+[00:25:23] Dan moves in different crop circles to us. It was the big thing that the Queen, uh... The Queen Mother, the reason she was able to stay old and alive, alive being the main one, was that she used to have blood of the young. I don't know. I've genuinely never heard that. I know. I don't think any normal people have.
+
+[00:25:44] Well, the Queen Mother, there is a headline from the Telegraph. Queen Mother has given eight-hour blood transfusion, which is when she was 101. But it was to help her recover from anemia, which she had. She wasn't personally biting into the necks of youngsters. Yeah, it was a medical procedure. You're looking on the wrong site, mate, because Davidike.com clearly says... People did used to try blood transfusions doctors, didn't they, before it was in any way a safe or sensible thing to do and for weird stuff.
+
+[00:26:12] Like, I think Louis the 14th personal physician, Jean-Baptiste Deney used to do blood transfusions to various people for various things, infused the same guy with calf's blood twice because he was suffering from a mental illness. and he had various symptoms after this like vomiting, passing black urine, etc. But for some reason he agreed to a third attempt, at which point he died from the blood transfusion because obviously it was incredibly unsafe in those days. And they didn't know about blood types and stuff.
+
+[00:26:41] No, no. But it turned out, so then he was accused of killing the guy and then they've tested his blood since, the guy who died, and it's turned out that he was poisoned by arsenic, probably murdered by his wife, who obviously saw an opportunity. I'll probably get this blamed on that doctor.
+
+[00:26:56] man. Yeah, yeah, yeah. The first documented case of any kind of transfusion was by Pope Innocent the 8th. He was a 15th century Pope. He was supposedly given the blood of three 10-year-old boys, but he took it by mouth. He didn't transfuse it into his blood. He drank the blood. Yeah, and also, it's not that maybe it's not true, and it's just like anti-papal hysteria.
+
+[00:27:19] But that's the first written evidence we have of anyone taking someone else's blood. Love his name, Pope Innocent. Yeah. Making a suggestion. That's not an anti-papal name, is it? Pope Guilty, they called him. In really witty circles. Yeah, I do mix in those witty circles.
+
+[00:27:37] James is a joke writer for the Protestant society. I read a bit more about this mouse experiment. Oh, yeah. So the young mice that they did the experiment with were three months old, and the elderly mice were 18 months old. I just think that's quite sweet. Yeah, completely to crap it. But they, I mean, they did it partly by stitching together their circulatory systems.
+
+[00:27:59] Yeah. Which is an extraordinary idea. And then after the experiment, the mice who had been treated, the elderly mice had been treated, remembered how to find a hidden resting platform in a water maze better than the control group. And this is the maze that they use for mice these days. I don't know if you know this. It's not like the Hampton Court maze anymore. It's a lot smaller these days.
+
+[00:28:19] Yeah. It's just way too big. No, but the standard mouse test these days is either a T-shape or a Y shape, or it's a tub of milky water with a platform hidden somewhere under the surface. And they put the mouse in, and it has to swim desperately around until it can find the platform. Sounds easy. It sounds easy. It sounds easy.
+
+[00:28:40] It sounds easy than Hampton Court. It's much easier than Hampton Court. We're smaller, yeah. Anyway, animals that drink blood, a tick can drink 600 times its own body weight in blood. in one sitting. And so its back blows up to, it looks like a balloon, it's great. Oh, yeah.
+
+[00:28:58] There's also a bird that drinks blood. Vampire finches have evolved in the Galapagos Islands because it's quite tough climate out there for them to survive. And they've worked out that they can peck at the backs of other birds, of booby birds, apparently, and they can get bits of blood out of the world. But the interesting thing is, is that they don't mind. Yeah, they don't. The booby birds just sit there and they're kind of just, mind.
+
+[00:29:20] They think that either they don't really. act because there are a lot of the finches so they might be sworn by the finches so they've worked out that they're going to be killed by them or yeah they're sitting there hating it and they're just saying to each other just leave it just leave it it's not worth it's not worth it's not worth it so this is cool um so while we're on vampire animals um vampire bats obviously well there's the common vampire bat then there's the hairy-legged vampire bat and the white-winged vampire bat and the white-winged one um they feed on birds and mammals um their trick for getting chickens is they will approach a hen and they'll mimic a chick by nuzzling up to her brood patch,
+
+[00:29:56] which is a bit of skin on her underside, which she uses to transfer heat to the eggs as she nests. And the hen sometimes thinks it's her baby cuddling up to her. And so she'll just sit on the bat, which then has all you can eat buffet, because it's managed to trick the hen into thinking that it's a baby. Isn't that freaky? That is. Bedbugs also drink blood, and young bedbugs are trying. So the first meal they have turns them red.
+
+[00:30:24] Oh, really cool, isn't it? I really love that image. Oh, head louse mouthparts are transparent as well. So you can see a little vein of blood going from a scalp into the headlouses. Ooh, that's cool. Yeah, well, I remember in Australia, head lice, you'd always get head lice because you're always in the bush and stuff. The school I went to at least, we're constantly having to have checked. Yeah, we always had headlice in school, but that's because of schools and kids, not the bush.
+
+[00:30:48] Oh, right. But yeah, they are quite seethystworthy. You can see. Yeah. You can see, I remember one falling out of my head once and being like, whoa. Yeah, they were so great. That's a donation of blood. They just walk as well.
+
+[00:30:57] They don't jump. It's normally children playing, and it has to be one head touching another. So if you have a group photo, obviously, they spread like wildfire. But it's close. Also, the idea that they prefer clean hair to dirty hair is just, they just like hair. Oh, do they? Yeah, they're just like a place where they can grab on some hair and drink some blood. They don't care if it's dirty on.
+
+[00:31:14] Right. Sounds like a rumor that was propagated by nine-year-olds. Recalcitrant nine-year-olds. What's weird, though, is that they just stay, exclusively here. They stay in your head hair, whereas pubic lous travel all over the body. You can get them in your eyebrows, you can get them in your eyelashes, but you don't get them in your hair. And they're two separate species, and they don't actually cross over. Very odd. I've been reading a book. It's a book about Paradise, and it says, if you have pubic lice
+
+[00:31:38] in your eyelashes, you've probably done something to deserve that. It's probably been in the bush. That's it. That's all our facts. Thanks so much for listening to our Halloween special. If you want to get in contact with us about the things we've said in this podcast, you can get us all on at QI podcast. Otherwise, you can get us individually on our other Twitter handles. I'm on at Shriverland, Andy, at Andrew Hunter, James, at Eggshaped, Hannah. Can email podcast.com or you can head over to QI.com slash podcast where we have all of our previous episodes up there for you to listen to. Otherwise, we're going to be back again next week with another edition
+
+[00:32:19] of No Such Thing as a Fish. See you that.

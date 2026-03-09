@@ -1,0 +1,253 @@
+# No Such Thing As A Fish - No Such Thing As Notting Mountain
+
+- Episode date: June 2, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-notting-mountain
+- Slug: no-such-thing-as-notting-mountain
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I'm sitting here with Anna Chisinski, Alex Bell, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Chazinski. My fact this week is that the first performance-enhancing drug to be used in baseball was pulverized guinea pig testicles. Polvarized is such a scary word. It's such a good word. Would you prefer them whole, though?
+
+[00:00:47] No, just the word. I pulverized them. I know. I know. They should have just gone with crushed. It's too many syllables. Yeah. So, yeah, the baseball player in question was James Galvin, who was known as James Pud Galvin,
+
+[00:01:01] because I think he's squashed. everyone like puddings maybe. Not that he used to put testicles in his body. It wasn't that, no, because the pudding testicles in his body actually came after the nickname. So he was recruited by this incredible doctor called Charles Edward Brown's saccard, who had come up with this idea and said that he tried it on himself and it had worked, that ground up guinea pig's testicles or dog testicles mixed with blood and injected into a person could reverse the aging process and make someone fitter and healthier.
+
+[00:01:36] And so this baseball player had these testicles injected into himself. And lo and behold, it absolutely smashed the next game he played. Really? Yeah. Did they pick the guinea pig because just of that scientific thing of a guinea pig? As in it's just like that's a thing that you use. Yeah, but that's why they used it is because it's a thing that you use. You're kidding.
+
+[00:01:52] They actually use guinea pigs when they say it's a guinea pig. They used to. I think today it's less than 1% of scientific experiments are done on guinea pigs. But it's just, you know, because some are done on guinea pigs. Today, it's very rare. It's mostly rats and mice. Right. But at the start of the 20th century, mostly it was guinea pigs. And a lot of Nobel Prizes were won by guinea pigs.
+
+[00:02:11] Oh, yes. And erroneously claimed by humans. Yes, exactly. They never got the medals. So there was no tiny podium in the very little one. No, that would be cool. But this guy, what about this guy? This doctor is so great.
+
+[00:02:22] So he was one of the world's true eccentrics. He was a doctor in the 19th century. He was a very well-respected doctor, which is why this treatment was actually taken quite seriously, by some people and it was sold a lot around the country because he is the father of endocrinology, I think people often say. What's an endocrinology? Oh, it's the study of hormones.
+
+[00:02:43] Ah, okay. But he also did some pretty wacky things. So as well as doing this, there was a cholera outbreak in 1853 and he had a new potential cholera treatment he wanted to try. And so he swallowed the vomit of one of his cholera patients in order to contract the disease so that he could test out the potential cure. on himself. Oh my god, one of those guys, yeah. One of those guys. It's a good, like, it'll give you a good work ethic.
+
+[00:03:07] If you give yourself the disease that you then, like, you've got a time limit, that it's a deadline. It's literally a deadline. It's literally a deadline. You're right. I like the way that this guy is one of the eccentrics of that era. Because these days to be an eccentric, you just have to, like, grow a beard and wear a hat. Yeah, and like no socks. Yeah, in those days you used to kind of inject testicles into yourself. Yeah, swallow other people's vomit. I think you trust your doctor who was willing to experiment with their cures on themselves,
+
+[00:03:32] Would you? If he walked into your GP and he's just finishing off a pint of vomit, are you going to go, great, I feel really reassured now. Yes, I'd recommend him to my friends. Another thing he did, he was into testicles. He ate monkey testicles, brown sacard to enhance his sexual prowess, which he said worked very well.
+
+[00:03:53] And actually, so the ground-up guinea pig testicles that he injected into himself, he said they had a number of different effects, so he could lift much heavier, weight, he could run up and down stairs, and he was 72 by this age, so he was barely mobile until he started injecting himself. But also, he said the average length of his urine jet had increased by 25% and it gave him a greater improvement with regard to the expulsion of fecal matters than in any other function. Say that again, gave him... He could shit a long way.
+
+[00:04:22] He could shit a long way. Not the speed of shit coming out of him. It was distance. That's what I want to know. He said improvement, so it's really kind of left to us. There's a bit of ambiguity there. I'm picturing the poster of deep impact. Oh yeah. What a guy though. Yeah. Yeah. He sounds incredible. So is there any evidence that any of the testicles he was injecting into himself worked? Well, they had a placebo effect, certainly. I mean, genuinely, this baseball player's game was enormously improved. So I read a review of the game afterwards, and I didn't understand any of it, but I got the strong impression that it was unbelievably good. His bat was full of vitality. That was the only sentence I understood.
+
+[00:05:00] These days you take Viagra for that, don't you? What it was is that he thought, the reason that he put testicles in himself is because he thought that it was like a lack of vitality that he had. And because they'd kind of noticed that eunuchs and people who regularly masturbated were quite frail when they were older.
+
+[00:05:21] And so the idea was you got rid of a lot of some kind of substance in your body through that. And so the way to get it back is to find some guinea pigs and castrate them. But listen up, 13-year-old boys. If you don't want to be doing that, you've got to stop masturbating
+
+[00:05:35] because you'll be frail when you're older, according to James. Yeah. So the idea of testicles and sport is not, as, it goes way further back than this old baseball. What do you mean,
+
+[00:05:48] by that? I mean that in the original ancient Olympics, that was kind of their equivalent of doping scandals that they used to chew raw testicles. Which each other? lamb
+
+[00:06:01] testicles yeah they would chew it before any of their races yeah supposedly I think Pliny recommended it didn't he
+
+[00:06:09] did he yeah classic which is why you know it was wrong yeah Pliny's the only one that if someone was like if Pliny told you to walk off a cliff would you do it
+
+[00:06:17] you'd be like well yes I mean he's he's also told me to eat testicles he's got so much weird shit that he says it's astonishing that no one called him out in his own lifetime and it took like 2,000 years
+
+[00:06:26] for someone to say I call bullshit on everything you've ever said Yeah. But they used to chew testicles, yeah. Yeah. In ancient Olympic times. I didn't know that. Yeah. Yeah.
+
+[00:06:37] Pulling on other people's testicles was an illegal move in wrestling, as it is today, I imagine. Yeah. I think it was easier to do then because they weren't wearing as much. Yeah. Okay. I would imagine it would be definitely a move I went for if it wasn't against the rules. What? In a wrestling.
+
+[00:06:51] Yeah. That's why I'm always losing matches. I spend my whole time searching down there. It must be here somewhere. I read it in Pliny. Can I? Yeah, sorry. Well, I was just going to say that just sticking with the ancients and testicles quickly, I was reading about some other ancient testicles, Assyrian testicles,
+
+[00:07:13] and apparently it was a criminal act to damage a man's testicles. So if a... It still is, I think. Well, no, but the punishment was more severe. I think if you kick someone in the balls these days, you'd get in trouble. but if you were a woman and you crushed a man's testicles back in ancient Assyria, you would have either your finger cut off, so assuming that the finger was what was doing the crushing of the man's testicles.
+
+[00:07:39] And then this was another thing that would happen. Both of your nipples would be torn off. Oh! Torn makes it sound like you're just getting your hands around it and ripping it. Exactly. Does that sound terrible? Do you know in Ireland, in ancient island, whenever there was a king
+
+[00:07:57] then when he became king they had to kind of kiss his nipples or something and so to stop someone from ever being king you would tear off their nipples and they used to find bodies with no nipples and they know that that's someone who's been banned from being the king
+
+[00:08:12] wow do you think some people had their nipples torn off and then ran back to collect them later just in case they were king they could produce them and then you foiled the person who tore your nipples off yeah there's nowhere in the rule thing it has to be attach the body. Yeah.
+
+[00:08:26] You can make a necklace out of them and weigh your nipples. Or a ring. A nipple ring. Just on advantages in sport and going back to baseball, I was reading today that they reckon that about 25% of major league baseball players in America are left-handed. Because we've spoken about before how Nadal was both right-handed and left-hand, but decided to be left-handed because it gave you an advantage on the court.
+
+[00:08:55] it's harder to return if you're right-handed to a left-handed person. The same thing kind of applies to baseball as well, because if you're batting, the left-handed batterers have an advantage because they're one step closer to the first base. And it's how weird is that? It's just one step, but they're one step closer. A lot of the argument about left-handers having an advantage
+
+[00:09:14] is that you come across them less regularly. So if you're a right-hander, you'll come across a left-hander one in ten times or whatever. And so you don't really know how to be against them because you don't really come across them that often. If you're a left-hander going against a right-hander, you come across them all the time. So you have an advantage because you're regularly in this position,
+
+[00:09:34] whereas the other guy is really not in that position. That's so interesting. In fact, in 1987, I found another way that you can cheat in baseball. It doesn't really work, but there was a Pennsylvania minor league baseball player called Dave Bresenhan, and he tagged a runner out by switching the ball with a peeled potato that he had hidden in his catchers mitt
+
+[00:09:53] that he brought onto the field. and he got fired the next day because everyone immediately realized wait out of potato but he did win the point and then he got taken away again and then he got fired and now he's a stockbroker
+
+[00:10:02] so actually overall I think he won yeah but all this money that they think he's made it's actually just bags of potatoes that's amazing so the idea of that for people who don't know baseball is
+
+[00:10:16] someone's running towards the base and to get them out you can either touch the base before they do or you can touch them before they reach the base and so someone must have thrown the ball he's not caught the ball and just pretended that this potato is the ball.
+
+[00:10:28] Exactly. It makes no sense so because this is 1987. Like we had cameras in it. The other thing is also baseballs are readily available. So why don't you just have a baseball? It's so much more sense. Anything else before we move on? A couple of things on testicles.
+
+[00:10:46] Yeah. Guinea pig ejaculate is apparently even harder to get out of your head than chewing gum. How did you learn this? He was pulverising a testicle The splashback went all over him I was on a guinea pig forum But the person on the forum didn't give any extra information As to why they had guinea pig ejaculate in their hair
+
+[00:11:06] Yeah You said it like it was a scientific paper This is just a bunch of mates going I've got... I said apparently I tell you I do have a scientific study If you feed yoghurt to a mouse You can make their testicles up to 15% bigger
+
+[00:11:20] And they also get more Luxuriant silky hair and they develop a swagger. According to the scientists. You would develop a swagger if you had more luxury in hair and bigger testicles. Actually bigger testicles, I feel like, is physically you just need to walk differently. Yeah. Put it off your balance.
+
+[00:11:37] Yeah. Squirrels have 20% the length of their body-sized testicles. A massive testicles. I know that that is true of some animals, but whenever I've been to St. James's Park and I've seen squirrels, I think I'd have noticed if one. fifth of their body was testicles. Yeah, it's true. I've never seen these fables. It's cold here, so they're probably retracted. I've found a few baseball injuries from history. Oh yeah. This is from a website called Nita Rama. I'll just read a few of them out and see if you like them.
+
+[00:12:09] There's a guy called Fat Freddy Fitzsimmons who smashed his fingers on his pitching arm when he fell asleep on his rocking chair and rocked over his own hand. Whoa. Is that a baseball injury? Well, it was an injury to a baseball. player. Yeah. Uh-huh. Different categories. Go on.
+
+[00:12:27] This one's also in the same category as the one that I just said, I suppose. John Smoltz, he tried ironing his shirts while he was still wearing it and burned his chest and missed a load of the season. Babe Ruth, famous baseball player, he knocked himself unconscious once by running headfirst into a coconut tree. Wow. That was a baseball one because he was chasing after a ball. And then the last one, Matt Anderson, who apparently is a baseball player, he shrews. He shredded a muscle in his right arm while throwing an octopus. I bet the octopus came off worse.
+
+[00:13:04] Yeah, he shredded eight arms. How about this? The first president of the world anti-doping agency was called Dick Pound. That is brilliant. Dick pulverized pound. That is a great fact. That's very good. Okay, it is time for fact number two, and that is Alex.
+
+[00:13:34] My fact this week is that there is a power station buried inside a Welsh mountain that's only turned on during TV advert breaks. Okay. It's called Dinnerwig Power Station. It's in North Wales in Snowdonia National Park, and it's a hydroelectric power station. It's called a fast response power station. In fact, it's the fastest in the world.
+
+[00:13:54] It takes 12 seconds to produce enough power to power about 600,000 kettles. in 12 seconds. So that's like incredibly fast. You press a button and immediately you've got that around power. And it's mainly there because obviously demand for electrical power in the UK changes over time. But one of the most common reasons for a massive increase in demand is when a really popular TV program goes to a commercial break. Okay. So for example, X Factor or strictly.
+
+[00:14:22] Eastenders. EastEnders. They don't have adverse. Yeah. BBC. When it ends, it must be the end of the show. But Coronation Street, I think, famous. has it, doesn't it?
+
+[00:14:30] Yeah, Coronation Street. The biggest one was a World Cup penalty shootout. England versus West Germany, 1990, FIFA World Cup. That was the biggest one ever, yeah. That the kettles were turned on. Yeah, the biggest power stage in the UK. We had lost that penalty shootout,
+
+[00:14:45] so it might have been other things like people putting their heads in the oven. Yeah. For the end of EastEnders, we have to borrow electricity for France. Do we? Really? And I think France would be proud to know the noble program they were supporting
+
+[00:15:00] in lending that to us. I reckon if the British Republic knew they were using French electricity they would turn off their televisions. I reckon that at the end of EastEnders people like, oh my God, we're running out of electricity. I found a power station that affected TV more than any other power station
+
+[00:15:20] I reckon. What's that? And I'm talking UK. This is 1964 and it's Battersea power station. Battersea power station. Battersea Power Station affected TV in a massive way because there was a fire there and the fire caused power failures all throughout London. So it affected BBC Television Centre. Now, the big thing about it was they had to change the launch date of BBC 2 to the next day
+
+[00:15:45] because so it was meant to launch and Battersea Power Station ruined it. So they had to launch a day later than they were planning to, which is nuts. Battersea Power Station, so I was Googling it today because I passed it every morning on the train. It's beautiful to see it, and they're redoing it up at the moment. But I had no idea. The guy who designed it. Is this a well-known fact in the UK, the guy who designed it? So his name was Sir Giles Gilbert Scott.
+
+[00:16:09] So he designed Battersea Power Station. He also designed Waterloo Bridge, but he also designed the red telephone box. Did he? Yeah. The UK red telephone box. Anyone overseas, picture a red telephone box in your head? That's the one he designed it. That kind of upsets me because I'd much prefer it if Battersea Power Station
+
+[00:16:27] look like one giant red telephone box. You know what does look like a telephone box? His tombstone is shaped it in the same way. He's got a big sort of monumental tombstone and you can go and see it. By design or by accident? I think he designed it. So it's supposed to look like that?
+
+[00:16:41] Yes, yeah. Wow. Is his tombstone covered in adverts for cool girls? Just on the subject of the red telephone box, currently in Wales, there is a mountain that has a red telephone box on it. it and it's not in use and they're going to remove it but there's been huge protests from local ramblers and huge protests um so in uh brazil recently they had 3.5 million people
+
+[00:17:09] on the streets similar or it's bigger i'm surprised they haven't covered it um all the reporters were trying to ring in for yeah yeah but um so they want to remove it because it's redundant it's not working anymore but everyone there is saying we want you to keep it because the mountain that it happens to be on uh can be very well. windy and very rainy at times and it serves as a shelter for people who are suddenly stuck in torrential rain and gale force winds yeah so they actually say it's a lifeline for a lot of people who may get stuck up there so they're they're still this is still a story uh you know that's going on i'll keep you all updated um other other news in welsh mountain news yes please more protests up there
+
+[00:17:49] so there's 189 peaks uh for whales and one has just been taken off the list it's called Moloin-Mois. That's the correct pronunciation. And it has, it was a mountain, and they've now disqualified it. They've taken it off the list because it doesn't meet the height standards that you're meant to have to be classified as a mountain. But it misses it by a matter of millimeters. Really? Yeah.
+
+[00:18:16] Literally millimeters. So they're not just scoop up some more snow and just... I know. You figured they could do something of that. So this is what it says. It says the hill. Oh, controversial. Mountain.
+
+[00:18:26] Like massive quotes. Yeah, so the hill in Snowdonia, North Wales, needs at least a 15-meter height difference between the summit and its pass, which connects it to the next higher hill. Recent tests have shown that it misses these criteria by millimeters measured in at 14.77 meters. It needs to be 15, and it's 14.7. But that's even easy. You can just dig a hole at the bottom, right? You figure, yeah, but no one has, apparently. Maybe no one cared enough, really.
+
+[00:18:52] I mean, because they're all too busy protesting about that other thing. Well, there's only so much you can do. You've got to pick your battles. Well, there was that movie, the man who went up a hill and came down a mountain. A great film. It's exactly like this, isn't it?
+
+[00:19:05] Where he kind of adds a bit at the top, and that's based on a true story. So chance for a sequel. Oh, yeah, exactly. But it was in Wales as well, I think. Yes, it was. Yeah, Hugh Grant in his finest performance to date. The date is optimistic.
+
+[00:19:22] You never know he might be in the future. Dan says when that sequel comes along. It could be amazing. Notting Hill was going to be Notting Mountain, but actually it did miss the required height. Yeah, that is all from Welsh Mountain News. I'm Dan Shriver. We'll see you next week.
+
+[00:19:42] On a power conservation, I love this that I didn't know, which is about reusing energy. So one of the problems is that we generate a lot of electricity. and if there's not enough demand for it, it just gets wasted. And we don't really know how to conserve a lot of energy and then repurpose it later on. But we have worked out how to do this
+
+[00:20:01] on the London Underground on the Tube. And I read this on TFL's website and it was a press release from last year, I think. So I don't know if it's been put into action yet. But they are planning to take the energy that is emitted from Tube Underground Train brakes and use it to power London homes because it releases so much energy.
+
+[00:20:19] And so they did this pilot experiment on the Victoria line somewhere and they realised that in one week of getting the energy from tube brakes and converting it into let's say heat energy or electrical energy you would have enough power to power a tube station for two days a tube station like Hoban. So Hoban for instance
+
+[00:20:40] could power itself for two days of the week just off the energy release from its brakes. That's insane. Isn't that cool? It's kind of cool that I mean earth is basically still steam power because every single major way we have a producing power is basically produce heat in order to heat up water to make steam, and the steam goes around pipes and drives a turbine. And so we're steam power.
+
+[00:20:57] This fact was basically an excuse to talk about the New York steam power system, which I just think is... Oh, God. Please, can we talk about that? And you've only just got there. And that's the end of this fact. Time for fact number three.
+
+[00:21:08] It's really cool. It's just that New York, Manhattan is built on a whole network of steam pipes. So they have massive boilers, like power stations, basically, but they're actually boilers that create huge amounts of steam. And all this steam gets pumped into the buildings and then the buildings can use the steam in whatever way they like so they can generate electricity from it using steam power generators they can use it to heat you know power air conditioners or
+
+[00:21:29] they use it as heating they can plum it directly into their like dishwashers and they've got steam dishwashers that wash dishes using steam and then they condense it in it's really really hot water it's just really cool and that's why new york has this image of being you've always got steam coming up out of the great so that's true because that's and it's still like that and it's the biggest system in the world and it's just the coolest thing ever i always just thought that was a for the Ninja Turtles so that they could not be seen in the evening when they came out to attack the robbers. But one of the problems is that it can explode because it's a pressure-ray system.
+
+[00:21:57] So, you know, I think in 2011 or seven was one of the most recent times when a part of the road just exploded and loaded steam came out. Oh, wow. Yeah. It's crazy. Actually, speaking of America, they just don't do kettles, which is quite weird. They mostly don't use electric kettles. and that is because they take twice as long to boil as ours. Really? Yeah, isn't it so weird?
+
+[00:22:22] And there's going to be Americans listening who are confused by the fact that this isn't just readily accepted. I'm trying to picture, because I've been to America a few times recently. You can get kettles, but generally they don't use them. And that's because their voltage in their main systems is only 110 volts, and ours is 220. So that means that kettles just boil less fast. Wow.
+
+[00:22:42] Isn't that weird? Yeah. Thinking about it, my wife's Russian and her family. I don't think I've ever seen them use a kettle. There you go. I think they kind of just, yeah, boil water on a hub. I'm pretty sure that's what until recently, at least France used to do as well. They were very much more kettles on a house.
+
+[00:22:55] Are we the only people in the world with kettles? I think what I was reading and find it was a bit of a British quirk. It sounds like we've had to build entire power stations to deal with us quirk. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that 85 million years, Before butterflies existed, there was another animal that looked and acted exactly the same as butterflies. What were they called? Well, they didn't have names.
+
+[00:23:30] Oh, yeah, I guess, yeah. Oh, so the difference is they couldn't talk. No, we call them call them calligramated lace wings from the order Neuroptera. And if you look at them, they've just found some new fossils in China. And these are of things that you would be certain they are. butterflies. They've got the same wing shape. They've got the same wing spots and eyes spots. They've got the same scales, the same proboscis, like the long tube that they feed with. It looks like they feed in the same way. They flew in the same way. They were basically butterflies, but they were 85 million
+
+[00:24:05] years before actual butterflies. Wow. And we're definitely sure that they weren't just butterflies. Well, are they from a different line? They're not, so they're not related at all. Well, they were insects, so they're related slightly. But also there's a massive period between them and actual butterflies. Exactly. So we have an idea of when true butterflies came in, and this was a lot before that. But this is interesting,
+
+[00:24:28] because if theoretically you had two completely identical animals that evolved separately, do we still have to classify them as separate species? Now, that is really interesting. They found a load of mussels around Britain a few years ago, and they found some in the North Sea, and some down near Bristol, and some down on the South Coast.
+
+[00:24:47] And they all looked like mussels. because I don't want to be muscle racist, but all muscles kind of look the same. But then they did DNA test on them, and they were all completely different species. Like, they couldn't mate with one another, we think. Wow. But we would never know that they were different animals
+
+[00:25:01] because they just look exactly the same. So we'd be trying to force them to have sex, and they would be like... Well, we don't really do that much. We've got a beach on it is if you have. So, but that, I mean, isn't it interesting? It's so weird because... So it's convergence, basically, isn't it?
+
+[00:25:16] where evolutionarily two things develop independent of each other that are exactly the same. But when you look at a butterfly, I think that's got to die out soon because it's a tiny flimsy piece of tissue paper that practically dies if I touch it. And yet it decided to evolve twice. Why are you touching butterflies? It's just what I'm into on the weekends. She's trying to force them to have sex. That is interesting.
+
+[00:25:39] I guess I suppose whatever niche they live in, it must be perfect for them. Yeah. Yeah. Also, they don't die if you touch them. just want to clarify that I do know that in case anyone writes in. Don't the wing scales fall off. Some of them do, but it doesn't kill them, yeah. It can't damage them if you.
+
+[00:25:54] Isn't it cool? They have scales, though? Isn't that really weird? That's amazing, yeah. Just on the subject of butterfly death, I read an article, which it starts, this line is included right at the top. Hundreds of butterflies were killed in a celebration that transformed quickly into a traumatic bloodbath.
+
+[00:26:12] Now, this is the story, a furniture shop. This is in China, decided that they, would do an event. It says here, the event would be remembered as a happy occasion for their business, but they were wrong. And so, what they... How wrong were they done? They were seriously wrong.
+
+[00:26:27] They opened up. The idea was that they'd had all these butterflies held in boxes, and they were going to release the butterflies onto the ground, and children were going to run towards the butterflies, and as they were running, the butterflies would fly away, creating a great effect, so it was for children just to chase the butterfly. What they didn't count on is the fact that the butterflies, the butterflies, were in lethargic form. I don't know what that means, but it sounds like they're lazy.
+
+[00:26:50] Yeah, they were tired. So basically, they're there, laying on the floor, all lethargic, while a stampede of children come towards them, thinking they're going to fly away, and they just crushed the entire back. I've got another story. You know what debutante bulls are, aren't you? Like, wealthy families, when the daughter of the family came of age,
+
+[00:27:08] they'd have a sort of coming out party. Oh, yeah. It would be a big kind of thing. This happened in 1906. There was a Philadelphia woman called Mary Astor Paul, and she had 10,000. thousand Brazilian butterflies imported into her house and hung in nets all over the ceiling of the ballroom. But when the nets were dropped at the end of the party, it turned out that all the butterflies had died due to the heat,
+
+[00:27:25] so the guests were just showered with thousands of dead insects. Which I just found so funny. Which would be kind of beautiful anyway. It's confetti. Just what the thousands of people running away screaming. Would you scream? I mean, I know you... It's the most disgusting thing.
+
+[00:27:39] I know you cow when someone tries to high-five you, but would you run away screaming because of a few dead butterflies? I mean, 10,000 in one room. Yeah. I think that one of the really nice things about transforming from a caterpillar to a butterfly is that you stop pooing. I think that's quite cool. So caterpillars defecate all the time, as a lot of creatures do. They eat a lot and they defecate a lot. But butterflies, they don't really eat.
+
+[00:28:03] They sort of drink liquid through their proboscis that James mentioned earlier. But they just drink enough liquid to power themselves. Occasionally, if they've drunk too much, they release a very fine mist of water from their abdomen. but mainly they don't really excrete at all. So you go from being a caterpillar to a butterfly and you mature into not pooing anymore. What they need is some guinea pig testicles and they'll be firing it out like Billy Elm.
+
+[00:28:27] So they don't drink with their tongue as in like it passes over that. Drink through their tongue. Their tongue is a straw. There's a hole in their tongue and they slurp the stuff up. That's cool. Isn't that awesome?
+
+[00:28:38] There are some species that do this thing called mud puddling which is less like drinking and it's more like you drink any liquid, find any liquid you can. of blood or like muddy water and stuff like that. And you basically filter the water so it goes straight through you and it comes straight out of the other end if they're drinking. And they filter all the nutrients.
+
+[00:28:51] But there is one species of moth. It's not a butterfly, it's a moth. But they sneak up to sleeping birds and stick their proboscis through their closed eyelids and drink their tears. Yeah. How cool is that? Yeah.
+
+[00:29:04] But why the birds so sad? There could be tears of happiness. Tears of joy that they've got a beautiful butterfly. They do it to crocodiles and turtles as well. Yeah, and humans. They can drink. There is this thing called vampire moth because, you know, it's got a reputation for drinking blood from a human. I like the fact that they have, when they crowd around puddles to drink, which they do, they're called puddle clubs.
+
+[00:29:27] And if you're a butterfly watcher or a butterfly fan, then you go to puddle clubs or you set up a puddle club in your garden and they'll flock around it. Wow. That sounds like a series of books for teenage girls. The puddle club. It sounds like a load of books for incontinent old men. Speaking of butterfly collecting, which I don't know, but it feels like people don't really do that much anymore. It's television, James. In the early 1700s, butterfly collector Lady Eleanor Glanville was declared insane due to her butterfly collecting.
+
+[00:30:03] And an entomologist testified that none but those deprived of their senses would go in pursuit of butterflies. Oh, wow. What? It's not because they were like, yeah, we went to her house for dinner and she dropped 10,000 dead butterflies. It kind of feels like they were looking for an excuse to declare her insane, but that's what they did. Wow. Wow. Someone else actually who was declared insane on a butterfly-related charge.
+
+[00:30:29] What are the chances? I know. Who would have thought was very common in the Victorian era? This was someone who Darwin met on the Beagle voyage, and he noted down his conversation he had with him in his diary. And it was a guy called Rannouse, who was a naturalist and collector. And he related a story to Darwin that he had left some caterpillars in the charge of a little girl and instructed her on how to feed them so that they'd turn into butterflies. And he'd, and so this girl had done this, and she'd fed the caterpillars, and they turned into butterflies.
+
+[00:31:02] And by this point, he'd left town. And he came back to town, and rumour had spread that he'd left these caterpillars in the charge of this girl, promising that they turn into butterflies. And people thought that that was absurd, that those butterflies could have come from caterpillars because they didn't realize that about metamorphosis and the butterflies could come from caterpillars. And so there was a town meeting
+
+[00:31:24] and eventually the governors and the part-jaded the town consulted and they agreed that it was heresy and he had to be arrested. So he was arrested for telling a girl that a caterpillar would become a butterfly. Wow. Isn't that weird? Yeah. Because you, like, I mean, they're so unbelievably different, as we've discussed before, they sort of melt before they become butterflies.
+
+[00:31:41] Yeah. But people just didn't think it was possible that they were related. It is absolutely bizarre, isn't it? When you think about that, it is bizarre. I think it's magic. I've said this since we've all known each other. It's the fact that in between the process, they turn into a soup, there's just a soup, and then they come back, and then they retain memory of their previous existence.
+
+[00:32:01] That is wizardry. It is like organs floating in it, because I thought for ages that it was just total liquid, but actually it's like kind of if we were able to just melt all our actual flesh they've got these things called imaginal disks which I think like it's like lots of little flash drives and like ones for the eyes and ones for the wings and ones for the legs and they're all floating in this soup and one of them's you know got all the neurons in it for the brain and stuff it's great wow they're like they're like they're like they can just go into liquid form and just come back actually have you read the scientific paper by donald williamson that was released in 2012
+
+[00:32:32] I know that sounds like a ridiculous question to me it sounds likely that I would I'm sure you have. It was unbelievably controversial, but it was published in the Proceedings of the National Academy of Sciences, so it was super prestigious. And he believes that butterflies and caterpillars are different species. Yes, I have read, actually. And there you go. And he's read it. Yeah, because it caused a massive stir. So he's a genuine scientist who said that actually two different species mated and produced this offspring at some point, you know, hundreds of thousands of years ago. And that's the only way that they could exist. And a butterfly is a different species to a caterpillar. So they're different organisms. It becomes a new organism. And then he got roundly criticized by all of scientists. Really? Okay, it is time for our final fact of the show, and that is my fact. My fact this week is that the Longquan Buddhist temple in China has a monk called Worthy Stupid Robot Monk.
+
+[00:33:28] So, okay, it's not a human monk. It is actually, as it says in the title, a robot monk. they have developed at this Buddhist temple, a monk that specific job is for when tourists come and want to chat to people, they go talk to the robot monk and he'll answer your questions about what is the meaning of life and all those other things. He's programmed to give you answers,
+
+[00:33:52] and he's basically just their PR person when people come because they might be busy doing monk stuff. I'd be quite disappointed if I turn up to a Buddhist temple after years of going on a spiritual journey, and I turn up on monks don't want to be. talk to me and I have to talk to their robot. Yeah. Fubbed off with a robot.
+
+[00:34:08] Yeah. Well, they think it's a good way of spreading more idea of what Buddhism is because it's kind of like a monk version of Siri. Did you read what the meaning of life is according to the robot? No, I didn't. No.
+
+[00:34:20] Well, I looked up an article about him. I think it was in Gizmodo magazine and it was about him being displayed at a fair, at a robot fair. And he was asked two questions. He was first asked, what's the meaning of life? And his reply was, my master says the meaning of life is to help more people finally leave behind bitterness and gain happiness.
+
+[00:34:39] And the next question it was asked was, who are your parents? And he said, that's ridiculous. How can robots have parents? Which I think... That's quite a good answer. It's kind of a bitter tone. For a goodness, he's jumped to anger quite quickly. He has. For someone who's just said, leave behind your bitterness and gain happiness. He's really jumped down my throat for asking about his mum and dad. Apparently he's very good at long, repressive monotonous chance, which is a very important part of being a Buddhist monk. so just to defend the robot for a second
+
+[00:35:05] that we've been roundly criticizing. Wasn't it the Buddha who kind of sat in front of a wall for 10 years or something just meditating? That would be quite easy for a robot. Yes. Just turn it off. You can see why robots have started out with Buddhism, can you? It feels like the easiest, most achievable one.
+
+[00:35:23] So just to give a visual to anyone who hasn't yet gone to Google straight away, see what he looks like. He is a two foot tall. little cartoon-looking kind of monk. He's got the robes. He's got the yellow saffron kind of robes. And he has a kind of iPad that sits in the middle of his chest, which you can press,
+
+[00:35:45] and that helps you with the questions and the answers. Is it telitubby? He's... He's... That was, yeah. And so, yeah, and so it exists this little monk, this Siener. He exists in this temple, which is 500 years old. It's kind of on the outskirts of Beijing.
+
+[00:36:02] And yeah, you can go and visit. He's not always in use. He's sometimes in a cupboard. Meditating. He has not been switched off. Can I just say something about the temple that the robot monk came from? Yeah. Because it's really interesting.
+
+[00:36:17] The Longquan Temple is famously tech savvy and has been for years. So this is really just an accumulation of what they've been working towards for ages. And you would love it, Alex. I thought of you and I was reading about it. Is it steam powered? Oh, it should be steam powered. I think it might even have moved beyond that. Um, so first of all, a monk from their apparently invented we chat, which is that...
+
+[00:36:36] What is we chat? Is that like the WhatsApp of China? Is that like the wrenel and you're just talking to the person next to you? First person ever to do it. Yeah. If one was too awkward before that. How do you know? It's still we.
+
+[00:36:54] Not at urinals, but in cubicles, but in cubicles. But they do talk. Do you shout to each other over the cubicles? We don't talk. Of course you talk. My girlfriend, my, sorry, my fiancé, was telling me just the other day that at work, even her colleagues, they'll go in and they'll just continue chatting. I know that my friends at school did it. This is not anecdotal.
+
+[00:37:15] Well, no, that was the same time. The definition of anecdotal. Best scientist ever. See, just as you were saying that, as the words came out, you're like, no. I would still suggest I've been in more women's toilets than you have in my life I know, but you don't like talking I do hate to talk
+
+[00:37:40] Can I ask Anna? You know, this definitely is a thing I can tell having not been in many women's toilets that when my wife or a girl that I know goes to the toilet she'll often bring a friend with her and they'll go to the toilet at the same time did they just stand in stony's silence? So to be honest I've never. never done that so I don't I've never known what they do um people will chat in front of the mirror when they're putting makeup on the stuff this actually wasn't really the point of my
+
+[00:38:05] my thing about the monks so we chat so this is uh yeah the monk from the long kran temple invented we chat it is said and we chat is basically china's equivalent of WhatsApp and I suspect that it has many more users so it's got over a billion subscribers right now which is seventh of the world's population that's basically everyone in China yeah uh yeah it's like 1.2 billion in China. Yeah, I guess so. Wow. So anyway, it said that the guy who manufactured it, this guy called Zhang Xiaolong, he went to the temple in Beijing because questions concerning his idea for Wii chat had long weighed in his heart. And he consulted with the monks there, and it turned out they're super tech savvy, and one of the monks sat down with him for seven days and talked over
+
+[00:38:50] the digitization of this idea he had and told him how to do it. And he left after seven days of reflection and chatting to a monk and he invented WeChat. Wow. Isn't that cool? They're moving away from nature and towards technology. And we do know, I mean, the Dalai Lama very famously loves technology, always has, was obsessed with clocks. So maybe it's our impression of tech and Buddhism being incompatible is just our view
+
+[00:39:18] with that. Maybe they've been dying for an iPad. Some people would say that being really into clocks is not being up to date with the most modern technology. You can I have comprehended the clock. There's a robot called WD2. Was that like an early version of WD40? WD40, the 40 means 40th attempt.
+
+[00:39:43] WD stands for water displacement. And he made 39 tries and it didn't work. And then WD40 was his 40th try. So WD2 is a robot that it's just a robot with a face that looks at you, scans your face in 3D and then rearranges its bonesstroke just that it looks like you and there's no use for it there's no use what about fucking people up yeah it's basically like a really creepy mirror that would be the weirdest thing that's incredible there's immense use for that okay go on Anna all of crime and Harry Potter
+
+[00:40:16] is based around making yourself look like someone else isn't it oh yeah I can see yeah you know they take that potion and oh yeah that one scene. It's the only seen about arrest. Two's four times in the hotels. Hotels are really good places of robots, in Japan especially. That's one of the first places in which service industry robots are coming in because they're so well suited to it.
+
+[00:40:36] You've got all the rooms have got the same, you know, all the corridors are exactly the same. It's all really well organized. Do they have robots using, like, cleaning the rooms and stuff? Well, they've got robot concierge. If you order room service, there are some hotels where you get a little knock on the door and it's basically like, it's kind of like an R2D2 robot. It looks exactly like you. All right, we're going to have to wrap up.
+
+[00:40:54] have to wrap up really soon. Anyone got anything before we do? So Buddhist monks have an obesity problem at the moment. It turns out more than half of Buddhist monks are obese and that's because when people give donations to monks, it's often like sweet foods. So they just sit and they eat all these sweet foods that people are offering to them. And their medical costs are really burdening the Thai government and so they've been had to put on this government-sponsored diet. And they've also manufactured for them these special girdles which tighten as you put on weight as a gentle reminder that you're getting too fat for your girdle.
+
+[00:41:27] I read something similar about nurses in this country. Really? I don't think they're pointing on a particular amount of weight, but I think they eat too many chocolates because whenever they save someone or look after someone, their relatives always give them chocolates and they just eat shitloads of them. So, and nurses will thank us for this.
+
+[00:41:47] Next time, give your nurse some raw carrots and some celery. Or a girdle. They're not horses If I've been to get into the wrong hospitals The hospital Okay, that's it That is all of our facts Thank you so much for listening
+
+[00:42:12] If you would like to get in contact With any of us about the things that we've said Over the course of this podcast We can all be found on our Twitter accounts I'm on at Shreiberland Alex At Alex Bell underscore James
+
+[00:42:23] At eggshake Anna. You can email a podcast at QI.com. Yep. Or you can go to no such thing as a fish.com. That is our website. We've got all of our previous episodes up there. And you can go to our Twitter account as well, which is at QI podcast.
+
+[00:42:36] If you want to say anything to us as a collective. Otherwise, we will see you again next week for another show. Have a good week. Goodbye.

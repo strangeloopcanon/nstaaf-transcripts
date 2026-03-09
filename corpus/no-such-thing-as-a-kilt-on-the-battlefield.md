@@ -1,0 +1,193 @@
+# No Such Thing As A Fish - No Such Thing As A Kilt On The Battlefield
+
+- Episode date: July 18, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-kilt-on-the-battlefield
+- Slug: no-such-thing-as-a-kilt-on-the-battlefield
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. No, seriously. It's in the Oxford Dictionary of Underwater Life. He says it, right there, first paragraph, No Such Thing as a Fish. Hello and welcome to another episode of No Such Thing as a Fish. It's a weekly podcast coming to you from the QI offices in Covern Garden. My name is Dan Shriver. I'm sitting here with James Harkin, Anna Chisinski, and we have a special guest today.
+
+[00:00:34] He's a very close friend of ours. He's the co-creator and producer of Museum of Curiosity and has a lot of claims to fame that we probably should mention. I'll tell you what, Rich, give us one of your claims to fame. Okay. I coined the term International Man of Mystery. Wow. For the Austin Power movies.
+
+[00:00:55] You knew one of the actors in it, right? Yeah. I knew Neil Malarkey, who was working very closely with Mike Myers. Yeah, those two used to be a double act, didn't they? Yeah, they were a double act, that's right. And I used it as a program. It, in fact, does come from a back page advert in the stage. And it was for a guy who was the International Man of Mystery.
+
+[00:01:16] I can't remember his name. And Neil just took it and gave it to Mike Myers. I just thought it was a coincidence. But then Neil confirmed it to me that he passed that on. And that became the thing in the movie. Yeah. It was me. And you're also just not quite in Charite's a Fire, right?
+
+[00:01:33] Half of me is interested. Yeah, there's a scene where there's a choir singing to be an Englishman on a stage, and I got moved, actually. I was near the middle. Stephen Frye is in it, yeah. And he got moved nearer and near the centre. He's very tall, I think that was to make a nice sort of like...
+
+[00:01:53] Trained on. ...inverted V shape, yeah, kind of pyramid shape of heads. But I got moved right... I must be just ugly, I'll say it. I got move right to the edge, and if you watch on a proper... I mean, if you watch it on an ordinary old telly, you won't see me at all. But widescreen.
+
+[00:02:06] Yeah, wide screen. Half of you makes it in. Is it your better half at least? It was my right-hand side. You tell me. I think most people think their left-hand side is their better half. Do they? Yeah.
+
+[00:02:17] It's probably my evil side. Yeah. I didn't know you had one that is concerning. Oh, no, everyone has a, like, if you cut Nixon's face in half, and you make a kind of mirror image of one side, you get evil Nixon. Pretty sure both sides of Nixon were evil. Yeah, but evil people have, more asymmetric faces apparently.
+
+[00:02:35] Okay. Yeah. I'm sure that's a QI fact. Oh no. People are going to be freaking out at home now, looking at their wonky faces in the mirror. So it's really weird. You can see a nice, happy, smiling face if you do one side and then a really scowling evil. Sinister. So that's a very long convoluted way of saying, our special guest is
+
+[00:02:50] Rich Turner. Yeah, that's the Rich Turner podcast. There we go. Okay, so we've gathered around the microphone once again, and we brought with us our favorite four facts from the last seven days. So here we go, in no particular order. These are our favorite things. Rich, we're going to start with you.
+
+[00:03:09] Fact number one. Okay. When Neil Armstrong stepped on the moon and said that's one small step for a man or for man, he was wearing ladies underwear. That's really... Did you get that fact from Buzz Aldrin when we met him last year? Yeah, he's just like slapping him down. They were both wearing ladies underwear as a matter of fact.
+
+[00:03:30] So when Apollo needed to get their space seats made, they ended up asking Playtex, the bra manufacturers, to make the spacesuits. So they actually got the women from the production lines at their factory and they made the space suits. They made it, I think it's 21 layers all made by them. So effectively, all of the same technology, all the same skills, all the same stuff as were making bras and girdles.
+
+[00:03:57] And that's what they were. And you know, look at those pictures again and think of that as a great big Playtex bra that they're wearing. And it makes sense. It's actually, you look at the stitching, It's, you know. The stitching, the clasp. They were trying to take it off and they couldn't quite fumble around. Buzz could do it one-handed. He always bragged about that.
+
+[00:04:14] Yeah. Why did they choose a latex? Why do they choose that company to make the suit? Playtex. I think it's because they had the skills with the stitching. Actually, they were the only people that knew how to make that. I mean, it was something like three rows of stitches in a row, tiny, tiny stitches, great deal of precision required.
+
+[00:04:32] And they won the contract because they were the best at doing it. Well, they made out of latex. Parts of the space suit were made of latex. Yeah, I think they were. Were they frilly? I understand that the space suits now are, they haven't been washed. They're still covered in moon dust. Yeah, so they're sitting in the back rooms of a museum somewhere.
+
+[00:04:54] Yeah, and I've read that when ex-apollo astronauts like to go to a museum to revisit the whole experience of going to space, they don't go to the Smithsonian to look at the rockets and the capsules, they go. to the spacesuit museum or wherever that is. There's a space suit in the science museum, isn't there in London? I don't know. I've seen it. It's quite cool because it has like where you would think are the, what do you call this? The arm seam?
+
+[00:05:22] Yeah. So where the seams are, you would think it's the seams. Actually, it's little pipes where they used to put water up there to keep people warm or cool. Oh yeah, that was one of the undergarment layers. Yeah. Actually, that was a British invention. Was it? Yeah.
+
+[00:05:35] that was invented for British fighter jet pilots to keep them warm. And I think it was one of the proudest moments. I think Patrick Moore flagged it up on the day of the moon landing to remind people that there wasn't something British that was up there. Something British on the moon? There's not many British things on the moon, are there? We were talking the other day, you and I about Patrick Moore, and you were convinced that he had a crater on the moon.
+
+[00:05:59] But he doesn't. It was a different war. Really? Well, I mean, the one that Rich thought that was Patrick Moore, turned out to be another more. It's another more. Roger Moore? Yes, Roger.
+
+[00:06:09] From Moonraker. Moonraker, is that just a film with Roger Moore raking out? A big crazier on the moon? Where does moon raker the name come from? Because there is, they call, there's a town in Wiltshire or somewhere where they call the moon rakers, because supposedly they were so stupid they saw a moon inside a lake and they tried to get it out. But I don't know where that comes from James Bond.
+
+[00:06:31] Wow, it's a weird thing to put a Bond movie about, isn't it? Based in Wiltshire Well, Neil Armstrong's boots are supposed to be around this space somewhere, aren't they? Are they? I thought they're in a museum, wow. I think the, well, the, what's it called? The silicon rubber, they're called overshoes. They're like goloshes that they had on the spacesuit.
+
+[00:06:54] They actually, I think threw them off. I think they're on the moon. Oh, on the moon. I think they're among the many things that they chucked onto the moon and left there. There's the lovely Hasselblad cameras that all up there, except one. I think one came back home. and that was auctioned recently for quite a lot of money.
+
+[00:07:07] I can't remember how much. Yeah, I can imagine. It's so careless how tolerant we are of littering on the moon. I can't remember how many billions of tons it is, but there's like some billion tons of litter in space, and then a lot of people have left litter on the moon, and it's basically fine. Well, there's strict laws now about space junk,
+
+[00:07:26] because it's getting to the point now. I mean, the movie, that's the whole point of the movie, Gravity was that they were pointing out that we'll reach this point where we can't actually leave our planet because of these spinning bits of debris that are just hurdling around the planet six times a speed of a bullet. So it's been a big concern. On top of it, on the moon, they've actually turned, or they're trying to turn certain areas of the moon into sort of like national parks, as it were, so that no one could, because the Chinese are now going there, India have got plans to go there, and they want all these heritage spots like the Apollo 11 moon landing spot to be preserved. Isn't that typically American, you go and trash a place, and the bits that you've trashed, you declare to be preserved, to be preserved as a national park?
+
+[00:08:09] Yeah. You get the rest. Well, the thing is, I reckon if they call it a national park, then technically it's going to be an American national park, so that means part of the moon would be American. Yes. But you're not allowed to claim parts of the moon, are you? You're not allowed to, but that's a technicality.
+
+[00:08:23] There is a scam, and I come on what it's called. In fact, there are a whole bunch of scams that allow you to buy land on the moon, and they look surprisingly plausible, but definitely not a thing if anyone's bought land on the moon. You do not own land on the moon. No, but there is something on the moon that does belong to an individual millionaire on Earth, and that's the lunar rover that was sent up by the Russians. It landed at the same time that Neil Armstrong and Buzz Aldrin were on there,
+
+[00:08:45] and it was a remote rover that picked up some rocks. And the Russians left it there, and they're a bit short of money for their space program, so they auctioned it off. Someone owned it. Oh, really? So that landed within the same timeframe. Literally on the same day. No, it must have been there on thereabouts.
+
+[00:09:03] It was moving on the surface of the moon when they were moving around. That's fantastic. I've never heard that. Anyway, on underwear. Yes, let's go back to underwear. Let's look for underwear, guys. You can buy flatulence filtering underwear now. Oh.
+
+[00:09:17] Yeah, it's handy. It's called shreddies. It doesn't do that anyway. For years. I'm so sorry, everyone. But yeah, isn't that good? You can buy it for like $35, and they're called Shreddies, and they're made.
+
+[00:09:29] made of a special kind of carbon, which apparently absorbs the smell. Yeah, it'll be like graphite kind of stuff. They actually call it Zorflex, but I think that might be a made-up word. It'd be a bit like charcoal, which would normally stop normal smells. So if you can't afford a pair, you could just put some charcoal in your pants. Yes. There was the British troops in World War II, some British troops, had a secret plan to go into battle in women's underwear. This was a Scottish group.
+
+[00:09:57] They were kilt-wearing soldiers. and they were worried that their legs were being exposed to poisonous gas and obviously other parts underneath the kiltz that they wouldn't normally cover would be hit by the poison gas. So they did tests to see if it would work if they wore long stockings and woolen bloomers and the tests show that it would work but it was decided that the protective clothing would be too costly to supply all Scots regiments and so they just banned kilts from the battlegrounds.
+
+[00:10:27] That's tragic. Yeah. Yeah. So when did they ban kiltz? 1940. Really? Yeah. Oh, that is a shame.
+
+[00:10:34] What, they don't march into battle in a kilt anymore? Not on the battleground. They can march in it, but they wouldn't fight in it. So it's just for dressing up at weekends now. It should be, really. James Joyce always used to keep a pair of dolls knickers in his pocket. But apparently, he always kept them there. And then when he got really drunk sometimes, he would take them out, put them on his fingers,
+
+[00:10:53] and then do like a little dance on the table with his fingers. I'm doing the dance for them. people at home. That does actually sound entertaining. Yeah, so it's a party trick. Much better than his books. It's a bit easier to understand than Ulysses. Yeah, have you read Ulysses?
+
+[00:11:09] I started reading it. I started reading it as well. It's completely unreadable, isn't it? It's pretty dense. It was so, it's so unreadable that when it first came out, it got banned in Britain because they thought it was written in code. That's true, that's true. Dasqabital was the reason it was allowed to be published.
+
+[00:11:26] I only found this out yesterday. they knew that it was like revolutionary dangerous stuff but it was deemed by the publishing powers that be that it was totally dense and unreadable and no one would ever make it through it and it would have no conceivable impact yeah idiots
+
+[00:11:40] okay it's time to move on to fact number two and that is my fact my fact is that in 1963 Muhammad Ali released a stand-up comedy album wow yeah that's good and it's
+
+[00:12:01] I'd look to hear it. It's called I Am the Greatest. I didn't know he intended it to be comedy. So was it, it was meant to be funny? Because it was kind of marketed as like a cabaret sort of thing. Yeah, it says, this is the blurb on the back. It says, yep, it's no empty boast. As the greatest sportsman of the last, this or any century does his thang in a hilarious
+
+[00:12:20] amazing collection of stand-up, poetry, and rapping just prior to entering the history books by becoming the greatest ever, catlocks, heavyweight champ of all time. So that's the kind of. of, yeah, stand-ups in there. And the reason I know about this is I was I was in HMV walking around, looking at the audio comedy section, and, you know, Peter Cook, Jerry Seinfeld, Muhammad Ali. It's like, what is this doing? It's interesting, though, because this was when he was a rising boxing superstar. It was at the time when he was doing quite well. He wasn't yet world champion. And also the year, in 1963, it's a really interesting year.
+
+[00:12:54] It was the year that Bill Cosby released his first album. It was kind of the period where stand-up comedy was really being turned into something. So you could argue that the album that he released, Muhammad Ali, was a spoken word album, but I think it's only called a spoken word album because of the context of the time that it was released in. But it was a guy on stage telling jokes, reading funny poems to an audience who were laughing along to it. He was basically like the predecessor of Tim Kee. Maybe he was serious though. He was a famously not a humble man. I think he had the impression in his head that he was the greatest because he did some extraordinary things. Like, there's a, there's a clip on YouTube that you can see of when a guy is standing on the edge of a building ready to commit suicide, he's just lost it, and the police are there and everything, they're filming it's just a news crew filming it, and suddenly someone just goes, and then Muhammad Ali arrived, and he comes running to the building with his entourage, he gets up, he's in the other window and he talks the man down.
+
+[00:13:51] Yeah, it's an amazing shot. It's also interesting the way that, because it's just on that idea of that sort of, that idea that he could just run up to a building. and talk someone down and they would just allow him, oh, Muhammad Ali's here, yeah, let him chat to the guy. Step back. Yeah, exactly. That's a lot better than when Paul Gascoigne turns up with a fishing rod and some chicken, is there? Yeah, I'm actually trying to think of any sportsperson alive today who could do anything like that. Actually, there was some of the England cricket team talked to a guy off a bridge in Australia.
+
+[00:14:21] In Australia last year. Yeah. Stuart Broad was it? Stuart Broad and can't remember who else. That prior, I think. Yes. You know the famous Rumble in the Jungle match with George Foreman? It was in an African country.
+
+[00:14:35] Yeah, in Zaire. He was in Kinshasa. Yes. This is not an amazing fact. I just didn't know it. Because of the time difference, the match was fought at 4 a.m. in the morning. Yeah. So everyone in the country who came to watch it, because it was such a big event, they were all there at 4 a.m.
+
+[00:14:52] Muhammad Ali was up at 4 a.m. It's funny. Those times where you don't know whether it's best to stay up for it or get up early. And then you accidentally fall asleep at 3.30 and you miss the whole thing. I think the government paid a huge amount. It was in Zaire. Yes, it was. Yeah, I think the Zaya government paid a huge amount of money to have it there, didn't it?
+
+[00:15:10] Because it was going to help tourism and help draw attention to it. It's a big tourist hotspot now, Democratic Republic can go, isn't it? Really worked like a charm, guys. Okay, so just speaking, just going into boxing rather than Muhammad Ali. The first rules of boxing, the first. codified rules were the Queensby rules, and they had an explicit rule for bidding boots with having springs, which is quite good. So before that, you were allowed boots with springs. Presumably, someone must have gone to a boxing match with springs on his boots, and they had
+
+[00:15:44] to ban it. Yeah. That sounds like it would just be really quite cummins and not very helpful. Well, you could bounce over them and then hit them on the back of the head. That's true. Seriously good springs. I was thinking you should get springs on your back, so when you're knocked down, just come right back up again. It would be great, like one of those toys you get. Another rule about boxing. In the 18th century, most boxers had long hair, but they stopped that after referees made it legal to hold your opponent's hair with one hand
+
+[00:16:07] and hit him with the other. Okay, we're going to have to wrap up on this one. He was also a magician, wasn't he? Yeah, Muhammad Ali could do magic tricks. He was a magician as well. Really? What kind of magic tricks? Well, I don't know.
+
+[00:16:24] His son, Mohamed Ali Jr., who's a very, Poor man now because he's been sort of cut off by Muhammad Ali's third wife. Yeah, no, he remembered that his dad used to do magic tricks in the ring when he was in training. Yeah, he used to make handkerchiefs disappear and he used to do like a levitation trick where you stand on the tiptoes of one toe and it makes it look like you're levitating. But because of his Islamic beliefs, he wasn't allowed to deceive anyone, so he would always, explain exactly how his tricks were done as soon as he'd done them. And was thrown out of the magic circle pretty swiftly. I wouldn't like to be the bouncer to throw him out of the magic circle, do you?
+
+[00:17:08] I got one last fact for Muhammad Ali. Do we all know what he changed his name from Cassius Clay to? I know what you're going to say. Can I guess? Yeah, yeah, yeah. Is it Cassius X? Yeah, Cassius X. And he did it because he was with Malcolm X at the time hanging out with him.
+
+[00:17:23] So there was the X men. And how long did you keep that name for long then? No, he didn't. I think he only had it while he was waiting to get a verified name from the Nation of Islam, didn't he, when he decided to shake Cassius Clay because that was his slave name. But the Nation of Islam, Elijah Muhammad, had to give him a proper name. And so he took Cassius X in the interim. I think that's a good chance.
+
+[00:17:43] Yeah, it is. Yeah. Might use that next year. Cool. You heard it here first, guys. All right. Okay, time for fact number three. And that is Chazinski.
+
+[00:17:55] Yep. My fact is that in 1325 in Italy, war was declared and 2,000 people were killed because of a stolen bucket. Okay. The war of the Oaken bucket. Oaken bucket. So there were two rival city-states, Bologna and Medina at the time, and Modenae's soldiers stole the bucket, the Bolognazi bucket from their city well, and it had some loot in it, apparently, that I guess they'd acquired in other kind of battles. and they stole the bucket and so Bologna declared war on them
+
+[00:18:27] and brought a 32,000 strong army to invade and reclaim the bucket. You could say that the Crusades, I mean, it all depends on how you translate words for sort of a vessel that holds things, but you could say that the Crusades were all fought over a bucket, couldn't you?
+
+[00:18:45] Go on. The Holy Bucket. The Holy Grail. Oh, okay. Yeah, good. Yeah, I mean, these are ancient languages. It might be just a bucket. I like wars that have started over really apparently minor and comical.
+
+[00:18:57] Such as? Such as the War of Jenkins' ear. That's quite a famous one, isn't it? Yeah. What was that? So Jenkins was a British privateer in 1738, and he went out to the Americas, and his ear was cut off by Spence, the Spanish, who were also in the Americas privateering themselves. And so he came back to Britain, and he brandished his ear in Parliament.
+
+[00:19:20] and was like, look what those Spanish guys have done to me. And so they went to war. Oh. What to get the ear back or? No, he had the ear. Just because they were so irritated that the Spaniards dead cut off the ear. It kind of makes you wonder about the butterfly effect, really, that maybe every war in the world was started by something incredibly tiny. Tiny, yeah.
+
+[00:19:42] Just we don't know what it was always, that's all. Just two people just going, you're a dick. Yeah. Did you say who won the war? The War of Jenkins' ear Or the war of the bucket Oh yeah the War of the Bucket So the Modinese who'd stolen the bucket
+
+[00:19:56] Initially won the war And you can still If you go to Modena in their cathedral You can see the bucket It's proudly hung up as a symbol of their victory Wow Yep an oaken bucket Go check it out
+
+[00:20:07] An empty bucket Nothing in it? I don't think there's anything in it now No Here's a better reason for going to war And when the Gauls Sacked Rome For the first time
+
+[00:20:17] It was because they'd recently drunk wine for the first time and they wanted to take over the place where it came from. According to the ardouris. The best reason I've ever heard. It's good, isn't it? This is amazing. The shortest war in history, the Britain Zanzibar War, you could argue, was started by a cricket match, basically. It was that, so it was in 1896 and it was started when
+
+[00:20:39] Zanzibar declared war because British ships were in a harbour, they weren't allowed to be in, but they were in the harbour because the British sailors on the ships wanted to participate in a cricket tournament. And there was a football war, wasn't there, between Nicaragua and Costa Rica wasn't it? Yes, I think we might have mentioned that one on our Nicaragua Cosquist. I can't remember. But it was basically just there was a lot of tension between the two countries,
+
+[00:20:59] and then there was a football match, there was some problems in the stands, a bit of hooliganism, and then that just turned into a full-scale war. And as in always in war, there were no real clear winners. Yeah. Costa Rica has got a bit of form as well, because they had the Google Maps War. Do you remember that one?
+
+[00:21:19] What was that? No, no. What happened was there's an island in a river between Nicaragua and Costa Rica, and they've been fighting over it for years, so this is really a pretext. But the Nicaraguan guy said, oh, they sent some people over there in Costa Rica's like, why are you doing that? He said, well, just look at Google Maps. It's ours.
+
+[00:21:37] And someone in Google Maps had put the border in a slightly different place than Costa Rica thought. And so they used Google Maps as a pretext for war. It didn't last very long. than Google Maps kind of apologize. That's awesome. Okay, we should wrap up on this one more interesting bucket. Bring it. Bring it. Bring your bucket. It's not even like it. The only other interesting bucket I could find. It's kind of worth mentioning because it's about the
+
+[00:22:04] centinalese people. And I don't know if that's how you pronounce it, but they're one of the few people in the world, which we don't know anything about because they're very hard to access. So they live in the Andaman Islands in the Bay of Bengal. Whenever outsiders try and sort of penetrate their culture, then they get arrows shot at them and they're repelled. So no one knows anything about them except sometimes people go and leave gifts for them. And so anthropologists have been in the past and they've left gifts of coconuts, bananas, pigs and buckets for them. And they take away all of these and they take them back into the forest with them. But they only take away red plastic buckets, but they refuse to take away green plastic buckets that are left for them.
+
+[00:22:41] Nobody knows why. A mystery. Weird. Yeah. Well, one day someone's going to get in there. there and be able to ask them why. That'd be great, that would be the first question that should be asked. Why? What's with the whole red bucket thing?
+
+[00:22:54] Okay, buckets are quite dangerous. The only stats I have are from 1996, but in that year, 10,907 Americans were taken to hospital with injuries caused by buckets. Wow, did you get any details on the injuries? Was that a prank's buckets up on top of doors? Oh, it could have been that, couldn't it? I was thinking people tripping over buckets. Yeah, that too. Or standing on one.
+
+[00:23:16] Awesome. To get behind a horse. But a lot of Americans are into that, apparently. What? Yeah, no, there was a documentary on Channel 4 a little while ago that, yeah. Are you talking about what I think you're talking about? Yeah, I think the name for the documentary was Footprints on the Pale. And it's the, that's what the wife should look for.
+
+[00:23:33] When she goes down to the barn to see if her husband's been messing with the horses. I'm confused. According to the Kinsey report, in the 50s, a lot of young Americans' first experience of sex was with an animal. Right. I think the Kinsey reports was slightly debunked a little bit, but yeah. I mean, that obviously does go on in certain places, I suppose, and footprints
+
+[00:23:55] on the pale. Footprints on the pale could just mean they were using it to climb onto the horse. I think that's what Rich is saying. It's a great country song title, isn't it? Okay, now it's time to head to the final fact of the show, and that is James. James, where do you go?
+
+[00:24:17] Okay, my fact is there is a group of chimpanzees in Zambia who wear a blade of grass in their left ear as a fashion statement. That's quite cool. How do we know it as a fashion statement? Well, because there's no other use for it. And they've noticed that when it started with one chimpanzee called Julie in 2010, and she started walking around with this little bit of grass out of her ear. And then whenever she met another chimpanzee, they would put a piece of grass in their ear,
+
+[00:24:45] and it kind of spread like a meme around the Zambian forests. and so they think it's a cultural, fashionable thing. And the pictures are brilliant. We'll put one up on the website, but it's just literally, like, you know, like in sitcom, in sketches where you had a, like, a farmer, and he was chewing a long piece of grass. It's a bit like that only it's sticking out of their ear.
+
+[00:25:05] It's a long piece that sticks right in there, not behind their ear. It's sticking out of their ear. No, no, right in there, and it's probably about, I would say, about 25 centimetres long, and they're just walking along with it sticking out. It's like an earring kind of thing.
+
+[00:25:16] That's great. I wonder if it's to do, With them, we're the people who put that in area, that bit of grass, and you're the guys who don't, so it's a tribal. Yeah. The chimpanzees in the cabalais forest in Zambia, they use sticks to get their sticks to get honey, whereas Bedongo forest chimpanzees use leaf sponges, and it's always people who are part of this group,
+
+[00:25:38] and if they move to the other group, they use their technique. So that seems to be a cultural thing as well. So there's quite a lot of evidence of culture in chimpanzees. I know that mandrills use like sharpened sticks to clean out their ears with, but it seems like you couldn't clean out your ear with grass. But yeah, they use sharpened sticks for that. And they also shave off sticks to pick out their toenails. They've been seen doing that. So that's nice.
+
+[00:26:00] That shows a bit of fashion consciousness. Yes. Or aesthetic. Or personal hygiene. Personal hygiene. Yeah. It's more than I do. Can I, can I throw completely left field?
+
+[00:26:11] I'm just going on word association here. Yes, please. But you just mentioned toenails. And it's one of my favorite. most recent facts that was that there's a museum in America, which one of its exhibits is possibly Elvis's toenail. And because it was found in the carpet of his home. So they think it might be his. And that's just sitting there. Also not related, but I found out this week that Sir Walter Scott had a salt seller made from King Charles I's fourth cervical vertebra.
+
+[00:26:43] Right. Just another celebrity body part. Yeah. Have you seen Charles Darwin's stick, his walking stick? No. Everyone should have a look at this. We'll put this on QI.com slash podcast, but if you want to see it in person and you live in London or coming to London, you can go to the Welcome Trust and they have it on display in their collection. And it looks like he's a Bond villain. It's got this skull with emerald eyes. Yeah, yeah, it looks really sinister. It's his walking stick. And you go, that's not your walk. That's Satan's walking stick. Maybe that was just on his evil side. That's Blofeld's. Yeah, yeah. He was a bit of an obsessive walker as well. I think in his last home that he lived at, he had a path made that he just walked and walked and walked around and around on this square. For someone who love to explore, that's not very adventurous. I was reading about Stonehenge for something about the radio show that we're about to do.
+
+[00:27:34] And it was about Charles Darwin that he was the first person to do an excavation at Stonehenge. But what he was actually doing was looking for earthworms. and he wanted to see how the digging of earthworms would affect the way that the stones would change how upright they were. But that was the first scientific thing done at Stonehenge. Wow. Wow, we're really side-swiping the chimpanzee facts out of this. I know.
+
+[00:28:01] Yeah, we should get back on track. I'll tell you, well, let's go to fashion. Okay. Because there was a fashion in the 1860s amongst young ladies in England to walk with a limp in imitation of Alexandria, Princess of Wales, a consort of Edward the Selwyn. She'd had rheumatic fever when she was younger and she had a stiff knee and so she walked around with a limp and everyone just copied her and it lasted for 10 years for disappearing without a trace.
+
+[00:28:24] It must be weird when you're a royal because you won't know if people are emulating you out of a sort of admiration for you or just taking the piss. Yeah. In the 18th and 19th centuries I think there was a ban on wearing over a certain weight of clothes because heavy fabrics were only supposed to be worn by the wealthy. It was a social thing and so poorer people you should. not wear underwear so that they wouldn't have to exceed the weight limit.
+
+[00:28:48] And also in the 18th and 19th centuries, I think in France, it was fashionable to wet your clothes a bit before you put them on so that when you were wearing them, it would become obvious they would cling to your body and it would show that you weren't wearing underwear. Isn't that raunchy for 18 to 19th century? They were subtry laws weren't they that said that only
+
+[00:29:03] people with a certain amount of money were allowed to wear certain things. I remember in France it was something like you weren't allowed to have more than 103 buttons on your clothes or something stupid like that. That poor policeman. It's at the lower end of policing,
+
+[00:29:18] isn't it, when you're counting buttons on women's dresses? A much sought after job, I'm sure. I also was looking at, this is actually, when I was looking into your facts about underwear, Rich, it was only in the 1920s
+
+[00:29:31] that women realized that it was good to sort of separate breasts for fashion. And so pre-1920s, and in 1905, for instance, a French bus supporter came out that was really, really fashionable and it effectively
+
+[00:29:44] unified the breasts and the monoboob was basically the only fashion until the 1920s. You just have to have one single boot. But you mean like a boob chew, right? You don't mean like it looked like one boob. Well, the victims used to talk about a woman's bosom, didn't they? Exactly. They probably only only thought they had one. There's only one. Men were horrified. I like the quote on the Wikipedia page that says, until the 1920s, breasts were always treated
+
+[00:30:08] en masse. Oh my god. Okay, we need to wrap up. Anyone got any last second facts we want to throw in? Oh, one interesting thing on animals wearing clothes. Obviously, they don't wear clothes out of choice, but I love Harry, there are a couple of people. So putting animals on clothes is much older than you think.
+
+[00:30:27] And what do we call it when cats do it? Like, lolcats. Oh, yeah, Loll cats. Putting clothes on animals. On animals, exactly. So it happened in the 19th century, a guy called Harry Pointer. And then there was this guy called Harry Whittier Freeze,
+
+[00:30:38] who lived from 1879 to 1953. He was a photographer who made his entire living out of dressing up, cats, dogs, rabbits, etc. And they're really cute. I'll put some of these pictures on the website as well, if we can get them. But he preferred cats because he said, rabbits are the easiest to photograph in costume,
+
+[00:30:54] but incapable of taking many human parts. Poppy's attractable when rightly understood, but the kitten is the most versatile animal actor and possesses the greatest variety of appeal. So there you go. Cats are the best actors. Yeah. Okay, that's it. That's the end of our show. That's all our facts. Thanks everyone for listening.
+
+[00:31:15] If you want to find out any more about the things that we've been talking about in this episode, you can head over to QI.com slash podcast. We're going to have a page full of links, videos, Muhammad Ali clips. Go to Amazon.com and dotco.uk to buy his album. Please don't sue us if you own the rights to that album. And yeah, and if you want to ask any of us questions about the stuff that we've been talking about on this show, you can get us on our Twitter handles. I'm on at Shreiberland. James at Eggshaped Rich At the Rich Turner
+
+[00:31:45] And Anna You can email me on podcast at QI.com Yeah, it became blatly obvious that you're not on Twitter still when you said What are they called mole cats? Is that like Ariel from the little mermaid going
+
+[00:31:58] What's the word? Okay, that's it for our show Tune in again next week We'll be back again with another episode of No Such Thing as a Fish Thanks for listening. Goodbye.

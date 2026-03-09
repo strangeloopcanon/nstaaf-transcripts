@@ -1,0 +1,197 @@
+# No Such Thing As A Fish - No Such Thing As Andrew Diplodocus Carnegie
+
+- Episode date: January 22, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-andrew-diplodocus-carnegie
+- Slug: no-such-thing-as-andrew-diplodocus-carnegie
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I'm sitting here with Andy Murray, James Harkin, and our friend Helen Arnie, a festival of the spoken nerd. And once again, we've gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Helen. My fact is, tomorrow will be the longest day of your life. What do you know about my life that means the tour is going to be so terrible? It's because I won't be with you, Andy. That's why it's going to be so long.
+
+[00:00:48] The days on Earth are getting longer all the time. On average, right? This is an on average thing. So potentially tomorrow could be your longest ever day. But then the day after that could be even longer. Oh, wow. We're talking like tiny, tiny amounts. But the Earth is gradually.
+
+[00:01:04] being slowed down. So it's not like 20 minutes. Yeah, you don't suddenly wake up tomorrow and you're like, wow, got an extra spare 20 minutes. It's like you've got a microsecond. You've got a microsecond spare. Oh, so, okay. What will I do with this? Take the dog for a walk. You're thinking about what you will do with it. You will wasted a microsecond. Like, in the next 800 years, if we didn't adjust our clocks to account for this, we would be an hour out. So midday wouldn't be when the sun is at its highest point. It would.
+
+[00:01:34] be 1pm. So in 800 years time, we'll be an hour out unless we adjust our clocks and we add these things called leap seconds, all kinds of stuff. Do you know that the word noon used to mean 3pm? So you would go 12pm 1, 2, noon for? Yeah, because noon was the ninth hour of the day and you can work back however many hours that was. It was 6am, wasn't it? So the first hour of the day in, was it Roman times? Actually in medieval times and I think it was for, Like people who are praying, they would have to pray on the ninth hour. And so they would do their noontime prayers. And it would be at three.
+
+[00:02:11] So in the year 5,000 approximately, midday will be at noon. We'll be back there again. This is perfect. What were you saying about leap seconds? Well, this is the weird bit about all of this slowing down. Because the earth is slowing down. There's nothing you can do about it. It's things like tidal forces, kind of slowing down the earth by moving in and out,
+
+[00:02:32] changing the angular momentum if you want to get physicsy about it. But things like earthquakes, they can speed up the movement of the earth. Oh, really? Really? On average thing. So over the last few decades, we've noticed that the earth has slowed down, but sometimes it's speeding up and sometimes it's slowing down. So on average, it's slowing down. But they can't predict it exactly. So you can never say, right, next year we need to add a leap second. We'll get back to normal. Wow. Because some years, you're going a bit slower. Some years, So these organizations decide. They're kind of like the real time lords.
+
+[00:03:08] They decide when we're going to add a leap second. There's a guy at the National Physical Laboratory, which is down in South London. And he's kind of in charge a little bit of this kind of measurement of the time. He's known as the time lord, like you were saying. They call him the time lord. His real name is Peter Wibbley. But that's really interesting because Dr. Hu calls his sonic screwdriver the wibbly wobbly. So he's got a...
+
+[00:03:32] Yeah, yeah. It's the wibbly wobbly, timey-wimmy. Anyway, Peter Wibley, or we're going to call in the time law. He said there are consequences with tinkering with time. Are the consequences, Daleks? Robo men? Robo men. I don't watch it.
+
+[00:03:49] Cybermen. Yeah, sure. It is a trade-off, though, because computer time is clocking along in its own happy way, being exactly 60 seconds, exactly, 60 minutes, exactly 24 hours. but the earth is doing something a little bit different. The earth is doing 24 hours, one second every couple of years. And the thing is, if we do change it, then we need to tell the computers as well. Yeah, and that's where it goes horribly wrong.
+
+[00:04:16] Because they can only tell you six months in advance, they're going to add a leap second. All of the stock exchanges are now computerized, and one second, adding one second to one computer and not adding it to another. It means that all of the financial transactions, happening in microseconds can be exploited. Suddenly, the stock exchanges can go. It's the thing, Andy, about the number or the average time that people hold on to a share is like 0.01 seconds or something.
+
+[00:04:44] Something crazy. Because they all happen so quickly and so micro transactions happening all the time. Like you or I might own 10 shares in Tesco's or whatever. I'd certainly have. I was very worried when the quarterly figures came out. But companies will have, you know, 100, or... or a thousand shares in Tesco's were a micro second. I think there are a thousand shares in Tesco James.
+
+[00:05:08] I'm pretty sure I own more than a tenth of Tesco. There is actually a big international argument about whether we keep the leap second though. Because the US and France want to abolish leap seconds because they're incredibly annoying. But Britain, Russia and China say that the technical challenges should be manageable, right? We should be able to handle this. But this last leap second, quite a few GPS receivers knocked out. Apparently, in the 2012 one, Reddit was down for 40 minutes, which was incredibly, I'm saying. 2015, Twitter, Pinterest and Instagram and Amazon were down for about an hour or something.
+
+[00:05:49] Did I not read that they had to ground all Qantas's flights for about an hour or something? Yeah, it was 2012. Their booking system went AWOL because the systems couldn't cope with this added second in the middle of. the night. There's a thing, I don't know too much about this, but you guys might. Anna was telling me this that the... Who? Because someone I used to know. So basically, obviously, every planet has a different amount of day to Earth, but they're not all 24 hours. So all the NASA scientists who are working on the rovers on Mars have to adjust their clocks to be doing a work schedule on Mars time. So they work on a Mars day. That's cool. It's like 20, is it 20, is it 20?
+
+[00:06:30] six hours or something. It's not that different. Yeah, it's not that different. Yeah. But it starts to really mess you up. I found a really cool measurement. So I was looking into different measurements of time and found a few surprising ones that I didn't know were real things. Like, for example, I would always hear an American say, I'll be there in a Jiffy. I didn't know Jiffy was an actual unit of time. Yeah, Jiffy's an actual unit of time. It's a 0.1 seconds. Really? Yeah. Another unit. do you guys know how long a moment is? So I got this from a guy called Haggard Hawks at Haggard Hawks is on Twitter.
+
+[00:07:06] In medieval Europe, 90 seconds is what a moment was defined as. Be there in a moment. Cool, I'll see you in 90 seconds. Is that right? That's according to this guy. He runs a really amazing blog about words that are no longer used.
+
+[00:07:21] It's a really nice kind of Twitter accounts. I read once that a moment now is like three seconds or something. Isn't that how long you have to be hugging someone for it to be uncomfortable? Yeah, it is. It was a similar study. It was some kind of study about hugging. And it was like how long the average hug is until it gets a bit awkward. And they said it was a moment, which is three seconds.
+
+[00:07:43] And then they said a lot of other things in your body also lasts for three seconds. I can't remember what it was. So I don't think it's universal because I think if James and I hugged, it'll be awkward after about 0.2 seconds. In a jiffy. Yeah. Okay, time for fact number two, and that is James. Okay, my fact this week is that in 1457, men with mustaches were banned from Dublin. This is such a cool fact.
+
+[00:08:17] Why? They didn't like Irish people. Yes, it was Irish people. Weirdly, with it being Dublin. But because Dublin was owned by the English at the time, just the area around Dublin, the rest of Ireland was run by the Irish, but the area around Dublin was run by the English. It was called the pale, which is where we get the phrase beyond the pale for something that's crazy,
+
+[00:08:37] something that was outside of this pale area. And what they didn't want was Irish people in the town. But if an Irishman did kind of get in there, how would you know it was him? Well, they all had these mustaches. So if there was an English person in the pale who had a mustache, you didn't want him there because everyone would think he was Irish. Right. And that was a problem. The ordinance said, men with Bardi's above the mouth were not allowed.
+
+[00:09:02] and bardies meant beards. So any beard above the mouth. So you have a beard above the mouth, Dan. No, I don't. But he's also got a bit of below the mouth. He's got a beard. I've got a bit of growth. I wouldn't say it's fully formed.
+
+[00:09:13] That counts as a bardy to me. Really? I'm afraid so. Wow. Well, they even had a rule about this. It was so that the same rule, it was so that the saidlet be at least shaven within two weeks. So if you haven't shaved for two weeks, that's what counts.
+
+[00:09:26] Because amazingly at the time, they did not have a word for mustache. So they had to say, if you have any beard above the mouth, or hair on your upper lip. They had no way of, more concise way of saying mustache. One thing I love about this is this is, I'm quite obsessed with facial hair and beards in the sense that I'm really fascinated by it
+
+[00:09:43] because I can't have it myself. And I'm also fascinated by it, and I don't really want it near me. It's like nuclear power station. I know that they're really great and lots of people like them, but I just don't want one pressed up against my face. Like a nuclear power station.
+
+[00:09:57] Yeah, exactly. But I'm absolutely obsessed with beards. And I've got some, adverts that I dug up about quack beard growing solutions that were sold by Victorian quacks in order for people to grow a beard because beards were supposed to be for health. So they would filter out the bad air and it was when it was when people still thought that diseases were carried by bad smells instead of buying contact. So you would stop the bad smells getting into your mouth, blah, blah, blah. So people would get a beard on prescription. And if they weren't
+
+[00:10:32] able to grow a beard. They would get like a beard generating liquid that they could smother over themselves. That's so funny. That's amazing. So, yeah, beards were like for health. That's very cool. But then they weren't really out of fashion at the end of Victorian times. Yeah, yeah.
+
+[00:10:47] And there was a study in 1909 about how mustaches harboured germs. And this was the New York Times. This was a French study they were quoting. It said, a Parisienne, as in a female Parisian, allowed herself to be kissed by a clean-shaver man and then by a bearded man. And the clean-shaven man had left a small quantity of harmless particles. His rival's kiss had colonized the lady's lips with the best ally of tuberculosis, diphtheria, pneumonia,
+
+[00:11:13] and numerous other unpleasant microbes. Where did they get this bearded man? They just dredged him up from the sane. This is brilliant because in the Journal of Hospital Infection, they went and swabbed some men with beards and some men without beard. and the men without beards had MRSA on their faces and the people with beards did not have MRSA.
+
+[00:11:37] Yeah, but they have tuberculosis cholera. Arguably, it's because all the other bacteria, they had tons of bacteria, but it was producing toxins that was then killing off the nastier bugs. It was good bacteria. Yeah, so it's like penicillin. Penicillin kills off other bacteria because it produces toxins. I found a survey result from 2010
+
+[00:11:59] of what people in Britain recognises the most famous mustaches in the world. I think there's one. Interestingly, Hitler is not on the list. You're kidding. Hitler's not on the list. Fix. Yeah.
+
+[00:12:09] Total fix. So, in at number one with 24%? Chaplin. No. Chaplin is in at 5. Give us a clue. Clue, artist. Picasso.
+
+[00:12:20] Dali. Dali. The Picasso mustache famed. You panicked. I did. I could see Andy was going for it. I was like, I need to get in here fast. And I just, oh my God.
+
+[00:12:33] And just quickly at number two, in an 18%. Picasso? Nope. Clue, we need a clue. Clue, uh, sportsman. No. Big Daddy and Haystacks with the white mustache, whatever, the one with the, the wrestler with the white. Yes.
+
+[00:12:47] You got it. You're kidding. Hulk Hogan. Yes. Holkirgan. Hitler's mustache is way more famous than Hulk Hogan's mustache. Definitely. Yeah.
+
+[00:12:54] Someone else missed out on the list of most famous moustaches, which is the South Korean Striker, Kang. Sue Il, who very recently was suspended for 15 matches because he was found to have steroids in his system, which he blamed on a moustache growing cream that he had been applying to his face. Yeah. Did you say Korean football player? Yeah, yeah, yeah. Okay, because I've got the same thing as a Japanese football player. Well, a few years later, a Japanese rugby player missed the World Cup. Yeah, exactly for the same reason. He said he was trying to grow a mustache and he was using this kind of thing that had, yeah.
+
+[00:13:31] It seems that I've never heard of modern day mustache cream. Yet in Korea and Japan, apparently this is a thing. Clearly if they're using it as an excuse, then it has at least some traction there. Yeah. There are a group of people in Japan called the anus. Grow up. Grow up, kid. What's wrong with you?
+
+[00:13:53] And they're heavily mustached. So the hairy anus. Honestly So the A news They have these really long mustaches And they are often said to carry a mustache stick around To lift the mustache when they're eating So they don't get Guinness or whatever inside their mustaches
+
+[00:14:15] That's very cool Now it was first described by a guy called Edward S. Moss When he went around Japan in the 19th century But it turns out that it isn't a mustache stick It's a prayer stick But they do use it to lift their moustaches So it kind of is a mustache stick as well What's a prayer stick?
+
+[00:14:30] It's a stick you use for praying. Is it like an antenna to God? I don't know. I imagined it would be like, you know, like prayer bowls in Buddhist countries where you kind of, you would take the bowl and you would make it make a ringing noise and it would help you meditate or something. I imagine it was like that, but I really don't know. They did used to have, I think it was back in the Victorian times,
+
+[00:14:52] a set of mugs and so on where they had mustache catchers, so you'd place your mustache into it as, as part of the porcelain and there would be a... I think the anus had those as well. I think so, moustache cups. So maybe that's where... That's a big, yeah, we had some of those on QI TV show. Oh, really?
+
+[00:15:09] And some of the spoons as well, which have a little hole in... So it's like a normal spoon, except it's got a cap over it with a hole cut out of it. So you can pour soup onto one half of the spoon and then strain it through the hole. So you get none in your moustache. Wow. That sounds incredibly practical just from a kind of sippy cup kind of perspective. Yeah. that to have that would mean you'd like one myself.
+
+[00:15:29] Yeah, I'd love one. I've got another stick beard fact. Fatal hair stick fact. Which is, we mentioned the popularity of beards in Victorian times. In the early Victorian times, they're incredibly unpopular. And then they kind of reached peak beard in kind of the 1890s. But to give you an example, in the 1840s, only one member of parliament had a beard. and it was George Frederick Months
+
+[00:15:57] and this was really extraordinary not just because it looked like a toilet brush attached to the bottom of his face but at the time beards were the mark of a tramp, revolutionary or charlatan so he used to carry a stick with him and I've got this, he was, although he was a large man
+
+[00:16:13] he would carry a stiff cane with him at all times to answer any insults he encountered on the streets from people who accused him of being either a crank or an artist even more. I thought I'd look at some other things that happened in 1457. Oh, cool. Just a few things.
+
+[00:16:35] Pope Paul II died in a melon-induced apoplexy. We've all been there. Incredible. So this is Anna, who I should introduce you guys to one day. She did, she do a big thing where she found melan overdose was a massive thing back around this time. She loves it. Yeah. She found like 10.
+
+[00:16:54] people, kings and popes and yeah, all died from melan overdose. How? Is it like, it goes... I think it was surely something else. Obviously it was something else. Yeah. Some of the things, Vlad the Impaler made his first raid into Transylvania in that year. Golf was banned by James II of Scotland. And in 1457, a sow, a pig was convicted of murder and sentenced to be hanged by the hind feet from a gallows.
+
+[00:17:22] her six piglets were found to be accomplices but as no evidence was offered against them on account of their tender age they were acquitted Wait but being hanged by your hind feet Wouldn't that be just like a bungee jump? Okay, it's time for fact number three And that is my fact My fact this week is that diplodocuses
+
+[00:17:49] Could break the sound barrier The dinosaur It was so fast Yeah Was this like the days were shorter, sound traveled a lot slower? I know. So the actual answer is that they had a little whipping system at the end of their tail, and they would whip it so fast that it would break the sound barrier,
+
+[00:18:11] little sonic boom created. And we know this, apparently, according to scientists, because they've been doing these computer simulations where they've been recreating the dinosaurs. And one of the consequences of putting this thing together, the simulation, is that when the dinosaurs tailed this movement, it moved at such a speed that it breaks the sound barrier. So obviously it's hypothetical.
+
+[00:18:32] We don't have diplodocuses to check it out on. But supposedly they broke the sound barrier. I find something crazy that's something that large... Because I think, unless I've made up, there are a few sort of smaller animals that can break the sound barrier. But outside of that, I've never heard of something natural, a living thing breaking the sound barrier.
+
+[00:18:50] Isn't the... Is it the shrimp? Does that... Yeah, mantis shrimp. Yes, that's what I'm thinking. It itself doesn't move faster than the sound barrier. It clicks with its claws and it creates a bubble which breaks the sound barrier. Is that correct?
+
+[00:19:03] Yeah. That sounds a barrier. Okay. So then that shouldn't count. So, yeah. Yeah. In terms of the animal moving itself, yeah. Yeah.
+
+[00:19:09] It's fantastic. And it's a diplodocus. I mean, that's... Well, I think it's a diplodocus, isn't it? Well, ah. I say diplodocus. I say diplodocus. A lot of people say diplodocus, and that's the American pronunciation.
+
+[00:19:21] Two scientists around here say... Yeah, but Dan's seen Jurassic Park. a lot. I would trust. Exactly. His judgment. Well, because the word diplodicus was invented by an American, and he pronounced it diplodicus. I think we were supposed to pronounce it diplodocus. But actually, I do concede that diplodocus is a nicer word. Well, there's a BBC news correspondent called Susan Ray, and she went round serving what people thought it was amongst academics to get the best understanding of it. And what she actually came out with, I think there was a definitive answer, but I got more interested in this sideline thing she found out, which is that
+
+[00:19:59] there's actually four pronunciations of it. So it's not just the two that we know. Okay. There's dip lodokus. That's how I say it. Yeah. That's speed as well. Is there a Diplodicus? Oh yeah, yeah, yeah. Diplodocus. Yeah. So that one as well. That's the fourth. Sorry, yeah, I meant dieplodocus. Yeah. But that would imply there's a single animal called a ploticus, which is twice as big. Yeah, so there's four pronunciations, apparently. What was the fourth one? I think the one I just said,
+
+[00:20:33] Diplo doke us. Dubbo dee do. So this was by a BBC journalist. Yeah. Due to the unique way that BBC is funded, we now know that there are four. But Dan hasn't told us which is the right one. Well, as I said,
+
+[00:20:48] I got so interested in the four pronunciations, I didn't look into the one that actually won. And it was named after Andrew Carnegie. One of the first dinosaur specimens was named after. What, Andrew Diplodocus Carnegie? Yeah, no, the one of the most wealthy men ever. Yeah. Can you explain how it was named after him, though?
+
+[00:21:08] Well, it was called Diplodocus Karnigi, the first specimen. Yeah, the scientific name it was given. Yeah, yeah. And he invested a lot of money. I think he gave Dippy the Diplodocus to the Natural History Museum, the plaster cast. It was him who presented it. Yeah, yeah. And he was very instrumental in spreading the...
+
+[00:21:25] amazing news about this dinosaur around the world. He was fascinated by them. That's it. Just speaking of Dippy, so Dippy obviously originally had a different tale. I think it was on the ground and then they realized that Diplodicus
+
+[00:21:40] probably had them raised up so they had to redo it. So they had to do remolding of it. So the person who did the molding of it was the same guy who did Jabba the Hut for Return of the Jedi. Really? His name is John Coppinger.
+
+[00:21:56] That's a great father. That's really cool. I know this because someone we work with Steve helped to work on it. So this guy not only did Dippy, but he did Jabba the Huts, and he did a lot of the aliens in Fifth Element and Harry Potter and so on. I love the aliens in Harry Potter. It was so good. It was a curveball, but it was the right moment.
+
+[00:22:22] I've got a dinosaur nomitory, which is that it was a couple of years. ago, a new species, completely new species of Teresaur has been named after a nine-year-old girl who found the fossilose bones on a beach in the Isle of Wight. And the species is called Vectidreco, which means terasaur, means dragon from the Isle of White. And the second word is Daisy Morissé, because her name is Daisy Morris. And so she's a nine-year-old girl who has a dinosaur named after her because she found the bones, she collected them up, she handed them in.
+
+[00:22:55] That's very cool. Best bit about this, when she actually found them, she was only four years old. Wow. And she started fossil hunting at the age of three. I've been looking for fossils in the Isle of Wight as well, and I've never found any terrosaurs. Yeah, because bloody Daisy Morris has got there first. She's had years head start. She's been going for like 10 years.
+
+[00:23:12] Yeah, but I'm a lot older than her. My eyesight might not be as good as it used to be. I think she's closer to the ground. You can't move as fast on the uncertain terrain, James. Yeah. I was reading about the sound barrier. the sound barrier. Yeah.
+
+[00:23:26] The first man to break the sound barrier is still alive, which I did not know. Chuck Yeager, great name. That's amazing name. And he was 24 when he became the first man to break the sound barrier. It's really... And he's what, 89 now? He's 92. 92?
+
+[00:23:40] Yeah. And he, because he used to be a fighter pilot. He flew in the Second World War. And he had amazing adventures, as you would expect, because he was a fighter pilot. Yeah. And I was just reading, this is all very publicly. This is on the Wikipedia about him. He, on the 12th of October, 94, he downed five enemy aircraft in a single mission, which is good, I believe.
+
+[00:24:00] Like you're saying, you would expect it with him being a fighter pilot. You would be the worst audience for his stories, with you? He's like, I was in the war and I shot down all these enemies. And you're like, well, I would expect that. You're a fighter pilot. Hang on you, hang on you. I want to tell you what happened on the 12th of October, 1944. So this is the exact sentence.
+
+[00:24:18] Two of these kills, out of five in a day, two of these kills were scored without firing a single shot. when he flew into firing position against a mesh of mit 109, the pilot of the aircraft panicked, breaking to starboard and colliding with his wingman. Whoa. How cool is that? You just have to turn and face. They both parachuted out.
+
+[00:24:36] So they survived. So 92, I follow him on Facebook. He's very active Facebook user. Yeah. Chuck Yeager loves Facebook. That's amazing. Breaking the social media barrier. Wasn't there supposedly a story about, was it Kittinger or someone who maybe broke the sound barrier before him doing a free fall from extremely, extremely high?
+
+[00:24:59] And the idea being that he went so fast. And with the air being so thin up there, the sound barrier is a bit less that maybe he did break the sound barrier. Wow. There are loads of earlier claims. And they sort of didn't have very accurate instruments and things like that. Also, the last time that Chuck Yeager broke the sound barrier was on the 50th anniversary of the first time. He flew a plane at the edge of 74 past Mac 1. There's a picture of him sitting in it on his Facebook page.
+
+[00:25:27] You can see that. I'm going to go and poke him after this podcast. We were talking on last week's podcast about the Concord, and so that obviously breaks a sound barrier. And you pointed at Andy that they're not allowed to do it over cities. And I had no idea because the boom is so great that it would actually just be incredibly noisy. But actually, it goes beyond noise. There was an accidental song.
+
+[00:25:52] boom, a sound barrier breaking that happened. And how do you pronounce this place? I know it's... Aberristwif. There are actually four ways of pronouncing it. There's a burristhwith. So a jet was flying over and it broke the sound barrier and it was so loud that everyone thought that a bomb had gone off.
+
+[00:26:14] Windows in shops shattered. Wow. Just blew out completely. People were terrified and they genuinely thought something had exploded. That's incredible. That's amazing. Yeah. Night shift worker Greg Babaliki said, I was just falling asleep and the somic boon happened. Keep it down, please. Isn't that what happened with the meteorite in Chelabinsk as well? It broke the sand barrier and it caused a massive kind of smashing of windows and stuff. Wow. So when the dinosaurs were wiped out
+
+[00:26:45] allegedly by this giant meteor, were they all just like, wow, those diplodocus are Whipping up their tails of Okay, time for a final fact of the show And that is Andrew Hunter Murray My fact is that more and more scientists Are describing their findings as astounding So this is a study of scientific papers From the last 40-odd years
+
+[00:27:10] And it's by the researchers At the University Medical Centre of Utrecht Utrecht in the Netherlands There are actually four different ways And so they found out of that And so they found that in scientific papers that are published, more and more researchers
+
+[00:27:25] and scientists are putting positive words like novel or amazing or spectacular into descriptions of their works. And they're also using other descriptive words more a bit more. So amazing, assuring, astonishing, bright, creative, encouraging, enormous, excellent, groundbreaking,
+
+[00:27:42] innovative, phenomenal, reassuring, and robust and spectacular and unique and unprecedented. The word novel now appears in 7% of papers in PubMed, which is this huge online database of papers. And the researchers have jokingly said that at this rate, every paper will be described as that by the year 21, 23. There was a guy who wrote a book about weird newspaper articles from the 19th century.
+
+[00:28:09] And he, I think, searched for a singular coincidence or a singular example of something, which obviously should mean it only ever happened once, but they used it all the time in Victorian times. that's great who was saying was it some one of you who was saying about Sherlock Holmes
+
+[00:28:25] stories the other day I was talking to someone about this and they pointed out that every single Sherlock Holmes story starts with Watson saying
+
+[00:28:32] in all the cases we ever dealt with this was the most singular so there are a couple of flaws in this study because it's just picked it's based on
+
+[00:28:42] certain words so it doesn't take into account all language but they do think that it genuinely highlights an actual problem with scientific
+
+[00:28:48] language is it a problem is it a problem Is it a problem that scientific papers are using the language of discovery for their discoveries? Yes. I'm on your side, actually. I read a headline that was scientists left, and then this is the quote, gobsmacked by astounding Pluto images. So, yeah, you would be gobsmacked and astounded by Pluto images. Yeah, but I don't think you would be if you had sent a camera to look at Pluto.
+
+[00:29:17] It's still, it's, it's, it's, it's, if you'd never sent a camera to Pluto. the images arrived. Why did that camera go? This is typical of you, Andy. Well, you would expect that. You work with Pluto. So the word astounding comes from thunder, tonaree, and it means, like, to leave something thunderstruck.
+
+[00:29:36] Where does the word gobsmacked come from? I think it's just been smacked in the gob. There's another cool thing about scientific language. So it's analysing scientific language, looking at word frequencies and things. There was a scientist called, Hedric Stapel, who got the nickname the Lying Dutchman. In 2011, he admitted that he made up a lot of data.
+
+[00:30:00] He's a psychology researcher. And researchers at Cornell University in New York looked at his papers, and they knew which ones were fake and which ones the data was fake and which it was real. And they worked out that he used more science-related terms to describe his methods when he was writing up fraudulent findings than when he was writing up real. ones. So they can identify to 70% accuracy, so there's a long way to go, but they can identify when he's lying, which is interesting. So if that could be rolled out to other forms of language, that would be amazing. Forensic linguistics. Yeah. That is fascinating because there's certain
+
+[00:30:35] like tricks I don't know them more like in interrogation where you can study not the content of the responses, but the word count of responses. It's a certain police technique where you're not really listening to the answers, but you're listening to the number of repeated words. They're using. And they say, I did it, I did it, I did it, I did it, I did it, I did it, I did it, I did it. It's because if you, if you were at a scene and you were actually there, then you don't have to draw on your imagination as much. So you use a different, you can't control the kind of repetition of language.
+
+[00:31:13] There was a scientific paper with no words in it that I found. It was by a guy, a clinical psychologist called Dennis Upper, which he wrote or didn't write in 1974, and it was called the unsuccessful self-treatment of a case of writer's block. Wow. That's delightful. That's the scientific equivalent of John Cage's four minutes. Yeah, exactly that. Nice.
+
+[00:31:37] That's great. You can, instead of like in 430, but you talked about this the other day, you talked about 433 and how it's about the audience noise and the orchestra noise or the penis noise. Is that just reading that paper, you just, as a scientist, have the internal thoughts of disappointment. Yeah. You project onto it. Lack of success. Yeah.
+
+[00:31:57] Wow. Wow. That's really cool. I went on to Google News and looked for the word astounding to see what people are describing as astounding at the moment. It's astounding that 10 households in Western Supermare still watch black and white telly, according to one, the most recent headline. found. See, there we are. I'm not astounded. Are you not? I'm intrigued. Yeah. I thought that word was going to be indifferent.
+
+[00:32:24] And it came out and intrigued. It was much more interesting. Yeah, I mean, those must be a rarity now and I'm sure the sets have a certain value to a collection or a connoisse. And you pay a cheaper license fee, I understand. Yes, you do. Right. Yeah. The next astounding new story I found was Officer Hands Out an astounding 19,000 parking tickets in a year. Now, that is astounding. I'm surprised that you wouldn't say
+
+[00:32:48] Well you would expect that He's a parking corner And then the third one that I found Was it's astounding Seven black and white TV licenses Are currently in force in Ponte Prid Wow So the word of standing outside science papers
+
+[00:33:03] Is mostly used to describe TV lines Now that is astounding That is Okay that's it That's all of our facts Thank you so much for listening If you'd like to get in contact with any of us about the things we've said over the course of this podcast,
+
+[00:33:20] we can be found on Twitter. I'm on at Schreiberland, Andy, at Andrew Hunter, M. James. At Egg-shaped. And Helen. At Helen Anning. Yeah, and Helen's got a bunch of gigs coming up as well. First one is this coming Sunday, which is the 24th of January. And that is in London, and that's Festival of the Spoken Nerd.
+
+[00:33:38] So you can go to that. And also, you're doing a new show, aren't you? On the last Tuesday of every month. We are. It's called An Evening of Unnecessary detail, and it does exactly what it's It says on the tin. Even your own Andrew Hunter-Murie is doing our Casio Knight special. It will be astounding.
+
+[00:33:55] It will be. Okay. If you want to listen to all our previous episodes are on our website, no such thing as a fish.com. You can also email podcast at QI.com. Anna, who used to be on the show, she will be back next week. She will answer those emails. And we'll see you again next week for another episode.
+
+[00:34:12] Goodbye.

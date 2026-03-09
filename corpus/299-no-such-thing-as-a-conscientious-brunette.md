@@ -1,0 +1,299 @@
+# No Such Thing As A Fish - 299: No Such Thing As A Conscientious Brunette
+
+- Episode date: December 13, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/299-no-such-thing-as-a-conscientious-brunette
+- Slug: 299-no-such-thing-as-a-conscientious-brunette
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Washington, D.C. My name is Dan Schreiber, I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go, starting with you, Andy. My fact is that one of the main reasons people fail to get into the U.S. Army in the First World War was because the military required recruits to have a minimum of six teeth.
+
+[00:01:05] And this was a problem. So this is from a book called Making the American Mouth by Alyssa Pickard, which is a great book, and it's all about problems of dentistry, and it turns out that the famously great American teeth were not always that great, and in the First World War you needed good teeth because you had to eat horrible, tough military rations, and you had to have three pairs of decent opposing teeth, and one in ten recruits failed because of that. This is the story of the two million people who were rejected from the Army, that was the main reason.
+
+[00:01:42] And a few sources said 12, but there are quite a lot of saying six as well, so yeah. And one of the other reasons in war was, certainly in the Civil War where they had a similar problem is you would load one shot in each gun, and to get your shot out you had to rip it open with your teeth, right? And so if you didn't have any teeth, you're just like, gummel-y, sucking on it until a cartridge. So I read in the Civil War, so you know if you are disqualified from going to war, the category you're given is 4F, that's what they say, you're a 4F, and that means you're not
+
+[00:02:15] able to go, and this is for a modern day war as well, and it's suggested, and I say it's suggested because it's probably definitely not true, that the 4F stands for four front teeth, four fangs, yeah. And what they're saying, you didn't have those four? If you didn't have those four, you can't go to war because you can't bite open the clip for your gun. There was quite disparity in the Civil War between the two sides though, teeth-wise, and in some other ways.
+
+[00:02:47] So actually, historically, for the last 200 years, the northeast of the United States has had much worse teeth than the southwest, and the Confederate army had much better teeth, and they just had better dental care, and they're not really sure why this is actually, because it's not about socioeconomic status, it doesn't really correlate with that, often wealthier people had worse teeth because they ate sugar, they think it might be something in the soil quality, but anyway, Vermont was the worst, I think, Vermont was the one where literally more than 10% of people in World War II, I think, even got rejected, and I think in World War II, when teeth were still as bad, no progress made between the World
+
+[00:03:26] Wars, they had this requirement again, which was like you've got to have the three pairs of opposing teeth, and they actually had to change the rules because they realized they weren't going to get enough people going into the army. So they changed the rules to say, actually, you just need to have enough teeth in your lower arch, like on your lower jaw, to hold a denture. As long as you've got kind of one tooth there to hook a denture set of dentures on, then you're okay. Really?
+
+[00:03:49] Yeah, it's actually still true that if you don't have enough teeth, you can't join the US army. I read all the rules today of what you can and can't do. Did they accept you? So they had, it says, inefficient natural healthy teeth is a reason for not being allowed in the army. Some other things, polydactyly, so having too many fingers. That's insane.
+
+[00:04:13] I know. That rules you out. Yeah. You can fire more guns faster. You would think so, right? Yeah. How? Do I need to draw you a diagram, Dan?
+
+[00:04:24] You've got a gun on each finger. You're a super soldier. My bad. Thank you. If you have ingrowing toenails, you can't join the army. Really? But they are, they are. They're remedied quite easily.
+
+[00:04:37] Yeah, so if they're particularly bad ones, if you're taller than six foot seven, you can't join. And if you have an unexplained absence of a testicle, what is a mystery missing testicle? That's the mystery, isn't it? It's not because they think you might be Hitler trying to join, take it down from the inside. At least, so teeth were actually another way of getting out of war as well. So at least one soldier in the, this was the first world war, if you got wounded, if you threw away your false teeth and you no longer were able to eat the rations, you might be
+
+[00:05:12] invalidated out of the entire army. Really? This is a good way of escaping military service. Wow. That's amazing. Yeah. That's an extremely easy way. People were sort of shooting themselves in the kneecaps and stuff to get out of military
+
+[00:05:21] service. Just chuck away your dentures. Chuck away your teeth. Yeah. They really needed to invent the blender in war, didn't they? Because this was the issue, it was that they couldn't chew. If everything was a smoothie, they wouldn't have had to remove any of these people. That's true.
+
+[00:05:34] Yeah, that's true. Eating bad teeth is still a massive, massive problem for the army. And so for over seven years, they've been working and they've put $12 million worth of research behind this into some combat chewing gum. Wow. That's what they're currently trying to invent. Yeah. So what does it do?
+
+[00:05:50] Yeah. Well, it's sort of the idea is that it stimulates the flow of saliva in your mouth the longer you chew it. So it neutralizes acid. And that's true of all chewing gums, surely. I guess this is just like super soldier chewing gum. Well, so then you start chewing it and you just get loads of water and saliva in your mouth.
+
+[00:06:05] Chewing away. Yeah. No, it's, I mean, it's designed just to keep your teeth more healthy. Because the big problem that they have is that 10%, I believe it is, of all the emergencies that they have that are not front line, are teeth-based, 10%. So there's 47 different types of dental emergencies that they deal with that are graded in like a booklet that you can get, yeah. And they go from mildly uncomfortable, which is like gingivitis, all the way to totally
+
+[00:06:31] avulsed tooth, avulsed, avulsed. Well, you're the one with it in front of you. I don't know why you're looking at me. It looks like you just fell on your keyboard. So, yeah, so gingivitis or absolute tooth-based, gosh. And that's real, when you've got aphelusidid, it's really bad. Yeah. That's so, sometimes it's so bad you can't even say it.
+
+[00:06:55] Yeah. That's what's happened. So, by the end of the 1990s, 6% of British people had none of their natural teeth remaining. So I guess as an old person, you've got full dentures, 100%. In 1978, that was 37%, 37% of adults, zero teeth. Wow. Yeah. Isn't it true that they used to deliberately knock them out?
+
+[00:07:16] Yes. Like on your 21st birthday, as a present, they would knock all your teeth out. Yes. I have known elderly people who were offered that. Yeah. Yeah. It wasn't like a punch in the face. I know.
+
+[00:07:27] The idea was, wasn't it, that if you would lose them all, say when you were 21, and replace them with dentures, and then you wouldn't have tooth problems as you got older. Yeah. Right, yeah. Do you know the most teeth anyone has ever had? Oh. Yeah. How many do we normally have?
+
+[00:07:42] 32. Yeah, give or take. Yeah. Is this at one time in the mouth? Is this at one time in the mouth? Oh. Wasn't there a gummy this year who had sort of like hundreds or thousands or something? Seven thousand.
+
+[00:07:53] Okay. Well, there we go. The dentist absolutely guessed it out of the park. It was 547. Whoa. Now, these were very small teeth, obviously. It was a boy in India. He had a slight pain in his jaw.
+
+[00:08:06] It was a little lump, it was a thing called an odontoma, or an odontoma, and doctors removed it. It grew to the size of a golf ball before they did, and it was a little suck, and inside there were 526 tiny teeth. Yeah. It's just when stem cells go a bit haywire and start thinking, teeth? Sure. But he woke up the next morning absolutely loaded, right?
+
+[00:08:28] Lift up your pillow. You've got hundreds of teeth. I have a weird teeth-in-war story that I love, which is from the Second World War. So this was after Japan had surrendered in World War II. Then a lot of Japanese people were put on trial by the Allies, and that included the Japanese Prime Minister Hideki Tojo. He was going to be executed in Japan, but he wanted to speak at his trial. He couldn't speak because his teeth were in such terrible condition.
+
+[00:08:58] He was being looked after by US naval officers, and he said, okay, well, I need some dentures so I can at least speak at my trial. There was a dentist called Jack Mallory who was in charge of doing this, and he made the prosthetics. How kind of dickhead is this? I know everyone I'd be for each other in World War II, but he engraved in his dentures in Morse code on the back of his dentures the words, remember Pearl Harbor. Whoa.
+
+[00:09:25] Yeah. That is a real move and a half. He gave these dentures to the Japanese Prime Minister, and he thought that was so great he's going to have the words remember Pearl Harbor in his mouth for eternity. Then he chickened out. This guy was in prison with his new dentures, and then this guy was like, shit, I'm going to get in trouble for this if anyone sees. Oh my God.
+
+[00:09:44] So he told his superiors, and they had to do this whole operation where they sort of broke back into the prison in the dead of night. Him and his dental associate and stole the dentures back so he could scrape off. But they hadn't been installed in the mouth. He did have them in his cell with him, so maybe they were sort of on his bedside table or something. It's weird that he thought anyone would ever find out, isn't it? Sometimes you run your tongue around the inside of your mouth. Yeah, but you can't read Morse code with that.
+
+[00:10:10] Was he a Prime Minister, did he say? He's a Prime Minister. The Prime Ministers can do that, doesn't he? Yeah, just sort of running your teeth going, hang on. Hey, we need to move on in a second. I've got a couple of facts about military recruitment, this kind of thing. Oh yeah. So to join the US Army in the First World War, there was an insane questionnaire that you
+
+[00:10:29] had to answer if you wanted to sign up. It was all yes, no questions, okay? And it was a list of a couple of hundred of the questions. And it was just a test, your aptitude to make sure you had sort of standard intelligence. So things, the questions started quite simple. Can a dog run? Yes. Right, brilliant.
+
+[00:10:46] Oh, James, okay, great. Is water dry? No, no. Right, great. Okay, can you read? Yes. Okay, great. So you're doing great so far.
+
+[00:10:56] Downward doing really badly. I was out two questions again. It gets a bit weirder then. Are newspapers made of iron? Well, I didn't think so until you said that. Do handkerchiefs frequently injure human beings? Do conscientious brunettes exist? It's really, these are real.
+
+[00:11:20] And then they get, so those are the surreal ones. Then it goes completely bananas, right? So do vagrants commonly possess immaculate cravats? Do tendrils terminate in cerebral hemorrhage? Is a guitar a disease? Sorry, go back. The tendril one, what's the answer to that one? Do tendrils terminate in cerebral hemorrhage?
+
+[00:11:41] Yeah. I don't know what the answer, I mean, no. No, no is the answer. What it seems to me is like a load of words that don't really make a sentence. Yeah, exactly. There's no yes or no answer. You just have to go, huh? Next to it.
+
+[00:11:53] What exactly was this testing? Intelligence. It feels like it's testing the level of hallucination you're having. It is time for fact number two, and that is Chaczynski. My fact this week is that the Ronald Reagan Presidential Library has been protected from wildfires by a herd of goats that includes Vincent Van Goat, Selina Goatmez and Goatzart. So high brow and low brow references in that herd of goats. And this is an amazing story this year that actually the Ronald Reagan Presidential Library,
+
+[00:12:39] which is just outside LA, hired 500 goats and it's to clear up the sort of flammable scrub material, because that's a really useful way of creating a barrier against wildfires. You know, they eat all the stuff that the fire would eat, and then the fire can't move. I've put on a firefighter. That's another one of those censuses that didn't make sense, isn't it? Just testing your IQ, James. And so, yeah, this is really cool. And then there were wildfires a few months later, and the brush created a fire break,
+
+[00:13:08] which massively slowed down the fire, and it meant that the firefighters could defeat it and save Ronald Reagan's library, which contains various cool stuff, like his Air Force One and a bit of the Berlin Wall and himself. Whoa, really? He's there, isn't he? He's buried there. He's buried there. That's the less sensationalist way of putting it.
+
+[00:13:29] Yeah, sorry. He's not in the dewy decimal system. He's not. Yeah, goats are incredible at this kind of thing. I didn't realise how much they were being used. They are. Well, this company is a really cool one as well. So it started only last year, I think.
+
+[00:13:44] They've got really lucky. It's called 805 Goats. I don't know why, because they don't have 805 goats. It was started by this couple called Scott and Emily Morris, and he just had no experience in this, but he went to a talk where a firefighter was saying, what a shame you don't have more goats to prevent fires. So he decided, I'll just buy some goats and hire them out. And he did it in a really weird order, though.
+
+[00:14:04] So he left this talk, and he started by booking in a bunch of weed clearing jobs. So he rung around, advertised himself, said, I'll clear weeds with some goats. This was before he'd bought any goats. Then he got loads of stuff booked in, and then he was like, oh, God, I've started this now. I better buy some goats. And then he bought a few dozen goats. And then he realized, I live in a tiny house. I don't have anywhere to put these goats.
+
+[00:14:24] And so then they actually appealed to her former school, and they're staying on their school grounds now. But yeah, he's a very happy man. That's cool. It's now legal for you to hire goats in Washington, DC. As of 2019, there's a new law. I read the law. It says that the mayor shall allow goats to be temporarily imported into the district
+
+[00:14:48] for the purposes of eating grass, milking demonstrations, participating in yoga, and similar activities. Nice. That's great. That's very cool. It seems like it's been going on for a while in America, because I was reading that in 2015, you could actually order goats off Amazon. What, live?
+
+[00:15:07] Yeah, live goats. Amazon launched a home delivery service. In 2015, there was a bit of stuff like that going on with Amazon. So in Japan, you could order a Buddhist monk to your house via Amazon to do prayers for funerals and so on if you wanted. But yeah, it's been going on here, and it's specifically for that. It's just the goats come in, and it's for fire clearance and stuff. It's happening a lot.
+
+[00:15:28] There's goat fund me's, which are called goat fund me. Brilliant. Yeah. I wonder if it's happening solely because of the propensity for puns. I wonder if that's why all these startups have happened. Because it's just a good word to pun with, isn't it? Yeah. Although, this company, sorry, Selena Gomez has hired their goats.
+
+[00:15:46] Really? And there's no reference to whether or not that's connected to the fact that one of their goats is called Selena goat me's. Was there any kind of hilarious misunderstanding where someone mistook Selena Gomez for Selena goat me's? Well, and Selena Gomez is currently chewing brush somewhere in California. And there's a really, really worried goat in a green room about to go on stage. She's not the only Selena goat me's. There's another Selena goat me's out in New Zealand. In Canterbury, they have a sort of RSPCA where they look after goats and they send them back out.
+
+[00:16:17] So they've got Selena goat me's there. They've got Eva Longhornier. Brilliant. Jessica Alba. And Nicole Kidman. Nothing. Yeah, it's a kid is a baby goat. Kid is a baby goat.
+
+[00:16:36] That's what I knew. That's the thing I knew about that one. Not everyone is happy about this goat situation of how many are being hired. So in 2017, a Michigan union issued an official complaint saying that goats were taking the jobs of good, honest humans, basically. Like people who mow lawns for a living. Exactly, yeah. The goats were clearing weeds, they were clearing brush and this is taking jobs from human union workers. And the Western Michigan University got a complaint about this.
+
+[00:17:07] And the Washington Post did a calculation about the potential impact of goat labour. And they found out that even if all stuff was given over to goats, it would only cost about 347 jobs. What? What do you mean if all stuff is given to goats? Like not all jobs. You can't have a goat as president of the United States. Well, can't you? No, it's a good point. Sorry, all kind of, as many gardening jobs as possible that don't require fiddly stuff.
+
+[00:17:40] There is a goat in the British Army, of course. Of course. Of course. That is William Billy Windsor II. And he is new actually, he's quite young. The previous one, William Billy Windsor I, was a Lance Corporal in the 1st Battalion, the Royal Welsh, until he was demoted to fusilia after inappropriate behaviour during the Queen's official birthday celebrations. He apparently refused to keep in step and tried to headbutt a drummer.
+
+[00:18:14] Wow, wow. Yeah, that'll do it. And so he got, eventually he retired and they brought in this new one. They went into the fields in Wales just looking for a goat. It's the Queen's own herd. Can you write to the Queen for permission to say, can we hunt one of your goats and sort of bring it into the fold? Yeah. Literally bring it into the fold.
+
+[00:18:34] And the new one, because it's so young, he still gets his ration of two cigarettes a day, but he's not allowed to have his Guinness until he's a few years older. Does he smoke the cigarettes? No, he eats them. Okay. Although, oh, there's a fact, so goats don't have upper front teeth. They don't have upper front teeth, they just have this sort of heart. They just have this weird pad at the front, it's just a sort of dental pad.
+
+[00:19:02] Yeah, it's kind of gross. It is very sort of gummy, isn't it? I find that a bit gross. It's gummy, it's gummy. It's just like a huge wad of tissue. And that's why when you see them eat, they just sort of grind stuff sideways along it, don't they? I'm not judging them, but I think it's kind of gross. So they did a study recently, which showed that goats are next to dogs, man's best friend.
+
+[00:19:25] They're man's second best friend. Really? As in they bond emotionally with us very well. And people always lump them in with sheep, and they're completely different, so they're not really into herds. They don't mind being in a herd, but they don't mind being out of it at all. They're much more intelligent when they do intelligence tests. And they have this thing they do where, when they're in trouble, they do the imploring puppy dog eyes thing at humans. Who are they?
+
+[00:19:48] They do this test with them where one of those classic kind of scientists doing an intelligence test where they got the goats to figure out that if they pulled a string and it released a lever and then they nudged that lever, then they could get access to a nice treat. And they actually did this on 12 goats, and they tested them and they learned how to do it very quickly. And then they made the task impossible for them, and when they made it impossible, the goats all looked around at the humans with like a little raised eyebrow kind of help me expression. I know. But they were smart, so of those 12 goats within four tries,
+
+[00:20:20] nine of them had completely mastered this trick, this puzzle solving trick. Two of them cheated, so they were disqualified. Wow! Which is hard, I didn't know you disqualified a goat from an intelligence test, because they cheated, they tried to headbutt it open. Oh, okay. And they do, you know, for someone who's your best friend, they do headbutt a lot. Yeah.
+
+[00:20:40] It's meant affectionately. But they had, yeah, so nine did it, two were disqualified, and there was just one goat in this test that showed no signs of improvement by her 22nd try. And they wrote her off as a hopeless case. Have you heard of the, so the U.S. Navy has a goat as well. Don't they? Yeah. So the U.S. Navy cadets, I'm sure a lot of people here have heard it before,
+
+[00:21:01] but I had no idea about this, there's an official goat mascot called Bill the Goat, and that either takes the form of a person in a costume, but there is an actual goat as well. And the Army and the Navy cadets for the last 70 years have been attempting to kidnap each other's goats before their annual football match. Wow. They will not stop. And do they succeed quite often? They succeed quite a lot.
+
+[00:21:25] Well, the Army are trying to kidnap a goat, which is a lot easier than trying to kidnap the Army mascot, which is a mule, which is six times as heavy. So almost always, you know, the goats have frequently been goat, but the mule has only been goat once, and it was incredible. In 1991, the Navy cadets were so annoyed about having repeatedly lost their goat, they went a bit overboard. They visited West Point Academy disguised as tourists. They drew maps, they planned their escape routes, they studied the alarm systems,
+
+[00:21:56] they recruited a friendly mule farmer to tell them how to steal a mule. They then went to West Point disguised as soldiers. They claimed to be the military police. They tied up a sergeant there. They locked everyone else at the mule, sort of the mule stable in a room. They cut the phone lines, and then they escaped, only to be followed by the state police, the military police, and three helicopters. Wow.
+
+[00:22:23] With a mule in tow. And at that point, the petticoat intervened, and they said, can you please stop doing this? That's amazing. I found, so in the headline of this fact, one of the goats was called Vincent Van Goat, and as well as finding another Selena Goat Mez, I found another Vincent Van Goat. And Vincent Van Goat is a comic book character, and it's a goat that had superpowers, and it lived in Washington, D.C.
+
+[00:22:52] Yeah, so this is your superhero, Vincent Van Goat. I mean, it's not Spider-Man, or Batman, is it? Wait till you hear the backstory, James. Yeah, he's a goat, and he was in a laboratory where they were doing tests, and this guy called Derek Henderson had passed away, and during some sort of weird experiment, the consciousness of Derek Henderson went into the goat, and became Vincent Van Goat, but no one knew that Derek Henderson had gone in there, so this guy continues experimenting on this goat,
+
+[00:23:21] and he gives him the ability for flight, laser vision, and superhuman strength. Without knowing that Derek Henderson is inside him, yeah. So then, two people called Quantum and Woody come to pick up this goat, and it turns out that they're the children of Derek Henderson. So they've got, it's goat dad, basically. It's goat dad, but yes, but they don't know that he's in there. So he spends his whole time trying to go, I'm your dad inside a goat, and they eventually start believing through little cryptic codes
+
+[00:23:50] that you give to text messages and stuff. The goat texts? They train it, because it's a very good goat. It can fly. It's got lasers. And it's just been entrusted to two random children. Yeah, well, they're the main people of the comic book. So it's a text-to-speech device, so they suddenly communicate with it and work out that it's the dad, Derek Henderson,
+
+[00:24:11] but they don't properly believe it, because it turns out the goat is a woman, a female goat. All right, yeah. So then they discover that the goat is pregnant, and she gives birth to Derek Henderson. Wait, wait, wait, wait. Do you mean to a human baby? They think, no, they think Derek Henderson is coming out. They don't know what's going to come, but it turns out nothing.
+
+[00:24:36] It's just a spirit that flies away. Well, that's... That's your superhero. That is maybe the longest we've ever gone on this podcast without a single fact being spoken. Yeah. It won't be by the time I've edited it. That sounds incredible. And now you're going to say, we have to move on.
+
+[00:25:02] And we all know that, but you all want to just waste 10 minutes of our time with a crazy comic book story. I just let the people of DC know what incredible comic book characters they have. Why he's called Vincent van Gogh. No fucking clue. Nothing in that suggests it. We do need to move on in a second. Should we do that?
+
+[00:25:20] Yeah. Okay, it is time for fact number three, and that is my fact. My fact this week is that the Apollo 12 moon landing footage was faked. Okay. Is this a real fact, or is it in a comic book? So this is a fact that is actually in our latest book, the book of the year 2019. And on the 14th of November, it's going to be the 50th anniversary of the Apollo 12 moon landings. The launch happened on the 14th, and this is a true fact.
+
+[00:25:53] What happened is when they landed, they had one camera that was going to film the whole thing. And as they were starting to film and go onto the moon, the camera was pointed directly towards the sun. And it burns out the camera entirely, the only camera that we had there, video camera. So as a result, they had no footage, and all the TV channels back in America suddenly were freaking out. We had the audio, but we didn't have the visuals. So CBS had to cut to a Long Island studio where two actors in spacesuits had to pretend that they were walking on the moon while using the actual audio underneath it. And over at NBC, they had two astronaut marionettes that were created by Bill Baird,
+
+[00:26:32] who was the puppeteer behind the lonely goat herd in the sound of music, using that underneath the audio of the Apollo 12 astronauts. So they had to fake the footage. There is actual fake footage of an Apollo moon landing, which is real. Why did they have all these things at the ready? So there was a lot of, obviously, demonstrations of what it might be like, the experiments that they would be doing up there. So there was a lot of news channels that were showing what were going on. And then there was a lot of fun things like the marionettes that were made by this guy just to sort of play.
+
+[00:27:03] So they had that just in the studios, and they had to, as an emergency, go get those guys back in the suits. We need visuals for this. But that is the role of those marionettes in life, isn't it? They thought they were just there for the stupid segment in the ad break, and suddenly they are the people on the moon. That's so cool. How many people watched it, did they, Apollo 12? Because I think, basically, everyone watched Apollo 11, and they thought it's probably going to be quite similar. And also, Apollo 11 was on a Sunday night, so everyone was at home watching TV.
+
+[00:27:33] But Apollo 12 was at 6 in the morning on a Tuesday, so no one was away to watch it. But, I mean, even, who were the guys who were there? So Alan Bean was on there. He was one of them, Pete Conrad. So Pete Conrad didn't seem that impressed. And they asked him what the moon was like, and he said, it's very light, grey-like concrete. If I wanted to go out and look at something that looks like the moon, I'd go and look at my driveway. That's very unenthusiastic.
+
+[00:28:03] He was a fun character. So he had a bet that was made before he went to the moon because someone on Earth who was interviewing him said, oh, so what are you going to say when you get on the moon? It doesn't matter what you're going to say, because I know you're told what to say. And he said, no, no, I'm not told what to say. I can say whatever I want. And she went, of course it's written for you. Neil's thing was obviously written for him as well. So he said, I bet you I can say what I want to say, and I'll tell you right now.
+
+[00:28:25] We'll come up with it together, what I'm going to say. So the first words the third man said when he landed on the moon was, whoopee! Man, that may have been a small one for Neil, but that was a long one for me. That was his first words on the moon. It was a $500 bet. You got the $500 because he was short. He was short, yes. And it was a play on Neil's quote. How much do we need to spell out?
+
+[00:28:53] He was such a cool character, Conrad. So he was actually supposed to be in the Mercury Seven, who were the original Seven people who were going to work for NASA to be going out into space, like the original Seven. He was asked to do the exams, but he was kind of a wild card and he thought the exams were really invasive and annoying. For instance, they did a Rorschach test on him where they show you a blob of ink and they ask you what you can see in it. He basically was like, this is complete bullshit.
+
+[00:29:19] So when the psychiatrist said what do you see in this blob of ink, he described in extreme and graphic detail, basically a porn film, that he was seeing in the blob of ink. Then they were like, okay, thank you, sir. Then they pushed a blank card towards him and said, okay, what do you make of this? Then he just turned it around and pushed it back and went, it's upside down. That's very good. Did you say that was Conrad?
+
+[00:29:44] Yeah. Conrad, he was quite conscientious when they got up there though, because when they got there, they had to set up this generator that was powered by plutonium. There was a problem, a snag. The plutonium got stuck inside its container. Being suggested, why don't we just hit it with a hammer? Conrad said, no, obviously we can't do that, we're on the moon, we're astronauts, we can't just hit it with a hammer.
+
+[00:30:07] Bean did it anyway. And it worked, it freed it up and it got the thing working. And Bean later said, never come to the moon without a hammer. So he became an artist when he came back to Earth, and those paintings you can still buy on his website, he drew a lot of Apollo paintings, so he would do Neil Armstrong, he would do Buzz and so on, but he would also do these works that were sort of chipped into steel and stone,
+
+[00:30:31] and he did it using the hammer that he did exactly what he just said on the moon. Oh, that's very cool. They had to use a sextant to get to the moon. Did you know this? No, I don't. What? So this is amazing. So Apollo 12 got hit by lightning as it was taking off,
+
+[00:30:48] not once but twice, and this was stressful, because... They're taking off, they're burning 15 tons of fuel every single second, this is a high stakes bit of the mission, and it just banged twice with lightning, and the electrics got completely fried. And they knew for a long time that they'd been hit by lightning. They just saw everything turned off, and they had no idea, so they said, can we restart?
+
+[00:31:11] So anyway, normally once they got up into orbit of Earth, they needed to set their course for the moon, and they would normally have an automatic program to do that for them. That wasn't working thanks to this, so they needed to use a sextant to chart the stars, basically, and say, that's where we need to go. Surely you can just see where the moon is though, can't you? Like, why do you need to look at the stars?
+
+[00:31:36] The moon's probably bigger than all those stars. Okay, first of all, the moon is not bigger than all those stars. Can I take your point? Yeah, you're right. I can only assume it's a bit more complicated than that, I don't know. What were they doing with the sextant? Did they have an abacus on board? I think they got trained with star charts, just in case.
+
+[00:32:01] Yeah, just in case. Handy. Another thing, someone I think we should mention, was Dick Gordon. Always the third person on the moon voyages is forgotten, the guy who's up there in the command module hovering above the moon or circling the moon when they're down on the moon in the lunar module. So Dick Gordon's up there, and I think it was quite a long wartime they were out there.
+
+[00:32:21] I think it was in the 36 hours or something they were down there, and he's just on his own circling the moon. They did two spacewalks, about eight hours of spacewalking, and then it is very dusty, and they got covered in kind of black dust. So by the time they were returning to the command module, they were dirty. And so they went back up to see Dick and be like, hey, look what we've done. And they went back up in the lunar module,
+
+[00:32:43] and they latched on to the command module that he was flying. And Dick pulls the hatch down, takes one look at them, and says, you're not coming in here like that. Covered in filth. And he makes them take all of their clothes off. And so they re-entered the command module completely naked. Whoa! Amazing.
+
+[00:33:06] I think it was a prank. I think he'd been up there on his own thinking, those fuckers got to walk on the moon. Can we talk a bit about how they fake the Apollo 11 moon landing? How they did fake it. Yeah, absolutely. Right, OK. No, just about the theory.
+
+[00:33:23] Because it's very, you know, it's been carefully thought about by quite a lot of people. It's obviously not true. But, you know, the theory is that Stanley Kubrick was hired. But I did not know that the theory runs that he was hired to direct three Apollo missions. And that there was a specially designed set in Alabama. And that Kubrick did Apollo 11, did Apollo 12, fake both,
+
+[00:33:45] but then refused to direct Apollo 13, because NASA rejected his screenplay. He wrote a screenplay where it all goes catastrophically wrong, as happened with Apollo 13. And as I said, no, that's not glorious enough. OK. But then they did end up using his screenplay in the end. I see.
+
+[00:34:03] So I haven't actually seen Apollo 13, but is that different to the real one? No, no, no. It did go very badly wrong. Yes, but in the film, it's the same thing that happens. Well, yeah. What do you mean? Yeah, of course.
+
+[00:34:16] OK. He didn't change the ending. He was very sensitive, actually. Now I come to think about it. Can you imagine Big Jim Lover watching that movie? You just killed me at the end? What? His Hollywood.
+
+[00:34:33] The Telegraph wrote about this. There was a deathbed video of Stanley Kubrick in which he purportedly confessed to faking the moon landings. Yeah, he says the US government perpetrated a fraud. They wanted to go to moon. They weren't quite ready yet, but they needed a Cold War victory. And was that a real video?
+
+[00:34:49] Well, the Telegraph wrote up how people can tell. There are some signs that it's not genuinely authentically Kubrick. So the Telegraph wrote, perhaps the biggest giveaway is the fact that the man in the video quite clearly isn't Kubrick. Yeah. Some of the footage went up online. Just an old man in a bed.
+
+[00:35:11] But the interview footage also includes someone off camera calling him Tom and instructing him how to act. You know, when you said the conspiracy theorists have thought this through carefully, there are a few holes. It feels a bit weird talking about it because we think it's the most insane thing to discuss. But the stats are really bizarre
+
+[00:35:32] on people who think the moon landings are faked. So in Britain, one-sixth of people, like one in six humans in the UK, thinks they were staged. And not only that, but worryingly. And I think because all the people get quite a hard time in the UK these days amongst the hipsters, but they're the ones who have their head screwed on
+
+[00:35:50] when it comes to this. So in the over-55s, it's one-eighth of people. But in people aged 24 to 35, it's more than a fifth of us who think it's fake. And it's just the internet, the web of knowledge has told us the truth. There is, well, 53% of people who do think it was faked 53% of them think that man did land on the moon,
+
+[00:36:14] but just later. So they think we didn't... Apollo 11 didn't land on the moon, although I'm sure we got around to it eventually. That's what a lot of people think. Really? Yeah. How pointless.
+
+[00:36:26] Do you remember Bart Zibrel? You all remember him, I'm sure. Oh, yeah, yeah. He's a conspiracy theorist and filmmaker who had an encounter famously with Buzz Aldrin, in which Buzz Aldrin punched him. And because he was following him around and, yeah, yeah, yeah.
+
+[00:36:40] So this is how it was written up by The Guardian. Zibrel, 37, demanded that Aldrin swear on a Bible that he had really landed on the moon. Aldrin, 72, declined to do so, and then his fist really landed on Zibrel's face. James and I met Buzz Aldrin. Yeah, we did. It was kind of...
+
+[00:37:04] We did a show with him in the UK, and it was a bit scary, because every question you asked him, there was a sense when he looked back at you, because he took a few seconds before he answered any question. It was almost, you know, like, imagine the time lag when they sent messages to space. It was that similar kind of distance,
+
+[00:37:19] and you thought, he's going to punch me, he's going to punch me every single time. And we asked him the thing about, do you remember the birthday card? Yeah, so we said that there was more processing power in a musical birthday card than there was on the Apollo 11 mission. He did not like that one bit.
+
+[00:37:34] He did it. We wrapped the card off us, didn't we? Yeah, he went, could this land on the moon? It slammed it on the ground. We went for a drink with him afterwards, didn't we? And my wife was there, who's Russian, and we left her and him together, because we had to get one of the other guests out,
+
+[00:37:50] and she was just stuck with Buzz Aldrin. Didn't really have anything to say to him, and then just went, sorry about the Cold War. Okay, we need to move on to our final fact of the show, and that is James. Okay, my fact this week is that Australian poppy fields have crop circles.
+
+[00:38:17] They are caused by wallabies getting high and jumping around in circles. Very nice. We think, or it could be aliens. We think, yeah, yeah. It could be aliens. So this was an interview with Tasmania's Attorney General Laura Giddings,
+
+[00:38:34] because Tasmania makes about 50% of the world's legally grown opium. So they have loads and loads of poppy fields, and she said basically it's a real problem. They're wrecking the crop. They get really, really high, and then just start going round and round in circles. And then it kills all the poppies.
+
+[00:38:51] And it's bad enough for Tasmanian poppy farmers, because everyone's trying to stop people from taking opiates and stuff like that. So they're really struggling to sell their opium. Let's think of those guys in this, yeah. Does it harm the wallabies? Or are they kind of okay after they're over the come down? I don't know.
+
+[00:39:10] I think they're fine, because they keep going back for more. Oh, yeah. So I think they're all right. There's cases, so some people have worked out that they get high off these kind of poppies. So there's a Dublin society who,
+
+[00:39:21] well, a Dublin society had to step in, because some people over there were purposefully feeding them and watching them do this. And I think the wallabies. Yeah, yeah. Wow. And I think it did cause them harm. There's a lot of wallabies overseas in many places
+
+[00:39:34] that you wouldn't expect them to be. We have them in the UK. Yeah, exactly. Yeah. Isle of Man? There's about over 100 on the Isle of Man. Sorry, this means nothing to you. You wouldn't expect to see them there,
+
+[00:39:44] is what I'm saying. They're not the only ones who like opium, though, right? So parrots are addicted to opium. Oh, yeah. And humans. It's parrots, humans, and wallabies. This is in parts of India, and this is a real problem.
+
+[00:40:00] So India, again, does a lot of growing opium for medicinal purposes, and they're ruining farmers' crops. And so there's one farmer in the state of Madhya Pradesh who estimates that he's lost 10% of his crop to parrots who just eat it and get high. And they don't respond very well to it in the end, so they absolutely love it.
+
+[00:40:19] They're addicted, and they've even learned not to squawk. So these are parrots that usually squawk when they're doing stuff, but they know that they shouldn't draw attention to themselves, so they do it very quietly. But they get really, really woozy. You know, they go into an opiate kind of stupor. They get into a very deep sleep,
+
+[00:40:35] so they often fall off their perches and die because they're taking it, which is very sad. And they get terrible withdrawal. So the opium season ends, and they've got no dealer left, and lose their appetites, and just sort of some of them, you know, starve themselves to death
+
+[00:40:51] or just horrible cold turkey, cold parrot. It's an issue. It's so much more of this overseas than there is in the UK. One of the main stories about this kind of thing happening in the UK involved a drunk pony called Fat Boy, who ate too many fermented apples and fell into a swimming pool in Cornwall. Wow, did he? Was he okay?
+
+[00:41:16] He was fine. You were right to say that humans like opium. Thank you. In 2014, there was a Chinese noodle shop owner who was found guilty of lacing his noodles with opium poppy seeds so that his customers kept coming back. Wow. And they only found out when one of his customers
+
+[00:41:39] was given a routine urine test by traffic police. And they were like, honestly, I've just had some noodles. Because you kind of eat poppy seed bagels, you can fail drugs tests. And that's why, yeah, in the US and Britain, I think now they've introduced this rule, that if you're in prison and you are let out on bail, or if you are allowed out for the day,
+
+[00:41:57] you have to sign a form promising you won't eat poppy seed bagels because you'll show up positive. And there was even in 2014, the Queen's racehorse, who was called Estimate, I think won a race and then tested positive for opiates. And the argument was that there had been some poppy seeds mixed in with the feed.
+
+[00:42:16] Because it doesn't feel like something that would help a racehorse to run quickly, does it? No, it's not what you'd instinctively go for. But she had to fall for the £81,000 prize money, so please donate generously. Wallabies? I didn't know anything about wallabies before this, but there are loads of different species of them.
+
+[00:42:39] And they're obviously pouch animals, they're basically small kangaroos, I guess, to be unscientific about it. But the Tamar Wallaby can breathe through its skin. It's so cool. It's not for very long, it's just after it's born. So it's absolutely tiny when it's born. But on the day they're born, they get a third of their oxygen through their skin,
+
+[00:42:59] because they're just about the size of a bean, and they are small enough that they have a big surface area to weight ratio, so it's more effective, it's more efficient for them to get through from the end. I guess, I don't know, the oxygen molecules just managed to sort of pervade into their body, but they're really, really tiny, and then they forget by the time they're an adult.
+
+[00:43:20] They don't forget, they don't remember. No one's asked them if they remember it. They don't remember how to do it, sorry. They might remember having done it, though. Maybe. They're like a tiny little worm when they're first born, and then of course they do the huge trick, and we still don't really understand how,
+
+[00:43:41] at what is basically still a fetal stage, they climb up through the fur and into the pouch, but they do it, and then they clock onto the teat in the pouch, and then the teat swells up, the mother's teat swells up in their mouth, so they're stuck on it, which I always think must be so uncomfortable, and they can't take their mouth off the mother's teat for a couple of months. They're just round there. Really? Are they like kangaroos that they make different types of milk?
+
+[00:44:05] So the baby, when it first comes, it needs the real lots of cream, but then as it gets bigger, another baby comes along, gets that, and then it gets the half and half. Yeah, and while they're doing that, they can also be growing a new baby in their uterus, so they can have sort of a kid that's jumping in and out of the pouch on one teat, then the very newborn, wormy one on the other, and then they're growing a third one in their uterus.
+
+[00:44:26] They're like a super mom. They'd be on a documentary or a reality TV show or something. And they do that without having extra sex, as in they've... Say again. What? Well, so usually if you want a second kid, sex has to happen, right? Sure.
+
+[00:44:44] I'm so glad you know that with somebody who has a second kid on the way. Weirdly though, we didn't have sex the second time, so... Do you think your wife is a wallaby? Dan's wife is actually a scientist in the body of a wallaby. So what they do is when they have sex, the first bit goes in it and they conceive, but they save some of the sperm, and once they have the wallaby go out,
+
+[00:45:18] the sperm goes around into the other... They have a few vaginas, I'm not sure how many. But hang on, sorry, sorry, sorry. I mean, how do they... Because we've talked a bit about this before. I don't understand how they keep sperm cells alive that they've received mating. I don't understand where and how you keep them.
+
+[00:45:35] Well, let me tell you, you are asking the wrong guy. That's cool, I didn't know they could do that. I knew they could save a thesis when it had been fertilized, so they'll have an embryo growing, it'll just start to grow, and then they'll be like, oh, I don't want to get pregnant yet, and so they just pause their pregnancy, it's called something like pregnancy pause or something,
+
+[00:45:58] and they can put the pregnancy on hold for like a year. But yeah, that's when the sperm has fertilized the egg, and this little baby just sits there and waits in them for a year or so. That's extraordinary, that's amazing. So I grew up in Australia, so there's a wallaby and a kangaroo. I only found out while researching this today, there's a wallaroo.
+
+[00:46:16] And a wallaroo is not them a wallaby and a kangaroo mating and a mixed breed, this is a separate... This is, you've got small, large, we've now got medium. This is the medium size wallaby to kangaroo. I can't believe you've never seen a wallaroo and a padamelon, which again, padamelon is the smaller version, you've got padamelon, wallaby, wallaroo, kangaroo, there's another one too.
+
+[00:46:36] They're all over the shop. They all look kind of the same though. I'd never heard of that, that's very impressive. That's good to me. There were giant kangaroos, of course. Oh no, sorry, giant wallabies. The giant wallaby weighed 330 pounds, about 250 kilos,
+
+[00:46:54] and the giant short-faced kangaroo weighed 530 pounds, so about 240 kilos, and its closest living relative is the banded hair wallaby, which weighs 4 pounds. Yeah, they had... they had wombats that were the size of small cars, which had teeth longer than knife blades,
+
+[00:47:15] they had 5 meter long lizards, they had birds that weighed half a ton, and they had tots as the size of small dinosaurs. I didn't say the size of dinosaurs, but it was the size of small dinosaurs, but all these things existed at the same time as humans were in Australia. When the humans first came over,
+
+[00:47:34] all these massive things were there. That must have been a terrifying time to be an Australian. Humans did sort out that problem. They did, yeah. They are so good at that. I've got a NASA Apollo fact. We're a bit late for that. I'll just go for anyway.
+
+[00:47:54] Wow. If this doesn't end up there being a wallaby on the moon, then you've broken some serious codes here. So, it was a guy called Walter Koeniger, who was charged with the task of trying to work out what the best way to walk on the moon was, and he spent years and years doing it, up until the point where they went to the moon,
+
+[00:48:15] and he produced a five-volume report on the best ways to move around on the moon, and according to him, the best way to move around the moon, with your gate as a human, is to jump like a kangaroo. The kangaroo hop is how he wanted Neil Armstrong to go around the moon.
+
+[00:48:34] That's so weird. What does that even mean, though, because kangaroos use their tail to push themselves around this stuff, don't they? Yeah, so he just thought you're pushing both feet, and you're landing, and if you get the balance right, you're going to have a distance, so not moving your legs independently, basically.
+
+[00:48:50] Exactly, not moving your legs independently, and they didn't do it because they thought it would look shit. Wow. Despite five volumes of work. All right, that was tangentially related to Marsupial's Let It Go. Do you know there's a wallaby with a purple neck, and this was thought to be a mythical creature.
+
+[00:49:09] People talked about there being a purple necked wallaby, and everyone said it's not true, and people said they'd seen it in Australia, and then people kept on having these sightings, and it's like purple dye on its neck, and then everyone would just say, no, it's obviously just rubbed up against some purple paint, and there was a hundred-year period
+
+[00:49:25] where scientists were just telling these people who saw them, it's just rubbed against a purple wall or something. Anyway, they finally... They finally sort of categorized the purple necked rock wallaby, and it's really cool. It's a new species discovered in 2001, and it basically secretes purple dye
+
+[00:49:41] onto its neck and kind of its face, and it's quite hard sometimes to spot, because when it rains, it washes off, and it just looks like a wallaby again. So where does the ink come from? From within their body, with their glands, yeah. Do we know what...
+
+[00:49:58] We've got absolutely no fucking idea. We're going to have to wrap up in Sunish. Oh. We could go back to some, like, stoned animals. Oh, yeah. So what happens in Platypus' in Australia? What happens is...
+
+[00:50:15] It's quite interesting with those guys. So what happens is you get drugs that are flushed into the rivers by humans, and then they're eaten by larvae, and then the larvae are eaten by spiders, and then the spiders are eaten by the Platypus' and all the way up that food chain, everyone is kind of getting stoned.
+
+[00:50:33] Wow. But it's really weird, because it's this thing called bioaccumulating, and it's concentrated as it goes up through the food chain. So as you go further and further up, they're just getting more and more into it, and it's especially bad with antidepressants. I think you get Platypus' who take,
+
+[00:50:50] like, 50% of what you would expect a human to take for antidepressants every single day. Wow. Yeah. And they're small. They're really awesome. They're like this big. Yeah. They're bigger. It's not great for a podcast, have I said. I have to say, James, I don't think they are that big.
+
+[00:51:06] I think they're more like this big. That's mad. So it's like the old lady who swore to fly, basically, but if the end of that rhyme was, and then she massively got the munchies. It's like if the fly had a little bit of drugs in it, and then whatever it was, the bird had a bit more and the cat had a bit more,
+
+[00:51:24] and by the time you get the horse, it's just full of ketamine. Yeah. It's time to wrap up. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast,
+
+[00:51:43] we can be found on our Twitter accounts. I'm on at Shriverland. Anna is not yet in the order. Wow. I didn't know even what the answer was at that point. It's either yes or no. I normally have a while to revise. Go to James.
+
+[00:51:59] Okay. Andy. At Andrew Hunter M. James. Andy Harkin. You can email podcast at qi.com. Yes, or yes,
+
+[00:52:15] or you can go to our group account, which is at no such thing, or you can go to our website, nosuchthingasafish.com. We have everything up there from previous episodes, upcoming tour dates, links to our new book, Book of the Year 2019, but outside of that, guys, thank you so much.
+
+[00:52:31] That is all of our facts. We'll see you again. Bye.

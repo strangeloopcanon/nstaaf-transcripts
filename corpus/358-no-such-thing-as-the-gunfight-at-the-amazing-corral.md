@@ -1,0 +1,345 @@
+# No Such Thing As A Fish - 358: No Such Thing As The Gunfight At The Amazing Corral
+
+- Episode date: January 29, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/358-no-such-thing-as-the-gunfight-at-the-amazing-corral
+- Slug: 358-no-such-thing-as-the-gunfight-at-the-amazing-corral
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Schreiber, I am sitting here with Anna Tyshinski, Andrew Hunter Murray and James Harkin and once again we have gathered round the microphones with our four favourite facts from the last seven days and in no particular order, here we go. Starting with fact number one and that is James. Okay, my fact this week, embrace yourselves people, is that founding father of the United States of America, Governor Morris, died after sticking a whale bone into his own penis.
+
+[00:00:51] I mean, you would expect that you might die after sticking it to someone else's penis because they would be so angry with you. He did it to himself. He did it to himself. It's quite a sad story. It's quite a funny story, James. It's quite funny. Yeah, I mean, like, go on, Anna.
+
+[00:01:07] Was this the asphyxia wank of the 1870s? No, it wasn't. It wasn't that. Basically. A great opening with this fact immediately. Okay, so basically, first of all, Governor Morris, you might know him if you've never heard his name said as Gouverneur Morris, because that's how his first name is pronounced. But he was a big deal.
+
+[00:01:30] He was known as the pen man of the Constitution. He signed the articles of the Confederation and the Constitution. He helped plan the Erie Canal. He helped lay out the streets of Manhattan. Here's a real proper big deal in the early United States. But he had some problem with his urinary tract. We don't know exactly what it was. It could have been just a UTI urinary tract infection.
+
+[00:01:53] It could have been something more serious. But whatever it was, he decided to self-medicate and try and clear the blockage in his penis. And what are you going to do that with? Obviously, with a whale bone. And when I say a whale bone, I don't mean like the backbone of a blue whale or something like that. It was a kind of almost like an early plastic, which was taken from the baleen of whales. So it could have been like, you know, the ear of a pair of spectacles or the handle
+
+[00:02:19] of a knife or something. All that stuff was made out of whale bone. Anyway, he took a piece of this, put it in his penis, gave himself a very even worse infection, and eventually died of said infection. So that's a shame. I really hope that the day before he did this, he was having a chat with friends going, what do you think in like 200, 300 years they're going to remember me? Imagine a podcast as a fact about me.
+
+[00:02:43] What do you think that's going to be? It's so unfair because he's one of the most interesting people. He's one of the most interesting founding fathers, I think, there's so much amazing stuff about him. And yet I think this is the only thing holding it back from him having a big budget musical about him. It should have been Morris instead of Hamilton, but I don't want really want to see the final part of that musical.
+
+[00:03:04] Hamilton was so clever to get into and die of that rather than the whale bone thing. So this was a guy, he was very like Andy says, an extremely crazy character of the late 18th century. He's quite letharious, wasn't he, as well, which is something that comes up as much as his sort of political achievements. The fact that less than the whale bone of the penis. That's the ranking order. Yeah, whale bone penis, penmanship of the Constitution likes to kiss ladies a lot.
+
+[00:03:35] That's the order. And yeah, he sort of, he had a lot of injuries that were supposedly connected to his womanizing. He had a peg leg, for example, later on in life, and that was a result supposedly of him trying to escape a furious husband. That's a rumor, but it comes up a lot. I think it's not true. Yeah, I agree. I think it's not true.
+
+[00:03:56] He did have a carriage accident and he lost the leg in that. And it's a really tragic story. That's the bit I assumed you believed, Andy. I didn't think. Yeah, I did. It was the husband running away with it. No, but he clearly did do a lot of running away from husbands in his time, but he was taking the reins of a carriage in New York.
+
+[00:04:12] I think it was in New York. Maybe it was elsewhere. He was taking the reins of a carriage and the horses bolted and his leg was broken in several places. And then his regular doctor wasn't available and the doctor they got in said, well, we'll have to amputate this below the knee. And so they did. And then his real doctor, his regular doctor came back and said, oh, we could absolutely
+
+[00:04:31] have saved your leg. Oh, really? Yeah. You can see why he started self-medicating later in life, can't you? But he was okay with the leg amputation. And in fact, I think that he might have been happy about it because it really cemented his reputation as a bit of a character. And even at the time, a friend visited him the day after he'd had it off and hasn't had
+
+[00:04:54] the leg off. Well, that's probably where the rumor started, actually, they were like, what happened with your leg? He's like, oh, I had it off. They're like, oh, really? His friend was trying to do the good thing of telling him the advantages of his situation, saying, look, with one leg, you're going to build up such great strength of character. It's a great challenge to have to overcome in life.
+
+[00:05:14] You'll be a better man for it. And Morris immediately said, you argue the matter so handsomely and point out so clearly the advantages of being without legs that I'm tempted to part with the other. So he took it in good humor. Didn't he use to also use it in battle? Really? No, I didn't. Yeah, I think this is another story.
+
+[00:05:35] Go on. This is another story that he used to beat off revolutionaries with his peg legs. Again, beat off is another thing where he was misinterpreted. I think that there was one incident where he was posted to Paris by Washington and it was round about the time when there were quite a lot of revolutionaries on the streets of Paris. And they said, don't come out in your carriages and he'd come out in his carriage anyway. And they descended on his carriage one time.
+
+[00:05:59] And apparently he said that he stuck his wooden leg out the window and said something like, oh, look, I've got this fighting for freedom too. So lay off. And they did. Yeah, they were shouting. He's an aristocrat. He's an aristocrat because he's in a lovely carriage. And then he shouted, yes, truly one who lost his leg in the cause of liberty and he kind
+
+[00:06:16] of brandished his wooden leg at them. But there's another version of the story where he just pulled off his leg and shoved it out of the window to distract the crowd. And they all started chasing off the leg of the carriage. Like one of those lizards that kind of got soft at the end of their tail. Wow. As a two-year-old, he was sold for $600,000. What?
+
+[00:06:36] Really? I'm joking. That's a racehorse also called Governor Morris, which there aren't many Governor Morrisers are they? I mean, Governor itself, not a very popular name, Governor. It was actually his mother's maiden name and it's what's morphed in to be governor today. The spelling has turned into our modern day spelling of governor. I did outside of your racehorse, Andy.
+
+[00:06:58] I found one other Governor Morris, which was a novelist, Governor Morris the fourth, who was actually a descendant of Governor Morrisers. And he wrote a bunch of novels and his novels were often adapted into movies, including one called The Penalty, which was released in 1920. And it was about a legless man and starred Lon Shady, a good friend. Oh, my God. You are joking. No.
+
+[00:07:26] It's a descendant of Governor Morris. Yeah. I wrote a Lon Shady legless movie as referenced in last week's episode. In that film, Dan, he plays a man with no legs whose legs were unnecessarily amputated just like that of Governor Morris. Hmm. It feels like they didn't use much imagination for the plot of this film. They just basically looked into the family history of one of their lead men.
+
+[00:07:49] I think they had a ponch on for weird names because one of his brothers was called Staaat. What? Okay. How many A's do you spell that? Okay. It's only a double A, but how do you pronounce a double A? It's S-T-Double-A-T-S. Governor Morris' wife's middle name was Gary.
+
+[00:08:06] Do you know why? No way. You know what? I thought that. And I read somewhere that she was called Gary, but then I just doubted myself and quickly Googled it. And on Wikipedia, she's called Anne Gary, C-A-R-Y Morris. Oh.
+
+[00:08:20] I read Gary in a few places. That was a big scandal as well because she was his housekeeper and she was a fair bit younger than him, 22 years younger than him. And he wrote in his diary, he had an amazingly naughty diary where he wrote all sorts of rude things that he'd been up to. He said, I married this day Anne Gary Randolph, no small surprise to my guests. So he clearly liked, you know, causing a fuss. Well, because he genuinely did surprise them with it as a Christmas present.
+
+[00:08:48] I think he invited all his family around for Christmas dinner, as you do. And then in the middle of it, called a vicarin, whatever, got someone to, you know, had planned in advance called a vicarin and gotten to marry them, got him to marry them in front of everyone. So I think it was quite a surprise. Not what you expect. Well, it would have been surprised when they said, do you, Anne Gary Randolph, it's like that episode of only fools and horses when they find out that Rodney's middle name is
+
+[00:09:15] whatever it is, Charlton or Crystal Palace or whatever it is. We should say that part of the reason she was controversial as well as being his housekeeper is that she was thought to have killed her baby. Yes. There was sort of two things. There was the housekeeper thing and there was the, did you kill your baby thing? Yeah. Which was earlier in her life.
+
+[00:09:33] She married her brother-in-law, hadn't she? Oh no, she'd had an affair with her brother-in-law apparently. Allegedly. Allegedly. And the baby supposedly, allegedly came from that affair and she was allegedly, you know, allegedly so embarrassed that she killed the baby, but she said it was still born. Allegedly. Yes.
+
+[00:09:51] Allegedly. But she was, she was from a bizarre family by which I mean her family estate was called bizarre. Brilliant. Brilliant. Oh, that's great because we don't have to say allegedly for that bit. They can't sue us. No, they can't.
+
+[00:10:05] It's just a place called bizarre. It's in Virginia. Just, I mean, just on this guy's actual career, which we probably should touch on briefly because it was unbelievably successful. And obviously, as James said, he was incredibly influential. One of the things he did was, he came up with the phrase, we the people of the United States. And this was in an early draft of, is it the declaration or the... It's the constitution.
+
+[00:10:31] The constitution. Sorry. So that was in the constitution and the phrase, we the people of the United States. In an earlier draft, it was, we the people of the States of New Hampshire, Massachusetts, Rhode Island and Providence Plantations, Connecticut, New York, New Jersey, Pennsylvania, Delaware, Maryland, Virginia, North Carolina, South Carolina and Georgia. And he said, I think we've got an edit in here. And he came up with that lovely phrase.
+
+[00:10:53] And this is claimed to have been an absolute stroke of genius and does make me think that we're bringing him up too much because I reckon I could have come up with that edit. And he left a bunch of spelling mistakes in the actual document. There was a Pennsylvania was spelled with one N, which apparently sometimes it could be seen to be spelled like that back in the day, but not really very often. Well, which, which two Ns did they remove from Pennsylvania then? Sorry. It was Pennsylvania.
+
+[00:11:18] In fact. Got it. No. It was sorry. It was spelled with two Ns, but without the double. And even worse, there was a sentence in the constitution that said the fragment is necessary for executing its inspection laws. And there was an apostrophe between the T and the S of it, the possess of it.
+
+[00:11:39] On the Declaration of Independence, slightly different, but around the same time, of course, it's signed by the founding fathers, signed by one woman or one woman's name was on there. Do you know who that might be? Gary. Gary. That's how she got away with it. Everyone was like, well, Gary's obviously a man's name. Who is it?
+
+[00:12:00] It's Mary Catherine Goddard. And the reason she got on there is because she owned a publishing house in Baltimore and she printed out the Declaration of Independence and at the very, very bottom, it says printed by Mary Catherine Goddard. So there is a woman's name on the Declaration of Independence and you might think, OK, well, that's a bit of a cheat. And I suppose it kind of is. But by doing that, basically she opened herself up to trees and charges and stuff like that.
+
+[00:12:27] So, you know, it would have been very easy for her to not put her name on there, but she saw it was such an important document that she thought she should be on there. It's kind of cool. Very cool. There's a very famous statue that people are probably familiar with that is mostly Governor Morris. And that is the. Is it the statue of Long John Silver?
+
+[00:12:48] Is it the whale at the Natural History Museum? Oh, no. I wasn't most of him. His penis didn't take up most of his body. This is, but he was very large, very tall, and he was a lot of people have commented that the Founding Fathers, many of them are quite short and rotund, and that's partly because they drank and ate huge amounts while they were writing the Constitution. And he was tall and slim, much like Washington.
+
+[00:13:15] So when the great French sculptor Houdon was commissioned to do a sculpture of Washington, which is the very famous one that's now in the state capital of Virginia, it's copied sort of everywhere. It's like he's got his hand on a pillar and then another hand on a stick. That's Washington's head, but it's Governor Morris's body. And this is, yeah, the sculptor popped over to from France to DC, took lots of mass of Washington's face, took a lot of, you know, I, I photographs of his body. But then when he went back to France, he realized that Morris was in France as well.
+
+[00:13:50] So he called him around to his house and said, can I use your body as the model for my statue? Wow. Can I ask whose leg it is? Like, is it? That's a great question. And I think if you look, maybe it's Gary's leg, and if you look at it, it's the extremely spelt kind of woman's leg and then a big man's body and then Washington's head. Well, if you do look at it, one leg is longer than the other, and that's why because he
+
+[00:14:13] dressed him up in Washington's clothes, but his wooden leg had to extend to the length of a shoe. So he wouldn't wear a shoe over his leg. So his leg was a bit longer than a normal leg. So if you look at the statue, the left leg is a little bit longer than the right leg. Because his leg was longer than the right leg. Wow. That's a great fact.
+
+[00:14:33] That's extraordinary. That's a pretty crap artist as well who couldn't chisel the way to make sure the legs were the right leg. He can't. You can't fake it. He was a realist. So one reason for Governor Morris's death could have been the French Revolution in a slightly strange way.
+
+[00:14:51] And that is because when the French Revolution happened, everyone stopped wearing really posh aristocratic clothes because, as we said before, you'd probably get dragged out of your carriage and beaten to death, probably or guillotined or something. And so these kind of big dresses that women wore had a lot of whalebone in them. And so when the fashion industry in France collapsed, they had all this spare whalebone and the price absolutely plummeted. So it was something that you used to not be able to get very easily. And then suddenly you can get it anywhere for any price.
+
+[00:15:27] And the result of that was this was a really useful material to use. And so they started using it in everything and so you would have a whalebone umbrellas and whalebone, like I said before, knives and spectacles and whatever. And so it was because of the French Revolution that you had so much whalebone in his house, which meant, I mean, maybe he would have found something else to stick up his whalebone. It was because of the Revolution that you had this whalebone to hand. I mean, amazingly, a torturous link. They got him in the end.
+
+[00:15:57] He escaped that carrage incident. I knew they'd get him eventually. Did whalebone-related penis nests rock it during that period when it became widely available? I think it probably did, yeah. I think we should say he had stuck something up his penis before. So we can't exclusively blame the whale. He had formed. He had formed.
+
+[00:16:18] He made a catheter once with a flexible piece of hickory. Hickory dickory cock. OK, it's time for fact number two, and that is Anna. My fact this week is that before entering a town in the Wild West, you had to leave your gun outside, pick up a token, and use that token to collect your gun on the way out, but just like leaving your coat in a bar. Very sensible.
+
+[00:16:48] But wait a minute, did they know I've seen lots of Wild West movies and they all have guns all the time? And yet they're all fake. They all take place in the cloakroom, don't they? That sort of makes sense. I was just reading a thing recently about how gun control in the 19th century in the Old West was really strict. And in most frontier towns, carrying any kind of weapon,
+
+[00:17:11] so a gun or a knife or anything, was not permitted at all, not just publicly at all, except if you're outside the town borders or inside your home. So if you lived in the town, then you could have a gun, but you were only allowed to kill people in your own house. And obviously people broke this law, so it's not totally fake when you see Westerns, because cowboys would go into the town and not check their coat into the cloakroom or their gun into the gun room and then have big shoot-ups and people would die. Well, actually some of the big shoot-outs were as a result of people flouting the law
+
+[00:17:43] and then people trying to stop them from flouting the law, right? The famous one is the gunfight at the OK Corral. And the whole point of that is that the sheriff went over to these guys and said, you're not supposed to have guns here, mate. And they went, well, we do. So, like, I mean, that's not the whole two-hour film of it. It should be, though. It's insane. So I was reading about the gunfight at the OK Corral.
+
+[00:18:06] I mean, it lasted 30 seconds. So yeah, there is a lot of padding in the movie. And I thought it was Wyatt Earp. You know, he's one of the famous sheriffs, but it wasn't really Wyatt Earp. It was his brother, Virgil Earp, amazing. I mean, people did just have better names in America in the 18th and 19th centuries. Yeah, it was him. And it wasn't at the OK Corral either.
+
+[00:18:28] No, it was down. Yeah, but it sounds better. It sounds better, doesn't it, Andy? Well, I read somewhere saying it should have been called the gunfight outside flies photographic studio. Yeah, it doesn't quite work. I think that is better, though, because the gunfight at the OK Corral has always confused me because of the presence of OK, which just means
+
+[00:18:47] OK to us. What is an OK Corral? Was it an amazing Corral? No, no, it was OK. Three stars on Google. Chip advisor review. Which stands for old kindersley, by the way, but it's confusing before you've researched it. Oh, and what was that? The name of the person who ran the Corral? Yeah, who ran the horse, the field.
+
+[00:19:09] Oh, really? That was, yeah. I'm annoyed that we don't have photos of it, given it was literally outside of photographic studio. Well, they would have had to hold still for a few seconds, wouldn't they? Which if it was a 30 second battle, you had enough time. You're right. I've got to say, that version that you're saying, it sounds a bit like the gunfight at Snappy Snaps, doesn't it?
+
+[00:19:30] Also, I didn't know what a Corral was until researching this actual fact. What is it? I mean, it's a horse and livestock holding pen. Oh, is it like where your Corral horses into the pen or something? Yeah, it's pretty much a car park. It's the old West version of a car park. OK. So the Wild West, if you're in the Wild West around about Wild West time, which I guess we're talking sort of late 19th century,
+
+[00:19:54] there were camels wandering around with you. Well, it's in the early period, really. So I hadn't realised that the US, just before the Civil War, decided that it wanted to start a camel corps. And I think the logic was that it was quite successful in Egypt and the desert plains in parts of America was pretty similar to Egypt. So they imported 75 camels altogether and they were for they were for like the cowboy lands for the frontier for expanding territory.
+
+[00:20:23] So hauling supplies to and fro at the frontier. And they weren't that successful, partly because apparently there was a very strong mule lobby, which I think was people who own mules, not the mules themselves. And then the Civil War came and everyone forgot about the camels and they just wandered feral through the deserts. And they were all they were sort of like that, you know, when people see big cats these days in a garden in Berkshire,
+
+[00:20:46] they were that equivalent in Arizona. So there was in the 1880s, Arizona was haunted by a red ghost, which was a 30 foot tall, monstrous red camel, which apparently trampled the woman to death, 30 foot tall. It killed a grizzly bear. It there was one story about how someone spotted it in the distance and shot at it and it ran away and something fell off its back. And the thing that fell off its back was a human skeleton
+
+[00:21:13] who had been strapped to it, obviously, long before. Anyway, this was this is all part, this all came out of the fact there were camels wandering the deserts and the stories got less and less plausible as people spotted them. Right. So what I'm saying is there were camels, but they weren't 30 foot tall and they didn't eat grizzly bears. Got it. OK, Dan, make sure you got the right part of that story. There are other camels in America now, I don't.
+
+[00:21:39] There are probably some, there must be some in Zuzan things, but I just don't wonder if there are any still feral. Yeah, I don't think there are any wanderers anymore. You know, the Lone Ranger just to go on the myths of the Old West. Now, I had no idea how successful. So it was a radio show or one of the early iterations was a radio show which ran for 20 years and 3,000 episodes. It went through about eight different Lone Rangers show.
+
+[00:22:02] Yeah, there was one time where the actor playing the Lone Ranger, who was a guy called Earl Grazer, he was killed in a car accident, but they had to just keep making the show. They couldn't stop making it. So they just had him speak in a whisper. They just got in a replacement who was clearly with a completely different voice. And he just spoke in a whisper for several episodes.
+
+[00:22:18] And Tonto, his sidekick, had to do all the actual dialogue and say, what's that Lone Ranger? I'm still feeling very bad and they just kept making it. It was quite weird in the Wild West how reality bled into entertainment in a semi-confusing way, right? So Buffalo Bill, was he a real cowboy or was he an entertainer cowboy? It feels like they really bridged the gap. So he started out as a bison hunter and he fought in the war
+
+[00:22:43] and, you know, it was great with a gun. And then he sort of turned that lifestyle into this amazing show. But he was incredible. He, his career started out with being a Buffalo Hunter, hence the name. And he once killed 6,000 Buffalo in one year. That's a lot of Buffalo. It's too many Buffalo. He was sort of single-handedly responsible for the near extinction of Buffalo.
+
+[00:23:06] That's 20 Buffalo a day. But how did he do that thing where you kind of chased them off a cliff and they all, that's what I'm going on. One really big incident where he knocked off a few thousand in one go and then he could take a few days off this exhaustive Buffalo slaughter schedule. Because he must have had a few weeks holiday, wasn't he? So it's even more than that. You can't take a holiday as a bison hunter.
+
+[00:23:27] It's just you've got to keep going. He once killed 48 Buffalo in 30 minutes. But yeah, this America started out with millions of Buffalo in the 1600s. And by the end of the 19th century, really partly because of him, they had a couple of hundred left. What? One last thing about the Lone Ranger. In the TV series, he was played by a guy called Clayton Moore. And after the series ended, he kept doing public appearances as the Lone Ranger.
+
+[00:23:52] Right. The guy who bought the rights to the Lone Ranger got a restraining order against the Lone Ranger, Clayton Moore, saying you can't go out wearing your mask in public. You have to take your mask off in public. Right. Stop pretending to be the Lone Ranger. Ironic in 2021, isn't it? Yeah, must not wear a mask in public. And Clayton Moore was so wedded to the character
+
+[00:24:13] that he started instead just wearing huge wraparound sunglasses to make it look like he was wearing a domino mask like Lone Ranger. Anyway, this led to a huge controversy in about 1980. And he went on the show Real People to discuss the controversy. Ironic, considering he was pretending to be someone he wasn't. But he came on stage for a live broadcast interview. And the Lone Ranger, he was so popular, Clayton Moore, that the studio audience who were there,
+
+[00:24:36] they applauded for so long when he came on that it used up the entire broadcast slot for the interview. And they had to just go to a nap break without speaking to him. Of all the people that you want to have two of, the Lone Ranger is not one of us. OK, it is time for fact number three, and that is ending. My fact is that just off the coast of Kent is a sunken ship, which is under 24-hour surveillance
+
+[00:25:06] because it contains 14,000 unexploded bombs. And yeah, it's extraordinary. And if they go off, we don't really know what's going to happen. Something bad will happen if they all go off. Well, bad for the fish, probably. Really bad for the fish. Really bad for she and S, which is the nearest town. And there's a theory that it could flood London if they go off.
+
+[00:25:30] It'll create a five-meter wave, which will just come up the Thames and swamp London. Wow, five meters. I reckon of five meters above the Thames. We're all right here. I'm upstairs at the moment. So I pop upstairs, pop upstairs. So this was from a guy called Tom Whitwell,
+
+[00:25:48] who he every year he makes a list of the 52 best things he's found out during the previous year. Really great list. I will post a link to the latest one. And it's a ship called the SS Richard Montgomery. It was an American ship. And in 1944, it was sailing over to France. It was taking 6,000 tons of explosives to Normandy
+
+[00:26:08] to support the invasion. And it hit a sand bank in the Thames, broken half sank. And it's just been there since then with it. This is really creepy. It's must poking up above the water. So you can see where it is. And some of it has been excavated or, you know, some explosives have been removed from it.
+
+[00:26:27] But there's still, I think, about 1,400 tons remaining on there. And we're just waiting to see what happens. It's absolutely nuts. And there's a sort of exclusion zone that they've put around it because they've had so many times where a ship has almost hit it by accident coming in. Or, in fact, what they used to do is locals
+
+[00:26:47] used to charge two shillings to take people out and literally touch the mast of the ship. And they're like, we need to stop doing this. This is a ginormous bomb sitting underneath. It's extraordinary. In fact, it's even worse than that because local fishermen, sometimes when they're trawling for fish, will pick up some old ordinance or something like that.
+
+[00:27:07] And quite often they'll go, well, are we going to give this to the authorities? That's a bit of a hassle. And so what they do is they dump them next to the ship because they know that it's an exclusion zone and no one's allowed to go there anyway. So they think, well, that's the safest place to just add more bombs.
+
+[00:27:23] What are the odds of it hitting one of the bombs already down there? Probably like one in three. But it is controversial what will happen isn't it? Like some people, like there are some people who think actually everything down there by this time probably won't do that much damage.
+
+[00:27:37] Or even if one of them goes off, probably it won't set all the rest of them off. There was a guy called Dave Welsh. I read an interview with the BBC and he was a former Royal Navy Bomb Disposal Expert. And they asked him about this. And he said, if you've got a 1,000 pound bomb two meters away from another 1,000 pound bomb in water,
+
+[00:27:56] the other one won't go bank. He said, I know that for a fact. I did it last Tuesday. So there are some experts who think that it's okay. And then there are other experts who think it's just a matter of time before this thing goes up. Yeah, it's extraordinary the theories, isn't it, that they've postulated.
+
+[00:28:13] So in the 1970s, the Royal Military College of Sciences looked into it as well, what the consequences could be. As Andy says, a giant wave would go into shore supposedly. The other thing they said was, if all bombs went off at the same time, a 3,000 meter high column of water and debris would shoot into the air. So 3,000 meters for context would be...
+
+[00:28:35] 3,000 meters high, almost half the height of efforts. Exactly, that's three times the Burj Khalifa, more than that. That's how high they're saying that the debris and water column would go. And the town itself actually is quite affectionate towards this ship. They call it the Monty or Old Friend.
+
+[00:28:51] And there's actually a large mural that you can see there of a mermaid detonating TNT with the little slogan, you'll have a blast. Which I have to say, I've been to Sheerness and that is definitely just a reference to the ship and not a genuine. Now, I take that back. I absolutely loved my time there.
+
+[00:29:10] Some of the best fishing ships I've ever had were on Sheerness. Really? Oh yeah, I love Sheerness. I did go just on Sheppy actually, because I did go on holiday to Sheppy last year and it was so great. And the only other thing that I learned when I was there about it was that it was the home of the first,
+
+[00:29:30] it was the home of the first live cargo flight ever. And in fact, there's a sign that says, this is where the first flight by a British pilot in Britain happened. So it's quite a specific record. Wow, quite a live cargo. Yeah, so basically this was early 1900s. It was a pig, in fact.
+
+[00:29:50] Okay. When they were doing, like they did it as a publicity stunt because pigs would fly. Was that that one? It was exactly that, yeah. So this, well, you're not that old James, but well remembered.
+
+[00:30:05] So it was sort of the cradle of powered flight in the early years of the 1900s in the UK and the Wright brothers visited and they united with the short brothers, who are these British brothers who sell the plane factory in Sheppy. And there was this guy called John Moore Brabazon who did this flight,
+
+[00:30:21] the first British flight by a British person in Britain in 1909. And then he went to disprove the adage that pigs can't fly. And so he strung a paper basket to one of the wings of the aircraft, stuck a pig in it and flew. Amazing.
+
+[00:30:36] On this, this is completely off topic now, but it's just cause I read this yesterday. There was a company in America that got all their employees as a competition to try and make a lead balloon. And this was, I think, either in the early 80s or late 70s, I can't quite remember.
+
+[00:30:53] And what they did was, it was kind of an advertising campaign or something like that. And they got a load of teams together and they said, who can make a lead balloon? And they gave them extremely thin sheets of lead and as much helium as they could use to make the voices so funny.
+
+[00:31:09] And I think there were six teams and only one of them managed to make a balloon which actually did float with this helium made out of lead. But unfortunately, due to the wind direction, it started floating towards Logan Airport and they had to ring up Logan Airport and say, hey, there's a lead balloon about to hit your airspace.
+
+[00:31:30] I just imagined the pilot saying, oh, well, it's okay. There's a balloon in our flight path, but I think our engines are gonna make pretty short work of a little balloon, don't you? Ground control comes in, avoid that balloon. There was a whole load of, yeah, gufforing, I'm sure, because of that.
+
+[00:31:43] And they had to ground flights for a little while and then it was last seen floating across the Atlantic towards Europe. It's still out there, it's still out there somewhere with a 30-foot camel in the American desert. So just on shipwrecks, oh yeah, UNESCO says there are three million shipwrecks around the world, which is just remarkable.
+
+[00:32:05] That's an estimate, it's not a tally, but there are just so many out there. And we've got, we're winning on shipwrecks. Are we? Are we? There's about 250,000 around the coast of Britain, they reckon, just because, see, we're in either nation
+
+[00:32:20] and then lots of naval activities happened. And that's why shipwreck diving is so popular in the UK, which it is. And I was reading a really interesting blog by someone who's into shipwreck diving about the interesting thing about it. And I hadn't really thought through that. You can't see, visibility is so poor
+
+[00:32:36] that you often can't see your hand in front of your face. So you know you picture being able to see a wreck, like if you see Titanic, full wreck in front of you. Actually, you're often just swimming around and so you crash into a wreck before you've even seen it and you feel your way around it. So it will just appear out of nowhere. Yeah.
+
+[00:32:52] In 2019, three sailors were shipwrecked off the coast of Columbia and they survived because they had something to cling onto, which was floating in the water, which was the plastic wrapped bales of cocaine that they were in the middle of the smuggling. It was about a ton of cocaine hydrochloride and they got picked up.
+
+[00:33:10] God, what do you do? Do you let go of that when you see the coast guard coming? Or... Wow. If you find anything in a shipwreck in the UK, you have to report it to the receiver of wreck. This is according to the 1995 Merchant Shipping Act. And if you don't do that and you keep it
+
+[00:33:31] and they find out you could be fined or you have to pay their owner of whatever you've stolen or whatever you've taken twice the value. So if you take a million pounds worth of gold, you'd have to pay the Spanish privateer from the 16th century who you stole it from, two million worth. But in 2001, the receiver of the wreck
+
+[00:33:50] who's called Sophia Exelby did a wreck amnesty where anything that you'd taken, which you hadn't reported, you could then report and you wouldn't get done for it. And there's a whole load of list of things that they took. But weirdly, loads of people seem to have stolen toilet bowls from shipwrecks and you can't really work out why they do that.
+
+[00:34:11] So there are toilet bowls, toilet pumps, toilet roll holders, chamber pots, all these things stolen from shipwrecks. That's because the one thing you don't need in the sea is a toilet bowl. You're just we in the sea, guys. I guess you could do that, but how many cruises have you been on?
+
+[00:34:29] It's a long way over the side. Stick your ass out over the edge. And apparently they had one person who handed in a pair of white lace panties that they'd stolen from a shipwreck. Got to be a recent shipwreck. That kind of lasted very long in the unforgiving water around the coast.
+
+[00:34:50] So yeah, I wrote to the receiver of wreck as research for this podcast. The current one's Camilla Moore. I just love the alternative title, The Coroner of the Seas, which is so cool. And basically, yeah, as James says, if you find a wreck artifact, it's your duty to report it to them
+
+[00:35:06] and then they make sure you get a fair price for it. But the fair price has to be agreed with the owner. So there was a thing recently where a load of shipping containers got washed up. I think someone on the coast of maybe Dorset. Yeah, there was like, it was in the news, wasn't it? That everyone was going down there trying to grab what they could, wasn't it?
+
+[00:35:20] Yeah, quite a lot of people got new motorbikes. There was a consignment of BMW motorbikes. And BMW said, oh, they're water damaged. They're probably only worth a couple of hundred quid. And quite a lot of people with new motorbikes said, well, I'm just going to keep quiet then because I think this brand new spotless motorbike might be worth a bit more than that.
+
+[00:35:37] Yeah. But what are they supposed to do? They're supposed to park them all up outside Camilla Moore's house then, are they? No, you just get in touch and she'll... You've probably filled it a form or something and say, this is what I've found. Yeah, it's fun.
+
+[00:35:50] I quite like, because presumably their job as well is identifying pieces and having a sort of understanding of the history of shipbuilding to be like, oh, this would have been this part of the boat for anyone who had collected something. And that's because that's the thing that happens a lot. You find these pieces, you don't know exactly what they are.
+
+[00:36:06] And Robert Ballard, who discovered the wreck of the Titanic, actually used a hotel in Annick in the UK to understand what certain fittings that he'd found from the Titanic's dining room were, because in Annick at the White Swan Hotel, they have a dining room which has the exact, not a replica, but the exact dining room from the RMS Olympic,
+
+[00:36:31] which was one of the sister ships of the Titanic. And when it got decommissioned, they removed all of the wood and everything. And it was brought up by this hotel owner who recreated the entire room inside his hotel to the point that Ballard was going to that room to see, ah, that's what that fitting would have been that we've covered.
+
+[00:36:49] That's insane. Oh, that's cool. Oh, it's a table. I see. Oh, it's not a handkerchief. It's a pair of white lace panties. What are you doing in the dining room? That's what everyone wears to dinner on ships.
+
+[00:37:03] Well, you need to get quick access if you're pissing over the side of the boat. It feels like Anna's been on a special raunchy cruise and thinks that this is just how all cruisers operate as opposed to mostly being deck voids. Oh, look, I've had some good holidays. Do you know what the largest Titanic museum in the world is? I thought it's in Belfast.
+
+[00:37:22] I think it's in a place called Pigeon Forge, Tennessee, which is very far inland. But it's half the size of the Titanic and it's shaped like the Titanic. Wow. It's really cool. And it's in a pool of water, so you feel like you're going on the actual ship.
+
+[00:37:38] Is it the Titanic before the crash or? Yeah, it's pre. It is half the size, but they haven't just recreated the front hull. They haven't just cut it in half, yeah. There we go. Wow. That's very weird,
+
+[00:37:52] because I feel like Pigeon Forge is going to be relevant later on in the show, possibly. I was thinking the exact same thing. A forward spoiler. Just back to Camilla more quickly, receiver of the wreck. Her other job, not only does she receive wrecks, but she's responsible for dealing
+
+[00:38:07] with all stranded royal fish. Oh, really? Must keep her busy. So all fish that the queen owns, which theoretically is all dolphins, porpoises and whales that get stranded on British beaches, so they belong to the monarchy since the 13th century. I think they made the rule
+
+[00:38:24] because you used to get whale oil and stuff for them. And technically, the monarchy can claim that whale oil. And she's responsible for dealing with them. So if a porpoise is stranded, you call Camilla. And she doesn't like drag the whale over to Buckingham Palace and say, here you go, your Majesty. He drops it at the queen's bedroom door,
+
+[00:38:42] because you asked for this 700 years ago. If Prince Charles's goldfish ever jumps out of its bowl and accidentally gets stranded on the carpet, she technically is the person who has to deal with it. Big responsibility. Anna, you were saying just before that shipwreck about 250,000 are off the coast of the British Isles? Britain, they think, yeah.
+
+[00:39:01] I was amazed to hear, we don't know exactly how many bombs are in the oceans around the British Isles, except for the fact we do know that just after World War II, the British government dumped roughly 1.17 million tons of chemical weapons and conventional bombs into the sea, just off our coasts. And I should quickly say,
+
+[00:39:25] I got this fact as well as a lot of the things I've been saying about the Richard Montgomery ship we've been talking about from a vice article by a guy called Joe Zado. It's a fascinating article about what we're talking about right now, so give that a read if you can. But he was saying that in 1995, while they were drilling an undersea gas line between Scotland and Northern Ireland,
+
+[00:39:44] they hit one of the stashes of these bombs that had been dropped down there, and it released a bunch of them. And within a month, 4,500 of them had washed up to the west coast of Scotland. So we've just got bombs washing up on our shores and nitroglycerine vials, and it's terrifying. It was only one nitroglycerine vial, wasn't it?
+
+[00:40:01] One child said that they did that. One reported. Oh, yeah, one reported. There is a place in Russia which has a ship's graveyard of nuclear submarine engines, which sounds terrifying. So it's a place called the Karras Sea. And the problem is that nuclear submarines, they last about 30 years, and then they start rattling,
+
+[00:40:18] they get a bit noisier in the water, so they're less secret, and the technology gets outdated, and you're just building better subs. And at its height, Russia had 245 nuclear submarines, which is a lot of nuclear power in the water. And so now there is this place which contains 14 nuclear reactors
+
+[00:40:37] and 17,000 containers of hazardous material. And the Russian authorities would like to scrap these and properly scrap them and decommission them, but apparently it relies on recovery vessels which don't yet exist. So this is a task. Don't build stuff, you can't unbuild. Well...
+
+[00:40:55] The UK is similar, I think we've got, we certainly had a couple of years ago, 20 nuclear submarines left over from the Cold War that we don't know what to do with, can't really afford to dismantle. Why don't we just dump them next to this thing here, shitless? The plan wasn't there to put a massive concrete casing
+
+[00:41:15] over this ship, I think, like they did in Chernobyl. But at the moment, every kind of few years, the government kind of has a meeting with some experts and they say, what should we do about this? And then at the end of the meeting, everyone goes, should we just leave it there? Yeah, let's just leave it there. It's so British, it's really embarrassing.
+
+[00:41:35] Maybe the worst ever reason for a shipwreck was in 2003, which was a two and a half thousand ton ship called the RMS Mulheim, and it was sunk by a pair of trousers. Can we work out why that happened? Or is that going to be impossible? Okay, so what could a pair of trousers done? Oh, someone snagged their trousers on the port
+
+[00:41:59] as the ship was leaving, but the cloth was so strong that it managed to pull down the entire ship. You're not far off. I must be miles off. That sounds like that would be a trousers advert. That's a Levi jeans advert for the durability of that material. What it was is it was the officer who was on watch,
+
+[00:42:18] who was at the bridge. He was sitting in a chair, he tried to stand up, but his trousers snagged and he lost his balance, fell over, knocked himself out briefly. By the time he came around, the ship was heading straight for the shoreline and there was nothing he could do about it because it takes about five miles to stop these ships.
+
+[00:42:36] So bang, shipwreck. I'll be honest, you said I wasn't far off, but really the only thing I got right was the trousers part. That's true. You've already told us. I can't give you a little clue, yeah, that's right. Again, I think attributing blame to the trousers there is a bit like attributing blame to the French Revolution
+
+[00:42:53] for the death of old Governor Morris. The courts disagree with you, Anna, because the trousers were sued for 20 million pounds. That's still in jail. They've been in prison since, yeah, very since. Yeah, do they have to wear prison trousers over the trousers? OK, it is time for our final fact of the show, and that is my fact.
+
+[00:43:11] My fact this week is that the 9-to-5 singer, Dolly Parton, helped fund a COVID vaccine that has a protection rate of 9-to-5 percent. 9-to-5 percent. Fortunately, not 9-to-5 percent, because that actually would not be a very effective vaccine. Yeah, Dolly Parton, she's amazing with charity. She's always making donations to incredible causes.
+
+[00:43:37] And one of the things that she did back in April of 2020 was she donated a million dollars to COVID-19 research, and she sent that to the Vanderbilt University Medical Center. And the money went towards the Moderna vaccine, which came out, which has a nearly 95, I discovered at the last second, it's sort of 94.5 percent. Affecting this against corona. All there'll be letters.
+
+[00:44:03] But everyone rounds it up to 95, so I think we're safe. Very good. I should say I found this fact while looking through Twitter on the day that it happened. A lot of people made this connection, so it was a nice little joke going around about Dolly Parton, and I thought, let's do it on the show. Do we think that they suppressed the effectiveness rate of the vaccine
+
+[00:44:21] to make sure that they could create this fact? Could they have made a 99 percent effective one, but they knew it would ruin the gag? But that was Jay-Z had given the money for that one, hadn't he, for 99. Or for older people, Nina, from 99 Rebellion's fame. I just think that if you kind of do your jokes for different generations, then you get more hits, don't you?
+
+[00:44:43] Absolutely. You'll stand up. One out of three jokes you'll get. The other two. For the other two-thirds of the audience. James' stand-up gigs is where the audience is rigidly divided by age into tranches, and he'll turn to one set of the crowd.
+
+[00:44:56] They're all in triangles. Now, what you guys don't know about Jay-Z is that... Dolly Parton's pretty cool. I have to say, I didn't know anything about Dolly Parton, apart from Big Hair. Big Hair, yeah. And she's famous also for her boobs, and she sings 95, I knew 95, and I knew Jolene,
+
+[00:45:17] and that's basically all I knew. But my God, she's had an interesting life. She grew up in a little place in Tennessee, which is, I think, better known as the home of the world's largest Titanic museum. What, Belfast? Pigeon Forge. Pigeon Forge.
+
+[00:45:35] Yeah. In extreme poverty, it was so poor there that the funeral home kept sets of teeth from people who'd been buried, and you could go down and get a set if you needed a set of teeth. Really? Yeah.
+
+[00:45:47] And her family was so poor. She was the fourth of 12 children. Supposedly, they had no money to pay the doctor who delivered her, so instead the dad gave him a bag of oatmeal as payment. That was the first exchange. Wow.
+
+[00:46:01] She's got quite an oat-based childhood. Her childhood was bookended by oats, because then, after she graduated high school, she says that she got on a bus straight away to go to Nashville to make her fortune doing music in the city, and she got on a bus to go to Nashville to make her fortune doing music in the city,
+
+[00:46:16] and she got on a bus with what she described as her suitcase, which was actually an empty box of Quaker Oats. Really? Which isn't going to hold much, unless Quaker Oats came in much larger, much stronger boxes back then. Wow.
+
+[00:46:29] That's amazing. Yeah. They were so poor that they ate a lot of animals that the father could find, didn't they? So she said they would eat turtle, frogs, groundhogs, but they never ate possum, because apparently possum is the most disgusting meat
+
+[00:46:42] that you can eat around there. Wow. So they never did that, yeah. She also used to get by on room service. That sounds fancy. In Nashville, she would walk up and down hotel corridors looking for half-eaten trays of room service that people had left outside their rooms.
+
+[00:46:57] That must have stuck with her throughout life, the idea of food not being available, because even at this age, still on tour, she always makes sure she has a packed lunch or snacks with her wherever she goes, despite her millions and despite probably access to any restaurant she wants. She will always have things like potted meat
+
+[00:47:13] or Vienna sausage with her in order to... With her? So if you sit just in her pocket or something, she's always got a sausage in her pocket. Those outfits are very tight. And if you look, you can see the outline of a sausage at some point on her person.
+
+[00:47:27] And she's actually got a completely flat chest, but her bra is just stuffed with potted meat. The only fact I really knew about Dolly Parton before this is that she once lost a Dolly Parton lookalike competition. That's like an old bit of trivia that you kind of see every now and then, but I looked into it and it's slightly different than that. She basically entered a drag queen celebrity impersonator contest. And there were loads of drag queens there,
+
+[00:47:56] and they were all dressed as different people, like Cher or Dolly Parton or whatever, but they couldn't be dressed as anyone they wanted. And also, they had to be drag queens. So you had this beautiful kind of massive hair and all that makeup and eyelashes and stuff. And Dolly Parton, as great as she looked, was just dressed as Dolly Parton.
+
+[00:48:15] So obviously, she didn't look anything like a drag queen pretending to be Dolly Parton. She looked like Dolly Parton. So of course she didn't win. That's interesting. I didn't know that. That's how they justify it. That sounds like the judge's justification speech at the end
+
+[00:48:27] when he realized who she was. How do we get out of this one? She has released over 200 albums in her career. 200 albums? That's so stupid. That's like Buffalo Bill with Bison for me. Like, how can you do that many? Like, 185 compilation albums worldwide. She's released.
+
+[00:48:50] Oh, 185 compilations. She's only made 15 albums, and she's done 185 compilations of incredibly different combinations. That's the thing. If your album has 15 tracks in, there are 15 factorial possibilities of putting those in any order.
+
+[00:49:05] So you could do that. But now you've got Spotify now, which does it in a random order anyway. You can no longer justify the 185 different orders. Why are we not releasing each episode four different times? 51 studio albums, which I still think is insane.
+
+[00:49:22] That's a lot. Yeah, it is mad. And she says she's written over 3,000 songs. Not all of them have been recorded, but that's a lot of songwriting and with a lot of hits as well. Jolene, as you mentioned, Andy, I will always love you,
+
+[00:49:35] which for me, I only know through Whitney Houston. I only know it through Saddam Hussein, that one. That's so funny. It's a cool about that if you don't get, then you're going to have your suspicions about James's political leanings.
+
+[00:49:50] She wrote those two in the same day, actually, which is just both the question, what has she done for the last 40 years, given they're the two most famous? It is like Buffalo Bill, because he killed like 48 buffaloes in six hours, which meant it could take a few weeks off. She didn't say it, she just knocked them out.
+
+[00:50:05] She doesn't quite remember if she wrote them on the same day. That's the problem. But they're on the same tape or the same, the evidence that she has suggests that they were written in the same session. And she sort of says, you know, people always say that was a good writing day,
+
+[00:50:18] you know, so it's a, she's got a very good, she's a very good self-promoter in the best possible way, isn't she? So every interview she gives, she remembers these amazing details about her life. And then sometimes she remembers slightly contradictory things,
+
+[00:50:31] but she definitely knows. That's such a nice way of saying so was a liar. She's had a long old life and you know, you can't remember everything, but she does say that she wears stilettos to make breakfast every day. Like she's always dressed up. It's not like she goes home,
+
+[00:50:50] takes off her wig, takes off her makeup. She wears out the sausage. Chunks of meat out and devours them. She says she wants to make sure she's always ambulance ready, which is quite a nice way of describing it. It's got to come at 4 a.m. You know, there's one of her songs
+
+[00:51:07] that we haven't heard, which is called My Place in History, and it's not going to be revealed until her 100th birthday, which is going to be the 19th of January, 2046. She should do it on her 95th birthday, shouldn't she really? Yes.
+
+[00:51:21] Sorry, it had nine to five birthday. Nine to five. But it's locked in a box in Dollywood. So if you want to petition them to release it early, James, you can. But until then, it's going to be in a box, and they're going to release it then, and I don't know what will happen.
+
+[00:51:34] That's very exciting. Very cool. Yeah. Dollywood is very cool, by the way. I mean, not many people have their own theme park, and Dolly Parton is one of those refugees. It's packed with roller coaster rides and all sorts of fun things.
+
+[00:51:48] But she inherited an existing theme park, which had been changing ownership for many, many years. It started, Dollywood initially, as a place called Rebel Railroad. And the idea was that there was a steam train. They had a general shop as well and a few other things. But you could get on this theme-inspired train,
+
+[00:52:06] and it was to celebrate the centennial anniversary of the Civil War. So as you were on the train, you would be attacked by Union soldiers. You would have train robbers trying to rob you. You would have Native Americans trying to rob you as well. And you were protected on board this train by the Confederates,
+
+[00:52:23] who were fighting off the attackers as they were coming for you. That was what Dollywood started as, this little train. Yeah. It was a celebration of the fact the Confederates won the Civil War, wasn't it? Certainly sounds like very confusing for everyone if you're positioning it like that. And in fact, Dolly does say that when she was growing up,
+
+[00:52:39] one of the things she thought was that the Confederates won the Civil War. Wow. When she was young. Really? Yeah. Well, she did used to have a Civil War-themed restaurant as well, which was a dinner experience called Dixie Stampede,
+
+[00:52:49] where you had to choose which side you were on, North or South in the Civil War. She has since changed that a bit. Well, she actually, she renamed it, didn't she? Quite recently, Dollyparton Stampede, because she didn't realize the word Dixie had quite problematic connotations with the black community in America.
+
+[00:53:06] Dollyparton Stampede, however, is a terrifying name for something. Imagine 30,000 Dollypartons stampeding towards you. Oh, yeah. Just one more thing on Dollywood. Dolly doesn't go on the rides herself. She's not tall enough, is she? She is 5'2". She doesn't go on it because she says it could damage her hair.
+
+[00:53:26] And she also said, this is interesting, considering what we've been talking about, she said, Lord knows what else could fall out of me. And I think that might be a reference to the secret sausage or the possum meat in the bosom. Imagine if you sat behind Dollyparton, and just as the photo comes up,
+
+[00:53:42] a sausage hits you in the face. Pepper Army cascade on the loop loops. Her marriage is sort of an amazing love story, isn't it? With Carl Dean, who she's been married to for 57 years. Although there have always been rumours that he doesn't exist because he's never, ever seen in public. But she said that this is because in 1966,
+
+[00:54:06] sort of just after they'd got married, she won this award for a song called Put It Off Until Tomorrow. And they had an award ceremony to go to. And she got all dressed up. He got all dressed up. They went to the ceremony. They came back home afterwards and he said, don't you ever make me go to one of those damn things again?
+
+[00:54:23] And she didn't. And he just hates the limelight. Absolutely loves her. Obviously stuck it out for almost six decades. But he's never been to a gig either. You know, he doesn't need to be sat on stage at the gig. He can be quite anonymous in the crowd watching it, but he's never gone to a gig.
+
+[00:54:40] What if he doesn't like her kind of music? He actually doesn't. He says he likes hard rock and bluegrass and stuff. But he does actually see her perform sometimes or at least he goes to her gigs when she performs at state fairs. And that's because he really likes going to the tractor pool. Okay. So he's hearing it in the background.
+
+[00:54:59] He's not been to her gig. He's watching a tractor pull away while she's singing back. Keep it down over there. I can't hear the tractors. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us
+
+[00:55:14] about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter M. James. At James Harkin. And Anna. You can email podcast at qi.com.
+
+[00:55:27] Yep. Or you can go to our group account, which is at no such thing or our website. No such thing as a fish.com. Head over there to find all of our previous episodes as well as bits of merchandise. And we will see you again next week with another episode. Goodbye.

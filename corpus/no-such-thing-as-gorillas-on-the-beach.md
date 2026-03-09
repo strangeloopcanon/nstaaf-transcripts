@@ -1,0 +1,223 @@
+# No Such Thing As A Fish - No Such Thing As Gorillas On The Beach
+
+- Episode date: April 1, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-gorillas-on-the-beach
+- Slug: no-such-thing-as-gorillas-on-the-beach
+
+## Transcript
+
+[00:00:03] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from Oren Moore in Glasgow. My name is Dan Schreiber, and please welcome to the stage. It's Anna Chazinski, James Harkin, and Andy Murray. Once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with my fact. My fact this week is that in Utah, it is illegal to wear a hat in your driving license. but you can wear a colander.
+
+[00:01:03] Yeah. One of those pasta strainers, you can wear them. It's genuinely true, and it obviously pisses off the authorities whenever someone says it's my right to, and the reason they say it's their right to is they say they can do it on religious grounds. Yeah, is it pastafarianism? Pastafarianism.
+
+[00:01:21] Such strong name. How many people know about pastafarianism? Oh, yeah. How many people are pastafarians? I'm a minister. Whoa. Did someone say you're a minister? No.
+
+[00:01:34] What? If anyone would like to get married tonight? Which you can do. Can you do it here in Glasgow? Can you get married? The legislation that brought in same-sex marriages last year, part of that was to allow non-traditional villagers groups to perform weddings well.
+
+[00:01:52] I'm not quite sure. Wait, you're a minister, mate. You should. Have that covered. Dan, do you know I'm a minister of the priest of the church of the latter-day dude? What? What? Yeah, I signed up online.
+
+[00:02:11] It's a very, very stringent thing you have to go through. You go onto their website, you put your email. It's basically signing up to a mailing list. But they say that then you're a minister in their church. What do you get to do? Apparently it's something... What do you get to dude? Dude, you take this woman.
+
+[00:02:32] I dude. I don't think you're taking my religion very serious. Sorry, sorry. So it's from a movie with the dude. I don't know, I've never seen it. Big Lebowski. Oh my God. Think Lebowski, that's right.
+
+[00:02:45] It's like, what, it's like a Jew who hasn't read the Ten Commandments? And when I signed up, I vowed to uphold the principles of dudeism to take it easy, to be easy, going to everyone I meet and to keep my mind limber. And I had to promise that the ordination was for me and not for someone else or my dog or whatever.
+
+[00:03:10] That's very cool. That's amazing. So what about pacifarianism? What's that all about? Well, it was started in 2005, wasn't it? Yeah. It's people who were protesting against teaching intelligent design in schools in America as an alternative to evolution. And so they created their own kind of god,
+
+[00:03:25] which was the spaghetti monster. Yeah. And it's becoming, this is the thing, it's becoming quite a large religion to the point where people are ministers and are wearing colanders on their head because that's the religious head gear that they wear in the photos. And they even have now, it's gone so far that there are some people who aren't quite sure whether or not they believe in the flying spaghetti. The spaghetti monster. So most pastafarians believe that he is tomato based, whereas others believe... Whereas others believe that it is pesto or cream And they're called spagnostics
+
+[00:04:03] So I have a fact about things that are not hats I wanted to find out things that are not hats That have been used as hats So I googled the phrase worn as a hat Specifically that And it turned out that in 2002 A 17 year old girl wore a chameleon as a hat through Manchester Airport and was stopped by the customs guys.
+
+[00:04:34] The Telegraph said, despite its abilities of camouflage itself by changing colour, the chameleon attracted the attention of people at the luggage carousel. And she'd flown all the way from Dubai with this thing on her head. And it was a very endangered species. So they took it off her and sent it to a safe house and eventually sent it back, I spoke. There's an Australian guy who once smuggled a snake in his underpants to Bali.
+
+[00:05:00] Yeah, on a plane. Is that how you're from us? Oh, yeah, I might have misheard that story. Yeah, no, okay, back to you. On wearing odd things on your head. I wouldn't put a snake in my pants. Sorry, sorry, sorry, but... Please, I think this is a fruitful thing to pursue.
+
+[00:05:19] I would probably put it in... You know, those ice cream lolly containers. I'd put it in the ice cream lolly container, and then I put the handle on. You know, the lid on. Right. I don't think anyone knows what you're talking about. Guys.
+
+[00:05:35] You know when you're making a lolly and you pull the lolly stuff into the mould and then you put the mould in the freezer? I put it in one of those. But that would be quite a small snake. Yeah. You should see my lolly moulds. And...
+
+[00:05:46] That is not the first time I've heard you use that chat at one. And it won't be the last. So there's a guy in America. Yeah. Who decided to wear a colander on his head for his gun licence. and the police took his guns away. That's what you have to do to get you guys taken away.
+
+[00:06:11] He said, I was told I was mentally competent, and I've never misused my guns or intend to do so, so it's a real kick in the guts that if I was told that I was to go for another photo with a colander on my head, my guns will be taken away again. So apparently, if you wear a colander on your head for your gun license, they're going to take it off you. And he said he's going to wear his colander on his head. head for his driving license and he said what are they going to do take my car away i think probably
+
+[00:06:38] they will yeah i read an account that uh someone in russia got the first ever license i think they were the fifth person worldwide to be officially allowed to wear a colander on their head because of this uh flying spaghetti monster thing but it said that they this person if he was driving he had to be wearing the colander at all times because you have to look like you do in your license i think he wore a knitted colander as well. Yeah, it's not an actual colander. It's a, it's just a knitted one. On driving licenses, there's a guy
+
+[00:07:11] called Jared Hayams, who lives in Victoria and Australia, who's been fighting with authorities for five years now for the right to have a penis drawing as his signature on his driving license. And he said, this all started, he was registering for a
+
+[00:07:27] change of electoral address, and he thought this would be funny. Rather than sign it, I'm going to draw a cartoon penis, which is quite a drawing of the cartoon penis actually. And he said, I was receiving letters and phone calls telling me I couldn't have that as my signature. And I thought, that's interesting. Why not?
+
+[00:07:44] You don't have to... A signature doesn't have to be you writing your name. It just has to be a mark that you produce that can look the same every time. So if you can draw a consistent penis picture, that's your signature. I'm with him on this. Well, I think he's getting away with it. I think it might be on his driving licence
+
+[00:07:59] thing now. And I think he's been signing my front door all the time. Yeah. We need to move on fairly soon to the next fact. Anything else before we do? There is a guy. There's a Swedish artist. I just love this guy.
+
+[00:08:13] He's called Frederick Sacker. And he painted the picture for his driving license. Right? So he did a self-portrait because you have to submit a likeness and a photo, but it doesn't have to be a photo of you. It just has to be a photo that looks enough like you. That if someone looked at it, they thought, oh, that's him. So he did a self-portrait.
+
+[00:08:34] He took a photo of the self-portrait. and he submitted it, and the authorities said, fine. What? They said, they were very cool about it. They just said the picture we have received looks like any other photo, so we have had no reason to question it,
+
+[00:08:46] and they'd let him do it. Isn't that cool? I mean, they're accepting colanders and penises now, so I find that I'm surprising. Can I just, there's a problem with driving license applications in the US, and this was raised by a woman in Florida last year, I think,
+
+[00:09:01] when she'd had, she got her driving license renewed, and she'd had it for a few and she started noticing people were treating her a bit weirdly, so she tried to stay in a hotel and she couldn't stay. They wouldn't let her stay. She went to Disney World and they said, I'm sorry, we can't let you park here, we can't let you come in. And eventually, someone checked her driving license
+
+[00:09:18] and pointed out that they'd accidentally labeled her as a sexual predator rather than an organ donor. Whoa. That's a different kind of organ, I think. Apparently those two boxes are just right next to each other. What box is that, though? Because it's not like there's an other interesting fact section on my driving license. There's no trivia bit on your passport, you know.
+
+[00:09:47] It's not like Andy says lolly-mold enthusiast. Should we move on to our next fact? Sure. Okay, it is time for fact number two, and that is Andy. My fact is, there was a Victorian job that consisted solely of pushing people into the sea. This was a real thing. These people were called dippers. And so it's all to do with Victorian swimming etiquette, basically. So they were quite strict about segregating sexes for reasons of modesty and decency.
+
+[00:10:25] You would have these people whose job it was to push you quickly into the water so that your modesty was preserved as a woman. I think it was mostly for female swimmers. Yeah, yeah. So these bathing houses that they used to go into, that's the thing that got taken into the... Yeah. So to go swimming, you had to go into a special car. on wheels, then they would take horses, attach them to the cart. The horses would drag the machine into the sea.
+
+[00:10:50] You would change, and then you would dive in off the end. Yeah. You'd mostly go nude because, and I'm hoping that you guys can confirm this, swimming at the beach and these big, laborious things with horses bringing you down there were invented before the swimming suit. So everyone went naked, and they're like, how do we get around this naked thing? let's build a massive house and and then we'll get a horse
+
+[00:11:14] and we'll bring it in they just didn't have swimming clothes I think they did have like woolen swimming suits but they got quite heavy but everyone was drowning people did swim naked at the start of the Victorian period but then about halfway through everyone got a little bit prudish as we all know
+
+[00:11:30] and that's when they had these kind of houses and things I think right yeah because swimming in the Victorian era at first was really more for medical purposes than holidaying purposes wasn't it and so I think sometimes some people thought you had to be dipped in three times in and out and it was quite important how quickly you got dipped in how many times and that could cure you of TB or flu or whatever you had.
+
+[00:11:49] Oh wow. So yeah. And they were really unpopular as well. People hated the dippers. So somebody said they were the most horrid looking creatures I ever beheld good heavens to be dipped by one of them and soused like a condemned puppy or kitten. I was looking into swimming around the world now
+
+[00:12:09] because I thought, oh, I wonder if different cultures have different ways of going to the beach. And if you live in China and you go to the beach, how would that be? In China, there's a big new fashion with swimming costumes. And I'd not heard of this, and maybe you all have,
+
+[00:12:20] but called the Face Kini. So it's basically, they wear what effectively is a Nacho Libre mask over their heads because they don't want sun tans. It's a big kind of no-no there to have a suntan. So they wear these, yeah,
+
+[00:12:35] these Mexican wrestling masks, and they go to the beach. So if you go to the beach in China, it's just packed with wrestlers, If you wear one of those, can you go naked on the rest of your body? Because it doesn't matter because no one knows who you are. So this is the thing. A lot of people do it now. It's not about the tan anymore. It's about an anonymous state at the beach. You could hang out, whatever you want to hang out, and just go and do whatever you want, and no one will know who you are.
+
+[00:13:01] They actually did that. Women used to wear masks in the 16th and 17th centuries for exactly that reason. It was a fashion thing. So women of high society would go around in masks. and they'd often wear them in bed, and that was to stop your skin being exposed too much to sunlight and stop yourself getting a tan, because it was unfashionable. Wow. Yeah. Do you know it was illegal to be topless in America in the early 20th century,
+
+[00:13:23] and people were arrested for it? As a man or a woman? As a man, sorry. How sexist am I? I just assumed by To Be it, I meant all men. Yeah, in 1935, 42 men were arrested for being topless in Atlantic City, and people who were arresting them said, we will have no gorillas on our beaches.
+
+[00:13:43] Wow. And yeah, it was a thing. It was sort of very improper. The man who invented the lava lamp was a nudist, wasn't he? Yes. He used to make videos of women swimming underwater naked. And then presumably went from there to lava lamp. Obviously.
+
+[00:13:59] The logical junk, yeah. Do you know what's happened to bathing machines today? Do you know what happened to them? No. They are now. They were repurposed. into those bathing huts that you get at the back of beaches. So they just took the, they wheeled them back off the beach
+
+[00:14:15] as it came, as people thought actually it's more sensible for us to wear a swimming costume. They wheeled them back to the back of the beach, they took the wheels off, and now that's why they're fashionable, because bathing machines were transformed into that. Oh, someone last year built a new bathing machine, incredibly exciting. This is the first one built for 100 years. It's on the coast, somewhere obviously. I think it was in Margate, and he raised, about 30,000 pounds on Kickstarter,
+
+[00:14:43] and it's really cool. It features one of the little special features that you used to get on bathing machines, which was a modesty hood, which is this little canvas tent, and basically the end that's facing the sea, you kind of lower this canvas hood almost all the way to the water
+
+[00:14:57] so that you can have even more privacy as you get in. That specific awning was invented by a guy called Benjamin Beale, and he's often given credit for inventing the entire concept of this beach house, the bathing house, but all he did was the awning and he just got all the credit. That is outrageous. I'm so glad that you are rewriting
+
+[00:15:16] everyone's assumptions about this guy. Glad we've written that wrong. I know you all thought. Fuck Benjamin Beale. I was reading about there's a... Because obviously people love swimming and there's a lot of beautiful places in the UK to go swimming.
+
+[00:15:37] There's one absolute... If you look at photos at this place, Absolutely beautiful. And it's called the Lagoon of Buxton. Absolutely stunning. But it's really toxic. It's really dangerous. And so they're doing everything they can to stop people from swimming in it.
+
+[00:15:50] But because it looks so beautiful, people just ignore the signs and keep going in. So one sign that's up there, it says, warning, do not enter water due to high pH levels. This can cause skin and iotation, stomach problems, fungal infections, such as thrush. It says that inside there are car wrecks, dead animals, excrement, rubbish. and still people keep going in. They keep going in for a swim and they're getting quite ill. So what they've had to do in the end,
+
+[00:16:14] they've had to dye the lagoon black so that people now go, oh, that looks disgusting. So they've altered a beautiful place. I wonder how beautiful it can be when it's full of car wrecks of experiment. Oh, look at that. Beautiful turd floating by.
+
+[00:16:33] Ah, the serenity. There are swimming pools in, New Zealand, which are being terrorized by mystery poohers. And this is in... Terrorism. This is terrorism in New Zealand. Yeah, it says swimming pool. One is in a place called Middle March,
+
+[00:16:52] but there are a couple who've experienced it. And there were three feces incidents in a week, so they think it was deliberate. There was one incident where this was in an Invercargill's Splash Palace Pool, so avoid that. Where there was a huge... I don't know. It sounds beautiful. No, James, I went and I got thrush.
+
+[00:17:13] Yeah, so this place is full of shit and Andy's vaginal infections. But anyway said there was a large amount of human waste deposited into the deep end, so everyone was evacuated and moved to the learner's pool. And then they were evacuated from that when it was discovered the learner's pool was also full of feces. All right, let's move on to our next fact. Okay, it's time for fact number. Time for fact number three, and that is Chisinski.
+
+[00:17:48] Yes, my fact is that Desperate Dan stopped eating cow pie because of mad cow disease. He gave up cow pie, which is his favorite food. So that was really sad. Yeah, I think it was in 1996. And sources vary, and I can't find the original comic strips, but I think he started eating Aunt Aggie's vegetable and fish options as a replacement. But the cow pies he ate, so the thing with Mad Cowan, disease or CJD is that
+
+[00:18:16] the danger was eating strange bits of a cow, wasn't it? And Desperate Dan did use to eat the whole cow, because it had like the horns sticking out and the tail sticking out. So I would say if anyone was in danger of contracting it, it was probably him. We should say for listeners overseas and things like that, who Desperate
+
+[00:18:32] Dan is, just in case people don't know. So Britain's two biggest comics ever called the Beano and the Dandy and the Dandy starred cover star, Desperate Dan who was a cowboy and he was this huge guy and he did amazing things. He had to shave with
+
+[00:18:48] a blow torch because he was so tough and he parted his hair by firing a pistol through it. It's just part of this amazing tradition of really, really great comics and really imaginative things. I read these when I was a boy and they were so good. He used to smoke through a drain pipe.
+
+[00:19:06] He used to use a drain pipe as a cigarette or a pipe I think didn't he and it was a dustbin full of rubbish at the end of it which I think he lit and smoked. He was pretty hardcore. He was. He had a gun, he had to give that up as well in the 90s or the 80s for political correctness. Gone mad. So I don't know how he parted his hair after that, maybe he went for...
+
+[00:19:24] I think he had a water pistol after that. Okay, yeah, makes sense. He sounds a lot better than the guy who was in the first episode of the Bino called Hairy Dan. And Harry Dan was an old man whose long white beard usually saved the day. And in the first episode, he used his beard as a sail to win a boat. race. And you could rescue children from down Wells? I'm sure he did. I think I can see why Dennis the Menace took
+
+[00:19:50] his top spot after a short while. There's that amazing factors in there about Dennis the Menace, which is that they so there are two Dennis the Menaces. One is an American version and then one is the British version and they were both created in the same year, independent of each other. They had no idea that they were being published.
+
+[00:20:06] They both had the red and black costume. They both were called Dennis the Menace. I think it might have even been in the same week. It was the same week. Really, really. Yeah. And it's often used by people trying to explain coincidences and why they're not surprising that you, in a world where infinite things can happen, you expect the odd coincidence. So actually, when we discovered that, we should have gone, oh yeah, obviously mad things will happen. Yes. And just move on.
+
+[00:20:28] It's not amazing at all, in fact. The other argument about that is that ideas have a time. So maybe there was some other children with spiky hair and some other cartoon and other people with red and black and other people called Dennis. and the same thing came with calculus when Leibniz and Newton all came up with it at the same time. It almost at exactly the same time. It's like, well, was it a weird coincidence or was it just the time for that theory to come up?
+
+[00:20:54] Dennis and Menace's dad now has spiky hair. In fact, the Bino did an extremely exciting reveal a few years ago, which was that they showed on one of the bits of comic strip a photograph of Dennis the Menace from the 80s and they had Dennis' dad saying, look, that's a picture of me. So it transpires that Dennis the Menace is actually now Dennis's dad.
+
+[00:21:14] Oh, I don't know when the switch happened. Wait, they used a photo of Dennis the Menace from the 80s. Dennis's dad said that used to be me. Yeah. But there's no plot line where Dennis grows up in the 90s and fathers a son. That's like, that is stupid. I'm so angry. Anyway, sorry, he's changed his hairstyle, Dennis and Menace's dad.
+
+[00:21:43] So they've tried to upgrade the Bino to make it more. realistic and the case is now that we live in a happier time where parents don't all abuse their children and kids don't all hate their parents and so Dennis's dad is now he has spiky hair and he's a bit cool and groovy he's a little bit like I used to be a rebel too yeah is there an authority figure who's still the enemy though because that was always the thing it was always anarchy you know the bash street kids or like teach was the enemy yeah I think the teachers are still quite bad but this is cool the guy who draws the bash street kids this is a niche fact now for people who read the be that one there we are. He's called David Sutherland
+
+[00:22:15] and he's drawn that comic strip since 1962. Wow. 53 years. He's drawn over 2,000 of them. Well, here's a weird one as well. Neil Tennant of the Pet Shop Boys, so the lead singer of the Pet Shop Boys, between
+
+[00:22:31] 1975 and 1977 he worked as an editor for Marvel UK. So his job was to anglicize all of the things that were Americanized in the original comic. And his main job was to look at all the points of say like cleavage or too short a skirt pointing out and then they had to draw over the cleavage and readdress it because we had different indecency laws over
+
+[00:22:53] here. Really? So before Pet Shop Boys, he was stopping cleavage from getting into the comic books of the UK. There was a big thing in America in the, when was it? I was in the 50s, 50s and 60s where they had a censorship of comics. They might have even banned them for a while, but they definitely censored them. And there was a guy called Frederick Wharton who wrote. a pamphlet called
+
+[00:23:14] Seduction of the Innocents where he complained about all these comics and what they were doing to children and he said that Batman and Robin were obviously homosexual and Porky Pig was an open invitation to buggery Now
+
+[00:23:32] I have never got that from the cartoons What was this man's name? He was called Frederick Worthing. And he was a psychiatrist so he should know actually. I think there might have been a little bit more going on in the words.
+
+[00:23:46] than brain. Just on that subject, though, with Porky Pig, there's a very big porn website in America called Porn Hub, and they recently looked into the analytics of the most search for words. Within, people go on, they put in a word like,
+
+[00:24:01] milf was a massive one in a lot of American states, stuff like that. They found that in Nebraska, Arkansas, Arkansas, and Tennessee, the number one search term was cartoon. Another fact, in South London, it was lolly mold. While we're on this
+
+[00:24:25] I read a list of characters in the Bino Okay And they included Little Dead Eye Dick Deep Down Daddy Neptune Cocky Dick Wondering Willie Sticky Willie
+
+[00:24:47] And Polly Wally Doodle and her great big poodle Oh, that's amazing. So every single one of those is an invitation to buggery. If Frederick had been around... An open. Not a private invitation for buttery. It's on a billboard in the central town.
+
+[00:25:05] On Facebook, it is, this is an open event. Do you guys know what the world's first comic strip is? Biotapestry. It's very funny. A lot of good comedy in there if you want to see it. No, I think so, I think we're... a comic strip is a series of cartoons that are sent
+
+[00:25:27] out to people's homes so the bare tapestry was just in one place. You didn't receive it through the letter box. So, which have speech bubbles and people talking and the first one was made in Glasgow and it was the Glasgow well done. It was the Glasgow looking glass and
+
+[00:25:42] it was in the 1825 it had its first issue and the first comic strip in it was called the History of the coat and it was It was the adventures of a coat going from one owner to the next. That's a great idea. That's really cool. Quite cool, yeah.
+
+[00:25:59] And also it had a lot of heart-hitting satire. It had a lot of bitching about the English in it. Even though it was set up by an English guy who'd had to flee London because he was in so much debt. So he went to Scotland and was obviously like, okay, cool, I like these guys. He made a comic strip, which partly bitched about the English. And then he racked up so much gambling and drinking debts in Scotland that he had to flee again back to England.
+
+[00:26:21] And so it stopped. Do you know who invented the speech bubble? Oh, controversial. I've got a theory. What's yours? My theory is that it's 650 BC, and it was the Meso Americans, early Central American people. Are they of soup fame?
+
+[00:26:39] Or is a... Miso. Have I pronounced that right, just in case we get letters? Does it meso? I don't think any of the... going to write to you now, Andy. But they have little speech bubble. They have drawings of people and they have these tiny little sort of arrows showing that,
+
+[00:26:59] like to a dagger drawing and it shows that people are slagging each other off in the, in the drawings. Yeah. And that is a speech bubble, sort of signifying abuse. And do you agree with that, Anna? I do agree with that, probably. Yes.
+
+[00:27:11] You know Super Ted, you know that his first language is not, in fact, English. It's Welsh. Yeah. Really? for Ted's first language as Welsh. It's a Welsh cartoon, and when it first went out, it was in Welsh, and they just dubbed it into English. We should move on soon. Have you guys got anything else before we do? I quite liked the quote from Ewan Kerr, who was a kind of top dog... Sorry, U1Kir.
+
+[00:27:38] You... I don't see that. I'm not really doing my job properly. I wrote down the name Ewan Kerr. I didn't notice. I'm so embarrassed. Yeah, so Uwanker is a... is a top guy at DC Thompson which makes the beano and the dandy and he was there's an interview with him semi-bemoaning how they've had to go
+
+[00:28:04] a bit politically correct so corporal punishment, smoking and racial stereotypes are now taboo it does limit us in a way but we get to be slightly ruder than in the old days a bit more bodily functions instead we know that's what the kids laugh at now stupid kids not laughing at the racial
+
+[00:28:25] stereotypes anymore. All right, let's move on to our final fact of the night, and that is James Harkin. Okay, my fact this week is that the oldest sperm is worm sperm. Mostly because I just like the cadence of it. But we found some 50 million-year-old sperm cells. Not us up the podcast. You leave us out of it. I was swimming in Buxton.
+
+[00:28:58] Yeah, 50 million-year-old sperm cells And they have been found in an Antarctic worm And they were in a fossilized cocoon So that's because normally sperm cells are so small and delicate They normally die and they don't get fossilized But these ones did get fossilized And they're the oldest ones that we have And they're from worms.
+
+[00:29:21] 50 million years Did we know that sperm had evolved at that point Or is this the first proof we've had that it did evolve? I don't know about that actually But yeah, I suppose there was no evidence that they'd evolved at that stage. It can have been. Does it still function?
+
+[00:29:38] There is a sperm that's worked after 23 years, I think. So the world's oldest baby is 23 years old. This is an Australian guy who got quite ill, and he was, I think, 15 years old at the time, and he decided to save his sperm before he was going to have some kind of operation. He survived his problem. He grew old, he got married,
+
+[00:30:00] and then I think the operation that he needed at the point meant that he could no longer produce sperm. So he had this sitting there from all those years ago and they used that and it worked. And so he has a kid from his sperm from when he was 15. It was like frozen in a lab. It wasn't just sitting there. Because you have to freeze it properly, don't you?
+
+[00:30:20] You have to freeze it at a really low temperature. Freeze the temperature will not do. Yes. As a man who spends a lot of his time apparently by a refrigerator. I'm now thinking that lolly mold sounds like a disease it's a touch of lolly mold don't you worry there are sperm smugglers as well
+
+[00:30:41] who are freezing sperm smuggling is happening in not spuggling that's what they should call it they should call it spunkling or something yeah so what so people smuggling sperm like bull sperm and ball semen
+
+[00:30:57] No, this is in prisons. So people who are in prison who aren't allowed to have contact with their wives are smuggling sperm. So there's a baby who was born to Regina Granato in America
+
+[00:31:13] in 1999, even though her husband had been in prison since 1987. He was a gang leader gangster. And yeah, this baby was born because she'd smuggled in a cryogenic sperm freezing kit and given it to him and then he'd spermed into it and then she's given it back.
+
+[00:31:32] Yeah. That's the verb. That's what you do. But she smuggled it in because they're not allowed to touch each other. So she smuggled in the kit. The only people who the prisoners are allowed to touch in, I think it's in Pennsylvania, are people under the age of eight who are allowed to give their parents a hug. So she brought her husband's nephew in and gave him the cryogenic sperm freezing kit so that he could
+
+[00:31:59] hug his uncle and his uncle could slip the kit out from his coat pocket. I was googling worm and sperm. There's a lot of amazing things but they're so disgusting. This is a really hard topic to talk about because, okay, so for example
+
+[00:32:15] there's a type of worm, a female worm, that when, after she's been spermed into, she can then decide that she doesn't like the sperm, so then she puts her face into it and sucks out the sperm and just spits it away. So wow. So is this a kind of worm? This is a kind of worm. Yeah. So this worm does it? It just goes,
+
+[00:32:41] no, I'm not having that and goes in, takes, sucks it out. And so it's got to the point where the sperm, I think, has evolved now to be a bit savvy to it. So it has this little clinging stuff inside. So actually it's like, you need to properly suck. Because it's hanging on. That's amazing. Yeah. It's like an arms raise. between the two sexes in the species. Yeah. Yeah, because the scaly cricket, I think the male scaly cricket
+
+[00:33:07] has to copulate constantly. It can copulate more than 50 times in three hours or something because the female scaly cricket, for some evolutionary reason that's beyond us, her response when he does copulate into her is to take it out immediately and eat the sperm. So it's very rare you slip one through. She thinks you're feeding her.
+
+[00:33:25] Wow. Yeah. Okay, I found a flatworm and buckle up. guys. It's called macrostomum hystromum hystrix, right? And if it is lonely
+
+[00:33:38] and if it can't find a mate, they're all hermaphrodites, so they have both kinds of genitalia. If it's lonely, it can stab itself in the head with a sperm-filled hypodermic needle to inseminate itself.
+
+[00:33:50] We've never seen it doing it. But scientists left certain worms on their own and they then came back later and they found, oh, they've got a lot of sperm in their head. head. But how did it get there?
+
+[00:34:03] And these worms had sort of injected themselves because they can sort of fertilise themselves using sort of both bits of genitalia. And yeah, and they hatched. And they had hatchlings. They call that selfing. Do they?
+
+[00:34:18] Do they have selfing sticks? There is a ground louse that reproduces by slapping one giant sperm onto a female's back. and its Latin name is Xerotypus impolitis. You know, larger animals tend to have smaller sperm. That's the way the... I think the study was done on this really recently
+
+[00:34:56] to try and work out why. And it's quite interesting. So fruit fly sperm is the largest sperm in nature, I think. Elephant sperm are very small. So I think a fruit fly sperm is about a thousand times bigger than an elephant sperm at the top of my head, something like that. And it's because if you're a bigger animal,
+
+[00:35:12] then the sperm have furrowing. to swim. And so in order for them to have a chance to succeed, you've got to produce more of them to make it more likely that one of them is going to finally get to the egg. And if you produce more of them, it takes up more energy so you can't make them as big. Whereas if you're a little fruit fly, it's like the sperm, it's got about a centimetre to go. And so you can produce a few giant sperm. Oh, and people who are more attractive, men-wise, have worse sperm. So men who are attractive to women tend to be men with deeper voices who are a bit more. manly who evolution has told us we should be
+
+[00:35:45] attracted to because they've got more testosterone but actually it's a trade-off so if you fed all your testosterone to building yourself ridiculously large biceps or a penis or whatever then you do you have less healthy You've seen that room in the gym I mean I assume that's what they were doing
+
+[00:36:05] so yeah keep going so that's it so that's amazing there's too much testosterone going to making lifting weights with your penis or whatever so you don't have enough left over to make healthier sperm. I find that really surprising. I can't believe that testosterone is spent on attractiveness in that sense. Well, I suppose if you're spending it on attractiveness, then you're going to attract more mates, and so there's a higher likelihood that you'll be able to fertilise
+
+[00:36:31] one of them. So it's almost like, okay, well, never mind, the less attractive people will give you some better sperm instead, so that the one mate you finally do manage to seduce, you've got a higher chance. You'll leave my wife out of this. Well, goodness, haven't we learned a lot of tonight? That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us
+
+[00:37:02] about the things that we've said, please don't in this particular episode. We can be found on Twitter. I'm at at Shreiberland, James. At Egg Shaped. Andy. At Lolley Mold Lover. And Shazzynski.
+
+[00:37:20] You can email podcast. at QI.com. Yeah. Or you can go to No Such Thing as a Fish.com. All of our previous episodes are there. Thank you so much for listening at home. Glasgow.
+
+[00:37:29] That was awesome. Thank you so much for me.

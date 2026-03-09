@@ -1,0 +1,213 @@
+# No Such Thing As A Fish - No Such Thing As Bikes In Space
+
+- Episode date: April 12, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-bikes-in-space
+- Slug: no-such-thing-as-bikes-in-space
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Barstapal. And I'm sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that's my fact this week. My fact is, the 95-year-old billionaire who controls via com and CBS now communicates via an iPad preloaded with audio clips. His choices include yes, no, and fuck you. So how does this work?
+
+[00:01:04] You're having a conversation with him, and rather than respond with his mouth, then he responds by clicking a button. He's a very old man now. He's 95 years old, and his speaking has gone quite bad. So his communication is very bad. So what they've done is they've helped him swear at people with as much force via a button. Wow. Yeah, because he can't swallow, can he?
+
+[00:01:27] He has a problem with his throat. He is fed through a tube, and he really, really likes steak, and he wants to eat steak, but they never let him because he has this tube. And they say the only way he can get rid of his tube is if he conserves his energy by reducing his sexual activity to once a week.
+
+[00:01:45] And he refuses. Is he called Redstone? He is. He's called Sumner Redstone. He's a very big media mogul. He has a lot of CBS and so on and things that are underneath that are like paramount pictures and so on. His family have a company which is the National Amusementance Theatre chain and that's what that all sits underneath. He has a majority vote.
+
+[00:02:06] So he's the big dog really. So he's a very important guy. And he kind of like he's done a few things that have gone into pop culture. Content is king. is a thing he coined. Is that something that we're all supposed to know about? I think he would be very hurt by that comment. I know what he'd say.
+
+[00:02:31] What is that? What is what? Content is king. It's a saying, it's been said. It's not a very old saying. Sorry, you're saying he invented the non-existent catchphrase, content is king. Is this kind of shit he's been shurning out?
+
+[00:02:45] He's a billionaire. Yeah, that's all you need to do, apparently. one catchphrase and you become a billionate. No, he's got a giant empire behind him. It's not a real catchphrase. It's not like nice to see you to see you nice, is it? Bruce he came out and shouted, content is king. He's not on TV, yelling it.
+
+[00:03:03] Where is he? He's behind the scenes. When is he saying content is king in a way this becomes so famous? He's saying it in meetings when Bruce Forsyte's going, what do you think of? We've got this great catchphrase, but they've got no show. That's shit. Content is king.
+
+[00:03:16] That's when he's saying it. But the thing is, is it's hard to know whether the fuck you that he says, or the FU, let's stop swearing, the FU is said as a mean thing or a nice thing. There was an interview with one of his advisors, a wealth advisor called Rebecca Rothstein. And she said, I've only been the recipient of an FU once. I think he meant it in an endearing way. It's all to do with how he presses the button, I suppose. Take your cue from things like that.
+
+[00:03:43] Yeah. Wow. Was he known for being a particularly bad boss? you know, is this something he uses a lot, this button? Well, he's a big, he is a big character. There's a lot of controversy in his personal life, in his business life. It's hard to say, don't know the guy, but yeah, we're talking about a billionaire. I don't want to say anything libelous, right?
+
+[00:04:02] Hey, it's an asshole. What are you going to do? No, I did. But all my researcher is on asshole billionaires, so we're in trouble. One guy who admits that he used to be a bad boss is Bill Gates. I think he's got a much more cuddly image now. But when he was first working at Microsoft, when he was first in charge of Microsoft, Bill Gates knew everyone's car license plates
+
+[00:04:26] so he could look out into the car park and see when people were arriving and leaving from their work. And he only stopped doing that when the company got so big that he could not physically remember everyone's license plates. If only you could come up with a system of putting letters and numbers in a big file. Yeah.
+
+[00:04:49] I was actually reading a thing in The Guardian where they asked people to write in and say examples of bad bosses and what they made them do. And one of them may have been a Bill Gates employee because one of these people wrote in and said, my boss made us all park our cars facing the same direction for neatness in the car park.
+
+[00:05:07] Yeah. That same boss said that all of your buttons have to be made of pearls because plastic buttons are ugly. What? Yeah. This isn't, I don't think this is Bill Gates. No, I don't think that is Bill Gates.
+
+[00:05:18] that would be libelous. They do call him pearly gates, so maybe that's why. There you go. Yeah, that's why. There was just in this list of, this list of things to the Guardian, these are some other things
+
+[00:05:31] people have had to deal with with bad bosses. Someone wrote in and said that they got a round-wob and email from their boss saying, please can everyone do their number twos before they come into the office because I don't like going into the bathrooms and having them smell bad. So that's some advice for a boss.
+
+[00:05:45] Another boss banned all paper clips because once he'd accidentally clipped some sensitive material to the back of someone's appraisal, which they'd read. And another boss said that all equipment in the entire office needs to be clearly labelled by Friday, otherwise disciplinary action will be taken. And that included things like every single thing by Friday, things like chair, light switch, door, floor and ceiling.
+
+[00:06:11] Sealing. Someone had to get a step ladder around. I found a thing about how to be successful at work in relation to your boss. Okay. So if you keep a religious symbol at your desk, your boss is less likely to ask you to act unethically. And it can be a symbol from any religion. So there was a study of this in India. And they found that their bosses put less pressure on them to bend the rules or to, you know, be rude to other people.
+
+[00:06:38] And it also works if you put a virtuous quotation at the end of your email, like, better to fail with honour than succeed with fraud. But when you say it's getting them, you ask them to do less fraudulent things. That's what you said. Is it not that you just spend less time talking to them because you don't want to talk to them, so you ask them to do less things in?
+
+[00:06:58] Maybe. What, because they've got an enormous crucifix a six-foot-tall crucifix about their desk? Larry's a bit full-on, isn't he? I would give that person a wide berth, definitely. How's this for a bad boss? I'm not sure if we mentioned before, George Pullman.
+
+[00:07:12] Have we mentioned him? He made... Yeah. Then we'll leave that. Made train cars. Oh no, he just made train cars, didn't he? Yeah, yeah. He made train cars, but he was a really...
+
+[00:07:19] He was a terrible boss. He ran, basically, he built a town for all of his employees to live in. So he had schools and churches. He changed the money from American dollars to paying them in Pullman money. So it was just his own currency, like he was the Monopoly Man. And, yeah, so he just took over their whole life. Whoa. Yeah, yeah.
+
+[00:07:38] And then the thing about him is he was hated so much that he was... His family buried him under like three feet of concrete because they thought someone would go after his corpse. Oh dear. This is, I've got some advice. I'll just be offering some times pun, homely comments on proceedings. Oh, I'm not sure about that. Oh, dreadful.
+
+[00:07:59] It's all right. It was dead. Wouldn't have cared. But there is, there are some tips if you have a really bad news. I want you to do the eulogy at my funeral, Adam. Do we? like to this guy now. He doesn't give a shit.
+
+[00:08:14] Do you know one thing that does work is sticking a pin into a doll of your boss? Oh. So this genuinely reduces... What do you mean work? As in they don't feel the injury wherever you put the... Sorry, that would be a hell of a factor, Barry, wouldn't it?
+
+[00:08:29] Voodoo works! Sorry, it works to reduce your anger at your boss. So participants in this experiment, they were asked to remember very specifically and clearly at a time that their boss had humiliated or blamed them when it wasn't their fault. And then they were asked to name a voodoo doll on the screen,
+
+[00:08:48] on the computer in front of them. And some had to name it nobody, and others people could name it after their boss. And if you got the chance to do the damage to a doll named after your boss, you felt a much lower sense of injustice after it was all over. There's alternatives, because people do, I think, regrettably do stuff where they, if they don't like their boss, they send stuff. I was reading in America, there's a human resources director
+
+[00:09:11] who's taking legal action to find out who wants her to eat a bag of dicks. Now, this is a company in America that send, on request, gummy-shaped little penises. No, penis-shaped gommies. Sorry. Not gummy-shaped penises. That's something. You need to see a doctor about that.
+
+[00:09:36] What a frightening company that would be. But yeah, they're called it. Dix by mail and what they do is you ask them to send a package to a boss or someone, a relative that you don't like. And she's trying to sue that company now to find out who had sent that to her. Yeah, because she was very upset. The company's website, if you go to it, it's so Dix by Mail and it markets itself as great way to tell your friends, family, loved ones or enemies to eat a bag of dicks.
+
+[00:10:07] I actually have a related fact. It's about eccentric millionaires. do you know what John Wayne Bobbitt is up to these days? Oh, so you remember him. He was the one whose wife chopped off his gummy. Yeah. And threw it out of the car. Well, he is now a treasure hunter.
+
+[00:10:28] He's not still looking for it. He is looking for a chest of treasure. And this is a chest of treasure that an eccentric art dealer has hidden in the Rocky Mountains somewhere. He's called Forest Fen. 350,000 people have tried and failed to find this treasure. Wow. Is it worth, did you say it was worth a great deal?
+
+[00:10:52] I didn't, but it is. Okay. As it's properly... It's worth about $2 million. And it's like jewels and stuff like that. And he's hidden it somewhere. And four people have died looking for it. Ooh, yeah.
+
+[00:11:05] It's very dangerous. One bad boss was the guy who ran Mars, Forest Mars, Senior. He invented the Milky Way and Eminem, so he's quite a big deal. but when new managers came, he would make them sign a resignation letter on their first day.
+
+[00:11:20] What? Oh, and then just in case... And just in case. So he had it, in case they didn't reach their targets, he'd be able to say, well, now you're going to give me your resignation. That's pretty bad, isn't it?
+
+[00:11:29] Clever. In a meeting once, he made his younger son pray for the firm on his knees for an hour. When you said he ran Mars, I thought you meant he ran... I didn't think anyone ran Mars, but no, I...
+
+[00:11:42] You mean the planet? Yeah, exactly. Oh, yeah. But you mean the chocolate firm. He says, he says, chocolate is king. It's a catchphrase. Okay, it is time for fact number two, and that is Chazinski. My fact this week is that before scarecrows were straw dummies, they were living children.
+
+[00:12:01] Wow. So you're not saying every single scarecrow that you see used to be a living child, I. And then a powerful witch came across there. That's how stuck in the mud came about. If you actually run under a scarecrow's legs, it turns back into a child. That's true. But don't do it because that child is angry by this point. No, that's not the fact.
+
+[00:12:22] That would be amazing. This is the fact that the way that people scared birds away from their farms in ye olden days, was just by employing kids to do it. And the first use of the word scarecrow to refer to something that scares a bird was in 1553, and that referred to children who had the job of doing it. And then in 1592 came the idea of the stuffed dummy. But until the late 90s, century and I think into the early 20th century then kids were just employed to do this and it was
+
+[00:12:48] quite a common job you know how you got a job doing a milk ground or something or working in a cafe as a kid the equivalent of that in the Victorian era was standing in a field and scaring away birds and the reason that they stopped having children there is because the factories started opening and they could pay the children more yeah as in the factories could pay the children more yeah so the children decided to work in the factories instead well I'm not sure they had much say in the matter I must say but they're not sure they had much say in the matter I must say but they They worked in the factories instead. And also the reason that the scarecrows came in is because of the plague.
+
+[00:13:19] The plague killed so many people that there weren't enough children to go around. And so they had to make the scarecrows instead. Oh, really? It wasn't a terrible gig. I read that in the 1800s. If you were, for instance, a child scarecrow in Winchcom, you would be paid a penny per day plus a swede. By which you mean the vegetable. No, a Swedish person.
+
+[00:13:41] We had a surplus then. There's only one celebrity scarecrow that I've found in history who is, you know, the Thomas Hardy book, Jude the Obscure. Yeah. Jude the Obscure used to be a scarecrow as a child. Oh my God. I totally forgot that, really? I'd forgotten it too. Wow.
+
+[00:13:58] It's not a real celebrity. It's not going to trouble heat magazine any time. I mean, I would say a bigger celebrity scarecrow is the scarecrow from the Wizard of Oz. Yes. Yes. Yes. So there are two. Well, actually, so just quickly on the scarecrow from the wizard.
+
+[00:14:13] the from the Wizard of Oz. I was reading about him today, and it turns out that in the original books, he doesn't actually lack a brain. In reality, when she meets him, he's only two days old and just really ignorant. Yeah, so he actually has a brain. And then in the movie itself,
+
+[00:14:30] if you all remember that great moment where the wizard does give him a brain, he suddenly recites Pythagorean theorem, and he states that it applies to an Isosceles triangle. That's not correct. No, obviously, it's a right angle triangle. What the fuck is he talking about? I mean he's only had a brain for like 10 seconds
+
+[00:14:48] I would have loved to have been in the cinema with you as a kid watching that actually the character of the scarecrow so it was played by a guy called Ray Bolger in the original Wizard of Oz but it was supposedly played by a guy called Buddy Ebson and if you look this man up Buddy Ebson was he was 6'3 he was incredibly skinny and he looks exactly like a scarecrow his whole face is scarecrow-like and so the people making the film thought this is our guy
+
+[00:15:13] he's an actor, looks like a scarecrow. And then they decided to cast this guy called Ray Bulger as the Tin Man. Little did they know that Ray Bulger had been inspired to act when he'd seen a production of the Wizard of Oz and he'd seen the scarecrow leap up through a haystack off a trampoline and seeing that scarecrow made him think, one day I must play the scarecrow in the Wizard of Oz. And so he was cast as the Tin Man and he was pissed off.
+
+[00:15:37] She must have been. He insisted and they said, no, no, no, we're not going to let you. We've got this guy who looks like a scarecrow. And the guy who looked like the scarecrow, you know, was practicing the lines and was being taught the dances. And eventually, Boulger just wore them down and said, I will be the scarecrow. It's my life's mission. And he was a scarecrow. So that's, if you could see inside the tin man, he looks like a scarecrow.
+
+[00:15:58] But do you know, they swapped? Yeah, they swapped. No, no, no. This is what's amazing. Yeah. No, no. What happened was they swapped. So they were like, okay, we're still in the movie.
+
+[00:16:06] This is fine. Then the guy who was the original scarecrow was now the tin man. But he got allergic to all of the paint that was put on. him couldn't do the job so he got fired he's not in the Wizard of Oz he's not there he lost his job they should have given him lion I don't think that's how it worked I don't think there was just a
+
+[00:16:22] he was also allergic to cats there are cool old old words for scarecrows which I never knew in old English they were called a Frey Boggard nice which is a good yeah really we still call it that round here
+
+[00:16:38] yeah apologies now they know what we're talking about What the hell is a scarecrow? Well, let's try a couple of others then. Potato Bogle? Ah, got you there. Potato Bogle, which was...
+
+[00:16:52] That hasn't got here yet, that one. Or a Tattie Bogle. I think Tattie Bogle is got it. Potato Bogle, if you're from Oxbridge, obviously. Tattie Bogle for the rest of us. I was reading that in 1989, they were testing new scarecrow ideas, and there was one exciting one, which was a scarecrow that I think must have been laying back,
+
+[00:17:12] because every now and then a propane cannon would lobbed up. Oh, yeah, no, these are still sold. And it really works. It really scares away the birds because suddenly, boop. And then, yeah, that it goes. I read one more bit of scarecrow technology. In Australia, they have AI scarecrows. Although we've been in the West Country for two days now,
+
+[00:17:32] and I've realized around here, AI stands for artificial insemination. We learned that last nine. We learned that last night. We learned a hard way. And we mean the hard way. Yeah, they have this. It's kind of like a box, but what the box can do
+
+[00:17:54] is it can recognize what animals are going to come towards it and it can make species-dependent noises. That's cool. Yeah, so they know what crows don't like and they know what geese don't like and all these different things. They can make different sounds.
+
+[00:18:06] And the main problem with scarecrows is they get used to whatever's trying to scare them. The crows get used to it. And so they can change it all the time. We're going to have to move on to our next fact. Should we move on? Well, I found one article in the Metro. It was entitled, Is This the World's Most Useless Scarecrow?
+
+[00:18:24] And it was a picture of a scarecrow that was completely covered in bird poo. And it had a nest of five chicks tucked inside his jacket. Okay, it is time for fact number three. And that is Andy. My fact is that the first. first ever leisure caravan had a man on a tricycle going ahead of it to check that the roads were good enough. So caravans, you know, were traditional mode of transport for a long time before they were used for leisure. And then I found this on a blog by a guy called Eugene Bern,
+
+[00:18:59] which is a great blog. I do recommend it. And it was all about the guy who invented recreational caravoning. He was a guy called William Gordon Stables. And he was alive in the second half of the 19th century until 1910. And he was a crazy guy. He wrote for the boys' own paper advice to boys. And most of the things he recommended were cold baths and hot porridge and long walks. And he said that kind of sorts you out. And so he wanted to have an adventure.
+
+[00:19:27] So he commissioned a wagon company in Bristol to build this beautiful thing that he called The Wanderer. And it's really ornate. It's made of mahogany. It had a paraffin oven. It had a bookcase, velvet-lined furniture, lots of musical instruments. He kept a pistol in it as well, I do not know why. And he went on adventures, but...
+
+[00:19:48] But yeah, he called it, I think he called it a land yacht. Yes. And it was the land-yot wanderer. And he was an interesting guy. The other thing he did, he had a real passion for dogs and cats, this guy, William Gordon Stables. And he wrote a load of books in his life. And he either wrote books about how boys could survive in the wild. you know, like camping, like Boy Scout style books.
+
+[00:20:10] Or he wrote books about how to keep dogs and cats. He wrote a book called The Domestic Cat and the Dog from Puppie Hood to Age. Yeah, and then on top of that, he wrote medical life in the Navy, wild adventures in wild places, and his last book was called The Sorciest Boy in the Service. Oh, wow. And I looked into that, it's not what you think.
+
+[00:20:30] The word saucy just used to mean cheeky, didn't it? Oh, okay. I think he was Scottish as well because he loved, dogs and cats and he wrote a lot about them and he would frequently turn up at dog, cat and agricultural shows usually in full highland dress. Yeah. So he's quite a character. And his thing
+
+[00:20:47] was with the whole tricycle was that he, so the caravan was horse-drawn. He had two horses that were taking them forward. They were called Captain Cornflower and Polly P-blossom and they would both be going down.
+
+[00:21:03] But the manservant that he had on the tricycle who was called Foley he was both checking that the road surfaces were okay for him to go on, but also in case anything was in the way, he would say, get off the road, there's a caravan coming, and they're all went, what's a caravan? Yeah, it's true, yeah. I guess it was a new thing.
+
+[00:21:22] Well, we should say it wasn't a new thing, so the caravan had existed as a bit of travel and for circuses and travellers for a long time, thousands of years, really, but the idea of using caravans for leisure, which some people would say is an idea should have been nixed at the first second, but he was the first person to do that. And the early ones were really luxurious.
+
+[00:21:44] It was the thing that the upper classes did. And they would be one of the few holidays that you could take where you'd have running water. They had running water in the turn of the 20th century. They would have libraries, full libraries. Some of them had pianos in them. And the pioneers of caravanning called themselves gentlemen gypsies. And they were always horse-drawn,
+
+[00:22:03] in fact, except just coming up to World War I, then the motor car had been invented by this point but it wasn't quite strong enough to pull most caravans but a few people experimented with motor cars pulling caravans and they were very much frowned upon as like too fast-paced this isn't what caravowing is about. You can still get some really posh caravans, really expensive ones with lots of great stuff in.
+
+[00:22:25] The Element Palazzo is the world's most expensive caravan. It costs about two million pounds. Two million pounds? Yeah. Go on. It has a rooftop terrace underfloor heating and a pop-up cocktail bar. A pop-up cocktail, a pop-up bar.
+
+[00:22:40] Yeah, but really, very pleasingly, it's known as the land yacht. Wow. Which is the same as the first ever one. It's interesting, isn't it? Marketing's very clever, because if you analyze those three things, a rooftop terrace is just a roof.
+
+[00:22:52] It just means you can get onto the roof. Underfloor heating, not super impressive, right? You put a radiator on the floor. And a pop-up cocktail bar. That's just a table. That's just a foldable table. I just need to go and my two million pounds back. There was a panic in 2014 about caravan holidays,
+
+[00:23:12] and people thought that there were sleeping gas gangs who would go around and they'd drop a sleeping gas canister through the window of your caravan, so then you'd be unconscious, they'd knock you out, and then they'd come in and they'd rob your caravan of all its stuff. They'd take the pop-up bar, and they'd take someone, they'd rip the radiator from under the floor. But this was, it seems to have been a completely fabricating,
+
+[00:23:35] thing. So the Royal College of Anesthetist got involved and they said there were dozens of newspaper stories about these sleeping gas gangs operating in France and Italy I think on, you know, innocent British tourists who were taking a caravan around. And they said it is the view of the college that it would not be possible to render someone unconscious by blowing ether chloroform or any of the others through the window of a motorhome
+
+[00:23:56] without their knowledge. Ether is extremely pungent and it would cause coughing and sometimes vomiting. And it takes some time to reach unconsciousness, even if given by direct application to the face on a cloth. So they said it just doesn't happen. If you were going to rob people and you would think where do people store their most valuable possessions? Should we rob a mansion?
+
+[00:24:18] Should we rob a castle? No, I think if we pop over to one of those Haven caravan size, try and render those guys unconscious or get a couple of bottles of cider. I mean, it doesn't make any sense at all. I read just an article that was sent to the Royal Society. in 1957. And it was about the history of the caravan, and it was done by the head of the caravan society.
+
+[00:24:42] And he was talking about the kind of, the fact that they had their caravans, but people were really against caravans for a little while. He said, conservative elements that feel their own interest threatened and fear it, have accused followers of caravans of every sin, from leaving litter and stealing chickens to sexual promiscuity and spying.
+
+[00:25:04] Spying. All right, 007. This isn't going to be a most glamorous gig yet. Okay, it is time for our final fact of the show and that is James. Okay, my fact this week
+
+[00:25:16] is that the gravity on Mars' smallest moon is so weak that if you built a ramp on it you could ride your bike into space. So you escape the... You escape, yeah, you're going to escape velocity
+
+[00:25:28] and you can fly into space. You wouldn't really want to ride a bike there because you probably wouldn't be able to ride because you need gravity to ride bikes. So you can kind of, if you, they've done experiments where they have bikes which kind of, they're built to make it look like there's no gravity to make you feel like there's no
+
+[00:25:45] gravity. And they found that people can balance, but they can't turn and they can't use the brakes. Really? On Mars? That's in any kind of anti-gravity kind of situation. We haven't, not on Mars. We haven't got people to Mars just for the sake of doing this bike experiment. What cover up that would be?
+
+[00:26:02] And also, this isn't Mars. this is the smallest moon, which is called Demos, Demos. And it is one 50 millionth times as big as the moon. So really, really small. Its radius is about four miles, so you could run a marathon round its equator and have the finishing line pretty much where the starting line was. And because it's so small, the gravity is really weak,
+
+[00:26:26] so I would weigh about the same as a teaspoon of salt. Wow. Just on bikes not going into space, actually there was a plan that we were going to send bikes with one of the Apollo missions. Because, yeah, the lunar buggy wasn't going to be ready in time. Apollo 15 actually tested out bikes that they could take to the moon. This is electric bikes as opposed to peddling bikes. Although that was suggested as well.
+
+[00:26:52] You couldn't pedal in a spacesuit though, presumably. Presumably, yes. Although someone did do a tandem quadru bike that they wanted to send up there as well. And they actually got close to the testing. They actually brought them up into a vomit rocket. so that they could experience what it was like to pedal a bike while plummeting back to the Earth and experiencing one, what is it, one 16th?
+
+[00:27:11] Sorry, one sixth of the Earth's gravity. Yeah. Wait, so I think, so they thought that maybe they wouldn't have time to get the vehicles ready, and so they'd have to send bikes instead. Because if you were going into space and they said, I'm sorry,
+
+[00:27:21] we haven't had time to rig up the stuff we meant to, do you mind bringing your bicycle? I would just say, I don't think I'm going to do this mission. Count me up. That's true. I don't think you guys have thought enough about this. also imagine if
+
+[00:27:34] they got there with Neil Armstrong and he just hits a rock and lubs off into we've lost Neil he's a... You know you could run off the surface of this moon as well if you wanted to so you just have to reach a speed of about 12.5 miles an hour so if we were all stuck there that's kind of
+
+[00:27:50] the maximum that a kind of fit person could sprint so the fit ones could get off it and then the really unfit ones would be stuck on the moon. Yeah but neither is ideal I mean both of them are all going to die of solar radiation and exposure and... Yeah, it's not a dream world for anyone.
+
+[00:28:07] No. Gravity is different, different places on Earth, which I didn't know. So this is about gravity being different in different places. So there's a... The place which has got the lowest gravity is just south of Sri Lanka in the Indian Ocean. But there is a fact that Peru's gravity is also extremely low. There's an air of Peru. And the Arctic's gravity, I think, is quite high.
+
+[00:28:30] so if you fell from exactly 100 meters all over the earth, they've done simulations on this, they have not tested it for real, if you would drop from 100 metres high all over the earth, you would hit the surface in Peru 16 milliseconds later than in the Arctic because the gravity is different. I mean, it's not much different. A bit more of your life would flash before your eyes.
+
+[00:28:52] Because there's a moon of Uranus called Miranda, and it has an 11-mile-high cliff on it called Verona Rupes. and the peak is so high and the gravity is so low that if you fell off it, you would fall for 12 minutes before hitting the ground. That's a lot of life flashing before your eyes, isn't it?
+
+[00:29:10] There is an app you can get which is called high jump, which can tell you how high you would be able to jump on various different planets and moons of our solar system. What a vital app. Yeah. This is made by astronomers, Stuart Lowe and Chris North, and so they tell you, for example,
+
+[00:29:27] if you jumped on the moon, you could jump three meters, 10 feet off the ground. You'd be in the air for about four seconds. On Mars, it would be three feet for two seconds. But the sixth largest moon of Saturn, you could jump, if you did your average jump, you would go up 42.6 meters,
+
+[00:29:44] and you would float back down, and you would land with the same force that you did if you did the jump on Earth, so it wouldn't crush you. And it would take roughly a full minute to go up and down with that jump. Well, I think, to be honest, I think this moon, Dymos,
+
+[00:29:58] is pretty much the exact perfect one if you want to jump as high as you possibly can because if the gravity was any less there, then you would just float away, but you can just about not. But do you know the story of how Mars's moons were discovered? No. Because it's quite, so they were discovered by a guy called Asaf Hall,
+
+[00:30:16] which is a very weird name, but this was in 1876, and he really thought that Mars probably had a couple of moons, which it does, or some moons. And so he had this telescope, and he wanted, he was, was sort of looking through this telescope, looking closer and closer to Mars. And so the thing about the Martian moons is very close to the planet itself. And he got really close to this telescope
+
+[00:30:38] and the glare from Mars was getting too much. And he was like, no, there clearly aren't any moons there. And he went home, away from his observatory. And he went home to his wife, who was a woman called Angeline Stickney. And he said, no moon can possibly exist here. The thing about Angelene, his wife, is that she had been his math teacher at university. And she was very good at calculations like this and while he'd been there looking for the moon she'd done the calculations of how close a moon could be to mars and said no i've worked it out it's going to be closer than anyone thinks it's possible go back and look again and there was a thing then that women didn't really look through telescopes like men were allowed to operate telescopes women could do the calculation stuff so he
+
+[00:31:18] went back you know because she said i really think it's there and then he found the two martian moons so she used to do his calculation so she calculated the orbits of the moons around mars and did lots of stuff for him and then eventually said to him, do you mind because I'm doing a lot of this work if you pay me the salary that I might get if I work for you? And he said no. And so she stopped doing it for him. Wow. Amazing person. Fair enough. And but even before that, Kepler said that there were two moons of Mars. He said Earth had got one moon and Jupiter had four moons and so it just makes logical sense that the planet in between must have two. He was right. Well, he was right. Well, he was apart from the fact that
+
+[00:32:00] Jupiter has a lot more than that and the logic is completely spurious. Mind you, people were predicting it left, right and centre. So Jonathan Swift, in Gulliver's Travels in 1726, so 150 years before they were discovered, said, like, so in Gulliver's Travels, if you've read it, the Leputians, not to be confused with the Lilliputians,
+
+[00:32:19] the Leputian said they discovered that Mars has two satellites and then he described them and he said the inner one orbits within 10 hours, so it's orbit last 10 hours, the outer one's orbit is 21 hours and actually it's eight hours and 30 so pretty damn close
+
+[00:32:34] this is 150 years before they were discovered he said I reckon it's got two moons That's pretty good Yeah So we're talking about Mars And there's a prospect of going to Mars You know possibly soon a bit So I was looking at some of the problems of it
+
+[00:32:47] And the really interesting thing is that it would be a much longer mission than anyone's done in space before You need to do about three years in space to get to Mars So already being in space causes problems. So your skeleton is constantly, it's adapted to gravity. And so without it, calcium gets into the bloodstream, which gives you kidney stones.
+
+[00:33:08] And it also causes constipation and psychotic depression. So medical students remember this as bones, stones, abdominal groans, and psychic moans. But there's a thing where there's another problem, which is being a microgravity, it moves where your brain is in your head. So microgravity makes astronauts' brains. squish upwards and squash at the top of their skulls. And what that does is that puts pressure on two particular lobes, the frontal and parietal lobes,
+
+[00:33:36] which control movement and higher executive function, which is essential for planning things and remembering details. So you would end up not being able to do anything or plan anything. And also those regions of the brain are associated with pro-social behavior. So they think that you'd end up making a lot of hurtful and inappropriate comments to other astronauts. But they all would be. Yeah. Here's a weird thing. I don't have the science behind this, but I read it. They've worked out recently through tests that they've done with astronauts who've been up at the ISS recently. When you go up, let's say the three of you who don't wear glasses, well, Andy, you do, but you two don't. Your eyes, something happens to it where it means you might suddenly need glasses for close reading, whereas my eyes and Andy's eyes, he's wearing contacts, we suddenly will have better vision and I'll be able to take my glasses off. Yeah. Wow.
+
+[00:34:26] It's very weird. It's a thing that happens with the eyeball and the way something at the back distorts. I said that would be another problem. Space truly is the home of real nerds. Okay, that is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter, M. James. James. At James Harkin. And Shazinski. You can email podcast at QI.com. Yep. Or you can go to our group account, which is at no such thing. Or you can go. go to our website. No Such Thing is afish.com. We have everything up there from our tickets for upcoming tour dates. We have merchandise and all of our previous episodes. We'll be back again next week with another episode. We'll see you then. Goodbye.

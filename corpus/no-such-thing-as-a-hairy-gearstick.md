@@ -1,0 +1,253 @@
+# No Such Thing As A Fish - No Such Thing As A Hairy Gearstick
+
+- Episode date: May 8, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-hairy-gearstick
+- Slug: no-such-thing-as-a-hairy-gearstick
+
+## Transcript
+
+[00:00:02] And welcome to another episode of no such thing as a fish, a weekly podcast coming to you from our four respective homes in the UK while we're all on lockdown. My name is Dan Schreiber and I am sitting here with Andrew Hunter Murray, Anna Tijinsky and James Harkin, and once again we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Anna. My fact this week is that P.T. Barnum once tried to buy William Shakespeare's birthplace and transport it to America. Would that technically have made Shakespeare American if his house where he was born was moved to America? Yeah, I think that's how citizenship works.
+
+[00:00:57] It would have been ideal for him. He could have worked in America. It's a dream. So P.T. Barnum, the very famous 19th century showman entertainer, circus man and business men. and great PR man above all, who, very famous guy, I think there was a film about him recently. Was it the greatest show?
+
+[00:01:15] Was that about him? The greatest show man. Show man. There you go. It's all in the title. So yeah, this is in 1844. We know it actually happened because as well as Barnum reporting on it,
+
+[00:01:26] he reported on every detail of his own life pretty much and lots of details that maybe weren't in his own life. But as well as Barnum writing about it, his signature is in the visitor's book in the house. So it was in 1844. and he signed the visitor's book and he signed it along with Tom Thumb who was one of his acts
+
+[00:01:43] he signed it saying this P.T. Barnum with or carer of Tom Thumb but I couldn't tell if Tom Thun was actually there or if that's just how he signed stuff who was just like Barna, carer of Tom Thumb and yeah he visited and he thought it was pretty great and as he wrote later
+
+[00:02:00] I obtained through a friend the refusal of the house i.e like a friend said he had dibs on the house and I plan to take it in lots of boxes to New York, but the project leaked out and British pride was touched, so several English gentlemen interfered and purchased the premises for the Shakespeare Association instead. Wow. So, sadly, his plan was thwarted.
+
+[00:02:21] But actually, these English gentlemen who interfered, they had been planning to interfere for quite a long time. They had gotten together a group that was always going to buy this house, and they put the wheels in motion in 1835, but they'd just been really procrastinating and not really doing anything and it was only when Barnum came along and actually a few other Americans who thought they were going to buy this that they went oh shit we better get our asses in gear and we better buy this house and one of the people who was involved was Dickens yeah and in the end they started putting on all these kind of shows to get money together and Dickens was part of those shows
+
+[00:02:58] and put on like Shakespeare plays to try and fundraise yeah he did he played justice shallow in the merry wives of Windsor I think and then they also made this what what appears to be a kind of mash-up called This House to Be Sold. Great name. It was a new play, but it featured lots of kind of Shakespeare characters along the way. It sounds amazing. It hasn't, yeah. Written partially by Dickens. No, written by Ben Elton. Ben Elton, yes. So Barnum was insane. The things that he did, we've mentioned him a couple of times before. We mentioned one of his first claims to fame was this lady.
+
+[00:03:37] Joyce Heth, who was a very elderly African-American woman, who he claimed was 161 years old and had been George Washington's nursemaid. Wow. He also said that at one point, when that sort of, that ruse was being sort of uncovered and exposed, he then said that she was an automaton. Yeah, he saw her as an automaton and said that she was being manipulated by ventriloquist
+
+[00:04:06] for the sound. And if you look close, you can see the cogs and so on. Anyway, Joyce Heth died and doctors examined her and said, yep, this is an elderly woman, but not 161-year-old woman. And Barnum wrote in his autobiography about it. He said, the doctors disagreed, and this dark subject will probably always continue to be shrouded in mystery. There's an interesting bit in this book about Joyce Heth. So we should say one of the reasons we're talking about this is there's this new book out,
+
+[00:04:33] which is quite a big deal, Barnum and American life. It's the latest Barnum. biography. But he says that one thing that P.D. Barnum did quite well was sort of play with his audience, half acknowledging that a lot of his things were a ruse. So for instance, with Joyce Heth, he'd claim, you know, she's 161. And then he'd be like, or is she guys? Is this a big old trick? Why don't you come and see and judge for yourself? It was a strange tightrope he walked. I was looking at some of the less exploitative acts in his circus. So when you went, as well as these people, you could see glass blowers.
+
+[00:05:07] had there. Cool. They had a guy called the lightning calculator. I can't work out what he did. I think it's
+
+[00:05:14] him like taking large numbers from people and then multiplying them together really quickly rather than hearing some lightning and some thunder
+
+[00:05:21] and working out how far away it is. Like every dad could do. He was the first dad to do that. That was so amazing. Do you think
+
+[00:05:32] you know when you go to a festival and there's quite, there's a main stage and there's some quite shit tense on the edge. That's glass blowing, right? Like when you've got a woman with 17 heads doing trapeze acts in the big tent, who's going to see the glass blowing? Only when it's raining
+
+[00:05:47] do they go to the glass blowing tent. That's right. This museum, the American Museum, it sounds amazing. So more people went to it proportionally, I think, than have been to Disneyland or Disney World or whatever it is. But the museum, it did have a lot of acts or exhibits which were not great. So they had a living cow with five legs and two tails. Well, all right. They had the preserved hand and arm of a pirate called Tom Trouble. They had some black bugs found in the stomach of a distressed Maryland lady. And a hat made out of broom splints made by a lunatic.
+
+[00:06:25] Wow. That's the least good stuffy hat, basically. And this museum was in the centre of New York City. This was on Broadway. Which is amazing. To think of this astonishing building with all these oddities in there, and you could go up to the top of the roof. They had daily hot air balloon rides that would leave from the roof of the building.
+
+[00:06:45] Bizarre location. Nice. Can we talk about his wife a bit? Or his wives. So he was married to charity, his wife, for 40 years, and then she died. But they weren't very close, I think, because he got the news that she had died when he was off buying racing ostrichites.
+
+[00:07:03] in Hamburg and then he didn't go to the funeral. So maybe a sign there. Imagine if he turned up to the funeral with the racing ostriches. I can't find anyone to look after them. They're going out to come with me. I came as quickly as I could. On an ostrich, like whatever he's called Bernie Winters are. You mentioned Tom Thumb earlier.
+
+[00:07:26] So Tom Thumb, general Tom Thumb, as he was nicknamed, had dwarfism. he was only three foot high and Barnum took him on as an act basically but because he was only about four years old when Barnum took him on Barnum then aged him up and said this is an adult who has dwarfism rather than this is a child who would be small anyway
+
+[00:07:48] who also has dwarfsism He just liked adding ages to people didn't he just like making people older than He loved it. You're absolutely right he doubled the ages of every one of his most famous acts because it's more impressive. He would be amazing as one of those
+
+[00:08:01] people who made fake IDs when you're a kid. That's probably how he started. But he married Tom Thumb off to another lady with dwarfism, and then there was an intense rivalry over her affections. I think she was called Lavinia between Tom Thumb, General Tom Thumb, and then a third dwarf who was called Commodore Nut. And I think Barnum set up this love rivalry between the three of them. Amazing, these people all came from military backgrounds.
+
+[00:08:30] Yeah. Yeah. Okay, it is time for fact number two, and that is James. Okay, my fact this week is that in 1547, the Venetian government assassinated two men to stop them from revealing how mirrors were made. So good. Yeah. Well, I read this on a website called longreads.com, an article called The Ugly History of Beautiful Things, and it's all about mirrors. and they mostly used as a source, a book called The Mirror, A History by Sabine Melquois Bonnet, or Bonnet.
+
+[00:09:08] And this is all about the fact that mirrors were made in Venice for hundreds and hundreds of years, and no one else around the world knew how to make them. So Venice had a complete monopoly on them. It was, in fact, even in Venice, it was just this one island called Morano, where all the glassmakers lived, and all the mirrors were made. And they were extremely expensive. If you wanted to buy one in England, for instance, Henry VIII bought one.
+
+[00:09:31] The cost of one Venetian mirror was about the same as buying a large naval ship. That's how much one mirror would cost. It was incredible. They basically completely cornered the market, but everyone else wanted to know how to make these mirrors, so they wouldn't have to pay such massive amounts. And then in 1547, two Venetian workers moved to Germany to try and sell their wares over there, and the Venetian government were having absolutely none of it
+
+[00:09:55] and sent some assassins out to try and kill them, and they did kill them. And they did kill them. And they did kill them. They did. Yeah, I mean, from what I read on that article as well, the stuff that they would do to these people if they attempted to leave the island. So if you went off the island, they would hold your family hostage on the island to make sure that you came back. I know. They just didn't want you giving out those secrets.
+
+[00:10:16] It's unbelievable. The Mirror Island, it's amazing. Never heard of it. It was policy, basically, wasn't it? Venetian policy. And it lasted for hundreds of years, like you say. So there was, even in 1665, this rule still existed that if you took the sea, you. secrets away with you, then the government could track you down and kill you. And there was this huge
+
+[00:10:33] diplomatic incident in 1665 because the French were gagging for mirrors and for the technology to make mirrors. And so the French ambassador was sent to Venice and told, you've got to get some of those Morano workers back with you. And so he sort of bribed a few of them and said, you know, I'll give you shed loads of money, come with me. They went back to Paris. And it was awful for them because they were working in these Paris factories. They still, because they wanted to keep the secrets, they wouldn't let any of the French workers see them work. So it's kind of pointless because the French weren't able to find out their secrets. And they just kept having nervous breakdowns because Venice kept sending threatening messages in various ways to them saying, we're going to get you,
+
+[00:11:11] we're going to kill you, you better come back now. And they sent sort of fake messages from their wives saying, you must come home now. And then the French responded by sort of abducting their wives and bringing them to Paris and the hope that's going to stay. If I was the French, if I was the French government, I would send a mirror right from the Mirror Island. but I would write on the frame of the mirror this guy's dead if we ever get him That's a great idea Manitiguing, oh my God
+
+[00:11:38] You would have been an excellent Renaissance diplomat Yeah and in the end The French did get it didn't they Get all the technology And they built the hall of mirrors in Versailles Which is a big fuck you to Venice Wow, it's an opening move A whole hall
+
+[00:11:56] That's awesome And it did collapse the Venetian industry, didn't it? So it kind of went to show that hundreds of years of obsessive secrecy was totally worth it. Because as soon as the secret got out, the industry died. Yeah. Yeah, it was kind of, if you're a Venetian mirror maker, you kind of had some good bits and some bad bits. So the good bits were that you were really important in society.
+
+[00:12:16] So you're one of the few people in Venice that was allowed to have a sword at all times. And your daughters were allowed to marry into affluent Venetian families, because there was like almost a caste system where you weren't allowed to marry outside of your level but the glass blowers were allowed to but then on the downside they worked with Mercury and so they all went mad. Yes, yeah.
+
+[00:12:40] Yeah, there was a contemporary account from 1713 by a guy called Ramazzini who said that the curse of that of having to work with Mercury and the insanity that came off it but having to look at yourself as you were going insane in these mirrors watching the madness
+
+[00:12:57] take you over. Yeah. So even if your daughter brings home her affluent new husband, you think he's a pickle because you've gone mad because of the mercury. Is that? That's the curse. That's it. I'm not sure if it was that specific kind of insanity what you think people are pickles. It was more of a dissent into madness. Like there was a quote where they said that the mirror makers scowled at their reflection of their own suffering in the mirrors and cursed the trades that they have chosen. Mind you, if they could have hung on for another couple of hundred years, they would have found a career with P.T. Barnum, because you've got glass blowing, and it sounds like they're kind of loopy by that stage.
+
+[00:13:35] Yeah, that's true. Great circus performance. Yeah, we seem to... We, I mean, humanity seemed to make mirrors for quite a while. So there were mirrors in ancient Rome. And then in the dark ages, like, with a lot of stuff, they sort of disappeared, right? And then this technology took a while to come back. But they definitely had them in ancient times and good mirrors.
+
+[00:13:55] and I read that a Caligula who obviously made a bit of a living and a reputation out of scaring the shit out of people. Caligula used his mirror to practice scary faces. That wasn't the side hustle for Caligula though. That's just something he did in the course of being emperor. He didn't have a sort of spooky emporium. That's great though. He practiced his faces. I love that.
+
+[00:14:16] Yeah. That's really good. You don't hear that about evil dicks. No. You just think it comes natural, right? Yeah. You've got to work. hard at these things, Dan.
+
+[00:14:26] Yeah. Yeah. Guys, I've got a mirror, mirror question for you. Oh, great. Cool. Are you looking in your bathroom mirror at your face and your neck? Maybe your shoulders. And you want to see your whole body, and imagine you've got a massive bathroom.
+
+[00:14:39] How are you going to make it so the mirror reflects your whole body? Get a full-length mirror. No, go as far away from the mirror as possible, and eventually you'll be able to see yourself. I would crouch on the basin. Catch on the basin. Yeah, if I want to see my whole body, I'll just awkwardly crouch on top of the How unbelievably strong is your face? Andy doesn't have a toilet in his bathroom, actually.
+
+[00:15:01] He just uses this thing for everything. It's multi-purpose. Well, I'm astonished to say this, but Andy's right, I'm afraid. So I was amazed by this. You are always the same size in a mirror. No matter how far back you go, you're never going to be able to see any more of your body. And that size is half of your actual size.
+
+[00:15:22] So let's say you look in a mirror close up, and you get a permanent pen and you draw your face or you draw you know the yeah you draw a circle around your face of where your face images in the mirror if you stand back 20 yards and get someone close to the mirror to do it again it's going to be in exactly the same place wow isn't that this I found this amazing but it's so like it's obvious when you actually think about the old boring physics lessons about mirrors because it's about the fact that you know the angle of incident so where the light hits the mirror and then where it reflects off the mirror always has to be the same. So imagine you're standing really close to a mirror and you want to see your feet. Then the light from
+
+[00:16:02] your feet goes up to the mirror at a steep angle and then has to reflect at that exact same angle to get to your eyes for you to see your feet, right? But when you go away from the mirror, it's going to be exactly the same problem. If you couldn't see your eyes there, when you go away from the mirror, you won't see your eyes further away because the light has further to travel. So even though the angle is smaller, the light travels further and goes over your head. Draw a diagram and you'll understand it. So even if I have a very, very, very long bathroom, it's so I've got a bathroom that's 100 metres long and have a mirror at the end of it that I can't see my feet in up close, even at the other end of the bathroom, I still won't be able to see my feet.
+
+[00:16:38] You'll never be able to see your feet. Well, the thing that's confusing me is the other person standing next to the mirror who's drawing the head, because if you were standing at the back of the room and I was next to the mirror and you said, can you see what's in my teeth? teeth and opened your mouth, it feels odd to me that I'd be able to see your head as a real size head, despite the fact that you're all the way over there. No, you've misunderstood that. Great. Because that person is a different person. So this is just about how it looks. So the reflection, how it looks to you, the person. Obviously, to the person standing next to the mirror, you're going to look like you're in a completely different place and etc. But so we can't test your
+
+[00:17:15] idea of drawing the circle then, the other person drawing your circle. No, you'd have to tell the other person what to draw. You have to guide their hand with your words. Gotcha. Okay. But what you're describing Dan and not quite understanding that is something called the toilet of Venus illusion. And that is that there is a lot of paintings
+
+[00:17:34] of the toilet of Venus and that is Venus is lying down kind of sideways on a painting and there's a cherub holding a mirror and then you looking at the painting can see Venus and can see her in the mirror. Okay. And most people think that she's looking at herself in the mirror but
+
+[00:17:50] The fact is, if you can see her face, she can't see her face in the mirror. She can actually see you in the mirror. So she would theoretically be looking at the person who's painting the painting. She wouldn't be looking at herself. But most people, when they see those paintings, think that she's looking at herself. She's not as vain as people think. Yeah. That's very cool.
+
+[00:18:10] You know that thing of practicing faces in the mirror? The curricula. Yeah, there's a nice thing which is that Kate Winslet keeps her awesome. in her bathroom because she knows that everyone wants to practice giving an Oscar speech falling in front of the mirror. Great idea. And she can tell when people are doing it because she'll say the flush goes and it's almost as if they clock it's in there and they just spend an extra few minutes in there
+
+[00:18:39] just silently doing their speech. You know what? I think generally speaking, this is an uncontroversial statement. Generally speaking, it's a bad idea to have a secret camera in someone's bathroom. but in this case I would love to see people doing that speech that would be amazing she could pick up some ideas I thought you were going to say she keeps it in her bathroom
+
+[00:18:59] so that she can pretend she's got two Oscars I thought you were going to say that well maybe she has a mirror behind the mirror and it looks like she's just got infinite Oscars but gradually more more green as they go on there is if we're on movie stuff have you guys seen Terminator 2 I watched it just this week.
+
+[00:19:20] Okay, amazing. For the first time. Did you like it? I did actually, yeah. And I watched Terminator 1 as well for the first time. Oh, nice. Okay, well, it's the Zinger. But, okay, in Terminator 2, there is a scene.
+
+[00:19:29] It might be in the extra features, but there's a scene where there's a mirror shot, okay, and it's the two humans operating on Schwarzenegger, the robot. And they're unscrewing his brain case and they're opening his head up. And you can see the operation happening in the mirror as well. That wasn't done using a mirror, because there's no film crew reflected in the mirror.
+
+[00:19:49] Oh, of course not. And you would think, oh, well, they might just remove the film crew with CGI. They didn't do that. They literally had a cut-out space, so they had a fake Arnie in the foreground, and then the reflection shot in the mirror is the real Arnold Schwarzenegger, except he's not in a mirror. He's just sitting opposite a dummy of himself.
+
+[00:20:08] Oh, that's so clever. Linda Hamilton, who plays Sarah Connor, she has a twin sister who did the reflection or did the foreground stuff and Linda Hamilton's in the reflection so you see both of them and they're mirroring each other's movements but they are not actually being shown in a mirror
+
+[00:20:26] there are two things I know isn't that insane that's incredible yeah do you know there's an animal that has mirrors in its body and that is the scallop the humble scallop so it has eyes made of mirrors scullops have about 200 eyes each
+
+[00:20:45] and rather than having a lens like we have to focus the light as it comes in they have what most telescopes have now to focus the light which is the mirror so the light hits a mirror that's curved and then obviously it like bends and focuses so this means that their retina is actually on the ceiling of their eyes so with us our retina is behind our lens so the light hits our lens and then is focused on our retina which is just behind it with them it hits these mirrors which are their eyes and then bounces up onto the ceiling of their eyes, which is the retina, isn't that cool?
+
+[00:21:17] That's really cool. If you were to get, let's say, 20,000 skullups and remove all of their eyes and then paste it on a piece of cardboard, would you be able to make a mirror that's usable? It's a bit of a fucked up mirror, isn't it? I don't think people would come around your house. I'm just thinking that the French could have used this technology instead of going to Venice. It could have been a very different world. It could have been. What a world we could. could have had where the Venetians have good mirrors and everyone else has to kill a million
+
+[00:21:49] scholars. Would you guys get your haircut without a mirror? Yeah, I have done many times. I have to. Well, there is... Sorry, whoa, whoa, whoa, wow, wow, wow. Dan, why do you have to? When you go to the hairdressers, do you say, sorry, no mirrors?
+
+[00:22:11] Well, what's... Are you a vampire? No, I technically. So because I wear glasses and I can't see very well, I have to take them off for the haircut. So there's a mirror in front of me. I can't make out what is in front of me. You don't force them to remove the mirror.
+
+[00:22:27] Turn it to face the wall. No, there's only one hairdressing salon that I've found, although I haven't looked very hard, where this happens. But this is in Peckham, in London. And instead of a mirror, you get given a piece of modern art, and then your hair is cut. and you have to look at the modern art for nearly an hour. Isn't that?
+
+[00:22:47] Because, like, one of the worst things about sitting in a hairdress as I find is having to look at myself the whole time because I'm like, oh my God, what a mess. But if I was looking at a Picasso, for instance, where the nose is where the ear should be and stuff like that, I think I'd feel even worse about myself. Oh, but you'd think, oh, at least I don't look like that guy. At least my eyes are on different sides of my face.
+
+[00:23:10] Fair enough. Okay, it's time for fact number three. Three, and that is my fact. My fact this week is that the longest car in the world was so long that it had a literal backseat driver. Now, what do you mean by this? Someone at the very back of it having to shout really loudly to the driver in the front? I thought it's that you needed someone in the backseat of a normal car, but with very long arms, to reach to the front. Stretch Armstrong.
+
+[00:23:37] Yeah. Yeah. Well, this is a limo that was built called The American Dream, and it was 100 foot long. and it has 26 wheels, it has things like, there's a helipad on the back, there's a jacuzzi, there's multiple interior rooms, you can play putt-put in the middle of it, but as one solid unit, as 100 foot long,
+
+[00:23:58] you can't take corners. It's too long to take any corners. So what the car had built into it was a bit in the middle where you could hinge it apart, and when you see on Bendy buses where they have that sort of the accordion style thing, this car would have that. And in the second half of the car, there was a second booth for another driver to be changing the angles of the wheels back there.
+
+[00:24:20] So it had a backseat driver as well as a front seat driver. Dan, can I ask, what happens if the person in the back seat slams on the brakes? And the guy in the front seat carries on going. Does he come back and smash him in the face like a cartoon? Yeah, you're right. It would stretch out to probably 110 feet and then, yeah, love itself back. It's like the Blackbird SR 71 plane, which, as we all remember, stretch. and compresses depending on which altitude is that.
+
+[00:24:46] Why are you bringing that up? Why are you bringing up these old wounds? So this is a limo which is Guinness World Record Certified as the longest car in the world. And it's built by a man called Jay Orberg, who lives in America and is one of the great car makers for movies that there's ever been. He's the man behind the DeLorean in Back to the Future.
+
+[00:25:08] He built cars for like kit for Night Rider. Not the original, but he built one that was a modified one that they used in the series. He did cars for the Flintstones movies. That was a more basic engineering challenge, wasn't it? It was, yeah, yeah. He did the Batmobiles for the Tim Burson Batman Return movies. So he's an amazing designer, and this was his big dream to create this super luxurious 100-foot-long car. But unfortunately, no one wanted it, and it sort of fell into disuse and went to a garage
+
+[00:25:42] and it's wasting away now. But it's been, it's being repurpose now. Asward. It's been bought by the Auto Museum, or the Autosium, I think it's called, in New Jersey. And they've bought it to teach, not children, to teach their students how to do up cars. So a bunch of students started rebuilding it in 2016.
+
+[00:26:02] And I think it's, they said it'll take years and years to rebuild it properly. But, you know, it's been used to teaching tool. So it's finally found a purpose. Great. But I have a question about this car. Yeah. It said it's got a jacuzzi or in some more enthusiastic articles, a swimming pool. And it also says it has a diving board.
+
+[00:26:22] That's the depth of a pool that you can get into a limo, because it's not a super high limo. It's just car height. If you're diving off that, you're breaking your neck. Very good point. Very good point. I mean, these things were never actually driven anywhere, were they? Not really. They're always publicity gimmicks, aren't they?
+
+[00:26:39] Yeah. Yeah. Because I saw one interview with someone who had. basically it was like a stretch limo that had been turned into an entire jacuzzi and swimming pool, as in literally everything about it was a swimming pool, apart from the bit where you drive. And they said, yeah, we would never drive this anywhere because all the water would just splash out. We just take it to car shows to show that it's something we can do in theory. So I was looking up other Guinness World Records that are held by cars,
+
+[00:27:06] and one which was set at an autosports international show in Birmingham, was the record for the tightest parallel park. Oh yeah. And this was done live in front of an audience at Birmingham. So the tightest parallel park is 7.5 centimetres. That's the gap. On each side or altogether. Yeah, yeah.
+
+[00:27:28] I think altogether that this person going in was allowed. Yeah. That's insane. That is quite... Because if I see a space which is smaller than twice the length of my car, I think. I'll drive around a bit longer Yeah, this is Alastair Moffat 2015 he set it in Birmingham
+
+[00:27:47] And the car's still there He hasn't been able to get it out, has he? Have you heard of the world's hairiest car? No, no No No This was owned by Maria Lucia Mugno and Valentino Stassano in Italy
+
+[00:28:03] They were hairdressers And they thought What better way to advertise our business by sweeping up a load of human hair off the floor and gluing it to our car. Wow. And that's what they... Actual human hair from their customers.
+
+[00:28:17] Actual human hair. And it's legal. You're allowed to drive it because... Yeah, who would come up with the law? Yeah. What sick legislation would think of that? I mean... Also, they're to bad. Their customers couldn't see them stealing their hair
+
+[00:28:30] behind them because they had the modern art in front of them. Yeah. And it's legal. And there's only one part of a car you're not allowed to put... the hair. Oh, oh, oh, oh, oh, don't tell us. Don't tell us. I would say, no, because you could like comb it out of the way. Instead of windscreen wipers, it has two massive combs. Center past, very bold. I would say on the steering wheel, because... This is a legal thing. Yeah, but I think a hairy steering wheel would be a hazard
+
+[00:29:05] to road users, other road users. I don't think so. I would say, you could just have a hairy steering wheel and the rest of your car's normal and that would be fine wouldn't yeah hairy gear stick that's an horrible euphemism for something i'd say the accelerator pedal because the hairers might get caught underneath somehow tie up and then you can't lift it back up such a good answer the answer is engine because if you put it on the engine it might set on fire okay better answer yeah so you're saying it's allowed to put a moustache on your brake pedal if you want to in Italy What about the number plate
+
+[00:29:42] I thought it was illegal to conceal your number plate You know what When I asked this question I didn't think you were all going to come up with a million great answers Well let's be honest Almost every part of a car
+
+[00:29:52] It's a terrible place to put hair Yeah But no you can get invented with that Because if you have grey hair You can spell out the words And letters Sorry numbers and letters Just with different colour hair
+
+[00:30:02] That's very easy to do Really good point Yeah I do you know what then I think If your car is covered in hair, no one needs your number plate. Please are putting out a call for it. Okay, it's time for our final fact of the show,
+
+[00:30:23] and that is Andy. My fact is that ancient British fruit varieties include the hens turd apple and the bloody bastard pear. So this is just about amusing names of fruit. It doesn't get much. more amusing than that, Andy, does it? No. There are
+
+[00:30:43] amazing. There are hundreds of varieties of apple and pear and other fruits which have kind of gone out. So, for example, one ancient one is called the shit smock plum, which apparently has a laxative effect if you eat too many of them. I believe the bloody bastard pair
+
+[00:31:00] also has a laxative effect and I think that's where that got the name as well. Oh. So how does that... I think you're on the toilet and you're going, bloody bastard! It doesn't create bloody stool on it. That sounds like you shouldn't be... It just sounded like that was what you were suggesting.
+
+[00:31:16] Yeah, no, I wasn't intending to suggest that. Well, that's a relief, because I've just eaten seven. They are inedible. Can I just say, if you go to the shops and see a bloody bastard, do not eat it. They are inedible. Irresponsible for them to be selling it. There's a load of pairs in the UK, which are inedible pears, but they used to make Perry.
+
+[00:31:41] They used to make alcohol. So Perry is the per version of cider, and Bloody Bastard is one of the ones that's used to make this, but you can't eat them because they'll give you the shits. Right. And similarly, in fact, with a cider apple, I don't know why so many of these fruits have this effect. There's a cider apple called Slack Magerdle,
+
+[00:31:59] which is, again, a reference to the fact that you're going to have to drop your trousers once you've eaten this guy. Oh, wow. Can I give you some funny names of apples and pears? I was just for fun. Yes. So I was looking for the Bloody Bastard pair, and it's enshrined in UK legislation.
+
+[00:32:15] So they have certain apples and pears that are able to be used to make cider or peri. It's by the Apple and Pear Research Council Order of 1989. And there's a big long list of them, and the apples include Boles Bittersweet, Bloody Turk, crummy Norman, and as Anna says, Slack My Girdle. Yeah.
+
+[00:32:36] And Perry pairs include bastard Sack Clipper Dick Golden Balls Hairy Knob and Margaret And they're all official fruits that you should use to make cider or peri
+
+[00:32:51] They also have on that government list They have the startlecock pair Which is And now I think people can now guess Because there's been a pattern Why it's called the startlecock Is it a, is it like a Viagra A natural Viagra?
+
+[00:33:06] It's not that That's one of the things it could have been, you're right? Does it fall to the fruits fall from the tree to the ground shortly before dawn waking up cockerel's? Oh. What a sweet and wholesome explanation. No, it's because it's a diuretic. So your cock is literally startled into urinating when you eat it, apparently. Or when you drink the cider, I suppose.
+
+[00:33:28] Gosh. You know, you say, oh gosh, my cock's a bit startled. I've never heard anyone say that. I think that's a new phrase that we're going to bring into the lexswain. Isn't it? Whenever you need to go to the bathroom, it's a polite way of saying, I want to go to the little boys' room or little girl's room. Just say, oops, my cock's been startled. I'll be back in a minute. So naming apples happens today as well though So there are new name varieties Have you guys been reading about the Cosmic Crisp?
+
+[00:33:58] No Okay so this is a new Apple that was launched last year With a 10 million dollar marketing budget It's basically It's I know it's it's the one of the biggest Apple launches That has not been of an Apple iPhone What is it called again? It's called the Cosmic Crisp
+
+[00:34:14] And it's got PR people who have said it's enormously crunchy and wipe your face juicy. Are you under the thumb of big apple? But it's, I find, so normally apples get launched with a bit of fanfare, but this is an unusual apple. So it's got taglines which include the apple of big dreams and imagine the possibilities. They've hired an ex-astronaut called Leroy Chow to be a social influence of plugging the apple. Wow.
+
+[00:34:44] Its actual name is WA38, and it was patented by Washington State University. They developed it, and so this has been launched as a thing. Sorry, this is all sounding a bit hashtag Spong. It is, and I'm just feeling sorry for the career of Lee Rochow, which has clearly taken a dip since his astronaut. I think it was a commander on the ISS. Well, now he's flogging apples. I know.
+
+[00:35:09] But anyway, so because you can patent an apple, every time someone buys one of these, a bit of the money goes to Washington State University because they were the people who cross-bred it. It's a really controversial thing, isn't it? Being able to patent fruits and seeds and stuff. And some people think it's really important because then you get more varieties
+
+[00:35:29] which helps feed people, but then other people think, well, how can you patent an apple? Yeah. I'm not saying which side of the argument I come on, but... No, but... So, yeah, we used to have lots more varieties of apples and pears than we do today,
+
+[00:35:44] but it seems like they're making a bit of a comeback. This fact suggests people are getting more interest in these quirky new varieties, and especially you mentioned Perry, pear cider, so Perry is also making a comeback, so all these different types of pear are starting to be bred again, and most of the pear cider that you get in pubs.
+
+[00:36:01] I didn't know this. Most of the pear cider that you order, like a basic pear cider, is just apple cider, and they've put pear flavoring into it. No. Yeah. Wow.
+
+[00:36:09] Is that true? Yeah. Isn't that one? Weird. Scandal. Unless you're getting nice, proper expensive Perry or whatever, or you're going to Devon for it. I feel like I've been really ripped off by that. I'm so sorry.
+
+[00:36:22] I'll be honest. I'm not sure I've ever bought it, but I still am furious. That's amazing. And one thing that I have drank, which is definitely Perry, I think, is Baby Sham, right? Yes. Baby Sham is Perry. So, and that's definitely made of pears, I think. That's made of pear, baby sham.
+
+[00:36:40] You're right. But the Perry industry is a bit annoyed about Baby Sham because it doesn't have a massively highbrow reputation. And they want Perry to. And one of the people who's trying to rejuvenate Perry's reputation is the kind of leading pear cider bloke in the world, I'm going to call him. He's called Tom Oliver. So he's staging this big comeback. He's an award-winning Herefordshire cider maker. And his other job is being tour manager of the proclaimers.
+
+[00:37:05] Wow. It's really weird. Just do pretty weird jobs. It's amazing, isn't it? that these people who had such amazing jobs like astronauts and tar manager of the proclaimers would then go into fruit. That's weird.
+
+[00:37:19] Hey, I found that in Italy, 275 meters below the surface of the earth are 10,000 tons of apples. What? Yeah. What are they doing there, Dan? So this is a way, okay, so something that is well known
+
+[00:37:39] is that apples that you eat are often not freshly picked. They're kept for a year or so in storage facilities to be able to make them last longer. So you can pick them and you can put them in storage. And they do that by reducing the oxygen right down to 1% basically. So in Italy, what they've done is they've taken over these old mines. It's throughout the dolomites in the Italian mountains. And underneath it, they've converted these mines into giant refrigerators
+
+[00:38:08] where they're stocking up to, they say, 20,000 tons of apples. So any given time, there must be a different amount. But yeah, if you visit there... Wow. Amazing. Yeah. They say that this is what the article said. When compared to a standard above ground storage space, the savings by having them underground,
+
+[00:38:26] are equal to 10 Olympic swimming pools of water being saved a day and 10 hectares of land. Wow. Yeah. So that's why they do it. But yeah, there's a lot of apples underground in Italy. God, every time I buy it into an apple. now. I'll reflect more on what an adventure it's been on to get here. Through the bowels of the earth. I found some other fun fruit names actually. There was a good article on BBC Future about how, again,
+
+[00:38:51] we've lost our passion for these smaller, smaller scale fruit varieties. And this article was saying that fistfights used to break out over which tomatoes were better, those grown in Mississippi or those grown in New Orleans. And now only dedicated foodies know of Lee's Golden Girl Tomato and Radiated Charlie's Mortgage Lifter tomato. Radiated Charlie's Mortgage Lifter. That's right. Radiated Charlie's mortgage lifter tomato. You can still get it.
+
+[00:39:20] It just sounds like you've put four random words to go. Was it supposedly so good that it would allow him to pay off his mortgage? It was exactly that. It was thought that any seller of it would be able to pay off their debts. And he must have had quite a big house with all those radiators. There are some people who are devoted to finding these old fruits. They're often detectives as well. So there's a guy called David Benzgotter who worked for the FBI
+
+[00:39:49] and then started tracking down apples, ancient apples after. Head of the FBI or whatever becomes an apple detective. I know. What is going on? There's David Karp who was a Wall Street trader and a Latin translator and he only got into fruits to impress a woman. and she wasn't impressed, but he just kept detecting fruits
+
+[00:40:08] for the rest of his career. John Bunker, the apple whisperer, he is amazing. He's an American guy. Come on, it's much easier to be an apple and tame an apple than it is to be a Robert Redford-style horse whisperer. But go on.
+
+[00:40:24] Well, he's tracked down a hundred varieties and saved them from extinction. And when you think about it, it must be incredibly hard because you know maybe where an apple was last grown but you have to comb through historical records for what these apples look like, for drawings of them,
+
+[00:40:40] for the taste, and he will study these records and he will sometimes go to towns or villages where they were last seen and he will put up wanted signs. No, I swear to God. Have you seen this apple? Yeah, he will put up a sign saying,
+
+[00:40:59] Wanted, alive, Narragansett Apple, last seen in York County. originated on this farm and he works miracles for these things so he once went to a place and he said have you seen this apple and an old man said
+
+[00:41:13] I know a related apple which was also extinct and this old man said I used to eat from this tree when I was a boy and the tree was almost completely dead there was one two inch wide strip of living tissue
+
+[00:41:25] and there was one branch right and he took a cutting of that and he successfully managed to regrow the entire apple breed variety from that tiny strip. And so that apple is now alive again. It's a great story, considering you just made it up. It's true. It's all true. It's an amazing profile of him. Wow. How an idea you're going to be if you go to all that trouble and it tastes like crap? It's so likely. That's John Bunker, right? Yeah. Because he seems to have a side project. I guess when you've got
+
+[00:41:54] these skills, you've got to monetize them whichever way you can. So he identifies other people's apples. So I think he's saying what he's looking for is the ones who can't identify it, but people are queuing every day saying, you know, what's this? What's this? That's amazing. Granite Smith, mate. Granny Smith. He just looks at the sticker usually. That's the problem, isn't it?
+
+[00:42:16] That basically it's become homogenized and we're basically just growing the same apple trees everywhere and stuff like that and the same pear trees. And you can kind of get invasive pear trees and things like that, can't you? There's one. I was reading an article in Vice. when I searched for pairs. And the title of the article was, here's why the trees on your streets smell like semen.
+
+[00:42:40] Okay. Okay. The linden trees? Yeah, they're called, these ones are not the linen trees, which also famously smell like semen. These are pear trees. It's called the Pyrus Caleriana tree.
+
+[00:42:53] And this pear tree is taking over. They were grown on ornamentally like linen trees were, but they kind of, you get one and then someone plants another one and then they hybridise together and you get new types of this particular type of pear tree and they're really good at taking over in an area and
+
+[00:43:09] just, you know, out-competing all the other pear trees. All right, you know, Nigel Farage. They're better at the job. It's a less nice way of imagining the song which ends and a partridge in a pear tree if the pear tree in question smells a seaman. If you're being
+
+[00:43:28] given those on the 12 days of Christmas you're not going to be happy about it. Yeah, because actually the first 11 days you think these are quite I mean it's a bit awkward having all these swans and drummers and stuff but they're quite good gifts and at the end just get the jizzy tree you've been blaming the lords are leaping until now okay that's it that is all of our facts thank you so much for listening if you'd like to get in contact with any of us about the things that we have said over the course of this podcast we can be found on our twitter accounts I'm on at Schreiberland James at James Harkin
+
+[00:44:06] Andy. At Andrew Hunter-Rem.m. And Chisinski. You can email a podcast at QI.com. Yep. You can go to our group account, which is at no such thing. Or our website, no such thing as a fish.com. We have links to all of our episodes up there, as well as lots of bits of merchandise that are now available for purchase. We will be back again next week. In the meantime, stay safe, guys. Hope you're doing well. Hope everyone's healthy and hope you're staying sane. And thanks for listening to us throughout this period.
+
+[00:44:32] We'll be back again next week with another episode. We'll see you then. Goodbye.

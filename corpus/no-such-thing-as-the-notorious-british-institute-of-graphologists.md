@@ -1,0 +1,353 @@
+# No Such Thing As A Fish - No Such Thing As The Notorious British Institute of Graphologists
+
+- Episode date: June 27, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-notorious-british-institute-of-graphologists
+- Slug: no-such-thing-as-the-notorious-british-institute-of-graphologists
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish. Before we start, a little bit of news that is very important to Anna and I, and that is that our new book is finally out in paperback. Woo-hoo! I know that might not seem like a big deal to you. But honestly, this is a real chance for us to get more people reading this book. One very interesting thing to say is that the book has had a name change, What used to be called everything to play for
+
+[00:00:36] is now called a load of old balls, the QI history of sport by James Harkin and Anna Tashinsky. A lot of people have said to us, why did you not call it that in the first place? I'm not sure if they're being rude, I hope not,
+
+[00:00:48] because it is a book full of the most interesting facts and stories about sport that you can possibly imagine. Even if you're not into sport, probably this summer you will notice that everyone's off watching the Euros, everyone's off watching the Olympics. Perhaps you don't really have much to say to those people
+
+[00:01:06] when it comes up at a dinner party. We'll read our book and you will be the pinnacle of all sporting knowledge and all quite interesting sporting knowledge at that. As you imagine from me and Anna, it's just full of silly stories, fun facts. We spent so much time doing loads of in-depth research in there that even if you are the kind of person who's watching every single sporting event this summer,
+
+[00:01:27] there will be loads of stuff in there that you didn't know. So if you go to anywhere where you would normally buy your books, then look for a load of old balls, the QI History of Sport, or search for our names, James Harkinit and Anna Tashinsky, and you will find that book. Please do buy it. It would mean the world to us if you did. Of course, we're going on tour. Don't forget that.
+
+[00:01:48] People in Scotland, Wales, England, Ireland, New Zealand, Australia. Do get your tickets very, very soon. A lot of them are sold out. I know we've got quite a few tickets left for the... Scottish dates in Edinburgh and Glasgow and I think quite a few for the show in Cardiff so if you're in any of those cities then do get your tickets
+
+[00:02:09] but actually go to no such things of fish com forward slash live and you will see all of the dates where we're playing and hopefully one of them will be near you okay not much more to say apart from on with the podcast Hello and welcome to another episode of No Such Thing as a Fish a weekly podcast coming to you from the QI offices in Hobern. My name is Dan Shriver and sitting here with Andrew Hunter Murray, Anna Tashinsky, and James Harkin. And once again, we have gathered around the microphones with our four
+
+[00:02:58] favorite facts from the last seven days and in no particular order, here we go. Starting with fact number one, and that is my fact. My fact this week is that snooker games on cruise ships are sometimes played with flat balls. Are we talking about the balls on the table or The men playing. Yeah, this is obvious when you think about it. Oh, it's so obvious. It's so obvious when you think about it. I don't really know how you could play snooker on a cruise ship with a ball-shaped ball, actually, on a rough cruise ship.
+
+[00:03:31] We'll get to that in a set because you can, and there's a pretty awesome way that you do that. But this I got from a book that's written by an Australian comedian called Hung Lee. It's called The Crappiest Refugee. He tells the story of, from immigrant boat to cruise ship comedian. Anyway, he wrote this book and inside the book, he mentions that he's seeing a bunch of guys playing on a pool table or snooker table, and they are hitting with puck-like objects because obviously in the rough seas, the balls are going to be rolling around. And so there will be cruise ships out there that have these tables on them. And the idea, I think, is like, you know, air hockey. It's those kind of like puck things, isn't it?
+
+[00:04:06] Exactly. Now, to your point, Anna, a modern-day cruise ship does have pool tables or snooker tables, billiards. but they use gyroscopic technology. What? So it's amazing. It's honestly, I've watched videos of it online. It's so cool because basically, while the rest of the ship is moving, the pool table isn't. That's insane.
+
+[00:04:25] That's the top of the pool table. That's a high-end crew ship, I say. It's insane. It is amazing. I've read stories of people finding it so fascinating that like staring to fire, sometimes people will just go and sit and watch it as it doesn't sway. There's even stories of crew members that when they get particularly sick, they'll go and sleep on the pool table.
+
+[00:04:43] Because the seasnickness is getting to them. It's not moving so you can have a restful night. Which begs the question, why isn't every bed on a boat? Gyroscopic. Probably price. How good is the correction mechanism? Like, if you have a Titanic situation, how long can you continue with your gaming snooker? So it goes vertical.
+
+[00:05:00] Yeah, exactly. I see that, yeah. So I met someone who was a dancer on cruise ships for a while. This sounds like a good addict. She did the musicals because they often have. a theatre on board, and sometimes a show. And she said the most difficult one she'd ever done with Starlight Express, while you're on Roller Skates.
+
+[00:05:18] She said in rough weather, you would set off across the stage and you didn't know how soon you were going to arrive because it might be that you caught the ship moved with you and suddenly you're there in half a second, or you're going against it and you just roll back backwards. So yeah, snooker. It's a good sport. Mostly not played at sea. Largely, it's a land-based game, isn't it?
+
+[00:05:39] A land-lovers game. I did watch a TikTok yesterday, just coincidentally of people playing on the beach. That looked really cool. Snooker? It was poor, actually, but they kind of dug holes for the pockets and then we just hit the balls. Oh, so they played on actual sand? Yeah, yeah. There's no facts to this, but it did look pretty cool.
+
+[00:05:55] I'm amazed that Snooker in any form has made it to TikTok, because Snooker is famously quite a long game to watch. TikTok is not a long format. Andy, honestly, if you could see my TikTok, it's just Snooker, golf, cricket. It's the dullest TikTok because it just suggests things that you like, doesn't it? And it just works out what you like. I reckon if you were on TikTok, which I bet you're not, but you would just get Moss video after Moss video.
+
+[00:06:19] Yeah, that sounds very common. It's amazing how it works. But it is very slow, isn't it? Or rather, it takes a long time. You play lots of frames in the course of a match. And it's interesting because for anyone who doesn't follow, snooker, only one person is playing at a time. That's weird.
+
+[00:06:34] Well, you play a frame, right? Well, no. You play it for ages. You play until you mess up. Yeah. And then the other guy gets to have a go. Yeah. But whoever your opponent is, they have to stay in their chair.
+
+[00:06:44] Yeah. They just stay in their chair watching you. And you could be playing for hours if you don't make a mistake. It's just psychological torture. Are there any other games which are like that where I know tennis you're only playing when your opponent is not playing. But usually it's quite soon before you're playing again, isn't it? I don't know, actually.
+
+[00:07:00] But that is one of the main things about Snoke is the psychological angle of it. Yeah. Although Ronnie O'Sullivan said he likes it, obviously, because he's. always going to be... Who he? Who's Ronnie O'Sullivan? I think he's a famous Nookie Player. I would say, Ronnie O'Sullivan and Don Bradman are the only two people.
+
+[00:07:16] I don't know what James thinks about this, but who have excelled everyone else so much in their sport that it's like, whoa. So Ronio Sullivan is the best Nuka player ever. Okay. And he hates the fact that it's so slow, for instance, because he's this mercurial, crazy character with an amazing history. And he likes Nuka to be super fast. So I think he's got pretty much all the records for fastest break.
+
+[00:07:35] But yeah, he's amazing. He's got such an interesting history. His dad went to prison for murder when I think Ronnie was about 16. Yeah, he was a millionaire, though. So even though his dad went to prison for murder, he was from a very affluent background. Interesting. His dad ran a lingerie shop or something like that. I believe he may have called them lingerie shops in the newspaper ads, but I think they were sex shops.
+
+[00:07:59] I mean, patas a potato. Sure. You say potato, I say vibrator. Yeah, so I think some of the other snook players who came from less affluent backgrounds kind of point to that and say, you know, we're working class, but Ronnie actually was quite rich when he was growing up. Interesting, because it was heavily embedded probably in that gang culture a bit. It was one of the Cray brothers, the third Cray brothers driver who he murdered in a nightclub, I think.
+
+[00:08:26] Sorry, the third Cray brother. Yeah. I didn't know there was a third Cray, but you hear about the Cray Twins. I know. He was very much the... It's like the third Chuckel brother. Yeah. He and the third Cray brother must have given each other a wry look sometimes.
+
+[00:08:36] across the Eastern clubs. They both have that picture of Bramwell Bronte in their house. That's so neat. Imagine a joke that has to craze the Chucle Brothers
+
+[00:08:48] and Bramwell Bronte in it. We've got the Jonas Brothers as well. They've got the extra brother who's called Bonus Jonas, Jonas, who is the one that just isn't in the band and does his own thing
+
+[00:08:57] all the time. No, is that? Yeah, bonus Jonas. Snooka's got fairly sort of poshish sort of foundations, doesn't it? Because it was invented
+
+[00:09:05] by supposedly this is the big story by Neville Chamberlain, not the prime minister, but apparently a cousin. The reports are a bit dodgy, but apparently he was in India in the 1800s and he basically incorporated two existing games. There was one called Blackpool and there was another which was called Pyramid. And so one was played entirely with red balls and that was in a pyramid shape. So he was like, I would love the pyramid shape. And then the other one had all the other colour balls in it and he brought that over, smashed them into one big game with the pyramid, and then just kept yelling snooker at people as they were playing.
+
+[00:09:39] And by the end of the game, he'd called everyone snooker, and so it stuck. Why did you call someone? What did it mean? Did it mean? Dick it? I think it was a sort of term for an idiot, someone who was incompetent at whatever task they were doing, a rookie. I see. It is weird, though, because he said he invented it in 1875. He only said that in 1938, which is a substantial amount of time later. That's what?
+
+[00:10:00] Yeah, 63 years later. And he was an army officer already when he invented that. this. So he must be knocking on. But the claim was accepted and I think it's sort of widely accepted that that's that's where that is where it comes from. Yeah. But also the other weird thing about snooker that that name thing you were saying, Dan, is so if you snook someone, is it that I need to hit a rednecks but I'm behind the yellow or whatever? Precisely. So that is unusual as well because it's a, it's a move in the game where you've messed things up for someone else. Yeah. Which is, is that, is that croquet like that? It's a bit like that.
+
+[00:10:32] You croquet someone. I think there is a connection. between croquet and snooker really i think snook kind of grew out of croquet like games yeah and that's why the that's why the table's green because it was like originally played on grass right the bays the bays um which has has to have do you know the difference between the bays in snooker and pool i got a bit too into table makeup actually oh no is it the nap yeah i was gonna almost disqualify you from answering this question james i full disclosure i am very much into snook You're not allowed to answer any more quiz questions in this section. What's the nap?
+
+[00:11:10] So the nap is the way that the kind of hairs on the substance that the table is made of bend. So basically in Snooker you have to have a nap. And that means that it's a little bit like if you imagine a velvet surface. In fact, if you look at those cushions over there. I'm having a nap listening to this explanation. Andy, this is fascinating stuff. Sorry, sorry, go, go, go, go. You look at those cushions over there.
+
+[00:11:32] They're velvety. You stroke them one way and they look smooth. you stroke them the other way and they look rough. Oh, okay, yeah. And that's like a snooker table. It has to have that effect. And it really affects how the ball travels because you can imagine if the little hairs,
+
+[00:11:42] fibers are standing up a certain way. And depending on the angle at which is hitting them, you really have to work with the nap. So if you aim for a shot in the middle pocket, you have to aim slightly outside the pocket because the nap will make it naturally bend towards the pocket. That's so interesting. So part of the gameplay is literally getting your face
+
+[00:11:58] close to the table and seeing how the nap is looking? No, it's always the same. Yeah. It always goes on. It's always the same? Well, I actually read in a really furious blog that a man who has heard of people who install their own tables putting the nap on back to front, which is obviously an absolute disaster. Doesn't it just go the other way then? Or do you mean upside down? No, I think he means it goes the other way. So it will go slow when it
+
+[00:12:18] should go fast. But you would be used to it. Like you would be very much used to it being one way. I got a question. Are you allowed to comb the table before the get, before your pot? So before every frame, before every frame? Yeah, probably someone will come on and give the table a quick comb. and also you are allowed to kind of flatten. If you see your bits come up a little bit, you are allowed to flatten. Mid game. Yeah, mid shot, not mid shot,
+
+[00:12:41] but just before your shot you're allowed to do it. Like a bit of the rugs rocked up. Yeah, you are allowed to smoothing. Midshot would be like curling, wouldn't be? That would be a game. So actually, Snooker isn't played on a snooker table. It's played on a billiards table. What?
+
+[00:12:57] Because Billiards was invented before it, and then Snooka was played on the billiards table, and we still call it a billiards table, rather than a snooker table officially. So what gets played on a snooker table? There's no such thing. There's no such thing as a snooker table? Well, it's just another word for a billiards table, I guess.
+
+[00:13:11] Right. That's great. And what's billiards? So billiards is a game where you have three balls only on the table. And the rules say you get a point by either potting one of the balls or by hitting one ball onto the other, right? And then if you get a point, you get another go. And you get another go and another go and another go until you stop getting points,
+
+[00:13:28] and then your opponent comes on the table. Okay. So a bit like snooker, your opponent sat there for quite a long time. time just watching you play. Yeah. But in 1907, a new technique was discovered where, you know, the pockets in Snooker, where the ball goes into. What this guy called Walter Lovejoy managed to do was to get two balls stuck in the
+
+[00:13:48] pocket. And so he could just tap these two balls every time and they would always hit the cushion or hit each other. Oh, wow. And he could do that again and again and again and again. And there was a game a bit later between Tom Chapman and Tom Reese, where Tom Reese managed to score 499,135 points by using this technique over 85 hours and 49 minutes of playing. Oh, what a tedious person.
+
+[00:14:15] Is it illegal now as a technique? It's illegal as a technique. And also, like, this record was never in the record books because all of her fans went home. The referee went home and even his opponent went out. Wow. That's so good. I worry about this guy's home life. It sounds like you didn't have much to go back to. I don't know that pocket billions was real
+
+[00:14:35] I thought it was a vulgar euphemism all my life and actually it's a proper game And what is it? It's just a smaller version of billiards Or it's slang for messing around with yourself I would stop playing pocket billiards Is what you'd say to someone Yeah
+
+[00:14:47] If they were masturbating in public Yeah right Oh okay Just don't get the mixed up That's how I'd say I thought I was getting away with it all this time I think I'm playing billions Oh dear.
+
+[00:15:12] Okay, it is time for fact number two, and that is Anna. My fact this week is that one of the major battles in the Cold War was to see who was better at squashing metal. Was it to get rid of the iron curtain? Brilliant. Oh, my God. Lovely. This is the heavy press program.
+
+[00:15:31] which sounds kind of like a raunchy, sexual program, but it wasn't. You get turned on by very different things to me, Anna. No, I'm with Anna. Well, but it's coming around to my place for heavy press. I don't know. No, I'm just going to stay at home. I'll do some pocket billiards. The heavy press program was launched by the US
+
+[00:15:52] in response to the fact that the USSR in the 1950s, it believed, had got very good at squashing metal. And the good thing about squashing metal is that it was, was a much better way of making aeroplanes. So it meant that you could put a huge ingot into a machine and squash it into the shape you wanted for a big bit of wing or something. And that would mean that it would be a lighter aircraft that if you just nailed together lots and lots of little bits,
+
+[00:16:17] which is how you were making planes. I've seen images of this thing and it's so impressive. It's a ginormous structure, the one in America that we're going to get onto, which is a very famous one called The 50. You say it's very famous, but I think it's only known because there's this one guy who's just written a series of amazing articles. about it. It's one in the Atlantic and other than New York Times who's just really into it
+
+[00:16:35] and that was in Cleveland, Ohio. It still exists today. So I think they made 10 machines in the US and they made four pressing machines where you're squash metal and six extrusion machines where you squeeze it like toothpaste. And I think eight of them are still going today.
+
+[00:16:51] It's nuts. At the moment, every single US military aircraft contains bits made by this 50 machine. Really? By this one machine, yeah. I mean these were built in the 50s. They're still going today. The The engineers of the 50 think it's going to be going in total for about 110 years. Can I ask why it's called the 50? I think it was because it would exert 50,000 tonnes of compressive force,
+
+[00:17:11] which is the equivalent of being able to lift up 500 blue whales. Wow. And it's massive. It's 87 metres high, so it looks huge. It's so cool. Honestly, this really awoke something in me, this machine. This really brought my inner Clarkson to the fore. It's just really the most amazing machine in the world. It's so cool.
+
+[00:17:32] It is. I think it's the size and the majesty of them. And there are lots of them. So there are those in the US. And then, well, as I said, in the Cold War, the reason it became a fight
+
+[00:17:40] was because Germany was actually the best at making them. So Germany had all this technology in the Second World War for pressing metal that no one else had. And as part of the agreement after the Second World War,
+
+[00:17:50] we divided things up. And the USSR got their biggest heavy press. So they got the 30,000 pressing machine, 30,000 ton pressing machine. whereas I think America only got about 10,000 ton one and I ended up reading all of these CIA documents spying on how Russia was using them
+
+[00:18:07] and saying, what are they doing with this thing? They're incredibly boring. Aside from the word secret at the top. But yeah, they had to transport it back in four specially made train carriages from Germany to the USSR. But yeah, America were like, oh no, they've got this now, we'll have to make a big one. And it's partly, it partly relates back to the First World War, right?
+
+[00:18:26] So in the First World War, again, lots of post-war reparations. Treaty of Versailles took a lot of things away from Germany. And there was a shortage of various key materials for the German economy and for the armaments and all this. So they developed the technique of press forging, which is where you press down on the... Just because it's more efficient. And the one thing they'd been allowed to keep,
+
+[00:18:46] or one of the things they were allowed to keep, was their magnesium, right? What a treat. The Allied powers said, we're not interested in your magnesium, so you can have that. But the problem is that the previous method of forging things is basically big hammer, smashes down, smashes off. Is that? Does it not explode?
+
+[00:19:00] if you hit magnesium. It's, it, I think you put water on it, but it does crack. It doesn't forge well under the current forging conditions. And that's why Germany invented the technique of press forging
+
+[00:19:12] because they were working with the materials they had and also they had to be as efficient as possible. Once again, shot yourself in the foot with Versailles, didn't you? Allies. But then actually, playing the long game, you got the technology back.
+
+[00:19:25] So sort of a nice score draw for the treaty in Versailles? I think that's right, yeah. I think the Treaty of Versailles is a foe of the podcast because we give it a right kick in on this show, don't we? True. The highest pressure ever achieved is 770 gigapascals, which is more than twice the pressure in the inner core of the earth. Okay. What did we do it for? Well, it's just scientists in it.
+
+[00:19:51] They wanted to see what happens if you squash osmium, really, really, really a lot. Richard Osmium. He's the Roman Richard Osmium It's the chemical element Osmium And they really really squashed it With all this pressure And they found out that it does not change
+
+[00:20:08] Its crystal structure Wow Well sometimes you're going to go through that experiment You've got to find out that It's as important to find out nothing As to find out something I wonder if it's especially tough osmium Or it has a special
+
+[00:20:21] Is it especially dense? Okay, that's cool Surely otherwise it seems silly If it's just They didn't like We'll start off by squashing a flump The biggest press now, I don't think gets much press. It's in Vienna and it's made by an Italian company who would have thought.
+
+[00:20:39] I mean, not me. I don't see any reason why the Italians wouldn't be good at pressing. I suppose that most industrial things like that, Russia and China, sometimes America, and they do have the other big ones. But an Italian company have made it in Vienna and it's called Tyson. Is it to make lasagna sheets? It is. They can make a meatball that is as dense as the sun.
+
+[00:21:04] And yeah, that exerts 100,000 tons of force, which is the equivalent of being able to lift up 100 Eiffel towers. Wow. Which is impressive. That's amazing. It is amazing. And is it used for the same, just making, like, sheets of metal for airplanes and stuff. Yeah, they do lots of stuff with, like, oil and gas industry,
+
+[00:21:22] and wind turbines and nuclear and all things you would imagine need loads of metal. I was reading. into humans crushing metal. Oh, yeah. Because that is, yeah, it's a thing. And it turns out there's a lot of Guinness World Records for people who have done that in the past. So one of the records I found
+
+[00:21:38] was the most cans crushed with shoulder blades in one minute. Okay. Now, this is your back shoulder blades. Yeah. So you're sort of moving them together to create the crush. What do you reckon in one minute?
+
+[00:21:51] Well, okay, question. Yeah. Is someone putting the cans in your shoulders or do you have to place them there yourself because that feels tough. So the records held by Fabrizio Milito and another one for the Italians sounds like yeah. Crushing metal. It's just their forte. And it was his brother Frank who would replenish the can in between the shoulder blades to be crushed. 84. You're not far off. 68. That's 10 more than someone managed to do it with their head in one minute. So 58 achieved with their head.
+
+[00:22:22] But it's interesting because if you ever crush a can these days, it's really easy. It's very easy. It's very And that used to be seen as like a pop-eye or a manly kind of thing. It turns out that that did used to be that because cans were 40% stronger back in the day in terms of the material and the strength and the thickness. This really shows how old I am. But I remember when aluminium cans came in. And they were much, much easier to crush.
+
+[00:22:45] It used to be that you could buy cans of pop and some of them would be aluminium and some of them wouldn't be. And the aluminium ones were way easier to crush. Well, the previous ones steal? I suppose they must have been. I'm not really sure. but I just remember Blue Peter had a thing where everyone had to crush cans
+
+[00:23:00] and send them for recycling in their 80s and so we were all into cancruishing back then. Before Tamagotches, that was what it was, isn't it? Can I read it an introductory sentence to you? Yeah. Is it from your new novel?
+
+[00:23:14] It's from a piece about another kind of forging which is a thing called drop forging and it's in Kadahi. I'm sorry, I'm sure I'm pronouncing it wrong, Milwaukee. It begins like this, tucked away in a Kutahee Warehouse. Something big has been pounding away since 1959.
+
+[00:23:30] Oh, Jesus. But this is a huge great hammer. And this is the kind of thing where you just have a giant hammer to smash down on your metal and get it into the shape you want. Right. And this one, it weighs one million pounds and it goes five floors above ground and also five floors below ground. So it's called a counterblow hammer, which is meaning that you are whacking. Above sides. Oh, right. Oh, cool. Yeah, below at the same time. Like a crocodile. It's so cool.
+
+[00:24:00] It's just like flames and fire inside it and it's just mashing away at these objects. Yeah, yeah. Basically, that hammer, that gigantic hammer has been an operation so long that you've got multiple generations of the same family who've been operating that hammer. It's been going since 1959.
+
+[00:24:15] Nice. So there was a guy interview for this article saying, yeah, my grandfather worked on this hammer. God. I know. What would happen if you put just a person in there? Oh, they'd be in trouble. They'd be in such trouble.
+
+[00:24:25] trouble. They get just squished. But I'd love to see what that, like, doesn't look like a little bit. It's not like when you frame Roger Rabbit. It's not that. You would not love to see that. Become a perfect two-dimensional human. It's a shame that's not on the list of options for like, you know, you've got classic burial, cremation, obliterated by. Yeah.
+
+[00:24:46] The flattening. Can I tell you one thing about a cool destruction engine from the 19th century? This is great. There was a great new scientist piece about it and it was called the Victorian Monster Destruction Engine Not its official name But it was made by an engineer called David Kirkcaldy Who was Scottish
+
+[00:25:03] And he was the chief engineer Behind this machine Which existed to smash metal To tear it, to twist it To crunch it To bop it You know, to do all of this To just
+
+[00:25:19] And it was because Before his one work, you could not test the components of a bridge, say. So, you know, you just have to trust that the bridge you were building was strong enough. Yeah, you've got some rivets. You need to know whether they're going to hold if you put a load of pressure on it. How do you do that? Exactly that. And he built this gigantic machine. It was 116 tons, which at the time was huge. And its entire job was to tear things apart. And it could measure the tonnage at which or the force that needed to be applied before things broke. And this changed engineering because, you know, there was the
+
+[00:25:49] Tay Bridge disaster in Scotland. Yeah. Yeah. And they they went down to the riverbed after this awful disaster had happened. Lots of people died and it was a really tragic event. A really bad bit of poetry was written about it famously by McConnell. That's right. The Taybridge disaster disaster. And they went down and they got some of the lugs that had attached the bridge rods to the supporting columns. And it was found that they broke at 20 tonnes of pressure rather than the 60 that they should have done.
+
+[00:26:16] So that, you know, ruined the career of the engineer who had said, no, these are fine. And these are strong enough to support the bridge. I feel like they should have used buttresses as many a wise man confesses. It's a line from the poem. Is that genuinely a line from the poem? That's good memory. All the poems you could have memorized. Why that one?
+
+[00:26:35] But yeah, he made loads of bridges as well, didn't he? And they were shipped all over the world because he was the first person ever to test these things. So the Sydney Harbour Bridge was all tested, but in his one machine. Yeah. Various bridges in London Hammersmith Bridge. The family thing, like degeneration, the festival of Britain in the 1950s, some of their structures were tested by his grandson. And I love this.
+
+[00:26:57] It was, and certainly in 2014, there in a museum. I think it's in Southwark. And there used to be on the top floor a museum of fractures, which was a collection of broken pieces of metal. But tragically, during the Second World War, a bomb fell on it. And all the pieces came back together. It's like, what are I supposed to do with these? Find a pristine spitfire.
+
+[00:27:22] Okay, it is time for fact number three, and that is James. Okay, my fact this week is that in 18th century America, you could tell a merchant from a lawyer just by looking at their handwriting. So... The lawyer would put little hearts over the eyes. This is insane. The merchant puts dollar sign. Yeah, it's crazy, isn't it?
+
+[00:27:50] I just didn't know this. It was in an article in the Atlantic, I read it, an article by Rachel Gutman-Way. And she wrote that there were different font types for different jobs. Yeah, so cool. The handwriting of the merchants apparently was supposed to reflect the efficiency and speed with which they worked. And lawyers would have different scripts. Aristocrats would have different scripts. And what would happen is it was you would be in your guild or whatever or your, you know,
+
+[00:28:15] you would be taught to do this job. And when you were being taught it, they would teach you particular ways of writing. So as the years went on, it would kind of get more and more enforced this style of writing. Because doctors are the only people today who reputedly got a particular kind of handwriting which is terrible. Yeah. I don't think that's a font, is it?
+
+[00:28:34] Barscript. I feel like journalists. I've seen journalists doing fast writing. Yeah, shorthand, which feels very them. And that's a sort of separate language to no tape. But you're talking about the English language written in. Yeah, so you would write the same words, but you'd be able to read them and you'd be able to say, this person is a merchant, this person is a...
+
+[00:28:51] Could you masquerade? If I was a merchant, wanting to pretend to be a lawyer. I suppose you could, but it's a bit like forging signatures is I guess it's difficult, right? Because your signature you do naturally without thinking, whereas to forge it takes time and sometimes it's not very easy to do it exactly. And you probably need other proofs that you're a lawyer.
+
+[00:29:10] It probably wasn't that people with Hierolovo saying, can you just write your name on a bit paper? Looks like a lawyer's hand writing to me. I'm in a Mrs. Doubtfire scenario in my head. I'm like, I'm the aristocrat and the nanny in this, what I'm trying to do. Right. Well, one thing that might work there is that men and women had different handwriting as well. That's so interesting.
+
+[00:29:28] So men had more masculine handwriting they were taught on muscular handwriting. What does that even mean? Well, muscular handwriting, according to someone called Carla Peterson, who is a professor of English at the University of Maryland, they used more pressure on the pen. I'm just, yeah. Just holes in the paper. 50,000 tons of force on every letter. And women had more like an italic cursive.
+
+[00:29:52] handwriting. What I thought was so interesting about this fact is that I hadn't really considered until now the fact that we were all taught a font. So basically the handwriting equivalent of font is script and we were all taught a script. And of course we were. And when you see, you know, when you see writing from the olden days, like if I look at collections of letters written by, like my grandparents had old letters written by their grandparents from the 19th century, the handwriting is so different. And that's because official styles changed. And so there was this thing called Spenserian script in the 1900s, which President Garfield called
+
+[00:30:27] the Pride of Our Country. Wow. America's done so much stuff. That's the biggest one. Is that the biggie? That's the big thing. The guy who came up with this, Platt Roger Spencer,
+
+[00:30:38] said he was inspired by Pebbles on a beach, and it is sloping. It's got to be at an exact angle of 52 degrees, sloping forwards, and slightly rounded. Okay, and was that like, basically Americans would write like that, like that. Yes. Because I know, like, for instance, my wife writes in a Russian font, which is different than an English font for sure.
+
+[00:30:59] Yes. Yeah, yeah. There's lots of chat about the different ways that different European countries still write. So Platt Rogers Spencer spent so much time trying to get it to be the standard writing style they were teaching in schools and so on. To the point where it feels very missionary, when he died, his sons then took textbooks of it and they sort of went out and campaigned for it to be changed. Have you tried this font? style. You go to schools and hand them. And then people start reading the book and say, no, don't read the words. Just look at the letters. Yeah, exactly. So weird. Yeah. And then it did get taken over by a thing called Zana Bloso method. And then that eventually got taken over by another. So we've got generational changes within how we write. You can tell when texts come from, right? Because you can, like, there's a thing called paleography. Is that it? It's old writing. And it's the
+
+[00:31:43] study of old writing. You do courses in it. Because if you look at a text from hundreds of years ago, even if it's in English, it's going to be really hard to decipher. It's hard to recognise time travellers, I suppose, is that they have different handwriting. Yes. Yes, it would be so obvious if someone suddenly started writing in that gothic script
+
+[00:32:00] that, as you say, you can barely read it. It looks so different, doesn't it? It's so hard to distinguish. I was thinking people from the future might write, like, for instance, in block capitals or something. Hello. Oh, wow. Busted.
+
+[00:32:13] So Spensurian, just very quickly, before we wrap up on that, That did go out and these other fonts took over, but it did embed itself in society and we see it virtually every day. So it was a win for Platt Rogers. It's disgusting. Yeah, it should be. Think of ingredients lists on packets of food. Oh, they're always in handwriting, aren't they? Okay, okay, okay, I'm just warming up.
+
+[00:32:38] Something that's in handwriting? Yeah. Okay, that we see. Something on a bank note, like the, I promise to pay the bearer. No, no, it's a logo. It's a logo in handwriting. Tabriz. It is a food and drink product, and it is not anything that you've said.
+
+[00:32:56] It's a drink. Coke. Coca-Cola. Coca-Cola. Oh, of course. That lovely. You're right. That rounded cursive.
+
+[00:33:02] That rounded cursive. I forgot what the question was. So it was basically phased out Spensurian, but he managed to have an impact staying. And Ford cars is also the way that Ford is written is based on Spensurian. That is great. What a legacy. That's a... Great legacy.
+
+[00:33:19] That's kind of time travel, but the normal way around. You know, like a survivor. It's like those animals that you find, which are, oh, we thought you went extinct 130 million years ago, but here you are, swimming around. Like a seal a canth of handwriting. Yeah, it's a Coca-Cola canth. Could you set me up for that joke, cannot? No.
+
+[00:33:38] It felt like it. It felt like I walked straight into a bear trap there. We should probably say that handwriting involves four practical reasons. So it was all about these people saying this is a quicker way to write, and this is an easier way to write, this is an easy way to teach, or the reason that Gothic, which was invented in the 12th century-ish, that was quite squashed up, and it was because there was parchment shortages, and so you could fit much more on the page.
+
+[00:34:03] So it's all practicalities, which feels relevant when it's enforced today, because people say, isn't it sad that no one learns proper cursive anymore, and there are a number of American states that enforce it legally, and there isn't really evidence that there's particularly a purpose. Because it's just joined up handwriting, right? Yes. I can tell you a lot about someone, their handwriting. Well, no, it can't really.
+
+[00:34:25] But they can tell you how drunk they are. Well, that's good. Of all these kind of graphology things, which is you're supposed to be able to tell people's personality or whatever from their handwriting, most of it does seem to be mediopi, but definitely for sure, the height of ascending letters,
+
+[00:34:41] height of descending letters, spacing between words, tremors. Bit of sick on the page. The height of the upper and lowercase letters all changes depending on how much alcohol you've had. That's good. That's got to be one of the most pointless studies
+
+[00:34:57] ever done to conclude that how writing declines with alcoholism. Did you find the BIG? No. Notorious British Institute of Graphologists. They're real. They're pretty hardcore on there. That's really funny. their claim, and I think I'm not,
+
+[00:35:16] I don't think it's backed up by solid evidence, is that it's better than therapy because actually with therapy, you can only know what the client has told you. Whereas with graphology, you just look at the writing and you say, well, that's disgusting, I can't believe you had that dream, or whatever, you know.
+
+[00:35:30] You're not a merchant. You're a lawyer. We did a debunk of graphology on QI once and got very angry emails. And letters, didn't we? And written. Yeah, we got one. letter from a graphologist saying that some of the evidence is if you get a pen and put it in your mouth and try and write something on a piece of paper, you'll use the same movements as if you were to do it with your hand.
+
+[00:35:58] Like so Andy would write it with his same sort of spidery handwriting with his mouth as he would with his hand. And that's evidence that it's coming directly from your brain as opposed to as being something in your hands or whatever. Hasn't it inherent in yourself the shape of your letters. Is that claim true in either sense? Like is it true that there's any correlation with your mouth on hand or that you could draw that conclusion? All I'm giving is both sides of the story like I'm on the BBC. Good on you, mate.
+
+[00:36:24] But no, that's what they claim. But of course, you know, I think these days we think that it's nonsense. Unless you're listening to this podcast on BBC sounds, in which case, the jury's out. I do wonder if we were able to bring back certain people from history and just say, oh, I love your book called that. And they go, that's not what that's called. and it's because they're bad handwriting.
+
+[00:36:44] There's a few cases where people claim this is a thing. So apparently, Baithoven's piece for Elise, apparently that's not the title. What? It's called furry leaves. Apparently it's for Therese. No. Yeah, it's Teresa.
+
+[00:36:59] It's either that. No way. But his handwriting is so dodgy that it just, it's, well, we'll just go with Elise. Are all the notes different as well? That's so funny. Well, if you're worried about bad handwriting, which I always was in exams, because I have quite a legible small handwriting. I always thought, they're never going to read this gold. I happen to be on the OCR, which is one of the famous exam boards, OCR exam board page, F.A.Q's page.
+
+[00:37:26] And they clarified, examiners are experienced at reading a wide range of handwriting. And if one examiner can't read it, it gets passed to another one, and so on. Wow. So I think if your handwriting's bad, it just gets past to 20 different examiners. That's so funny. I know where it would end up. At the very end, there is a lady on the Isle of Man who runs a firm called Transcription Services
+
+[00:37:47] and almost no one does what she does. She is just phenomenal at reading handwriting. Really? Specifically old writing. The work by William Wordsworth, the Brontes, John Dunn, it's all passed to her in the Isle of Man. And she's just amazing at it. And that is paleography.
+
+[00:38:05] One person who was really difficult to decipher was Catherine Mansfield. I was reading about the news. Zealand short story person. Her handwriting was so bad that when she died and left 53 handwritten notebooks, it took decades to decipher them. And the person who was doing it once spent an entire week trying to decipher a single word. So the way you write can kind of show where you're from.
+
+[00:38:34] I thought this is really interesting. So the way you write a T, for instance, which bit do you write first? Don't even know. I go the top. I don't do the cross, basically. You don't cross your T's? No, I do that last. Oh, right, okay.
+
+[00:38:45] Yeah. Don't cross your T's, imagine that. I'll see you, Lomorrow. See you, Leila. So, presumably, oh, Dan, actually, what do you write first? Well, you write all in capital, so it's kind of a row. No, no, but if I, who writes the cross bit first? Well.
+
+[00:39:03] What's the cross bit, do you mean? The cross your T's, what, the bit that goes across. I do. I do. You write the cross first. Okay, if I was writing that. Can I see? In lowercase, I go...
+
+[00:39:13] Guys, do you know what's so fascinating about this? Right? Do it again. What can Dan also write that none of the rest of us can? Brilliant books about weird beliefs. Or actually, I don't think he can write this. What can he speak and where was he brought up? Oh.
+
+[00:39:29] Mandarin. Australian slang. Mandarin. Australian slang, yes. Mandarin writers write in lots of little short dashes. And so it makes sense for them to write when they learn English. they tend to write the cross of the tea first because it's lots of little figures
+
+[00:39:44] whereas we would always write and there's lots of little stuff like that in Koreans they write nine backwards do you write your lines backwards down? No I well I don't know you might tell me now that I do I write it like that No that's like everyone writes and night
+
+[00:39:56] I wonder if I've got a cultural mesh going on because I will start that like that but then I'll do that to end it Wow yeah Gosh it's interesting because I've never seen you write in lowercase before I didn't know you could I am capable
+
+[00:40:11] I honestly didn't Wow I'm so sorry What do you think The school I went to taught Well let's not go there Okay It is time for our final fact of the show
+
+[00:40:32] And that is Andy My fact is that the sun is surrounded By a layer of moss Hey Is it Space Moss No I mean it obviously isn't So this is a thing which industry experts,
+
+[00:40:48] Sun experts, astronomers, big science brains, they call moss. I love this. So this is in the sun's corona, we're outside the sun itself. And there are areas where the sun's magnetic field bursts out and the gas that makes up the sun flows around these huge loops
+
+[00:41:06] and then spears back down into the thing. It's all really, it's awesome. Anyway, and the moss is these, sort of lacy patterns around the corona and around those coronal loops around the feet of them, if you like. It's a term that NASA uses and lots of other astronomers use it.
+
+[00:41:22] A lot of the sexy words you can use for lace-like structures to use moss, I feel like. Yeah. Yeah, what would you have gone for? Well, lace. Langerie. Lace.
+
+[00:41:32] Yeah, negligent. That's quite a cool, yeah. I do think of it when I was reading about it. Yeah, you've described it pretty well there. It looks like a rainbow if you look at these coronal loops. And the moss is sort of at the bottom of them.
+
+[00:41:47] So it's like the gold at the bottom of a rainbow. Very nice. Lovely. What's really weird is I read that this is the case. There may be other reasons for it. But the reason those loops come out at all is largely to do with the rotation of the sun. Right.
+
+[00:42:02] Yeah. So you've got basically it takes 25 days at the equator to rotate, but at the poles it takes 33 days. So you have this bit overtaking the air. outside and it sort of snaps and it creates these big loops. It's sort of running past itself in a it's the weird rotation, the double rotation of the planet. Well, because it's all gas. So it can, it all kind of feels natural, right? That it would rotate at different levels. But yeah, that chaos that's generated. Yeah. But it seems like we still don't know a lot about the sun,
+
+[00:42:32] which is quite exciting. And they're still discovering stuff about it, aren't they? I mean, this is all linked to that eternal mystery that why is the sun's atmosphere, the bit just above the surface of the sun, so hot. Which I think we might have mentioned before. So hotter than the surface or even the core? It's the hottest there, is that what you're saying? It's hotter than the surface, definitely. I'm not sure if it's hot than the very core.
+
+[00:42:53] Yeah. It's so much hotter. So the surface of the sun is about 6,000 degrees Celsius. I think we can all agree. Very hot. Yeah. But the corona, the atmosphere, is 1 million and 6,000 degrees Celsius. It's a million degrees hotter.
+
+[00:43:07] And do you know, they've even, NASA says that there are flares, which they think might be between 10 and 40 million. degrees Celsius. Wow, 20 million degrees. So the sun's rotating, produces magnetic field, right? Yeah. And then these lines of magnetic force,
+
+[00:43:20] they get tangled, and they build up pressure, and they snap. And most of the energy goes outwards, but some of it goes back inwards, into the sun. And the particles in the sun's lower atmosphere, they build up this pressure wave, and it penetrates deep into the sun,
+
+[00:43:35] and it becomes a sun quake. Just everything starts sounding like a cool title for a metal album. Sunquake I've been going around singing Sunquake There's a group called the Solar Wind Sherpers Who also sound pretty like cool
+
+[00:43:49] And so are they a band No they're a group of scientists But just anything sun-related Like coronal moss Or whatever That one doesn't quite work I got us It's not metal
+
+[00:43:59] I don't think that one No matter how much you put that voice on Okay okay Quite similarly You get solar rain Which is actually lumps of plasma That fall down from these
+
+[00:44:08] Coronal rainbow loops And when they splash into the chromosphere, the bit in between the atmosphere and the surface, they make a big splash and they send up loads more plasma. We are Cromersphere. This is our album, Solar Rain. What about...
+
+[00:44:22] We are the solar hedgerow. What about us? Bit rural, bit rustic, but nice. Yeah, maybe like the missiles. I mean, it's not that interesting. It's just like filaments of mossy-like stuff from the sun that create loops that go in like a line like a hedgeromite.
+
+[00:44:38] Nice. But it is an effect. official term apparently. That's cool. Do you know who is the first person to take a photo of these filaments on the sun? Oh. Oh. It's someone we've heard of.
+
+[00:44:49] Oh, no. That narrows it down. That narrows it down. You might. Sarah. You might have come across her name. Annie Monder, she was called. And she was married to Edward Walter Monder.
+
+[00:45:03] And she was probably the last of what was called the Lady Computers. So in the, and towards the end of the 19th. century, this is, obviously there were computers like for the space race and stuff like that, but these were women who would do the calculations when astronomers would come up with loads of data. They would give them to the women and the women would work them out and work out what was going on. Amazing. And also the monda minimum is named after her, which you might have heard, which was a time in the 17th century when all sunspots disappeared. Was that when, was that when it got very cold? Yeah, was that little ice age? Exactly. Was that the morned a minimum? And her
+
+[00:45:39] And her husband as well, yeah. Yeah. Nice. That's awesome. But so she's coming through data to find all this stuff. So amateur photographer on the side? She was also a photographer on the side. Yeah, yeah.
+
+[00:45:48] Okay. And she and her husband did photographs of the sun. And we're doing it all the time, basically. Whenever there was a clear day, they would go out and photograph the sun. How do you photograph the sun without, you need a special filter to stop hurting your eyes? There are lots of different ways of doing it. Yeah. Like, for instance, you can do it with a pinhole camera.
+
+[00:46:07] Right. you. I think you could largely just point it in the direction and press a snap, can't you? I think if you do that and you send the photos to boots, you're going to get a sticker on them. In Britain, you can photograph this one pretty easily. The sort of vague, white
+
+[00:46:23] dot of skewery cloud. That reminds me of the warnings when there are eclipses about what they can do to your eyes have been sort of mad to very extents over the years, but I was reading about the eclipse in Melbourne in 1976, I think it was, when there was this doctor who sort of spread panic around the city saying there could be an epidemic of thousands of kids being completely blind
+
+[00:46:45] because all you need to do is look at that for a couple of seconds and you can go blind. Now it's not, it is exaggerated, this scaremongering, but it scared Melbourne into watching it from inside. So two million of the 2.5 million people there watched it on their tellies. It is a problem, I think, with the eclipse, which is it is bad for you. And you can't say it's not bad for you. but pretty much all the time everyone says it's worse for you than it actually is. I think that's the problem.
+
+[00:47:11] So when Trump famously looked at the sun, that wouldn't have done. It depends how long you do it for. I think you can tell if it's doing damage. Bloody left-wing media spinning these stories to make him not bad. We're not saying you should go and look at the sun. That's the problem is you can't say go out and look at the sun right now. I'm just saying give Trump a break.
+
+[00:47:30] That's what I'm saying. But yeah, it's like you've looked at the sun every now and then. by accident for a second or so, right? And you're like, oh, that hurt my eyes, but you didn't go blind at any stage. No, because it's the eclipse. Isn't there a risk that people are going to try and look for longer than the tiny, tiny glimpse that might not do you any harm? But it feels so much common sense that the only people who do get in trouble. And I think this was true in Britain when we had it in 1999 are people who are lots of drugs.
+
+[00:47:55] So there was a girl who'd taken lots of speed who stared at the eclipse for half an hour. And she did have some permanent eye damage. Isaac Newton. There was a story that he stared at the sun and that sent him partially blind. That was deliberately for an experiment to see what would happen if you stared at the side of the edges. Yeah, so you can be very, very clever and also very, very stupid. So I think it's just good to where on the side of course and say, never look anywhere.
+
+[00:48:13] I think that's fair. I think one bit of good news is if you do go blind for staring at the sun for too long, is that there's a new invention that allows blind people to enjoy eclipses. Oh, really? Yeah, it's called light sound, and it sort of measures and translates the sky's brightness and turns it into music. And so you can, like, put your headphones in. And apparently it gives a really good impression
+
+[00:48:36] of the change of the sun and the change of the brightness that's happening. How interesting. Cool. Yeah. That's amazing. That's awesome. Milosevic scared his people underground.
+
+[00:48:47] Slobodan? Or Aston Villa striker Savo Milosevic. I think it was Slobodan though. Of course, I haven't written it down, but whichever one was ruling Serbia in the 90s. Yeah, he said that it would make you urinate really frequently and get heart palpitations. and everyone literally went inside, pulled all their curtains down.
+
+[00:49:07] They were calling helpline saying, is it safe to watch it on telly? Wow. Like, no one went outside, public transport all stopped. So the whole of the rest of Europe flooded outside to watch the eclipse, and all of Serbia retreated underground and indoors. Did he have motives that we know now? Was that a weird, the urination thing? What was that come from?
+
+[00:49:26] No, I agree. I don't know. I don't know why. There was actually a paper saying what were his motivations, and I couldn't download the full thing. So we'll never know. No one, apart from people who can afford 2499, we'll ever know. But I can tell you that human rights activists sent sunglasses to the chimps in the zoo. So scared, were they?
+
+[00:49:48] Golly. One of the coolest things I read as part of this research is that you got the sun, we're just staring at it, we're trying to work out what's going on with it. We've got nothing to compare it to. Don't stare at it. But we got nothing to compare it to it. And that's not true anymore. It's not been true for a while because the Kepler Space Telescope, back when it was operating, monitored 150,000 stars in the Milky Way. And they found 369 suns that are incredibly similar to ours. And so now we can look at other case studies, as it were, and go, oh, this is interesting. That sun is very active at the moment. And it wasn't 10, 11 years ago. That must mean that it's running in phases. So we can learn via these suns that are. Billions of miles away about our own son. Yeah, because there are a lot of scientists that look at our son as a curiosity
+
+[00:50:38] compared to other sons in that they say it's spectacularly boring in comparison to all the other sons that we're seeing in the universe. And they partially wonder if that's why we're here at all. Yeah, that must be, right? Because if it starts spitting out stuff at us every two or three years, going to die. Exactly. So our son is just not that active, and that's been incredible for us.
+
+[00:50:58] It has. And I think actually with the election coming up, sometimes you want a. boring center of your universe, don't you? Because it can be relied upon to not destroy you. And that is a party political broadcast for Kyristano. I don't know what you're talking about. We actually had someone right in who was a space weather forecaster.
+
+[00:51:17] Oh, I had to the fish inbox. Really? This is cool. He's called Gavin Medley. What, dark with no weather again. He works at the LASP, which is the laboratory for atmospheric and space physics at the University of Colorado. And he was writing about the
+
+[00:51:32] If the sun emits a giant electromagnetic storm We go and get warning before it hits us But there are space weather instruments That sit on spacecraft At Lagrange points And they just sit there in gravitational equilibrium And one of their goals is to collect data To predict and warn about solar storms and flares
+
+[00:51:50] Which can take down our electrical infrastructure And that's how he knew like a few weeks ago When they had that big solar storm That people in London couldn't see But everyone else in the country could see Yeah The aurora The aurora.
+
+[00:52:00] We know about that because of those. Yeah. By the way, we're in the most exciting year for the sun in 11 years. Loads of sunspots. The sun switches poles every 11 years. So the most boring year was 2019. And that was hardly any sunspots. Because the poles were just like perfectly aligned north and south.
+
+[00:52:16] And now we're in the most feisty year, which I think might be why they've discovered this thing that your main fact was about. It's because it feels like as a scientist it's the most thrilling time to look at the sun because so much mad shit's going on there. So if one of these big corroborians, emotional mass ejections hits us, we're kind of buggered a little bit, right? All of our electronics are going to fry, and until they fix it, it's going to be pretty tough. And we knew that this big one was coming a few weeks ago, and I was in Wales in the middle of nowhere. And so I got a load
+
+[00:52:45] of cash out of the cash machine just in case. All that's genuinely. You're such a subtle prepper. I love it. Your cash is no good in the aftertimes. But it'll get me home. Like, all I had to do get home. I have an electric car, right? So if I'm stuck in Wales with an electric car and all the electrics are fried, I am kind of buggered. You're not necessarily bugger if you have to stay in Wales, James. Come on. Good people of Wales. Great place to be stranded for a
+
+[00:53:08] great place to be, but it's not ideal for the rest of my family if I'm in Wales. James' electric tin opener is in London. That's what he's getting back to. Oh, he brings that one then. I keep that in a lead lead lead case, a case of a corona mustard But there's a theory, right?
+
+[00:53:27] So we could fire out a big loop of wire into space. So the entire Earth is covered by one wire. And then when the coronal mass ejection comes in, which is basically charged particles, then the wire can kind of ground it and it won't fry all of our electricity. Wow. That's interesting.
+
+[00:53:45] It's a really good idea. No one's really taking the idea seriously. But they reckon that the loop would cost about $100 billion. to make. But if we did get hit by one of those Corona mass ejections, which will happen sometime, the cost will be way more than that.
+
+[00:54:00] It'll be way, way, it'll be in the trillions. It'll fuck up our economy for years. Actually, 100 billion. It sounds a lot, but actually, you know, a lot of things when you read about it in the paper, it's like 600 billion.
+
+[00:54:12] Yeah. Okay, yeah. We club together. Yeah. We didn't deal with that. Well, how much did you get out of the cash point the other day? There's a big cue behind James.
+
+[00:54:24] The limit's 200 a time. It's only 20 million a time they let me take out. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can all be found on our various social media accounts.
+
+[00:54:46] I'm on at Shreiberland on Instagram. Andy at Andrew Hunter M. On X. James. No such thing as James Harkin. On the TikTok. And Anna? You can get in touch with all of us by going to add no such thing on Twitter slash X or going
+
+[00:55:04] to add no such thing as a fish on Instagram or you can email podcast at QI.com. Yep, or you can go to our website, no such thing as a fish.com. All of the previous episodes are up there. There's a link to the portal to the gateway of club fish, our secret private members club. And there are also links to our upcoming tour, Thundernerds. We're heading around Europe. Ireland, where you're going to Australia, we are going to New Zealand. There are all the links up there. We put on a couple of extra shows. One in Sydney, one in London.
+
+[00:55:35] If you missed out on tickets for those, do check it out. It's all up there. Otherwise, just come back here next week. We'll have another episode waiting for you. We'll see you then. Goodbye.

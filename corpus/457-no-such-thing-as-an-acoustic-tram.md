@@ -1,0 +1,427 @@
+# No Such Thing As A Fish - 457: No Such Thing As An Acoustic Tram
+
+- Episode date: December 16, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/457-no-such-thing-as-an-acoustic-tram
+- Slug: 457-no-such-thing-as-an-acoustic-tram
+
+## Transcript
+
+[00:00:00] Hi everybody, just before we start this week's show, we know that Christmas is on the way and if you are hoping to do any Christmas shopping for the fish fan in your life, then we have some last minute recommendations that will save your bacon and save Christmas. Yes, my first bacon saving recommendation is that you buy two books immediately by the sanctuary by some randomer called Andrew Hunter Murray. Yes, me! That's this guy, look, it goes against all my principles to say this, I don't even necessarily like the guy, but it really is a brilliant book, it's got amazing reviews, it's gripping,
+
+[00:00:35] it's about this remote island owned by a mysterious billionaire, it's very twisty-turny, thriller, it's fantastic and once you've done that, go and buy The Theory of Everything Else by a certain Dan Schreiber, very different kind of book, it's like getting inside Dan Schreiber's head, but in a really fun way, it's not as chaotic as you'd imagine, it's full of the amazing theories that geniuses have come up with that you definitely won't have heard of, it's a fascinating fact in every paragraph basically, so get those. Absolutely, and alternatively you can get Christmas goodies from no such thing as a fish.com, we have just launched two new t-shirts along with lovely pin badges, you can identify
+
+[00:01:17] other fish listeners in the wild slash public by getting yourself one of these two things, there's also a lovely tour book from the recent tour we've just finished which is a complete history and demonology and future guide to fish and all its iterations, they're all so much fun and you can get them at no such thing as a fish.com. Yep, that's right and now we will see this vlogging presence to you and say on with the show! On with the podcast! Hello and welcome to another episode of no such thing as a fish, a weekly podcast coming
+
+[00:02:04] to you from the QI offices in Covent Garden, my name is Dan Schreiber, I'm sitting here with James Harkin, Anna Tyshinski and Andrew Hunter Murray and once again we have gathered around the microphones with our four favorite facts from the last seven days and in a particular order, here we go! Starting with fact number one and that is, Anna. My fact this week is that many of the Muppets were designed and created by someone called Kermit Love who had absolutely nothing to do with Kermit the Frog. When you say he had nothing to do with Kermit the Frog, that's literal, it's not figuratively
+
+[00:02:39] I will have nothing to do with Kermit the Frog. They had huge beef from the start, yeah yeah, big falling out. I think huge beef was Mr Snuffle Up, actually. No, he just wasn't involved in the making of him so Kermit Love was a designer and builder of Muppets. He was most famous probably for doing Big Bird, was his big hit but you know lots of the other ones Snuffle Up because I think Oscar the Grouch, the Cookie Monster but Kermit was created about ten years before he even thought about joining the Muppets and they're
+
+[00:03:12] just both called Kermit which I think just must have been a more common name than it was. Yeah, definitely. Because there was one of the presidents had a son called Kermit, didn't he? Yeah, Kermit Rose. Kermit Rose. I think so. I don't think he designed Big Bird, I think he helped to create the design so there was
+
+[00:03:29] a sort of drawing and he was, they couldn't make it work and there are just so many design flaws in it so they needed Kermit to come in. Well he designed the... He manufactured I guess, isn't it? Basically Jim Henson would draw what he wanted I guess and then he'd give it to people like Kermit Love who was the main person on Big Bird and say can you make this and then he'd try and make it as close as possible I suppose. One thing about Kermit Love was that he had all this amazing experience of puppets and
+
+[00:03:55] costumes before he joined the Muppet Show obviously so one of the things he'd worked on was spangling the girls at the Paris Lido. So ballet. That's a euphorism, isn't it? Where were you last night? Were you spangling the girls at the Paris Lido? Lido as well, it's such a weird word in English but... What about the Lido?
+
+[00:04:14] It's quite a common word. Yeah, Lido's a very common word. I don't think that it was an open air swimming pool. No, that's the confusing one. So all... So he's not spangling girls who are paying £5 for a swim? No, no, no, exactly. No, he was working with ballet dancers a lot of the time so he worked for the New York
+
+[00:04:28] City Ballet and he specialised there on turning humans into half puppets. Oh, did he? That was a big part of his... And of course that's what Big Bird is, right? Right. It's half human, half puppet, unlike the other Muppets that are kind of actual, classic puppets. Exactly.
+
+[00:04:43] Well, Big What? Because there's a human inside, do you mean? Yeah, yeah, yeah. Wow. Sorry. No, you're right. Sorry. I think when the character dies one day, Big Bird, they should do a live autopsy and all
+
+[00:04:51] the Muppets freak out when they find a human inside. The design that Henson sent apparently didn't have feathers, Kermit Love added those, but that's weird, isn't it? To have a bird without any feathers. Yeah, I don't think of any actual birds without feathers. I don't think there are any. I think... A pterodactyl, I suppose, is the early...
+
+[00:05:08] No, pterodactyl isn't a bird, dinosaurs are birds and yet pterodactyls aren't. That's the weird thing. I guess think of Cookie Monster, right? Like, I know he's not feathered, but the material could look... I could imagine a big bird with that kind of felt material or whatever it is that they use. Some birds that don't have feathers is really, really young, pre-fledglings, like little chicks, right?
+
+[00:05:29] So maybe he's a really baby, that Big Bird, and he will grow up into something even bigger. Yeah, that's good. Does he seem quite immature? Because I've never actually seen... He's actually six years old. Isn't he? Six years old. I love that.
+
+[00:05:41] But there's an amazing detail that Kermit Love went overseas to China for filming and they took Big Bird and Big Bird, like the costume because they were doing that, but Big Bird was given a seat on the plane and because he's six years old, the Chinese airline charged him half price. Fair enough. Yeah. Well, no, what's fascinating about that is I can't believe that you used to get half price tickets for children because I don't pay so much money any time one of my million
+
+[00:06:04] kids turns two years old. Why don't you put the child in a Big Bird costume? Fly them to China. Make a big publicity thing, which is why they actually did this. Exactly, yeah. You need more publicity. That's all I need. Big Bird is in a way the opposite of Tinky Winky.
+
+[00:06:22] Oh, yeah. Okay. Can you work out why? Well, Tinky Winky, Giant Purple, Teletubby, famously gay, carries a handbag. TV on his stomach. Thank you. TV on his... You did all the legwork, James.
+
+[00:06:35] And Anna, Anna came in, came in at the end. I think I know Teletubbies too well because they all have TVs on their stomachs and I was going about what differentiates him from the other TV. Yeah, yeah, yeah. I'm really sorry. Teletubby, Teletubby, but it's where Tinky Winky has a TV on the outside of his stomach. Big Bird has a TV on the inside of his stomach. Really?
+
+[00:06:54] For the puppeteer to see what he's doing. Wow. Oh, that makes sense. He just needs basically... And it's below. It's a small TV monitor and he just has to look down at what is going on on the monitor to see what's going on outside. That's so...
+
+[00:07:05] Well, I found... Because I read that as well, but what I read didn't go into any more details. It said so he could see the set. And I couldn't work out whether the TV would be giving you a projection from Big Bird's eyes, in which case it had to have cameras in his eyes to turn off the TV, or you're seeing the actual set as in you're seeing yourself from like the third person. Good call. I think so.
+
+[00:07:24] And that must be difficult, right? Yeah. To know where to walk if you're seeing yourself on TV. Yeah. You'd have to invert left and right, wouldn't you? That's probably the least of your problems. I don't know, really. It's like being a ghost when you leave your own body after you die and then you look
+
+[00:07:37] back at it. Oh, yes. But then you can't... It's not like you have to control your body then, so you don't have the difficulty. That's why ghosts always walk through walls, because they don't know which way to go in and they're like, oh shit, I just walked through a wall. Just very quickly back to Kermit Love. So one of the innovations that he brought to the design of Big Bird was malting.
+
+[00:07:56] So he allowed for the feathers to drop off Big Bird, so it looked like, I don't know, like they were real feathers that could pull off, which is really, really nice. And he used 6,000 dyed feathers from a domestic white turkey, not a single one. In order to make the suit initially. Oh, the suit's made of actual turkey feathers. I think in the initial period, it's probably very different now. Kermit Love, he usually spoke with a fake English accent, sometimes with a fake French accent.
+
+[00:08:25] I do the fake English accent thing. Like, yeah, you're actually where you're from. I'm from Guatemala. And how do they speak, normally? I can't... Well, I'm not going to give up the accent now, because it's not... He made Big Bird with a guy called Christopher Lyle, who he was in a relationship with for over 50 years.
+
+[00:08:46] So I think from before, they started making Big Bird together, right, until Kermit died in 2008. Yeah. Christopher Lyle was in the pilot for the Muppet Show. Yeah, really? So like, right at the very very start. He was right at the beginning. I looked at his IMDb because I thought, oh, what a cool guy, he seems like Christopher
+
+[00:09:01] Lyle. And it led me to a fact that I didn't know, which is there were two pilots for the Muppet Show. So one, very kid-friendly. The second pilot was called the Muppet Show, Sex and Violence. I was the second ever Muppet pilot. Did you see what it was about? I couldn't find too much information on it, actually.
+
+[00:09:18] Well, it was a parody of the fact that there was starting to get lots of sex and violence on television, so people were complaining. And so they were parodying lots of different things that were happening on TV at the time. Okay, right. So it's not fully... It wasn't... Yeah. Still on a sex-and-violence.
+
+[00:09:33] Still sounds like it's not for six-year-olds. Big Bird wasn't banging Mr. Snumpluffers. Yeah, exactly. That's what I'd expect. The other thing is how physically injurious it is to be a Muppeteer. Oh, really? Yeah, yeah. And this is partly because of something, oh, oh, I've got another quiz link.
+
+[00:09:50] Why did you just interrupt yourself? Yeah. It's gonna be very hard to edit around that. You're absolutely right. What's the quiz link? What you need to know... So, what were you... I feel like we've missed a lot of steps in your head for that.
+
+[00:10:03] You need to calm down. No, I'm so excited to be talking about Muppets. I love the Muppets so much. Do you? There's one link between Muppets and something that we covered recently, which is Disneyland, when Jamie was on the convention of Disneyland, right? And there's a link between Disneyland and the world of the Muppets. And the world of the Muppets.
+
+[00:10:18] Yeah, yeah, yeah. I prefer that you don't mention shows when I wasn't there. Oh! Is it something about the acknowledgement of characters in real life, you have to talk to them as if they're real? No, no, that's not it. I think you said... You started off that sentence before you had a stroke and you were talking about the
+
+[00:10:31] Puppeteers. Yes. So, it's something to do with the Puppeteers. Something to do with the Puppeteers, yeah. Oh, okay. Tunnels. I'm going to say that's it. Muppet Filming Land is actually on the first floor.
+
+[00:10:42] It's about eight feet above the ground so that the Puppeteers can stand upright. But the problem is, some of the Puppeteers are quite short, so then they need to wear platform shoes to get them up to the level that they've been brought up to. And this brings me back to the point about Puppeteers also being physically injured, so the guy who plays Gonzo the Great, he's still going, actually. He's had to have four shoulder operations just due to holding up your hand all the time and doing a hip replacement and, you know, your crimp. The sacrifice people make is heroic.
+
+[00:11:10] It is. Guys, when you're operating a Muppet mouth, imagine you're doing that with your arm up it. Show me what you do. I know you can't see this at home, but you've all got it wrong. You're choking. Whatever you are doing at home, we reckon that's probably wrong as well. I think it's unlikely you've got it right at home.
+
+[00:11:26] I'm doing a mouth with my hand. We all are. But the key is, is that how mouths move, guys? What bit of your mouth do you move when you're talking? Your lips. Which lip? Is it the bottom? It's only your bottom.
+
+[00:11:37] So you say you move only the bottom? You move only your thumb. This is what one of the operators said, I was watching an interview with him, he said, you've got to keep your top of your hand still and you move only your thumb. That's a good swear. Hello, I'm Amaya. Yeah, that does not work. It's Pac-Man.
+
+[00:11:53] That's how Pac-Man moves, right? Does Pac-Man have, yes, he uses the two to upper. Because Pac-Man's going, yeah, yeah. We've got an aerial view, most likely, of Pac-Man's hand. Well, I see sideways. Yeah, it doesn't make any sense. We're about to play this thing wider. Is he grinding along the floor?
+
+[00:12:06] If we've got an aerial view, he's just on the floor sideways, isn't he? Yeah, but he's a disembodied head, right? He's not human. It's sideways. We shouldn't be able to see anything of his mouth movement from above. He should just be a circle. Yeah. No, unless he's from a species with a sideways mouth.
+
+[00:12:18] What are you talking about? Oh, you think he has a mouth on the side of his head? Possibly. He's an alien. He's an alien. Well, he's an alien. He's not a human. A man implies human.
+
+[00:12:27] No, sorry. In later illustrations, he has legs, shoes, arms, and gloves. So, yeah. Like the M&Ms. Like the Cartoon M&Ms. Yeah, more like M&Ms. Just like that. Also wearing gloves.
+
+[00:12:38] Same universe? Same. Clearly they're related. Wait, am I thinking of the yellow M&M? Oh, bloody hell, Dan. You are, aren't you? It might be. No, I'm pretty sure Pac-Man has legs.
+
+[00:12:48] They did cartoons as well of Pac-Man. Yeah. M&M 90s. I didn't know that. Do they have to have the gloves? Because it's weird seeing his hands. Gloves are kind of effectively at sort of... Well, the same as Mickey Mouse, right?
+
+[00:12:59] Yeah. Why do you have gloves? Why are all these... He's always at a crime scene. He's a snooker referee in his spare time. Mickey Mouse isn't here. Oh, boy! What a shot!
+
+[00:13:10] That's not what referees do. They're not hype men. Get on your man! OK, it is time for fact number two and that is Andy. My fact is that the German army has just had to tear out some of the size labels from their new uniforms because they read small short or SS. Yeah. Oversight.
+
+[00:13:39] Yeah. Small short people in the German army? Well, not that many, but one is too many to have the SS label in their clothes. I agree. So, yeah, most of them were small, medium, large, and extra large, and that's fine, but the SS stands for the Schuttstaffel, who are the Nazi paramilitary organization,
+
+[00:13:57] who largely run the Holocaust, and it is literally illegal to display their symbols in Germany. Yeah. So the German defense ministry had ordered the soldiers to tear out the SS lettering. I don't... I mean, they weren't on display either. No, no, no. It was literally just a size label inside.
+
+[00:14:11] Unless you're wearing it inside out, which often, if you get up in the dark, put your clothes on, that's suddenly on display. I think that's an offence on the parade ground though to have your uniform inside out. I don't know much about military discipline, but I imagine...
+
+[00:14:20] I imagine they say, get down and give me 10 if you do that. Yeah, pretty sure. They said if you cut it out, that's one thing, but if it's got important information on it, what you should do is cut around the SS, so just lose the actual... They didn't say that.
+
+[00:14:33] Yeah, yeah, yeah. Did they? So it's still the shape of an S and an S. What important information is going on? Well, the washing instructions. Yeah. You know, what if you accidentally put it in at 16? I don't know what's ever read those on any item of clothing.
+
+[00:14:47] Oh, excuse me, Anna. Strong, isn't it? It's my regular reading. Regular reading. You're getting a shirt. Oh, I can't wait to read this. Can I ask, what is the German for small shorts? Presumably it's SS in German.
+
+[00:15:01] Well, that would be KK, which is Clyde Clyde. So how come... Is it English? I think the supplier would have been English language, and that's why it was a problem. KK is still... What isn't it? Because you do feel...
+
+[00:15:13] You sense that lingering third K. If you're a really, really small soldier, and you're a KKK, that is a problem. I didn't realize that, though, about the SS being a combination of words that is banned in a certain place. Like, one of the things which was in the article that you sent around, Andy,
+
+[00:15:28] was that SS on number plates is not allowed in most spots in Germany. So, yes, you can't have SS. You can't have KZ, because that references concentration camps. You can't have HJ, because that's the Hitler Youth. You can't have... Yeah, because there are German words.
+
+[00:15:43] Yeah, it doesn't sound like it makes sense. But HJ is also a rude thing. I like handjobby thinking. What's handjobby in German, though? Actually testing my GCSE German now. I actually didn't come up either in the... Not in the aural. I found some German military uniforms
+
+[00:16:02] which are literally made of cardboard, which is an interesting thing. And it's not in Germany. It's in Namibia, which was a German colony, after the First World War. And there is a group of people living there, the Herrero tribe.
+
+[00:16:15] And I think, though, like a lot of colonised people, treated pretty badly. Genocide, I believe. Right. Yeah, all the way. All the way to genocide. One of the worst ways to be treated.
+
+[00:16:25] Yes. Well, the Herrero people now wear a lot of Edwardian Europeans, specifically German clothing, for traditional rituals and for special days and things like that. So, if you go to a Herrero funeral, the women will be wearing Edwardian dresses
+
+[00:16:41] that were popular in Germany in 1910. And the men will be wearing uniforms that are some of them made of cardboard because they've been replicated to be exactly like the fashions of that time. And it's really similar to the Bolivian Cholitas that we talked about a few weeks ago. And also, it was the women who adopted this first.
+
+[00:16:58] By some way, I think they adopted the European style of dress. But then, much like the Cholitas, they made it much more full of bright colours like the clothes that they wore. So, yeah, they've got these beautiful hybrid Edwardian dresses and with these colourful colours on them.
+
+[00:17:14] That's awesome. Germany gave Namibia $1.35 billion in a couple of years ago, I think it was. I just thought that was very interesting when people talk about compensating. In compensation, they said this was a genocide and his $1.5 billion to develop. So, 1.35.
+
+[00:17:29] I wonder what you get in the Herrero embassy whenever you go there. Wait, I don't get it. So, what do you get when you're at an embassy party? There's someone going around with a tray. I get it, I get it. It's a quality stream. Have we mentioned this about French military uniforms
+
+[00:17:51] and Napoleon and the baguette? Yeah, supposedly the baguette was invented so you could hide it in your browser. That's right, yeah, we have talked about that. Hiding down the inside. So it would just fit in the trouser pockets of the army uniform. I just couldn't remember if we'd...
+
+[00:18:05] Can I just say, well, we're talking about Napoleon and we might not keep all this in anyway because we have mentioned it before, but this morning I was reading a book about cannibalism and there was a nursery rhyme in it and apparently it was a genuine nursery rhyme. Baby, baby, naughty baby, hush you squalling thing, I say.
+
+[00:18:23] Peace this moment, peace, or maybe bonaparte will pass this way. And he'll beat you, beat you, beat you, and he'll beat you all to pop and he'll eat you, eat you, eat you, every morsel, snap, snap, snap. I'm not sure about this bedtime story you're reading to your daughter.
+
+[00:18:41] And I'll be appearing on CBVs tomorrow evening for the bedtime story. So yeah, they made the uniform so you could put a baguette in your pocket and then you could always do the joke, is that a gun in your pocket or what? I was just hungry. It's a sandwich, yeah.
+
+[00:18:56] Have you read about how modern military uniforms in America are progressing at the moment? No. They're turning them basically into computers, which means that anything that happens on your outfit can be reported back to base. So if you're shot, your suit will know with a spot because it can sense a change.
+
+[00:19:14] That's clever. Are the computers good enough that they can, if the soldier's been shot, can the computer make the soldier keep running, basically? Not yet. See, that's like a Robocop. Yeah, we haven't got to Robocop yet. But it can tell GPS,
+
+[00:19:26] it can tell literally the liquid level of how much heat you're exerting and if you're in trouble or whatever. It's just got all the information, all the data's now being collected. Yeah, nice. I don't know if they can send it right back overseas, I think. I think if you can send it over the internet
+
+[00:19:42] from one place to another, it could probably go all the way around the world. That's not how the internet works, though. We have long cables. Everyone's attached to the Pentagon with a massive cable. It's like a dolly. Pull them out, pull them out, because someone literally pulls them all out.
+
+[00:19:58] I don't know how reassuring it is if someone says to you, here's your suit, and the good thing is, when you get shot multiple times in the chest, we'll have a computer back home that knows exactly where you've been shot. Because there's a thing called the golden hour after a soldier's been injured, which is the time to really, you know,
+
+[00:20:13] where you're most likely to save their life. And there's also a thing, I think, called something like the platinum five minutes, which is even more, you know, you can do absolutely the most help to save their life. And there's the diamond five seconds, where you just put your arm and pull the bullet out, and it's like, nothing happened.
+
+[00:20:29] So why do you think the SAS had so many condoms in the first Gulf War? Okay. Is it to do with burns? Only because we were once told to bring condoms to stop burning, but Dan's got it. It's water. It's water.
+
+[00:20:46] Yep. They took loads of condoms because they can hold about a liter of water each. And if you're on the run, it's very useful. If you pass a stream, quickly fill up your condoms with water. You've got a liter of water there. We'll taste quite spermicide-y.
+
+[00:20:56] It might be one of the strawberry ones. Might get lucky. So that kind of led me onto this. In 1991, the British Army ordered half a million bespoke camouflage condoms. That's a great idea. Can you tell me why? Well...
+
+[00:21:16] Sand coloured. Oh, sand coloured. For the Gulf War, that was the... If you forget to do up your flies after you've been to the loo, you're always wearing camouflage condoms, so it doesn't matter. You lie down in the sand with only your penis stick out,
+
+[00:21:29] but you don't want anyone to shoot it. So you have to cover it in a condom. It's the periscope. It's the... Yeah, yeah. Right. It's for the rifles. To cover the rifles,
+
+[00:21:39] to stop any water getting in. Yeah, and sand in the tip. It can be seriously debilitating if you're firing a rifle. At the end of World War I, in New York City, they had a tower of 12,000 pickle halbers, which are those kind of helmets
+
+[00:21:57] with a spike on top, you know, like German helmets. It was like a victory parade. They got a massive pyramid of these helmets in the middle of New York, and then they sold them off. But the idea was, look, we've won the war,
+
+[00:22:09] and we've got all these trophies and whatever. Now, the thing is that the Germans didn't really use these helmets. They used them in the 19th century, but then they were really phased out during the start of the 20th century, and they were completely replaced in 1916 by steel helmets,
+
+[00:22:26] because they're made of leather, the ones with the spike on. They don't help you really in any way. And they're conspicuous as well, if you're in a trench, and you can see a spike moving back and forth. Yeah, they're no use. They were replaced by steel helmets,
+
+[00:22:38] but they had all these old ones, so they put them in an old warehouse, and then the Americans captured the warehouse, took all the helmets out, and then showed them as these are our spoils of war, as if they'd taken them from the soldiers, but they didn't take them from an old thing. And the reason you had the spike is because
+
+[00:22:53] it's from the older days you might have a big plume on the side, like a ceremonial helmet, and that was kind of the spike would hold the plume. I was wondering if it was the old Ben Franklin lightning rod hat. I didn't realize. Loads of other armies have them.
+
+[00:23:08] Oh, yeah. Today they have them. Yeah, so the British household cavalry used to have a spike. The US Marine Corps, Russian, Swedish. All for plume purposes. Is that the... I think almost all.
+
+[00:23:18] Yeah. But the Prussian army had changed theirs in 1844. They ended in a ball, because people kept on sort of injuring their horses or damaging equipment or whatever. Because then they think with the lightning rods was you had the spike versus the ball as well, didn't you?
+
+[00:23:32] Oh, yeah. And maybe lightning kept happening exactly. Yeah. Interesting. Yeah, today I think ceremonially only, but you would see them in South America, I think, or the Romanian army, maybe. Oh, back in Guatemala, the Tenerpene.
+
+[00:23:48] I see them every day. Have you guys ever seen the Landsknecht mercenaries, pictures of drawings of these? Not sure. These were Germans who fought between the 1400s and the 1600s. They made up the majority of the Holy Roman Empire. They were like the elite fighting force.
+
+[00:24:06] So they were using mostly pikes and crossbows, but they also used these things called zvi henders, which were swords that were way taller than the soldier himself. So they looked like they're carrying... I mean, you have to carry them over your shoulder, and it looks ridiculous. That's the point.
+
+[00:24:22] It must have been way too heavy to wield, for me. I know. I think the idea was you could basically get at your enemy, because your sword was longer, but I think it wasn't that practical in the end. You could think in the really early days of warfare, when all you had was a sword, having a slightly longer sword
+
+[00:24:37] than your enemy would be an advantage. Yeah, yeah, and then it's an arms race. Eventually, you got a mile-long sword. That was what the arms were. It's not so sweet. Back in the day, the arms race was just adding a centimeter to your arm. You breed soldiers with super long arms,
+
+[00:24:52] of actually, you know, Mr. Tickle in his time was a ferocious warrior. He had to donate sperm every month, didn't he, for this new legion. He was very good at donating sperm. It was very easy for him, obviously. I would think it would be quite awkward, if you're Mr. Tickle,
+
+[00:25:09] because it's easy to reach things a long way from you, but your own penis is so... I don't think we've got any data about Mr. Tickle's penis, though. Was it, you know, is everything that long and tickly? Okay, it is time for fact number three, and that is my fact.
+
+[00:25:29] My fact is that in 2015, the actor Vicky McClure was kicked off the Vicky McClure tram for not having a ticket. So... I think she shouldn't have to have a ticket if the tram's named after her. It turned out she didn't need to have a tram ticket. Just the ticket inspector didn't realize that
+
+[00:25:45] and kicked her off for their evasion. So Nottingham is where this tram is, and it's the Nottingham Express transit, and they have a lot of trams that have a lot of local hero names on it. Vicky McClure and... Who is she, sorry? She's... Oh, yeah, sorry.
+
+[00:26:00] So Vicky McClure is an actor. You might have seen her in Line of Duty. You might have seen her in The Replacement. You might have seen her... She's replaced with Bus Chatting? She's a very big British actor. She's a big deal. Yeah, huge deal.
+
+[00:26:15] And yeah, so in 2015, she was offered this for it to be named after her. She accepted it. She's very excited. She brought her mother along to the ceremony. She sort of officially unveiled it, got onto the tram for the inaugural ride, and then the conductor said,
+
+[00:26:30] what is your ticket? And then she said, well, I don't have one. I'm Vicky McClure. And he said, yeah, yeah, we're all Vicky McClure. Get off. Yeah.
+
+[00:26:38] Nottingham has a lot of trams named after people. There's a lot of them. There's a lot of them. So I'm going to say a few names. Martin Polyakov, scientist. Yes. Big deal scientist.
+
+[00:26:47] D.H. Lawrence. Yeah. Sex writer. Cricketer Stewart Broad. Yeah. Torvillian Dean. I don't know if that's one tram or two, actually. It's one.
+
+[00:26:57] Shame. Who gets the front half trams? Trams. Okay. Did you know that there's an annual tram bowling competition every year? We sure did.
+
+[00:27:08] But tell us pretty exciting. So every year there is the European tram driver competition, which is a competition which sees tram drivers from all over Europe gathering together to compete against each other to find the greatest tram driver of all. They do things like trams, billiards. They do tram bowling.
+
+[00:27:23] So tram bowling would be you've got giant pins that are at the end of a little track and you've got a tram racing down and two people are holding the ball and it nudges the ball. And it's a huge inflatable ball. It's not your average bowling ball. No.
+
+[00:27:36] I think what's interesting is that's quite obvious what that would be. But tram billiards on the other hand. Good point. Which you haven't explained. No. Tram billiards. I couldn't tell you what tram billiards is.
+
+[00:27:47] Tram billiards doesn't bid that much relation to actual billiards. Okay. But it looks like a really boring spectator sport. It is where a tram goes very slowly and cautiously towards a table
+
+[00:27:59] which has got lots of scores written on it and coming out of the table is kind of a channel with a little ball at the end and the tram nudges into the channel and knocks the ball onto the table and whatever score the ball lands on. Oh. So it's shuffleboard.
+
+[00:28:13] Shuffleboard. Shuffleboard. Yeah, yeah, yeah. Like that. But there are more exciting events than that. Even more exciting. There's stopping within 20 centimetres
+
+[00:28:21] of a cone without hitting it. Yeah. That's good. What does that entail? Accelerate to exactly 30 kilometres an hour without a speedometer. That's pretty good. How do they remove the speedometer from...
+
+[00:28:35] I don't know. It sounds like quite a technical thing. I think you put some black masking tape over it or something. That's not what it says. It says without the speedometer. Yeah, yeah. They have to commission hundreds of new trams
+
+[00:28:45] every year for this. It's the most expensive sport in Europe. Yeah. So trams. When I was reading about this, I realised trams were much more revolutionary than I had realised. And I think we say that a lot,
+
+[00:28:57] but it is true. So they were the way that you got around for about 100 years. They still are in some places. But there wasn't other options. Or there weren't many other options. So they took over from horse and carts, really.
+
+[00:29:12] So the first trams were horse drawn, of course. The first horse car was 1807, the Swansea and Mumbles Railway. So those are... Just to be clear on what a tram is, it's on tracks, but it shares space with the road at some points.
+
+[00:29:23] Yes, yes. Whereas the train is on tracks, but it has its own complete space. Yeah, exactly. Yeah, yeah. So the Swansea and Mumbles Railway actually was commissioned in 1804 and just carried goods and freight.
+
+[00:29:34] And lots of kids used to hitch rides on it to get from Swansea to Mumbles. And so they thought, well, maybe we should make this a passenger thing. And so that became the first passenger one. And then there were sort of no other trams for about 50 years. And then George Train came along.
+
+[00:29:48] George Train bluntly named George Train. He went into trams. And he made one in Birkenhead. And he invited all the crowned heads of Europe to the ground opening and none of them came. Oh, really? Wow. It's Birkenhead.
+
+[00:30:04] It's quite hard to get to anyway. Okay, fair enough. But we've invited all the crowned heads of Europe to our Christmas show, which is coming up in a few days at time of recording. I think they will be there. Yeah, yeah, yeah. And he founded the football team,
+
+[00:30:14] didn't he? Train Merovers. Brilliant. Birkenhead joke. Amazing. What was it? That's where Tran Mere from Birkenhead. I've got to be honest.
+
+[00:30:23] Okay. I did not intend that. That is an extraordinary coincidence. Well done. Because it was such a shockingly bad joke that I thought there must have been something next to that. So did I.
+
+[00:30:34] Wow. And there was. So James did all the work to make that work. That's great. Yeah, yeah, yeah. Amazing. And then he started one in London, George Train.
+
+[00:30:42] Yeah. Went from Marble Arch to Bayswater. And it was very popular. Lots of people used it. People lived nearby. Because there were lots of really, really posh houses around there. And anyone who lived there had to
+
+[00:30:52] cross over the line to get to Hyde Park. They were just walking across. Now they had to get past the tram line. And people would just smash it up. The tram lines were raised, weren't they? And it was a complete pain in the bum to walk around. Yeah, yeah, yeah.
+
+[00:31:04] To walk over and all of this. Yeah, yeah. In 1952, all the trams were, all the final trams left London. And the tracks were torn up and all of this. And this is a cool thing. The final journey of the trams went from London to New Cross.
+
+[00:31:16] And it took three extra hours to normal. Because of the crowds cheering it along the way. And the driver of the final tram. This is so nice. It was a guy called John Cliff, who was the deputy chairman of London Transport. And he had started his career as a tram driver 52 years before.
+
+[00:31:33] And he got to drive the final one. Which is just like that. You know that Fraser thing? No. So in the first episode, someone brings in Martin's horrible chair. Right. And when Fraser's dad is moving in.
+
+[00:31:45] And then in the final ever episode, 11 years later, that someone, a removal man comes in to take a chair away. Right. And it's the same removal man. Really? And that's the best example you could think of
+
+[00:31:55] of someone going through their whole career doing that. Well, it's the most relatable one, isn't it? We all know it. It's going to be understood. All our audience. Judge Train was later declared a lunatic and arrested for reading the scripture in support of Victoria Woodhull, the suffragette.
+
+[00:32:10] When trams went electric, so that was a huge step. They were horse drawn for ages. Was it accepted or was it like Dylan going electric? People prefer the acoustic trams for a long time. They, yeah, they went electric in Britain in the sort of 1880s and 1890s. And so now we tend to have trams with the cables above,
+
+[00:32:32] but they used to be under the ground. That was a bit of an issue because then the rails would be electrified. So if you stepped on them, that was a problem. So they had this cool system called contact studs, which is where basically along the tram rail, you'd have these big metal studs and they were connected to an electricity supply underground,
+
+[00:32:53] but they would be switched off and they would be triggered to switch on when the tram ran over them by a magnet on the tram. Brilliant. It sounds brilliant. They're really unreliable and they often stayed live. So what you had to do with the contact studs was employ street urchins often to go and stand on the rails
+
+[00:33:12] and say, look, we think this is not live anymore, but could you just step on that rail? Are you joking? No. This is a complicated electrical job. We need an urchin to do it. No, no, because they were just testing it. They were literally there to see if they got electrified.
+
+[00:33:26] And how badly would they be electrified? Pretty bad. Like horses would sometimes leap up and then drop down stone dead. Why didn't they use a horse? Yeah, they should have used a horse. That would have worked. Terrific.
+
+[00:33:38] Yeah, it's pretty bad. I would say I grew up near Manchester and they have trams there and I was always worried that they might be electrified and didn't want to stand on the tracks. They were. I'd see so many urchins go up. Can I tell you one cool thing about tram design? I don't need to guess why it exists.
+
+[00:33:56] So they would have spiral, old trams would have spiral staircases. So you'd get up to the top level. I've been on one. Yep. And you've got a driver. That's my clue. The driver.
+
+[00:34:06] Is the driver on the top like an old horse and cart? No, he's at the bottom. And there was one step on the spiral that's full of little holes. Why do you think it's full of little holes? Did he have shoes which he could click in like a Lego, piece of Lego. Very clever.
+
+[00:34:24] And then he stuck fast and he wouldn't fall over when it went round the corner. But if he's driving, is that for the conductor, for example? I was thinking conductors. It's related to the conductor. But it's about if the conductor is a pervert. Oh, what? You were so excited.
+
+[00:34:40] I don't know, but I just thought of the spiral staircase looking up women's skirts. You bang on. Oh. So this was, well, you're sort of there, if I'd asked you a follow-up question. Basically the holes are there because the driver
+
+[00:34:53] needs to be able to see over his left shoulder and the stairs block his view unless you put holes in. So there were holes in one step so he could look over his left shoulder. But they always came with a screen that you could pull down. And that was because if the tram's going the other way
+
+[00:35:08] and the conductor's at the stairs end, he can look through the holes at ladies' ankles. Ankles. Oh, no. Ankles. They're even worse than up the skirts in those days. Yeah, yeah.
+
+[00:35:19] I wonder if, you know, if you're an urchin. Yeah. And they wanted you to kind of stand on this electrical thing. Do you think they tricked you by saying, do you want to be a conductor? We'll just stand on these. OK, it is time for our final fact of the show, and that is James.
+
+[00:35:42] OK, my fact this week is that because nobody can decide where it was invented, there's currently a split in the banana splits world. Brilliant. Some people say Croatia, don't they? Yes. Nice. There was also the banana Zagreb.
+
+[00:35:59] The Brovnik. No. So, yeah, two places in America, basically. In fact, we might come on to that. There was also a third pretender, but mainly two places in America, a place called Wilmington, Ohio, and Latrobe, Pennsylvania.
+
+[00:36:15] And Wilmington say that it was invented by a guy called E.R. Hazard, who supposedly came up with banana splits, which is basically you take a banana, you split it in half, you put ice cream in the middle of it. He supposedly invented it to attract students to his shop,
+
+[00:36:31] but they reckon that he did it in something like 1907 or 1908, and yet there is a lot of evidence that they existed before that. So, no one's having a go at Wilmington or anything, but it seems very unlikely that they are the real ones. You're taking a side here. You think it was the other one?
+
+[00:36:48] I actually think that possibly it was neither, but certainly on these two, I think Latrobe, Pennsylvania definitely has the better claim because they have evidence that there was a guy called David Strickler, sometimes William Strickler. Different newspaper articles have different names, but he definitely was making them around 1904, 1905.
+
+[00:37:08] We have evidence that he was buying these banana-shaped glass things. I wonder if we know something, because Strickler is really celebrated there. Why do we not know his first name? I think we probably do, and I think one person made a mistake, and then that mistake has kind of gone through.
+
+[00:37:23] If you look, in fact, even like newspaper articles relatively close to the time, some of them call him William, and some of them call him David, it's so weird. Are they split over what his first name is? Yeah, so I've read that basically, he'd made a special boat-shaped dish. He'd commissioned these glass-shaped dishes,
+
+[00:37:41] but that no one has actually got a receipt that that hasn't turned up. But maybe I'm sure there are contemporary reports. I know for a fact that they were being sold close by in 1905. So I found some newspaper adverts, one in Harrisburg, Pennsylvania, which is fairly close to La Trobe, it was about 100 miles away.
+
+[00:38:01] They were selling them in 1906, which was a year before they were supposedly invented in Wilmington. Some from 1904, 1905, 1906, you can see they start popping up in newspapers as being advertised. Is it not possible? You know, with all great scientific discoveries,
+
+[00:38:17] or a lot of them, society as a whole has progressed to a certain place where it's inevitable that individuals come up with things simultaneously, and they'll be on the other side of the world. And is it possible that... This is morphic resonance. This is all cheap rolling across
+
+[00:38:32] cattle grids around the planet. So like the Dennis the Menace thing of when they were individually invented. It's not like that at all. This is the same banana pudding that we're talking about. It is kind of the same. So the Dennis the Menace thing, there had recently been a song called
+
+[00:38:44] Dennis the Menace, right? It was like a music whole song, and kind of people came up with these characters probably influenced by that. In America, in the late 19th century, they started importing bananas from different countries, and they started selling them, so that was really big.
+
+[00:38:58] They'd also started making ice cream more regularly because they had much better ways of making ice cream. So ice cream was new, bananas was new. It was the time for banana splits to be invented. It's not rocket science, just merging them together. Apology accepted, is he? I don't think I've ever had a banana split.
+
+[00:39:18] Have you not? No, I've never had one. You're not missing out. I'd never choose one. It's one of the least good puddings. Yeah, but as a child, you must have been given them because it's a way to make you eat bananas.
+
+[00:39:29] I read that in the UK, they're known as the banana longboat, which I like as well. I've never heard that. Me neither. I think it was only in Wimpy, in the restaurant chain Wimpy. There was one other thing that I mentioned earlier.
+
+[00:39:41] The Solder Fountain magazine reckoned that the banana split was invented in Boston. There was an ice cream convention in 1905, and there was a guy called Stinson Thomas who supposedly invented it, but Boston has since ceded its title to this place in Pennsylvania. Very noble of Boston.
+
+[00:40:02] There was even a claim I read that it was invented by someone called Letty Lally in 1904. I read this is a claim that she'd invented the banana split, and people were claiming this back in the 50s, but historians have since concluded, so don't panic at Wilmington Road,
+
+[00:40:18] that she actually invented the banana royale, which I was not familiar with, but it's like a crap banana split where you chop the banana the wrong way. You chop the banana across the waist rather than dissecting it top to bottom. Yeah, but multiple times, like waist, neck, knees.
+
+[00:40:34] And you put ice cream in it still. Yeah, you put ice cream. Otherwise, it's just a chopped banana. It seems pointless, right? Yeah, it just seems mad. We love inventing words. I know, but you're not going to be in a restaurant going, I see banana split on the menu.
+
+[00:40:48] Do you do banana royale? I'm sorry, the chef can't do that. We don't have the crockery for it. I'm so sorry. That reminds me of one. So that could be the case if your bananas come ready split, couldn't it? Do you know what I mean?
+
+[00:41:02] So I used to work in a restaurant, and we used to have scrambled eggs that came in a carton. And so we would make scrambled eggs in the morning because you didn't have to scramble them yourself. They came ready scrambled. But then people would come in and say, can I have a bile egg instead?
+
+[00:41:16] And you'd have to say, we don't have any eggs. And they're like, well, what's this in front of you? That's so funny. There's another variant of it. Have you heard of the human banana split? Oh, disgusting. You cut a human in half. That's correct.
+
+[00:41:30] Oh, I know what you're doing here. What? Is it the fact that we share 60% of our DNA with bananas? No, you've made a huge reach from the fact that I make huge reaches all the time. But that makes us a literal banana split, doesn't it? No, it doesn't. It doesn't.
+
+[00:41:44] I was the one who did that. Not unless you were to clone a human and a banana together. That was the original draft of Jeff Goldblum's The Fly. A banana gets thrown into the machine at the last minute, and it comes out in a banana costume. No, this is, it's a practice more than a dessert. It's where some people throw bananas at you and then other people pour whipped cream and chocolate over you.
+
+[00:42:04] And it's kind of a... Is it a sex thing? No, not at all. It's more of a prank than a... I've only found evidence of it happening twice. It feels like an only-fans kind of thing, doesn't it? I'm sure it will be, like, within half an hour of the show going out. Yeah, yeah, yeah.
+
+[00:42:18] We'll have hundreds of thousands of people watching. Once it happened to some guy who was raising money for charity, they sort of said, I'll send the videos of your human banana split being made, and another time it was Gordon Ramsay having to go, having to him. It's not, so it's not like a franchise yet, is it? It hasn't become a universally known banana. It's not as popular as the banana split.
+
+[00:42:39] No, no. I don't think it will be. I think the reason they came about was really because of the popularity of soda fountains, right? Which is such an American thing that we don't really have. And they were basically there because people would go to the drug store and they wanted to cure stuff that they had, and people believed at the time that carbonated water...
+
+[00:43:02] Yeah, I'm just slipping in and out. I'm slipping in and out. Just like Andy's from Guatemala and it's from Boston. I've got some Bostonian blood. People would go to the pharmacy and they had these fountains, which would give them fizzy water, which people thought was very curative at the time. Like Coca-Cola was a curative thing, wasn't it?
+
+[00:43:22] Yeah, yeah, so they'd mix it up by giving them flavours and the Coca-Cola and stuff, and then they'd start adding stuff to these to make them more appealing, and that's where the Sundays came about, and that's where the banana split came about, and that's why Strickler was a pharmacist, because he worked in a pharmacy, and he thought, how do I get more people to my soda fountains?
+
+[00:43:42] He was a jerk, wasn't he? He was a jerk. Yeah, a soda jerk. That's what they called them, soda jerks. Apparently it was a pun on the word clerk, clerk. So someone who works in a pharmacy might be a clerk, and then your guy who was jerking down the handle to make the ice cream, he would be jerking that down so he would be a soda jerk.
+
+[00:44:07] I didn't know anything about soda fountains and soda jerks. We've seen them in a couple of films and things like this, but there are so many, yeah, like Pepsi and Coca-Cola were the next stage where you got pre-made syrup, because before that everyone had their own recipes and individual soda jerks would have their own things. Cocaine was legal in these until about 1914? Yeah, often you just drop some cocaine in when you need the soda.
+
+[00:44:31] Like cocktails, weren't they really? That was a golden age of crazy different recipes before the more uniform, really popular big drinks came in. It's like the Cambrian explosion of ice cream. Yeah, on a slightly smaller time frame. That's the thing which happened in the Tree of Life, isn't it? I'm only vaguely aware of the Cambrian explosion. I just know a lot of animals came with lots of weird arms
+
+[00:44:56] coming off their heads and stuff. It was exactly like that. What animals have arms coming off their heads? Unsuccessful ones. OK, OK, the ones that died out. Do you want to hear a few that have died out? Yeah, these are the ice creams. These are ice creams and ice cream-y drinks.
+
+[00:45:13] So the black cow was... Milk? Ice cream? I'll give you that. Guinness. Chocolate syrup and root beer. Pretty close. Yeah. That sounds good.
+
+[00:45:25] Twist it, choke it and make it cackle. Well, I'd rather do it after the show. Twist it, choke it and make it cackle. Yeah. You had to kill your own chicken and then they put that in. Well, you had to put an egg in it. So, cackle. OK, but there were also, for the winter, there were hot sodas.
+
+[00:45:44] Because obviously, selling cold, icy sodas is very unpopular in the winter time. So they invented a load of hot drinks to go with these machines. So there was hot eggnog, hot mint juleps, and if you guys get any of the ingredients of this, I'll give you a big smile at face. You almost went for a thousand points. It's a thousand.
+
+[00:46:03] But it's like, oh, I can't give them a thousand imaginary points. Oh, points? I thought pounds. I was hearing pounds. I wavered between points of pounds and thought I don't want to give either away. The reeking smash. The reeking smash.
+
+[00:46:16] What are the ingredients? Spinach. No. Reek. So, kimchi. Oh, classic. 1950s. Yeah.
+
+[00:46:26] Korean import export. OK, the reeking smash. This sounds like the worst drink I could possibly imagine. Water, some kind of water. I'm not going to give you that. Clam juice, cream and ginger. Clam juice, cream and ginger. It's just so close with cinnamon.
+
+[00:46:44] It just sounds absurd. That's right. Yeah, that's not a good combination. Yeah. It's so weird to think why Coca-Cola took off in an environment where you could get a nice reeking smash. Imagine if we were all drinking reeking smash now. Just very quickly.
+
+[00:46:57] I was looking into other kinds of banana splits. And one that I'd not actually ever heard of was a Hannah Barbera cartoon. We were talking about... The banana splits. The banana splits. Yeah. It's kind of like Pass Me By.
+
+[00:47:12] I mean, it didn't last too long. It was 1968 to 1970. There was a syndication that went on a bit later. Can I just say also I wasn't alive in those years. They did repeat it quite a bit. Yeah, yeah. It was syndicated from 70 to 82, but obviously it's been on TV ever since
+
+[00:47:27] and who knows in this country when. But it was cancelled. So they made a movie in 2019, the banana splits movie. And it's amazing because this was a kids TV show. The plot line of this movie is that the banana splits are in studio and they're recording their show where they discovered they were about to be cancelled.
+
+[00:47:46] The movie is about the murder spree that the banana splits go on killing everyone inside the studio because they're furious about the upcoming cancellation. Are they actually banana splits? I don't know how they would murder anyone. What are they? Huge sort of bear...
+
+[00:48:00] Were they bears? Yeah, they were like... They were like big animals. Big animals. Exactly. He played in a band. It sounds like Alpha Papa. Yeah, it does sound like that.
+
+[00:48:09] Which is an amazingly good film. I've seen that. But yeah, it was rated R, I believe. Wow. So a lot of people were furious because their childhood classic could come back and, you know, they couldn't take their kids to it.
+
+[00:48:20] Turn into scream. Yeah, exactly. You know when Bob Barley was accused of plagiarizing that? That TV show? Yeah, he was accused of plagiarizing it for Buffalo Soldier and it's the bit in the theme tune
+
+[00:48:33] that says tralalala... Tralalala... Tralalala... Tralalala... Tralalala... Oh my days. Oh, and...
+
+[00:48:41] That's the banana splits. I don't know anything about... Who do you say, Bob Dylan? Bob Barley. Bob Barley. I don't know anything about Barley's songs. Buffalo Soldier. Well, obviously it's exactly the same tune.
+
+[00:48:51] I mean, it's a very simple tune and it's almost certainly didn't plagiarize it and he has been... Really? People who represent him have been asked about it. I mean, that sounded bang on, I gotta say. I'm on the side of the banana splits. Yeah.
+
+[00:49:04] On this one. Well, a friend of Bob said he was a very serious man and I doubt very much he had come across something like a banana split. Well, a friend of Snorkee from the banana splits asked and stole our song. I've got one final thing about Soda Fountains
+
+[00:49:18] and who killed the Soda Fountain, right? Ooh. So this is from a piece in The New York Times talking about why this declined. You know, because they were huge. They were where people socialized, they were where people hung out, they were big business as well.
+
+[00:49:30] So there's a theory it was whoever invented the driving restaurant, which then was the next huge thing. Yeah. There's a theory it was F.D. Roosevelt who repealed prohibition. There's another theory, and this is all from The New York Times piece about it.
+
+[00:49:44] There's a guy called William Painter. Okay. William Painter was the person who patented the crimped metal bottle cap. Oh. So that made it possible. Because I thought Willie Painter was the guy who invented the camouflage compound.
+
+[00:49:58] Very good. Sorry. As you were saying. What's the word, sorry? What is that? You know the crimped metal bottle cap, like on a glass bottle of Coke. Yeah.
+
+[00:50:09] That bottle cap, is metal, but it's also got this kind of, you know, like ruffles around the edge of the crimps. So that made it possible to standardize drinks. And he actually invented that in around the like the early, the first decade of the 20th century. And it meant that you could buy a thousand of them
+
+[00:50:22] and keep them in a warehouse. Exactly. Each time someone's making a new one. Exactly. Yeah. The only reason I mentioned this guy, William Painter, is because I thought I'd try and find out
+
+[00:50:31] other stuff about his life and work. Yeah. He invented a load of different things, including, and I can find no more details about this, an ejector seat for trains, brilliant. And it doesn't say whether it's for the driver or for the passengers.
+
+[00:50:42] Must be the driver. Every single passenger had. Wow. You see them flying into the air, 300 people. One last thing. Yeah. Do you know that Liz Truss's mom used to
+
+[00:50:51] regularly dress up as a banana? No. Sorry, mine does a hoot, Liz Truss is. Yeah, sorry. I'm sorry. I'm sorry. I'm sorry.
+
+[00:50:59] I'm sorry. I'm sorry. I'm sorry. I'm sorry. I'm sorry. I'm sorry. I'm sorry. I'm sorry.
+
+[00:51:07] Sorry. For any international or British listeners, Liz Truss was the person who was momentarily Prime Minister of the country a very short while ago. And she's the second most successful member of her family by the sound of things. Wow.
+
+[00:51:22] This actually came out in a book that was famously released, a book that's called Out of the Blue. Well, it was called Out of the Blue, the inside story of Liz Truss and her explosive rise to power, and it had to be retitled. Oh, yeah.
+
+[00:51:34] That book, Out of the Blue, the inside story of the unexpected rise and rapid fall of Liz Truss. But, yeah, her mum was a big campaigner for various things. So she moved to Eastern Europe in the 1970s to try out life under communism, for instance.
+
+[00:51:48] Yeah. And she wanted to promote fair trade in leads in the 1970s, and she did this by making herself a bright yellow banana costume and wandering around in it. And Liz Truss would say she'd go into the supermarket and the kids would be like,
+
+[00:52:03] that's great. So I did not bring this up. If she brought that up, yeah. I would be more. She kept saying she was from Leeds. She couldn't stop saying she went to school in Leeds. I think I'd be saying my mum used to dress
+
+[00:52:13] as her mum. Do you think you would? I think that's really on the cusp of is it going to work or is it going to ruin me? I suppose the Tory voters are not going to love the idea that she was going to live under communist
+
+[00:52:24] governments in Eastern Europe. You could leave out that part. Or entrusted in fair trade. And Liz Truss, she'd my own Margaret Thatcher, didn't she? Thatcher used to work in ice cream. So if her mum got together with Thatcher we could have had a banana split.
+
+[00:52:39] A human banana split? Yes. Oh my God. OK, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said
+
+[00:52:52] over the course of this podcast, we can all be found on our Twitter accounts. I'm on at Shriverland. James. At James Harkin. Andy. Adam.
+
+[00:53:01] And Anna. You can do my podcast at qi.com. Yep. Or you can go to our group account which is at no such thing or our website. No such thing as a fish.com. All the previous episodes are up
+
+[00:53:09] there. So do check them out. Also, bits of merch are up there if you want to get some in time for Christmas. Do it now. Otherwise, just come back here next week where we will have
+
+[00:53:17] another episode waiting for you of No Such Thing as a Fish. See you then. Goodbye. Bye.

@@ -1,0 +1,191 @@
+# No Such Thing As A Fish - No Such Thing As A Spider The Size Of A Sheep
+
+- Episode date: May 19, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-spider-the-size-of-a-sheep
+- Slug: no-such-thing-as-a-spider-the-size-of-a-sheep
+
+## Transcript
+
+[00:00:02] Welcome to another episode and no such thing as a fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I'm sitting here with Andrew Hunter Murray, Anna Chisinski and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that's my fact. My fact this week is that the Chinese government are planning on giving their national. anthem, a speed limit. So this is a plan
+
+[00:00:49] at the moment. They haven't enforced it yet. Apparently in the next month or so, a paper will be proposed to enforce this. They believe that the anthem is being abused by the people singing it. Really? Yeah, yeah. They've called it a damaging situation. They're
+
+[00:01:05] saying it's not universally respected and cherished. People are laughing when they're singing. They're singing too fast. They're singing too slow. Are they singing too furious? Yeah, they're singing. So the song is called March of the Volunteers. Right. It's originally, although anyone not volunteering will be in trouble.
+
+[00:01:25] It originally appeared in a movie soundtrack. Did it? Yeah, it was part of a movie. The movie was called... You're now not allowed to fast forward that movie anymore. Yeah, it was in a movie called Children of Troubled Times. And it was actually quite a political movie, and the song was wrote in specifically for it and what ended up happening was people started singing it and it caught on
+
+[00:01:48] more and more and people thought this would make a good anthem so it became the official anthem how are they going to deal with a laughter issue because you can still laugh at tempo you can they got any plan to well yeah yeah there's going to be you're going to get dressed down basically you'll be criticized and corrected what put in more casual clothes yeah yeah so it's like muffly day no no it's different because dressed down Friday isn't when you come in and just get told off all day. It is when I do it. But interestingly, the Chinese government,
+
+[00:02:19] they banned their own national anthem three years ago from all sorts of places. So they said you're not allowed to sing it outside major sporting events or formal diplomatic occasions. So you're not allowed to sing it at your wedding, if you want to, or at a funeral, or anywhere which has apparently an inappropriate atmosphere.
+
+[00:02:38] Right. Do weddings and funerals have particularly similar atmospheres? So Germany banned some of their own anthem, didn't they? Oh, yeah. Did they? What, you mean like a bit of the song? Yeah, they banned the first couple of verses because it was associated with the Nazi regime. And there was that really embarrassing moment.
+
+[00:03:00] I think it was last year or a couple of years ago. It was a US-Germany football match, like a friendly football match, I think. And there was an opera singer there from America called Will Kimball, who was singing as a Mark respect to the Germans, the German national anthem, but he started singing the lines that were associated only with Nazi Germany. Which are Deutsche, Deutschland, Deutsche, Uber alas.
+
+[00:03:21] Which, when you hear those words, you do think immediately of Hitler. That's the version I've been singing this whole time. Is that really not the version anymore? Yeah, you're not meant to sing that. It's in German, I didn't know. I don't know what I'm singing. It's because the only words you know really, Deutsche and Deutsche Deutschland. And Uber means
+
+[00:03:37] good, right? Good, yeah. So it sounds, until you get to that level. It sounds like quite a good lyrics, right? What's the word that tips it over? There's no word that's bad. It just means Germany, Germany overall. It's just like the fact that Hitler itself is not a bad sound, but the association now with Hitler the man made it a name you probably, hopefully won't call your child. And in the same way, the National Anthem was often sung by the Nazis. So now it's got those bad associations. Speaking of people who made National Anthem faux par, is it faux par or foespar? Fospar, I think. Have we ever mentioned about opera singer Tony Henry, who sang the Croatian National Anthem before England v. Croatia?
+
+[00:04:17] No. And instead of singing Milakuda Sea Planina, meaning, my dear, how much we love your mountains, he sang Milakura, see planina, meaning, my dear, my penis is a mountain. Oh, there was an Aussie Formula One winner. We spoke about him on the show. Do you remember his name? I can't remember his name off the top of my head. Australian form. Not the one who pushed his car.
+
+[00:04:38] Yeah, who won it on foot. Jack Brabham was it? Yeah, Jack Bramam. I think it's him when he won the Formula One once. They realized they didn't have the Aussie National Anthem because they thought it was God save the Queen. And so they were like, what do we do? And all they could think to do was find a drunken trumpet player
+
+[00:04:53] who just played happy birthday. That's amazing. In Luxembourg, not in Luxembourg, and the Olympics in 1952, Luxembourg weren't expected to win anything. And they won the 1,500 meters, I think. And they got gold. and the band who were supposed to play all the anthems hadn't been given the score
+
+[00:05:13] and didn't know the Luxembourg National Anthem because they'd all assumed that Luxembourg wouldn't win anything and you can see a bit of it on YouTube but they just improvised the whole thing they just completely make it up it's like when an actor puts on his resume yeah I can speak Hungarian yeah definitely
+
+[00:05:27] and then he gets to the casting I was looking into music in China generally now in terms of record sales where do you think China sits rank-wise worldwide in terms of people who buy music. Do you mean, are we including things like streaming and stuff like that, just basically spending money on music?
+
+[00:05:46] No, spending money on music. I'm going to say, because they've got a billion people that are at the top. Or at least in the top five, I would say. They're 12. They're 12 in the world. And largely that's to do with piracy that they've only just started to crack down on. But they're only starting to boom now because of this crackdown that's gone on. But if you look at their lists of best-selling albums,
+
+[00:06:07] it's still really back in the day where... So what do you mean? It's like they listen to stuff from the 80s like Bon Jovi. Well, it's just nothing's taken. So it's mainly Chinese artists and Korean artists and Taiwanese artists that you wouldn't have heard of. But number four, best-selling album, physical album, of all time in China, is Titanic, the soundtrack. Wow.
+
+[00:06:27] Yeah. So we're talking 1998 or 1912, depending on when... Which soundtrack you're talking about. Live recording of people's screen. It's just the band going down because they carried on playing, but wait a minute, but our best-selling single of all time, at least until recently, was White Christmas. So it's not like our best-selling songs are all new, is it?
+
+[00:06:49] No, no, but it's because people just weren't buying. They were buying pirated albums. I have a question. Yes. When Bon Jovi introduces himself, do you think he says the name's Jovi, Bon Jovi? And then he pauses and then he says, John Bon Jovi. I see does it in three steps.
+
+[00:07:07] I think you boys. Is Bon Jovi, is Bonn his middle name? This is what I'm trying to get at. Is it his real name, first of all? Don't know. No, I don't think it is. But if it is, it must be his middle, because it's not hyphenated, is it? So it's not a double-barreled.
+
+[00:07:20] I don't think it's mother-bonne father-jovi. Isn't it lower-case, though, the bond? No, no, it's uppercase. Do you think that when Jacob Rees-Mogg introduces himself, he says, the name's Mogg, Rees-Mogg, Jacob Rees-Mogg. Yes, I do you. Yeah, okay. All right.
+
+[00:07:36] Well, yeah. In that case, maybe he does, because I imagine those two are the same. I like the names Mog very much. Mog the cat. Did you know that in Tang Dynasty, China, so just over a thousand years ago, I think that was, then you were supposed to greet and bid goodbye to people by improvising verse on the spot whenever you did it. If you were an educated person, you had to improvise a bit of poetry. How did you do the improv?
+
+[00:08:04] Did you ask for a word? just a non-geographical location like a school They've actually just banned some songs, haven't they? Sorry, I think in 2015 they banned some songs. So the Chinese Ministry of Culture released a list of 120 songs that are banned for being immoral. And just on that list, there was included a song called College Self-study room, which is about a guy having a difficult time finding a quiet place to study for university. Banned for being immoral.
+
+[00:08:37] Wow. What does he do instead of study? I didn't actually understand the song because I'm not fluent. I'm just trying to think what immorality there might be in this song. I see you think he gave up on trying to find the study and ended up masturbating instead or something.
+
+[00:08:52] It's like you can read my mind. Okay, it is time for fact number two, and that is James Harkin. Okay, my fact this week is that in 1921, 78% of shaving brushes sold in New York contained anthrax. And did it make it froth better? Or why were they putting that in there? It wasn't put in there on purpose.
+
+[00:09:21] It is the fact that shaving brushes used to be and sometimes still are made out of badger. And they used to get high-quality badger fur from Russia and then they would disinfect it in France. But then around the wartime, they stopped sanitising it. And badger hair was. actually okay because it's not that susceptible, badgers aren't that susceptible to anthrax poisoning.
+
+[00:09:43] But when Russia fell apart a bit, we had to start importing horse hair from China and Japan, and horse hair is much more susceptible to anthrax. And so suddenly that became an issue. Yes, you're right. And what people thought at the time during the war was it there was diabolical tactics of the enemy, they said it was down to. But then they realized that it wasn't anything to do with that. Occam's razor is the simplest thing. We're not cleaning our hair properly. Occam's razor. Love it because you're shaving. Yeah.
+
+[00:10:12] Interestingly, these brushes are still a problem. Yes. Because people love to buy antique shaving brushes or anything to do with, what, people like to collect vintage things and they like to use it, hipsters mainly. And they'll be using these brushes. Weirdly, hipsters all have beards. Because they're aware about the anthrax situation going on. After they lost some key hipster members of their party.
+
+[00:10:38] To anthrax. Do you know just on shaving how they used to train barbers? Well, so you can't take them to someone's face immediately because they have a sharp object. Exactly. So was it on an animal? It wasn't on an animal. Although that would have been good. Maybe there was some animal training.
+
+[00:10:56] I'm sure there was. Was it on an arm? You'd do it on your arm. That's a good idea. Was it on dead bearded people? That is messed up. Good thought. You do an apprenticeship at the morgue.
+
+[00:11:11] Actually, that would be quite good at the morgue, although if you made a mistake, you wouldn't know about it because they don't bleed. You're right. That is the problem. That's why they ended the policy. I'm the best barber in the world. Okay, what else could it be then?
+
+[00:11:25] Something with very thin skin. Donald Trump. Testicles. I'm going to let you practice. I thought that was thicker skin Well, they're delicate We've got a trainee barber in today Eddie
+
+[00:11:44] Would you mind whipping your balls out for us? Then we will do the face, I promise. It's his first day But he's been great in the theory modules Something with thin skin Eyelids Alright, I'm going to put you out of your misery Balloons
+
+[00:12:04] What? Hairy balloons Hairy balloons. Not hairy balloon. Which just sounds like testicles. I had no idea. Balloons. So the balloons start off hairy and all the ones you get have been through the trainee bar. So do you put, you must put hair onto the balloon. No, you don't put hair on.
+
+[00:12:27] You put shaving foam on. This is, I saw a British Pathay film from the 50s. Talk about the training process. They draw a face. They draw a little face on the balloon. It is a good idea though, isn't it? Because if you nick them, they pop. If you nick them, they pop. I'm like, the corpses.
+
+[00:12:46] It could be a bloated corpse with a lot of air inside it. No, you paint the face on. And then you put the shaving phone on and then the trainee has to scrape it off. Right. That's really interesting. Yeah. How do they do it now? I don't know.
+
+[00:13:02] Well, there's so little call for it these days. Oh, well, yes. but, you know, there's hairdressers nearby hair that does shaving. So I had my beard done, but not a clean shave, not with a razor. But yeah, what they do is they have someone standing over and they train someone to do it. And you just have to accept whatever happens. They just say this might not work. And how is your testicle these days?
+
+[00:13:29] Do you know how you shave in space? I think it would be just as easy as out of space. not out of space, but as not in space. I think I know a bit of the answer to this, but should I say it? Yeah, go for it. Is it that you do normal shaving with a buzzer, but you have a vacuum cleaner next to your head,
+
+[00:13:48] and you suck in all the hairs? So you vacuum your face as you... Oh, so you don't fill the air with hair? Exactly. This is what they have to avoid. They have this special really sticky shaving foam. It's called Astro Edge, right? And it sticks to the face,
+
+[00:14:01] but it traps stubble in it. And then you have to... Actually, you can just sort of like wipe that into a bag or something and then it's in the back. But when you have your haircut in space, you have to have a vacuum cleaner next to you. That's it. When you have your hair, snip, snip and then suck, suck. Yeah. Snip, I don't know what kind of hairdress is you got.
+
+[00:14:23] In shaving news, in recent shaving news. So since December, there are cats in this small town in Virginia that have been being taken away, having their bellies, shaved and then returned to their owners otherwise unharmed and no one knows who's doing this or what's happening. Police say they're not sure what crime has been committed. It's upsetting the owners so can the perpetrator please stop? I suppose it's
+
+[00:14:46] someone who can't get hold of balloons. Okay, it is time for fact number three and that is Andy. My fact is that the cargo hold of the largest plane in service is longer than the first flight of the Wright brothers. Wow. So how long is it?
+
+[00:15:11] It's pretty long, Anna. Pretty long. Okay, on we go. I wonder if, because they didn't go very high the Wright Brothers either, so I wonder if they could have actually done the whole flight in there. I think they might have been able to do it. Their first flight was 120 feet long. Yeah.
+
+[00:15:28] Okay. And how long is this cargo? As I said to Anna, it's quite long. Let's talk about some other statistics. The whole plane measures 275 feet In length In length, yeah Okay, so that's about 100 metres
+
+[00:15:46] Yeah, it doesn't sound very long 84 metres But it's very wide And how long did you say this The right of this thing was? 120 feet Okay, so that figures, doesn't it? Yeah
+
+[00:15:55] God, that doesn't sound that long Because I thought that was the biggest plane that's about to overtake this one is being built by Paul Allen who's the co-founder of Microsoft and that is going to be, apparently it's going to be wider than a football field.
+
+[00:16:11] Oh no, well, this one is wider than a football field. Well, that's unbelievably wide. It's very wide. Football field is between, I think you're allowed between 50 metres and 100 meters for a width of a football field. So these planes are...
+
+[00:16:23] Yeah. Your, uh, maximum light. Okay. Andy's plane that you're talking about. Yeah. Is 275 feet in length. Yeah. And its wingspan is 290 feet.
+
+[00:16:35] There we go. Oh, wow. It's wider than it is long. Yes. So I think I read... I've just realized that when I was thinking about width, I forgot to include the wings. Yeah, everyone else.
+
+[00:16:46] I should never design planes. Right. You've made a car. That's what you meant. I was including wings. Well, that's not that impressive. Right. Okay, as you were.
+
+[00:16:57] And there is only one of it, the amazing thing. They've built one. There is a second one, which they've been working on for 30 years. on and off, mostly off. Anyway, sorry, it's called the Antonov-A-N-2-5 Maria, which is a Ukrainian plane. And it can fit 10 tanks inside or 50 cars,
+
+[00:17:18] depending on what you need to move around. So it's maximum take-off weight is 640 tons. Yeah. I mean, that is... So I checked out a few things that are about that weight. Christ the Redeemer statue is about that weight in Rio. And you could strap it on top. Like with the arms over the wings?
+
+[00:17:37] Well, it looks like an aeroplane, doesn't it? It does. It does. It's quite wide if you include the arms, which Anna probably doesn't. Wow, that weighs 640 tonnes. Wow. That is incredible. So actually, if you had a plane carrying that,
+
+[00:17:52] you wouldn't even be able to get pilot in there because you'd already be exceeding the weight limit. Yeah. Price would have to be flying the plane himself. You'd have to chop off like a finger or something. Not even that. You haven't kidnapped him. But that's the takeoff weight includes the weight of the plane, I think, doesn't it?
+
+[00:18:14] Yeah. So actually it will be too heavy to carry. Is that including the pedestal of the Christ, the Redeemer? Because it's mostly a pedestal. I'm not sure, actually. Awful of it's not, and you didn't include the pedestal. I guess you just wouldn't take off. Yeah.
+
+[00:18:27] So here's something that you could carry possibly. The volume of this cargo hold is 46,000, cubic feet. And that is approximately the same volume as the second largest tree in the world. Now, the problem is the tree is tree shaped. So the cargo hold isn't tree shape. So you need to chop it up a lot. But you theoretically could chop it up and get it in if you put it nicely in like Tetris. Turn it into a book or a series of books and have it as a library. Speaking of books, do we have a book coming down? We certainly do. November. Made from the biggest tree in the world. I'm not sure I want it if it's
+
+[00:19:04] made from the biggest tree in the world. No. Yeah, you do. Transport it here by the biggest plane in the world. Delivered by Christ a redeeming. It wouldn't work because you add water to make paper, don't you? I was reading about the world's biggest private jet. Okay.
+
+[00:19:19] So the world's biggest private jet. It's been bought by Prince Al-Saud of Saudi Arabia. He's a Saudi prince and he has done some extraordinary things to it. So it's ginormous. It can fly 800 passengers. It can go 8,000 miles before refueling. But obviously, it's his own private plane. He doesn't want 800 people on there.
+
+[00:19:39] So he's transformed the plane into this incredible mansion-esque house. It's got a cinema in there. It's got a steam room in there. It's got the most impressively of all. It's got a prayer room where all of the mats that are on the ground are electronic. And no matter where you are in the sky, they electronically turn towards Mecca. So when you go into prey, it's facing Mecca. That is pretty clever.
+
+[00:20:00] But what if you're hovering directly above Mecca? Cool. They just kind of go vertical, do they? Yeah, and thought of that. That's true. Trump's private plane is pretty pimped out as well. He did an interview before he became president where he was talking about it, and he said, describing his own plane, it's bigger than Air Force One, which is a step down from this in every way.
+
+[00:20:23] It's not bigger than Air Force One. I don't know why he said that. It's much smaller than it. Because he's a pathological liar. But the president has a private fleet of planes, which are not Air Force One, right? For his own. So we all hear about Air Force One,
+
+[00:20:38] but actually there's a set of planes. They're four special Boeing 747s, and they are called, together, they are what is known as the National Airborne Operations Center, right? Where Air Force One is kind of ceremonial and comfortable, these planes are basically war rooms. Right. And so they're built in the 70s,
+
+[00:20:56] and they're staffed by, you know, military analysts and strategists, and it was if you were in a nuclear war, you would be flying around in these things, not an Air Force One. Why aren't they not to be comfortable? Because you need to fit more soldiers in. And they have five mile long antenna which trail behind them, right?
+
+[00:21:13] No, they don't. What? Five mile long trailing wire antenna. Oh, no. With a banner on it, one of those advertising banners. Make America a great again. Listen, I'm quoting. There was a whole feature about these on Politica.
+
+[00:21:25] It said the planes included special gear, like a five mile long trailing wire antenna, that would ensure that the president could remain in contact with the nuclear submarine fleet, even after ground-based communications have been destroyed. It's not attached to a submarine though. No, no. It's not a submarine at the other end, pirouetting through the air.
+
+[00:21:42] No, but if ground-based communications have been destroyed, you need a very long antenna. Well, five miles is a long antenna. It's very long, but what's behind you? As long as there's no one flying in the five miles behind you, and you're moving so far through the sky there won't be. No. I just don't get why you're denying this thing,
+
+[00:21:55] which I have a direct source for. I just think five miles is a very long antenna. It's an extremely long antenna. So that's going to collect. radio signals. That one's disputing the length of the antenna. How high are you up in the air when you're in a normal flight? Because maybe they attach a message to the end of the antenna
+
+[00:22:10] and they point it downwards. So you just grab a piece of paper as they fly by. Oh, I mean, yeah. Actually, you're right. Five miles is very long. Five miles are so long. Are you normally five miles up in the air? If you're 30,000 feet, that is what, 10,000 yards.
+
+[00:22:27] Yeah. And how many yards... It's 1760 yards and a mile. So it's about 5,000. It's about five miles. So it's just trailing along the floor. Quick spell SOS in the sand. So do people have to jump out of the way of it when it comes along the ground towards you?
+
+[00:22:42] Look, I think we've undertaken. It wasn't used, okay? So smart asses like you guys can keep on asking clever dick questions about it. Do we think maybe Trump said it was five miles on? You know, North Korea has a plane that can fly backwards. No, it doesn't. It does. It does.
+
+[00:23:00] It does. It's called the hummingbird. It's a very tiny plane This is A, it's really cool Because it's camouflaged As in it's painted It's so well camouflaged
+
+[00:23:12] No one can see it No one's ever seen it It's disguised as a backwards plane This may look like a plane Going forward But actually it's a backwards plane going backwards Thank God the enemy
+
+[00:23:26] Are flying away Oh no The way you can tell is a five-mile antennae at the front time. Okay, it is time for our final fact of the show, and that is Anna Chazinsky. My fact this week is that poo on a table will look closer to you than it actually is.
+
+[00:23:53] And this is just if there's poo on a table and you think it's only a meter away, it's actually probably like just over a meter away. Yeah, and then we all thought you were being really weird downstairs when you put that on the table, but actually some first time. research. Just testing it out. Yeah, I read this on the website Nautilus, which is a very good website, and there was an article about how we perceived distance. And I think it was a study that was done
+
+[00:24:19] by someone called Janine Stefanoucci, who's a professor of neural science in Utah, the University of Utah. And yeah, it said that she put kind of a blob of chocolate on a table and led her study subjects to believe that it was feces, and then made it look like feces. And then made it look like feces. And then they thought it was closer than it actually was. So actually it's quite an ethical experiment, isn't it? She's decided not to put actual poo on the table. She has. Well, then she's lied to people.
+
+[00:24:46] Is that ethical? White lies, fine, I think. Yeah. Yeah, I see what you mean. But yeah, this is about how if we're afraid of things, then we perceive them as being closer. And loads of studies have been done that confirm this. If you were to try and throw a beanbag at a poo,
+
+[00:25:03] then you would be likely to miss it on the far side. you throw it too far, whereas if you're going to throw a bean bag at something nice like a bar of chocolate that didn't look like a poo, then you would miss on the short side. And they've done experiments where people... I haven't done that. No. I'm just, I'm extrapolating slightly, but they've done experiments where they would give you a $25 gift card and ask you to throw a beanbag at it. And they found that people were always short of that because it's desirable and they think that it's closer. I mean, that is, if anything, that's a teleformat.
+
+[00:25:37] just waiting to happen. You're right. Throw the beanbag at the poo. No, no. Well, yeah, we could do it that way. Or we could do it just with like gift cards and stuff. Because the thing is, no one really wants to win the poo. So it's hot to what the prize is at the end of the throw the beanbag at the poo game.
+
+[00:25:51] You don't have to, you can win the $25. It just, it's hidden in the poo. It's basically, we have all these boxes from deal or no deal. They're probably just in a warehouse somewhere. So we can get them. And if we get the million pound box and then get people to try and throw beanbags into it, they're always going to be shot. Yeah.
+
+[00:26:08] So we never have to pay anything out, and it's a great format. Although Andy raises a really good point. If you put poo around the voucher, and you know there's a voucher in there, but you can also see that it's covered in poo. Do you see it as closer or further away? I suppose that's where the jeopardy comes in in our format. What's the show called again?
+
+[00:26:28] It's throw the beanbag at the million pounds covered in poo. I think it's an ITV2 show, isn't it? spiders look bigger if you're scared of them. Yeah. Yes, that's right. And in direct proportion to how scared you are. Exactly. And they tested it by getting people who were very scared
+
+[00:26:46] and then only slightly scared of spiders. And they showed them a sliding scale. So literally a sliding scale, you could drag a little clicker along. And there was a picture of a fly at one end and a lamb at the other. And you had to rate the spider. But surely, people who are really scared of spiders,
+
+[00:27:03] I don't care how scared you are of a spider. You don't think it's the same size as a sheep. I think it was very slightly further along. Right, okay. I believe so. In other science poo news, okay. Very exciting study has been published.
+
+[00:27:20] James and I were talking about this the other day. Scientists have finally worked out how long it takes animals to poo. Oh, yeah. Finally. Finally, finally. Well, we've cracked so many secrets, but this last one has alluded us for so long. Well, 2016 was the year that we cracked how long.
+
+[00:27:35] it takes them to urinate and 2017 is a fantastic sequel. What next year? What horrible thing will we discover next year? But they studied a bunch of animals, right? So this applies to both, let's say, something as big as an elephant, all the way down to something as small as a mouse. They both spend 12 seconds. It's amazing.
+
+[00:27:53] So from the size of a spider to the size of a spider. Yes. Yeah, so this is the researcher Patricia Yang. I guess this should technically apply to humans as a lot. well. Yeah. Because she's saying if it takes longer than 12 seconds, I'd say you should go see someone about it. But then she says you have to factor in the fact that you might be reading a book or a newspaper or playing an iPhone game or doing on the table for an experiment. They published their scientific paper in a journal called soft matter. No. Yeah. Yeah. So yeah,
+
+[00:28:28] it's quite an exciting discovery. And is it, sorry, is it the same as the urine discovery as in all animals it's the same for regardless of sight is that the discovery all mammals yeah and obviously there's quite a big difference but i think david who who did the urine one is part of this group as well yeah and the idea being that with humans if you have a problem with a urinary or or defecation or something then you can kind of just talk to the doctor and tell him but with an animal it's sometimes hard to tell if there's a problem but if your animal if you've got a horse and it's taking 40 seconds to we or two seconds to we then that's so far out of the range that you know there's something wrong. You know what I mean?
+
+[00:29:07] So it's just a way of telling illness. So it's useful science. Yeah. It's useful science. Yeah. And 12 seconds, just an interesting, relevant amount of time for this particular podcast. Anyone know why 12 seconds? Have we only been recording for 12 seconds?
+
+[00:29:23] 12 seconds is the same length of time that the Wright brothers' first flight was. Wow. I flew for 12 seconds. Did one of them start pooing? at the top. Land as it landed. Okay, that's it. That's all of our facts. Thank you so much for listening.
+
+[00:29:46] If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, James, at Eggshaped, Andy, at Andrew Hunter M, and Anna. You can email podcast at QI.com.
+
+[00:29:59] Yep, or you can go to our group Twitter account, which is at QI podcast, or you can go to our website, which is no such thing as a fish.com. There's plenty of stuff up there, all of our previous episodes. There's tickets to our tour. There's the pre-order to our book coming out in November. We'll see you again next week.
+
+[00:30:15] Thanks for listening. Goodbye.

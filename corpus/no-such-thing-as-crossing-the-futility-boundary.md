@@ -1,0 +1,265 @@
+# No Such Thing As A Fish - No Such Thing As Crossing the Futility Boundary
+
+- Episode date: August 6, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-crossing-the-futility-boundary
+- Slug: no-such-thing-as-crossing-the-futility-boundary
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish coming to you live from my editing suite straight to your ears. We are all on holiday this week having a nice relaxing time, enjoying the great British weather. And so what we have for you is one of our compilation specials, loads of fun bits from the last few months that didn't quite fit into the show, but are really funny, really stupid, really just does mess. around. These are always my favourite episodes, by the way. I absolutely love them. I genuinely think some of the best bits of fish that we've ever done have been in these compilations. But it's all sorts of bits, all sorts of subjects, loads and loads of facts, loads and loads of fun. We
+
+[00:00:43] really, really hope you enjoy it. We will be back next week with a normal episode with a very special guest. More on that next week. But for now, I guess, all there is to say is on with the podcast. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Schreiber. I am sitting here with Anna Toshensky, James Harkin and Andrew Hunter Murray. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go.
+
+[00:01:34] Starting with you, Andy. My fact is that after his death, Anton Chekhov was brought back to Russia in a refrigerate, in a refrigerated whale weight. Bugs Bunny's going to be doing my fact for me. I had a friend who used to sleep with his eyes open, so. No. Military style. Every now and then we'd be sat in the front room like, you know, playing video games or something or just chatting. And then we'd be like, oh, Rich hasn't spoken for a while.
+
+[00:02:05] he'd be sat there when his eyes open and it turned out he was asleep. Are you sure he wasn't just trying to avoid talking to you guys? It came up in a clever way. He did sometimes talk in his sleep and say, shut the fuck up, James. We had just in a sort of modern-day theatre version of that, James and I got a behind-the-scene tours of the Harry Potter and the Curse Child set, which is the play in the West End in London. and we were told at the time
+
+[00:02:35] that it takes about a million pounds a week to run the whole production. There were so many different little bits and pieces that go into putting it on. And one of the things that they have is there's a moment where two of the characters need to emerge from a lake. And they've built under the stage
+
+[00:02:50] a massive water tank. So on the payroll for the Curse Child are two scuba instructors who go inside with these kid actors and they have a little mouth breather on and then they come up through the stage completely soaking. So it's like this body of water. But that's how, that's how much.
+
+[00:03:09] Can I just say I was on this tour with Dan and he's talking rubbish. It's all magic. The whole play is completely magic. And the reason I know that is because when you go backstage, you can see all the ones are backstage and they're plugged in to the electricity. So you know that it's definitely working. Well, I didn't know you needed to charge a wand. They're all Bluetooth.
+
+[00:03:32] Are they now? They don't mention that in the books. Sorry, I don't understand why these children had to be submerged in water before they came on stage. Was it just so they looked wet? No, no. They came up through the floor of the stage. So it was a tank built underneath the stage. So they were coming up. But why are they in water? Sorry.
+
+[00:03:50] Because of the plot. Because of the story. They're coming out of a lake. Oh, they're coming out of a lake. Sorry, I missed that bit. Right. Well, that makes sense. I actually went to see the play, so I should remember that.
+
+[00:04:01] Wow. But I did leave at the interval. It happens literally just before the interval. It's the last thing you would have seen. Well, I remember because, Anna, you came out saying there's a fucking lake in this. What a load of bullshit? Why are they so wet? Why are they so wet?
+
+[00:04:18] I don't understand how they did it. I can't. My brain can't fathom. Do you know who is the highest grossing actor of all time? I got sent this by our friend Justin Gaynor on email. yesterday he asked me if I knew the highest grossing actor so what this means is if you're
+
+[00:04:37] in a movie they add the entire amount of money that that movie has made to your amount so it's who's been in the most very very high profile movies I think it was the guy who I mentioned a few episodes ago Frank Welker who is a voice over artist
+
+[00:04:53] Scooby Do and the Grinch he did the dog in the Grinch but think about that the Grinch is big but it's not the biggest think about the biggest movies of all time. Okay, so Andy Circus has been in the biggest movies of all time as CGI guy. So what's your, what are you naming as biggest movies there then? Avatar, Lord of the Rings.
+
+[00:05:14] Think bigger, think bigger. That big, is the adaptation of Little Dorrit. That's what, so bigger than that, even. Even bigger than King Kong and Lord of the Rings. Star Wars, I guess. Have we heard of this person or is it? Yeah, you've heard of it. Dan has got the best chance to get this.
+
+[00:05:31] say, but you all might be. Is it someone who plays Harrison Frederick? Backgroundy? Um, yes. Yes. Um, okay. Is there someone in Jackie Chan films?
+
+[00:05:40] No, no. What's the biggest grossing movie of all time? Star Wars. Titanic. No. Ben her? Is it a new movie or not? Gone with the wind is fair, but I'm talking about
+
+[00:05:51] actual money. Avengers. Okay. And almost all of the top 20 are Marvel films. Yeah, so Robert Downey Jr. Nope. top. Someone who's been in all of them. John Favro. Nope. Samuel L. Jackson. He's number two. He's number two, but he's not been in all of them.
+
+[00:06:09] Is it Stan Lee? Stan Lee. Because he is in a tiny cameo in every single Marvel movie up until he died and the couple after he died as well. And so if you add up all of those amounts, then he is the biggest of all time. And he was in mall rats as well, Kevin Smith's movie. That was tipped it. I'm not sure if he was in Little Dorrit, but he might have been. At the moment, right now, there are 200 spy albatrosses in the world, which are flying around logging illegal fishing vessels. This is very cool. It's interesting, isn't it? Because fishermen hate albatrosses famously.
+
+[00:06:48] They do. They do. They do. They have good reason to hate them, doesn't they? They do have good reason, yeah. The French National Centre for Scientific Research, it fitted them, with little GPS trackers. Because there are so many illegal fishing boats out there.
+
+[00:07:04] And they switch off their unique ID systems to try and stake over. All fishing boats have a sort of radio ID system. And if you're fishing in illegal waters, then you turn it off. But the birds cover so much ground. You know, they can see a fishing boat from 20 miles away, and they can pick up the GPS signals that these boats aren't able to switch off. and in the first six months of the trial they found 353 fishing vessels
+
+[00:07:30] in that time of which one third had their ID system switched off implying that they were up to no good and fishing in illegal waters so this could be a useful technique and do they, so but they're doing it unwillingly the albatrosses right do you think they ever get together and say
+
+[00:07:44] I hate this bloody you know monitoring collar they've put on me it's a real it's a real albatross around my neck very good they find that very offensive actually Anna Didn't see for such a long time where you were going with that. I knew I'd have to see it all the way through. It's just not quite common parlance enough that you don't have to finish it off.
+
+[00:08:07] There's only one other thing I know about cheetahs. And it's that this is a really strange thing. It's that if you have cheetahs in a zoo, you have to be really careful to pick up their poos because there's a particular disease which is spread via cheetah feces. And normally they have massive ranges. and, you know, they never come across their own poos again. Well, obviously, that's not the case in a zoo.
+
+[00:08:27] But in the wild, scientists study them by their poos, but it's a real problem because cheetah families all poo at the same time. So if... Well, they do say a family that poos together stays together, don't they? It's really a nightmare. So you've got a cheetah family. You're a scientist observing them, and it gives you the DNA. And you can work out who's fathered whom,
+
+[00:08:49] which is really interesting because cheetah females mate with lots of different males. and then produce a litter. You can have three different cubs in a letter by three different fathers. So it's useful to know who's fathered whom for your studies. But obviously, they spread out and do their mass poo at the same time. You have to photograph all the cheetahs as they poo. You have to map the poos. Then you have to assign the right poo to the right cheetah. And then you can study them by the DNA. I remember growing up in quite a large family. And every morning, it was a bit of a stress to see who could get in for a shower first. But imagine the jeopardy If you all have to poo at the same time That is
+
+[00:09:25] Oh my God, that cue If I've just had Vindaloo And I've got my seven siblings there And I'm saying I'm absolutely desperate guys Are you ready yet? Well, I have to wait sort of seven hours Until one of them is managing to crimp one out It's very stressful
+
+[00:09:40] And then do you see That's why sometimes when you're wandering through Africa You see bags hanging on trees, don't you? Yeah The cheetah scientists who've left those poo bags there, and they always claim they're going to come back and pick them up. You know, in recent podcasts, and I was mentioning to us how Stephen King is the master of just taking anything and turning it into a horror story, no matter how ridiculous. He just knows how to
+
+[00:10:03] do it. So have you guys heard of the Stephen King story, The Mangler? No. No. And this was made into a movie. The story is about a police detective investigating a sudden rash of deaths caused by an industrial laundry press. And this is a laundry press. that has become possessed by a demon. So the villain in this actual story is a laundry press itself, going around, killing people, yeah. Going around?
+
+[00:10:32] Well, actually, he's in, he's in, he's in, he's in his, is in laundry room, so no. So you're safe if you don't go in the laundry room. Yeah. That's a good strapline for the film. In fact, I suppose you're kind of probably safe as long as you don't, put yourself into the mangle, right? Yeah. Because it's not, it can't really...
+
+[00:10:55] The mangle must have some kind of independent movement where it can attack you, right? How? How's it a good move? It might lure you in. It might be like, psal, hey, hey, come. You know, it might speak and get you to go to it or something like that. But I see what you're saying, James.
+
+[00:11:09] It's like, we're all safe from Charles Bronson unless we go into his cell. Like, that's... You're right. Just don't go into his cell. That's a terrifying thought to leave us all with. Well, they were very dangerous, though, Mangels. So in a way, this sounds like it was more historical documentary
+
+[00:11:25] than his classic horror. People used to get injured all the time. I was reading a book that was called Save Women's Lives, the History of Washing Machines, which was written in 2003 about how, and it was by a guy who runs a museum about washing machines. And he said whenever he showed people around, at least one older person would reveal a scarlet,
+
+[00:11:48] they had from a mangle at some point. So every time he had one woman who was like, oh yeah, and revealed a huge bald patch on her head from where she was scalped by it, because they'd be steam powered quite often and then electric, of course, so you couldn't stop them. So if you got your hair caught in a mangol, that's your scalp. Then why are all these people who presumably have PTSD
+
+[00:12:08] from being mangled in a mangled, go into a mangled museum? It's Stockholm syndrome, isn't it? They've fallen in love with their mangler. Wow. You see, Stephen King, finger on the pulse. There's obviously a huge market for this. I got to say that, honestly. Like, you always tell us how great Stephen King is,
+
+[00:12:27] and then you regale us with some bullshit story that makes no sense at all. Diane Keaton, just a bit of celebrity trivia. Yeah, yeah. Diane Keaton wore clothes pegs on her nose to try and make it thinner. I never had any surgery, plastic surgery, but in many ways this is a kind of surgery. she said in an interview that she did it
+
+[00:12:49] and the only other person I can find who ever did that was Megan Little Women who used to sleep every night with a peg on her nose to make her nose thinner I don't think it worked for either of them
+
+[00:12:58] but she must have got the idea from Little Women right unless she got it from a cartoon because that's the only other people I could think who do that peg something else Was she doing this when she was a child Anna?
+
+[00:13:09] No no when she was a young woman Yeah if you watch Annie Hall again Andy you'll see Brian Keaton has a peg on her nose the entire time Not the new ones. They've CGIed it out, but yeah, the original. Anna, did you read that fact while reading about Silvio Sabah by any chance?
+
+[00:13:26] I didn't, actually. So tell me about Sylvia. Well, he can teach Meg from Little Women and Diane Keatner, I think or two because he has the record for the most clothes pegs on his face at the same time in one minute. Actually, the most clothes pegs added to the face within a minute. All right. Has it a guess? Well, I don't think maybe my skin isn't.
+
+[00:13:46] stretchy enough, but I can only imagine being able to get three or four on mine before it gets too stretched out. I'm going to be honest, the Guinness World Record is higher. Yeah, but I didn't expect. When you asked me, well, when I said what I could do, I wasn't thinking, well, you know, when you say, how fast did Usain Bolt run the 100 meters? I don't think, well, I could do it in about 15 seconds, so probably about the same. If it's a world record holder, it's going to be better than me. It is better. It is five. Five. Five. There we go. Okay, let's be serious. Seven. Okay, thanks guys. It's 51 in a minute.
+
+[00:14:22] Fifty-one, so that's almost one a second. I know. And I'm amazed at just the speed of adding them. Never mind how stretchy his skin is. But he has a bit of form because he's one of these guys who has loads and loads of records. So he's also got, he's got about 200 records. He's got the record for most underpants pulled on in 30 seconds. You could actually do both of those records at the same time if you had an outdoor clothes line, couldn't you?
+
+[00:14:43] I was really about Russian dances and Russian balls They had a bowl season in Russia Which lasted from Christmas until Maslenitzer Which is like pancake day It was brought in by Peter the Great So they were compulsory If you're in high society you had to go to these bowls The only way is if you had a serious illness
+
+[00:15:04] Or you were in mourning You could miss the ball But otherwise you had to do it And then you would do all of these dances You would start with the waltz And then you would do a Hungarian dance and then you do another dance and another dance. And then the final one was the Mazurka,
+
+[00:15:17] which was like a big Russian dance where everyone puts their arms around each other, but then you pair off as well. And of course, anyone who's read Anna Kerenina will be very familiar with that kind of thing because, of course, when Anna came into the ball and she danced with Alexi, that was kind of the big... Sorry, that's a bit of a spoiler for Anna Karenna.
+
+[00:15:36] Don't push your luck, James, mentioned that I'm ready to move on. And there used to be cheaters in America. like not pet cheaters, but real kind of wild cheaters. Well, they're false cheaters, but they're kind of very similar. They're called mirror synonyx, they were known as, but they died out. And the only reason we know about them is because they have, in North America, they have pronghorn. And pronghorn are really, really fast, and they move in lots of directions and stuff like that. And the only way that they could have evolved to have run and dodge and kind of,
+
+[00:16:18] jump around is if there had been a predator that was chasing after them. And so they realized that there must be this other thing. And so they called it Miracynonics, which is a false cheetah, yeah. And do we have evidence that this cheetah cheetah existed? They haven't quite found the bones or anything yet, but they just have inferred that there must have been a predator that was faster than these prong corn. Otherwise, why would they evolve to get so fast? Does it's fun?
+
+[00:16:44] I think that's a big inference. It's fun. It's fun going fast. Why do people buy Lamborghinis? Yeah, well, there used to be a predator that had even faster cars than us that used to come after us and that's why we evolved Lamborghinis. I didn't know that. Can I quickly tell you one thing? I don't think it'll go anywhere, but the first Polish language encyclopedia I just read the other day. It was called Noe Atene,
+
+[00:17:14] which meant New Athens. And their definition of the word horse is everyone knows what are horses. That's, it feels like that was the last article they had to write and they just didn't have the will to do it properly anymore. It's such a good thing. But apparently, and I don't know any Polish, obviously, but apparently everyone knows what are horses has become kind of a phrase to mean something that is more obvious than it seems like it looks like a really technical thing, but actually it's really simple.
+
+[00:17:50] So. But you stole that encyclopedia entry. It became a sort of in-joke in Poland. Exactly. That is so good. There was a website, Movies for Men, it's called, that did a list. They went through 350 films,
+
+[00:18:06] and they did a death count compiling the deadliest actor list. And this was a few years ago, so it might have changed. I don't know if the expendable movies have been used in this. So, you know, aliens died of, they're all kind of expendable movies, really,
+
+[00:18:20] I can't believe you've been driven to going to all these in-cell websites. There's a top 10 list, and who do you think has more kills? Is it Schwarzenegger or Stallone? Well, I would have said Schwarzenegger personally. I think so, too. There are a couple of unbelievably silly sort of commando films where, so I'll say Schwarzenegger, too. Schwarzenegger.
+
+[00:18:44] Anna, you're not allowed to guess on this because you're not. No, they're not movies for me, are they? So it is Schwarzenegger, who has, as far as they can tell, 842 kills. He ranks number four on the list. Number six on the list is Sylvester. Yeah, go for it. Have we heard of number one? Oh, and Stallone, by the way, has 786.
+
+[00:19:07] So it's not a huge difference between the two of them. But yeah, who's in at number one with 1,296 kills? I would say it's Moth Tarkin in Star Wars who blows up the planet of Alderan. course, which I'm guessing now has a very much lower population than previously imagined. Okay, killing an entire planet. That's good. What about Thanos? Oh, yeah. I can't imagine who'd care. Dan, you're... Someone in a war, someone in war films, right?
+
+[00:19:38] It can't, you can't be including pressing a button on a bomb, right? Otherwise, that's unfair. Yeah, I think this is... They've got to be hand to hand. Hand to hand, almost. So I'll give you who's a bunch. I'll give you three and two. number two is Dolph Lungren with 919 2 is Jet Lee with 1,076 Is it that thought you like? I know it'll be, yeah, Bruce Lee.
+
+[00:19:58] Bruce Lee was he one? He does not appear on the list. Someone like that. Someone who played a famous executioner. Oh, Jackie Chan, I mean, Jackie Chan. Yeah, no, Jackie Chan doesn't appear on the list either. Is it someone who played? A pacifist Jackie Chan, likes to keep people alive.
+
+[00:20:10] Yeah. Okay. Is it Pikachu from Detective Pikachu? Yeah, there was a blood bath. that movie. I really regret taking my three-year-old to that. Is it River Everett? I mean, how surprising are we going? Let me give the answer. The answer is
+
+[00:20:26] Mila Jokovic, the only woman to appear on the list of the top ten in the man list with 1,2906. Oh, that's sticking one to the insales, isn't it? Yeah. Yeah. Are we talking about Resident Evil? Resident Evil. She's in all six Resident Evil films, all of which I've seen.
+
+[00:20:45] Oh, God. Have you? They're great. They're so good. You were the one who tallied up their kills from the site, weren't you? A lot of them are zombies in those films. But I guess that counts. That's it? I don't know. Yeah.
+
+[00:21:01] I don't know what criteria movies for men used. How rigorous is there a search, do you think? I had pineapple last night for dinner by sheer coincidence. With? And the reason I had it actually with caramel sauce poured on top that we received as a Christmas present from some people that we work with. Anna, are you okay? Sorry, that just sounds like a meal of last resort is what I'm trying to say.
+
+[00:21:27] Like, we'll use the Christmas caramel sauce and pour it on top of the pineapple. I mean, it does feel like you had a certain amount of food at Christmas two months ago and you're getting to the really last bits of the Christmas buffet. It definitely has been there for a while and it was the beginning of December they sent it. Because I hate waste, you know, and the pineapple was just going off because no one wants to eat a pineapple that's been sitting in our fruit bowl for two weeks because it gets delivered with the fruit delivery. And this is why, you know, there's this thing where in the 1700s,
+
+[00:21:57] people didn't eat pineapples because they were so treasured, they just used them for decoration. But I think it's just because they're such an arse to break into. You can't be bothered. Yes. They are a bit of a pain. I always, this is not going to go in, but I always make like a green curry and put it inside the pineapple, right?
+
+[00:22:15] So you scoop out all the pineapple stuff. and then you put the green curry inside. But it is unbelievably difficult to scoop out. It's all right if you slice it up. It's not that hard. But if you're trying to scoop out the inside, it's completely impossible. Do you eat the pineapple on the side of the pineapple goes in the curry as well?
+
+[00:22:31] Very nice. Very nice. And then I save some of it and usually have it with like meat the next day when I used to eat meat because like it goes well with gammon and stuff, doesn't it? Yes. That's sick. Anyway, join us next week for Cooking with Harkin. Yeah.
+
+[00:22:48] That's funny. Who takes the most naps on the planet in national terms? Well, I would have thought like the Spaniards, maybe from siesters. Spain has such a reputation for their siesters, and it's not borne out. Almost 60% never have a siesta. Spanish working hours are longer, and they tend to sleep a bit less than the rest of Europe. And do you know whose fault it is? Was it like the Nazis, they're usually sublim.
+
+[00:23:17] for everything, aren't they? It was. It was the Nazis. It's the fascists. But it's the Spanish fascist, presumably. Actually, no. It's the German fascists in cahoots with the Spanish fascists. So in 1942, General Franco
+
+[00:23:32] fascist, changed the country's clocks in Spain to match Berlin's time zone in solidarity with Hitler. And no one ever changed them back. So Spain is on Central European time, or European Central Time, which is the same as Warsaw, 1,200 miles east of there.
+
+[00:23:50] And this is a mad time zone for the country of Spain to be in. It's part of the reason that Spanish people work, I mean, also the weather and so on. But, you know, Spanish people tend not to eat until 9pm. They don't go to bed before midnight. There is a whole campaign to get Spain back onto GMT because Spain is just not in the right time zone for the circadian rhythms of the people who live there. Wow. You would have thought there's a real two strong arguments.
+
+[00:24:15] A, it really doesn't work for them in terms of their. circadian rhythms and B, it's got a strong association with fascists. I know. Ditch it, guys. Can I say one more thing about soap detergents, seeing as this was about Dazas? Oh, yeah. There is a thing at the moment in Europe called the CERN Axion Solar Telescope. And it's at CERN, and they're trying to find these tiny particles called axions.
+
+[00:24:42] And axions are particles that are a little bit related to the Higgs, boson and things like that, they're going to help us explain what dark matter is if we find them. They were named by a guy called Frank Wilczek. And the reason that he called them Axioms is because that was his favorite soap powder that he used. And he said that it sounded a bit like a subatomic particle, doesn't it? An axon. Kind of sounds like it. But he said if they find them, it will clean up a problem with particle physics.
+
+[00:25:12] Lovely. Nice. He's also got the best interns name. ever, you know, who's going to sort this out? Oh, Frank will check. Do baboons have sex for pleasure, or do they just have it for procreation? I don't know. I don't
+
+[00:25:28] know. I suspect pleasure. They seem like fun-loving criminals. I know bonobos do. Yeah, they're in between. I don't know. Bonobo is nearly an an anagram of baboon. Well, that's why I was thinking, actually, yeah. Yeah. I think if any animal is an anagram of another animal, I'm always disappointed when melons and lemons don't taste the same.
+
+[00:25:48] I think they kind of should. Yeah, absolutely. Yeah. And they've both got boobs and knobs if you sort of break their names down. They do, yeah. That sounds quite sexy. Yeah. Well, we've revealed a lot.
+
+[00:26:01] This is why lexicographers and zoologists are very different beasts. It's so nice to leave knowledge out there for the experts. Any baboon experts listening won't feel threatened by this podcast, I think. I think my favorite thing that I found out about Air Force One is that there was a room temperature button, a little dial that was added onto the plane. And this was because President Johnson, when he was vice president, he kept arguing with the crew about lowering and raising the temperature of the cabin. He was like, it's too cold or it's too hot. And so they eventually got tired of this and they installed a temperature control in the conference room, but it was fake. Didn't work at all.
+
+[00:26:41] And so he could go up and change it on his own. Never changed anything, but he'd go, that's better and sit down and think that he'd controlled the weather inside. Okay. That's what we call gaslighting. And this day and age, poor guy. There was a haunted rocking chair in the 50s. Did anyone read about that? No, it was the devils.
+
+[00:27:01] No, it was in a blog called Strange Company, which I can highly recommend. It's an unbelievably good blog. And this was an article from the Baltimore Sun of the April of 29th, 1950 about a rocking chair with a mind of it. own. And what it was is there was a family called the Floyd holidays and they had a rocking chair and it just wouldn't stop rocking all the time and it just had rocked nonstop for 37 days. And it became really, really famous and was on TV in America. And they'd go on chat shows and these people would go on chat shows and they'd be like, yeah, we've got a rocking chair that won't stop rocking. And a lot of people kind of went to visit the house. They almost got rid of it because so many people
+
+[00:27:40] were coming to visit this haunted rocking chair. And some people said that maybe it was vibrations from the refrigeration motor that was going off right next to it. But sorry enough, when they moved into another house, it carried on rocking as well. And then eventually they took it to be on TV, this rocking chair, and it had to go through an airport, and some vandals hearing about it, ripped it up and kind of looked inside it to see if there was some motors or something like that. and it was insured for $1,000.
+
+[00:28:12] So the insurance company said, well, I would give you $1,000 or you can have $700 and you can keep the chair. And that's what they went for. But it kind of stopped continually rocking at that point. And we don't know why it was rocking all the time. But most people think that perhaps it was, you know, the legs were in a way that they never quite got in, you know. But hang on, isn't that a perpetual motion machine?
+
+[00:28:36] Isn't that the thing we're told can't happen? Exactly. That's why it's mysterious. That's why it's in the newspapers, Andy. I can't believe all the world scientists, all the brilliant minds have not yet figured out this rocking chair. I imagine probably they had other things to figure out. But basically what happened was whenever it started moving, I assume it just took ages to stop. And then other things would get it moving again and it just would carry on rocking for ages. I bet. I bet when people came to see it, they said, right, don't go in. Don't go into the room just yet. Then as soon as anyone went in, the chair was rocking, but also grandpa was just shuffling away from it. Right, look, there, you've seen it's rocking and no one's sitting at it.
+
+[00:29:15] Right, you better leave. Come on, get out, get out, get out. You're probably right. Donald Trump obsessed with Badgers, apparently. Sorry, I know we all thought we'd never have to talk about him again, and I'm bringing it back. But there was a report near the start of his term that he, from within the White House, among his staff, that said he would constantly be asking Ryan's Prebus, who is his chief of state. staff at the time about badgers and was interrogating him because Reince was from Wisconsin, which is the home of the American badger. I think it's their state animal. And he'd say things like,
+
+[00:29:46] do they have personality? Are they boring? How do they work? Are they mean to people? He was desperate to know about badgers. Wow. There was a badger in the White House, wasn't there? I think it was Roosevelt had one called Josh. I'm going from memory here. Oh, that brings a bell. I think you're right. Teddy Roosevelt. Yeah. Teddy Roosevelt, who, because he had almost all animals. didn't he collect as in he had a lot of crazy pets
+
+[00:30:09] I think he might have this is again also from memory but was he in Wisconsin and like a little girl said do you want a badger and he said yeah sure
+
+[00:30:19] and then she went away and ten minutes later came back with a badger and then he had to keep her or something awkward yeah maybe Trump read about that and thought if Teddy gets one
+
+[00:30:29] I want one I mentioned it mainly because did you know the nickname that Scaramucci had had for Reince Priebus was rancid penis It's amazing that Scaramuchini
+
+[00:30:41] only lasted 10 days in the job with his knack of making friends Oh, I've got a This isn't a gross butterfly actually It's just a weird sex butterfly thing Which is, and it's another American one actually It's in the Sierra Nevada Mountains There's a butterfly which has been discovered
+
+[00:30:58] To be a hybrid of two completely separate species of butterfly Which at some point shagged each other and produced fertile offspring. Oh, wow. That's completely counter to the way the tree of life normally works, where species split, you know, branches split. So this is one of a handful of cases of branches merging. Wow.
+
+[00:31:19] Is this the beginning of the end? Is this when we all start contracting back down into one single, oh, no. I'm afraid so. So we're all, you know. And we're back to this theory, are we, Anna? I don't remember this. This theory is from about four years ago,
+
+[00:31:32] which is that. What's the theory? Well, but we're all going to evolve back into amoebas. Oh, wow. I've forgotten I'd had it before. It's good that I'm consistent, if not good, that I forget what I've said as soon as I say it. Okay, here's the thing about changing from black and white to colour and back again. Yeah.
+
+[00:31:52] This is mad. I guess, so James' fact is about the Israel removing colour. And that was done again in the UK in 1970 by ITV, who, where the source. staff went on strike, they went on a three-month colour strike where they were objecting over their pay rates. And so they just started making shows black and white again. And because these are quite technical shows to be filmed, they just refused to work with the colour TV equipment. They switched off the colour tubes on the cameras they were working with. And for three months, ITV just had to go back to black and white because the staff were... I know.
+
+[00:32:26] So funny. That's... Wow. And then eventually they resolved the strike and they turned... They were willing to make colour TV shows again. I wonder if they lost a lot of viewers in that time. I don't know. You know last year when the Archers couldn't handle COVID because it seems to be run by a 120-year-old person. So it was just monologues for about six months.
+
+[00:32:46] And I think, you know, a lot of people said they would leave the show. But their listenership has sustained and recovered. So maybe the same. Great news. Yeah. But it's similar, right? The Arches is neither black and white nor colour, actually, the archers, obviously. Perhaps what your imagination is like, for me, it's just like,
+
+[00:33:02] the TV's turned off. It's like of A Fantasia. But that is true, isn't it? Some people, is that right? There's some people imagine things in black and white, I think. Yeah. Or dreaming Black and White. It's when they grew up with Black and White TV, isn't it?
+
+[00:33:17] James, you know that condition that you have, the A Fantasia? Yeah, yeah. Where you can't imagine, what is it? You can't imagine things that are not. Images. Images that are not there. Yeah, I can't imagine, I can't close my eyes and imagine anything. I was thinking the other day, it's very weird that it's called A Fantasia, because Disney's
+
+[00:33:32] Fantasia is one of the most extravagant, colourful, imaginative things ever made. And do you know what the prefix A means? No. It means without. Yeah. So, absolutely not weird at all when you... Yeah, when you really break it down. When you blow this shit wide open.
+
+[00:33:54] Okay. Hey, there was another musical knife that I found, which was from Switzerland in the early 19th century. It's really gorgeous. It's like an early, very basic Swiss Army knife. But it's got two blades, one for fruit and one for flowers. And if you can imagine a tiny Swiss army knife. What's the difference between those two things?
+
+[00:34:14] It's like you've got your fruit knife and you're trying to cut up top off the flowering. Like, this is not working at all. I will tell you, I know what it's for because the fruit one, the fruit blade is guilt. And that's so the fruit juice won't corrode it when you slice your lemon. Fine, I suppose that does make sense. Exactly. And then the flower one, I guess, is no problem. But it's got a musical mechanism inside. And this is, I think it's from about 1800. And it's got a little clockwork barrel inside and it plays music. And this was on the Antiques Trojaro a few years ago. Sounds incredibly annoying at the dinner table, doesn't it? And it's going to ruin the vibe if you are trying to murder someone. If you have someone in the heart and it starts playing twinkle, twinkle, little stars, you're doing it. Is that what happens at most of your dinner parties, Anna?
+
+[00:35:02] It is, yeah. We've got a very big seller. There are some industry legends of naming drugs, which I like as well. Arlene Tech is very famous in the biz as the woman who named Viagra. That was her huge innovation, yeah. And she did it by speaking to... So Viagra's a brand name, not a generic name. Yeah.
+
+[00:35:29] And she did it by asking a group of urologists what it's like, what it feels like for men when you've had erectile dysfunction and then it's cured. And one of the doctors said, imagine a strong stream. And she combined the word vigorous and the word Niagara and came up with Viagra. Ah. That's good. Really good. Yeah.
+
+[00:35:49] The US can be strict on its rules about, like even brand naming, right? You've got quite strong rules of brand naming. And the US rules seem to basically say, you're not allowed to suggest that the medicine works. So there are a few things like there's a hair. regrowth treatment called Regain. It's called Regain in Europe and the rest of the world. In America, it's called Rogain because you're not
+
+[00:36:15] allowed to suggest that it's always going to cause your hair to regrow. I think hair growth stuff is generally Oh, it's dodges help. Yeah, exactly, right? Absolutely. They're dumb, right. There's another one called, which is a stop smoking tablet that you take, which is called Champix. And in America, it's Chantix,
+
+[00:36:33] or Chantix. Because Champix is a little bit too triumphant. It's a bit like champion. Exactly. And what if you're not a champion? What if you take them and then you're back on 40 a day by the end of the week? It's misleading. I guess it's a bit like that thing about how digestive biscuits weren't allowed to be called that in America
+
+[00:36:49] because they don't help your digestion. Is that right? Yes. Gosh, it's very literal. But the champion thing, you should be allowed to call your thing like awesome pill, even if it's not, right? You should just in theory. You would have been a quack in the 18th century. Roll up, roll up.
+
+[00:37:06] Come and see Daniel Schreiber's Pills of Mystery. Stick them up your bum. It'll make you flow like Diagra. You know the song WAP by Cardi B. I've read reports about it in The Daily Telegraph. There was a Republican who was going for Congress this time called James P. Brady, who said that every time he heard the song, it made him want to pour holy water into his ears.
+
+[00:37:34] What's wrong with this song, Wap? It stands to a wet-ass pussy and it's about... Wow. Yeah. It's about... Get me some holy water right now. It's an extremely feminist song about women taking charge of their sexuality. I've just said that's disgusting, James, so that's going to sound really bad now.
+
+[00:37:52] And holy water will only make things wetter. What you need is a holy towel. Some holy kitchen roll, perhaps. She credits Popeye with saving her life. Who, Olive? Yes, not who we're talking about. Oh, damn, we're on Dolly Parton. No, she credits Popeye the dog with saving her life.
+
+[00:38:14] Oh, Popeye the dog, of course. Popai the dog, you know, the second-st famous Popeye. This was, it was in the 1980s where she fell in love with someone, I think didn't have any physical relationship, but she kind of, you know, she was married, but it's a long time, she fancied someone else, was upset when he didn't fancy her, and she looked at a revolver, and it's weird because Dolly Parton's such a bubbly, cheerful person, But for a moment, she looked at the little gun she keeps in her bedside table for when she gets burgled. And she thought about, she thought about killing herself.
+
+[00:38:45] And then she said she heard the little tap, tap, tap of Popeye, the dog's feet coming up the stairs. And she took it as a message from God. In fact, she told the Times in an interview, well, you know, God is dog backwards. So I took it as a message from him. Dogs are God's little pockets of friendship he sends our way. and it snapped her out of it. Wow. There's one thing physically that we don't know about Dolly,
+
+[00:39:12] which is what her arms are like. So she always, despite wearing, spending 50 years wearing very tight or very revealing costumes in lots of ways, she's always got sleeves. She's got very long sleeves on. And there is a conspiracy theory. And even saying that, I've talked about way too much, there is a slight tiny subsection of fan belief that she's actually, absolutely covered in crazy tattoos, you know, from wrist to shoulder.
+
+[00:39:39] And it's possible that she has been asked about it and she's denied. In fact, she's quite a clever denial where she only actually denied that she has snake tattoos. So we know her arms are not covered in snake tattoos, but there might be all sorts of other tattoos on her. We don't know. There are other types of tattoo. Yeah. So many others. I've just Googled Dolly Parton images.
+
+[00:40:04] I can see her arms. Her arms are here. She's on the front cover of Playboy, for example. She may have got the tattoos after she did the Playboy cover. Recently, she went to see if that's what I'm saying. Possible. I have to say, I have now done what Dan's done, and maybe it's our different search preferences,
+
+[00:40:18] but I can't see any naked arms in any of these pictures. Oh, here's some naked arms. There we go. Put in Dolly Parton Playboy, because that's a famous thing that she did, and she's asked to do again for her 75th birthday, which has now happened, and I don't think it's happened for her, that she's back on the cover.
+
+[00:40:34] But she was a Playboy model. And, yeah, her arms. Or her fake arms. I've just Googled Dolly Parton's Arms. And there are a few, definitely a few images relatively recent. All right, guys. We don't have to just, you know, there is such a thing as arm makeup. Can I remind you to cover tattoos?
+
+[00:40:56] Yeah. And I don't like us just Google image searching. My admittedly quite weak fact about Dolly Parton's arms. I'm amazed by the fact that there's such a lot of tattoos. a thing as arm makeup. Again, please don't Google whether or not arm makeuping. So I'm just going to do that. Is there a such thing as, is there a such thing as arm makeup?
+
+[00:41:14] They definitely is. They do it for movies, don't they? They do it for movies all the time. Yeah, but you wouldn't sell arm makeup in a separate section of the shop to leg makeup. They'll do skin makeup, won't there. Is leg makeup a thing? I'm not saying leg makeup is a thing. I'm being... You just did. Oh, no. I'm being...
+
+[00:41:30] I'm being corrected in real time. And Dan, it feels horrible. You don't know how you've done. It's not long. You get used to it though. You eventually learn to love it. 300 more episodes of it, Andy, and you'll have tough enough. Here's a fun thing about sunglasses and tanning.
+
+[00:41:51] There is a theory that if you don't wear sunglasses, you can get a tan, even though you're wearing suntan lotion and you, you know, wearing clothes. So there's a theory that just exposing your eyes to light. Okay. that will help you tan. And this is really, this is based on an experiment in mice. So I don't think an equivalent's been done on humans, as far as I know. How can you tell if a mouse is tanned? Well, you just shave it, don't you?
+
+[00:42:17] I guess you shave it. Yeah, thanks all right. So this was an experiment in 2000. And the scientists involved, they dressed mice in tiny suits of aluminium foil, adorable, little mini mouse armor, and they gave them holes for the eyes. okay. So they had your armour mice and then they had normal mice and they exposed both sets of mice to UV light for a year and then they looked at their skin. And it turned out that both sets of mice, even the ones which have been wearing suits of armour all year, had similar amounts
+
+[00:42:49] of melanin in their skin, implying that it was the exposure of the eyes that was the thing which was giving them the melanin. Does that also, if you take that in the other direction, if you go sunbathing with your eyes closed, then you won't get a tum. People have suggested that. No, people think. And it's, well, because it's online, I think probably off the back of this experiment, people think that if you wear sunglasses, then your body will be tricked into thinking that it's not sunny, and so it will not produce melanin. And so you'll get burned really badly. Wow. Wow. And I, so, and it's weird. No one's properly debunked this yet, but there was a molecular biologist who has asked this, who said that it is not your eyes, at least in humans, that
+
+[00:43:29] trigger the hormone response, the pineal gland, which make you produce melanin. is your skin. So it definitely doesn't happen in humans. I don't, in mice, clearly different setup going on. Yeah. But wearing sunglasses is not a substitute or a counteraction of sun time green. I love just jumping back to Andy's description quickly of the mice. It's such a fine line, isn't it, between what you would say is animal cruelty in the kind of way you tell a story. A lot of people would be like, and for a year, they dressed them up in tinfoil, these poor mice, but Andy's sort of going, they look like cool little knights.
+
+[00:44:07] They had a fun time, didn't they? You're the kind of guy, Andy. They would hire for movies just so they can say no animals were hard during the making of this movie. All the animals had a whale of a time in the making of this movie. Except the whales.
+
+[00:44:21] Who were terribly mistreated. I like this one. I found one drug that's called Anna Kinra, which is a balm that you put on your neck if you've just had it knocked off by a train. I love that. That's actually for arthritis.
+
+[00:44:42] Oh, it's a real thing. Yeah, it's a real thing. She never, of course, never lived to experience arthritis. I found out a nice term. This is just a bit of drug industry slang, and it's when a drug is no more effective than a placebo. And the term for that is crossing the futility boundary. because literally the drug is completely pointless.
+
+[00:45:04] It doesn't do any better than a placebo drug. So, yeah, you've crossed the futility boundary. So you can use that in day-to-day life now. Hopefully we can't buy many of these drugs, right? Surely they're not being approved? Oh, I just mean in day-to-day life, you can say in your own activities, I've really crossed the futility boundary on this whatever activity. Broaden out.
+
+[00:45:25] Like if you're watching a TV series in your three seasons in, you're still not enjoying it. Do you think we've crossed the utility boundary of this? section of the podcast? I think the podcast in general some years ago. The Texas theme reached number six in the UK charts in 1992
+
+[00:45:43] and Andrew Lloyd Weber was the man behind it. I bought it, I remember. Did you really? Yeah, yeah. Andrew Lloyd Weber composed the tune? No, he remixed it, didn't he? It's a Russian folk song. Yeah. Yeah. Is it? It's by Nikolai Necrosov. You speak Russian, James. Can you
+
+[00:45:59] Can you give us a little excerpt, possibly? Just because I did it, because I did it off mic earlier on. I'll try, I'll try. So it goes, Oi poln impolna, my carabushka, yes, he see tietzi parche. Hi. So I shall I do shes a zanabushka,
+
+[00:46:20] maladjitka for pietcha. There you go. Woo-hoo. Nice one. Beautiful. Very good. So, Andrew Lloyd Weber then took that, very well-known traditional tune and past office's own,
+
+[00:46:32] sounds very unlike him. Oh, my goodness. Yeah. That's just a little slam from having listened to too many Lloyd Webber's soundtracks over the years. Wow. Also rendering this podcast completely legally unstable. Okay, that's all of our facts.
+
+[00:46:56] Apologies for my singing there. If you would like to get in contact with me and tell me how terrible. of my voices, you can get in touch with me on at James Harkin. You can get in touch with Andy on at Andrew Hunter M. You can get in touch with Dan on at Shriverland. And if you want to speak to Anna, you can email her on podcast at qI.com. Of course, there is our group account on Twitter, which is at No Such Thing. And if you'd like to learn anything more about the show, get some merchandise, maybe get
+
+[00:47:27] some tickets to come and see us live. Then you can get all that information at No Such Thing. as a fish.com. Okay, we'll see you next week. Goodbye.

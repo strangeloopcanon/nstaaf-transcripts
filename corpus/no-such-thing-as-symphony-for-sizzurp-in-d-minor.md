@@ -1,0 +1,257 @@
+# No Such Thing As A Fish - No Such Thing As Symphony For Sizzurp In D Minor
+
+- Episode date: July 14, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-symphony-for-sizzurp-in-d-minor
+- Slug: no-such-thing-as-symphony-for-sizzurp-in-d-minor
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I'm sitting here with Anna Chisinski, Andrew Hunter Murray and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order, here we go. Starting with you, Andy. My fact is that to be a tennis umpire, you have to learn a 230, page book. This is a rule book specifically. It's not a novel.
+
+[00:00:49] And this is specifically the US Tennis Association. So over in Britain we've got the Lawn Tennis Association, which is a slightly different thing. It's the more or fewer rules, do you think, for the lawn one? I don't know. It's going to be similar, isn't it? Probably a similar length.
+
+[00:01:02] Yeah. But I have been reading the rules of Wimbledon. So is Wimbledon the same guidebook? Wimbledon is Lawn Tennis. So there's a slight subject. Change tors is almost immediately. I think the rules are generally going to be the same, are they? It's not like in Wimbledon you're allowed to kick the ball over.
+
+[00:01:20] In American tennis, you have to hit it outside the lights. When they have to learn it, do they get tested on it? Do they have to memorize the whole thing? Can they not keep it as a reference kind of in their pocket? Check it as they go through. I used to be a football referee. I was qualified as a football referee and you have to do an exam. So you really only have to learn what comes up on the exam, really.
+
+[00:01:41] It's kind of like a dry, saying for a driving test you have to learn a 500-page book on the rules of driving but actually you can't recite that from start to finish can you can't you can't you can't you go on that's why you're constantly crashing your car around the place whereas I who am constantly referring to a 500 page book go on give us some rules all right um so I think it's quite well known that at Wimbledon you can get fined for swearing yes can you yeah you get fined twenty thousand dollars if you swear does it depend on the word no oh so you might as well used the strongest one.
+
+[00:02:13] You may as well, yeah. Is that, that's if you're a player, right? If you're a player. Okay, so you're just walking around the grounds, oh fuck, I've overcharged me for my beer, and they take you away. 20,000. Thank you. That could have bought you one punitive strawberries.
+
+[00:02:26] No, if you go out in the first round, though, that is nearly half your winnings you would have spent on swearing once. Oh, wow. And the umpires and the staff, they have to learn swear words in other languages in case a Latvian. tennis player swears in Latvian. That makes so much sense. It's interesting about the people
+
+[00:02:48] being paid if you lose in the first round because that was in the news last week because people were losing in the first round injured and they knew they were injured going into it but they've turned up and played anyway and then just given up halfway through to get the money. And the thing is they've worked to get there.
+
+[00:03:03] You know what I mean? Over the whole year they've got their rankings high enough that they get to where they are so they kind of is fair enough I think. I think it's totally fair enough. It'd be like one of us turning up with no facts. That's me every week. Right. Yeah, but every week we find you, 20,000 pounds.
+
+[00:03:18] But Dan, over the last three years, has done enough to earn his place and done enough to just turn up with no facts. Yeah. Yeah. I'll tell you what's bad, though, is the fact that tickets to Wimbledon cost a fortune. To get center court as well, you're paying huge amounts of money well in advance. So on this particular day we're talking about in this current Wimbledon competition, Federer was playing.
+
+[00:03:39] So you're thinking, I get to see Federer. center court of Wimbledon, this guy pulls out 25 minutes into the match or so. Next match, Jockovich comes on. Same thing happens. Guy pulls out. So you've got center court tickets for two of the great tennis players of our time. You do expect that in the first round.
+
+[00:03:55] Don't get a center court tickets in the first round. Oh, come on. I don't really get some for the final. The box. Obviously, it's ridiculous, but there just should be rules. It's stupid to imagine that an individual should make that decision.
+
+[00:04:06] There just needs to be health checks. So in normal tennis, that's not the grand slams, they do have the rules. So if you're injured, but you've already qualified, you get your money and then like a substitute comes in and they play and they only get money if they win. So if they lose, they don't get anything. But if they go through to the second round, they do get money. Oh, but they don't play under your name. You mean they're right? They have to put on a mustache if you've got a mustache. Learn these swear words in my language. But I think it was, it might
+
+[00:04:34] have been the other Randy Murray's idea to do that and they brought it in this year as a trial and it seems to be working quite well. That's cool. I like that. The other Andy Murray. Yeah. As someone who's been the other Andy Murray until now, literally now, when you just said that. But just on the swearing thing quickly, there is another rule which is about visible obscenity,
+
+[00:04:52] which I had never read before. And so it's this. For the purposes of this rule, visible obscenity. Stop doing that, James. With your hands. Visible obscenity is defined as the making of signs by a player with his hands and or racket or balls that commonly have an obscene meaning. And does it define what they mean by balls in that situation?
+
+[00:05:16] There's even a rule on abuse of balls. Abuse of balls. Yeah, players shall not violently, danger, or with anger, hit, kick, or throw a tennis ball. Because that happened. Was that Tim Henman did that once? Yes, he's the first player ever to be kicked out of Wimbledon for... What?
+
+[00:05:31] No. Yeah, because you... So another thing that swearing does for you is, if you don't get a fine, you get a penalty point. And you can be penalized. out of a match. So there's a famous example of a guy called Briden Klein. He was facing a guy called Sam Groff. And during the match, he served. And this was in the final game. He was losing. Served it into the net and just yelled out, stupid, stupid person talking about himself, he claims.
+
+[00:05:56] But the umpire said, I don't know who you directed that at, but that's rude. You've been given a penalty point. And because he got one earlier in the match, the match was over. They didn't even get to finish the match. Stupid, stupid person. It's very rude in Latvian. The funniest bit about it, though, is that he looked to the other player to say, hey, come on, like, bail me out here. You know, that was neat. The guy said, I'd like to help you, but it's too tough to call from here.
+
+[00:06:20] And he pointed to the lines woman. And so the guy who said, stupid, stupid person said, she's a 60-year-old lady wearing Lika. And then he stopped himself because he's like, ooh, I'm about to get another penalty. I read some of the rules. This is for normal tennis, which is not Wimbledon. one of them is quite good
+
+[00:06:37] the event organizer has to announce how many balls they'll have before the event in play at any time okay and the number of balls for play is either two three, four or six I want to know what happened with five why not five?
+
+[00:06:55] Oh yeah, why not five? Very weird. I completely understand that though. It's to do with how many are in a can you wouldn't open a new can for just one ball I guess but you went for two I don't know. But you wouldn't have seven either.
+
+[00:07:07] There's just something that feels a bit wrong about it. So you're allowed two or three, but no other prime numbers. Is that what you're saying? Yes, that's exactly. Yes, exactly. I think it might be Dan's explanation. Because you do get cans in three or four portions. But then you wouldn't be able to get one and two either.
+
+[00:07:25] That doesn't make any sense. One tennis ball can will be a very sorry sight indeed. It looks like a tiny pringles. Just on balls. I didn't know this, but men and women tennis play with different balls. No. The only reason I read about this was that in March 27th at the Miami Open, Andy Murray, mid-game, complained to the umpire that he was playing with women balls.
+
+[00:07:50] And the idea is that the female ball is much quicker, much speedier. You have so many dominant male servers in the game that it means that they're almost unreturnable. So the male tennis ball is a bit more fluffy, which means a bit more. more drag in the air, which means that it slows the game down. And with the female balls, it just has way more speed on it. That is amazing. That's when I learned it as well when Andy Murray complained about that. And I think the whole country went when he did that, what the hell? There are women's balls. And I felt like Annie Murray had leaked something that maybe no one
+
+[00:08:21] was supposed to know. Yeah, because I have read an article about the behind the scenes of Wimbledon, basically. And it refers to the guy who's basically the ballmaster, who's a man called Brian. and Wimbledon uses two lorries of balls every year. It uses 57,000 balls. And they're all kept at the same temperature in rooms under centre court. And apparently they're now divided into men's and ladies' balls. And no one mentions them. But this is why I think the can argument for that being no five ball games can't be right.
+
+[00:08:52] Because they've got a lorry load of them, right? It doesn't really matter about having five or six or seven. Do you think they're just free balls stuffed into a lorry? And they open the lorry and they all care. cascade out. I'm thinking of it as a world's greatest ball pit. Yeah. That's exactly what I'm thinking. The thing is, though, the lorry carrying the ladies' balls actually drives a lot faster to get Wimbledon because it's got less fluff on the outside of it. So one thing that they're really strict on at Wimbledon is clothing. And I didn't realize how many players have objected to this
+
+[00:09:23] in the past. So, Andre Agass... So obviously at Wimbledon, you have to wear all whites, which isn't the same other grand slams. And Andre Agassi refused to play at Wimbledon until he was. was 21, which I know doesn't sound very old, but you know, he didn't play in the juniors or anything. I too refused to play at Wimbledon until I was 21. I'm still refusing, actually. Once they change that rule, you're in. But yeah, he refused and then eventually he succumbed and said, oh, I'm obviously going to win this a bunch of times, so I'll play.
+
+[00:09:49] But he used to wear denim shorts to play his grand slams, which is an insane thing to wear. There was a woman in Eugenie Bouchard, who I think still plays. But Eugenie Bouchard in 2015 got a dress code. violation for there was a black bra strap showing. So there's only one centimeter of any other colour allowed at Wimbledon. And she was wearing a white sports bra underneath because the rules say, as you will know, if you've read this document, that any undergarments that either are or can be visible during play, brackets including due to perspiration, closed brackets must be completely white, as in make sure when you wet your white shirt, you can't say a black bra underneath.
+
+[00:10:29] What if your perspiration gives you miscolored stuff? stains. Oh, yeah. What if you piss yourself? Imagine the humiliations you find 20 grand for pissing yourself on centre court. Especially as you go to the umpire, I've pissed myself and they go, that's another 20 grand. Actually, last year there was controversy. There was a Uruguayan player called Pablo Cuivas, and he was accused of urinating into a ball can during a match under his towel.
+
+[00:11:01] he was issued with a code violation although Wimbledon Chiefs did say and I'm quoting here no urination was involved So he just got his willie out And put it in a ball can You might want to cool it down during a match That's true, yeah
+
+[00:11:15] I was playing tennis the other day And we lost a crucial point Because what ended up happening Was my doubles partner Hit the ball, didn't quite capture it And hit it again in the same swing You're allowed to do that You're allowed to do that
+
+[00:11:28] It turns out reading this rule book It says you are allowed to do that we lost that crucial point. In the same swing. It has to be in the same follow through, the same swing. So if you hit it in the ball bounces, obviously you can't do that. If you hit it away and you chase after it and you get it. But if it's in literally the same motion and you just almost scoop it slightly.
+
+[00:11:45] Unlike golf, for instance, where if you do a double hit, that counts as a penalty. But Isaac, because surely once you hit it, it's moving away from you faster than the... Depends how good you are. Because sometimes your first hit is only almost a stopping point for it. Let's say it hits the rim of the racket And then it kind of slows down And then you kind of hit it with the strings So I think that's why it probably exists
+
+[00:12:09] Because that does often happen You rim it and then it hits the other bit of your racket And it's a double hit So I've seen you play tennis, sadly You struggle with single hits, I do I do In Wimbledon not only do they have 230 page rulebook for the games
+
+[00:12:26] They have a rulebook for the queue Yeah, they do Well, there's rules anyway. You get given it in the queue as soon as you join. Yeah. Because it's a main big thing, isn't it, the queue? Yeah. People stay there for days.
+
+[00:12:39] The rules are no barbecues, no gazebos, no music after 10pm. And any tent can only hold a maximum of two people. Why is that? Or three or four or six, but not fine. No, it's to stop having massive tents because there's only a certain amount of space. They want, you know. But couldn't you have a massive tent, but only two of you in it? Well, again, that's the kind of thing that's trying to stop, I think.
+
+[00:13:02] Oh, I see. Yeah. Yeah, I've done the cue and they try to make it fun. It is, you know, you start queuing it, I think we started queuing it at 4 in the morning, and we managed to get onto one of the very outer courts. I don't think I've ever done anything fun that began at 4 a.m. Except for if you've been up until 4, right? Oh, yeah. There you go.
+
+[00:13:18] I've never done that. The thing about the grass at Wimbledon, I found out, is that. So obviously they're very, very, I was about to say precious. They're just very precise about the grasses, as in it's treated. It's shaved by exactly a millimeter each week for 12 weeks. But the guy who does it, the head groundsman, is called Neil Stubbly. Yes.
+
+[00:13:42] So you would have to kneel down to make it stubbly. Yeah. Did you see that that study just came out that says you can predict who's going to win a tennis match based on the noises they make? And they're grunting. If the noises they're making out, oh shit, they're going to lose. It's kind of similar. So they analysed a bunch of top tennis players and the pitch of the grunts they make
+
+[00:14:05] and the higher pitch the grunts go, the more likely it is you'll lose. And in every case, you get higher and higher. You're getting less and less good at tennis. Funny. You don't grunt at all when playing tennis. Neither do I. Neither of you are elite sports people. I do sometimes say things like,
+
+[00:14:20] that's another game to you, Anna. But a lot of people think that even though it's not against the rules, grunting is against the spirit of the rule. because it basically gives you an unfair advantage according to some people over the opposition. It does. Wasn't there a specific coach who's known as the grunt coach? Yeah, he's called Nick Ballettiary.
+
+[00:14:40] Right. And he looked after Sellers, Agassi and Sharapova and the Williams sisters, and they're all big grunters. And he says that actually he doesn't tell them to do that. It just happens to be the case that they do. But then other people think that he's telling them to do it because it stops you from being able to hear the sound the ball makes on the racket. And that might be able to give you some clue as to what spin might be on it or whatever.
+
+[00:15:02] There was a study that did show that grunting makes people respond more slowly in tennis. And so it is none for advantage. I saw yesterday morning on the BBC there was a little piece with David Attenborough, which was really exciting. Because he's very much involved with Wimbledon in a large way. So Attenborough is the one who turned it into colour television. And there were interesting things that happened with that. One is that's when they started using yellow tennis balls. up until then they used white tennis balls
+
+[00:15:30] and the reason they started doing that is obviously colour television it was much more visual for people to see as it was going along and there was this other thing I haven't been able to find it online but it was said in this piece which is that the trophy that they now use is not the original Wimbledon trophy it's a different trophy because the original one just didn't look that good on camera
+
+[00:15:47] it was actually black and white it was a black and white trophy yeah no they started using this different trophy which is gold and so it's more tele-visual yeah exactly we'll get rid of that old coal and chalk trophy that we've been using. It looked great live, but they also used, tennis courts used to be
+
+[00:16:03] hourglass shaped, didn't they, until Wimbledon came along. I mean, really, really early tennis courts. Yeah, no, I didn't know that. So until Wimbledon was established, I think the first Wimbledon was in 1877, that was when they decided to make them rectangular, but before that, they used to go in at the net.
+
+[00:16:18] So they were like a... Is Wimbledon kind of the originator of all these grand slams? Is it the original grand slam? I think it was the first. Must be, yeah. Because before that, it was just croquet. Oh, it really beat out croquet. It's a bit sad.
+
+[00:16:30] We could all... So the reason Croquet disappeared was that they thought, let's start playing tennis on these croquet lawns a bit. And then everyone went, oh, this is a better sport. Oh, they took my cords. Also, the fact that croquet is a pretty shit spot. The whoa, whoa, whoa, whoa, whoa. Penalty.
+
+[00:16:43] Language. One more you're out, mate. I think croquet's a great sport. You can be really devious and not great. I think you see the true side of human nature when you play croquet. Where to you guys learn about football? The Uber, C.E. Oh, as in Uber's CEO.
+
+[00:17:00] Not the chief of all the CEOs. Not the chief of all CEOs. He's been involved in what people are calling a tennis scandal. Is he the current one or the one who's just left? This is Travis Kalanick. He's the one who just left. His biography on the website, amongst many other things of what he's done in the past, also claims that he managed to rack up the second highest wee tennis score in the world.
+
+[00:17:21] People are now claiming that they think that that's not possible. Yeah, I think it's not true. Yeah, largely because there is no game called, We tennis. You've got Wii sports in which it's a game within it, but that doesn't have a leaderboard, so it can't be that. There's another game which is called We Grand Slam tennis. And there's a third one which is called We in your tennis ball container.
+
+[00:17:50] Okay, it is time for fact number two, and that is a Chazzynski. My fact this week is that in Mexico, artists can pay their taxes in artwork. It's amazing. It's so weird. It's the only country where you could do this, unsurprisingly. And yeah, it's this rule that's actually existed since, I think it's 1957 that it was first suggested. And it's the idea that artists, if they can't pay their taxes or don't want to, they instead donate a work of art as a portion of their sales.
+
+[00:18:20] And so it's not even done on monetary value. The way it's done is that for every five pieces of art you sell, you pay an additional one to the government. So if you sell up to five pieces of art, you pay one. and then if you sell more, it becomes like a progressive taxation system. And the maximum number you have to give to the government any year is five works of art. That's interesting. I wonder, so let's say you sell four incredible, massive works of art, and then you just do one doodle on a napkin.
+
+[00:18:45] Does that count? Yeah. That's a great question. I don't think it does count because apparently there is a committee to make sure that people don't take the piss. So it's basically you have to give them an average one, which means you're paying 20%, I guess, right? Yeah, well, they're not clear. I think it's a little bit more touchy-feely.
+
+[00:19:01] that. So yeah, there's this jury, which is 10 other artists who judge the quality of the painting and decide whether it's... For an artist, that's got to be hard, isn't it? Yeah. This one's a bit dodgy. What? And some have been rejected in the last few years. There are some famous artists who've had their paintings rejected as taxes, which is pretty harsh. But yeah, and then they go, okay, we'll accept this one as tax sure. So in South Carolina, you can donate a deer carcass and get tax credit for it. There's a venison for charity tax credit and so you don't pay tax on $50 if you donate a dead deer to the government. Is there a box when you're doing your tax form? Just the numbers the amount of dead deers you've got in your garage waiting to be submitted. So hang on. So presumably
+
+[00:19:50] hunting is allowed? Yeah. It's not that you find a deer that died of natural causes. I guess they'd have to accept that as well. I don't think they specify cause of death. Okay. They're not going to have a mortician for every single carcass that comes in, are they? That would probably cost more than the $50 you're saving on the tax. But you would, you're right, you would hope that they test the quality of the venison because you don't want some old bit of rotting road kill being sent to the charity. There's a committee of 10 chefs who actually... The World Bank and Price Waterhouse Cooper came up with a check for who has the most complicated tax code in the world.
+
+[00:20:27] And the way they did that is they imagine a hypothetical, ceramic flower pot manufacturer. And this manufacturer has one building, two plots of land, one truck and 60 employees. And they work out how difficult it would be for that person to do their taxes. Okay.
+
+[00:20:44] If you were in the Maldives, it would take you less than an hour to comply with the Maldives tax code. And in Brazil, it would take 2,600 hours. What to do it? Which is 108 days of non-stop work. No.
+
+[00:20:59] Yeah. That is insane. Yeah. They've just got an incredibly complicated tax code. Is there much tax avoidance in Brazil? Because I imagine that would surely encourage people to avoid tax. Well, that's the argument, isn't it, that why you should simplify your tax code in every country? Because in America, in 1913, their tax code was 400 pages, and now it's 70,000 pages, which is about 280 times longer than the tennis law book. All right. All right. but in India at the moment for instance they've massively
+
+[00:21:33] simplified their tax a thing called GST where there's just four basic rates now whereas in the past all the different areas and villages would all have their different tax codes and they simplified it that's what we have in Australia GST yeah yeah goods and standards tax exactly and this is the biggest place that has ever done it so in India there's two trillion dollar economy with 1.3 billion consumers but it's so important to them This has happened only in the last week or so. There was a baby named GST.
+
+[00:22:05] That's great. In Australia, apparently, there's a Queen Bee tax. That's only Queen Bee's pay. That's right. No, if you sell a Queen Bee for over $20, you have to pay 10% to the government. Who's selling a Queen Bee for $20? That feels a lot. For over, for a B.
+
+[00:22:23] Are you joking? A Queen B. A Queen B? An individual B. Yes. I still think that's a lot. lot for a bee. No, don't be. They're so small.
+
+[00:22:31] They produce a whole hive. I mean, diamond rings are quite small, aren't they? Well, how much do you think I spent on my wife's engagement? That's why it's a hula hoot. I think that is a lot. Are you joking? They can yield so, because they're so important, they'll yield so much honey. You'd make such a profit out of $20.
+
+[00:22:47] I think the normal price would be hundreds of dollars for a queen bee. Yeah. Oh, that's what I paid for my last queen bee. And I just don't want you to be insinuating. I was taken for a fool. I don't know. Is the queen bee, pregnant at the time.
+
+[00:23:00] I think you might need a drone or two. Yeah, so then how much you pay for that one? I think they're cheap. They're super cheap. Remember you could rent one? We did that years ago. That was one of our first facts on the share. But that's what I mean, because to rent a bee is like one cent per hour per bee or something stupid like that.
+
+[00:23:16] So the queen bee is comparatively a lot more than that. And at the end of the day, they're all still bees. But if you leave a queen bee somewhere, it'll attract a load of other bees. They just find them. That's why bees keep on, you see a car covered in bees somewhere. That's because there's a queen bee under the bottom. So really what you're doing is you're paying for the queen bee,
+
+[00:23:37] but actually you're getting hundreds of thousands of other bees. It's like a Sky TV deal, I imagine. Where you pay for Sky would actually get loads of channels. Right. Except every channel is a bee. And Sky One is the Queen Bee, is it? Yeah, that's right. It seems expensive if you think you're just buying Sky One.
+
+[00:23:54] But you're actually getting loads of Sky. I do understand that now. to put it into terms you can understand. Did you finish your story or did we cut you off at Queen Bee? I think we extended it far beyond. Okay. The IRS in America, one of the things that's tax deductible for them is ransom for kidnapped loved ones. If you pay to have your loved one returned, that's tax deductible.
+
+[00:24:26] That's brilliant. It's an expense like. So that's not true in Britain because in Britain it's counted as a bribe. And bribes are illegal and you're not allowed to claim them back anything illegal. But in America you can. And was it John Paul Getty? Yes, the third. Yeah, who's one of his family were kidnapped and they ransomed him for X amounts and he said he'd only pay Y amount and that was the maximum expense that he was allowed to claim or something like that.
+
+[00:24:51] Yeah, so John Paul Getty the third was kidnapped and it was his father who said he would pay the ransom but only up to 2.2 million. because then that's the maximum that was allowed for tax deduction. I'm sure. Did his son understand that he couldn't go above that? Otherwise, it would be taxed? I think he would have, because I think he would have been brought up in the way that his dad conducted business.
+
+[00:25:11] I read that Warren Buffett submitted his first tax return when he was doing newspaper in milk rounds. So, like, you know, I think this guy would have been in a similar, like, oh, that makes sense, dad, yeah? I like the excuse of something my dad told me. So Ken Dodd was accused of not paying taxes for a while. He was accused by the Inland Revenue. And I feel like you, when you made that face,
+
+[00:25:33] were doing an impression of Ken Dodd. I'm really sure if that's not what you're trying to do. I wasn't. I once met Ken Dodd. Yeah, he was at museum, wasn't he? And he said to me, do I know you? And I said, I don't think so. And he said, yeah, yeah, I know you. We were on the same police line up together, weren't we? Funny guy.
+
+[00:25:49] Yeah, he is funny. So apparently, the inland revenue said, you haven't been paying us for years. And he said, I didn't think it applied to me. I lived by the seaside. Did he? That's funny. No, no, Doddy.
+
+[00:26:01] Oh. Yeah. It's a joke. Andy. I would, I don't know. In 2015, one person living on a street in Hull complained that they were paying more council tax than all of their neighbours. They went to the council and the council up to all of their neighbours' council tax.
+
+[00:26:22] Turn out that made their life a lot worse, I imagine. Okay. It is time. for fact number three and that is James. Okay my fact this week is that the size of a rainbow can tell you how polluted the air is. So is the rainbow more of a prominent feature in a more polluted area? It's not really easy for us to see, but if you're a scientist you have the right equipment, you can see very small changes. So if there are chemicals like acid rain, it would change the size of the droplets, which would change the size of the bow. And so,
+
+[00:27:02] They look at that and they can tell exactly what chemicals are in the air. Wow. Do you know like double rainbows that you can get? Actually, this isn't double rainbows, twin rainbows, which is a slightly different thing. You can have two rain showers that are kind of near each other, one with small raindrops and one with fat raindrops, and they will give you two different rainbows. And they'll start in the same bottom left-hand corner or bottom-right-hand corner, and they'll come around, and one will be higher than the other.
+
+[00:27:28] That's called a twin rainbow. I've seen one of those before. Have you? Yeah. They're quite rare. Yeah, I mean, it was, I saw it once and that's it. Yeah. Great.
+
+[00:27:36] Where did you see it? I think it was in Austria at the time. Really? Yeah. I really like James's tone when he went, they're quite rare. Like, I think you probably just saw a double rainbow, Dan. Because, yeah, that's unbelievable. So it looks like it's sprouting from the same origin, but then it sprouts into two different
+
+[00:27:53] rainbows. No, I wasn't listening. I've seen a really big rainbow, is what I was saying. I can't have you John, as you're joking now. So, you can get a quadruple rainbow.
+
+[00:28:06] Wow. Okay. There was a photograph online of a quadruple rainbow. It wasn't really a quadruple rainbow. It was just four rainbows. You can see why they mistook that. Yeah,
+
+[00:28:16] you can see it, but it was a rookie error. A photograph of a quadruple rainbow just looks like two rainbows. And the reason is that you've got two in front of you, say the sun is behind you, you've got two rainbows in front of you,
+
+[00:28:29] and then they were, reflect backwards and so the other two are behind you so it's impossible to take a photo of them of all four of them at the same time unless you do like a panoramic picture and they're extremely extremely extremely rare so you've probably only seen a few of those I've seen six of those no more there's I think there's only one photograph of them ever right and it's only of two of them it's not of the other two why because the camera couldn't get them in because two are in front of you and two are always behind you don't have you been listening to any of this you've literally just explain that.
+
+[00:29:02] Do you know you can get white rainbows? So this is... That's a cloud, mate. That you saw a cloud. No, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, they float in the sky. No, they are, these are light rainbows. They get called fogbows, okay?
+
+[00:29:17] So if you've got fog in the air, that's where the water droplets hanging in the air are incredibly microscopically tiny. So you do get the rainbow effect, but they're so small that they don't actually show color. Wow. They are stunning. You can get all red rainbows as well. Just a single red.
+
+[00:29:35] Terrifying. I know. That's cool. And a lot shorter song as well. Yeah, they're sort of evening time, aren't they? So it depends where the sun is in the sky, the kind of color of your rainbow. They gradually start to lose their colors one by one, don't they? The shorter wavelengths die first.
+
+[00:29:51] That's a good title for something. Yeah. Like a murder set at a radio station at Murder Mystery. The shorter wavelengths die first. Yeah, in Norway where they've just turned off their FM radio. Yeah. So it's a Scandi noir drama. But it's kind of also about the progress of technology and leaving behind more dated.
+
+[00:30:09] It's got lots of layers. Like a rainbow. Just on the red rainbow, there's actually a physicist who in his lab has been creating red rainbows as well using lasers. He's a physicist at the von Kerman Institute for Fluid Dynamics in Belgium. and he shoots a laser into a droplet. And so he gets these tiny rainbows that are all red. And he says that the form of the rainbow, under those kind of controlled conditions,
+
+[00:30:39] you can precisely determine what shape it's going to be, what size it's going to be, what the composition and temperature of it is, purely by looking at the droplet before it's sprayed out. How cool is that? I would say that's like a really small version of this thing, which is that the size of the droplets and what they're composed of depends on what the
+
+[00:30:57] rainbow looks like on a bigger scale as well and that's how you can tell all the pollution and stuff right okay so he says just to put it into super cool dorky words uh for this particular small one that he does in the lab every single droplet has its own unique rainbow fingerprint already in it oh so cool do you guys like rainbows just a quick question yeah okay i'm i'm more for them than against them all right that's two yeses i'm a huge yes okay three well Well, not everyone likes rainbows. So this is something from Amazonian cultures, and rainbows there are very bad luck,
+
+[00:31:37] as in they're associated with skin problems, with having miscarriages if you're pregnant. This doesn't make any sense. They're so clearly such a positive, happy vision. I don't know. I think it's one of those glass half-empty things because it's caused by sunshine and rain. Now, if it's always sunny and then you get some rain,
+
+[00:31:55] then it could be a bad thing. But if it's always rainy like it is in Britain, then the fact that there's a rainbow means at least there's some sun around. Okay. This is from Wikipedia, I should say. So, but there is a saying, um, rainbows are shit. That's right. How does that translate? There are diseases in one Peruvian language called Iona Achatan, which means the rainbow hurt my skin.
+
+[00:32:20] That's what you might say to the doctor. And it's traditional to close your mouth at a rainbow, otherwise you'll catch a disease. Oh, wow. Yeah. So I'm just saying they're not all good. So the Skittles adverts over there would not have gone down with it. Do not taste the rainbow. So the rainbow flag for pride has all the rainbow colors and it used to have a shocking pink band.
+
+[00:32:45] And the reason they did away with that is because they couldn't mass produce the pink cloth. All the others were easy to make, but this was a cloth that wasn't very easy to make. Because the first guy who did it, he kind of made it himself. just a one-off. He didn't think of it being a mass-produced thing. And then it became really popular and then he just made loads of them
+
+[00:33:03] but they couldn't get the pink. It was after the Stonewall riots, wasn't it? That suddenly in the late 70s, suddenly there was this massive demand for these flags and they couldn't get it. But then it had, so how many colours do you think are in the flag now?
+
+[00:33:14] I think seven. Six. Did you just sing the rainbow song and still come up with six? I took out one. Did you? Why? Any reason?
+
+[00:33:27] Well, I put white in to, since I've learned about some new rainbow. You should have come up with eight then. I didn't sing the full song. I kind of backed out and thought, I feels like there's only a few left. Oh, gee, hang on, Dan. I think we need to test something quickly. What are the colors in a rainbow? Oh, no.
+
+[00:33:44] Red and yellow and pink. No. Well, actually, all the colors are in the rainbow. No, hang on, hang on, it is pink, isn't it? No, there's no pink in a rainbow. Red and yellow, green, blue. Wait, what's the song? What's the song?
+
+[00:33:57] The song is not the actual colours of the rainbow. That's just a fun song you learn. Hang on. Was I singing the right lyrics, though? You were singing the lyrics, okay. All right. Now who's the fool? But the colours in the rainbow are red, orange, yellow, green, blue, indigo, violet.
+
+[00:34:09] That's the colours that you learn. Although, actually, you know, it's just emerging. I'd like to jump ship to that Anna's fact that it's correct. I too was fooled by the song. What a lie of a song. Yeah. Just take something of things people need to remember in day-to-day life. It's like having a song, January and February.
+
+[00:34:27] and orange and purple. It is mean, and I can understand why you thought that it went red, orange, whatever the song goes. So what is it? So there are seven colors in the rainbow, red, orange, yellow, green, blue, indigo, violet. And the pride flag used to have, as we've said, it used to have eight, because it had these and the hot pink. And then it went down to seven, but then it only has six colors in it now, which I'd never noticed. Do you think that maybe it wasn't that the material was too expensive? It's that the creator of the flag also was basing it off the song.
+
+[00:34:57] And then someone said, what's pink doing there? And he thought, we can't stay anyway. It's so expensive. So no, it wasn't because of that. He knew the colors of the rainbow, this guy. The reason they lost the next color was because when the flag was round around poles, then one color would get lost because it would be wound around the pole. So they needed an even number of colors, basically.
+
+[00:35:19] It must be a pole going. It was it? It wasn't a vertical. It must be a horizontal pole. What it said was when hung vertically from the lambs. post of San Francisco's market street, the center stripe. So if it was hung vertically, the center stripe went around the pole. Oh, okay. And so they decided they needed an even number so that that middle stripe wasn't kind of, I don't know, didn't disappear into the pole. Yeah.
+
+[00:35:43] That was why they did it. And Philadelphia this year has added a couple of extra colors to their flag that they have been using as a nod to racial diversity. Oh, okay, cool. Yeah. So they've gone up to eight, I think, again. Oh, really? Yeah. So they've added brown and black. They stand for, the other colours stand for really fun stuff, don't they? Yeah.
+
+[00:36:02] But it's such a shame they lost the pink because, so the person who designed it said that the hot pink stood for sex. So the other stand for life, healing, sunlight, nature, magic, serenity and spirit. But they've lost the sex now. They should have got rid of the magic one. Why is magic even in there? I'm glad that stayed. Oh, God. That's good.
+
+[00:36:20] The other thing is that we were saying about there being seven colors in the rainbow. I think that was Newton who decided that, wasn't it? And the reason being, we think probably just because seven was like a magical number, it was like the seven Cs, the seven, you know. It's his favorite, yeah, it's his favorite number. It's just a good number. And so he kind of looked and decided there were seven distinct bands. And actually, if you look at a rainbow, you can decide really yourself how many bands there are.
+
+[00:36:44] There's pretty much an infinite number. Although I always, because I think we've done that on QI, and so I always look at rainbows and think, okay, get beyond the seven thing. Newton just made it up. but I still only ever see seven colors. I can't see more or less. Really? Yeah.
+
+[00:36:57] He passed away this year. Newton. Yeah, sorry to break it to you. He had a good innings. Gilbert Baker, who is the creator of the rainbow flag, passed away this year, sadly. Yeah. Newton as well in the same year.
+
+[00:37:12] It's been a big... 2017. Okay, it is time for our final fact of the show, and that is My Fact. My fact this week is that a new study has revealed that the genre of music with the most references to drugs is country music. Country music has, according to the survey, 1.6 mentions per song on average of drug usage. And they did a list of genres which used most drug references. So it started with country music, then jazz, then pop, electronic, rock, folk, and then at last, rap.
+
+[00:37:54] You missed out other. Yeah, I know. I wasn't, because that's my favourite genre. Yeah, others just underneath rock but above folk. Wow. Yeah. And I thought country was folk, so I'm on a learning curve today. That is unbelievable, though. I think that's really amazing. That rap has the fewest references. Yeah.
+
+[00:38:15] I think some people have looked at the methodology of this and aren't sure how it's ended up, right? We were talking about this, weren't we? It just seems so unbelievable that this is the case. Well, what they did, they took, didn't they? the lyrics of many, many thousands of songs and they had a list of drug-related words, quite a lot of drug-related words that they plugged in. And then they went through manually making sure that,
+
+[00:38:34] you know, if someone says rea, they're not actually singing a song about... The coral reef. The man who works on a coral reef. Yeah, exactly. And a lot of rap songs are about people who work on coral reefs. So that's probably why. So, yeah, but...
+
+[00:38:49] I wondered if the methodology went wrong in that they're not cool enough to understand some of the more modern drug reference because they came up with this list of 65 names for drugs. And so the examples that were in this article were things like Adi, Blow, Molly, Roxy, and Sizerp, S-I-D-Z-U-R-P. So if they feature in a song, that's that counts of the drug. But maybe Raps just using way more modern, cool slang for drugs that these guys don't know about.
+
+[00:39:15] As opposed to Sizz-Up, the classic 1920s slang for... What is Sizer? I've never heard Sizzer before, and you're saying it like it's a hackneyed old term. It's such a good word to rhyme with. If you write a song about burping, then you're going to need a sciss-up. It's the only thing that rhymes. Yeah, I don't know what a syserp is either. I don't think anyone has ever heard of sysurp, except the person who wrote whatever song refers to it.
+
+[00:39:37] And then I'm just saying that they've got this list, but maybe they've missed things out that raps using. I think they also used a lot of songs. Perhaps you wouldn't hear on normal country music stations. Yes. And actually, the more popular ones probably aren't about sysurp and the other drugs. But they weren't counting, because they had a list of the drugs that they were looking for as well. They didn't include alcohol. But I reckon if you threw alcohol and, you know, country music has quite a lot of references to that, doesn't it?
+
+[00:40:05] Yeah, tons. So I've just googled Cizirip. Yeah. Yeah. It is a purple drink, a mix of codeine-based prescription cough syrup, soda and often Jolly Ranchers candy. It sounds quite nice, doesn't it? Yeah. But don't do it, kids.
+
+[00:40:20] That sounds so country though. Jolly Ranchers candy and then some prescription drugs. Yeah. Classic country music. You can't really imagine Snoop dog on the scissurt. But weirdly, that's a word that's closely, I would associate more with Snoop than anyone else. Czert, but dessert. Yeah, exactly.
+
+[00:40:38] It's interesting. I wonder if in other, reggae's not on this list. Blues is not on this list. They all been lumped into other. So blues would be in jazz. I guess so, yeah. Reggae. Classical.
+
+[00:40:49] That would be. Classical. What's classical in there? Yeah. Symphony for Scis up in D minor. you were saying about the words that they use did you see that America's drug enforcement administration have made a dictionary of slang drug terms this year
+
+[00:41:05] I wonder if any of these are in it Wiffle Dust Bernie's Flakes I wonder if any of these are in Is that named after Bernie? Bernie Sanders Well I don't know it's it means cocaine
+
+[00:41:17] Yeah that's Bernie's flakes They're the people who were going to show up to vote for Bernie Sanders In the American primaries But they didn't they were too off their heads. Aunt Hazel means heroin. I wonder if that's in any of those songs. Smoochie-wucci-pochee means cannabis.
+
+[00:41:33] Aunt Hazel? That explains what my uncle Ian was up to. This is why it's called Barbara. Every night he was having a night in with Aunt Hazel. Smoochie-wucci-poochie. Feels like it would be a good name of a song. Maybe a Eurovision hit. Yeah.
+
+[00:41:51] But what if you're just really loved up and you're walking down the street with your partner and you say, oh, give us a smoochie-woochee-poochee, and you're immediately arrested by one of these guys. You deserve to be immediately arrested if you'll say to your loved one in public, give us a smooch-woochee-pushy. But I would say that that's probably true of lots of slang terms for drugs, right?
+
+[00:42:10] Yeah. So if you do a song called weed into a tennis ball can, they might think it's about drugs. That's true. Okay, that is it. That is all of our facts. Thank you so much for listening. listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast,
+
+[00:42:32] we can be found on our Twitter accounts. I'm on at Shriverland, James, at Egg Shaped, Andy, at Andrew Hunter, M. And Chazinski. You can email a podcast at QI.com. Yep, or you can go to our group Twitter account, which is at QI podcast. You can also go to our Facebook page where we have all of our Facebook lives every Friday afternoon. And you can also go to our website, no such thing as a fish.com, where you can find links to our ticket sales for our tour, as well as the book that we are releasing in November. You can pre-order that now. We will be back again next week.
+
+[00:43:03] We'll see you then. Goodbye.

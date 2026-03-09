@@ -1,0 +1,257 @@
+# No Such Thing As A Fish - 564: No Such Thing As Water Floating On Water
+
+- Episode date: January 2, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/564-no-such-thing-as-water-floating-on-water
+- Slug: 564-no-such-thing-as-water-floating-on-water
+
+## Transcript
+
+[00:00:00] Hi everyone, Merry Christmas and a Happy New Year from all of us at No Such Thing As A Fish. Hope you had a nice Christmas, if not I hope it was manageable at least and I hope we're all looking forward to what is in store for 2025. We've taken a little bit of a break this week after a very very busy year where we've written all sorts of books and been on tour around the world and what we have for you instead of a normal episode is a compilation of the best bits that didn't quite make it into the show from our UK, Ireland and Sweden leg of our tour. So what you'll get here is lots of silly things that didn't quite fit in the show
+
+[00:00:43] you get loads and loads of extra facts. Really hope you enjoy it. But I don't really want to keep up any more of your time so all I'll say is Happy New Year and on with the podcast. We run out of QI advice. Yeah. Which was, there's no single thing to mention. No single thing to mention. No single thing to mention. No single thing to mention. No single thing to mention.
+
+[00:01:21] No single thing to mention. No single thing to mention. No single thing to mention. No single thing to mention. No single thing to mention. No single thing to mention. No single thing to mention. No single thing to mention. The box number two. From the QI offices in Covent Garden. And then at the end it turns out to get run over by a train. Let me just tell you one more thing about Moss. Oh my god, I'm surrounded by idiots. The Good evening and welcome to No Such Thing As A Fish. Are you ready for the show? Then please welcome to the stage No Such Thing As A Fish. Hello! Hello! Hello! Hello! Hello!
+
+[00:02:45] Hello! Hello! Hello! Hello! Hello! Hello! Hello! Hello!
+
+[00:02:53] Hello! Hello! Hello! Hello! Hello! Hello! Hello! Hello!
+
+[00:03:01] Hello! Hello! Hello! Hello! Hello! Hello! Hello! Hello! Let's do this. Welcome to our 10-year anniversary show. Tonight is going to be a party. It's going to be an awesome night. We're going to be celebrating your facts as well. You've sent a bunch in.
+
+[00:03:10] Thank you very much. James, you've been collecting them, right? Yes, I've got a few here. For instance, Napoleon fell in love with Josephine because she could do a naughty act called the zigzags. And nobody knows what the zigzags were. Wow. Really?
+
+[00:03:28] Well, according to a random person who texted me, there's no better source than that. Can we get the lights up on the audience, please? Oh, hello. Oh, wow. Oh, you guys are much more attractive than I thought you were going to be. OK, here is a fact sent by someone in this room.
+
+[00:03:49] This is brilliant, actually. Between Heathrow and Rome, from takeoff to touchdown, the flight time is the exact run length time of the 2000 film Gladiator. If you've got a window seat on the right side of the plane, you'll be flying over the Colosseum as Maximus and Commodus enter the arena for the final battle. Fuck off! That's great.
+
+[00:04:10] That's amazing. Wow! Isn't that great? Very good, thanks. The blue whale produces the largest fart bubble. It's so large, a zebra who makes the loudest fart can fit in it. Oh, gold. In Tudor England there was a type of criminal called a bare-top trickster.
+
+[00:04:31] A woman would flash her breasts to lure men into a house. Once he'd come inside, brackets, the house, he would be robbed. He would be what? Robbed. He would be robbed. That's very cool. Yeah, the funny bit was the brackets bit really. Yeah, yeah. It's a good thing. When dragonflies get tired, they suck water up their bum and jet it out to propel themselves
+
+[00:04:54] forward. That's so cool. It's funny because I would have thought that's quite tiring in itself. It does feel tiring, doesn't it? Yeah. I'm just clenching now and yeah, yeah. Have you guys read about a story I loved last year is about the probably the two most influential writers, academics who write about honesty, who have released a bunch of papers. We definitely
+
+[00:05:18] have come across them in our work. They released a very famous paper sort of showing that basically, if you nudge people a certain way, they'll be more honest. So for instance, in a dinner. On which part of their body do you have to nudge? No one did that. It's against sort of like study principles. But if you like have to sign a bit
+
+[00:05:42] at the top of your tax return that says, I promise I've told the truth rather than At the bottom the study showed that people are more honest because they've just signed this The thing is these two famous people one of whom Dan Ariely wrote a book called the honest truth about dishonesty Were cheating in the paper allegedly I have to say But what we cheated in the paper and there's the data was falsified And not only falsified but falsified in a way that even I could tell because it's in two different fonts.
+
+[00:06:13] The data that was true was in Calibri font and then there was a bunch of Cambria thrown in. Hey, I found the equivalent to the American movie 127 Hours, you know where Aaron Rolston gets stuck while he's out on his own and his arm gets trapped underneath a boulder. He eventually has to chop off his arm in order to survive and he does that 127 hours into it. So I found the British edition of it, it should be called 60 Hours.
+
+[00:06:37] This is a man called Joe Gallyot from Yeovil in Somerset who spent two days underneath his sofa after it fell on him and he couldn't get out of it because he had a few back problems and he only survived because when the sofa fell over, a bottle of whiskey rolled towards him. And he survived sipping whiskey for two days... What kind of sustenance? ..until a neighbour noticed that his curtains hadn't moved in two days and thought, something's wrong with Joe,
+
+[00:07:03] and they went and they found him and then he survived. spent five days in hospital but he said he was there for two whole days and at first he said I took a sip of the whiskey and I thought oh well this isn't too bad. What are they called? The door sausages. Yeah door sausages. What are they called? Dorss sausages? What are they called? Draft excluders. Yes. Dorss sausages, is that what you mean? Another inside into the Murray home life. Another veil ripped away from my carefully crafted persona.
+
+[00:07:35] Oh well. I have to go as a translator whenever you go to DFS, don't I, Andy? He wants one of those brown marshmallow sitting things. Sofa. Yeah, he wants a sofa. Wow. What's James Harkin?
+
+[00:07:50] Oh, there are no anagrams of that. Hey, speaking of storytellers from overseas. Surely Shane Jerkin. No, does that work? Wow, you just did that? Well, I don't know if it's right. Come back in a few minutes. Yeah, yeah. So there's another thing which happens around the world which... Okay, no, let's just pause and watch Andy write. No, use the E twice. No, it's shame jar, jar kid.
+
+[00:08:28] I'll work on some more. You know who was one of the most rich people in America off the back of beavers? Was John Jacob Astor. And he became a billionaire. And he's a name that a few of you might be going, John Jacob, how do I know that name? He was at the time of the sinking of the Titanic, possibly the richest man in America, maybe even the world. And he's one of the men who died on the Titanic.
+
+[00:08:50] And so his fortune was largely about beavers. And when I read that, I just thought, I do wonder if in the final seconds of his life, if he thought, if only we had a bunch of beavers here, we could have plugged this hole up in an instant. Yeah. What do you think? Maybe.
+
+[00:09:07] Maybe that was his final thought. Or maybe, oh, I wish I'd worn my entire full-body beaver onesie tonight, and then I could just swim away. Yes. I think that's weighing you down. I do. I think even lying on that door is not going to keep you up if you're wearing the full beaver onesie.
+
+[00:09:24] This is how I'd use my time travel moments. If I got one time in a machine, that's where I'd go. Not to save him, just to go, Andy and I have a bit of a bet going. Actually, did you know that, sorry, speaking of ambassadors and names, that the US ambassador to Denmark used to be called Dick Sweat. And there was... This is 1998, 2001. When this goes out, someone who knows it goes, Dick, you made, you were on no such thing as a fish.
+
+[00:09:52] You've got to have a listen. No, I don't know why they're laughing at your name. They must have cut out the interesting bit they said about you after it. Yes, he was. His opponent actually campaigned to have his name removed from the ballot paper because he said in the phone book He's listed as Lantos sweat. So it's not legally correct But obviously his opponents just worried that everyone's gonna vote for dick sweat if they see it, right? Yeah. Yeah I like there was a guy called Soren Sorenson Adams who invented a type of itching powder Which basically transformed the world of jokes, right? Yeah, this guy
+
+[00:10:24] I can't believe he's not a name that I have known before this. He did itching powder. He did the... The joy buzzer. The joy buzzer in your hand. He did, what did he do? He did sneezing powder.
+
+[00:10:36] The squirting flower. Squirting flower. The guy was a genius. He refused to do the whoopee cushion. Did he? He said that was vulgar. Wow. Yeah. And this was the man behind was vulgar. Wow. Yeah.
+
+[00:10:45] And this was the man behind the dirty Fido plastic toy thing. What's that? That's the sort of fake dog poo. Oh, yeah. And then fake vomit he did as well. He did fake vomit. And he said, no, Whoopi cushion is too far. So they went elsewhere.
+
+[00:10:57] One of your earliest facts, Dan, was that Whoopi cushion was invented by a great ancient Roman. So for him to say that was lowbrow. Oh, come on. You know, it's credited to an emperor called Elagabalus, but his birth name was Basianus. Yeah. The whoopee cushion was invented by Basianus.
+
+[00:11:13] Like, it's the greatest fact that I've ever, I feel like I was the first person to notice it. Like... Unbelievable the classical scholars haven't pointed that out before. Fools. How many people do you think you can fit in a phone box? Oh, that's a good one. Because this was a thing, wasn't it? In the 1950s and 60s.
+
+[00:11:30] Oh, yeah, yeah. Sort of classic red wall English. One of these classic phone boxes you would stuff as many students in as you can. Well, they would stuff themselves in. You wouldn't do that. It was because it was before the age of group Zoom calls, wasn't it?
+
+[00:11:42] Yeah. What ages are we talking here? They tended to be students, so they will have been teenagers. But you look down on if there's a tiny corner left and you shove a one-year-old in there. Like, it's that. Well, this is the interesting thing. There were loads of different rules.
+
+[00:11:58] But the official rules, basically, you had to be more or less adult-sized. You had to get at least part of the greater portion of your body into a standard upright phone booth. I'm going to say low ball and say three. Ooh, yeah, two. Nine. I'm going to say 15.
+
+[00:12:19] Okay, well, the answer, the official record from March 20th 1959 was 25. Wow! But there was a Canadian school that claimed to have got 40 students in a phone box. But it was later found that they'd turned it on its side and they used a much larger phone box than normal. So then they put the official rules in. And the really amazing thing is that only in England they had an additional rule that as well as all getting in there, the group had to be able to either place or answer a phone call while they were in.
+
+[00:12:53] Amazing. So good. In 2011, a Chinese magician called Fu Yandong, his pièce de résistance was six goldfish doing synchronised swimming. Really? 53 different animal rights groups complained, saying it is quite clearly magnets in their stomachs and they are being manipulated.
+
+[00:13:14] Oh, God! Yeah. Oh, my God, Andy. Do they check Olympians for that, for magnets? Do you know that Simon Cowell and Ricky Gervais look like Stonehenge? This is according to the clothing company, Giacomo, who made the thing called the architecture of man. And this doesn't really make any sense, but apparently to train their staff, they would choose famous people and say what monuments they look like, and that supposedly would help their staff work out people's sizes. I know, it doesn't make any sense at all.
+
+[00:13:53] Why don't you just say you look a bit like Ricky Gervais? Why goes through the needless answer step of you look like Stone 7 from Stonehenge? I reckon probably less people would be insulted by saying they look like Stonehenge and they look like Ricky Gervais Very true perhaps but yeah So Ricky Gervais and Simon Cowell look like Stonehenge Russell Crowe and Jay-Z look like the Tyne Bridge and James Corden looks like the Gherkin Amazing Sorry, it's personal addicts. Oh, but my my. We were at a party once you guys know him and he
+
+[00:14:27] it was a packed party and he really needed the toilet and The window that was in the room led to an alleyway So he thought there's no one going to be walking there so he opened up the window and he peed out the window right and About five minutes later the door gets kicked into the room, and this soaked man comes walking in, going, who fucking pissed on me? And we all had to go, well, that didn't happen here. I don't know.
+
+[00:14:53] But it's really hard to keep a straight face when a man soaked in urine is angry at you. Sorry, that man must have stood still. I don't know. What sounds like quite a thick shower of urine. He's like, you know? I never questioned why he was so soaked, yeah. Speed up your reaction to it.
+
+[00:15:12] Who did that? Best man in my life, you. Give me a number. Oh, God. Wow. Wow. If you're itching, you know why? It's scratching works.
+
+[00:15:21] It's kind of interesting, this. Oh, yeah? I'm not sure it's funny, but it is interesting. OK. Basically, you scratch it, and your body thinks that something bad is happening to you, and that is more important than the itch itself. And so the scratch sort of blocks off
+
+[00:15:36] the pathways to your brain. So you've got a little itch. You scratch, and your body thinks, oh, my god, someone's scratching me. And then it concentrates way more on that than it does on the itch itself. What that means is if you have an itch it also works if you tickle yourself and it also works if you press down on it or if you put something cold on it it all does the same so we could have been tickling ourselves all these years rather than scratching
+
+[00:15:58] exactly well there's even been studies that if you have an itch on one side like so on your left side of your body if you look in a mirror and you scratch the other side of your body because it has the idea that then you will get rid of the itch. Yeah. Does that work for everyone or just idiots? Well, it works for idiots and me because I tested it and it does work. We sort of have Beethoven to thank for CDs. Not the entire technology, but one very important bit,
+
+[00:16:28] which is the reason that CDs are the diameter that they are and the length of time that they can take on as a recording is because the man who invented them wanted to be able to play all of Beethoven's ninth symphony in one go without having to change the CD. So he needed 75 minutes worth of music on there in order to do it. And that's what defined it. That was his condition. That's really cool.
+
+[00:16:50] And if you don't know what a CD is... You can Google it. When Osama bin Laden was killed, it was by Seal Team Six, right? Two days after Seal Team Six took him out out guess who tried to trademark seal team six seal That would be incredible singer seal. Yeah, the singer seal. No Walt Disney the Walt Disney company tried They they they how would we have guessed that? A point yeah, it just would have been a long Well, is it because they were gonna make like a
+
+[00:17:28] Cartoon with loads of seals who went around killing terrorists They were gonna cuz Disney's gone obviously into more dramas like yeah, and so they they thought wow This would be an amazing series will do seal team six and so that was their first thought though immediately after And so that was their first thought though immediately after They have someone in their company who does then goes let's trademark that and so yeah But Disney are famously a benevolent and charming corporation. I don't understand What do you want them to do have a month of mourning for a summer bin Laden? I think fair enough Disney Bit of respect for the great man. We've been good We actually do need to move on so that's annoying And let's end on that then.
+
+[00:18:09] We actually do need to move on, so that's annoying that we are ending on that. Not great for my career. Hey Toronto, this holiday season let's focus on making memories, not waste. But when you do have to dispose of an item, the City of Toronto has your holiday sorting sorted. Remember that rinsed aluminum trays go in the blue bin, food waste goes in the green bin, and ribbons that can't be reused go in the garbage. Curious about where that holiday waste item goes? Visit toronto.ca slash waste wizard or download the TO Waste app to find out more. Stop the podcast.
+
+[00:18:50] Stop the podcast. Hello everybody. We are sponsored this week by Babbel. That's right. Babbel is the brilliant language learning app that we've all been using on fish to brush up on all the languages that either we've been wanting to learn for years or if we're planning a holiday in the area, we can get the basics to make sure we don't look like an idiot when we're trying to yell things in good lab English. That's right. I mean, did you know fish actually has four spin-off versions in French, Spanish,
+
+[00:19:17] German and Polish, which we are all individually fluent in because of Babel. But we really do love it. I have been using it to try and get better at Polish for years now. What's really good about it is you obviously often don't have time to commit to an hour-long lesson every couple of days. It's very expensive getting language learning lessons, building it into your life. This is just so flexible. You can have real lifestyle conversations. They've got an amazing feature where you can talk back and forth to the AI and it really works. That's right. It absolutely makes learning language so much fun. And as Anna says, so many different ways that you can approach getting those words stuck into your head and
+
+[00:19:55] you should give it a go. And if you do want to give it a go, you can do it through fish. All you need to do is go to babbel.com. So B-A-B-B-E-L dot com slash N-S-T-A-A-F, as in no such thing as a fish, for up to 60% off your subscription. And that's valid for only a limited time. Yes, so do it now. Babbel.com slash enstaff. Get there now for 60% off your subscription. On with the show. On with the podcast. On with the show. On with the podcast. MUSIC Hello!
+
+[00:20:28] CHEERING Yeah. How are we doing? Has anyone spotted what's missing from the stage? Anna's wine! That's correct. Yeah, I'm going to have to do something so unprofessional, I thought I'd save it for this. Someone backstage I forgot to bring my wine on, and I won't be able to make it through without.
+
+[00:20:45] Could you possibly fill right to the brim? Thanks. As you were. So. It's like working with Gielgud himself. Quickly, because you did say Gielgud. Laughingly compare me to Gielgud, but. Here's James, everybody. Here's our tour manager, James.
+
+[00:21:06] James Hingley, everyone. Save the show for this. As if Gielgud was the epitome of professionalism. Was it not him who was once in the audience of a play really pissed he'd been at the Pubble Day, he was with his mate and he leaned over to his mate and whispered, oh, this is really good, this is where I come on.
+
+[00:21:23] LAUGHTER Pretty sure, so. Yeah. Those kind of caricatures that you get on the street these days, where they're just rude about you and you have to pay them to a tenner, or whatever it is. Exactly. I've never had that done. Because I'm too afraid to, basically.
+
+[00:21:38] Well, the thing is about you, Andy, is you have no discernible features. Wow. So. Wow. Like, do you remember when people would draw like fan art of us, and they'd have like silly hair, glasses, woman's hair, and just a stick thing of you?
+
+[00:21:52] Just a guy. Just a guy. Generic stick man for Andy. That did happen. And weirdly, it looks exactly like you whenever we saw them. He actually, did you read, there's just one other thing about George Cruickshank.
+
+[00:22:03] So he was famous for being Dickens' illustrator as well. He illustrated a lot of Dickens' books and he claimed that he actually came up with the whole plot for Oliver Twist and said he wanted to call it Frank Foundling. And so I think him and Dickens ended on slightly bad terms. Yeah. Frank Foundling. Bad name. It could have been.
+
+[00:22:20] It kind of works, yeah. It could have been. But he was an obsessive bore of a teetotaler, and he was once burgled, and he caught the burglar, and while grasping him with one hand, he felt his pulse with the other hand, and noticed that it was the usual 75 beats a minute, therefore had not been increased by the exertion and excitement at all, and so he started expounding on the benefits of temperance to the burglar that he'd caught, explaining, you see see it's because I don't drink my pulse Feel it. It's so so the police came along. He's still lecturing this poor burglar
+
+[00:22:52] bit of more than he could chew about not What is a lunette not the lunette you might say a lawn yet was that Perspectacle wasn't it Luna is a light Torture thing yes, it's a torture thing French torture thing yes, not the lunette It is the hole where you put your head through in the guillotine I probably they mostly just said not the guillotine, surely. Not the lunette! The specific detail of the hole is what's worrying.
+
+[00:23:29] It's more what's above the lunette. I just like the idea of the guy who's going to do the... with the axe and the mask on going, ooh, a connoisseur. Pleasure to meet you. But am I right that actually, if you're having your head chopped off, you never have to see the lunette? Because you can't fit your head through that hole, can you?
+
+[00:23:47] Don't you put your neck on the dip? Well, you put it on the block. And then they put the thing down over your neck. Yeah, right. Yeah, that's true. Maybe in some designs. So perhaps the one sweet relief is that you don't have to see the lunette. You never see the lunette.
+
+[00:24:00] Another cool protester who I just like really, Wavy Gravy. Oh yeah, Wavy Gravy. I thought you'd really, Wavy Gravy. Oh yeah, Wavy Gravy. I thought you'd be a Wavy Gravy fan. He was the emcee for Woodstock, hung out with all those Beat Generation people, and he nominated nobody to be president in 1976, I think it was, and he was just really cool. He had a son called Howdy Do Good Gravy Tomahawk Truck Stock Romney. Is he any relation to Mitt Romney? And do they socialise?
+
+[00:24:29] Yeah, brothers, yeah. He goes by the name Jordan. Here's a weird thing about the Queen's car. She had multiple cars, but they all had the same license plate number. It was the same... Yeah, it had the... B1G L1Z, was it it or something like that? No is a Took a little while for some of you to work that out. It was no it was jiggy 280
+
+[00:24:55] Yeah Jgy 280 and any time that she got a new car She had that as the personalized license plate and I can't see if there's something that was a reason behind it. What could it stand for? Just... galavanting. Help me out here. Yeah, probably all that. I thought it was very interesting researching this,
+
+[00:25:18] that in China, they hate new car smell. It's so weird. So we famously love new car smell. And they're always trying to replicate that smell of a new car smell. It's so weird. So we famously love new car smell. And they're always trying to replicate that smell of a new car. So what this is when you buy a new car, it's like... And it's got all the surfaces in it, still have the new chemicals on them that are gradually being released. And just slightly... It's just delicious carcinogens, isn't it?
+
+[00:25:40] Yes, exactly. Is it bad for you, new car smell? I believe it's bad for you. It's slightly bad for you. They've done studies and it's a little bit above what we'd recommend your inhaling. So don't just sniff the seat, leather seats in your car day after day. But new car smell, the Brits really like it. But in China, they've actually, Ford have had to come up
+
+[00:25:57] with an odour remover for car smells because in China they hate it so much. And in 2018 it was affecting car sales. So they hired, in 2017, Ford hired 18 golden noses, which were human beings whose job it was to go inside a car and rate the smell from not perceptible to extremely disturbing. And then they'd work out ways to get rid of it. And they patented a device in the end which basically drives your car to a clean area, winds down the windows and airs it out and then senses when the car smells gone.
+
+[00:26:30] Right. And then drives it back. That's cool. To get the Chinese people to buy it. Isn't that weird? Yeah, do you know also, you said that the new car smell being leather, but actually, so Rolls Royce had a lot of complaints
+
+[00:26:42] that their cars had lost the leathery smell. So they sent in this team, they were called SG Gordon Limited, to try and distill new car smell so that they could put it into their new cars that don't have new car smell so that it smells like a new car. And what ended up happening is that they discovered that it wasn't the leather predominantly that gave the smell, it was the wood that you would get in certain cars. So a lot of cars now have replaced wood with plastic and so the mixture is... Who has a wooden car these days?
+
+[00:27:10] Well, Rolls-Royce particularly, yeah, would still have the idea. I mean, it doesn't even matter who has that anymore, that's where the smell of the old car came from. That's interesting. But there are still some wooden cars and I think it is a combination of wooden surfaces. I don't know. Yeah. Yeah. I've driven a car with of wooden surfaces. I don't know. Yeah. Yeah.
+
+[00:27:25] I'm driving a car with wood in it. Not a wooden car. Like, the hogni on the inside and stuff. It's when I was dating the Queen. Bruce Lee against Superman, that doesn't even work because he, in the movie, he plays Kato from The Green Hornet, which was the big TV show that Bruce Lee starred in in America so he had a big kung fu career in Hong Kong in Chinese movies but he also had an amazing American career and Kato as the Green Hornet was one so he's against Superman but Kato is part of the Batman
+
+[00:27:57] universe so oh wait that's the same universe scratch out everyone I'll have my nerd credentials back in you lost me about two minutes ago yeah take those credentials back do you know that water flows do you want to we know water flows yeah water flows I would have to otherwise it would all sink to the bottom of the sea wouldn't it water flow if you drop a meter of water in the middle of some other water, it'll just stay there So you like different kind of water to oh, no, they don't they're different Yeah, like salt salt water and fresh water at different densities
+
+[00:28:33] I believe so but if you've got a whole body of normal tap water and then you drop some more tap water in Like you say place it doesn't sort of like integrate. It just sits on top It doesn't sit on top like a Lego brick on top of more Lego goes. Is that what floating is? Yeah, I mean the other waters got to move out of the way if you move your what I guess what I'm trying to say Why is it that if I'm in a bath and I want to make it hot and I tell on the hot tap I don't just get a small cube of really hot water after the tap and I don't have to put different things in. Because you're swishing around with your rubber duck and all that that's like that's a that's a move that's you being the wave system but but milk doesn't
+
+[00:29:17] float despite the name milk float. Right. Jesus Christ. So don't leave your cube of milk on top of the ocean. You'll never see it again. There is a thing called, what is it, dendrophilia, which is basically the sexualization of trees. I mean, that is a real thing that happens. I found a Wikipedia page on it. It's the most interesting write-up I've ever I found a Wikipedia page on it. It's the most interesting write-up I've ever read on a Wikipedia page. It says, many people use vegetables and fruits such
+
+[00:29:49] as cucumbers or carrots to insert into their anus. Whoa, whoa. Yeah, I'm sorry? As an object to receive sexual pleasure or orgasms when they masturbate. In men, holes can be used inside trees or trunks, assimilating the shape of a vagina through which the penis is inserted. Why why you reading this stuff Though this is the this is the relevant bit Why did you have to read all that film
+
+[00:30:15] Many people experience feelings toward plants after having sex in a garden forest greenhouse or bedroom with many plants The use of flowers to caress the body is also included in dendrophilia and that's so it's a it's a big thing. Can I tell you a cool thing about smell that is amazing and insane? Yeah. Okay get this. Right what do you smell with? Your nose.
+
+[00:30:37] Shit. You don't smell with your... so this is amazing. What? The nose is merely the pipe that takes the smells to where you really smell. Oh. The nose is merely the pipe that takes the smells to where you really smell. Oh! The place you smell, I'm going to do a big boop with my finger pointing to where you actually smell. Oh, this will be great on audio.
+
+[00:30:55] Boop! Wow. Your eyebrows? The level of your eyebrows... In between your eyebrows. Right in between your eyebrows. Okay with your eyebrows right in between your eyebrows Okay, the air goes up into your nose sure We all know that and then it curls around these little structures which carry the scent molecules of what you're trying to smell, right?
+
+[00:31:12] Yeah, that's the most important thing they stop on the mucus membrane and this is where it is is level with your eyebrows and That's where the smell molecules actually get detected and received by this mucous membrane. So could you cut out the middle man and just drill a hole in between, in like the Frida Kahlo spot? Yeah, yeah. Wow, we should do that. We recommend it. Wow. Isn't that amazing?
+
+[00:31:36] Yeah. That's where you smell. Very cool. You think you smell with your nose, sure. But you don't. Yeah. It's just a vehicle. Why isn't anyone more shocked
+
+[00:31:50] That's stunned into silence. It's not your nose is a place pretty close to your nose Inside what probably you could probably say is your nose Let me do the eyes I Got one thing as well Which is this is just for anyone who's listened to this fact and gone Oh, if only I could read something about someone having sex with a tree I just realized I I read an entire novel in my 20s about this exact thing It's called a melon for ecstasy and it's all about a guy who goes around
+
+[00:32:19] Shagging trees, right? So it's it's I am NOT remotely surprised that you read this novel I feel like I'd be stagging if you haven't read it also when does dad's but club podcast come out yeah so basically the increased holes bored into the trunks of local trees all of them 33 inches from the ground at an angle at between 15 and 20 degrees to the horizontal attracts the suspicion of the police it infuriates the council who see as vandalism and excites ornithologist at an angle at between 15 and 20 degrees to the horizontal, attracts the suspicion of the police. It infuriates the council, who see it as vandalism, and excites ornithological society members who believe it indicates the return
+
+[00:32:53] of the fabulously rare-quested woodpecker. And the whole story is about this guy. There's some kind of pecker that is attractive. It's an amazing book, A Bellad for Ecstasy. Everyone needs to get it, yeah. His main worry is not being caught. It's all the splinters he gets as for Ecstasy. Everyone needs to get it. Yeah. His main worry is not being caught. It's all the splinters he gets as he's doing it.
+
+[00:33:08] Oh my God. Anyway, we should move on, right? That was your choice to do that. I know. I don't know why I did it. You ready for more facts? Yeah. Thank you everyone who sent in a fact to us already.
+
+[00:33:26] So James, what have you got mate? Oh yes, and this is the bit where I read one out, isn't it? That's fine. Slick. We spend a lot of time rehearsing this show. Here's a fact. At Prince, now King Charles and Diana's wedding, the head waiter got a black eye from the Queen.
+
+[00:33:42] I know this because said head waiter of Claridge's is my grandfather. Wow. Is this from Diane? Extra details. She, the Queen, danced into a giant apple decoration which swung into his face. She then followed him into the kitchen to make sure he was okay. That's nice. Nice, isn't it?
+
+[00:34:08] OK, here's another highbrow one. Yeah. The most common adjectives used before breasts in books are, in order, left, full, big, right and ample. I thought in... I thought in order was one of them when you said that. And that was said by someone who had a large machine learning data set at work and worked it out for themselves.
+
+[00:34:33] Wow! That actually was another death, by the way, like a torture thing that they used to do according to legend, which is they would take two trees and they would tie them together. So they would bend them right in and they would hold a rope that was holding them tight. And then they would take the offending criminal and they would attach a rope to either side of the tree.
+
+[00:34:53] Some say with just one leg to each tree and they would cut the rope and the trees would fling away and you would be ripped in half. Yeah, yeah. But is it like a wishbone where whichever tree got the bigger heart? Yeah. You're right. It should be like a crackbone where whichever tree got the bigger half? You're right. It should be like a cracker.
+
+[00:35:07] There should be a joke on one side of that. That was a thing that did happen, not just in the Persian Empire, I think, because Saint Corona died in that way. Really? Yeah, patron saints of viruses. Really? No. No, but Saint Corona, I don't know what...
+
+[00:35:24] Saint Corona had a giant lime shoved into his throat, I'm pretty sure. Do you know how a tosser died, actually? No. This is according to Aspasius, who was writing the first entry, so quite a long time after, but Aspasius said, she was killed and eaten by her son Xerxes in a fit of distraction. A fit of distraction. Really? A fit of distraction. No further information.
+
+[00:35:47] And I don't even know who was distracted. Was it he was eating a steak and accidentally got his mom on the way? I don't know. Oh my God. Hey, you know, just super quickly back to Dennis Pop and Ace of Base, there was a thing that he used to do, which eventually a lot of other pop musicians would do as well, which was called the LA Car Test.
+
+[00:36:06] And the idea was you were going to be able to make it in America if your song was good enough to be played in a car in LA. So what he would do is he would take Finnish songs and he would send them over to LA and he would people over there drive on the highways listening to the songs in cars going, yeah man, groovy. That's cool. Yeah, and that's the LA car test. So songs were deliberately like fixed or given a boost
+
+[00:36:30] simply by what the response was. That's so interesting. Cause like we always, like with podcasts as well, you're supposed to play it in a car as well because the audio is slightly different. So if your audio is not quite right, it's different if you hear it in headphones than if you hear it in a car.
+
+[00:36:44] So I wonder if it's something like that. Do you do that when you're editing our show? Do you go out for a drive? No, because it's so funny. I would just veer off the road. No, if there is a slight audio problem, I will do that. Yeah. Do you? Yes. It's amazing. I think that's really cool.
+
+[00:37:02] Yeah. I think that's really cool, guys. Don't you agree? Yeah There you go. I don't think they that didn't sound like you really meant that no Can I just on older people lying about things there was a big thing in the 1950s there was suddenly this hunt for the last remaining US Civil War veterans and There was a guy called Walter Williams who was declared in 1959 to have been the last surviving veteran who then died.
+
+[00:37:31] And there was this massive week of official mourning in Houston. There was a funeral procession. More than 100,000 people came to line the streets to say farewell to this guy, you know, the last person who'd been there. In the 90s, a researcher looked into it, found out that he'd been eight when the war ended, and definitely had not fought in the American Civil War. But not only that, looked into all the other veterans in the 1950s who were saying they were the oldest surviving,
+
+[00:37:57] and they were all fake. So, you know, the person who he claimed the oldest living veteran, the oldest surviving veteran title from was another phony. The researcher found that every one of the 12 last remaining people to have survived the Civil War had not fought in the Civil War. Did they meet up and just occasionally look at each other and go, I know, I know, me neither. They did. There was a reunion. He said there'd been a veterans reunion.
+
+[00:38:22] And all the veterans who'd gone must have just been going, yeah, you remember Alamo? Was that Alamo? Yeah, and David, yeah. How weird is that? This is from 2011. This is a statement that was put on a paintballing website. Okay, these are the words. Due to an incident at our Croydon Paintballing Centre,
+
+[00:38:43] you will be given special information on the dangers of paintballing with enhanced boobs. And asked to sign a disclaimer, you will also be issued with extra padding to protect your implants while paintballing. This was put up there because during a paintball session, someone was shot in the boob and it exploded. And apparently it was ruptured after it was hit.
+
+[00:39:04] And this has been a huge problem. Apparently It's very dangerous to have enhanced boobs while playing paintball. So huge problem. Yeah, that's it I was looking up some well-known clowns and a well-known one in Britain working today is Matty faint who's co-curator of the clown museum or who was that a couple of years ago at least and He does kids parties and sort of a lot of clowns now lament the decline of the clown and they who was that a couple of years ago at least and he does kids parties and sort of a lot of clowns now lament the decline of the clown and they blame Disney like a lot of entertainers now come to kids parties dressed as Disney characters instead of clowns things like that but he said recently he did a kids party so he went to the kids house and he performed as a
+
+[00:39:40] clown and it went down dreadfully well 20 children children laughing their asses off. And then the mom said, thanks very much, paid him by. And then he went upstairs to get changed into his normal clothes and he came downstairs, at which point the mother turned around, saw him, grabbed him by the throat, shouting, who are you, what are you doing in my house? Because to her, it's just a weird man in normal clothes coming down her staircase. That's so good.
+
+[00:40:10] It's a dangerous job. Here's a great Croydon flight anecdote from the golden age of travel, right? And this is at a time when pilot nicknames included Dizzy, Count Vodka, and Scruffy the Undertaker Robinson. So there's a, like, you're in safe hands. This is in 1924, there was a flight from Croydon to Paris and someone looked out of the window and saw on the wing of the plane, as the plane was in the air,
+
+[00:40:37] a mechanic on the wing trying to fix a throttle midair. Wow. Because he was trying to repair it. He realized he couldn't, so he just stayed on the wing of the plane for the entire flight to Paris. He had got on after it took off, right? It wasn't like he was doing it on the ground
+
+[00:40:53] and then they forgot to turn, they were taking it off. I am not sure. I think he climbed out in mid-air. How do you do that, Andy? He just held it open until the plane landed. Well, they didn't used to fly very high, did they? Yeah, they were really, really low. They were going at 30,000 feet. But they still fly fast again at the time. Not very fast. It's still scary
+
+[00:41:10] There's no height is scary flight where I'm like, it's not actually that high. I don't really mind Okay on the wing. It is scary. That's why this was a new story at the time and why I think it's a relevant anecdote now Yeah, it was scary and hard for the guy So there was a study in 2019 about learning from your failures. And basically, the conclusion was that failure is an essential ingredient to success. You have to fail to be successful, but that doesn't alone make you successful. You have to learn from your mistakes. But I just found it so interesting in terms of like the cold, hard eye of academia.
+
+[00:41:42] The way they work this out, it was a huge study, and it looked at three different things. So it looked at 777,000 grant applications submitted to the Institute of Health to see if they were successful or failures. It looked at 46 years worth of startup investments to see if businesses were successful or whether they were failures,
+
+[00:42:01] and what was the cause of that. And it looked at 170,000 terrorist attacks to see if they were failures, and what was the cause of that. And it looked at 170,000 terrorist attacks to see if they were failures. And I think that's a bold thing, and I don't know what it involved, but it looked at, you know, a successful terrorist attack is obviously a failure for most of us,
+
+[00:42:16] but a success for certain people. So reassuringly, the test found that for if you're looking for a grant, if you're trying to get a grant from the Institute of Health, the average failure rate is 2.03 failures before you succeed for a startup 1.5, and terrorists fail almost four times before they succeed.
+
+[00:42:34] So, and we've got a cheer, one person cheering for the anti-terrorist brigade. But as we all know, Dan thinks Osama Bin Laden is a great guy, so. So, Maria Terez, the Queen of France. Brigades. But as we all know, Dan thinks Osama Bin Laden is a great guy. So... It's Maria Therese, the Queen of France. So she was Spanish, but she was the wife of Louis XIV.
+
+[00:42:52] She was in labor in 1661. And in the old days, if you were royal, it was basically open season for your birth. Everyone would come and watch? Everyone just came and watched. So when Marie Antoinette gave birth, there were nearly 200 people in her chambers, mostly in and out of the room, but quite a few in the inner room as well. And when Maria Therese, sort of a century earlier, was giving birth, lots of princesses and various dukes started coming in to witness her giving birth.
+
+[00:43:17] And she hated it. She kept shouting, I don't want to give birth, I want to die. And she had to shout that because there were Spanish actors and musicians dancing a ballet beneath the windows and they had guitars and cassinets to remind her that she was Spanish. There is there was another study this is an amazing one where they looked at surgeons who were doing coronary bypasses right okay and they looked at ones that were successful and the ones that were failures. And they saw if you did a failure, where are you going to be more successful in the future? So have you learned from your mistakes? Yeah. And what they found was that actually that is true. So surgeons who made mistakes, they did tend to get much more successful as they went on, but only
+
+[00:43:59] to a certain level. And after a certain amount of failing again and again and again, you just get really, really shit at it. Really? Because you're just like, oh, I can't do this. You just lose all confidence. Yeah, right. You're stuck in a rock. Exactly. I have that with getting facts right.
+
+[00:44:15] I've just given up at this point. So I named my son Ted. His middle name is Harpo after the Marx brother, Harpo. But Harpo is Oprah Winfrey's company as well. I would assume that that would have been trademarked, but I had no problems. Oh my God, Oprah is Harpo backwards. Yes.
+
+[00:44:33] And that's why she named the company that. Oh, she knows that. Okay, fine. Well. What a wild ride for you for five seconds. That was huge. I've got to move us on. Oh, really?
+
+[00:44:49] Yeah, we need to get out of here. Can I tell you about mandals? What? Mandals? I don't know. These are male candles. OK. Because there's a big problem for the candle industry, which is that they're only hitting
+
+[00:45:00] half the population. Women tend to buy more than 90% of candles. Men tend not to buy them. OK. And there have been consistent attempts to get blokes to buy candles so since published have included aftershave fine chrome fine the browser the browser smoked leather okay Rome I want a Roman candle like a firework, just the smells of Rome. And there's one, exhaust, and I just wanted to read you the... Here's the blurb.
+
+[00:45:32] Do you find yourself taking a minute in the morning to enjoy the unique scent of exhaust when you turn your car on? We pray that you do not get down on your knees and enjoy the musky smell straight from the source, but we do pray you buy our candles so you can enjoy the smell with less danger. Avoid the headache. Good God. Wow. They've really got men, haven't they? Yeah.
+
+[00:45:52] So my parents opened up a salon in Hong Kong. First customer my mum ever did was Robert Kwok, and he immediately... He's too rich to keep that in the show, please. Okay, here's the thing. Do you think you learn from your failures? Yeah, I think so. No question. I reckon.
+
+[00:46:10] That's the whole point, isn't it? Well, there's this common idea that, you know, oh, well, actually, I just failed my way until I succeeded. Yeah, you learn from your mistakes. But I think people don't tend to. Like, failing repeatedly is not a good way to succeed. You do actually have to think about why you failed, don't you, and then act on it.
+
+[00:46:27] And people, so it's quite hard to do experiments on whether you learn from your failures, but here is one experiment. Scientists got people to do a practice test, right? They gave them feedback, fake feedback on how they performed, and then they would do a real test. And they were asked how happy it would make them if they did well.
+
+[00:46:45] So the people who got negative feedback immediately said, oh, well, I wouldn't care at all if I did well on the real test. They were lying, they were protecting themselves. And then when they did the second test, they got given fake feedback again, and so you got full marks. And they were thrilled.
+
+[00:47:01] They were so happy that they'd done well. So people try and protect their self-image as competent people, and when they get proof that they're wrong, it does away with that image. I've just realized I read out the wrong fact in relation to the leading, which makes this bit of the show something I will not learn from.
+
+[00:47:17] But it was all part of the plan. It's a bit of art failure. You're living it right now. That's insane. You failed literally in the moment, as you were telling us. Beautiful. The thing that seems relevant to me about what you were saying, and I wonder if this
+
+[00:47:29] is what you meant to say, let me know. Hang on, let Andy go through something right now. I feel like we should all pause and just watch it. You know like in an Edinburgh documentary where you don't interfere? I feel like... Is that what you do when someone really fucks up? You get everyone to pause and watch it. That's cool. It's like a Maddenborough documentary where you don't interfere. I feel like... Is that what you do when someone really fucks up? You get everyone to pause and watch it.
+
+[00:47:47] Yeah, and then suddenly in the background you go, Here we see the podcaster struggling with his words.

@@ -1,0 +1,269 @@
+# No Such Thing As A Fish - No Such Thing As A Restaurant Menu For Hats
+
+- Episode date: November 17, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-restaurant-menu-for-hats
+- Slug: no-such-thing-as-a-restaurant-menu-for-hats
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the Glee Comedy Club in Cardiff. My name is Dan Schreiber. I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is the oldest surviving Sutty puppet has just been bought at auction, and it was bought by Sutty. No. Yeah?
+
+[00:00:56] It was by the new guy, Richard Cadell, who's in charge of Sutty at the moment, and whenever he bidded for it, he bidded it with Sutty on his hand. Oh, wow. That is great. That was very cool. So it's like Sutty's emancipated himself.
+
+[00:01:16] Yeah. Cool. It's actually more like he sold himself back into slavery. Yeah. Okay, get this. When they were on television together, Souti and Sue were never allowed to touch each other in case things got too steamy.
+
+[00:01:36] Yeah, so this is true. Citi and Sue, when Sue was introduced, there was a worry at the BBC that this would introduce a sexual element and too much sexual tension to the show. and so she was only allowed in on sufferance that she never touched him and that he never touched her.
+
+[00:01:53] They didn't speak to her beforehand and go, this is what you're not allowed to do, right? Well, no, for internationalists they're both glove puppet bears, so it's easy to enforce. But actually, Sue is a panda and pandas aren't bears. Oh.
+
+[00:02:07] So there's a certain amount of interspecies stuff going on there. Yeah, true. Wow. Or not. Wasn't she, was she voiced by the, the wife of the person who did Sissy. Yeah, Harry Corbett's wife played her, but then Harry Corbett's son took over the role,
+
+[00:02:27] but his mum stayed playing the girlfriend. But it was an unusual setup. Yeah. I think he actually replaced her, didn't he? His daughter replaced her quite quickly and said he didn't want her playing Sue anymore, maybe because of that. And also apparently the person who took over playing Sue said
+
+[00:02:45] she was getting a little bit older and she was finding it a little bit harder to read a script, watch a monitor, work a puppet and smoke a cigarette all at the same time. Very uncomfortable for parole to sue. But the sort of worry about sexuality, this was in 1964, just so you know,
+
+[00:03:04] and they got so serious that the Director-General of the BBC intervened personally. This went all the way to his desk and he called the host in and said, I'm allowing it. But then two years later, cancelled the show and it went to ITV, who didn't care. Did they touch each other? Well, then they went to shallow four and it got extremely steaming.
+
+[00:03:28] Sue did actually once have a pregnancy scare. No, that's part of the plot. She had a pregnancy scare, although it turned out she just had a cushion up her jumper. Simpler times. Imagine if you went to your gynecologist and said, I think I'm pregnant. and they go no, you just got a cushion up there, man. And you're a man.
+
+[00:03:51] What the fuck are you doing? And then I took my feet out of the stirrups and I bit him good day. But the Team America guys got in trouble for their puppet sex scene properly, didn't they? So they had to re-edit the sex scene in Team America nine times and re-submit it to the Motion Picture Association of America
+
+[00:04:11] to say, is this okay yet? because the film association was saying we can only classify Team America as in America I think it's NC17 which is the rating that means that no under 18 year olds are allowed to go and see it just because these two puppets have sex which and as I think
+
+[00:04:30] Trey Parker pointed out it doesn't make any sense our characters are made of wood and have no genitals and yet it is a very it's a very rude scene did you have to go with your mum This is like watching the SOTTY show all over again. Mighty Morphing Power Rangers got banned in Malaysia because the morphin bit sounded too much like morphine.
+
+[00:05:01] They were famously sluggish, weren't they? Yeah, well, you guys in the UK, you had Ninja Turtles, which is what I call them. Who? I'd never heard of them. Yeah, you called them hero turtles, didn't you? Oh, yeah. Yeah, because they thought that you weren't able to deal with nunchucks, basically. But they still have the nunchucks, didn't they? No, no, they not just changed the name. I looked at a picture today because I had no idea that this was the case. So Michelangelo, instead of having nunchugs...
+
+[00:05:28] Just has a feather. He just has a nice cup of tea. Yeah, he's like, that guy looks like he needs a hug from the hug turtle. Yeah, it was... Really? No, he had... No, I mean, really, they did this. Yeah, really? They did this. Yeah, really, they changed it.
+
+[00:05:43] So he just had a grappling hook. Is that right? My memory is him having nunchucks. No. In the opening scenes, there's a couple of seconds of nunchucks. And then if you look at the pictures, maybe it was only for a few episodes. Maybe they brought it back. But he has a grappling hook. Well, you can do a lot more damage with a grappling hook.
+
+[00:05:59] I know. It's got spikes on the end. Yeah. Yeah. So Pepper Pig. This year, I think, or quite recently, was banned in Australia. Just one episode it was. And it was the episode where Pepper is taught that spiders are very,
+
+[00:06:12] small and can't hurt you. It gets loads of complaints, Pepper Pig, though, for being a bad influence on children. And some of the things that parents have said about it have written in and said, a father wrote in to the people who make it and complained that his son has started splashing in muddy puddles on the way to school.
+
+[00:06:31] I know, but no, apparently that's bad. And another mother wrote in and said, she'd asked her daughter what she wanted for breakfast, and she said chocolate cake. And another said his son has stopped eating cucumber and tomato sandwiches. And these just all sound like terrible parents. Yeah.
+
+[00:06:47] Hey, we need to move on to our second fact. It is time for fact number two, and that is Andy. My fact is that mountains are partly shaped by salmon. Wow. What? Wow. This is true. This is absolutely true.
+
+[00:07:00] Salmon play a significant role in the shape of mountains. It happens over a long period of time, obviously. But, so salmon swim upstream to spawn. And then as they do so, the female kind of stirs up the mud and the sediment at the bottom when she's making a kind of nest in the water. And that means that the river channels erode faster, and it means they erode downstream faster. And over hundreds of thousands of years,
+
+[00:07:24] a landscape where salmon spawn could be up to 30% lower than a landscape with no salmon. Wow. Yeah, that's amazing. There's a thing that one of our friends at QI mentioned the other day, actually, which is that they're painting mountains white. So this is... Yeah, have you seen this? It's in the Peruvian mountains.
+
+[00:07:44] This is a guy who's going around painting them white to combat global warming. Not just one guy with one paintbrush, though. It's pretty much slightly. And to begin with, I mean, because to begin with, everyone thought he was nuts. And he said, all the ice and all the snow had gone off it. And so it just was bare mountains.
+
+[00:08:01] And he went, oh, I'll save the ice and snow by painting it white again to look like it has ice and snow. But that's not what he's doing it. That's not why he's doing it. I stopped reading the article there. Okay. He's not gone. I'll save these mountains
+
+[00:08:12] from not being covered in the snow by making it look like they've got snow and then maybe that'll convince them. It's so that it keeps the surface cooler because if you've got a white surface, then it keeps the cooler than it's black. Yeah, so I think the average rock that's covered in white paint
+
+[00:08:28] is like 17 degrees cooler than if it's got black paint. And then the idea is that the ice will stay on it for longer and then it can give everyone water in nearby villages and keep the vegetation growing. Yeah, mountain painting. Didn't he win a Nobel Prize for that? Um, I don't think so.
+
+[00:08:43] Yeah, maybe you did read the article then. No, I definitely should have, though, shouldn't I? Yeah, no. He got some kind of a award, maybe like a Nickelodeon or kids award or something like that. Yeah. And the tallest mountain in Colorado, okay, is called Mount Elbert.
+
+[00:09:00] And it's next to another mountain called Mount Massive. And Mount Massive is 12 feet shorter than Mount Elbert. I think they're the third and fourth or the second and third biggest mountains in the whole of America but they're next to each other and a lot of, there are a lot of fans of Mount Massive and what they like to do is go to the top of Mount Massive
+
+[00:09:22] and put a big pile of stones on the top so that it becomes the biggest but then Mount Albert has quite a few fans as well and they keep going up and taking all the rocks down Wow Colorado is boring Here's another fact. Mountains can suffer from tired mountain syndrome.
+
+[00:09:47] So this has happened around the world in lots of different places, but at the moment it's happening in North Korea. And they have a mountain called Mount Mantap. And due to all of the nuclear test there, basically there's a load of geological damage and the rock mass inside the mountain just isn't kind of integral anymore. Did you say it's called Mount Mantap?
+
+[00:10:06] Yes, I heard that. That sounds like how... Kim Jong-un refers to his penis, doesn't it? God. This made me think about other syndromes there might be. So this is Tired Mountain Syndrome, just a few that I found online. Floppy Trunk Syndrome. That's the thing that elephants can get.
+
+[00:10:27] These are all very sad, by the way. These are, you know, this is not like a happy flop. Which is another Kim Jong-un-derived term. Berserk llama syndrome. That's the thing. If you human rays a llama, they go crazy and they attack the humans. A wobbly hedgehog syndrome. Again, it's not a very nice thing if you're a hedgehog,
+
+[00:10:52] but it is if you're reading the words on the internet. And there was a guy who was diagnosed with chronic lateness syndrome. This is incredible. This is a real thing, apparently. It's a bit like ADHD, and it means that he can't properly gauge how long. long things take, so he's late for absolutely everything. You're kidding.
+
+[00:11:09] Come on. I've used this excuse so many times. No, it is a real thing. It's very funny. You mentioned that, James, because I found out about chronic later syndrome, and it's weird. He lives near here, and I've invited him to be at the show tonight. And I just wonder, are you, um... Oh, what a shame.
+
+[00:11:28] In 1945, when people first started testing atomic weapons, Kodak found out about it before anyone else. And I had no idea about this, but this is because film, camera film, is really sensitive to radiation, and they got loads of complaints from people in America saying, our camera film is fogging up. And so a scientist who was working at Kodak,
+
+[00:11:48] looked into it and did some 1940s Googling. And he deduced that they must be testing atomic bombs. And he stayed quiet for a little while because he thought, I'd like, I just won't get involved with that, that's fine. And they put some atomic-proof filters around their factory and they just didn't mention it. And then eventually they kept on damaging their films, this radiation.
+
+[00:12:08] And so they tried to sue the American government in 1951 for doing all these nuclear tests that was the worst thing about them, apparently was that they were screwing up Kodak's film. And the American government agreed to give them all the maps and the schedule of all future nuclear tests on the grounds that they didn't talk about this to anyone anymore. Wow. Yeah.
+
+[00:12:30] That's amazing. I know. Just quickly Kodak in Mountains, this is an interesting connection. when George Mallory and Irving, the original supposedly almost might have made it to the top of Everest before Hillary did, when Mallory and Irving disappeared and there's been a big mystery ever since, did they make it or did they not, there's been hunts that have been going on to find them. And the one thing they're looking for is the camera that was had by Mallory and Irving because of the cold nature of the mountain, the film is preserved. And Kodak say, if we find the camera, we'll still be able to develop it at this point.
+
+[00:13:05] But they do searches. So one thing was when Hillary went to the top of the mountain, he did a very basic search for Mallory. He was looking for two things, the camera. And the other thing was a picture of Mallory's wife because Mallory said he was going to bury a picture of his wife on the top of the mountain. So Hillary got up there, didn't find it. Then in 1989, people went out to look for the camera.
+
+[00:13:26] And suddenly, perfectly preserved on the snow, was Mallory, the body of Mallory. And they found everything on him. They had his goggles, perfect condition. and his ice pick. They had his wallet. They had everything. The one thing they didn't have was his camera.
+
+[00:13:42] So it must be on Irving, but they were so close to finding out. And check this out. Another thing they didn't find inside the wallet was the picture of his wife. Ooh. But then again,
+
+[00:13:52] if I was dying, I would quickly throw away the photo of my wife. So you wouldn't like be looking at it with your dying breath. You'd be like, oh, fuck. I'd want her to be remembered as, you know,
+
+[00:14:05] wife of the man who first climbed Everest. And to successfully do that, sometimes you have to cut some strings. I'm sorry if that sounds harsh. She would have understood, I think. She would have understood. Do you know how tall the smallest unclimed mountain in Japan is?
+
+[00:14:22] I'll give you a clue. It's in Osaka. I'm going to go for 12,000 feet. Okay. That's high. I only work in metres, so I'm going to go for the tallest, unclined...
+
+[00:14:37] Smallest, smallest. The smallest... Unclimed. The smallest mountain that no one has bothered to climb. This is the most ridiculous question I've ever been asked, and I'm going to go for 1,600 metres. Okay. I'm going to go for four meters.
+
+[00:14:48] Yeah. Hasn't grass the metric system yet. So what's four metres in feet? About 12. It's like three feet. No, no. No, like a meter, it's longer than a third. Okay.
+
+[00:15:03] That's got big feet. You know what they say about men with big feet? Big man's up. It's almost like no one cares how tall the... No, amazingly, Dan is almost absolutely bang on. It is 15 feet above sea level. No! Yes! It's not a mountain!
+
+[00:15:23] It is a mountain. The Japanese geospatial information authority are very relaxed about what qualifies as a mountain. I'm not kidding. It's, um, yeah, it's called Mount Teng. and it's basically a pile of dirt which was dredged out of the harbour in 1832 to allow vessels to sail
+
+[00:15:40] in to the port and that is not even the highest point in the park it is in but Japan's national tourist organisation have said that they do have a mountain rescue unit in case anyone gets lost on the slopes Okay, shall we move on to fact number three okay, it is time for fact number three
+
+[00:15:57] and that is Shuzinski. Yes, my fact is that when King George the 6th married the Queen Mother, The Archbishop of Canterbury wouldn't let them broadcast the ceremony on the radio in case people listened in the pub without removing their hats. This was the BBC really wanted to broadcast it. It was 1923 and BBC had just set up this radio station. They wanted something to broadcast.
+
+[00:16:22] The Royal Wedding seemed like the right thing. He wasn't George's 6th at the time. This was before he was king. But they asked if they could broadcast it. And the Abbey chapter said, absolutely not veto, because people all listen in the pubs and work. they may listen with their hats still on and it might be received in an irreverent manner.
+
+[00:16:39] So did people just used to just keep wearing their hats inside the pub generally? No. I think just like if you were really a complete layabout, you know, if you're really a bad person, if you're a drunk, then you might forget to take your hats off. You might be wearing a baseball cap or something. What, in 1930? I don't know if it was baseball caps you had in mind.
+
+[00:17:01] Sure, but what I'm saying is that people do sometimes wear, hats in pubs. But this was the thing, so you were supposed to take off your hat inside if you were doing something like watching a very respectable ceremony. Well, you were always supposed to, really, weren't you? Was it not an etiquette of always taking your hat off when you're inside?
+
+[00:17:18] I was reading something etiquette and it was actually really complicated, so I think on some inside moments you wouldn't. Like, for instance, you see pictures of bars in the 1920s where men kept their hats on and that was apparently because they couldn't rely on them not being stolen if they took them off. Yeah. I think the idea is, if you're in a place,
+
+[00:17:34] which is akin to a public street. So it could be a corridor or it could be a lobby of a hotel. And I guess you could probably say that a pub is a bit like that, maybe. So what, then you can leave your hat on? Yeah. Okay. And let's the song came from.
+
+[00:17:50] Yeah, that's the chorus, but then there's a big long list of things that you're allowed to. If you're in a corridor, if you're in a lobby, anywhere like a public street. Cool. You don't know that song, do you?
+
+[00:18:04] and men had to take off their hats when the national anthem was being played in the olden days in Etica and it's really supposed to now as well but women are allowed to unless it's a unisex hat so if it's a hat that anyone I mean anyone can wear any hats
+
+[00:18:22] I'm not judging but let's say it is a baseball cap that is a unisex hat then the women have to take the hat off as well so it's the hat which is you know God I can really imagine panicking as to what gender my hat was and what the right thing to do was at that moment.
+
+[00:18:37] I found out a really amazing thing about George the 6th. In 1926, and as far as I can tell, he's the only British monarch to have done this. So this is prior to him being a king. He competed in the doubles at Wimbledon as a tennis player. Really? I don't know that. How did he do? He lost the first match and he was out for the rest of it.
+
+[00:19:01] But that's extraordinary. that suddenly the prince of the UK was suddenly there. Imagine Prince Charles at the snooker. You'd watch, wouldn't you? Well, we have that one who rides the horses. Zara Phillips. Yeah, exactly.
+
+[00:19:18] I mean, they all ride the horses. Professionally. Yeah, he was amazing. So they got married only after him trying really hard to marry the Queen Mother for a long time. He'd proposed twice in the past. It's so weird.
+
+[00:19:32] that she was known as the Queen Mother all the way through her life. It's not like she was destined for the job, she should have known. He was called Albert at the time, weirdly, and she was called Elizabeth at the time, and she refused his first proposal because we kind of all remember the Queen Mother. She was quite a spunky kind of character,
+
+[00:19:53] and at the time, she refused because she didn't want to feel like she wasn't able to be free to think, speak, and act as she felt she ought to. So he said, I'm only going to marry this woman, I really love her. So his mom, Albert's mom, invited her up to her house and had some really, really sharp words being like, okay, well, you have to marry my son. And then he proposed again. And she said, no again. So good on her. And then he beat her down the third time,
+
+[00:20:17] like metaphorically. She was the first commoner to be married to a member of the royal family for 200 years, I think. Wow. But she was a commoner, but she was the daughter of the Earl of Strathmore, and she grew up in Glam's Castle. Yeah. So it's stretching commoner a little bit, isn't it? And this is a really good fact I liked about George the 6th. During the Indo-Pakistani War of 1947, he technically was at war with himself because he was the monarch of both those places.
+
+[00:20:47] Wow. That's amazing. So no, George, why are you hitting yourself? And here's another fact. When he died, there were more than 300,000 people who queued up to see his body. And that is just about the same thing. same as the population of Cardiff.
+
+[00:21:05] Wow. Why did they all go down to do that? You've got like a weird connection to them. They don't have much entertainment on here. Next week at the Glee Club, they're bringing the body of King George, let's say.
+
+[00:21:21] Just on royal weddings, there was a thing where Prince William and Kate Middleton got married, another quite posh commoner marrying into the royal family. But when they got married, that was in 2011, I think, New Zealand released an official stamp to commemorate the occasion
+
+[00:21:36] except what they did was they released the official stamp which had a perforation down the middle between William and Kate so you could tear them apart and get two stamps God, really did they do that on purpose?
+
+[00:21:50] I don't know, are they apologised? I can't work out whether it would have been better or worse for the perforation to go horizontally and cut their heads off they made the right choice. it was Pippa Middleton's wedding, wasn't it? And in our book, we have a little bit about that. 600 people were invited to Pippa Middleton's wedding,
+
+[00:22:11] 300 guests, and 300 members of the public who were allowed to stand in a pen outside the venue. Did they have a trough at the very least, or a nosebag each, maybe? What was the... Well, they didn't say exactly why it was. Well, I guess officially it was kind of just so that the local village can kind of be part of it or whatever.
+
+[00:22:32] But a lot of people thought that maybe it was to stop the paparazzi getting there or whatever because there's so many people. No one really knows. But it was crazy. There were more than 20,000 canapes. 20,000! There would have been 10,000 fewer within five minutes. So some royal weddings in the past have gone really badly,
+
+[00:22:52] and they're really fun to read about. So George VIII, for instance, he met his future wife, Carolina Brunswick, in 1795, and it was the age when it was just arranged. She was not flown over. she was brought over to the UK. And at the moment he set eyes on her, his first words were,
+
+[00:23:08] I am not well, get me a glass of brandy. And he proceeded to spend the next 24 hours in a drunken stupor and the wedding night lying on the floor in a drunken stupor. He arrived late to that wedding and stumbled up the aisle, completely drunk, and then he refused to say any of his vows until his father ordered him to behave himself. And they separated quite soon after that.
+
+[00:23:29] Wow. I read that he only got married because Parliament said, we will pay off your debts, but only if you marry this woman. Yeah. So that's the sole motivation he had. He seems like the kind of person who would have racked up a lot of debts, doesn't he? Yeah.
+
+[00:23:41] And I think, did he stare at his mistress who was in the front row throughout the ceremony? Poor woman. Yeah. There was another one. In 1736, there was a German princess Augusta arrived in London. She was 17 years old, and she had to marry the heir to the throne, who was Frederick, who didn't end up becoming king. but she was told by her mum, look, they all speak German there, it's fine, because she spoke no English.
+
+[00:24:02] She got there, nobody spoke any German. She didn't speak any English. She was absolutely terrified. She was ushered down the aisles. She was sobbing. She was clinging to her mum's coattails, apparently, saying, please don't make me do this. The groom, Frederick, apparently, just shouted the vows in her ear that she had to repeat verbatim. And then immediately after that, she vomited all down her dress and all over the skirt of her new mother-in-law.
+
+[00:24:25] And that was the start of what turned out to be quite a happy marriage. actually. We have to move on shortly. If you guys have anything before we do. Oh, I've got one thing. The movie, the King's Speech, that was about George Sixth. He had a stutter.
+
+[00:24:42] Did you deliberately? It just came out as I did it. Are you auditioning for the sequel? So Colin Firth played him in the movie. And in order to do it, obviously he taught himself to do a stutter for the movie. then the movie finished and Colin Firth found himself not being able to get rid of the stutter
+
+[00:25:02] so then he himself had to be treated for artificially manufactured stutter is that great? No way way I love that on the Dan's Wikipedia if it ever existed you'd look for the citation and at the bottom just a row of numbers
+
+[00:25:20] way way way way also I've got a quite nice hat little thing so the politeness of the British with the hat back in the day Michael Bond passed away this year who was the author of Paddington Bear and Paddington Bear was largely based on his father and his father apparently was so polite and nice
+
+[00:25:42] that when he used to go swimming he would wear into the ocean his trunks and also his hat just in case he passed someone as he was swimming so he could say oh good day to you I'd tip his hat to them. Is that lovely? Yeah.
+
+[00:25:56] Did you know that on a hat etiquette, the reason we have cloak rooms today where you put your hat and your coat in a cloak room is because of hats in the olden days. So when everyone was wearing hats up until the early 1900s, they took up half the space in restaurants. Because as we said earlier, men had to take off their top hats
+
+[00:26:14] when they went inside into a restaurant, for instance. But then you didn't want to leave it under the table because it couldn't really fit. So it would take up a second chair. and there was a guy this guy called AJ Liebling at one point said
+
+[00:26:27] you know our restaurants are 50% occupied by hats who don't eat anything we should really invent a cloak room to store these and that's where they came from It would be lovely if there was a smaller hat table
+
+[00:26:38] with you know and a hats menu you're right well they all got to hang out together yeah okay should we move on to our final fact okay it is time for our final fact of the show and that is my fact.
+
+[00:26:52] My fact this week is that the Brazilian frog, known as the pumpkin toadlet, has a mating call that can be heard by every animal out there, except for one, other pumpkin toadlets. It turns out their death. They do these croaks to get their attention, and they keep getting eaten.
+
+[00:27:17] They're probably going, why am I exposing myself so much? And it turns out it must be an evolutionary thing where they did used to be able to hear and somewhere along the line they went deaf, the entire species. I think there's subspecies within the pumpkin toadlet so there's two species specifically that are deaf.
+
+[00:27:34] And what they think is that when they're doing the call, the way it moves their neck, another pumpkin toadlet, female pumpkin toadlet, sees the moves of like the shakes or whatever of the toad and they're like, ooh, that looks like he might be saying something.
+
+[00:27:47] I have no idea. But it looks hot. so I'll go over. But what usually would happen in evolution purposes is that you would lose the call because you would protect yourself from predators, but they haven't.
+
+[00:28:00] And it's the first case that we've ever found of an animal that hasn't lost the call when it's redundant and exposes it to predators. But it will be getting there, presumably. We're always surprised when we find animals that, you know, haven't evolved into this perfect being.
+
+[00:28:15] But presumably in a few million years it's there. We're just in the shit phase. Wow. you're right. We're in the learning phase. When you're in the ship phase, you do often die out. You get extinct, don't you? Yeah, that is a risk for the toadet.
+
+[00:28:28] Apparently, they do little waves as well. Yeah. They go like this. Well, I can understand why the females come are flocking. I must admit that is a great podcast material, is it? Yeah, yeah. What James was doing is he was making a gesture that made it seem like he was trying to, like, work out somebody's height.
+
+[00:28:51] It's like, you have a child. Is that 4 foot, 5 foot, 4.5? Yeah. What's that like 4 meters? Three meters? Five or six meters. Okay. Yeah, so fortunately for the frog, it happens to be the case that, and it's like a bright
+
+[00:29:08] orange color. Yeah, they're really tiny, aren't they? They're really tiny. They're really tiny. I like the size of your thumbnail almost. They're really super small. Yeah, and their call is quite soft as a result. But they still can be heard by the Predators.
+
+[00:29:20] But they are incredibly tall. toxic. So if they do get eaten, they might end up killing the predator anyway. So they're probably just actually just being really cocky. And they're just going, hey, I'm here, I'm here. What are you going to do? What are you going to do? Nothing. Do you know that there's a type of frog called a cocky frog? No, really? It's in, I think, I can't remember where they're from. They're from an island somewhere, but they're now on Hawaii, which is also an island. But it's a different island where they're from. But they're on Hawaii and they make a hell of a racket.
+
+[00:29:54] They're really, really loud. And a load of people in Hawaii are really hating this because it keeps them awake at night when they're mating. You just get loads of horny frogs just making loads and loads of noise. That's like there's something called the, so I was looking at other sounds that
+
+[00:30:09] animals can make. And I was wondering do fish make mating calls? And they make really loud ones. So there's a fish called the plain fish midshipman fish, which is in the toad fish family. So it's got toad relations, and it hums to attract mate. So it makes this hum which sounds like a guitar amplifier,
+
+[00:30:30] or it sounds like a flock of bees? Flock of bees. Sure, a flock of peas. Yeah. And it turns out that they make so much noise that they live in California and their constant complaints to the police for the noise that they make
+
+[00:30:46] because they're disrupting people's sleep and drowning out people's conversations. And they growl and they grunt as well to keep out intruders, and they didn't know what it was for a long time, so people were calling the police saying, someone's keeping me awake all night. And it's them.
+
+[00:30:58] And the person who eventually found out about this weird noise that they make is a researcher called Andrew B-A-B-A-Dubble-S, which is the first case of double nominative determinism I've ever found. As in it's a fish, and it's the bassy noise that the fish make. I thought there was a fish species called Andrew.
+
+[00:31:21] That makes more sense The hundred fish Yeah Did you guys know Some frogs call so much And so vociferously for a mate That once they've got a mate They're too tired to follow through
+
+[00:31:37] And have sex with the female The female arrives And they say, I'm sorry, I can't, I'm no good to you now They lose loads of weight, don't they? They can't eat, they can't sleep And they're so weak That they're just a floppy mess And it feels like
+
+[00:31:50] Everyone's had a night like that. I mean, that is... I've overdone it. I found the really cool one. There's a frog in Taiwan. It's an urban city frog, and it does a mating call, but it's worked out how to make their mating call better.
+
+[00:32:09] It goes to storm drains, and it uses it as a megaphone. So it gets to the top of a storm drain, and it literally is just whatever, it's your... I'm super horny. Horry, honey, honey, honey. Honey, honey, honey, honey, holy, holy. And they found that the female frog goes to the edge of the storm drain,
+
+[00:32:29] so it works for them. But do the females know that it's not a... Because it must sound like a massive frog. It must sound like a super frog. It must, you're right, yeah. Do you know the biggest frog that's ever lived? It was about the size of a beach ball and it ate dinosaurs. Wow.
+
+[00:32:44] Not like T-rexes, though. No, like baby dinosaurs, yeah. So the common toad, the Latin, name for that is Bufo Bufo. And this frog was known as, or is known as Bielza Bufo. Nice. That's his official name as well.
+
+[00:33:02] But it was the size of a beach ball and they worked out how strong its bite was and its bite was about 2,200 newtons which is about the same as a lion's bite. Wow. Do you know how porcupines attract each other
+
+[00:33:18] or how male porcupines attract females? It's really fine to watch. awesome spikes. It is actually, in a way, yeah. They stand up on their hind legs, and they move, they shuffle towards the female just with their penis fully erect. And that's how they do it.
+
+[00:33:37] It's an uncompromisingly direct flirting method. It's good. There's no question over what he's after. We like that. Or sometimes, and you can see pictures of this, they hop, they lift one arm, their front, front paw off the ground and they hop on the other one whilst clutch with the one that's off the ground. They do. And this attracts the women and if the woman or the female porcupine likes that
+
+[00:34:03] enough, the crotch dance, then she'll allow them to have sex with her and usually if she's not up for sex then a male porcupine can't get in there because she's so spiny and then the way you know that she likes you is she puts her tail up and it covers all of her spines which means that you will not be impaled. Which is a very good system. Do you know that some frogs change color to make their life easier when they're in orgies? Really? If you're in an orgy, your life doesn't get much easier, does it?
+
+[00:34:34] Yeah, you've made it, you're fine. Well, it does if you're a frog, you see, because there's a lot of them. There's loads and loads of frogs all get together. Might be a particularly nice puddle or something. But these are in some species. They all get together, and they'll just shagg anything. male, female, tennis ball, whatever.
+
+[00:34:54] There are some pictures of tennis balls landing into this orgy of frogs and all the frogs just go for it. Really? What happens to the match? George's six going, damn you! So that's what happens. But there are some species, a lot of these species who do this kind of group mating,
+
+[00:35:16] they also change colour, and no one was really sure why, and it seems that the reason they do it is to say, I'm a man or I'm a woman, you know, keep off me. Oh, wow. It's like when you go to those parties at Union, you have to wear a traffic light color, depending on how available you are. Exactly. But the problem is, at the start, they're all green. Have you heard of this thing? So when frogs have, it's called explosive breeding, isn't it?
+
+[00:35:41] They do this thing called explosive breeding, which is, instead of mating all year round, they have one session, you know, every year, and all the mating happens then. So, some females, because there's a horrible crush of bodies, some females are crushed to death in these things. Unfortunately... It's already unfortunate. Yeah. Let me rephrase, put the common in a different place.
+
+[00:36:02] Some females are crushed to death, unfortunately. But the male frogs will still mate with them successfully. Wow. Successfully. Okay, so it's all about... The mating happens outside the body, because the female produces eggs, the male produces sperm,
+
+[00:36:20] and they meet outside the body. So the males sort of go up and squeeze the females. Oh, God. And they squeeze... It's just nature, guys. It's just nature. It can't be gross if it's just nature. No, that's not a defense for anything.
+
+[00:36:39] Yeah, and they squeeze the eggs out of their body and then mate with them. Amazing. Yeah, it is messed up, sorry. So Seahorse, we can... Don't boo the frogs. It's their instinct. I don't think the frogs are the ones being booed.
+
+[00:36:55] He's pointing at me. I know, mate. So seahorses have the best mating rituals, the best way of attracting each other, which people might have seen. But it's so great. So they change colour as well to attract mates. And then when they've got something
+
+[00:37:13] that they think they fancy, they swim for hours and hours. together and they get their tails intertwined and they go snout to snout and they spin around and they do this incredible dance but another thing they do is when they're in the flirting period they meet up every morning and they hang out together for a couple
+
+[00:37:29] of hours and then they part ways again they date each other. I know it's so sweet and so they do this sort of pre-dawn dance where they meet up they do that and then once they're ready on like the fourth or fifth date or whenever you think is appropriate then they do the full eight-hour courtship
+
+[00:37:46] that ends in pregnancy. And that's... You see, Andy, this is how you tell a story about animal mating. Yeah. There's no booing going on there. Does the seahorse then die? And then they just punches it in their head
+
+[00:38:04] until the eggs come out? Yep. Is that the... That's the romantic climax. Right. Sorry. I didn't think it was interesting and I realize it's just horrible
+
+[00:38:20] David Attenborough doesn't get this shit does he? Necro is David Attenborough He picks his targets carefully We need to wrap up shortly We need to get in the van and leave this time Thank you for listening to the last ever episode
+
+[00:38:46] I'll love such thing as a fish. You guys got anything before we do? I can give you some names of frogs. Great.
+
+[00:38:55] I read a list of all the names of all the frogs. Andrew, Billy, Bobby. Well, Andrew's a fish as we've established, so there is the demonic poison frog.
+
+[00:39:06] They all have amazing names. The hole in the head frog. The brilliant thied poison frog. And the Pobblebog. The word? Popblebong. Pobblebong.
+
+[00:39:20] You have to say it like that. That's appropriate because someone had a frog in their throat as they named that animal. All right, let's wrap up, guys. Okay, that's it. That is all of our facts. Thank you so much for listening to us. If you'd like to get in contact with any of us
+
+[00:39:35] about the things that we've said over the course of this podcast so we can be found on our Twitter accounts. I'm on at Shreiberland. Andy, please just don't contact him this week. James. At James Harkin. At Chazinski. You can email podcast at QI.com. Yep. Or you can go to you.
+
+[00:39:52] You want to say you or day, don't you? No, no. I'm immediately setting myself to private. You can get our group account, which is at No Such Thing, or you can go to our website. No Such Thing isafish.com. We have all of our previous episodes up there, and we also have a link to our book, which is now out,
+
+[00:40:10] which we're about to give a copy away to one of the members of our audience who sent us in a fact, and that fact, have it? Yes, this fact is from Hannah Winterbourne, who I think is in here somewhere, yes. And this fact, this is the fact that... Oh, there's six of her. This is the fact that British Army soldiers can wear the same underwear for three months straight, apparently. And that is because it's antibacterial underwear, I believe.
+
+[00:40:37] And Hannah, who is here tonight, has worn this underwear for three months straight. Wow. That's really exciting. Cool. Okay. Well, yeah, we'll give you a book after the show. Guys, thank you so much for being here tonight. We hope you had fun. We'll be back again next week with another episode. We'll see you then. Goodbye.

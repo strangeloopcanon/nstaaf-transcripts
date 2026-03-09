@@ -1,0 +1,345 @@
+# No Such Thing As A Fish - No Such Thing As A Venetian Barge
+
+- Episode date: April 3, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-venetian-barge
+- Slug: no-such-thing-as-a-venetian-barge
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hoburn. My name is Dan Shriver. I am sitting here with Andrew Hunter Murray, James Harkin, and Anna Tyshinsky. Once again, we have gathered around the microphones with our four favorite facts for the last seven days. And in a particular order, here we go. Starting with fact number one, that is Anna. My fact this week is that some planes are specifically built to carry other planes wings. How degrading. Is it?
+
+[00:00:49] I think it's a bit degrading for those planes. Just, you know, you're the... Oh, I think they're the king planes. Well, the wing was there. Do you? Yeah, I think they're the planes without which other planes cannot be. I think they're more like a wing man. Nice.
+
+[00:01:02] Well, whatever their social hierarchical status in plane can be. You know, see these are really cool looking planes. So I was just reading about plane construction, how planes are put together. And it was saying how all the different bits are made in different places. Now I was thinking how on earth they get them to where they're assembled. And read that for Airbus, which is the world's biggest aircraft maker, they use this thing called Beluga XL, which looks just like a beluga whale, which is quite cool. It's got the big, we've talked about melons, haven't we, on the podcast of all their big foreheads.
+
+[00:01:33] James is looking skeptical. It doesn't look exactly like a beluga whale. You wouldn't confuse it with one. I've seen the image. I think they look a bit like them. I'm just trying to think if the average listener's going to know what a beluga looks like. Maybe a dolphin. A dolphin.
+
+[00:01:45] A dolphin with a big melon on its head. Big bulbous head. Yeah. And they paint them to look like beluga whales. They paint the smile on to make them look friendly. They're very charming looking planes. And they're amazing. So they are as long as two blue whales, just to continue the whale.
+
+[00:02:00] Yeah, they're the biggest whale in the world as a result, aren't they? Oh, nice. And they're designed they can carry two wings for an Airbus A350, which is itself a really big plane. And they were designed, I think, specifically to carry two of those to fit them in because those wings are massive. And the whole face of the whale comes off. So you don't load them in the back.
+
+[00:02:22] You just pull off the whale's head. Well, sort of lifts up. Yeah, yeah. So do the wings go on the inside? Yeah. Would you not just attach them to the actual wings? But then how do you fly back when you get there? No, double wings.
+
+[00:02:33] Get them there faster. Oh, like a biplane plane? I don't know why they haven't thought of that. Yes. Yeah. But the Beluga is one of the smallest whales in the world. So actually it should be a very small plane. Yeah, it's poorly named.
+
+[00:02:45] Yeah, yeah, yeah. You know what's crazy as well? So the Beluga XL is a more recent innovation from the original Baluga. The number of staff on the plane at any one time on the original Belugas, it's just two. Really? That's it. You put the wings in. Pilot co-pilot.
+
+[00:03:04] co-pilot. I assume not like two flight attendants. But now the XL has a third member. The loadmaster. Loadmaster. That suggested one person's loading the wings on. She is quite wild. Is it to make sure, I suppose, that they stay strapped down
+
+[00:03:22] during the flight? Yeah. It's all right. I got it. That's a pretty sexy job title. Yeah. What are you? Oh, I'm a loadmaster. Oh, yeah, and what do you do? I want a small piece of Velcro in terror. fearing it's going to come on done. Cool, cool.
+
+[00:03:38] I'm going to speak to this person over here now. They didn't always use aeroplays to get these things around. The Airbus A380, they used to move everything around using something called the itinerare, A Grand Gabari. And that is a water and road route that was created just to move pieces of this airplane around Europe. No way. So cool. Yeah.
+
+[00:04:01] They dig sort of giant canals across. Europe that we didn't notice? Well, I think they more used existing canals and made them a bit wider. Cool. And also used existing roads and made them a bit stronger. But basically, they were put together in Toulouse, but the bits were made in France, Germany, Spain, United Kingdom even. And so they had to bring all the bits together to Toulouse so they could make them.
+
+[00:04:22] But they had to reinforce everything because they're so big. And they would always travel at nighttime. That's so cool. They park up in some lay by during the day. And then at nighttime they drive around with these. They do all these big load people, largely because it's a real inconvenience in the day, but that makes it sound sexy as well. Oh, it sounds covert.
+
+[00:04:39] Because you're only travel at night. I'm a night loadmaster. Yeah, I don't normally come to these parties because I'm a bit of a night loadmaster. On that, James. So you know how NASA gets its rockets around? I do, actually. Okay. Well, can you pretend you don't?
+
+[00:04:56] No. Did they attach balloons to it and float it around? No. They use barges. They have a barge called Pegasus. And they load the rocket on. Because it's from the assembly factory is in Louisiana. And they need to get it to the Kennedy Space Center in Florida.
+
+[00:05:14] And it's 100 meters long. And they just load the rocket on. And then it doesn't have an engine. The tugs have to just tug it all the way. How far are those two places apart? They're quite far. From where to where? From Louisiana to the Cape Nathral.
+
+[00:05:26] It's probably about 400 miles, I'd say. Something like that. You wouldn't walk it. I guess. I think that's weird, isn't it? It's weird because the word barge is so... Yeah, you picture it's like toad in the hole or something. We're in Venice.
+
+[00:05:37] Yeah, all Venice. If you go to Venice with your wife, are you saying, hey, let's get a barge? Darling, I've got us the most amazing deal. Now, there will only be three staff on the barge. But we will velcro you down. Yeah, what I found interesting about that NASA barge is actually it's only about 50% longer and wider
+
+[00:06:00] than a standard canal boat. Because canal boats are quite long, haven't they? I mean, having stayed on a canal boat for a week, it doesn't feel spacious. Maybe not a narrow boat, like the tiny narrow boats. Oh, we're not talking about a Rosian Gym style narrow boat. It's 310 by 50 feet, so I'm pretty sure that that's not, it's only, it's not twice as big as a normal Camelboat. It's pretty amazing, isn't it? It's amazing.
+
+[00:06:24] But they have got another way of doing it, haven't they? They use a thing called the pregnant guppy. which is a modified Boeing 377. Yes, and this was at the start. Well, they made their first pregnant guppy start of the space race. So I think then they went back to barges for a while because this was in the 60s, and it was a massive problem
+
+[00:06:44] because at that time they were made it on the West Coast and then had to be taken to Cape Canaveral. And yeah, it was just taking forever and they had to go through the Panama Canal. So far. It took about 305 days. You mean the America Canal. Sorry.
+
+[00:06:57] Sorry, yeah. and they took the transport time from 25 to 35 days down to 18 hours. But that's what inspired the beluga designs, because if you look at them, they look kind of similar, don't they? They really do. Yeah, the pregnant guppy inspired this. Yeah, absolutely. It had all nautical, all they're all sea creatures,
+
+[00:07:16] guppies and belugas and. I think that's deliberate. The beluga was a nod to the guppy. Because the guy who created the guppy was a guy called John M. Conroy, and he also came up with a playing called the Conroy Sky Monster. Cool. Just such great names, these planes are. Yeah, yeah.
+
+[00:07:30] So cool. Hey, this is pretty cool. The Bluga XL, it doesn't just take wings. It often gets, well, sometimes gets asked to bring a few other things. And at one time, in 1999, it carried the Liberty Leading the People painting. So this is that French painting by Eugene de la Croix. The face you make when you say that, it's such a shame the listener can't see it. That's why I'm not allowed to go to France.
+
+[00:07:55] And yeah, so that's very famous. It's a massive canvas. It's like one of them's holding a big flag. Yeah. There's a lady in a bit of a state of undress. Yeah. She's definitely in an emotional state. Yeah, yeah.
+
+[00:08:06] She's got the flag. One of the buttons has fallen off. Yes. Yeah. She'll be livid when she finds out someone was painting that. It was loaned from Paris to Tokyo, and so they needed to get it over there. It's too large to fit in what was, I guess, the biggest transport plane at the time, Boeing 747. So they needed to use a beluga in order to do it.
+
+[00:08:26] It is. Is 9.8 feet tall and 11.8 feet long. That is small. I feel like I've been in a bow example seven. That's about the same size as this wall, isn't it? Yeah. It's a bit smaller, a bit taller and a bit... But you've got to package it up and you need to make sure it's really good packaging, right?
+
+[00:08:43] So that's gonna add exercise. I mean, have you ever... Tons of bubble wrap. You know, when you order for, like, a, you know, sometimes you order just like a lipstick from Amazon. Always. Yeah, yeah. You know what? I was on a flight last week and I bought a bag of crisps.
+
+[00:08:57] and then I forgot about it and then halfway through the flight I went, oh, I'll have that bag of crisps. I went to my bag and the bag of crisps was enormous because the pressure change. Oh, right. Okay, so it's like, okay.
+
+[00:09:08] So I wondered if you had an enormous bubble wrap around your painting where the whole thing would just balloon to like 10 times the size. So it looks small when you put it in and everyone's going, that could fit on a 7-4-7. That's a few weight to get in the air.
+
+[00:09:22] But yeah, they had to put it in a vertical position. There was a special pressurized container so it didn't get damaged on the way. And they had these anti-vibration devices that were in it as well. Come on. Yeah. I feel like this is just in case the load master got excited. Loopy plates.
+
+[00:09:37] Okay. So various countries have really led the field in this. I think the Germans had a pretty good record for a while. Did you hear about the Blumenvost BV-141? Yeah. Not a one-for-1. I'm just going to go to speak to this guy now. This is so amazing.
+
+[00:09:56] So picture a classic, let's say a bomber plane from the war. You know, you've got the main fuselage in the middle, you've got the wings on either side, and you've got an engine on each wing, and maybe the propeller on each. Got it. Okay, classic engine. Yeah, classic plane. Maybe next time just say, picture a plane. No, no, no, no, no.
+
+[00:10:12] Picture a person, you're ahead of the top. Second one wall, same. Second one wall style bomber, right? This was a plane which had the fuselage, sure. But that's not in the middle. Uh-huh. So there's a wing, then there's a fuselage, then there's a separate one. wing and the crew are sitting in a little pod halfway along that wing.
+
+[00:10:30] Oh, cool. It is the weirdest looking thing. But what's the reason? Reconnaissance. So it gave a better view for reconnaissance photos to have you not being in the main bit of the plane. Okay, because the wing doesn't get in the way, maybe. I always think the wing gets in the way of the view a bit when you look out of it.
+
+[00:10:45] NASA actually invented a wingless plane, which they flew, called the flying bathtub. And it was in the 1960s. They're experimenting. If you look at a photo of it, it literally looks like just the wingless plane. plane, no wings, and it managed to take off. And what's giving it the lift? You have to roll it down a hill with three Yorkshiremen of it. It's a lot for the oldest generation.
+
+[00:11:09] I'd explain it. You know what's the actual answer, please? I was sort of hoping James of joke would make us run past that. I'll always wait out the joke. Turn to the answer, thank you very much. We don't have it flu. You don't have flu? It flew.
+
+[00:11:26] Do you want to hear a plane we never got? The Lockheed flatbed? Okay. This is bananas? Okay, so what's the thing about planes? You got your two wings. Yes. You're gonna have an engine underneath each flying.
+
+[00:11:39] Okay. Okay, but you put everything you got in your plane, right? Or your people in their bags. There's still a load of space above them, isn't there? Yeah. There's still a load of head room that is unnecessary wasting of that tube of the plane. Oh yeah. So what if you had a plane, which had the wings, and it's got the head and the tail, and it's
+
+[00:11:55] got the head and the tail. Yeah. But then it's just like a flat bed truck in the middle. It's not a tube. Okay. Do the people have to lie down in it? It's not for people. Oh, it's like...
+
+[00:12:04] It's just for paintings by Delacquay. It's for like, I don't know, like a big lorry or a tank or whatever. Like something you need to move by air that just goes in an open top sandwich. Nice. A convertible plane. Stop that down. Convertible plane. Cool. And that was designed.
+
+[00:12:22] And tragically it was, I don't think it was built. It was designed in a... 80s. The pilots get to sit in the compartment, but mostly it's open-term. Yeah, otherwise your hair would get completely messed up, wouldn't it? Do you guys know about the X-planes? Yes, where have they gone? They were meant to be in the future. Well, it plays is how the X-Men get around? Yes, exactly. They are the future, and basically we only learn about them after they've been
+
+[00:12:42] declassified. So, you know, there might be still some X-planes being made, but we don't know about them yet, right? But we know about the ones which have been made and weren't useful. A lot of them were missiles. There was one called the Stiletto. which looks like basically the bottom of a shoe, of a women's shoe, extremely thin airplane. They thought it might be able to go really, really fast. Who's making all these X-Plan?
+
+[00:13:04] This is the US. Okay. And what's their category of their secret until they're released? So if you're making a secret sort of wacky plane and you're in the American military, Dick Dastard Lee is in charge, then you give them an X designation. Nice.
+
+[00:13:21] And then eventually some of them cloud. The X-43 was in 20, And it flew at Mac 9.6. So that's 9.6 times the speed of sound. It was about 7,000 miles per hour. No. But the engine that only was able to run for 10 seconds. So they got that fast, but they couldn't do it for very long.
+
+[00:13:45] You still popped to Paris, couldn't you? That was great. Can I tell you guys one really amazing thing about moving big stuff around? Yeah. Wind turbines, those big. sort of arms of wind turbines. You have to basically make them in one piece and then get them to where they need to go. You can't make them and then stick them together because they need to be really strong.
+
+[00:14:05] And so they put them on enormous flatbed trucks, right? But sometimes the place where you need to put your wind turbine is in the countryside. How do you get through a little town with these massive wind turbine trucks? Do you have to just take everything down basically? Like anything that goes over the street, any wires or anything? times that would happen, yeah, in the past that's had to happen. Or they've had to like make roads way wider. They've had to pave over the top of roundabouts because they can't go roundabouts.
+
+[00:14:34] But they've invented a new class of vehicle called the self-propelled rotor adapter. And this is amazing. So you drive your truck and it's on a flatbed. And then the rotor blade of the wind turbine can move upwards so that it's perpendicular to the ground, which means you can drive it much better around like. tight corners. It does mean you've got the biggest sail, known to man.
+
+[00:14:57] That's still small. Again, they would only do it at nighttime and everything's really quiet. But otherwise, like, you're knocking down, like, trees and... Gosh, that's so clever. I think they sometimes don't do it at night because there's a really good video of someone drive. I think it's in Hull, a really good video of a truck which looks microscopic when you put 100 metres, like wind turbines might get up to 100 meters long.
+
+[00:15:18] I think this one's 70 meter long turbine blade on it, sticking up like James says in the air, and then behind it, there's one guy walking in fluorescent gear with a hard hat on. He's the loadmaster. Come on and go, party to get to. Okay, it is time for fact number two, and that is Andy. My fact is that Japan has just experienced its maximum ever number of traffic lights. Is this by royal decree? Yeah, it's an imperial thing.
+
+[00:15:55] they've decided there are just two darn many. What is this? How can you be sure that they're not going to add more? I'm not positive, but barring surprising demographic shifts, which aren't unheard of, Japan will never have as many traffic lights as it does now. Is your fact that Japan's population is going down? No.
+
+[00:16:15] No, it's closely related to that fact. I'll grant you that. This was a piece in the FT. And it was about the fact that Japan's population is going down. And if you've got fewer people, you need fewer traffic lights. It's basically, do you remember we did the thing about conveyor belts, that manned Japanese scheme to have conveyor belts instead of freight lorries, you know, in bits of the country?
+
+[00:16:42] Basically, many traffic lights are quite old now, and roads in rural areas are emptying of traffic. So the police have just announced from this year more traffic lights will be decommissioned than newly installed. So the total number is going down. Demographics. It's called the 2025 problem, actually, in Japan, which is where this massive baby boomer generation, they are moving from early old to old old. They're over 75 now, so they're moving into more of the, and that's not advanced old age,
+
+[00:17:09] but you know what I mean. They're getting older, and that just means big changes. This is one of them, yeah? Is it that they don't know how to use traffic lights anymore because they're getting older? No, it's more like that will lead to lots of shifts in terms of the amount of social care you need for people, Well, if you have a big cohort of society who are no longer in early old age, but in older old age, that will lead to big things. And that's why they're experimenting with lots of things like robots in care homes and things like that. They're trying to solve it with a combination of robotics
+
+[00:17:34] and other things, mostly robots because it's Japan. It's not just depopulation. It's the fact that the traffic lights themselves, they have a life expectancy of 19 years. And so if you want to redo them up, it costs about £6,000 in order to do each traffic light. And they're just saying, actually let's just take them down. It's depopulation and old age of the lights themselves. So as to your question, James, if Japan suddenly goes on the bonkathon of the century, and suddenly the population's gonna double, then they might consider... Japanese bonkathon. I love it. You mentioned robots. Yeah. Robot is what a traffic light is in South Africa. Beautiful. What does that mean? That's what they call them.
+
+[00:18:14] Robots. No way. Really? Yeah. Yeah. What do they call robots? Traving on it. I think you can have the same name for two things. It might get confusing though. It might be. They were originally called that. So in Johannesburg, the first one came in 1927. And they were called robots. And they still are.
+
+[00:18:33] But they're quite unreliable in Joe Berg. And people knock them over quite a lot. The Johannesburg drivers damage 81 robots a month. And they have to replace them. And they often replace them with quite high-tech things. And those high-tech things often get stolen. because they have lots of metal in the cables and stuff like that. They fitted loads of them with monitoring system,
+
+[00:18:56] but the monitoring system had SIM cards in, and people realized they could just steal the SIM cards and use them in their phones and make free calls. Wait, what? And the problem is so bad that in some cases, jail sentences for attacking robots can be as high as they are for murder in Joanna's birds. Because they decided we're going to stop this,
+
+[00:19:15] so we're going to make the punishments really high. Wow. Yeah, big problem. That is a big problem. Singapore has got an interesting thing with its traffic lights. Depending on who's crossing the road, you might be stuck at a red light in your car longer than if someone else was crossing the road. Is this a riddle?
+
+[00:19:34] Yeah. Go for it. Is it that they've got senses to tell if it's someone in a wheelchair or an elderly person who takes longer to cross? So yeah, but it's not sensors. This is a new thing which they're going to slowly spread out through all of Singapore, which is if an elderly person is trying to cross the road. They have a car, which is kind of like a pensioner's card, which they tap onto the side,
+
+[00:19:55] which tells the signal that there's an old person crossing, and they get an additional 13 seconds to cross the road. I think that's such a good idea. I spend a lot of time with pedestrian crossings thinking, this is way too little time if you're really old. Sometimes I can even only just get a cross. And especially if you're not there at the very start. If you're an older person, you're like, I'm not going to start unless I was there at the beginning. Yeah.
+
+[00:20:15] Some of the roads in Singapore are quite long as well. Yeah. They're quite wide, yeah, they have lots of lanes, like almost as wide as our motorways, but they're just normal they were. God, imagine getting to sort of the middle of a 12-lane road, realizing and looking behind and in front and thinking, which... Should have tap my car. Did you tap? Did you tap, darling?
+
+[00:20:33] I thought you tapped. You didn't have to take it, darling. People in wheelchairs are much likely to be in traffic-related accidents, partly because they might take a bit longer across, but also partly because they're way less visible because you're at lower height. So in Vienna, the cameras can detect that, and they sort of work out with nice 99% accuracy, whether you want to cross the road or not. How cool is that?
+
+[00:20:51] I honestly thought we had similar things in London, I must say. There's one near our house which gets you across to the park, and I swear when people are slowly going across it, it stays on for longer. You've got to get out there with your stopwatch, right? I know, I'm going to do it. Did you know outrage of outrage that, well, first of all, I've always been fascinated by traffic light technology, and I've like Googled this loads before, like how they're all coordinated,
+
+[00:21:13] how many lights are rigged up to the same system? because you know they all seem to change in coordination with each other. You have something called a green wave. Do you know what green wave is? Well, I came back from the airport the other day and I was driving from Stansted into central London and it felt like every single light was on green. I just got so lucky.
+
+[00:21:31] That's because you'd had your crisps, you were in a good mood. But what I thought is, if you hit one green, does that mean you're going to hit all the greens because you're just going at the right pace? Well, it usually depends on whether you're in a row of traffic. Well, no one was there. It's the middle of the night. Okay, well, that's very weird and you just got lucky, I think.
+
+[00:21:47] If it was the middle of the light, they'd just have them on green unless another car comes. But the green wave is basically... Were you driving a wind turbine blade at the time? This is when loads of lights along the same route, along the same stretch of road, are coordinated to go green one after the other to stop cars stopping. Now, usually it only works if you're in a row of traffic, because environmentally it's much more friendly to not have lots of cars stopping and starting. because, you know, when engine stop and start, that's worse for the environment.
+
+[00:22:16] So, people say that if you are in a green wave, if you catch a green wave, then a bit like getting in a slip stream, you've got to stay close to the car in front. Not too close, but close enough that you don't break the green wave so that you can get through all the greens. Because if suddenly you let enough distance between you and the car in front happen, then the light will go red. Okay. So is everyone on board?
+
+[00:22:38] Are you in the car going, oh my God, we're in a green wave? You should be, yeah. Right. And then you will try and conquer it along. Yeah. That's pretty cool. London has a thing called scoot, which is smart traffic lights. And they can let certain cars and trucks and people go through depending on what's best for the environment. So if there's like some really big heavy goods vehicles that are going to go through London, then we don't want to stay in in central London and clogging up the air.
+
+[00:23:05] So we're going to kind of give them a bit of a free run on the green lights. And that's using smart cameras and all that kind of stuff that they can do. do that. That's so cool. I know. And they have a similar one in Amsterdam, which can talk to your phone. And they can give cyclist priority when it's raining. Wow. Isn't that amazing? The Dutch are so far ahead of the day. But they're kind of thinking to stop this. In fact, they might have recently stopped it because they hadn't really thought about the privacy risks of being able to see where everyone's going all the time. What's the harm? A few people have complained about it. So I'm not sure if it's still going, but for a while that
+
+[00:23:40] There's people who are cycling home from their lover's house. That's how they got busted. From the big Dutch bonkathon. Well, I just wonder if there's a hidden sort of like air traffic control system that's used for say like if there's a major incident and you need ambulances to get through. In America, they have that. There are places like that. In the UK, we don't have it because ambulances just go through red lights. Yeah.
+
+[00:24:00] Oh, yes. But there is. Again, in the Netherlands, there's a traffic light system in, oh gosh, I can pronounce it wrong, Hertogenbos, which has. all these detection loops like plugged into the whole town software. So all the city buses have these transponders on which talk to the junctions. If the bus is running on time, the light works as normal. If the bus is running late, the lights change to give the bus priority. And if the bus is early, the light says, yeah, you can hold that.
+
+[00:24:28] The light just stops the bus for the sake of it. Stops the bus and lets the other traffic through first. Well, this is the explosive thing. I realized about this country is that, yeah, we don't have it with emergency vehicles, whereas America does. And I should say, because I read so many forms with, ambulance people saying we never go through red lights unless it's safe. So, you know, it was willy-milly.
+
+[00:24:45] Of course we don't. But no, no, of course not. We're going to need a few more ambulances out there. We've got there in great time. We have left a trail of destruction. But, do you know, can override red lights whenever they want? The buses in this country. It's so cool.
+
+[00:25:05] What? So if a bus has the appropriate technology, which is the bus radio link. I think you're thinking of cyclists. You're always hopping on the back of passing cyclists and tapping them with your oyster card but staying on until you've reached your destination. This is true. They have certain different bits of tech that can do it,
+
+[00:25:25] but one of them is bus priority radio link, which communicates with traffic light. So if you're on the bus, you have this radio link that says, I'm coming along, I'm a bus, let the light stay green for me. And the light will stay green for the bus. Because again, it's better because buses are more efficient, they're carrying more people.
+
+[00:25:40] bad for the environment for them to stop and start. Sometimes you'll see, and I really want to see one of these now, a sensor on the road before traffic lights, and it's a bus sensor. And I think they're often at the bus stop just before the lights on the bus stop. And it sensors that a bus has gone past, and it relays information to the traffic light saying, if you're on green, stay on green for a bit longer, because the bus is coming. So smart. These buses are getting away with murder.
+
+[00:26:05] And police cars are there sitting at red lights. miserable response. I am being cheated here by this bus getting through efficiently. With my Ferrari, having to sit here idling. Okay, which is better? Reversing into a parking space or going in face first?
+
+[00:26:23] I have this argument with my husband all the time. I always go in face first. I always reverse. I wonder if it's a gender thing. I believe it's easier to reverse into any spot. All right. You're doing the challenge. Because then I reverse coming out, don't I?
+
+[00:26:37] We both have to reverse at some stage although my dream is I drive in straight and then the person in front of me and the other parking spot leaves and I can just go straight through the parking spots That's a great day when that happens I knew this would be a hot button topic And if you're listening at Hyman you've got opinions about whether you reverse who will go face first
+
+[00:26:56] Okay here's another reason why you should do what Anna does Reverasing out of parking space is more dangerous because there are people walking around there Bingo It's unlikely there's someone walking in your parking spot Exactly that. So there is a writer called Tom Vanderbilt, who's an American traffic writer. And basically, particularly in America, which is where he's focused on, there are loads of crashes. You know, some of them fatal in car parks. And it's because people, and it's also because American cars are way bigger than European ones. People just get in, they reverse out. Visibility is much reduced. However, there are some places where it is illegal in America to reverse into a parking space. Really? What?
+
+[00:27:37] I know. There's a city in California called San Luis Obispo, I'm sure I'm saying that wrong too, which has made it illegal to reverse into a space. I don't know. Everyone who lives there is a woman in a 1950 sexist joke, aren't they? So it's just chaos. Like it's clearly safer to do the opposite of the law in this place, which is nuts. It must be the fights, right?
+
+[00:27:56] Because in order to reverse it, you have to pass the spot. Yeah. And then it's like you've changed your mind and go, actually, I'm gonna, and they're going, No, I'm a front parker. Yeah, I think that's probably it. Can I say one last thing about an effect of traffic changes? So, New York City has just, a little bit of glamour, has just introduced congestion charge. Okay.
+
+[00:28:21] Yeah, very late. London had it about 15, 20 years ago. Durham had it before that, so we did it. Oh, nice. Okay. Well, New York has finally caught up with swing in Durham and brought in a congestion charge. And it's like, it's only a month or two in. And it's, you know, politically sort of much vexed because some people are saying,
+
+[00:28:40] oh, it's terrible, it's woke, blah, blah, blah. But it's cut down traffic a massive amount. Like, it's just journeys are much smoother now. But the other weird effect it's had, it's cut down another thing that's common in New York. What's it? Honking. Honking. Oh, okay.
+
+[00:28:54] Honk-related complaints are down 70%. Oh, really? 70%. Is that just car honking or is it also people pretending to grab people? breasts. Well, no, actually those are up hugely, sadly. I also load the number of instances of people saying, I'm walking here. Oh, that's two cars.
+
+[00:29:13] That's tragically down. 94% already said. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that bacteria eat clouds. So it turns out up in the sky, there's a lot of stuff living up there. Lots of stuff. and a lot of it is very small. So, you know, fungal spores, viruses, and bacteria.
+
+[00:29:43] And the bacteria, how they can live up there for so long, is that they get their energy from the little bits that make clouds. So if you think about it, a cloud is made out of water, right? But the water can't just stay up there by itself. It needs to get around something. So there's little bits of dust. There might be little bits of dead animals up there, little bits of, you know, dead fungal spores, something like that.
+
+[00:30:08] Dead animal, like the leg of a rabbit. The roadkill that the planes hit while they're up there. Tiny cellular. I meant tiny cellular things, yeah, as opposed to a trunk of an elephant. But yeah, so that stuff might be made of carbon. And the bacteria can use this carbon to make a molecule called adenosine triphosphate or ATP, which is basically what we all use. We're all living.
+
+[00:30:33] Yeah, all living things use it to create energy and they get theirs from this stuff that's in clouds. Yeah, because I always thought these are nucleators, the little bits that clouds gather around it. I always thought they were mainly dust and bits of earth and basically water attached to them, forms ice around them and that's clouds. But actually, up to 100% of them in some places and the vast majority are biological.
+
+[00:30:56] So it's largely the corpses of other bacteria that bacteria are eating. I mean, a lot of dust is... like comes from bacteria or... It's wild to think though that when it rains, there's an estimate that says a single square meter of ground gets pelted with a hundred million bacteria during every hour of rainstorm. Yeah. I... You're being rained on by bacteria.
+
+[00:31:17] Because I don't really like using umbrellas because I feel like it's a bit soft. And so I always go out in the rain and I'm just kind of happy to get wet. And also because I'm from Boston, I feel like it reminds me of home when it rains. Yeah, right. But now that I know all that bacteria is coming down as well, I feel like I might have to use a lot of the rain. Umbrell.
+
+[00:31:34] It's mad. Now you know you're being bombarded with fungal spores. I know. Yeah, you've got a real two mixed signals coming in there. That's so you, James. I recently considered buying a second umbrella stand. Honestly, if anyone listening wants to know the difference between me and that pretty much sums us out.
+
+[00:31:52] It's pretty wild though that it's not just the rain that I, you know, I grew up by the beaches in Australia. Every crashing wave was pumping bacteria into my face. I just didn't know that. It's crazy. Because I always go swimming completely naked because I think if you wear a swimsuit, that's soft. Now you're burkini, aren't you?
+
+[00:32:12] I read a piece, which I'm sure you guys all did, which was printed in microbiology today in 2005. I'd read it before. This was a fantastic... I just wanted to give a shout-out to Dale Griffin. I don't know if he's still trading or still listening, but it's about soil moving across the earth every year. I just want to read you the quote,
+
+[00:32:30] The current estimate of the soil moving some distance in the Earth's atmosphere each year is approximately 3 billion metric tons. If that was converted into 1964 Volkswagen Beatles, based on weight and dimensions, there would be enough beetles to create a 42 kilometre tall tower with base area equivalent
+
+[00:32:48] to the walled city of Chester, UK. Oh my God. Mate. Hang on. So think about that. I'm struggling to pick about it. So the amount of soil... Did we need the beetles in there?
+
+[00:33:02] Couldn't we just have the soil making the towel? No, no, no, because the soil is denser the beetles. The soil is converted 3 billion tons of soil, converted into 3 billion tons of Volkswagen beetles. Because you've got there. Inside of a Volkswagen beetle is not full of soil. No, not unless you've been doing some very heavy driving. Interesting, okay.
+
+[00:33:20] Well, I say interesting. It's a cool tower, yeah. Do we need Chester anymore? Wouldn't it be better to have a 42-kilometer tall tower? T-haelstorms. You know about these? Haylstorms. Sea plantations?
+
+[00:33:34] Yes. Oh. They're more common hailstorms over tea plantations. And it was this really big mystery. In 1979, there was a scientist in Kenya, who was aware that the world record of hail storms was on Kenyan tea plantations. They got 132 days of them a year. Wow. Which is a lot of hail and didn't know why.
+
+[00:33:52] And it turns out it's all the tea pickers fault. Basically, as they walk through the tea plantation, picking the tea, they kick up bits of leaf, bits of dead tea leaf into the air. and there's a bacteria in tea leaf that attaches itself to the leaves as they rot and their flawless hail nucleators. So as you kick up the tea leaves into the air, you free up these bacteria, they go straight up into the air, and they hail down again. Does it damage the tea?
+
+[00:34:17] Must do, right? It seems like it would, but it's not like they're constantly having to move the tea plant to escape the hailstorms. There's a science writer called, I think he's called Zimmer, who's writing a lot about old... Carlzimmer. And he writes a lot about these things which are collectively aeroplankton is the term for them.
+
+[00:34:33] And it contributes a huge amount to the circle of life. So there's a bacteria called pseudomonas, and it's very good at turning water to ice, or helping water turn to ice. And so when a plant is covered in this stuff on the ground with these bacteria and rainlands, the pseudanomas bacteria turn the water to ice, the leaf cracks open,
+
+[00:34:55] and the bacteria can then get inside the leaf, which is what it's trying to do, it's trying to feed on the leaf. So that's what the bacteria's function is and it sort of damages the plant. But clouds containing those bacteria rain more. And it might be that that helps plants grow because plants need rain to grow. So actually everyone's helping everyone in this weird system. So they're kind of happy to have this little bacteria cracking open their leaves
+
+[00:35:18] because they know by doing that they're going to get more rain. Exactly. And so the thing is, there are these kind of bacteria motorways in the sky, which is mad. These kind of... They traffic light controlled or is it like a roundabout based system? Well, there's this thing The environment is called the aerobiome
+
+[00:35:34] Like outdoor above us It is the aeroboom So in cities The aeroboam is less diverse And there are fewer microbes And then the countryside Loads more microbes in the countryside And maybe this affects whether you get asthma
+
+[00:35:46] You know the environment you live in Whether you breathe in more or fewer or different kinds of these things sort of affects that But some scientists think That the 2001 foot and mouth outbreak in the UK, which was cattle, livestock, foot and mouth, not a human one, they think it might have been due to a storm in North Africa,
+
+[00:36:03] which may have carried spores north, because a week after that storm, cases of foot and mouth started happening. So how interesting. And that's the Sahara, I think, wasn't it? Which gets blamed for a lot of stuff being carried. I think it was from there that they thought it might have come. Because similarly, I think we talked before about how a lot of the sand in the Caribbean is blown over from the Sahara.
+
+[00:36:25] and there was this major coral disease in 1999 which killed off loads of Caribbean coral. It was a fungus called Aspergillus Siddawi and it happened to coincide with all these dust storms in the Sahara and this fungus lived in the Sahara Desert, been picked up, blown all the way over to the Caribbean, killed a bunch of coral. Bloody Sahara Desert.
+
+[00:36:45] I read something about this which I don't have in my notes because it was years ago but I think there's an underwater cave in the Caribbean which is one of the best places to study old sand from the Sahara because it flies over there hits the water, it goes down, it gets into this cave and it's kind of stuck there and no one can contaminate it or anything and I think
+
+[00:37:07] it's called the Dam Cave. Oh wow. I think from memory. That feels like an enterprising scientist has said well I need to study the Sahara but I'm going to need to study from the Caribbean. That's incredible. I think that's true. That is so good. The Dan Cave sounds like something so much more disgusting than that actually.
+
+[00:37:27] It's like a man cave. No offence. It's so weird. I was thinking like superhero bat cave. That's where I went straight for the dirty magazines. Yeah. I was actually thinking of like rotting nessie corpses and stuff. With me just wanking in the corner.
+
+[00:37:44] There's no need for that. That's what my wife said. Okay, it is time for our final fact of the show. That is my fact. My fact this week is that number one selling singer, Sabrina Carpenter, is the niece of another number one selling singer, Bart Simpson. Wow. It's a confusing fact, because much like me, none of you would have heard of the Sabrina Carpenter. And you won't know the Bart Simpson's leading singer.
+
+[00:38:18] Okay, so a lot of people will know that Sabrina Carpenter is one of the biggest pop stars in the world right now. And she has had a bunch of singles that have gone to number one. Mi espresso, for example, is one. And it turns out that her auntie is Nancy Cartwright, the voice of Bart Simpson, who herself had a number one hit with Do the Bartman. Can I just say, I read someone on Reddit, someone called Blamenixon, saying that that makes Nancy Cartwright a carpenter aunt. Because she's called Sabrina Carpenter.
+
+[00:38:52] Spreeza Carpenter Antis and the name of a species of ants. That's pretty good. Oh, and and is a northern pronunciation of aunt? Yes. Yes. Got it. Thank you. That was the missing link I needed.
+
+[00:39:02] I just thought it was a good joke, but not good enough that I was going to claim it myself. You thought you'd fly the kite. You can always edit out the Reddit bit if it does really well. Are you a fan of Sabrina Carpenter? Huge fan. I thought you would be because she's a big fan of Moss. The album cover of her last but one album, emails I can't send was inspired by old photos of Kate Moss.
+
+[00:39:26] Is that someone from Reddit as well? That's all mine. Well, you have me going there. I really like Sabrina Kavanaugh. I think she's great as well. I actually think you would like her because who was the person we spoke about who sang. Oh, it's my parody. It's my party.
+
+[00:39:42] It's Leslie Gore. Yeah, I think of her as a modern day Leslie Gore. Oh, well. Her song, Please, Peace, Please, I reckon is pretty much the modern version of that song. I'm always open to new talent. I'll give this good. I'll give her a go and see if, you know, maybe we can help her. Apparently she's doing fine without me.
+
+[00:39:57] She's doing okay. So, was she the only one of the Carpenters who had a career after? Oh, she's not current Carpenter's sister. Yeah. She's not related to the Carpenter. What we've got here is two people who live in the modern world. And then we've got me and Anna. Well, let me give you a bit background about Sabrina Carpenter. So Nancy Cartwright's stepbrother is David Carpenter, who is,
+
+[00:40:19] Sabrina Carpenter's dad. He is an X-ray servicing company member. His... Sorry? He, David Carpenter, works... He's an X-ray servicing company member. It doesn't feel very important. That fact is not really important. You said it in the same way that you would say, he's a teacher.
+
+[00:40:37] Oh, he's a doctor. He's an X-ray servicing company member. A company member. Right, okay. If you ever meet someone like that at a party, again, you're moving on to. the next person. Did you make my friend Andy? I'm going home with the load muffler at this point. Get your big truck.
+
+[00:40:56] You pulled. She's a chiropractor. The reason I mentioned these two things. The reason I mentioned it is because outside of Nancy Cartwright, there's no connection to the world of entertainment. She's not a Nepal baby. Exactly. She's often accused of that as a result of that connection.
+
+[00:41:16] But they don't seem to be that. She can get all the x-rays she works. Any time she liked. You back-click, you are in luck, my friend. She released her first single, which was called Can't Blame a Girl for Trying, one week after fish started. So she is as old as fish for one week. Yeah, March 14, 2014.
+
+[00:41:39] We could have a joint birthday party. She's still got a week to catch up and be as big as us. Is that one of the same? She started off. She did a Miley Cyrus. singing competition when she was 10 years old. We're going to have to explain who am. Do you know Billy Ray Cyrus?
+
+[00:41:57] Her dad was Billy Ray Cyrus. Right. Who worked in the music is. It was an x-ray guy. That's right. But it was like a competition for Miley Cyrus fan club members. But it was kind of voted for by people. It was one of those early internet things.
+
+[00:42:13] And it was mentioning loads of her local newspapers. and they basically said vote for her, vote for her, vote for her. So she got down to the final like three or four people. She was only 10 years old and everyone else was like older teenagers doing it. So was that when she started out when Fish was... Yeah, well, actually, that happened. Yeah, that was earlier. And then she went onto YouTube because she got big on this competition and put a load of songs on YouTube.
+
+[00:42:36] And then got massive on YouTube. She got picked up by the Disney Club or someone. Yeah, she did a show called Girl Meets World, which I think was a reboot of Boy Meets World, which is a big show when I was a teenager. She was cast as the lead character, the Lindsay Lohan character and the Mean Girls' musical that Tina Fey did on stage. So she had a bit of a career ahead of it, and then she did this. A lot of slogging away before you're an overnight success. Exactly.
+
+[00:42:59] That's what we found. And is this like an odd crossover swap? Is she going to release a song about no such thing with a bitch? Yeah, I've got to say. Come on, it's like, we're not expecting any publicity back from the traffic lighting to show. No. Nancy Cartwright. Oh, yeah. Is this disappointing or am I being judgmental?
+
+[00:43:20] She's big on Scientology. I know they all are. But she's really big. What do you mean they all are? All the famous people. Have you not seen the roof of Moes' Cavern? It's one of those big pyramid wire things that you wear. She, Cartwright, was awarded in 2023 the status of patron Excalibur with honors.
+
+[00:43:42] by the Church of Scientology, which she called the most beautiful acknowledgement I've ever received in my life, which I think is really weird to appreciate that, because the reason she's got it, I assume, is that she's donated $20 million to the Church of Scientology. Is that where the Simpsons money goes? That's where it's going on. Well, there's a lot of Simpsons money, isn't it? Yeah, absolutely. I mean, this album that you're talking about, Dan, this was The Simpsons Sing the Blues, released in 1990.
+
+[00:44:05] This is the Nancy Cartwright. Oh, I'm sorry, yeah, yeah, yeah. The one with Do the Bartman on it. Exactly. That was the first track. And that sold, in the UK, it's... on 400,000 copies. Yeah, I remember it was absolutely mummies.
+
+[00:44:14] Yeah. Went to number one here, but it didn't, in America, oddly. And what's weird is it was only played on Sky One at this point, The Simpsons, in the UK. So for overseas listeners, that's a sort of, what do you call that? Yeah, it's a pay for it. Yeah, it's a pay for a channel. So quite wild. It's, it's not.
+
+[00:44:30] The album sounds very good. It's got lots of great musicians on it. B.B. King, Dr. John, DJ, Jazzy Jeff. I mean, these are, this is my, these are my people with. It was listed that Michael Jackson was the composer of Do the Bartman, which I think we might have said on this show, and I believe that's not actually true. It's a guy called Brian, Brian Lauren. But it got sold 2 million copies in the USA.
+
+[00:44:49] I mean, it was a really... I think people forget how massive The Simpsons was. Biggest part of June ever. It felt it. Well, until the new Chinese movie, Naysia. I can't take another pop culture reference. It's just as a new animated movie, which is the biggest animated movie of all time. Oh, really?
+
+[00:45:08] Literally came out this week. That's it. Well, it's a Simpsons movie. Yeah. Yeah, yeah. Nancy Corro, by the way, before she was Bart, she did various different roles. So she did, in My Little Pony, she did a voice that was quite similar to Bart Simpson. But probably for me, most iconically, she did the voice of, if you remember who framed
+
+[00:45:27] Roger Rabbit, there's a moment where there is a shoe being dipped into a vat of acid. That's her. Brilliant. That's nice. It's quite a seminal bit about me. Yeah, yeah, yeah. I don't think that's even on a Wikipedia page. You need to get that up there.
+
+[00:45:43] That's funny. Guys, who's the main creator of the Simpsons that comes up? Matt Groening. Groening. Graining. Not him? Sorry, it is. I just can't believe I've been saying groaning all these years.
+
+[00:45:55] You see that name so much. You think groaning is graining. Do you know what his parents called? Oh, it'll be like... Mr. Mrs. Graining? Wouldn't it be like Homer and Marge? Is it? Is it?
+
+[00:46:05] No. His dad's a consultant radiology company member, isn't he? Yeah. The effects it had in the early years was brilliant. I just love all the things. There was a time where the Simpsons was really big in the news. And I know they're still making it now, but there was a time where it prompted big headlines.
+
+[00:46:23] So in 1996, the New York Times reported that there was a mega glut of saxophony happening in America. All children wanted to learn the saxophone because of Lisa Simpson. Yeah, that's sex teachers said, they interviewed it's sax teachers who said, this is just, you know, it's a nightmare. They would have a whole band of saxophone students. This is like, who were we talking about last week
+
+[00:46:43] The farmers who complained when they get too bigger yields? Saffron. Do you have a sacheron farmers? Bloody sacks forinty to kill joys. Sorry, band leaders were furious about this because they, you know, they desperately needed a piccolo and all they got was a thousand saxophones.
+
+[00:46:56] Yeah, that makes sense. And they interviewed one who said also due to the fact that if you go to the movies, it's always the sacks playing the steamy part when there's something interesting going on on the screen. Saxy stuff. That's very cool. Also Bill Clinton and Kenny G. Oh, yes.
+
+[00:47:09] Oh, gosh. The two sexiest. man ever to live. So the reason I said Homer and Marge before is because I do know that fact that he named all the characters after his family except for Bart, which was an anagram of Brat. And he sort of came up with him in the moment. But I was reading up on his sister Lisa, Groning. And she...
+
+[00:47:33] Scraining. Gaining. She married a man called Craig Bartlett. Which is that. He's the radiology department. Craig Bartlett is the creator of another show that's called Hey Arnold, which is a massive show. I love Hay Arnold. Yeah, and Dinosaur Train was a more recent one, which my son grew up on.
+
+[00:47:55] But yeah, so that is a real powerhouse of a family of cartoon connections. He also named a lot of characters in The Simpsons after places he knew about. So he grew up in Portland, in Oregon. And streets where he grew up, near where he grew up, included Flanders Street. Obviously a Simpsons character. Lovejoy Street, Reverend Lovejoy. And there was Burnside Street in Montgomery Park next to each other, which is Montgomery Burns. And then Portland also has Turwilliger Boulevard.
+
+[00:48:23] And of course, the real name of Side Show Bob is Robert Underdunk Turwilliger. But he didn't name him after it. No. Completely different person. They were interviewed once, and they named Side Show Bob after a character from the film, The 5,000 Fingers of Tea, who was called Doll. to Turwalika and it has nothing
+
+[00:48:43] to do with the fact that also in Portland Oregon there's a street called Turwill Liga Boulevard That's a total coincidence
+
+[00:48:48] It's apparently so Maggie Simpson Oh yeah Baby yeah Her first word was daddy and it was said
+
+[00:48:55] by friend of the podcast Elizabeth Taylor She's got lots of famous people voice in it don't they but she had to do
+
+[00:49:03] six takes because every time she did it came out too sexy God According to producer Mike Reese, he said we had to keep reminding Elizabeth Taylor that she was a baby talking to her father, not hitting on him. Do you know who voices Maggie? So Maggie is...
+
+[00:49:24] We just... We get the dummy sucking. So you mean who does the dummy sucking lights? Yeah, who does the dummy sucking. Is it also Lisa Cartwright? Nancy Cartwright? No. Okay.
+
+[00:49:33] Is it Matt Graining? It's Matt Grane. Is it? Yeah. It's like it's an easy way to make a lot of money, isn't it? I think it's like when we talked about Simon Cowell doing the Cal Bell just to get the credit. It's like, I'm just going to get a credit on this.
+
+[00:49:46] He can't need more. It can't be the difference as the producer of the show. It can't be the difference between him. 100% he'll get paid for that. Yeah. That's very funny. That's a main character. I'm going to say that's James' opinion as to why he's doing it.
+
+[00:49:57] I don't believe that's his motivation. That's why I cough in these shows sometimes is to get a little extra on the back end. I'd love to start a feud with the Simpsons. And then maybe they'll put us in the Simpsons as some evil. I mean, no one watches that anymore, so it doesn't really matter. Well, there you go. There's your view. Cool.
+
+[00:50:15] Gosh, that would be, yeah, yeah. They used to get into great beef with people all the time, and they recently have had a bit. They've had a bit with Morrissey. Okay. Oh, yeah. He hates beef. They parodied him in an episode called Panic on the Streets of Springfield.
+
+[00:50:30] They had a singer who had a quiff and was a vegan. And, you know, they just took the Mickey at a bit. It was pretty gentle. And Morrissey complained. You are especially despised if your music affects people in a strong and beautiful way. In fact, the worst thing you can do in 2021 is lend a bit of strength to the lives of others. There is no place in modern music for anyone with strong emotions. In a world obsessed with hate laws, there are none that protect me.
+
+[00:50:52] Hang on, was this targeted at The Simpsons? Yes. Okay, sorry, it just sounds like a generic statement. No, it was his statement. It was to Dear Simpsons. There is. They have had high-profile beef with world leaders. So they had Barbara Bush called them out saying that it wasn't a show you should watch.
+
+[00:51:07] and Marge Simpson wrote a letter to Barbara Bush in response, saying that she actually thinks her family is a good family. They've had episodes where, because obviously it's a global product. And so there's a lot of references that are going to be not suitable for certain countries. So in China, for example, there was one episode they had to remove the line about Maltzy Dong being a little angel who killed 50 million people. They thought that wasn't appropriate in Japan. Can you cut after angel? Japan, there was an episode where they had to lose a bit because... They mentioned the massive Japanese bonkathon.
+
+[00:51:46] Yeah, Homer tosses the Japanese emperor into a sumo-thong dumpster. So, in fact, that whole episode was banned. Okay, do you think that Mard should dump Homer? Not after all this time. I think... Oh, really? Well, I just think... What should have been in a relationship for?
+
+[00:52:03] When was my marriage? Once you've been to the marriage for at least 12 years, you shouldn't dump your husband. I think, yeah. I think once the kids are grown up and out of home, unfortunately, that's never happening. Okay, I only ask because UGov asked their long-suffering test audiences this in 2018. Yeah, all right. They got 20 people trapped in a room. What did they say?
+
+[00:52:27] So, thank you for asking. So 14% of women said March should dump Homer. Only 8% of men said that. So men being a bit more forgiving. Can't believe so few of either, though. It's not a good husband. I just want to say what you've said. When asked, the majority, 52% of Simpsons fans,
+
+[00:52:45] consider Homer a man who frequently strangles his son, has framed March for Drink Driving, committed bigamy, caused his father's kidneys to fail, has worked for a terrorist organisation, and is frequently asleep or absent in his role overseeing safety at a nuclear power plant to be a good person. Has he not also, like, he's definitely been to space. He must have, I bet he saved the world like three or four.
+
+[00:53:03] Yeah. He probably has. You're saying you take the rough for the smooth. Yeah. So by contrast, Bart, whose escapades are far more childlike and consequence light, is almost twice as likely to be seen as a bad person at 22%. Yet Maggie, who shot Mr. Burns, is only seen as a bad person by 4%. Spoilers. Sorry.
+
+[00:53:22] 4%. That was a big deal, wasn't it, when it was who shot Mr. Burns. Were you guys the right age for that? I remember it was like, yeah. Exactly. It was like Dallas, yeah. Well, you guys weren't old enough for Dallas. No, no, no. But yeah, I was there for it. I remember it. Apparently only, they had lots of forums at the time saying,
+
+[00:53:39] can you guess who it is? And the, the show writers said only one person got that it was. I remember you could bet on it. And I remember, I don't think even it was one of the options. Right. But you weren't old enough to bet at this time. But this was going out. When did it happen? He had a fake ID on 9 ID at the end of 6th. 90s? Well, I was born in 78. Okay. So I was able to, in 96, I could... I'm just picturing the scene in the betting shop. Like a load of jaded regulars gathered
+
+[00:54:08] around the horse racing screen. A lone like nerds in the other corner watching the surface ends. And it comes in, there's Maggie, oh! Tear up your ticket. One guy goes to the counter, pulls out stacks and stacks of couch. Isn't that Matt Grinning? Okay, that's it. That is all. of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can all be found on our social media accounts. I'm on Instagram on at Schreiberland. Andy, I'm on Blue Sky at Andrew Hunter.
+
+[00:54:47] James. My Instagram is knows what you think as James Harkham. And if you want to get to us as a group, Anna. You can find us on at no such thing on Twitter or at no such thing as a fish on Instagram or email podcast at QI.com. Yeah, do send in some emails because they will make their way hopefully to our bonus episode that happens in Clubfish. Clubfish is our secret members club that you can find at No Such Thing as a Fish.com. We do a show called Drop Us a Line where we go through the mailbag and answer all of your questions. You can also find all of our previous episodes on that website. There's merchandise.
+
+[00:55:19] There's an upcoming live show at the Crossed Wires Festival in Sheffield that's happening in July. Check that out and come see us live if you're around. Otherwise, come back next week. We'll be back with another episode and we'll see you then. Goodbye.

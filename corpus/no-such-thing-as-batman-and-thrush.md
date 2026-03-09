@@ -1,0 +1,299 @@
+# No Such Thing As A Fish - No Such Thing As Batman And Thrush
+
+- Episode date: December 24, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-batman-and-thrush
+- Slug: no-such-thing-as-batman-and-thrush
+
+## Transcript
+
+[00:00:02] No such thing is a fish, a weekly podcast. This week coming to you live. Anna Tishinsky, Andrew Hunt and Murray and James Harkin. And once again, we have gathered around the microphones this time for our Christmas special. Yeah! Once again, we have gathered around with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is James.
+
+[00:00:58] My fact this week is that the song, when the red red robin goes bob, bobbing along is actually about a thrush. But thrush didn't rhyme with bobbing? It could be rushing along, couldn't he? It is an American song. The red, red, red robin goes bob, bob, bobbing along.
+
+[00:01:18] I don't know if you guys know it. When the red, red robin goes bob, bob, bobbing along. It was written about the American Robin, whose Latin name is turdus migratorious. And as every childish person knows, the Latin word turdus means thrush. And it's called a robin, that bird, because when the early migrants got to America, it has a red breast, and it reminded them of the European robin. Right.
+
+[00:01:45] And so a lot of American songs like Rockin Robin, for instance, is the same. All these songs are actually about thrushes. So technically, it should also be Batman and Thrush. The lesson I'm the story of Batman's medical problems That is actually true Because Robin was in some versions of the early Batman and Robin comics He is named Robin because he was born on the first day of spring And the American Robin is associated with spring.
+
+[00:02:14] So these songs, the Red Red Robin, these are springtime songs That're not Christmas songs. Yeah, okay, cool. Wow. It's better looking than our thrush, isn't it? I mean, the red breast does make a big difference. Yeah, it's a nice bird, nice looking bird. It's like, it looks like, you know,
+
+[00:02:28] if you think about your classic European robin, it's quite fat and round, and it's got a red breast. The American one is a bit more proud looking. It's a bit bigger. It's got a slightly longer neck, but it still has the red colouring. Yeah, and it's the most abundant bird in North America,
+
+[00:02:43] apparently. Is it? One of us. Yeah, it's all over the bloody place. Although they're much shire than our robins. The robin that we know is the European robin, but in Britain, it's way more cocky and confident than all over the rest of it.
+
+[00:02:54] of Europe. Really? Yeah. And this is just because we actually like robins so much. So in Europe it's much more common to hunt robins or has been historically
+
+[00:03:04] and they're not kind of treasured as much as this kind of Christmas symbol. So they're way shy. And similarly in America, these guys, they hide in the woods whereas our robins, you know, they chase you around the garden when you're digging out worms.
+
+[00:03:14] Yeah, of course. Do you know why they do that? To get the worms you're digging out. Well, yes, but it's because basically they think you're a pig. So, what? What? Like Gora Anna said all that nice stuff about Robin.
+
+[00:03:25] It's not reciprocated. Robbins basically evolved to follow wild boar around forests. Because they truffle up food, don't they? They dig for their food. And they will overturn a lot of earth, and they'll reveal lots of earthworms. So, you know, it thinks you're a pig and a boar. Yeah.
+
+[00:03:44] I've got to say, just offended. Is it really bad at telling the difference between species there? I'm exaggerating a little for comic effect. I don't know about its eyesight. It has got good eyesight, hasn't it? Or sort of something special about its eyes that can navigate? Magnetite in there, perhaps, I reckon. Yeah.
+
+[00:04:01] Because they... I think that's probably the American monks, because they migrate quite a lot, done they're the American ones. Okay. You do. You almost never see them here, but did you read about the...
+
+[00:04:10] I think one of the last times that American Robin was seen in the UK was in 2004, and it was one of these... It was blown over the Atlantic, so it got lost on a migration. That's a hell of a puff, isn't it? of the Atlantic.
+
+[00:04:24] It was a gusty day. And it, uh, so it turned up in Grimsby, and there was huge excitement. Oh, God. I mean, your day's bad enough, isn't it? You run up in Grimsby. That's a bad hangover. What did I do last night? Um, and the Twitchers, as they do, got very excited and all communicated with each other
+
+[00:04:45] to say, come on, come on, see this American Robin. It's so rare to see them here. And they all arrived just in time to see it get eaten by a sparrowhawk. Oh, poor thing. I didn't know it was called turd migratus. Turtus, yeah. Turtus, not turd migratus. Turtus migratus.
+
+[00:05:03] That still works nicely. It's a very, very lazy Harry Potter spell, basically. If you're a bit constipated, is that what you do? If you hear that in the stall, yeah, next to you. Turtis, my greatest. Blop. Yeah. So, profits.
+
+[00:05:23] I thought ex bellianus would have been the better. Okay, so on the word Ternus, the word sturdy, that supposedly comes from the Latin for Thrush. That's supposed to come from Tardus as well. And the idea was, if a thrush would eat lots of berries, it might get drunk, and it would kind of sway around and sway around. And so Tertie meant swaying,
+
+[00:05:53] and then Sturdy came from non-drunk thrushes. That's according to the Oxford English Dictionary who I must say I don't believe There is a French saying Which is as drunk as a thrush Which gives a little bit of credence to it They are the most prone to get drunk on fermented berries I think aren't they
+
+[00:06:13] The American Robbies That's what I call them we're close And it happens So it tends to happen in spring But it can actually happen in autumn So basically it'll happen when the berries are frozen and so when frost hits them then they'll start converting their starch to sugars
+
+[00:06:30] and I think when they thaw then that starts fermenting and then they get eaten and then they do funny things like crash into each other or fall off branches but in Minnesota in October a couple of years ago there was an early frost that caused a big outbreak of this and the police were called so many times
+
+[00:06:46] that they actually had to report like putting a report out saying there's no need to report drunk robins to the police they will sober up within a short period of time and get on with their lives I read a really lovely story in India there was a species, a type of robin
+
+[00:07:02] that had made its way into the electrical box of a very tiny town so there's about 150 people that live in this town and this box would be turned on every night at 6pm by one guy and so he noticed that a robin
+
+[00:07:16] this species of robin had laid eggs and was using this electrical circuit board as its nest so he wrote on a WhatsApp group to all of the people in the village saying, is it cool if we don't turn on the street lights at nighttime until they've hatched and the birds have flown away? And the whole village all agreed. And so for over 35 days, they had no lights at night just to make sure that these little birds were born properly.
+
+[00:07:42] And then they flew away and then he started turning them home again. That is a nice story. Did they have lots of traffic incidents and... There was, yeah, 90 fatalities. Robbins live really short lives. Most of the... time. So they live for about 13 months, a very, very high mortality rate in their first year. But if they're through that, they stand a very good chance
+
+[00:08:04] at surviving for a lot longer. So the oldest ever Robin known was recorded as being it was ringed, you know, a ring around its foot or whatever. It was 19 years and four months. Oh my God. Imagine if there were people just walking around who were a thousand
+
+[00:08:20] years old and they just got lucky. Oh my God. That's what it's like for Robbins. When he said ringed, I thought. you meant we cut it in half every year and count the rooms. It was amazingly hardy, yeah. This fact is about the fact that a Robin is actually a thrush, a misnamed bird, and it's a Christmas bird that we're talking about. And so I started looking into other Christmas birds.
+
+[00:08:42] And it turns out a lot of them are misnamed as well. So one of the great songs that we have, The First Day of Christmas, My True, we have a bunch of birds in that song, don't we? Yeah. So, okay, turtle doves. Turtle doves are given in the thing. So we think that they're called turtle doves
+
+[00:09:00] because they make a tur-tur-tur sound. So that's the turtle. So as the article points out, and this is according to a biologist called Pamela Ramerson, no relation to turtles. So they're just... This is your bat?
+
+[00:09:13] The doves are not related to turtles? Tum of dogs? Zero relation to turtles. Myth busted. French hens. There's three French hens in it. Oh my God. They're probably from France,
+
+[00:09:25] but they're not actually a species called French hen. That doesn't exist. Rift, busted. Second one down. Calling birds. That sounds interesting. It doesn't exist. We don't have calling birds.
+
+[00:09:37] What they're probably talking about is for collie birds, and we've just misunderstood that. We've called them calling birds. Andy? A collie bird is like a black bird, right? An old word for black? Yeah, exactly.
+
+[00:09:51] Cold colored, right? Yeah, yeah. Partridge and a pear tree. They're groundbirds. They're never seen in trees. That is good, actually. You say the best of the last. Myth busted.
+
+[00:10:01] You do see the odd part of a tree. To be fair. But they don't nest in trees. Are they drunk? When they're pissed. They're like the opposite of all other boats. They fall up trees when they're drunk. The song, when the red red robbing goes bobbing along.
+
+[00:10:16] Really quickly on that. It was written in 1926 or 1995. By 1926, it was a hit for Whispering Jackson. Smith, Cliff Edwards, Paul Whiteman, the Ipanama Troopers, and Al Jolson. In the same year, it was a hit for all those people. Wow. It's not like one of those, you know, when you get a rap song and you got 20 different rappers on it. They all did their own version of it. That's amazing. What was the first one called? It was whispering Jack Smith. That sounds terrifying. When the Red Red Rock goes about. It was most famous by Bondwell star, Lillian Roth. She's a most
+
+[00:10:56] famous one who sang it. And she, she sang when she was really young when she was about 14 or 15. And then she became not famous anymore. And then later on she went on, This Is Your Life. And she kind of was really honest about her alcoholism. And she got more than 40,000 letters
+
+[00:11:12] when she went on This Is Your Life. She wrote an autobiography. And then it got turned into a movie starring Susan Hayward. And that was nominated for an Academy Award. Because her life was so amazing. And then when she of went on This Is Your Life, she became famous again,
+
+[00:11:29] and she had a huge sort of revival. She went on Broadway and did her own song, and the highlight of her act was singing when the Red Red Robin came Bob, Bob, Bobbing along, but she sang it in the style of the person who played her in the movie doing an impression of her. Jesus.
+
+[00:11:47] Isn't that amazing? You probably know the song most because I know you go to Charlton Athletic every now and then, and that's what they sing. Is that what they're trying to sing? Jesus Christ Really are they doing it in the style of this woman Doing it in the style of her own dog
+
+[00:12:02] Who's doing it in the style of some other bird Wow Did you guys read that there's a type of thrush That gets its prey To come to the top of the surface By farting on the ground What? And it lures worms towards it Yeah so it just gets down
+
+[00:12:19] And it just starts farting And what do the worms think? I think you know that thing where it's kind of like It feels like it's rain And it's coming up And they hear vibrations and they come up. It turns out, anyway, it's not true.
+
+[00:12:31] Dan, can I do the others? Myth busted. Thank you, Andy. It is time for fact number two, and that is Andy. My fact is that nobody knows where Caravaggio's most Christmassy painting is, but the main theory is that it was eaten by pigs
+
+[00:12:50] in the 1970s. This is a painting. Caravaggio was an extremely famous 16th century artist, 16th, early 17th, and he painted a painting called The Nativity with St. Francis and St. Lawrence, and it was stolen. It was in a church in Palermo in Italy, and it had been there for nearly 400 years. It was incredibly well established there.
+
+[00:13:14] And in 1969, it was nicked by persons unknown. It's worth, obviously, millions and millions. There are not that many Caravaggio's, and no one knows where it is to this day. It was cut from its frame. And there are rumours about where it is. So some people say it's in Switzerland. Some people say there's no way it ever left Italy. There was no international gossip about where it might have ended up.
+
+[00:13:35] But one mafia informer claimed that it had been damaged in an earthquake and then just left it loan for a bit and then gnawed on by rats and pigs until it was completely worthless. And then they burned it. Wow. Weird. We don't know. But yeah.
+
+[00:13:50] It seems very odd this habit that all these mafia members is the Cozenostra, isn't it? members have of admitting to stealing the painting and then telling the story of the painting and you never know if they're telling the truth and I think so these are like pentitos who go to the police and say, oh, I've been in the mafia, I'm really sorry about it and I'll tell you where this nativity painting is
+
+[00:14:10] and I think the latest person is Gaetano Grado who said he helped to steal the painting and then it somehow got into the hands of a mafia boss who took it to a Swiss art dealer and I just like the scene, the dealer wept when he saw it because it's such a beautiful unbelievable painting. It's a caravaggio. So they do the burst into tears sobs
+
+[00:14:29] and then immediately said we need to cut this into pieces so we can sell them discreetly otherwise people will know what it is. So what do you do? Do you buy all the pieces and put them together like a jigsar? I don't realize how fucking dangerous pigs are. Top tip, don't die next to a pig.
+
+[00:14:49] It will eat you. Yeah, but watch you're dead. It doesn't really matter. I know, but like if you were even in the process of and you happen to fall next to a pig, you're a goner. Absolutely. And the Robin will watch from the side and laugh. Well, to him, it's like a pig's eating a pig. It's like cannibalism.
+
+[00:15:05] The cannibalism it will look like. No, seriously, the last few years, just the headlines, 2020, missing Polish farmer, eaten by his own pigs, officials say, 2019, woman eaten by her pig after she collapses while feeding. Basically, if you fall near a pig and you're asleep, it will eat you. It is quite famous that, I think.
+
+[00:15:23] Like, is it in animal, Yeah, you've got to watch Hannibal. It's great. Most things are that scene where you're eating by pigs. It's a documentary about how it's very easy to get eaten by pigs if you're not careful.
+
+[00:15:34] It's funny because pigs do have a reputation for being very intelligent and quite friendly. They do, they do, don't they? Like Babe. Yeah, like Babe. Have you got watched Babe 3? Yeah. Babe 3, but Babe eats the farmer.
+
+[00:15:45] Yeah. That whole dope, pig. Do you guys know Pig Casso? No. Just speaking of art and pigs, he's the first non-human to hold his own exhibition. Really? Really? Yeah.
+
+[00:16:01] Born 2016. I mean, when we say hold his own art exhibition, did he book the venue? Yes. Do the catering? God, I remember the catering, actually. He did all the admin. He finds it difficult to hold the phone, but he's overcome it. No, he was born in 2016, he was one of the people
+
+[00:16:17] who was rescued and taken to a sanctuary that was set up by this woman called Joanne Leffson in South Africa. And she said the reason that he became a famous painter as he is now, is that she put him in a pen with loads and loads of stuff, and he ate or destroyed
+
+[00:16:33] everything in the stool except that paintbrushes, and so she deduced from that that he must love art. He's since become a painter. He designed Swatch's 2019 swatch design, which is called Flying Pig, and it's lots of purple and pink. Did they not find, like, a work of art, and then maybe the shoes of an artist
+
+[00:16:54] and he'd just eaten the rest of the artist. It could be that. Does he draw with a pig pen? Don't boo that. Andy, it's Christmas. It's Christmas. I'm sorry, I've ruined Christmas. Should we talk about Caravaggio?
+
+[00:17:11] I think we're better. Caravaggio, he was a bit of a badden, wasn't he? He was a bit of a badden. In 1604, the year, variously, he was arrested for assaulting a waiter who had served him with a plate of artichokes dressed in butter rather than oil.
+
+[00:17:28] For throwing stones in the street next to a perfume maker and some prostitutes. And for telling a policeman who was attempting to release him quietly even though he was carrying a sword which he wasn't supposed to, you can stick it up your ass. Right.
+
+[00:17:44] You've given very one-sided story there. I'm quite a fan of Carrie Badger. And the artichoke story, for example, was sort of justifiable. It was a test. So it was, he ordered eight artichokes for lunch and he ordered four to be fried in oil and four to be fried in butter.
+
+[00:18:01] The artichokes arrived and then he asked the waiter well which are the four fried in oil and the waiter couldn't tell. And then he picked up his sod and attacked the waiter and then got a plate and smashed him in the face with it. There's no excuse for bad service James. Customer's always right.
+
+[00:18:17] Speaking of bad service he killed a man after a game of tennis, didn't he? Greatly. Yeah, that's one of the first of. the most famous things about him. So he had to leave Rome when he killed his opponent in a game of tennis. Now we think
+
+[00:18:31] possibly it wasn't because of the tennis that he did this murder. And we think possibly he might not have been deliberately trying to kill the man. He might have only been trying to cut off his testicles. Right. My client was merely trying to cut off this man's testicles with his sword.
+
+[00:18:46] New balls, please. Very strong. Wow. Yeah, it's very unclear because they were having an argument about a woman who was maybe one of Caravaggio's models, but was also a prostitute, but was also working for the opponent. This man, Tomasini, was it? Yeah, so Tomasini was the pimp of this woman.
+
+[00:19:05] Yes. But also, when you're an artist, it was illegal for someone to sit for you, especially naked, unless they were a prostitute, unless you were paying them. And so basically most of the artists around that time were employing prostitutes to, or sex workers, I should say, to sit for them. And so there was obviously something happening here.
+
+[00:19:24] we weren't quite sure. The one was called Felid Melendroni and there's not much else about her. She was once called a scandalous courtisan by the vicariate of Rome,
+
+[00:19:37] no less, for refusing the sacrament. And later that year she was arrested for possessing a weapon. So she was a bit of a badden as well. If that's the most scandalous thing you're doing as a prostitute
+
+[00:19:48] refusing the sacrament, then I think you've got to up your game. He was a very, very naughty boy, Caravaggio. No, he was. No, we shouldn't be glamorizing it because he was a wronging. He was a rogue.
+
+[00:20:01] There was a film. There's a film made about his life in 1986 in which he's... Sean Bean is one of Sean Bean's very earliest films. He plays the guy Caravaggio had a duel with, Ranuccio Tomasoni. And that is also notable because it's the first time that Sean Bean
+
+[00:20:16] died on screen. Oh, no way. Yes. Really? Sean Bean has had a lot of scream deaths if you don't know. Sean Bean has been impaled on an anchor. He's been stabbed.
+
+[00:20:27] He's fallen off an antenna. He's been buried alive and then died. He's been hanged. He's been shot through the neck with a grappling hook and then hanged. He's been torn into quarters by horses, decapitated and shot ten times. Well, he's hard.
+
+[00:20:41] He's a hard man. He came back from all those things. He's still swinging. But he's not the actor who's died most in films. This is diversion now. But Danny, is it Trejo? Trejo? I'm machete.
+
+[00:20:54] Machete, yeah. He's died 65 times in different films. Has he? He has been killed by topless prostitutes in two separate films. Wow. That's typecasting starting to exert this baleful influence, I'm afraid. You know, he invented really incredible lighting for paintings, and two people have been massively influenced by...
+
+[00:21:16] David Hockney talks about it, saying he basically invented Hollywood lighting. It was just... It was in one direction, and he believes that he used... It was in one direction? Yeah, he was multi-talented. He was... Yeah, it was a very influential character.
+
+[00:21:30] He supposedly, he would use mirrors to sort of bend light towards, and Martin Scorsese, when he would see his paintings, was... A lot of Scorsese's movies, he says, were influenced by the lighting that he saw in Caravaggio's paintings, and he's convinced that if he was in modern times, he would have been one of our great directors, purely for that, purely for his understanding of light,
+
+[00:21:50] and composure. Yeah. But it was particularly dark. I've always thought they're too dark. It always looks like it's not very well lit in galleries, I think. I agree. It's basically because it's all kind of black except one shaft of light. Yeah, it's like Blade Runner.
+
+[00:22:02] Yeah. But he did get in trouble once with his landlord. In fact, he was evicted because he cut, he was renting a room and he cut a hole in the ceiling to get that single shaft of light. Cool. And a lot of landlords hate that. Was it in the ceiling? So rain could get in.
+
+[00:22:17] In the roof. Yes. Yeah, yeah. I suppose that's going to ruin the painting, isn't it? But also, he was in a ground floor flat, so he had to do every single... Can we move on until the next fact? Yes, please. Okay, it is time for fact number three.
+
+[00:22:30] And that is my fact. My fact this week is that Merry Christmas Park in Miami isn't named after the holiday, but after a girl named Mary, who was the daughter of the city's former mayor, Randy Christmas. I love that song. Have yourself a rugby little Christmas. We were pure Randy Christmas. So Randy Christmas was the mayor of Miami from 1955 to 1957. And he had a little daughter who he named Mary, spelled M-E-R-R-I-E.
+
+[00:23:04] And Mary, unfortunately, was quite sick when she was born. She was born with only one kidney, which she was basically correctly diagnosed with when she was about three years old. And they thought that she wasn't going to make it, unfortunately. And one of the things that Miami wanted to do to sort of talk about, you know, what an amazing and brave girl she was going through, what she was going through, is to name this park after her. So it's a very tiny little park. And she was just, she was an amazing person. She continued, she had 12 operations. They thought she was only going to live for a few months. But she had survived 12 more years. She used to go to the park once a year. She loved visiting it. She would sometimes go to it during Christmas as well to visit Merry Christmas Park. her park she used to say she sadly passed away but she did get to experience this park for a long time really cool and how many disappointed people
+
+[00:23:57] would show up at the park every day throughout December are going where the hell's Santa Claus why is her a 12 year old girl here instead it's good to look at the story that way as well I guess she's letting a lot of people down yeah is this your fault you little dick what's this? Get out your wheelchair and look me at the eye yeah
+
+[00:24:15] come on Anna So the Christmas family They said it took them three children For them to get up the nerve To call one of them Merry Oh really? Although Merry Christmas did have her sister called Holly Wow
+
+[00:24:29] Who actually is still around She was posting on the internet in June this year So she's definitely still alive Some of the other children in the school Would tease Merry Christmas And call her Happy New Year But when she died She did die very young
+
+[00:24:43] But she was so popular That they had to put on buses To get people to the funeral It was an absolutely massive Oh, wow. And Randy Christmas's mother was called Leonora Pauline Pope Christmas. Her surname was Pope. So Pope married Christmas and had Randy.
+
+[00:25:02] It's a lot of names. Seems like it's kind of degrading the family names there, isn't it? Yeah, and thank God it also doubled out because he could have been Randy Pope Christmas as the mayor of Miami. Gosh. There was a competition to find the most Christmassy name in the UK in 2017, and it was held by the British Christmas Tree Growers Association and there's various great entries. The eventual winner was a woman
+
+[00:25:25] called Donna Rudolph which is good because that's two of the reindeer which is very impressive but other winners included people like Val Spruce Holly Berry which I think is really good Chris Tingley I know
+
+[00:25:39] I know see but this is the thing the prize was a Christmas tree right a real Christmas tree not an artificial one and in her winning speech Donna Rudolph said she was really happy to win because she'd never had in her whole life a real Christmas tree and she would be having a real one from now on
+
+[00:25:56] this is let's not forget promoted by the British Christmas tree growers association who I think may have fed her some copy in what she was going to say and the whole thing was to promote real trees but I looked into this a bit further guys Donna Rudolph lived in Whizbeach which was fewer than 10 miles
+
+[00:26:15] from the place which actually had the farm where she collected her Christmas tree farm. Wait a minute. How old was she? I think in her 30s? So it's not going to be 30 years ago they decided this scam that they were going to name her
+
+[00:26:28] a weird Christmas name. I'm not suggesting her parents named her to get her a free tree in 30 years. I'm saying the Christmas tree growers may have picked her because they wanted someone to turn up in person and collect their tree from the farm. It's not the biggest thing ever.
+
+[00:26:43] It's not the biggest thing to bust ever. It's not Dan Brown, is it? I'm just saying, I think Chris Tingley might have been a bit rock. I think Holly Berry, I think Holly Berry is really good, isn't it? That's great. Anyway, so that's my niche and illegally quite actionable. That's your panorama documentary style expose there. I looked the other way.
+
+[00:27:05] I looked at people who are called Randy, because I thought, that's a fun first name, if you pair it up with a surname. Sure. So Wikipedia has just a really big list of different people called Randy. So there's a Randy Baker. There's a Randy Farmer There's a Randy Gardner
+
+[00:27:20] There's Randy Love There's Randy Rogers Randy Messenger Which sounds like someone who'd slip into your DMs I like that one And in my favorite one of all Randy Murray Oh
+
+[00:27:34] Do you know anything about Randy Murray He's a Canadian guitarist He's amazing He used to be in a band With a guy called Ronald McDonald That's as far as I got into his Let's get him on. Adequate replacement, do we think?
+
+[00:27:50] We'd only have to tweet one letter on the posters. There was a guy called Alistair Christmas who was born on Christmas Day, which is very exciting. He was interviewed by The Daily Mirror, and he said that on at least one occasion in his life, someone had refused to hand over a parcel that was for him
+
+[00:28:05] because they just couldn't possibly believe that his name was Alistair Christmas. Which I have to say is quite not especially unbelievable, but he said, of his name, when people find out he's called Alistair Christmas, People just see you and look at you as if you were magic. You can see it in their eyes. To them, it is like they have just met Santa.
+
+[00:28:25] Can I say? The delivery guy, right? He turns up with a parcel for Mr. A. Christmas. And then the guy comes out and says, I'm Mr. A Christmas. And he says, I don't believe you. What was he expecting the person to say? Who's this box for them?
+
+[00:28:40] Exactly. Does he just take it home? I don't know. There's this surname Christmas, quite common in Essex and Sussex. And the theory is that it was probably, you know, people got their surnames in the olden days, it was probably someone who was born on Christmas Day.
+
+[00:28:57] That's what we think. However, there is a guy called Henry Christmas, who is a retired engineer who has spent decades delving into the history of the name, and he said in 2005 that the Christmas Day, Christmas connection is too easy. But I rather think that he's spent decades doing it. and realised that it's actually the obvious thing that everyone thinks.
+
+[00:29:19] Yeah. He's got to justify a lifetime wasted. Yeah. Sorry, Henry. Do you guys know about Merry Christmas Claus and Santa Claus, the Nebraska couple? No. No. These are two people who legally change their names in 2017.
+
+[00:29:34] They're so sweet. So they won't give their real names to journalists who interview them. So they are now, the wife is Merry Christmas Claus, the husband is Santa Claus. And they go and they dress up, where they're done. dress reds at Christmas, which is the term for the Santa outfit, and for the rest of the year, Santa's a taxi driver. And yeah, they just decided they loved being in the mall so much, having kids swarming around them, sitting on their laps and everything,
+
+[00:29:58] that they've changed their names. And it's so sweet. They met in December 2009, and she, Merry Christmas Clause, said she knew he was the one when he offered to make me dinner. There aren't many men willing to cook a woman dinner. I knew I'd found a keeper. which just imply a low bar but she then says
+
+[00:30:21] when the part gets even lower she said what I love about Santa my husband is that he's so great in the kid-friendly jokes at Christmas so can someone explain this to me she says when the kids ask for iPods he says why an iPod wouldn't you rather have a three pod
+
+[00:30:38] there's three P's in a pod but there's only one eye in an iPod the parents raw with laughter over that. Does that make sense? I think, what does that mean? I'm not, look, I made a pig pet joke earlier. I'm not going to slag off this guy.
+
+[00:30:56] I think he's doing his best. He's doing his best. Wow. We're ignoring one very famous Christmas. Fictional Christmas. Christmas Jones, Bond character. Yes. Oh, he's that.
+
+[00:31:09] The Pierce Brosnan flick, wasn't it? That was one of the Pierce Broson was. Denise Richards, who's a nuclear physicist character. And it's basically said there are a load of really, sort of cheap, tacky gags. You know, James Bond says, oh, I thought Christmas only came once a year. It's all of this.
+
+[00:31:24] Really, like, you know, it's aged poorly, and it was quite recent. So just off the back of this, and this is a tangent, I apologise. I thought I'd try and find the worst role Denise Richards has ever had to play, and I think I found it. Her first starring role was in a film called Tammy and the T-Rex,
+
+[00:31:43] okay? which is a comedy about a girl whose boyfriend, his brain, is put into a T-Rex, right? Yeah, I know. I've heard of it. It's a bit niche and a bit cull. What do you mean it's put into a T-Rex? Like, his consciousness goes into the T-Rex.
+
+[00:31:57] What T-Rex? There is a T-Rex in the film, okay? Well, I'm getting to that. I'm getting to that. A mad scientist has created a T-Rex, okay? So this is the thing. I was reading about this film on IMDB. I cannot believe it.
+
+[00:32:09] Basically, listen to this. The writer slash director, Stuart Raffel, has said in an interview, the idea for the film only happened because they had access to a full-sized T-Rex animatronic. Someone phoned him up and said, hey, we have this T-Rex for a month. What should we do?
+
+[00:32:22] Should we make a film? They said, I'll start writing immediately. The whole reason for the film was because they had access to this thing for a month. He was constantly writing scenes and then saying to his colleagues, and the cast and crew, do you have any better ideas for the next scene?
+
+[00:32:38] All locations were within 25 minutes of his house. It's incredible. Sounds amazing. It's such a good film. Wow. Yeah. Dan will be watching that when he gets so sad about this.
+
+[00:32:51] Anyway, tangent over. Harrison, I need to move us on to our final fact of the show. It is time for our final fact, and that is Anna. My fact this week is that the edible advent calendar came before the printed picture
+
+[00:33:04] advent calendar. This is, this is my interpretation of what the first advent calendar was, which was Gerhard Lang, who was the first person to print and sell Advent calendars. He did it in 1908, and he got his inspiration from his mum,
+
+[00:33:21] who, when he was young, she had like a little kind of cardboard box thing to which she fixed a baked meringue pastry for each day of Advent, and she allowed him to eat one per day. Oh. It's so charming. Yeah.
+
+[00:33:35] In fact, it's something called Viblai, which I think is a specific German dish. It's a sweet like meringue, which has a figure of eight shape. And yeah, he was inspired by that, and he's the father of the advent calendar. And then his later advent calendars were called Munich calendars, weren't they? Yeah. And then something in the 30s happened, and he just wasn't very popular anymore outside of Germany. Yeah. It's really tragic.
+
+[00:34:00] Carbord was rationed in the 30s and they shut his company down. The German government in the 30s. The Nazi government, sorry, sort of, you know, concealing that. But the Nazis made their own advent calendars as well. Yeah, well, there was one company, wasn't it, that they accepted that they could make them, and they were they accepted company. And basically, yeah, if you got an event calendar
+
+[00:34:20] in Nazi Germany, it was just Nazi symbolism. Yeah, it was... Another swastika, basically, right? It were like a tank. No, no, there were tanks, there was Wotan, who was a Nordic god. It didn't mention Jesus at all,
+
+[00:34:33] and there was advice on how to keep your children entertained over Christmas, swastika biscuits for the SS, put a swastika at the top of the tree. Yeah, they were actually looking at it now, there are a lot of swastity as well. Yeah. Because they kind of, I think the Nazis tried to do away with,
+
+[00:34:47] or they kept Christmas, but they made it like a celebration of Nazism, didn't they? Because obviously Jesus was Jewish and that didn't fit him with their ideas. Yeah. But yeah, they had a full, they couldn't be able to come up with their own pictures or stories. They, so they printed in 1943 a full calendar,
+
+[00:35:05] full color calendar, where I think each, I think this is around Christmas and each image was like a Christmassy type image. but with a different story attached. So there was Mary and Joseph and Baby Jesus in a manger with I think the three kings going up to them. And it had texts underneath explaining
+
+[00:35:19] that's just a story about a woodcutter, a soldier and a king who get lost in the woods and encounter a woman with a baby. Wow. Come on all, guys. Be a bit imaginative. And so before this guy, was it called Gerhad Lang?
+
+[00:35:33] We think there were some kind of Advent calendars, but they weren't mass produced, they weren't a proper thing. They were just a thing that people did in villages and towns. and stuff, right? So in the 19th century before that, so in the early 19th century you would have a load of chalk marks on the road and every day
+
+[00:35:50] you would rub one off. Totally disgusting. Timmy, what am you doing, ever? Sorry, okay, no one. Too crude. Too crude. There was another one. There's a book by Elise Avedek called Roland Unde Elizabeth
+
+[00:36:08] which came out in 1851 and in that they say that every evening a new picture is added to the wallpaper, this is before Christmas, and the children know that when all 24 pictures are hanging on the wallpaper, then Christmas is here. So that was a thing in this book from 1850s. And quite like Elise Everdake, she basically was a deaconess,
+
+[00:36:29] and she started this group of women who would organise, like, all the charity and stuff in the area, she was really awesome, and she had a motto, which was every person, whether man or woman should learn as much and for as long as he or she can one can never learn too much. I think it's our kind of thing, isn't it?
+
+[00:36:48] Yeah, definitely. What's her name again? She's called Elise Everdyke. I don't know if it's because we're doing a Christmas show but every time you say that, in my head I'm going, Elise Avidek, Elise Everdike, which is the Spanish Christmas. Oh, okay. That's good.
+
+[00:37:05] It's just scans in my head. Every time. The Advent calendars have gone really stratospheric in the last few years, I think. There have been all, I mean, extreme novelty ones. So this year, you can get a Sri Racha Advent calendar, which is marketed as the 12 days of Swirachia. But then surely everything is just the same flavour of Sir Ratcher every time, though. James, I'm here to tell you you're wrong, wrong, wrong.
+
+[00:37:29] Because it has 12, 200 milliliter bottles of Surrachia, which apparently you're getting through one of these things a day. Really? Mayo, yellow chili, green chili, wasabi, blackout, super hot, extra garlic, smoky, black pepper, ticker and Yuzu Sirirachas are available. And if you drink one of those every day, you will die. Wow. I just wanted to counteract the product placement we were doing there.
+
+[00:37:56] Okay, well, are you hoping that you might get some free serracha? I actually don't really, don't especially like syracia. I don't know why I brought it up. Well, I was going to tell you about the 2017 Porsche Advent calendar. that cost $1 million each. There was only one allowed on each continent on Earth. But it was 1.75 meters in height. It was made from aluminium.
+
+[00:38:19] It contained a gold watch designed by Porsche. It supposedly contained a kitchen. But it's definitely not big enough. So maybe a voucher for a kitchen. I'm not really sure. It had a voucher possibly as well for a yacht in there. Also, some sunglasses made from gold and some cufflinks. Hang on, who are you handing this yacht voucher too?
+
+[00:38:46] I love the idea of just like being at Tesco. Do you have any vouchers to redeem against your transaction today? Yes, I've got this for one yacht, please. That's so funny. I know, absolutely is it, and you get all that stuff. How big is it, did you say? It was 1.75 meters. At least two of the seven things you name were vouchers,
+
+[00:39:06] and one was a wristwatch. So, yeah, where's the size coming in here? The sunglasses, the cufflinks? No. Was there a Porsche? Did you get a Porsche? It didn't seem that way from what I saw. That's a bit fucking disappointing. You're getting a fucking yacht.
+
+[00:39:23] You paid a million pounds for this, and you're not getting the feet that it's named after? You know how much yachts cost a lot more than a million pounds? It's a great deal for you. When do you use a yacht? You use cars every day. A yacht? You can't drive your kid to school in a yacht.
+
+[00:39:40] Exactly. It depends where you live. If you live on an archipelago, you absolutely can drive your kid to school in a yacht. I've been to some floating islands where people live, and the school is a floating island, and they didn't use a yacht, I must admit. They use more of a wicker boat.
+
+[00:39:56] Well, imagine how impressive a yacht would look next to that. Anyway, if Portia wants to send me one of those, then I will accept it. It's estimated that there are twice as many Advent calendars for pets than there are with pictures of Jesus on them. Concerning? Well, this is an estimate that has been made by a man who is the founder of one of Britain's explicitly Christian Advent calendars.
+
+[00:40:20] He reckons there are 400,000 Jesus ones sold each year and over a million pet Advent calendars. I did read a story about a lady who bought her daughter a Garfield Advent calendar and 11 days in after she was complaining every day that the chocolate tastes a bit funky. Brian, I said it was an advert calendar for her cat. For 11 days, her child was like,
+
+[00:40:43] and she even looked at it, I think, and it was like, oh, it's green, it must be mint flavored. I don't know. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we've said over the course of this podcast,
+
+[00:41:00] we can be found on our Twitter accounts. I'm on at Shreiberland. Andy at Andrew Hunter. James. At James Harkin. And Anna. You can email podcast at QI.com.
+
+[00:41:09] Or you can reach us on our group account, which is at No Such Thing. Or you can find us on the website. No Such Thing as a Fish.com. All of our previous episodes are there. So do check them out. Also, in January, we are going to be doing the final leg of our Nerd Immunity Tour.
+
+[00:41:25] Do come and see us live. It's going to be awesome shows. There's eight more of them to go. So do come along. And before we wrap up tonight, just to let you know here at Birmingham, it's quite a sad night for us because the effectively fifth fish member of our tour
+
+[00:41:41] is leaving us. This is his final show tonight. This is Ash Gardner. Ash, you will know in the background of no such thing as a fish. He is the singer and writer of our theme tune, which is called Wasps.
+
+[00:41:54] When you hear that, go check it out on Spotify. There's a full album by Empire Yes, and that's where we got our theme tune from. When we started as a podcast, He was the person who gave us the gear in order to record it and taught us how to press play and how to do it all. Genuinely, we used his stuff.
+
+[00:42:10] When we first decided to do a live show, he was the guy who came and miced up the whole room and worked out how we could do it so that could get out there. He's fed us facts the whole way through. He's been on every single tour with us. He's been the person that's basically been our emotional crutch for the tour, always making us happy. Just such an awesome guy.
+
+[00:42:28] This is his last night. So we're going to close the show tonight by having him come on stage and sing the theme tune for you as we are in the night. Yeah. We're going to miss him so much. He's really just beating heart of our tour. It's going to be horrible to do it without him. But fuck him.
+
+[00:42:46] He's moving to Australia, so tough luck. Anyway, that is it. That is all of our facts. We'll be back again next week. We'll see you. Thank you so much, Brian. Thank you.

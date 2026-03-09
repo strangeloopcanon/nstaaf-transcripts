@@ -1,0 +1,209 @@
+# No Such Thing As A Fish - No Such Thing As A Vegan Fryup
+
+- Episode date: January 23, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-vegan-fryup
+- Slug: no-such-thing-as-a-vegan-fryup
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing as a Fish, a QI podcast coming to you from our offices here in Coverd Gardearn. Dan Shriver is still away, but we are working on the pronunciation. My name is Andrew Murray, and I'm here with three of the other QI elves. They are Anne Miller, James Harkin, and Anna Tijinsky, and we have gathered around the microphones to bring you our four favorite facts from the last seven days, and there are a lot of other facts we found out off the back of those. So, let's get going. The first fact of today is Anna. My fact is that from the year 800 to the year 1349,
+
+[00:00:48] the Coliseum was used as an apartment block. Really? Yeah. But yeah, we only discovered this a couple of years ago. A bunch of archaeology was done at the Coliseum, and they exorated it, and they discovered things like sewage pipes, and that is evidence that it used to be a block of flats,
+
+[00:01:04] and we know it was owned. It was bought by monks, and then they would rent it out to normal people who would take a flat there. That's what happened. So the space where they all did all the fighting in the back in the ancient world was a communal living space where they'd have their market space or where they'd graze their animals or where they'd just hang out. Have a barbecue.
+
+[00:01:24] Have a barbie of a Sunday afternoon. Yeah. It was used for a lot of things, wasn't it? It wasn't just an apartment block once it had fallen into disrepair. I read that it was used for lots of trades like cobblers and blacksmiths and also glue makers and also a fortress for 12th century warlords called the Frangipani. Almond paste. Yeah.
+
+[00:01:45] That was their main weapon of choice, I think, the almond paste. They just smothered people with delicious, delicious comestibles. I think it was used as a dumping ground. So between when all the vicious sports were banned there in the 5th century and when it was bought up by these monks about 500 years later, it was used as just a garbage dump where everyone dumped their old detritus. I mean, I guess that you've got a big. story centre you might as well put stuff in it yeah it's weird though they obviously didn't have much
+
+[00:02:10] respect for this amazing edifice i think that happens in general around the world doesn't it like something will go slightly into disrepair and then people will just steal bits of it to build their own houses and yeah whatever you use what you can don't you yeah there's actually in st andrews we have so quite a lot stangrews is places to visit blew down because it's quite a windy place so the castle blew down the cathedral blew down they should they should they make it out straw shouldn't It was on the coast. The cathedral blew down, they built it back, it blew down again. But they've got this room of all this sort of bits they found around the town.
+
+[00:02:40] And there's one bit, this statue would be on top of a tomb. And they found that used to make someone's windowsill on one of the town's streets. Oh, really? And they found out, hang on, this belongs at the cathedral, and then took it back. So they didn't call the Coliseum the Coliseum, did they? No. That's a medieval name for it. They called it the Flavian amphitheatre.
+
+[00:02:56] And also the name Coliseum comes from word for big. But it's not because that's big. It's because it's next to another statue. which happened to be big. Really? Yeah. There was a huge statue of Nero nearby. And that was so big
+
+[00:03:09] that the area became known as the big statue place. That's great. The Pantheon burnt down twice. So the pantheon, the inscription on it reads, Marcus Agrippa, son of Lucius' consul for the third time, built this when actually he died about 100 years before it was built because he built the initial one,
+
+[00:03:27] but it just kept burning down. They shouldn't have made it out of sticks. People in building materials. I'm talking is available. for architectural consultancy to any little pigs listening. So in the Coliseum itself, when you were having games there, the person who organised and paid for the games was called the editor,
+
+[00:03:45] which I did not know. That's rather nice. So he was selecting who played, or was he... Well, I think he definitely got to choose who lived and who died. So obviously... Oh, it's fake. If it's someone who decides who lives and who dies, that means it's kind of fixed, a bit like WWF wrestling.
+
+[00:04:02] Yeah. Isn't it, really? Do you think people complained about that a lot and there was a genuine wrestling place around the corner? Yeah, these guys are really injured. Well, Greco-Roman wrestling is not from Greece or Rome. It's from France. Great. Yeah, it was invented in France and they gave it the name because they thought it was probably similar to what they did in classical times.
+
+[00:04:25] That's very fun. Oh, so when was it invented? Oh, a couple of hundred years ago. Oh, okay. Okay. It was based on like there's a French wrestling, oh gosh, I wish I could remember what it's called. I think it's called Savat or something. And what happens is you kind of crouch down like a crab and then you kick people like that.
+
+[00:04:45] And it was done on ships. And because the ships rock all the time, you had to hold onto like a bar so you didn't fall over. And so you do all your wrestling with your feet. Now, this is all coming from memory. So it might all be completely wrong. It's like your shin kicking. But they were in barrels They couldn't fall over
+
+[00:05:02] I don't understand how big the barrel must be For you to get two of you in it kicking each other Well if it's like ones they make whiskey In like 40 years they're pretty big Aren't they? Yeah, I suppose so, yeah But then also there's no fun for any contestants Unless you have a see-through barrel
+
+[00:05:15] It's like having a football match Where you can only see The waist up of all the players Maybe you're looking down into it Well, Diogenes lived in a barrel So they must be quite big He didn't have people around much to be on barbecues
+
+[00:05:30] your place or mine I think mine again if that's okay diogenes this is another thing I learned about this week about the Greeks
+
+[00:05:41] the ancient Greeks used to paint obscene pictures on the inside of their drinking vessels of their wine glasses and then they would reveal themselves to you as you drunk
+
+[00:05:49] so there's you know pictures of a man and then his willie is in the bottom of the glass and as you drink it sorry it's a picture of his willie is Wow. Wow, that's amazing.
+
+[00:06:02] I used to have a pen like that. Do you remember they made those pens where you turn them upside down and a picture is either rude or normal depending on it? I'm just imagining someone coming around going, I'm going to read your tea leaves. Oh my God. And also they used to paint eyes on the bottom of the glasses, like on the outside on the bottom of their glasses
+
+[00:06:23] so that when you drank it looked like you were wearing a mask. See, they're making. a combat. I bought my brother party cup, so they got novelty noses, so when you drink, you got like a beak or a pincal or... Obviously, 2,000 years too late. That's amazing, from the Greeks. I read a thing about the Coliseum as well, which is that
+
+[00:06:38] in the 1500s, inspired by the previous people who lived in the Coliseum, Pope Sixtus the 5th wanted to turn it into a wool factory, so the factory be on the ground floor and then living quarters on the top. But he died and they ran out of money and didn't get made. I like Sixth the 5th as well. Was there a 6th the 6th? I can't even say that.
+
+[00:06:55] It's too much of a tongue to That's why he was actually the sixth. He just had to say he was the fifth because no one could pronounce sixth as the sixth as the sixth. The fourth, sixth of the fifth, sixth is the seventh. Roman concrete is quite interesting, the material that they made the Coliseum out of, in that we don't know how it's lasted so long. And we've sort of lost the exact formula for Roman concrete and how they made it. So the concrete that we use now is stronger than what the Coliseum is made out of.
+
+[00:07:22] But it wouldn't last nearly as long. It arose much faster. and they think it's because it uses a lot of volcanic ash, and that's much harder to erode. And then they also used animal fat and milk and blood to adhere it together, didn't they? Like as the colesium had for supplies. Scoop it up, build as we play.
+
+[00:07:39] That's amazing. Yeah, quite cool. And, oh, this is cool. In ancient China, they used to use sticky rice as a building material to stick stuff together in their concrete equivalent. Did it work? Yeah, worked really well.
+
+[00:07:52] Still standing? Still standing. If you think about it, though, if you have like a Chinese takeaway and then the day after it's on a plate and the rice is still on the plate it's pretty hard to get off, is it? It sticks a lot, yeah.
+
+[00:08:03] On the Coliseum, just a couple of things I thought you might like. So two American tourists chipped off a bit of the Coliseum in Rome and they later returned it, but they returned it 25 years later in 2009. They felt really bad about it every time they looked at it
+
+[00:08:17] in their collection of things they've stolen from landmark. Do you know that people often steal bits of Uluru, which is Ers Rock. Oh yeah. But they almost always send it back. And they get these, very often they get these bits of Uluru sent through the post to
+
+[00:08:34] the National Park. And the reason is because people steal it and then they have some bad luck and they always blame it on the fact that they stole this from Erz Rock and so they always send it back. You know those gladiator guys who hang around outside it asking tourists if they want to have their photo taking? Wolf and Shadow and Yeah.
+
+[00:08:52] So I love this story. Italian police arrested 20 of them recently in an undercover operation because they were intimidating all the rival gladiators and being physically aggressive with them. Yeah, that's brilliant. How did they arrest them with like a net and a stick? That's the thing. Some police officers had to dress as gladiators to get evidence of them being intimidating. And then they took down the, I just think it's the funniest story. It's an elaborate sting operation.
+
+[00:09:18] Yeah, arresting them for being aggressive when they are dressed as gladiators. Arresting them for fighting each other as well. Yeah. I think they get in trouble because they'd sort of say, I'll pose for a picture, then, like, demand 30 euros or something. Or there's another story. Some of the rogue ones would, like, take your camera
+
+[00:09:32] and then wouldn't give it back until you paid them a certain amount of money. That's because they need to pay for their freedom. Otherwise, they'll be gladiated for life. And that's no life. They used to dye the sand in the Coliseum Red, didn't they, to make it blend in with all the blood. No.
+
+[00:09:46] Yeah. How'd they die it? I'm not sure, actually. With blood. Yeah, the walls were made out of blood and animal fats or whatever. I think there's not enough blood in this. Okay, so what about some unusual places to live? Yeah.
+
+[00:10:01] There was a guy in Morocco called Azee Adine Uld Baja, and he and his family listed city toilets as their official address, so they were living in a toilet block. Fed up with his situation, he went to his local newspaper to tell his story, but then the local authorities read the article and then blocked up the toilet's entrance with cement and concrete so he couldn't live there anymore. Wow.
+
+[00:10:26] Isn't that the saddest story you've ever heard? Was he going from stall to stall? Did he have a bedroom stall and a living room stall and a library stall? And a toilet bathroom. Does anyone have anything else? Oh, I just had that one just unusual housing. That story that did the rounds a while ago about a woman. He was found living in a man's cupboard in Japan.
+
+[00:10:46] And he only found out when food started vanishing from his fridge. And then he set up cameras and she moved into his cupboard. What? Yeah. Japanese homes are quite small generally, so you would notice. It was described as a cubbyhole, the cupboard area. And frankly, she said she'd been there for a year, but only on and off. Oh my God.
+
+[00:11:01] That's so creepy. If you have covers, you don't go into. Just check them every now and again. She then cement her cupboard up. Yeah, I couldn't get back in. Okay, guys, let's move on to fact number two, which this week comes from James. Okay, my fact this week is that you can be fined for swearing in Australia, and in the last financial year, people in,
+
+[00:11:22] Australia's Northern Territory paid $48,372 in fines. Fuck off. Caputim predictable. Why are people being fined for swearing? Yeah, I mean, it's actually been against law in lots of different countries at different times. Yeah. It's illegal in this country to use threatening, insulting or abusive behavior, especially against police.
+
+[00:11:49] But that's not necessarily swearing. You could still swear and not. be abusive and you can just not get away with it. He said banana in a really menacing way you play getting in trouble. He told someone to F off quite friendlyly. When Australia introduced this law, there were lots of sweary protests, and one of them was called The Fuck Walk. And I found a quotation from it, which was from a green MP in the Victoria State
+
+[00:12:12] Parliament called Colleen Hartland. She said, is farty poo bum a swear word? Is windy bottom a swear word? Yeah, it's a very valid point. Because you can just say very, very mild things, but it's all about the intent, as you say, the banana. Where were we? I read this fact on a website called Nothing to Do With Arbroath. It's a blog of weird kind of news from around the world.
+
+[00:12:36] And in the article that I read, they had an interview with local man Jack Bullen, who said, I find those words slip into my vocabulary even when they shouldn't. I think the heat contributes to people being more aggressive, but swearing isn't really a sign of aggression. It's more of a communication tool. Mr. Bullen has since lost his job at the primary school. And then the article goes on. Some residents said they had no idea letting loose a foul-mouthed tirade could cost them a fine. Others just didn't give a shit.
+
+[00:13:08] It's gone back for centuries being fined for swearing. It's back to the 18th century, I think. No 17th century. The Puritans. Yeah. And this is quite interesting. The fines that you got varied according to your social class. So the profane oaths act of 1745, you got fined five shillings if you were a gentleman or above, two shillings if you were below that, and only one shilling if you were a day worker or a common soldier or a sailor or something like that.
+
+[00:13:36] Really? So it was worse if you were well-bred to be. Yeah, that was the idea. Or it could be just that you could afford more. So you like that war in, is it in Sweden where your driving fine depends on how much you earn? Yeah. Oh, that's smart. It means cessid fining.
+
+[00:13:52] In Sydney, you can get the fine went up a couple of years ago for swearing from $150 to $500. Wow. But the worst thing is, as soon as you get fined, and they tell you that, you can swear again. It's a double fine. I was reading this brilliant book, except from a book online, about the history of swearing, and said that, so in the original OED, which is 1888, they described Bloody as like the worst, the worst most terrible word. But being Victoria, they didn't list the F in the C's, so Bloody was the worst word they could put in the OED. So this is just the worst of the good words.
+
+[00:14:24] The ones that will list. But then it's better. So there's another book which is in 1785, the classical dictionary of the vulgar tongue included the word Huffle, which was too filthy for explanation. And in a later book, there's another book that wouldn't describe
+
+[00:14:37] what bagpiping was. What is bagpiping? I think they were both for Fallatios, the Victorians were not impressed. But huffling and bagpiping, Huffle. Is that where Jekar only got Hufflepuff from? I hope so.
+
+[00:14:48] They were originally called House Filatio. actually fallatio does sound like a magic word falatio I don't know what would happen I think I do so but bloody was was really bad wasn't it and was when Pygmalion came out and Eliza Doolittle said the word bloody
+
+[00:15:12] there was like a big scandal about it and then people so Eliza Doolittle in Pygmalion said walk not bloody likely in this posh voice and there was the quote is the first night's audience greeted the word with a few seconds of stunned disbelieving silence and then hysterical laughter
+
+[00:15:30] for at least a minute and a quarter I think it's so nice these stories of when swear words weren't as bad I think we've kind of missed out on words are really really uncommon unless you're a soldier or a sailor or something maybe there are words and we just don't know them huffling yeah we can be
+
+[00:15:47] the army has new top secret swear words Yeah. So yeah, swearing was the worse in medieval times, wasn't it? And because they were always blasphemous. Oh, yeah. But blasphemy was obviously a terrible thing. And you could,
+
+[00:15:59] I think you could be killed for it. Yeah, probably. But they used to think that swearing would physically hurt, like blasphemy would physically hurt Jesus Christ. So the worst thing you could possibly say was Jesus Christ's nails. And that was absolutely horrific. And that's because he's up in heaven
+
+[00:16:14] and you physically hurt him every time you say that. Or if you say, by Christ's blood, then, you know, I don't know. He bleeds. Oh, yeah, yeah, yeah. I think that's where bloody comes from, isn't it? From the blood of Christ, probably.
+
+[00:16:24] I think so. I'm not sure we know. Zounds come from, comes from the phrase God's wound. Sorry, sorry, what's this swear word that you're telling those sounds? You must have heard it before. Yeah, we've heard it, but you say it as though it's as standard parlance or ever zoinks. Yeah, zoinks like in Scooby-Doo. Yeah.
+
+[00:16:42] Well, yeah, that's probably a palliative version of zounds. So these are what's called minced oats. Yeah. So, all right, Gadsukes. Have you heard the word? God's hooks. No. Okay, it's another old school swear word.
+
+[00:16:57] And it was, yeah, exactly, by God's hooks. Yeah. That could be where Zykes comes from then. God's Xux. Yeah. Yeah, I think it might be. And so it's a minced oath of a minced oath itself. And there were things like Slid, which was from the late 16th century, which was by God's eyelid.
+
+[00:17:15] Really, sput by God's foot. They're just taking off. Ollie's body parts, right? About 0.7% of the words we use are swear words, which doesn't sound like very much, but apparently that's the same as pronouns. So we swear, on average, as much
+
+[00:17:30] as we're saying, like, your or our or ourselves. It is quite a lot, isn't it? Not one, 17%. I don't even know if they're including zounds. Okay, time for fact number three, which is my one this week, and it is that when the first transatlantic cable was laid in 1858, the reception on it was so bad that it took 17 hours to send the first message across.
+
+[00:17:54] Wow. Yeah. That's similar to our Wi-Fi in this office. Was it an urgent message? It's a message from Queen Victoria to President Buchanan Urgent. Probably not. It depends. It was a 98-worder, to be fair, so it was longer than your average text.
+
+[00:18:09] Are there any swear words in there? There were, I mean, there's fervently reciprocal and pleasure, but they're not. You, yes. Wait a minute, wait a minute. The Queen sent a message to the President about reciprocal pleasure. It was the first sext, I think we believe. No, the friendship is founded on their common interests and reciprocal esteem. The Queen has much pleasure in thus directly communicating with a press.
+
+[00:18:32] A lot of internationalist flannel, basically. Yeah, the first time they could communicate directly over 17 hours. Yeah, but that is, I mean, before that, it would have taken something like 12 days to get a message across. So it was an incredible achievement. Yeah, but the story of how they installed the first cable is just, I mean, it's unbelievable. They had one across the English Channel That was the first one And this was after decades of people
+
+[00:18:51] Just testing it out in ponds and things like that So the first test were just people with their garden ponds They just put a load of cable in the pond And see it saw if they could get a message from one end to the other And they could I know that there was a whale scare in that laying of the first one They wrote that they saw a whale swimming over the cable And they thought, oh my God, it's going to ruin it
+
+[00:19:08] And then it brushed up against it And so I'm on its way So it was quite rubbish, wasn't it? The reception wasn't good for the one you're talking about the first one because it just wasn't successful. So it was broken within a month, I think, by this guy called Wildman White House, who applied excessive voltage to it trying to get the signal better, I guess, and trying to make it take less than 17 hours. His full name is amazing. It was Edward Orange Wildman White House. Yeah. And actually, the Victoria one wasn't the very first
+
+[00:19:33] message. The very first ever transatlantic message read, Laws, White House received five minutes signal, coil signals two week to relay, try drive, slow and regular, I have put intermediate pulley. Reply by coils. I mean, as always, like, the first telegraph was supposedly what God hath wrought, and actually it wasn't, it was telegraph test. Yeah, exactly. Yeah, and the first words on the moon was supposed to be one small step, but actually it was contact light. Yeah. Oh, but you know the Alexander Graham Bell thing?
+
+[00:20:01] Oh, yeah. So, 40 years after that first seminal phone call, there was the first ever transcontinental phone call, which went from Boston to San Francisco. And they'd tested it several months before, so it wasn't the air. first actual contact, but they did a ceremony where Alexander Graham Bell and Watson spoke by telephone to each other over the same connection. And they did a reprise of the original conversation. So he said, Mr. Watson, come here, I want you. And then Watson replied, it would take me a week to get to you this time. Isn't that cool? Mr. Watson, come here, I want you. I think that was the first sexting. That was the first booty call. Yeah. So the first time they
+
+[00:20:43] use cables in a telephone conversation between the US and Britain was in 1927 and the Guardian has quite a funny description of it so it relays the conversation we don't know who took part in this conversation but the Guardian says conversationalist quite unawed by the marvel
+
+[00:21:01] in which they were taking part fell back as we all do on the weather which was quite bad enough on either side to make a strong bond of sympathy indeed a more pleasantly futile dialogue could hardly have taken place over a suburban party wall in Dulwich or Troulton come Hardy and that which so astonishingly bridged the ocean. This is quite interesting though actually. Only one unusual item of small talk broke its commonplace flow and we may take it that in trans-oceanic gossiping, what's the time with you has come to stay as an addition of conversation? Suddenly the idea of a time difference
+
+[00:21:32] which had never been considered before became a thing. It would be like, what is a different time of day? Hadn't crossed my mind and people are apparently astonished by this. Still now, if you ring people up in another country, it's like, what time is it there? Exactly. So that was quite a good prediction, wasn't it? I'd be out for ages. I still find it amazing that most of the internet is going around the world in undersea cables. Yeah, it's odd.
+
+[00:21:53] It's really odd. There are nearly 300 communications cables under the sea around the world, and there are these vast things, and lots of them are not even on. There are 20 which are not yet in use, which are called dark cables, and eventually they will be in use if our bandwidth increases. and they cost hundreds of millions of dollars. When the first, so the first message that was sent over the ARPANET, which was like the precursor to the internet, it was where the internet started. It was in 1969.
+
+[00:22:20] Do you know what the message was? What time is it with you? It was the weather like. It was not that. Was it Ed Bowles? Was it login? It wasn't even, well, it wasn't logging. It was supposed to be because that was the first command they were giving,
+
+[00:22:35] but the system broke down after two letters. So it was just low. Well, how do you know he's going to say log? And it might be trying to say, lol. Yeah. First message. Well, I don't think he should have admitted that it was wrong, because Lowe could have just been low.
+
+[00:22:47] You know, low, you are familiar with, like, really old-school words that no one uses anymore. Godzooks, I am. Doinx. You say low all the time, right? Low, we're out of tea. That's a real slumber of what I'm like around the offer. What he means is the level of tea is low in this office. I see.
+
+[00:23:05] No, we need to get more supplies. The guy who sent the first email doesn't remember what it says. Oh, no. I bet he does, but he's embarrassed. I think you wrote something embarrassing about a colleague and accidentally sent it to the colleague. And he doesn't want anybody to know. I think Dave is an ass. But at that time, there's only two email addresses.
+
+[00:23:25] Here's Dave. Dave's like, come on. The second email was, Dear Dave. I think there may have been a bit of a mistake. I was talking, of course, about Dave in account. yeah I just I just think people should plan this I was thinking about this because we talk about the first text of the phone calls and the cables and you should plan
+
+[00:23:44] if you're sending the first email make sure it's something funny or weird or that people are going to be writing down history books and repeating on podcasts but it's the equivalent of like you know if you meet someone he's going to become your best friend or your you know your other half and you don't know so you don't say something profound you just say like I say something profound to every single woman I meet just in case they become
+
+[00:24:04] that story for the wedding to be like well actually we said something lovely I am married, so... Yeah, it worked eventually. Okay, time for fact number four. Which comes from Anne? Yes. Last year, to celebrate World Vegan Day, Peter, the Animal Charity, asked Fryup in Yorkshire to change its name to Vegan Fryup.
+
+[00:24:23] And did they do that? No. Okay. It was a fair offer. Peter did so. They only had to do it for one day, and if they did so, they provided the whole town village with a free vegan breakfast, vegan sausages and vegan bacon.
+
+[00:24:35] Which rather pleasantly, it's called Faken. The town didn't go for the offer One of the councillors said First of all there's not really anyone in charge of the town's name So it's quite hard to get everyone to agree And they're not named after an actual fry-up After the goddess figure Who's Anglesaxon page paper?
+
+[00:24:48] Yeah After whom Friday is named? Yes, not the breakfasts. It really is an indictment on veganism Isn't it when an entire village says They're not willing to change their name for one day To all get a free vegan fry-up People do not want vegan fry-up
+
+[00:25:03] No matter how much bacon you put in them Yeah, great fry-up. It's not a very exciting place. I try to find an exciting stuff about it. There's a place called Little Fryup nearby, isn't it? There is next to it. That's even smaller and I think and less exciting. It has no shops, not even a pub, according to Wikipedia. It has a telephone box, a post box, a village hall and an outdoor centre, and it also has a local cricket pitch and a Coit's pitch.
+
+[00:25:26] And I think if you're having to claim and brag about your Coit's pitch. But I like the idea of there being a great fry-up and a little fry-up, because it's like an option for breakfast, isn't it? Well, you want to get one sausage for this one. Yeah. All the health conscious people live in Little Frye Up. Yeah. I do read about this horrible thing as a cafe in Great Armour sells for kids' breakfast, K-I-D-Z.
+
+[00:25:47] Not for kids. It weighs the same as a child. It's nine pounds of a, basically, yeah, six eggs, 12 bacon pieces, 12 sausages. It weighs the same as a child. But then the worst thing is that people who order the kids' breakfast might be kids if they don't realize that. And so they get a breakfast, which is the same size. I can possibly beat that though for terrible food ideas. So this is again, I'm very proud to say.
+
+[00:26:11] This is my hometown did this, made the news last year, because the local hospital is selling a fry-up pie for £1.50 in the hospital canteen. Wow. Sounds delicious. That sounds great. It sounds tasty. Well, one in the bakery said, well, we're already making a full Scottish breakfast in a wrap, so we thought, why not try it in the pie?
+
+[00:26:28] I've always thought when having a full Scottish breakfast, there's not enough carbohydrate here to keep me going until 11th is. In Bolton we would have like pasty balms, it's quite common, or a pie balm. Oh, yeah. In Wiggin they'd have that. What's that? Is that something you rub on yourself? Pie bar bar.
+
+[00:26:47] Soothe your cracked lips. Smear pastry into every orifice of your body. No, a balm is a balm cake as in a bread roll or whatever you would call that. So it's like a pie sandwich. It's meat and potatoes, so you've got carbs there with your potatoes, inside pastry, which more carbs inside of bread, which is more carb. In New Hampshire, you can buy a scratch card where when you scratch it, it gives off the smell of bacon.
+
+[00:27:13] Great. It's called the I-Heart Bacon Scratch Ticket. Well, that is a very imaginative name. What do we call it, guys? They should have called it pork scratchings. Oh, what the hell? Come on, people, you're so right. That's amazing.
+
+[00:27:29] There's bacon perfume, isn't there? As well, you can get bacon-cented perfume. I like bacon, though. It wouldn't go well with my pie baron that I wear. Peter have tried to change loads of different places names, haven't they? Have they? Yeah, a few years ago, it might have been even this year, they tried to get Nottingham City Council to change the name to
+
+[00:27:47] Not Eating Ham. Oh my goodness. Has this ever worked? Well, I think it does work, yeah. It does work because it gets them in the newspapers. The mayor of fish kill was asked. It's near New York City if they change it to fish save. Did they contact the mayor of dead?
+
+[00:28:05] cow-burger meat. There's a place called feather bed rocks, which is near Seam, and they wanted to call it synthetic feather bed rocks. And also, the pet shop boys,
+
+[00:28:21] they asked them to change their name to the rescue shelter boys. Oh, yeah, because they hate pets, don't they? They're against pets. Did they ask the super furry animals to change their name to the super synthetic furry animals?
+
+[00:28:31] They should have done, shouldn't they? The other thing they tried to change, Peter, was, I think we mentioned it on the TV show, which is they try to change fish into sea kittens in the hope that people wouldn't eat them as much. Well, that's not an insane idea. I mean, obviously it's an insane idea, but the name does severely alter your perception of something, doesn't it?
+
+[00:28:51] Yeah. So, for instance, there are other fish. There's a fish called a slime head, and if you eat that, actually, it's called an orange ruffie. Right. So if you eat orange ruffie, the original name of that fish was a slimehead fish. changed it so that people would eat it. So what would it take to agree to change your town's name?
+
+[00:29:09] Would you go for, so there was the town of Clark, Texas, renamed itself dish, after the Echo Star Communications Dish Network, and they all got free satellite dishes on their houses? Oh, that's good. It's a shame that Clark isn't in Kent. I'd be happy to change Hackney into SkySpotts if they gave me free SkySpot. Yeah, I think
+
+[00:29:28] I'd sell my town's name immediately for a bag of sweets. There was a place in Texas, which the mayor and the members of the Chamber of Commerce they wanted voters to approve the name change they had in mind this was in 2005 the place is called White Settlement The measure was voted on and was defeated by 9 to 1 As one resident said
+
+[00:29:50] Why don't they go ahead and change the name of the White House To the West House, it's all a bunch of poppycock The thing is the white settlement is named from the 1840s When a community of white settlers Occupied an area surrounded by several Native American villages Right so it's not an Innes and Dexterity. It's not like being called Mr. White. There is a village in Spain called Castillo Matajudios,
+
+[00:30:15] which translates as Fort Kill the Jews. What? Wow. And they voted last year to change their name, and it went through, it should go through, because it takes about a year for the process to go through, so by around June or July this year, they should change their name.
+
+[00:30:31] You've got to wonder. That is interesting. I mean, I know it's offensive. but it is interesting. It's really interesting. You've got to wonder why it took them so long. Yeah, it was, it dates back from the expulsion of the Jews in 1492 by King Ferdinand and Queen Isabella. Wow.
+
+[00:30:45] So it's a very long historical thing, but they've finally voted to do it. You can get a map. I wanted to get a summer for Christmas of all the funny place names in the UK. I mean, it is just riddled with them. It's really good, yeah. I mean, there are so many. What's the best? I like Netherthon.
+
+[00:31:01] I think that's my favourite place. I like Brown Willie, which is the highest point of visit. Dorset or Drescent. Bodmin Moor, the highest point of Bobman. And there is a meteorological effect called the Brown-Willi Effect. Yes, which is where Banks of Cloud hit Hill, go high, and then it leads to rain, at least to thin drizzle all across Bodmin Mall. Brown-Willi effect.
+
+[00:31:21] Someone getting undressed in the morning, oh, God, it's going to rain today. That's the most disturbing weather report I've ever heard. I'm now over to Jeff with the web. Oh, my God. It's going to rain, guys. It's going to rain. Okay, that's all of our facts for this week. Thank you very much indeed for listening. We hope you've enjoyed the show.
+
+[00:31:44] We'll be back next week with more facts and a special guest, A Horrible History's resident historian Greg Jenner. If you do want to follow us on Twitter, you can do that because that's a thing. Anne is available on... I'm at Miller underscore Anne. James. At Egg-shaped. I'm at Andrew Hunter M.
+
+[00:32:00] And Anna is not on Twitter, but... You can email podcast at QI.com. Okay, so thank you very much again for listening and we'll see you next time. Goodbye.

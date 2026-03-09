@@ -1,0 +1,237 @@
+# No Such Thing As A Fish - 217: No Such Thing As A Trapezium-Shaped Hankie
+
+- Episode date: May 18, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/217-no-such-thing-as-a-trapezium-shaped-hankie
+- Slug: 217-no-such-thing-as-a-trapezium-shaped-hankie
+
+## Transcript
+
+[00:00:00] Uh, uh, uh, uh, uh. I'm going to take a bath. I'm going to take a bath. I'm going to take a bath. Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Liverpool! My name is Dan Schreiber, and I am sitting here with Anna Schuzinski,
+
+[00:00:29] Andrew Hunter Murray, and James Harkin. And once again, we have gathered round the microphones with our four favourite facts from the last seven days, and in no particular order, here we go. Starting with you, Andy. My fact is that the ancient Greeks wiped their bottoms with pebbles. Well, her off the Flintstones. How did that even work?
+
+[00:00:55] So, this is true, they had pebbles, which they used, they're things called pessoi, and we keep discovering them in archaeological digs. And we know that these were used because... They're covered in shit. Yeah, kind of. Yeah, so there was Fishbourne Roman Palace, which is a Roman site in England,
+
+[00:01:14] had bits of pottery which had partly mineralised excrement on them. And until they discovered the excrement, they thought they were board game counters, but they weren't. But I think the word pessoi means both these pebbles and also board game counters. Yes. So it's the same word for both. It's like if we have the same word for toilet paper and monopoly piece.
+
+[00:01:33] Yeah. I like the idea, though, that presumably on the dig, they pick it up and they go, I think this is one of those board game counters, and they get a bit closer, and then it's something like, oh, no, it's not, it's another pessoi. So you said that was at Fishbourne Roman Palace. Yes.
+
+[00:01:49] Yeah, so Dr Rob Simmons, who's the curator of the Fishbourne Roman Palace, he found out about this, and he said he thought it was hilarious, and it really appealed to him that for 50 years, they'd been saying these things were board game tokens in their museum, and now they have to relabel them. It's great. And there was guidance for the ancient Greeks about how you should use them,
+
+[00:02:10] so there was a bit of advice which said you should use no more than three pebbles, and anything more than that is actually a bit extravagant, and you don't need it. How big are the pebbles, though? They must be, like, quite big, I reckon. They're not huge. They're smaller than my hand, I'd say,
+
+[00:02:25] even a penny. Okay, okay. Do we know if they were in any way effective, as in, are we doing it wrong now? Would they laugh at us going, paper, use a pebble, mate? Is it a better option? I don't think it's a better option.
+
+[00:02:38] I think that can be abrasive. Obviously you'll pick smooth pebbles if you can. So do you think it was like, you know when you go skimming stones on a beach, and you spend ages selecting the right ones up to the beach? It must have been like that, where, and you find one and you go, I found a really good one. You're right.
+
+[00:02:54] It feels to me like the kind of pebble that would be good for skimming would also be good for scraping. Agreed. Yeah. Yeah. But actually, they could be a bit dangerous. Some people who found out about this
+
+[00:03:06] have written that long-term use could have resulted in local irritation, skin or mucosal damage, or complications of external hemorrhoids. So really, it's not something you want to be doing. We're not suggesting it now, are we? No, but the really interesting thing was with all these pessoids,
+
+[00:03:24] there is a theory that some academics have that not only did they wipe the bottoms with pebbles, they wiped the bottoms with pebbles that had their enemies' names written on them. Ah. So that's the ostracost, or the ostracoid, right? Exactly, yes.
+
+[00:03:37] So was this a thing in ancient Greece where you would write the name of a politician that you didn't like basically on a pebble and then kind of throw it out? Yeah, every year there was a meeting, and if there were enough votes cast, I think it was if there were more than 6,000 votes cast with the names written on them,
+
+[00:03:53] then whoever got the most votes out of those 6,000 would be cast out from society. And it was to guard against tyrants. So it was a very good way of saying, oh, there's an up-and-coming politician, Jacob Rees-Mogg, he's looking a bit, you know, likely, everyone writes his name on a bit of pottery, wipes it on their bum,
+
+[00:04:09] problem solved. But they also, they did this really cool thing in battle in ancient Greece where they had bullets, which they would sort of catapult at the enemy, but they would write insults on the bullets that they threw at people, literally adding insult to injury. And so we found lots of examples of these bullets,
+
+[00:04:29] which are kind of like big rocks, and they'll say things like kind of ouch, or the equivalent in ancient Greek, or one of them says, for Pompey's backside, and another one says... That could be a toilet paper thing, though, couldn't it? So that no one else uses it. You're absolutely right.
+
+[00:04:46] One of them said, this is a hard nut to crack, and one of them said, fruit for dessert. I don't know what, they're probably really funny at the time. Yeah. I'm sure the person shot went, oh, that's hilarious. And this is just an aside, but you know that the little stone that you were throwing a slingshot, they did a study on that.
+
+[00:05:05] I think last year or the year before, and they found that being hit by one of those was like being hit by a bullet from a magnum. Whoa. Like if you could get the proper throw, like you could kill people. But actually, David was the favourite in that fight. Yeah, I read that in a Malcolm Gladwell book.
+
+[00:05:22] It was the idea that you would have thought David was a useless person to send out, but actually the best people in battle back then had precision shots, which would mean that you could take an army down from a distance with one single blow. So you take an army down from a distance with one single blow.
+
+[00:05:39] Just listen to yourself. OK, a single person, like a Juliet. Yeah. And importantly, Dennis the Menace was much more of a menace than we've been led to believe. I really like that in ancient China, so actually around the 1300s, there were emperors who started using toilet paper.
+
+[00:05:58] It's one of the first examples of toilet paper being used. And the sheets that they used to order, each sheet would measure two feet by three feet. That would be there. And we think they had enormous houses or what? I just know. Just a lot of fun, maybe. I don't know.
+
+[00:06:19] You've got to assume they ripped that up. You know, they went through a lot, didn't they? In the 1930s, they went through like 720,000 sheets of toilet paper every year. That was just in the Royal Palace in the Imperial Court. So, well, we didn't pick up on toilet paper until really recently in sort of Western Europe. Yeah, not as far.
+
+[00:06:40] I tell you what, two weeks ago, the game changed completely for the four of us. A lot less time picking up those pebbles from the beach. But this is true. It was in the 1800s. It was a guy called Thomas Gayety, who was an American guy who in, I think, the 1860s, or 1857, he came up with a manila hemp kind of thing
+
+[00:07:04] that was infused with scents and stuff, and it was able to wipe bottoms. And he called it therapeutic paper. And actually, the idea was that it stopped piles and hemorrhids and stuff. And it did not catch on for years, so it didn't catch on until 1890. And at that point, because wiping your bottom
+
+[00:07:20] in Victorian times was quite an embarrassing thing to talk about or even admit that you'd ever done. The people who finally popularized toilet roll were these guys Clarence and Irvin Scott, who turned it into an actual roll. They were the people who invented the sort of cylindrical roll. And they were so ashamed of inventing that in 1890 that they never admitted it until 1902.
+
+[00:07:41] What? Even though it took years? Yeah, 12 years. But surely the money would be piling up somewhere. He was like, are you sure you didn't invent this? So we have a lot of money to give to whoever invented this. Nothing to do with me, man. I don't know. Shame is a powerful force. I read about a chess grandmaster in 2015.
+
+[00:08:01] This is a slightly off topic, who was caught cheating due to using toilet paper. Okay. He cheated with toilet paper. What do you think? Oh, so how did they do it? Well, they took the toilet paper, which is white, and put it on the black squares.
+
+[00:08:17] And so no one knew how to move their bishops. Wow. This is going to be such a letdown. That is much better than what I have here. That's so good. That is really good. Is it? No. It's more using a toilet than using toilet paper.
+
+[00:08:34] But the officials got suspicious because he was playing the match and his opponent noticed he kept going to the loo pretty much every turn and he was staying in there for a very long time for ten minutes or more and they thought, what's going on here? So when he was out, they went into the cubicle
+
+[00:08:47] and they discovered a smartphone wrapped up in toilet paper and buried in a bin. And he denied it was his, but... That's more using the smartphone than the toilet paper, isn't it? It's a joint effort and it's teamwork. But yeah, he denied it was his,
+
+[00:09:02] but the phone was logged into his Facebook page and there was a chess program on it showing exactly his position in the match. A team from Kazakhstan has invented reusable toilet paper. Oh, yeah. I was about to say it's divided in the room. It is not divided in the room.
+
+[00:09:17] We all agree on what we think about reusable toilet paper. It's divided in the room between me and everyone else. How do you... So yeah, you just use it and you put it in the washing machine and it comes out and you can use it again. You wouldn't want to put it in with a load of other stuff, though, would you?
+
+[00:09:31] Not with your whites. No. OK, it is time for fact number two and that is James. My fact this week is that in 1860, there was a woman in Paris who made a living by blowing the noses of war veterans who had lost their arms in battle.
+
+[00:09:52] Wow. Someone employed to blow the noses of the people... Yeah, so they just had a war in France. Napoleon III had just come to power and there were a lot of invalids in Paris and so it was a really useful thing for this lady today. How would she know that someone would have a runny nose?
+
+[00:10:08] Would you know that you kind of had a cold coming on? We just used to go, uh-huh, uh-huh. So Hank, she used a hanky, presumably a handkerchief. So it only struck me reading about this yesterday that we just accept the handkerchiefs as square and they have not always been square and they used to come in all shapes and sizes.
+
+[00:10:30] It was a very exciting time and apparently... It really was... God, if I could go back in time, it would be to the year where handkerchiefs were different shapes. What kind of shapes? So like oval or circular or, you know,
+
+[00:10:48] trapezium, parallelograms. But apparently the reason that they are now square is that Marie Antoinette told her husband, Louis XVI, that she was tired of this endless variety in handkerchiefs and so immediately Louis issued a decree saying that all handkerchiefs had to be equal in width and height throughout the kingdom
+
+[00:11:09] and that's hence sort of the squareness generally of handkerchiefs today. You can see why they had a revolution in the end, can't you? What bullshit is this? Do you know that you used to be able to get satirical handkerchiefs? No, I didn't know that. You used to have handkerchiefs which commemorated current events? So if there had been a battle recently
+
+[00:11:28] or a royal death or something or a military victory or an unusual happening, immediately printers and handkermakers would rush out a load of commemorative handkerchiefs and you'd be able to say, oh, have you seen my cool new handkerchief about that weird cow that was found or whatever? The news was very slow, wasn't it, in the early 19th century? But the reason that they were popular then
+
+[00:11:50] was you would carry around your handkerchiefs, supposedly, and it only migrated to the top pocket when that went out of fashion and people started having just plain handkerchiefs. There was no need to show it off anymore. Because you see like George and men kind of walking around with their handkerchiefs like Bob Brummel and stuff, don't you? Yeah.
+
+[00:12:07] Well, I think so handkerchiefs did used to be sort of 15th, 16th, 17th centuries, sort of beige or white or cream and they'd have lots of embroidery around the edge and snuff came in because we discovered the Americas and we brought back some tobacco and snuff. I don't know if you guys have ever taken snuff, but when you do take it, your snot is brown
+
+[00:12:26] and so it became kind of unseemly to blow your nose and have these weird brown stains all over your handkerchief and at that point they started being in dark colours and that's when we first got, you know, handkerchiefs being dyed with lots of patterns on to cover up the weird brown kind of pooh stain that was a snuff blow. I just found out there are these massive mucous balls
+
+[00:12:48] floating around in the ocean which we didn't know about until now. Wow. Very cool. They're called sinkers and there are these tadpole-like animals called giant lavations. They make them, they blow them up to catch prey and then after a while they throw them away like a spider getting rid of its web and they just float through the ocean down
+
+[00:13:05] and that means that there's enough food on the sea floor to support life because of these things. They double the amount of food available. They doubled it. They double it but it's all snot, is it? No, it's snot but as it moves down it catches other bits of prey, it catches other bits of food so it's this huge food net floating down through the ocean
+
+[00:13:24] and it lands, bang, you can support life but they're very hard to spot in the wild because they're quite delicate. I was reading about also there's a clam in the ocean that when it's being attacked by predators shoots toxic snot out of it in order to get it away. It's really cool, you should check out photos and videos of it. This is the disco clam.
+
+[00:13:44] And if you see it, it looks like a massive rave, this clam. It's just like they're just moving and all these amazing fluorescent lights are coming off like you've got glow sticks on it. We're gonna have to move on in a sec. Anything before we do? You were saying about Louis XVI. I read one website and I can't really work out if this is true. Apparently he prohibited anyone from carrying a handkerchief
+
+[00:14:06] that was larger than his. So he had to have the biggest handkerchief of all and if he had a small one, everyone had to have a small one. It's a good thing no one told him about the massive Chinese toilet paper otherwise he would have insisted on having six foot by nine foot squares of loo roll. OK, it is time for fact number three and that is Anna. My fact this week is that when avocados were first sold in the UK
+
+[00:14:31] they came with a leaflet explaining what they were and how to eat them. It was the 1960s and they were just getting a bit popular and this was in M&S and M&S, I read this sort of big report about how M&S's sales policy have worked over the years and they said in 1968 they first of all got avocados who were very excited and they put them up as the avocado pear which is what they were called at the time and they got complaints from people immediately
+
+[00:15:01] who had stewed them and served them as custard as you would a pear. And said, well this is disgusting, why are you selling this to me? And so the store was given, each M&S store was issued with lots of leaflets to give free with avocados explaining that they were a salad item and they were not a dessert and how to prepare them and how to eat them. And that's why we don't call them avocado pears anymore. They weren't called avocados until 1915, this is so weird. They were called Ajoakate and in 1915 a group of farmers in California
+
+[00:15:32] just met up and they agreed what they would call it from now on because it wasn't selling very well. So they all found it and they said it's too hard for Americans to pronounce and also there's a testicle connotation because in the original language the word meant testicle. So they just decided... The Aztecs wasn't it, it came from the Aztecs. Nahuahtl. Nahuahtl was the language.
+
+[00:15:55] And so the farmers just renamed it avocado. They decided the plural, avocados, pretty easy job I imagine. Well they specifically said it wasn't with an E, didn't they? Yes they did, they said avocados instead of avocados. And they just wrote to dictionary publishers saying we have changed the name of one of your words. This is what it's going to be like now on. That's really good.
+
+[00:16:19] Do you know who we have to thank for avocados, the fact that we have them? Waitrose. Close, ancient giant sloths. Yeah it's true, basically what it is is that ancient giant sloths now extinct they were the only animals big enough that were able to swallow an avocado because of the size of the nut inside and what they used to do was they would swallow it whole and the brilliant bit about that is because they traveled a lot
+
+[00:16:48] what they were doing is when they pooed it out and the nut came out on the other side they were planting avocado trees out in places that they'd never existed before and this according to the American Museum of Natural History was a very big deal because if an avocado just fell and rotted underneath a tree it would be competing for light and growth of the existing tree and may never have dispersed itself so because of the the pooing ancient giant sloths
+
+[00:17:11] we now have them in abundance. According to this thing I was reading the avocados don't know that giant sloths have gone extinct. What? I don't think they even know they're avocados. Well, that's a fair argument. What do you mean? An author, Connie Barlow, was writing about these
+
+[00:17:29] and she says that as far as avocados are concerned it's all going very well according to plan. So do they think that avocado farmers are giant sloths? Basically, yeah, because I think the range must have shrunk quite a lot because the sloths went extinct 13,000 years ago and avocados, humans only invented agriculture about 10,000 years ago so there was a spell where it was looking pretty dodgy for the avocado and then thanks to human farmers picking up the slack
+
+[00:17:53] and pretending to be... But they must know they're not being eaten and pooed out. As you say, I don't think they know they're avocados. Maybe do the farmers dress up as giant sloths? Do they have like panda enclosures? Do humans dress as pandas to trick them? Do you know what the latter name is, this giant sloth? It's a megatherium which literally means big animal.
+
+[00:18:12] It's the worst latter name you'll ever read. So of course avocado toast is a thing among millennials and it's the reason that they can't afford houses. According to some people. But the BBC looks into this and they found that in order to afford a deposit on a house in London you would have to give up and not eat 24,499 avocado toasts. Which means to get a deposit for a flat in London
+
+[00:18:40] you only have to give up avocado toast for 67 years. Wait, eating how many is a? I think it's one a week. Oh, well, I think I could make that money in a much shorter than 67 years. I'm eating a lot of avocado. Let's sacrifice that. But yeah, it has become so popular over the last few years and then there was a shortage of avocados
+
+[00:19:03] so the way you farm them is quite difficult. They sort of have on-years and off-years alternating and so it's become a crime wave in Australia and New Zealand. They've had a spate of avocado thefts and this is now a serious problem in New Zealand and they get stolen in the middle of the night. Lots of these have been reported. There's been a real spike.
+
+[00:19:23] People come in the middle of the night to avocado farms and they either rake them from a tree using big long devices or they collect them in blankets or sleeping bags on the ground and then they drag them away and they were starting to set up little avocado stools on roadside in New Zealand and then the police cracked down in 2017 and so now they've gone to Facebook. So as if Facebook hadn't done enough wrong over the last year
+
+[00:19:48] they're also now selling black market avocados. No. We should say that Mark Zuckerberg is not personally selling black market avocados. I've all put it past him. There was a guy, there were three guys in California who were charged with grand theft avocado for... They were! That was the chair of county, what they said, the county office.
+
+[00:20:08] They stole $300,000 worth. It is hard though, I would think, to smuggle an avocado. I can see why drugs are so popular because... That's not the only reason they're popular. But it's very small, it's an easy thing to... If you have a roadside avocado stall, it's quite hard to imagine to pack that up if you see a police car approaching. Yeah, although it's easier if someone comes by and inspects your wares
+
+[00:20:30] to say, yes, this is perfectly legal. That's why my drugs don't went out of business. The largest avocado ever found was by Pamela Wang from Hawaii. Pamela is not a funny name, I know. It was the size of a chihuahua. Wow, the size of a small dog. Yeah, that's a chihuahua. Not the state in Mexico.
+
+[00:21:03] But it's weird because we've covered giant pumpkins before and giant pumpkins get to the size of, you know, bigger than a big dog. Sorry, I don't want to blind anyone with science. Although it's not a contest between avocados and pumpkins over size, I think everyone understands that pumpkins are bigger than avocados. Do you guys know about avocado proposals? No. It's a thing that the media journalists have decided is a thing
+
+[00:21:28] and they've found some people who've done them as avocados is instead of proposing to the person you want to marry and opening a box with a ring in it, you open an avocado that you've got in half and it has a ring prodded into it and Cosmopolitan Magazine actually found a few people who'd proposed to women with avocados with rings shoved in them and I really liked the juxtaposition.
+
+[00:21:49] So there was one guy called Randy Gonzalez who was from... Gonzalez is not a funny name, guys. He was from Connecticut. He was in America and he did it on a beach where he first met his girlfriend and he opened this avocado, there's a ring inside, and he said, it just happened that a professional photographer was nearby who happened to be shooting something else and we got in the way, so we've got this beautiful photo of it
+
+[00:22:13] and it is a really beautiful photo of him doing it and he said he put the ring in cling film because no one wants a ring that's covered in avocado. I mean, maybe no one wants a ring that's presented within an avocado, but they interviewed him and then they interviewed a guy from Stanford in Lincolnshire called Ben Stevenson and he wanted to do the same thing. He had to postpone it at first
+
+[00:22:35] because his girlfriend got really ill in Bali and then when she wasn't really recovered fully, he proposed her on a beach, he looked around the avocado for two days in the heat by that point so I've seen the photo that she put up later and it's kind of a black and rotting avocado. With a ring shoved in it, he did not cover the ring in cling film so he did say there was some avocado on the ring.
+
+[00:22:58] They cut an avocado at the wedding instead of a cake but yeah, it was a good juxtaposition and there was no professional photographer around for them so she just had to get him to recreate the act later so she could photograph it and post it on Instagram. Wow, and did they like manky up the one for the second photo to make it look realistic? I think they did it quite soon afterwards so it was just still the same manky avocado.
+
+[00:23:23] Right. Alright, let's move on to our final fact of the show and that is my fact. My fact this week is that in the late 90s, Microsoft successfully acquired the extremely valuable domain name Windows2000.com from a man called Bob Kirsten. In exchange, they gave him Bob.com. How cool is that?
+
+[00:23:48] That's awesome. And they just happened to have Bob.com? Yes, they did so they didn't buy it for the sake of the trade because Windows 2000 was worth a lot of money and they would have paid millions and millions to get that and companies often do for all these people who in the early days of the internet bought up all these domain names. So they went to him with an offer and he said that's not high enough
+
+[00:24:10] but he noticed that Microsoft had a failed product years ago called Microsoft Bob and it was run and set up by Bill Gates' wife Melinda and when she set it up. I don't know if anyone remembers Microsoft Bob but the idea was that you know the little clippy guy who comes up to help? It was a whole program like that. So the absolute worst bit of any program that exists, there was a whole program with that stuff in it.
+
+[00:24:37] Yeah, exactly. That's genuinely what it was. It was a picture of a lounge room and you clicked on things like I want to send an email so you clicked on a thing that represents the email. There was like a calendar there and you click on the calendar and it would show you your calendar or there was like a letter and you click on the letter and it would let you send up to 15 emails per month.
+
+[00:24:57] Imagine that. That's awesome. And it was a total failure. They released it in 95 I believe and within 96 they immediately had to get rid of it but they owned Bob.com and it wasn't a complete waste because there was a new invention that was brought to Bob.com, Microsoft Bob and that was the font that was invented for it was Comic Sans. That's where we got Comic Sans.
+
+[00:25:20] It really is a Pandora's box of evil. Well PC World Magazine called it the seventh worst tech product of all time. Wow. So I really liked it but I think that just shows how behind the times I am but if you look at Bob.com it was a cozy living room, wasn't it? It made you feel like you were in a sitting room and the idea was that you would feel like your computer was all around you but it didn't feel like a computer.
+
+[00:25:46] It felt like a sitting room with an open fire and a cat. It was just really nice. I can't believe it didn't take off. Wait till you see Facebook and Twitter. I'm not ready. I know I'm not ready. So Bob.com exists now. If you go on there you can see the story of Bob and all of the things that he did.
+
+[00:26:06] But one time or other he also owned Broadband.com, Dividend.com and Englishman.com and when he had this Windows 2000 what he thought it would be would be a window to the world. So it'd be a load of kind of webcam feeds from all over the world and you go on there and so that's why it was called Windows 2000. Because there would have been 2000 windows. No, no. 2000 in the 90s, if you remember in the 90s
+
+[00:26:32] the year 2000 was going to be when everything went amazing. I remember it being the time when the world was going to end. Oh yeah. Because the Millennium Bug. Yeah that's true. I still own one of the leaflets, the government safety leaflets of what to do when the Millennium Bug comes. Oh and what will you do when it comes?
+
+[00:26:47] It turns out you'll be fine according to the leaflet. Don't worry about me. But they dressed it up as a scary microchip with eight legs so it wasn't convincing that it was going to be fine. Yeah right. And Microsoft in fact they employed a person in 1999 who was director of Millennium Bug problems, didn't they? He was specifically there to deal with.
+
+[00:27:08] Basically everyone's paranoid that anything was going to happen because it definitely wasn't. Can I just say as well, because I know we'll have some programmers listening the Millennium Bug didn't happen because so many people worked so hard on it. Oh really? I know the letters we're going to get. I think it was a hoax. I just like getting posed.
+
+[00:27:26] Well actually only just last year did the American government stop working on preventing the Millennium Bug. They didn't realize they were still working on it. There was paperwork that was constantly coming in and when the Trump administration went in they had someone go through all the papers and they realized there was a monthly report going we don't think it's going to happen in 2017.
+
+[00:27:46] So we've officially as of 2017 stopped working on stopping it. So the first person to kind of buy a domain that probably should have been owned by a bigger corporation was a guy called Joshua Quitner and he just decided to register mcdonalds.com himself. No. He didn't really know what the deal was. He just thought well they haven't got it.
+
+[00:28:07] I might as well. And he got in touch with them and he said do you think maybe you'd like to buy this off me? And the official reply he got is are you finding that the internet is a big thing? Have you heard of a guy called Uzi Nisan? No. He's so cool.
+
+[00:28:24] So he is just a regular guy. He has a firm called Nisan Computer. It was a computing firm. Set it up in the 80s. Way before Nisan was even called Nisan. It was called Datsun back then. And when Nisan made its name Nisan they started writing to him and saying
+
+[00:28:40] look we want Nisan.com. And he said sorry I've got Nisan.com because my name is Nisan. I have a company. And they sued him for a decade. Wow. So he spent 10 years. They sued him for time.
+
+[00:28:50] No. So he's now 70 whereas he should be 60. Rough. But he held out. He resisted this massive company. He had to spend about 3 million dollars of his own money defending this case.
+
+[00:29:06] And he won. And he now has Nisan.com. And if you go there it's a website which tells you Nisan are a load of bastards. So it is a thing where these companies and Bob I think had this as well when he had Windows 2000.com
+
+[00:29:26] is that they do bring the lawyers in to get involved. And I think Bob actually was the first person to do it in reverse because they started trying to sneakily put Windows 2000 out there and he was like I've got the trademark on that. And I should add that in the settlement
+
+[00:29:40] it wasn't just the trade of the domain names. He did get some money but nowhere near what he could have got. He just said throw in Bob.com and that will do it. But companies now have to preemptively just buy domain names that they hope one day they might use.
+
+[00:29:53] So Coca-Cola for example owns the domain name ah.com. How many A's are in that? ah.com They also own ah.com ah.com
+
+[00:30:09] They own ah.com up to 62 H's. I think at that point then it's pronounced ah.com Do they own do they own A-A-H?
+
+[00:30:22] No. Oh, I'm getting that. One guy I really like was do you know Peter? The people who don't want anyone to do anything bad against animals. But they're really kind of extremely militant about it.
+
+[00:30:36] There's a guy called Michael Doney who he bought Peter.com in 1995 and he put up his own site which was actually for people eating tasty animals. Ah. That's
+
+[00:30:55] I am against animal cruelty but that is hilarious. We should mention the domain name dispute that happened to Microsoft itself. I don't think we've ever mentioned it before but Microsoft against MikeRoweSoft.com which was it was quite famous at the time
+
+[00:31:14] but it was the early 21st century and a guy called Mike Rowe who was in 12th grade in Canada so what he was 16 or 17 and he registered a domain name MikeRoweSoft that was a bit of fun wordplay
+
+[00:31:29] and Microsoft demanded that he give it up were like you're not allowed this and they're not you know they're obviously big at the time but they said we'll give you $10 for that because that's probably how much you spent registering that and he was so insulted by that offer
+
+[00:31:42] that he demanded $10,000 and Microsoft took that as a really aggressive move it was such bad publicity because Microsoft then clamped down really hard on him and kind of said that he was deliberately trying to screw them over and trying to get loads of money out of them and then the media all got on poor old MikeRowe's side
+
+[00:32:00] and so eventually after all this negative publicity Microsoft ended up having to give MikeRowe and all expenses paid trip to the Microsoft Research Tech Fest lucky guy and they also gave him an Xbox with a full selection of games and he gave it up for that
+
+[00:32:19] and a small fee but he was a good guy he is a good guy but I always wonder like would you have Andrew Hunter Murray soft? I wouldn't actually it's not the usual kind of suffix after your name isn't it?
+
+[00:32:33] it is but he just thought the pun was good enough I think to sacrifice that and actually I went on so what Microsoft did do was they paid for him to set up microforums.com instead and I thought I wonder what microforums is doing these days
+
+[00:32:47] and I wasted about half an hour it's just suddenly you have a questionnaire in front of you with no context asking you loads of personal details about who you are on your life and stuff so it asks you like where you live how old you are who you live with
+
+[00:32:59] this is Facebook maybe because I'm not on Facebook so maybe this is what it is I checked all these boxes giving away lots of personal information about myself is that Facebook? yes oh no I'm the last one to fall
+
+[00:33:14] I found out a couple of things about Microsoft not about Mike Rowe soft so when they invented auto correct there's one guy who is basically the father of auto correct no he was the father of auto correct so he's called Dean Hachamovich and he's listed as the inventor
+
+[00:33:36] and he basically came up with the thing where you put in something and he realised the spacebar acts as a command to translate 10 for example into the and when he invented it he immediately went onto his boss's computer and switched Dean so it automatically became Mike
+
+[00:33:51] and he switched Mike so it automatically became Dean because his name was Dean and after that his boss started locking his office door we're gonna have to wrap up shortly just quickly the guy who invented Solitaire related to that was also a really cool guy
+
+[00:34:08] but he was an intern at Microsoft in 1989 and he was just trying to get to grips with Microsoft software so he was really young he was about 17 he was at school and he invented this game and Microsoft sort of found it on their system and they picked it up
+
+[00:34:23] and they put it on all their computers they obviously made lots of money out of it this guy didn't make any money out of it but he doesn't mind at all he says he's very happy but he originally on the original version of Solitaire there was what he called a boss button which is a button that you press
+
+[00:34:37] when your boss is coming towards you and it immediately switches to a screen that makes it look like you're doing work and Microsoft told him he had to remove it oh really and I now looked him up and it's like he's betrayed Microsoft because he works for Apple's in an orchard
+
+[00:34:52] he runs an orchard making cider it's so good okay we need to wrap up guys okay that is it that is all of our facts thank you so much for listening if you would like to get in contact with any of us
+
+[00:35:07] about the things that we have said over the course of this podcast we can be found on our Twitter accounts I'm on at Shriverland Andy at Andrew Hunter M James at James Harkin
+
+[00:35:17] and Shazinsky you can email podcast at qi.com yep or you can go to our group account which is at no such thing or our website no such thing as a fish.com where we have all of our previous episodes up there we have a link to our book
+
+[00:35:28] we also have a link to tour dates that are upcoming and to our new cassette which we're about to give a copy away to one of the members here at our Liverpool audience and we asked you to send in your facts at the top of the show and we've picked our favorite facts
+
+[00:35:44] so James yeah I like this I've never heard it before and I think it's really fascinating it's by Mel Burton and it is that astronauts have to relearn to play the guitar on the space station because they overshoot the frets
+
+[00:35:55] due to their weightless arms whoa that's awesome where are the there you are come and find us at the end and we'll give you a take thank you so much we'll be back again next week
+
+[00:36:09] with another episode goodbye

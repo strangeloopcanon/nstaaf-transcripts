@@ -1,0 +1,255 @@
+# No Such Thing As A Fish - 153: No Such Thing As Mulled Wine At The Dawn Of Time
+
+- Episode date: February 24, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/153-no-such-thing-as-mulled-wine-at-the-dawn-of-time
+- Slug: 153-no-such-thing-as-mulled-wine-at-the-dawn-of-time
+
+## Transcript
+
+[00:00:00] Hey everyone, before we begin this week's show, we just have a quick request. We are doing a live show on the 28th of February, it's our third birthday party, and we were hoping that we could ask you to submit a bunch of questions, interesting thoughts, ideas, whatever it is you want for us to read out on stage. Yeah, make them funny, make them snappy, make them cool, make them worthy of being aired, and they will be. Podcast.qi.com, email us your questions. You can even tweet it to us as well on our atqi podcast account.
+
+[00:00:31] Please do before this coming Tuesday, and if we see it, and it's short enough, and funny enough, and intelligent enough, we will read it on stage. Okay, on with the show. Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, and I'm sitting here with James Harkin, Andrew Hunter Murray, and Anna Chazinski, and once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go.
+
+[00:01:17] Starting with you, Andy Murray. My fact this week is that the smallest football league in the world consists of two teams who play each other 22 times every season. Where is it? It's on the Isles of Silly, which is just off Cornwall, which is the southwest tip of Britain for anyone who's not from Britain listening, and they're called the Wolfpack Wanderers and the Garrison Gunners, and they used to be called the Rangers and the Rovers, and then they thought that was a bit boring, so they make it more interesting.
+
+[00:01:46] It's weird that they did that, because you can only really call yourself the Gunners if you've got a historical connection to, like in Arsenal's case, an armaments factory, and the Wanderers, people are called that when they don't have a permanent stadium, which I assume they always have, because there aren't any other teams in this place. Yes. So their names are lies. I mean, they've been playing since World War I, I believe. Wow, they must be knackered.
+
+[00:02:09] They forgot to mention how long the matches are. Half time's coming up next year. So maybe there is a connection, potentially, for the Gunners. Well, they're called the Garrison Gunners, so is it not to do with some kind of Garrison? Yeah, I'm sure there was a Garrison on the Isles of Silly. I don't know. I don't have the facts. Do you know what I really like? They play on the same football pitch every time, but they swap for being a home and away team, so they're changing rooms.
+
+[00:02:33] They change to say away if they're the away team that week, and then home on the next match. But that means they're the exact opposite of what you would expect a Wanderers team to be then. It's true. Because not only have they always played on the same pitch, they even play all their away games on the same pitch as well. It's very true. And the Wikipedia on them is unbelievably cautious. It says the league is reportedly the smallest in the world. I do not believe there's a one team league anywhere in the world.
+
+[00:03:00] Do you know how they pick the teams? They pick them by every year, a few weeks before the season, the captains of the two teams, they meet up in the pub, and basically they take turns. Yes, like a school yard. Like a school yard, yeah, yeah. So they try and make it so the teams are roughly equal in ability. I was reading an interview with them, though, and they don't seem to even know which team they play for. One of them was asked whose team he was on, and he said,
+
+[00:03:23] oh, I'm wearing red. Which team is that? But just the Isle of Silly for the people overseas who haven't heard of it is incredibly small, and its population size, as of 2001, that's the last update I've seen. I could find 2,153 people. So it's a very tiny population, but they've worked out that 32% of the population participate at least three times a week in 30 minutes more sport, way greater than any other bit of Britain. But then 1% of the population are in one of these football teams, presumably.
+
+[00:03:57] That's amazing. That's really good. That must be the highest anywhere I would think so. The highest proportion of football players anywhere, professionals. And also, on their teams, I really like this, there's a huge gap of the age bracket of who plays, where they're majoratively missing 16 to 25 year olds. And the reason is because the schools in the Isle of Silly only go up to sixth form. So when you're 16, you have to go to the mainland to finish off your schooling.
+
+[00:04:24] And so they end up just staying on the mainland when they come over, rather than going back. It's gone holiday there as a kid. It's so lovely. Amazing bird watching. Oh, really? Amazing birds. Did you ever see the Silly Bee? No.
+
+[00:04:39] Silly Bee is... Is that a thing? Yeah, it's a kind of bee that you find on the Silly Islands. That's great. Does it behave in a silly way? It never collects any pollen. It only collects twiglets and things like that. It's such a silly bee.
+
+[00:04:54] Just collects anecdotes. 00:04:58,240 --> 00:05:00,400 Yeah, it's actually quite endangered. But someone took a photo of one in 2012, because people thought they might have even got extinct. So that was big news in the Silly Islands. You did a really good job of transferring really quickly from a laughter voice to the very solemn, it's quite endangered voice. Quite endangered.
+
+[00:05:17] There's a serious side to the Silly Bee. Have you seen the Silly Police Force is quite famous around the world? Sorry, now everything sounds like it's silly. It's like they've only got two officers. And I think they're... I've read one thing saying they're only posted for a certain number of years, so they don't get too close to the local population. They are.
+
+[00:05:37] It's five years. Five years, yeah. Well, I know, but the last sergeant, he wrote a thing saying he'd been there for seven years. So I don't know... Maybe no one liked it. He had to borrow a child's bike once to pursue a drunk driver. And this is a Silly Policeman you're talking about. He's a Silly Policeman.
+
+[00:05:55] I think he's a very good policeman. But one of the other cases that he dealt with was, and I'm quoting here, a shed door was forced open at a football club, but one of the only clues available was a fried egg. There's just a fried egg on the ground next to the shed. Is there any resolution to that story? Do we know the case of the fried egg? If there is, I don't have it.
+
+[00:06:15] An escaped chicken. No, they don't fry their own eggs today, that doesn't make any sense. I was reading, so the teams actually do team up as well to play against the mainland. There's a team... Which is a massively uneven contest, to be fair. So they play the England football team? No, they don't. They play, who are they called?
+
+[00:06:39] It's Dynamo Chuff in Kenzance. So they play them together. And they have a trophy that they use, the Lioness Cup. And the Lioness Cup trophy is the smallest trophy in the world. In size, you mean? Yeah, in size. It's very tiny. I think it's in the FIFA Museum, isn't it?
+
+[00:06:56] They took it for the FIFA Museum for a year. It's six millimetres tall. It's very sweet. That's smaller than a Silly Bee. It was made by a carpenter from Dynamo Chuffs and his wife. I think they're artists. So is it made out of wood then? I think it's made of wood and metal.
+
+[00:07:13] The oldest player in the football league retired last year at the age of 70. 70? Yeah. But I read the way that they play. It doesn't sound overly competitive. In that, there's a journalist who is going to play for the sake of writing an article.
+
+[00:07:28] And he just kept missing a shot every time. And he missed it like 16 times. But every time he missed it, everyone was really encouraging. And apparently that's the whole thing it's just about. So this 70-year-old guy, I bet he's shit, but it doesn't matter. He might be listening to this podcast. He looked really sad. Looking at an empty six millimetre high spot on his mantelpiece.
+
+[00:07:51] Funny how I've been better. Well, all I'm saying is he's 70 playing against ages that don't include 16 to 25, but everything else ends. He might be outplayed for his age. Maybe not. The silly isles signed a peace treaty with the Netherlands a few years ago to end formally the 335 years war between the two countries. Even though no one actually knows if the 335 years war ever actually happened.
+
+[00:08:22] So there have been rumours since the 1600s that war was declared between the Netherlands and the silly isles. And then other people say it can't even have been declared because they're not a nation. And no one really knows. But the sources go back that far. And eventually at some point the silly isles wrote to the Netherlands and said, look, can we just acknowledge that there's never been a war between us? And the Netherlands said, we can't factually verify that.
+
+[00:08:43] I think we're probably still at war. So the silly isles said, okay, well, can we end the war please? And so, yeah, they visited each other and they signed a treaty saying we're at peace. It was amazing. The ambassador came over in a helicopter with a scroll to sign the peace. But the admiral who declared war on the silly isles, the Dutch one, was called Trump. Let's see, 10 Trump.
+
+[00:09:08] I know. So we don't know if he's any relation. That's a long helicopter ride, isn't it? 300 years. We said that the ambassador got there by helicopter. It will have been from the mainland UK, I guess. Yeah, mainland UK. You have to, yeah.
+
+[00:09:23] No, I was just suddenly thinking, can you go over the channel? And how far can you go in a helicopter? You can go over the channel. How bad do you think helicopters are? Do you think you just throw them and then they go as far as you can toss it? No, they just don't look like they have much fuel space. They could go about 300 miles, like just a small helicopter, and then the big ones could go.
+
+[00:09:39] How far is that? You just asked how far 300 miles is. So you know a mile? Yeah. It's 300 of those. We can't reduce it further than that. And the Netherlands is very close. You used to always get a helicopter over.
+
+[00:09:54] I think they've cancelled it now, but when I used to go as a kid, it was the only way that you'd go over, except for the ferry crossing, which... Yeah, I think they might be going to bring it back. Oh, really? Either they're going to bring it back, or just have brought it back, or they said they were going to and haven't done. One of those two. You've got many options there.
+
+[00:10:08] Great facts from James Argan. I do have a fact about the longest and shortest things in the world, because there's about the world's smallest league of football. Yeah. But I'm afraid it's about the world's largest penis. Oh, God. The world's largest penis is only two inches shorter than the world's smallest man.
+
+[00:10:31] Wow! Are they on the same person? Yeah. No. This is a man called Roberto Escruvel Cabrera, who says his penis is 19 inches long. It's not hard to verify that. Well, there are...
+
+[00:10:48] How long is 19 inches? You know a mile. It's a short helicopter journey, I'll say that. OK, it is time for fact number two, and that is Chasinski. My fact this week is that in the 1940s in America, if you wanted to play a recording of a band song on the radio, the entire band had to be present in the studio while you played it. And this is about a musician's strike in America between 1941 and 1943
+
+[00:11:24] about the fact that recorded music was being played on the radio. And so musicians thought they were going to go out of business because they were no longer being paid to play live music. And so they went on strike, and one of their demands was that every time a recording was played, so that musicians didn't lose out, every single person involved in making that recording had to turn up in the studio and then be paid the fee
+
+[00:11:46] that they would be paid for a beer. That's amazing. That's incredible. Why would they then still just play the recording and not have the band play? Maybe it's more effort to get your studio set up and get the sound all sorted. Yeah, I guess so, yeah. If anyone's listening to this podcast,
+
+[00:11:58] we will be turning up in your house. Oh, God, I'm going to have to meet that 70-year-old man. I'm going to have to meet the long penis bloke. Just speaking of recreations, that was another thing that was very popular in the 1940s, going back to the 20s and as late as the 50s, where they would recreate sport events because it was too hard to get live recordings.
+
+[00:12:26] So if there was a baseball match that was going on, while the baseball match was going on, they would relay the information about how the game was going back to a studio, and the commentator would commentate as if it was a live match. Yeah, but he would have a bat that was hanging next to his microphone, which he would hit anytime there was a hit, and they would have crowd noise played in and so on,
+
+[00:12:48] and they would commentate live. No. Yeah, it was all a recreation because it was too expensive to get the lines to mic up an entire stadium. Did they have all the sports equipment hanging in the studio? Because they must have had to, depending on what sport they were coming in on. I thought they had the coconuts or the horse racing.
+
+[00:13:05] And one of the sports announcers was Ronald Reagan in his early days when he was an actor. That is so funny. That's really funny. That's amazing. James, you had a fact about darts, didn't you? Yeah, they used to, in the old days, they used to have darts on the radio,
+
+[00:13:22] and the way they would do it is you'd get a darts player, and he would throw the darts at a board, and then the guy would say, tell you what he got, and then there'd be silence while you were allowed to throw your own darts, and then you would be playing against the guy. That's so cool.
+
+[00:13:37] Why don't we do that kind of stuff anymore? Well, I think it's because we have playstations. That's a very good point. So, you know, old recording studios were really cramped, and also they didn't have very good technology to do the recording. So, for example, you had maybe one recording horn, right, and you had to, which was soaking up all the sound,
+
+[00:14:01] and you had to get the band positioned around it in exactly the right way, that when they played, instruments wouldn't drown each other out, yeah? And by horn, you mean something that takes in the sound. You don't mean a... Sorry, I don't mean a French horn, which gives out the sound. Or a clown car horn,
+
+[00:14:16] as James just brilliantly did the sound effect for. Or the horn. Or being sexually aroused. Yeah, no one had an erection in this room either. Okay, great. Can you guarantee that, Matt? I can guarantee that. So, anyway, basically singers had the worst time of all,
+
+[00:14:34] because they had to move towards the horn when they were singing quietly. And when they had a loud bit coming up in the song, they had to lean away from the recording horn so that they didn't, you know, drown everybody out. But an experienced soloist got pushed back and forth on a trolley by an assistant. That's amazing.
+
+[00:14:53] Wow. How hard is it to lean towards that? Probably people who've complained about the sound quality on this podcast are thinking, you guys could do with doing that. We're all on a trolley at the moment. That's the problem. Our wheelie chairs with Alex Bell running around.
+
+[00:15:11] So how long did the strike go on? Yeah, I'll just talk about the strike a little bit more. So it went on for two years. It's the longest ever strike in Hollywood entertainment industry history. And some other weird things about it. So the guy who led it was this guy called Petrillo. One of the things that Petrillo said
+
+[00:15:27] that radio stations would have to do, one of the demands he made, and I'm not sure if he ever got around to enforcing it, was that as soon as any station had played a record, they had to immediately destroy that record. I don't know if that caught on. But one thing that happened in the end was it led to the decline of the big bands.
+
+[00:15:49] And then it just became more about the singers than the bands. So it didn't have the intended effect long term, did it? Not at all, almost the opposite, in fact. I find it amazing that this was all going on from, when did you say, 1942 to 44? Yes. During a period of total war around the world, like this was the main thing that was eating a load of people.
+
+[00:16:10] You're right, it feels weird that musicians are like, we're going on strike, it's not the time, mate. I thought I'd have a look at some of the songs that were in the charts in the 40s. So one famous one was White Christmas, which was number one for 11 weeks in 1942. Is this American or British charts? This is the Billboard American charts, yeah.
+
+[00:16:28] So White Christmas was number one for 11 weeks, and I was quite surprised it first got to number one in October that year. Oh, really? Yeah, that's kind of interesting. So all this whining about Christmas starting too early, actually, it's always done it. And in 1941, so a bit before this strike, there was things like Chattanooga Choo Choo was number one,
+
+[00:16:46] songs like Blue Champagne, My Sister and I. But on October the 4th of 1941, for eight weeks, the number one song in America was Piano Concerto number one in B-flat minor by Tchaikovsky. That was top of the charts. Wow, I thought he was around way earlier than I was in the 1940s. Yeah. But they had to have his body in the studio whenever they played it.
+
+[00:17:14] Crossly exhuming. I should say that I got this fact from a website called Timeline, it's timeline.com, and it's such a good website, and it basically tells you in-depth stories from history, sort of related to stuff that happens in the news. But it's a brilliant website, and they got this from a podcast that I've just discovered called The Pessimists' Archive, which is also great.
+
+[00:17:36] And the idea of this podcast is it's about stuff that throughout history, people have been terrified of change, and they've always said this is going to destroy us. Oh, cool. So, and they have loads of examples of that. So trains thought buses were going to destroy them, horses and carts campaigned against trains, because they thought trains were going to destroy them,
+
+[00:17:53] which they did. People thought that the radio was really damaging for your ears and for kids. People thought Walkman should be banned. It's, so it's really interesting. Pessimists' Archive is, I would recommend. Yeah, I wonder how many bits of new technology have just been outright accepted as the right way forward.
+
+[00:18:10] Like aeroplanes, they thought would never... Yeah, never thought they'd take off. Do you know they played music on Apollo 11? Really? Apparently. Like in the lift, when you, like, was it when they were waiting to take off? While they were going.
+
+[00:18:27] While they were going! To keep them calm. That's amazing. You're kidding, during take off? Apparently. Wow. Did they also have buttons like in a lift, and one of them said moon.
+
+[00:18:40] Jupiter. Okay, it is time for fact number three, and that is my fact. My fact this week is that the British Library has a collection of over 60 million newspapers, and none of them can catch fire. You cannot light any of them on fire. Give us a go.
+
+[00:19:01] I've got a flamethrower. Are they kept in water? Or in a vacuum? Yeah, no, it's, so the British Library, obviously ginormous archive, too big to even fit in one place, in London, in St Pancras, where the British Library is.
+
+[00:19:18] So they have a warehouse out in a place called Boston Spa, which is out in the countryside of England. And in there, they house all of the newspaper archive. This goes back some three centuries, and it's a collection of 60 million. So what they've done in there is that they've reduced the oxygen level
+
+[00:19:34] to a lower percentage, which means it's impossible to light a flame inside there. You cannot light a match. You cannot make your lighter produce a flame. Therefore, you are unable to light any of the newspapers in there. It's very clever. So cool.
+
+[00:19:47] Yeah, you can't actually work in that building for too long because you go a bit loopy. Employees don't actually really need to be down there for long, because the whole thing is operated by robots. And amazing. Amazing department. But when they do go in,
+
+[00:20:01] they're only allowed in for so long because the oxygen level is so low. It's the same amount of oxygen as is in a pressurized air cabin in an aeroplane. I didn't quite realize how much the oxygen levels are reduced when an aircraft cabin is pressurized, but they're reduced by 25%.
+
+[00:20:17] Just because of the pressurization. And reducing it by 25% ends up with it being the equivalent of 15% oxygen concentration at sea level, which is about the same. And the only reason we don't really notice it is because you don't really do anything on a plane. But if you try to run a marathon
+
+[00:20:31] up and down that corridor, you'd be in trouble for a number of reasons. A marathon is 26 and a bit miles, Dan. And how long is that? It's a medium-length helicopter ride. Yeah. And also, it's all in the dark this warehouse because robots don't need lights.
+
+[00:20:48] I think it's a bit harsh that these robots have to work in the dark. I know they're robots, but it just feels like, you know, give them a light. They hate light. They're like vampires. How they're meant to read them, though. Maybe it's to stop them from reading.
+
+[00:21:02] They wouldn't be doing their job, yeah. If you're a member of the British Library and you request one, the robot goes to the shelf, it gets down the thing, and then it goes to an airlock. And it passes the thing through the airlock to a human on the other side
+
+[00:21:15] so that it preserves the oxygen levels in the room. How cool is that? Yeah. And then in most cases, they do have a reading room there, but a lot of it is ordered from the Central London Library. So it gets in a van and they just bring it over.
+
+[00:21:27] It's bringing these... It's a lot of effort to read a newspaper. It's amazing. Although you can... Most of it's digitised, I think. So the British Library is put up with the British Newspaper Archive, which I think I constantly mention,
+
+[00:21:36] and they're digitising most of their newspapers on that. And I think you're only allowed to extract something from this place in Boston Spa if it's not available digitally. Right. A weird thing about Boston Spa, it's a very small place in New Yorkshire. It's got a Wikipedia page, very short.
+
+[00:21:51] Nowhere does it mention on its Wikipedia page that it constitutes the entire British Library newspaper archive. I think someone needs to add that in. The first library in Britain, Manchester Free Library, which opened in 1852 in Manchester. And it had 18,000 books,
+
+[00:22:08] and it was so popular in its first week that a police officer was assigned to control the crowd around the borrowing desk. Wow. And the first librarian was called Edward Edwards. I was reading a thing about... So libraries keep shutting down, and one of the things as well that happens
+
+[00:22:28] in a lot of libraries is if a book doesn't get borrowed, then they get taken off the library shelf. Okay. And what that means is that if the library actually wants to keep the book, they end up having to buy the book back to put on their shelf.
+
+[00:22:41] So it costs them a lot of money. So there is a library in Orlando where they found a guy who checked out 2,361 books in the span of nine months. And it turned out it was the librarian there who created a false library card. And the idea was is that now that he'd borrowed it, it was in circulation,
+
+[00:23:03] and you get paid for circulation as well. It brings in funds. But he got in serious trouble because it's very legal to fake of being a library borrower. That's a shame because that is a brilliant idea. It's a great scheme to get the library funding it needs. Yeah, yeah.
+
+[00:23:16] He was saying that he was saving money technically because they would just buy the books back anyway. So it was just him trying to be a bit cheeky about keeping the books without it costing the library anything. But unfortunately, it was seen as illegal and he's now in jail for life. What? Really?
+
+[00:23:37] Isn't it worrying that that is totally plausible about the American justice system? He was placed on paid suspension. Oh, OK. It does sound a bit like playing your own songs on Spotify nonstop. Yes. That kind of thing.
+
+[00:23:49] That's a good idea. People do it, don't they? Do they? There was a band who did that. We spoke about on the podcast ages ago, I think they're called Wolfpack or something like that. Good memory. Yeah, what they did was they streamed their album
+
+[00:24:03] and told everyone to stream it because if it went enough... So they said, when you go to bed, just stream it over and over. Put it on repeat, but put it on low volume or no volume at all. Oh, it wasn't a silent album. Yes, yes, yes. Sorry, so the volume thing was not a thing. Yeah. And they did make a lot of money which funded their tour
+
+[00:24:18] but they got caught out by Spotify. And they're all in prison for life. There is an archive called the London Metropolitan Archives and they have a whole collection of old London records, sort of parish records and city records and things like this. But many of them are unbelievably badly burned from a fire that happened in 1786. And then what happened was after the fire,
+
+[00:24:42] they said we should preserve these records just in case. And now 200 and something years later, what that's nearly 240 years later, they are becoming able to read them. What do you mean? What they've been doing is they've been preserving the pages very carefully in boxes and then they increase the humidity and they sort of puff them out and then they scan them
+
+[00:25:01] and then they can digitally flatten the pages. So you kind of unburn them a little bit. Basically, yeah. Hang on, you can unburn something by getting it wet. And no, you increase the humidity. I don't know if that is... That is wetness. Yeah, okay, good point.
+
+[00:25:13] And then, oh yeah, and they use magnets to hold the page flat while they're scanning it or as flat as they can. I mean, it's unbelievably clever, but basically it's meaning that they can suddenly read all these things. But all that we find out is that Mr. Jones lived on High Holben. There could be clues in here, James. There could be important clues to how we say everything. All I'm saying is it's a lot of effort to just learn
+
+[00:25:33] a list of names of people getting married and stuff. You love reading long lists of information, James. This is right up your street, but just the vision of keeping these things for 200 years is amazing. Just in case we came up with technology to read them again. I kind of think that's incredibly admirable. Yeah, that's great. James thinks it's absolutely worthless, but...
+
+[00:25:50] I think the money could be spent better elsewhere. Yeah, build more libraries. And then take thousands of books out of the bed of time. Okay, it is time for our final fact of the show, and that is James. Okay, my fact this week is that the man who invented Mold Wine also invented an aphrodisiac sorbet. Nice. Did he?
+
+[00:26:20] Well, yes, he did. Well, a man did, both of those things. Mold Wine is kind of pretty old, pretty ancient, but Glühwein, which is the German version of it, has a guy who is often called the inventor of it. He's called August Joseph Ludwig von Vakabarth, which is a pretty strong name. And he is the author of the oldest extant recipe.
+
+[00:26:46] So in Germany, they call him the father of Mold Wine. And quite recently, some historians found some writings of his of a recipe for aphrodisiac sorbet. And the sorbet is made with the delicious whites of two eggs, the juice of two lemons, two pounds of sugar, a few grains of ambergris. Hold on, is Dan writing this down? Dan just whipped out his pen and started scrolling notes on his page.
+
+[00:27:14] So, Dan, two eggs, two lemons, two pounds of sugar, some ambergris, and delicious lozenges from the pharmacy, four ounces of. Oh, great. Strepsils. But we don't know what's in the lozenges. That's the problem, you see. That might be the magic ingredient and all it says.
+
+[00:27:32] Quite accurate. And also, it's one pound of sugar per egg. I mean, that's quite a sugary recipe. But also, it has an incredibly expensive recipe in there, because it's using ambergris. Yeah, which you've subtly slipped in, like, just some sugar, some milk, some solid diamond, and just a little bit of flour and.
+
+[00:27:47] Whales on it. Yeah. But if you don't have that, you can use the glandular secretions of a muskrat. Oh, good. Well, we got a lot of that. No, what I was writing down was, he's called the father of Moldwine.
+
+[00:28:02] I was wondering if that, he was called that, because that's just way easier to say than his actual name. August Joseph Ludwig von Vakabarth. What's hard about that? Are you all right? My mistake. He seemed, it's a shame, a lot of the articles on him online. There's a lot of results when he put his name in,
+
+[00:28:20] but they're all in German. And I really want to read more about this guy. But I didn't have time today, so. Didn't have time to learn German. When are you going to get that done over the weekend? Yeah, also. Yeah. He's, it's a wild claim, isn't it,
+
+[00:28:35] this father of Moldwine, because people have been drinking heated up wine and alcoholic drinks since the dawn of time. So I think peeps talks about drinking it. Right. The ancient Greeks as well. The ancient Greeks drank it. If you get someone from even before the time of Samuel Peep.
+
+[00:28:49] Well, you said dawn of time, which is, I think, a bit, bit far back. Did I say, I said from when we've been drinking. You said the dawn of time. Of course, I did, I said the dawn of time. The dinosaurs actually had a very early way. The first things made in the Big Bang was Moldwine. It was hydrogen, helium, and Moldwine.
+
+[00:29:07] And cloves, yeah. Do you know how they used to heat it? And I think they still do heat it. Over a flame? No? No, not over a flame. Oh, in a microwave. Yeah, that's right.
+
+[00:29:20] That's how Samuel Peep stood it. In some dung that heats things up. No, maybe they, maybe some of them did that. Cutting open the body of a horse and putting it in there. And pouring it into there, and then you drink it from the orifice of your choice. By taking the latent heat of the early universe. Just the Big Bang was a hot time.
+
+[00:29:39] It was a trick question. It's still warming and cooling down. All Moldwine gets here from Comets. No, well, Peep's records how they would get a poker really, really hot over the fire. So you'd hold a poker over the fire, and then you'd have a huge vat of beer, it often was, in those days, or wine.
+
+[00:29:59] And then you'd stir it with a hot poker. So you'd stir a barrel of beer with a poker. That's really clever. Yeah? That's cool. That is clever. Does that work really well? I think it did seem like it.
+
+[00:30:09] It would work, of course. So like if I wanted to make a tea, but I didn't have a... You didn't have a kettle, but you did have a red hot poker. Yeah. Yeah, would that work? I guess. Could you get the water boiling hot? Yeah, you could, I suppose.
+
+[00:30:22] Yeah, maybe. Because you know, you need it quite hot to make a really good cup of tea. Yeah, but I mean, the cup's not that big, is it? So I imagine the Moldwine, that's a pot. So this is just... You don't want to damage the cup that you're making a tea in either.
+
+[00:30:33] And if you're waggling around a red hot poker in it, you might. So the Victorians had a version of Moldwine, which they called Smoking Bishop. Okay. Yeah, that was a thing. It was port. It was port fruit and spices.
+
+[00:30:47] But they had also Smoking Archbishop, which was with Claret, and Smoking Pope. And in a Christmas Carol, Scrooge promises Bob Cratchit some Smoking Bishop. Let's see. Yeah. You could have quite a fun night if you were a bishop with some Smoking Bishop,
+
+[00:31:01] and then you could eat some Stinking Bishop, the cheese. Yeah. Oh, yeah. If there are any bishops listening, who want to know how to party? But wait, it wasn't just bishops who were allowed to drink it, right? No, it was everyone who was allowed to drink it.
+
+[00:31:16] It was just a name. So you don't have to be a bishop who knows how to party. You can be anyone who knows how to party. That's true, yeah. Can we do some Aphrodisiac stuff? Yeah. Okay, no, sorry. No, what I was going to say is,
+
+[00:31:26] they did an experiment with some rats, where they took out one of the ingredients, vanmigris, which is embryan. So it's like a type of a compound, and they gave it to the rats, and it produced an increase of anal genital investigatory behavior. So let's unpack that a second.
+
+[00:31:46] Anal genital investigatory. Okay, got it, yeah, yeah. Yeah, so I think all those words are self, you know? Absolutely. Yeah, yeah. Really? What Friday night is complete without the spot of a bishop party? Anal genital investigatory behavior.
+
+[00:32:05] Absolutely, yeah. Only works in rats, though, apparently. Well, we don't know. I think we need to do the investigation for humans. I don't think we need to. I think other people need to. It only works really in male rats as well. The female rats aren't that interested.
+
+[00:32:20] Right. Anal genitally or otherwise. Above that kind of thing. Hey, I'm just wondering if you're interested in me. Anal genitally or otherwise. That's a good word, isn't it? Yeah. Yeah, it is.
+
+[00:32:37] You're being really anal genital about this, Mark. Is it anal with one end? Yeah. Anal, yeah. Anal, right. I've never actually seen that shortened to that before. No? No.
+
+[00:32:49] Me either. It's where volcano is made up of two words, Vulcan, anal. Right, I didn't know that. Because people thought it was Vulcan, the god, his anus. Yeah, that's right. Shitting fire into the sky. Yeah.
+
+[00:33:04] Aguyneth Pautro sells Aphrodisiacs, and this is a way of talking about her website, which I know this is very lowbrow for us to go into this subject, but it's unbelievable. Her website called goop.com, which she sells extraordinary things on there. So she's-
+
+[00:33:20] Like what, Anna? And for how much? And if you're listening, this week's episode of No Self Things as a Fish is brought to you by Goop. For all your anal genital needs. So for this anal genital need, you can get sexbark, which is-
+
+[00:33:37] Sexbark. Yeah, sexbark. So a bit more of the worst than it's sexbikes. Yeah, it's like chocolate, except then you have to add something called Hushuwo to it, which is sex dust. And I don't- It doesn't really specify where you get that, but-
+
+[00:33:55] It sounds to me like she's just taking objects and putting the word sex in front of them. Has the sex cleaner been? Because there's still a lot of sex dust on top of the sex piano. But she also sells jade eggs. Do you know what these are? Are they made out of jade, the material?
+
+[00:34:14] I believe they are. They claim to be. They're also called yoni eggs, and they're advertised on goop.com, as one strictly guarded secret of Chinese concubines and royalty and antiquity, and they harness the power of energy, crystal healing, and a Kegel-like physical practice
+
+[00:34:29] so it's all very scientifically sound. And what you do is you put them into your vagina and you sit there with one in for a while, and it makes you feel better. It's strange that they didn't call them sex jade eggs, isn't it? Yeah. I guess you hadn't developed that particular marketing twist yet.
+
+[00:34:45] And then you have to pass them again, presumably. You pass them out again, yeah. Yeah, while clucking. Wow. That's- yeah, wow. That's- yeah, cool. That's only- I mean, if it's consenting adults.
+
+[00:35:01] Nothing criminal about it. No. Oh. Nope. Galen said that any food which made you flatulence was an aphrodisiac. Any warm, moist, and windy foods were ones that produced lust.
+
+[00:35:13] And did he do well with women? This is Tinder version. Looking for a guy who- Saffron can help you have a sustained erection, they found. Wow. There was a 2009 study in Iran, and the 20 male patients were given saffron for 10 days,
+
+[00:35:31] and they showed a statistically significant improvement in, apparently, their tip rigidity and tip chumessence, as well as base rigidity and base chumessence. But no word on the middle. Hang on, yeah. So it's a bit like, you know, the slinky dog in Toy Story? God, yeah. I was reading about an aphrodisiac.
+
+[00:35:57] This is the title of the story. Can a rare Hawaiian mushroom really give women a spontaneous orgasm? And this was a 15-year-old study. Not by- Let me start that again. May steadies continue into the rare mushroom. Is that your impersonation of a 15-year-old? What I sounded like.
+
+[00:36:17] Well, you were in some 41 when you were 15. That'd be the biggest podcast reveal ever. Andy's grunge past. This is a study that was done in 2001, and these two medical students published a report in the International Journal of Medicinal Mushrooms, and they did this study on 36 volunteers, both male and female.
+
+[00:36:47] And they found that this mushroom, this Hawaiian mushroom, was causing spontaneous orgasm in a bunch of the women, a part of the study group. And so everyone says it's not a big enough study group in order for that to be a truth. So it's a very dubious thing. And the article I was reading saying,
+
+[00:37:05] actually, no, it can't give you spontaneous orgasm. What I was wondering, though, was if we thought that it did, I wonder if there's a sort of placebo effect with it. Therefore, could you placebo an orgasm? Almost all aphrodisiacs, and things that are sold as aphrodisiacs, trade on the placebo effect. Do they? Oh, okay.
+
+[00:37:23] So oysters and all that. The actual evidence for them changing chemicals in your body to make you more interested in sex is pretty slim. Yeah, although they don't claim spontaneous orgasms to be fair, that's another... I think when you have an aphrodisiac, you also need to have some other sexual stimulation. You don't just eat 10 oysters and stand there going,
+
+[00:37:41] why haven't I orgasm? I don't know, darling. Keep trying and doing the crossword. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast...
+
+[00:38:06] Sorry, Mr. Galen, that was a bit sexual. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At Eggshapes. Andy. At Andrew Hunter M. And Czazinski.
+
+[00:38:24] You can email a podcast at qi.com. Yep, or you can go to our group account, which is at qipodcast or our website, no such thing as a fish.com. We'll be back again next week with another episode. We'll see you then. Goodbye.

@@ -1,0 +1,207 @@
+# No Such Thing As A Fish - No Such Thing As A Giant War Sausage
+
+- Episode date: March 15, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-giant-war-sausage
+- Slug: no-such-thing-as-a-giant-war-sausage
+
+## Transcript
+
+[00:00:00] Hi everyone. Before we start this week's show, we want to remind you that we're going on tour. We are, we are in fact currently on tour. We're mid-tour. We're playing the Hammersmith tonight, I think. As this goes out, we're backstage at the Hammersmith Apollo. We are indeed. And you're probably too late to catch that show, but you can definitely catch one of the others we're doing. So where are we going? We are going up to Newcastle, going to Salford, back down to Norwich, Birmingham, a number of other places. Edinburgh, Sheffield, Dublin, Brighton and Oxford. They're the other places.
+
+[00:00:27] In an unbelievable order in which we go from one part of the country to the other part with really no thought put into it whatsoever. Yep, that is why we have called our tour in no particular order. It's mainly about our travel arrangements. But it's a super fun show. So we have a first half that we've written where we each do a little bit full of interesting facts. And then the second half, we record a podcast. We always have such a good time and we'd love to see you there. And if you are from Europe, if you're from Gothenburg, Stockholm, Oslo, Amsterdam, Groningen, Geneva, Copenhagen or Antwerp,
+
+[00:00:56] Or indeed, one of a couple of very large cities in Northern Europe that we haven't announced yet. Indeed. Then you can also get tickets and you can get those by going to QI.com slash fish events. That is right. QI.com slash fish events to get tickets for any of those shows. Please do come along. We'd love to see you there. Okay.
+
+[00:01:13] On with the podcast. Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Aberdeen. The name is Dan Shriver. I am sitting here with Anna Chisinski, Andrew Hunter Murray, and James Harkin, and once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, Andy. My fact is that 15 years after it was invented, the US government banned sliced bread.
+
+[00:02:07] Why did they ban it? It was too good. No, it was 1943. It was a very bad time. actually, it was a famously bad time. It was a time of war. It's not an audio book. So it was done with machines, as it still is, sliced bread.
+
+[00:02:28] And the machines were very expensive. So if you didn't pre-slice it, it was a way to keep the prices of bread down because the US never had bread rationing, but lots of nations did. But the price had been going up everywhere, hadn't it, because of the war? Exactly, yeah.
+
+[00:02:41] And they needed to use the metal for airplanes and stuff. They need to use all the materials. Exactly. Yeah. The bread for missiles. Yeah. You know when you put it in your mouth and you lick it and it's like a little torpedo? Yeah.
+
+[00:02:56] Like that. Well. They know. They know. Okay. Well, bread torpedoes aside. It was serious. Like, you could be fined $1,000 if you used sliced bread or if you sold it.
+
+[00:03:12] So a baker could be fine. Yeah, not if you ate a sandwich. No. But couldn't you just slice it on your own? Yeah, yeah, yeah. You could. You were still allowed to slice it on your own. You didn't have to shove the whole loaf in your face.
+
+[00:03:25] Which is how would you... You know, what would you... It also happened in Britain, actually, in wartime. So I was looking at this, and it's not very well reported, but if you go into the old British newspaper archive and you type in sliced bread, the main things that come up are people being arrested throughout the UK for slicing bread, not at home, but in shops and stuff.
+
+[00:03:48] So it was from 1941, and I actually found an article from 1949, where it was still illegal. I think it was in Liverpool that someone was arrested for slicing bread still. Really? Wow. People were really annoyed, though. I mean, the band didn't last long. No, it lasted in America only, what, a year or maybe less than a year.
+
+[00:04:03] If that, a couple of months. When the law first came in in the newspapers, which were all written by men, they were complaining that housewives would not know how to cut bread. And so they were giving the best kind of ideas of how to cut bread that they could do, which was keep your head down, keep your eye on the loaf, and don't bear down, which is basically how to play golf. Oh! And then about two or three months later, when the band stopped,
+
+[00:04:29] the headline in the New York Times was sliced bread put back on sale, Housewives' thumbs safe again. The way that sliced bread was packaged back then was that they shove hatpins through the slicing. in order to keep them together. And that was actually how Housewives did that before he invented the machine as well. He'd chuck a hat pin in sliced bread and it doesn't fall apart.
+
+[00:04:51] Yeah, it came with instructions. Like an IKEA cabinet. Like you were given instructions for how to unwrap it, to take the pins out, remove your bread, stick the pin back in. Because the idea was
+
+[00:05:02] no one wanted slice bread because psychologically they were told that a loaf of slice bread would go stale much quicker. So he had to get around that. And also scientifically, it goes stale much quicker. But,
+
+[00:05:15] but, but, there's mostly a psychological thing. So it was, if slices fall apart from
+
+[00:05:20] each other, then you've got that exposed surface area that's going to be more vulnerable to staleness. Yes.
+
+[00:05:25] Yeah. Yep. So he was just telling them facts. And, um, and we love facts on this podcast.
+
+[00:05:31] So, um, some more bread laws. Yeah. So, um, until the 24th of September 2008,
+
+[00:05:39] it was illegal in the UK to sell a loaf of bread. which wasn't 400 grams or 800 grams in weight. Really? Yeah, and then the Europeans changed the law, and now we could have any kind of sliced bread we can have, we can have 500 grams or 600 grams or whatever we were. I can't wait until those days are over.
+
+[00:05:58] The paralysis of choice in the bakery aisle. Well, when this happened, Jonathan Warburton, who owns Warburton's bread, he said that now we can sell 600 gram bread, which we think will be fantastically popular. Okay. And I went on to a cardo and looked at the most popular breads that they sell. And they are 800 grams, 800 grams, 800 grams, 800 grams, 400 grams, 400 grams, 400 grams. But that's gluten-free, so it doesn't really count.
+
+[00:06:28] 800, 400, 400. It just goes on and on. And a 600-gram loaf is the 42nd most popular bread that they sell. I found another bread law, but a French bread law. So until 2015, bakers in Paris were not all allowed. to go on their summer holidays at the same time. So half of them had to stay open in July and half of them had to stay open in August
+
+[00:06:48] because lots of people go on their holidays. It's really big in France and especially Paris. And if you broke the rules, you were fined. Every single day you went on holiday when you weren't allowed to as a baker. Wow. 2017 that lasted until. That was really cool.
+
+[00:07:03] Do you know why mechanised bread making came into fashion? So sliced bread was all about getting machines involved in the bread process. And now I guess the artisan, hipsters of the world think that, you know, you want handmade bread and the slice stuff is, you know, it's rubbish. But the turn of the 20th century, it was terrible to be handmade because being a baker was so sweaty. So this is one of the main arguments was that if you were a baker, you sweated so much,
+
+[00:07:31] there was this woman called Eliza Acton who was arguing for mechanising and adding machines to the breadmaking process in the 1840s. and she was saying that the problem is that due to the muscular effort that the baker's body has to make, it's overflowing with perspiration, which falls in large drops and is amalgamated with the dough he is kneading and becomes a part of the load. They cut that out of Great British Bake-off, don't they?
+
+[00:07:58] But yeah, the first machine-made bread, as its main advertising slogans would say, untouched by human hands. The idea was that no human should get near it, it was just machines. France has an online baguette booking service. So you can buy... I suppose if anyone was going to have it France would. Exactly.
+
+[00:08:17] So it was started by a burgundy man who was annoyed because the shop kept... That wasn't the colour of him, was it? He was so angry. Yeah. He was annoyed because he... The shop kept not having any fresh bread when he got there because he got up very late. And he said, I have two passions in life.
+
+[00:08:36] Getting up late and fresh bread. And he read this poll, which said the result of the poll was that 92% of French people said they were terrified by the thought of not having fresh bread with a meal. So he set up a thing where you can just go online and reserve a baguette in your local boulangerie. Wow. And then you go and pick it up. Terrified, hey. And they didn't fare well in the war, I mean. So in Turkey and Egypt, if you made.
+
+[00:09:08] bread which was too light, so it wasn't like 400 grams or whatever it had to be, you could be punished by having your ear nailed to the doorpost of your shop. Oh! You'd have to try really hard to style that out, wouldn't you? Pretend to be leaning against the doorpost of your shop all day. Oh, morning, Mrs Jones, just having a lean. Just one more tiny thing, like another wartime ban for the same reason. Sausages were banned in Germany, which was a horrible moment, but this was in the first
+
+[00:09:38] World War and this was to make airships. So zeppelin's... Very tiny, tiny airships. They put little ants in them and they sent them to invade. No, it was the fact that it was the best kind of material to... So the sort of sheep's intestine that is needed to wrap sausages is the best kind of airtight material to make airships out of. And the zeppelin was going to be the great war weapon of the future. And sausages were banned because all of that cow intestine, sheep intestine,
+
+[00:10:08] had to go towards making airships. And they actually used to put that Kaiser's agents used to be sent to butchers across the land to guard them and make sure that all of their sausages were being sent to the MOD. Really? Yeah. But they weren't going in and sneakily buying sausages and then hustling them back to add to the giant war sausage. The giant war sausage that they were constructing. I don't know what they were doing.
+
+[00:10:31] It wasn't a giant war sausage they were firing at the enemy. Dispatch the giant war sausage. Okay, it is time for fact number two, and that is James. Okay, my fact this week is that a common problem for ice hockey players is that they have such mussely bums that they can't find jeans that fit. Why do they have such mussely bums? Well, because they're athletes done. But why do they specifically ice hockey players?
+
+[00:11:05] Is it that I guess they're just doing a lot of moving side to side? I'm not an ice hockey person myself, but I... You have to squat. You have to squat, guys. Oh, you have to... That's just good advice in life. You have to squat. Always squat.
+
+[00:11:19] Don't stand up straight. And they do lots of turns and stuff. And so it's their glutes and it's their quadriceps that get much bigger than the rest of their body. And this was an article in ESPN. And there was a guy from the Edmonton Oilers. The captain's called Connor McDavid. And he said, can it be hard for me to find pants?
+
+[00:11:36] Yes, always. The waist. you need to get around your thighs and butt, but that doesn't always match how tall you are. I definitely have a hard time finding jeans that fit. And they went through a whole load of hockey players and asked them all, and they all have exactly the same problem.
+
+[00:11:49] They can't get jeans that fit them. Wow. But they have, they have like personal tailors. There's a guy who looks after over 250 hockey players, goes around measuring their butts and then making... Sure, he does. And they never hear from him again.
+
+[00:12:07] There's a lot of. There's also a company, isn't there, called Lulu Lemon or Lululemon, if you're from the continent. And they market a line of trousers that are for hockey players for what's called the hockey butt. And they specifically design their pants for hockey players that they can play in them. Yeah, another company called Gong Show, they do the same thing. Just, you know, in case people think they were being advertised by Lulu, what do they call? Lululmon. Lululmonde.
+
+[00:12:36] Lulmonde. And gong shows they have like stretchy jeans, spandex in the jeans. And their biggest pair of jeans is called the quadrosaurus. Nice. Very good. You know, you can get stronger muscles just by thinking about doing exercise. Even if you do not tense your muscles. Wow.
+
+[00:12:55] So you have to just imagine. I'm thinking about squatting right now. Imagine contracting those muscles as vividly as you can. Really picture it. And the muscles don't get bigger. They don't grow larger, but they do get stronger. So you end up using more of the fibres in individual muscles just by thinking about it. So not actually just sitting and tensing where you are, but just imagining tensing.
+
+[00:13:21] The glutes are very important. And I think people think about the gluteus maximus as being the arse muscle that's the most important. But I've been reading a lot about the gluteus medius, which a lot of people say caused there's a vast majority of injuries for sports people. It's in the gluteus medius, which is in the gluteus medius, which is the muscle that's in the middle between the maximus and the minimus. And what that does is quite cool. That's what basically stops you from falling over as far as I can tell.
+
+[00:13:45] So when you take a step, I'd never thought about this, but when you lift up your leg to step forward, if you were a plastic doll, then as soon as that doll's leg lifts up, they just fall over. And the only reason you don't fall over it's because your gluteus medius is counterbalancing that. And so that's super important because otherwise you topple over. and there's a special thing that is called a Trendlenburg gate
+
+[00:14:09] and that shows that you've got a weak, gluteus, medius, and that's the supermodel walk. So that's, you know, when you walk and you overcompensate by kind of wiggling your hips a lot. I sure do. Yeah, well. But you don't know what I'm overcompensating for. I think everyone here knows.
+
+[00:14:30] So when you do that supermodal gate, that's to overcompensate for the fact that your gluteus medias is weak and so you have to lean your weight on the opposite side that's not lifting its leg up otherwise you'd fall over it's a very important muscle do you know um you soon they've been testing this out but soon we might become when so muscles if they get damaged often get replaced but the problem is you can't put new muscle in uh because the living cells don't quite react
+
+[00:14:57] so we might all soon be made up of onions because onions are being tested and seem to be, it's true. This is onion transplants. This is what they're talking about. So you can take, if you take the skin of an onion, or like a little bit of an onion, and you get rid of all the water, you dehydrate it, it acts very much like a muscle.
+
+[00:15:20] It contracts and it moves and so on, and they've been putting electrodes into it and seeing how it responds to basically being worked out, and it works perfectly like a muscle. So they're suggesting that what we should be doing in the future is implanting our muscles with onions instead and be more vegetable-based as humans. I'm so sorry, your husband's a vegetable.
+
+[00:15:43] Look inside, he's doing weights and he's lifting everything up. Did you know that we, most of us, have a claw retractor muscle? A what? A claw retractor. A claw retractor. A clorbitre might have. Yes, exactly. Does he retract his claws?
+
+[00:15:57] Yes, he's a wolf. Great. It's more of a hardened metalloskeleton implanted by the military. Okay. You got the reference too much. So the chlorotractor muscle officially called the Palmarus Longus
+
+[00:16:13] is something that about 85% of people still have. And you can tell whether or not you have it. And it's the muscle that now cats, for instance, use to attract their claws when they're pulling their claws and when they're not using them. It's very important for primates when they're climbing trees.
+
+[00:16:28] But we don't really use it anymore. And 15% of people are missing it. And the way you can tell is you can clench your fist or you touch your thumb against your fourth or fifth finger and sort of pull your hand inward towards your elbow. And if you can see the bits sticking up there
+
+[00:16:42] in this tendon in the wrist, in the inner wrist, that means you've got it. You've got it. About 15% of people don't have it. But the other 15% who don't have it more evolved because you don't need it. Exactly. So if you don't have it, well done.
+
+[00:16:56] Can't believe you're still using your palmire's longest. Yeah, you've got a huge one, I'm afraid. You're very backward. You've got seven. But I didn't know this. And some people have double ones. Like I've got a double one. Some people have just one long line, one long tendon.
+
+[00:17:09] And I didn't realize some people don't have that. There is a muscle which we've got, which is around your ear. And it's another leftover muscle. But if you can wiggle your ears, some people can do that. And if you're just shaking your head. I can't write up. I'm shaking my head because I can't do it. But does that mean I'm more or less evolved?
+
+[00:17:31] Don't tell me it's less evolved again. I think it means you're more involved, actually. Yes. Yeah. So if you can wiggle your ears, you have a limited amount of control over these muscles. But they're left over from a time, and this is many hundreds of thousands of years ago, when we could prick up our ears to locate the origin of a sound. Wow.
+
+[00:17:48] So there are muscles still there. And they still respond to sound today, but they're not strong enough to move your ear into position. But they are there still. Poor thing. So they're just sitting there saying, I can hear a noise, but they can't have any impact on your body. Yeah. That's tragic. I have a few facts on bums.
+
+[00:18:08] Yeah. Oh, great. Sorry, too enthusiastic. Someone's ears pricked up. A selenadon is a little shrew. It's found in Cuba and Hispaniola and around there, a Dominican Republic and stuff like that. Females give birth a three offspring,
+
+[00:18:29] but only two survive because she only has two nipples. and both nipples are on her bum. No way. So in the Selenodon world, if anyone asks, are you a bum man or a boob man? The answer is yes. Okay, it's time for fact number three,
+
+[00:18:46] and that is my fact. My fact this week is that when it was playing on Broadway, Bill Murray went to see the musical Groundhog Day. Then the next day, he went again. And then the next day, no. into it. But yeah, Bill Murray was seen twice. It really threw a lot of people because the paparazzi were like, Bill Murray's coming tonight. The cast and crew knew he was coming. And then
+
+[00:19:11] there he was again the next night. He went on the first night with the original writer of the show, which is called Danny Rubin. And he went with a friend of his, sorry, a relative, his brother. And then when he saw it, it was done in such a way. So the music and the lyrics are by Tim Minchin, who's a very deep thinker. And he basically saw what he wanted the movie to be. something that was steeped in philosophy, very different to the movie, which it turned out to be an all-out comedy, and he fell in love with it, and he loved it so much. He said, I've got to come back. So he went the second night on his own because he just wanted to experience it properly again. Really? Yeah, yeah. He didn't go with anyone. But he was erratic as hell. He was climbing over
+
+[00:19:49] audience members. He was tipping people thousands of dollars. He's, yeah. He does do that, doesn't it? Yeah. Yeah. He, like, to get to the bar, he climbed back over a bunch of seats rather than go the normal way. But he did, I think he cried at the end of the first performance because he was very moved by it. Or because he knew he was going to have to go back the next day and it was such a shit. I've got to see this joke through. I've been looking up, Broadway shows, which closed quickly. And there are some incredible ones that have opened. So there was the most famous... We should say the ground old day closed quite fast on Broadway, despite Bill Murray liking it, no one else did. And despite having a plot about something that runs forever and ever and ever.
+
+[00:20:30] irony. Yeah. So there was one in 1983, which was called Moose Murders, and it was meant to be a kind of farce and a funny show, and it lasted one night into its proper run. Although we are on the first night of our tour, so we can't criticise. But the writer was a guy called Arthur Bicknell, and the reviews included things like, if your name is Arthur Bicknell or anything like it, change it. And after one performance, the writer, Arthur Bicknell, he saw a woman on the street.
+
+[00:21:00] Shout to a New York cop. Officer, arrest that show. You know, another big Broadway disaster was they converted, they turned the novel and I think movie carry the Stephen King book into a musical. And it closed after five shows. It was said to be the most expensive flop in all of Broadway history. It was open in 1988, and the New York Times compared it to the Hindenburg disaster.
+
+[00:21:30] Yeah. Favorably or... It was just like a massive sausage burning up in the sky. Have you heard of what the sequel, kind of the sequel to Oliver? So after Lionel Bart wrote Oliver, exclamation mark, you know, the extremely thing... Was the next one, Oliver?
+
+[00:21:47] Question mark. It was twang with two exclamation marks. And it was a burlesque Robin Hood show. Wow. And he lost all his money on it. Oh, no. Did he? He lost all the money.
+
+[00:21:59] He'd gained. and earned through Oliver because it was such a flop. It's because Oliver, it's funny Lionel Bart, isn't it? Because Oliver's my favourite musical, my favourite thing, maybe. It's so good, but it does have an exclamation mark at the end of it, Oliver.
+
+[00:22:14] And you think, oh gosh, that's a bit tacky. I wonder why you did that. And I think he thought maybe the success was due to the exclamation mark. I'll try two next time. My problem with Oliver was no twist. It's like you didn't know what you were coming to. I wrote a really good article.
+
+[00:22:34] I was just looking into a Broadway and Broadway shows and what it's like. But in Broadway they have this weird practice. Americans sort of applaud more readily, maybe, than it's habitual here, especially tonight. It's too late now.
+
+[00:22:51] I'll also read an article complaining about this because they will applaud when a celebrity comes on stage and a lot of shows now have a famous person in them. So he said, for instance, Paul Rudd was in Paul Rudd who was in Friends
+
+[00:23:02] and who's a famous actor, was in a show recently and his opening scene was he had to shoot two characters dead but they have to pause for the audience applause so he walked on stage, shot a character and had to leave a massive pause while the audience all applauded before he could shoot his other character in this climactic scene
+
+[00:23:18] was the other guy running around looking for a way out of the room mourning his dead friend stage manager in the wings pushing him back on and director's actually started to try and circumvent this and so they started having lead actors for instance
+
+[00:23:34] speaking off stage, starting their lines off stage so that you're sort of in the scene before the audience applaud so they feel worse about applauding or sometimes they come on with a mask on more often now, the relief celebrities. In 2011 Ben Stiller was in a show called In the House of Blue Leaves and he was
+
+[00:23:50] positioned to start with his back to the audience so they wouldn't know so people couldn't gratuitously applause when they saw him but people recognized his silhouette from his back and started screaming and applauding and awarding him a standing ovation, according to Mark Lawson, before even turn around. So, yeah, different practice.
+
+[00:24:06] Can I pick you up on something you just said before? Did you say Paul Rudd from Friends? Paul Rudd, you know, who's in massive blockbusters like Ant Man, famous for Clueless, and you've, what was he in Friends? I think Friends is his big thing, isn't it? Paul Rudd? He was in more of Friends than those other things he did mention. Was he?
+
+[00:24:24] He was Phoebe's husband. We don't need to get into it now. In 2018, the first British performance of the show Titanic the Musical was stopped after the ship hit the iceberg and plaster started falling onto the stage. It was genuinely stopped due to a health and safety reason. That's so good. You know, before there was The Wizard of Oz movie, Baum wrote the musical of The Wizard of Oz for Broadway. So there were 60 songs to it, and it was very different to what we now know. Yes, 60 songs in this musical.
+
+[00:25:00] And in it, it's far too bad. The Wicked Witch of the West was not in it. Missing altogether, it took her out. Well, the character wasn't in it? Yeah, the character was taken away. There was a different villain. The cowardly lion was a very small role in it. And Toto was replaced with a cow called Imogen.
+
+[00:25:20] Okay, it is time for our final fact of the show, and that is Chazinski. My fact this week is that there is only. one confirmed male Yanxie giant soft-shelled turtle left in the world, and his penis is broken. This is actually a bit of a disaster. This guy's in China. There are four of these Yangtze soft-shelled turtles in the world. Two of them are in a zoo in China.
+
+[00:25:49] Two of them are in separate lakes in Vietnam. I think they're in strops with each other. They won't speak, so we don't know what sex they are. But in China, one's female, one's male, and they're obviously endangered because there are only four of them and they've been trying to make them for ages but they can't because his penis is damaged and it got damaged a while ago
+
+[00:26:07] so he's quite old, they live a very long time and almost 30 years ago he was introduced to a female turtle to mate with her so they could make the species continue and it turned out once he was introduced to her that her was a him and it was just another turtle and they fought a lot
+
+[00:26:25] because they were rivals and one of them died, the one that wasn't the one we're talking about, and the other one ended up with a ruined penis. And they've tried artificial insemination, and it has not worked. It's very sad. That is disastrous. I know. It's a problem for the Yanksi's soft-should turtles.
+
+[00:26:42] Yeah. And he's very old, isn't he? He's like 100 years old. Yeah, I think he is. They certainly do grow to be 100, maybe 120 max. Yeah. So what are they doing? Are they going to...
+
+[00:26:54] Well, so they've tried artificial insemination. three times, I think. So they've got this female in the zoo with him, and it's very complex artificially insominating them because the genitalia are quite difficult for both of these turtles. So the males, according to the New York Times, it looks a bit like a medieval weapon with fleshy spikes and lobes poking out of it,
+
+[00:27:14] and it's designed to perfectly navigate like Thetius and the Minotaur. Thesis is the penis, and the labyrinth is the vagina. Sorry, what's the Minotaur? The Minotaur, I think, is the egg. Who's the princess who sent Theseus at... The end. This has broken down remarkably first.
+
+[00:27:32] It's a zookeeper. My mental's run out. But their genitals are very difficult. So artificial insemination has been really hard and unsuccessful. Yeah, Scientific Americans said of the turtle penis that it has this weird configuration of sinuses and associated folds. It says some of the configurations look terrifying. Others look really terrifying.
+
+[00:27:56] They're so cool, soft shell turtles. Oh, yeah. They look like a turtle that's been run over, don't they? Yeah, they've got this sort of pancake on their back. And it's leathery skin. It's not a hard shell, so hence the name. And they can breathe partially through their soft shell. And they hibernate in pools of water, and they're kind of half buried.
+
+[00:28:19] And we didn't know how they got enough to... We didn't know how they got enough oxygen under the water. And it turns out that how they do it, They do press-ups under the water. What? Yeah. So they're partially buried, but they do press-ups with their back-end. They raise and lower their back-end thousands of times in a row.
+
+[00:28:35] And we think it's because it moves the water around. So it replaces the water next to them, which they've already breathed in and out of through, with oxygenated water. Wow. So they can get a bit more oxygen in. That's incredible. So they're just lying at the bottom of rivers doing press-ups all the time. That's so cool.
+
+[00:28:50] You were asking Dan about what they're going to do in the future. The truth is the two turtles that live in. in the lakes, they're not really sure if they're male or female. In fact, one of them, they only got it from DNA collected from water samples. So they kind of, they took the DNA out of it and realized that there must be a turtle living in there, but they just don't know anything about it at all. And actually, it's really hard to tell whether a soft-shell turtle is male or female, because for the males, the penis is hidden inside the shell.
+
+[00:29:18] The best way to find them is to give them a vibrator. This is genuinely the best way to sex a tortoise. If you were to get a vibrator on a tortoise, and you kind of go in circles around its belly, and then you move it down towards the tail, 100% of the time he will either send out his penis or he'll be a female and not send out the penis. Send it out. It's not an ambassador. You, I have a mission for you. Be back within the month.
+
+[00:29:53] Explore the source of this erotic massage. Yeah, this is a relatively new invention, isn't it? I think a guy called Donald McKnight, who's a PhD candidate in Australia, invented a vibrator for these giants of self. Four turtles, specifically four turtles. Four turtles, absolutely. And he said that the difficult thing about them
+
+[00:30:13] is they demand foreplay, apparently. He said, ultimately, most erections happened when the vibrator was on the tail itself, but the turtles generally won't let you start there. You first have to spend a few minutes on other parts of the body. Yeah. Ask it how it's days be.
+
+[00:30:28] He also said, we weren't doing this because we thought it would be fun. They weren't doing that. No, they weren't. It feels like he was protesting a bit too hard. And then he said, like I said, it was successful 100% of the time. And he added, one of them was showing his penis in like four seconds. There's another really cool thing that turtles have, sort of ability they have. So these are snapping turtles, common snapping turtles.
+
+[00:30:53] They live in mud holes in the winter. and they go back to exactly the same mud hole every year and they've measured it and it's to the centimeter to the centimeter every single year they get back and scientists tested this by giving them a drug called scopolamine which prevents the brain from forming memories and they observed that the turtles just wandered around in circles not finding their way back which seems very cruel
+
+[00:31:14] but then it wore off and they just go straight back to the path and then they land right to the centimeter in their thing. That's amazing. Yeah but I found out a thing off the back of this. scopolamine is a drug that works on humans as well it's a very powerful knocks out your memory basically so there was a campaign in the 1910s by feminists at the time
+
+[00:31:35] for the right to forget childbirth by taking this drug they said we do not want to remember it and so if you take it you would basically wake up with a baby after 12 hours and that was it we'll be offering this drug on the way out tonight by the way As traumatic as childbirth.
+
+[00:31:57] Yeah, and people travelled from all over Europe and from America, specifically to Germany, because that was where you could get it, you know, without a big prescription or a big kerfuffle. And there was an association called the Twilight Sleep Association who campaigned to get it universally accepted. No way. People always sort of claim that childbirth there's some sort of hormone release that means you forget it anyway
+
+[00:32:17] because it's so rubbish. but I don't know if that's true because I haven't done it or have I I I don't know on animal penises did you know that
+
+[00:32:37] alligator penises are always erect and they are I think the only animal that has a permanently erect penis which is quite interesting I think so
+
+[00:32:47] And they're also the only animal that has a penis that doesn't inflate or enlarge when it's aroused. So every other animal has, you know, its penis inflates or enlarges. But the alligator penis sits inside its body. It's just this lump of protein, basically. And it's free floating. And it sits in this sort of cradle, which is its cloaca, which if you think of it like a hammock, which the penis is in. And then when it needs to procreate, then it just fires it out.
+
+[00:33:16] so the hammock tenses up and it fires this out like a projectile. Dispatch the love sausage. Exactly. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts.
+
+[00:33:37] I'm on at Schreiberland. Andy. At Andrew Hunter M. James. James Harkin. And Chazinski. You can email podcast at QI.com. Yep.
+
+[00:33:45] Or you can go to our group account. which is at No Such Thing, or you can go to our website, no such thing as a fish.com, where we have all of our previous episodes. We have links to the tour that we're currently on. We'll see you again next week. Goodbye.

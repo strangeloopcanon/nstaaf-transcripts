@@ -1,0 +1,225 @@
+# No Such Thing As A Fish - No Such Thing As A Pokemon-Playing Goldfish
+
+- Episode date: February 20, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-pokemon-playing-goldfish
+- Slug: no-such-thing-as-a-pokemon-playing-goldfish
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting with James Harkin, Andy Murray, Anne Miller, and a special guest today. It's Victoria Corin Mitchell, who joins us because our three elves have been on Only Connect, battling it out in the big competition. They've got their quarterfinal match coming up this Monday, the 23rd of. February. And so we thought we'd get Victoria into... To reveal how little she knows. The elves possible exit from the series. I understand. Don't worry. It cuts both ways. You can laugh at what I don't know.
+
+[00:00:46] Yeah. Okay. So once again, we have gathered around with our four favorite facts from the last seven days. And in no particular order, here we go, starting with Victoria. My fact is that the actor Charles Hortry hoarded bedsteads in his house, thinking that one day he would make his fortune from them. That's so good. So, okay, Charles Hortri, massive British comedy actor, Carry-on films, that was a big thing for him.
+
+[00:01:12] Charles Hortier was particularly known for the Carry-on films. I don't know if he ever did anything else. He had a very particular acting style. Let's just say it was good news for him that the carry-on films came along. Even though he was wonderful, an extremely talented, very funny man, I don't know if people clamoured to see his Hamlet.
+
+[00:01:30] He and Clint Eastwood weren't vying. the same roles But if people have seen the carolmphal, yes, he's the sort of slender camp fellow in the glasses. Yeah. I wonder if he thought they, were they really expensive bedpoles, do we think? Or what?
+
+[00:01:45] How the collection started, I don't know. I mean, I like to think maybe he one day accidentally bought two bedsets when he used one, I might as well start a collection now. And he's come up with that. He, I mean, he did like a drink. That is a thing that's known about Charles Hortrie.
+
+[00:02:01] He did. So it's possible that the original. bedstead hoarding fortune wees was hatched in a moment of not entire, so bright, that's a possibility. But you sober up at some point, don't you? Well, I don't know if he did ever. No, but probably he's sobered up, thought, what am I doing with all these?
+
+[00:02:18] I better have a drink and work out how I'm going to get rid of them all, and then he gets drunken, and I think, this is fantastic, look at this collection, I need more. Maybe that's what it was. Or it's a brilliant idea. So I've got some money, I'll buy a drink. No, I'll buy a bedstead. It's an investment for the future, and I can look at it in my house. Maybe that was like, every time I want to have a drink.
+
+[00:02:31] I won't. I'll buy a bedstead. That was his AA meeting plan. It was a long time ago. Step three. You were supposed to be quite miserly, wasn't he? Charles Hortry, I read. Apparently, he brought sacks of carrots from Yorkshire to Kent because they were cheaper
+
+[00:02:44] to buy in Yorkshire. And then he would bring them all down south. Not to sell. This was for his own personal use. Just for his own, yeah, to eat. And also he kept his money in the Royal Bank of Scotland because he thought that Scots were more likely to look after his cash carefully. Wow.
+
+[00:02:57] Well, had he lived a little longer, he would have been thoroughly disablished to that notion. It's quite a good Misaliness though Misaliness is quite a good vice There's something quite sweet and old-fashioned Funny about it Of the things that can be wrong with people I read a sentence about Charles Hortnery
+
+[00:03:16] Which I like so much So the first half isn't fun But it picks up a lot From there he spiralled into reclusion And paranoid fantasies Buying a cottage on the South Coast And filling it with brass bedsteads And rent boys
+
+[00:03:27] One of whom burnt it down after Hortary wanted to pay by check. You see, now that's where a brass bedsteads are a better investment than, for example, first folios of Shakespeare. Because if a rent boy is going to burn your house. And an act of payment revenge, it's the bedsteads that are going to come out on skates.
+
+[00:03:48] You're right. It's just going to be ashes everywhere and hundreds of beds. You're leaving in the remains, the bedstead. His checkbook stub must have been amazing because you have a little stub, don't you, to write what you've been spending the money on, so you know. So it just went bedstead, bedstead, red-bying.
+
+[00:04:04] He was quite macho, though, Charles. There's nothing I read about him. I don't know very much about him at all. I was just a big fan of him in the films, but that he used to get drunk and play cards on set. And that does make you think of sort of Oliver Reed or Robert Mitchum or something. We think of like a drunken gambling card playing actor. You don't think of Charles Hortry,
+
+[00:04:23] you think of him sort of sorting out his kind of butterfly connection. But no, so I wonder if the, you know, His carry-on persona was just completely fabricated. Yeah, yeah. Okay, some stuff on collections and things like that. There's a guy called Chevalier Jackson who collects things that he retrieves from people's throats. Is he a surgeon? Actually, he's dead now.
+
+[00:04:45] He's an old surgeon. So he has nails and bolts and binoculars and a medallion that says, carry me for good luck. Sorry, binoculars? Yeah, like miniature. Oh, okay. They'd have to be many, wasn't they? Why have you all got
+
+[00:04:59] Oh, miniature? Oh, yes. We're like, that you're always swallowing. Actually, I've never seen a set of binoculars so small that I thought of myself, I could swallow that. I think you get ones that you can fold up as well, can you. Yes. I don't know.
+
+[00:05:15] Fold up and tuck in your cheek. What was the thing about cheeks and hamsters that you found out? Oh, so they x-rayed a hamster while I was eating. So they stuffed their fruit into these pouches. Their pouches go all the way back to their hips. What? shove it and they just shove it and shove it in the hamster pouch goes all the way back to their hips
+
+[00:05:32] yeah that's extraordinary like where their legs are yeah that's where I assume they'd be but I'm I think the whole mothers have hip bones I would say yeah whales have hit bones which I'm not sure if we mentioned on this no I don't think we have
+
+[00:05:47] Wales have got hit bones and also sometimes they'll grow legs like a kind of a vestigeal leg from the side of the body is it was it whales who yeah so we knew they came on land at some point I didn't like it, went back to the sea. Yeah. I still can't get my head around that.
+
+[00:06:02] And then we're like, nah. So this guy's Chevalier Jackson. He says that parents who feed peanuts to children without molars should be hung, drawn and quartered. He's very, you know, very serious about not putting things down children's throats, basically. He says people should chew their milk by which he means. Yeah, you put it in your mouth and you swish it around so saliva can get around it and then you could drink it. Do you, do many people? Well, I suppose he would know.
+
+[00:06:29] Would people... No, you wouldn't choke on milk, I don't think. If it's off milk, you might. Yeah. He refused to cheer on his football team as he thought it would damage his larynx. And he only ever at postage stamp size sandwiches for lunch. How many did he have? Why did they have?
+
+[00:06:45] Well, they're huge stamps that he had. Novelty. The commemorative one. There's a tiny slice of bread with a single lettuce leaf in between. There's another guy, a librarian called Graham Barker. He has... the world record for collecting belly button fluff. How hotly contested is this record?
+
+[00:07:04] I don't imagine there are many submissions every year. Well, it's true. Does he turn up and defend his title? Well, he's been doing it for 26 years, so if you want to start now, it'll be a long time before you catch up. Is it all his own? It's all his own, yeah. Because, I mean, I reckon you could beat the record pretty quickly with a door-to-door-to-door round. Yeah, you could do a kick-starter for it, couldn't we?
+
+[00:07:24] So this guy, Graham Barker, who says he is not obsessey. obsessive, vows to continue until he is no longer capable. He says he harvests it every night and places it in a clay pot. Harvests. Because normally harvests provide nice things like grain. He has an annual harvest festival. People sing celebratory songs. I think probably the new thing to collect is data about yourself.
+
+[00:07:55] It's a huge trend, isn't it? people have charts. You know, you can wear smart watches and things that measure your blood flow and your energy and your calories and your expenditure. Your steps. Yeah, your steps, everything can be just laid out so neatly. It's hard to imagine anyone wanting to buy that off you in the future, though. Google. Yeah.
+
+[00:08:14] But maybe that'll be instead of the collected letters, it'll be the collected glucose expenditure of PG Woodhouse or whatever that we'll see in shops. Do you have the last thing Charles Autry did? No. Oh, yeah. He threw a. He threw a vase at his nurse who asked for an autograph. That was his last act. Yeah, but if he's dying, you shouldn't really bother a pro man.
+
+[00:08:34] I mean, she said it was an autograph. It was an autograph on the bottom of a piece of paper that said, I leave my nurse everything. Okay, time for fact number two. That is James. Okay, my fact this week is that in 1937, you could visit Romford Dog Track and watch Cheaters Racing. You don't mean people who've been taking dope. No.
+
+[00:08:57] Okay, cool. No, and this was a guy, an explorer called Kenneth Gandar Dower, who brought a dozen cheetahs from Kenya to the UK so that they could watch them race and bet on the outcome. Surely it's difficult to get a cheater to chase an electric rabbit? Yeah, that was a problem, actually. They did find that was the problem. I mean, the thing would be to release...
+
+[00:09:16] Pray. Yes, I mean, that would be amazing. Yeah, that was a problem. Basically, they weren't really interested in racing, and so it only happened twice, and they just gave it up. Wow. The amazing thing about this fact, which you told me, was that it was at this point that they realized greyhounds weren't the fastest animals in the world.
+
+[00:09:31] Yeah, until that it was thought in Britain at least that greyhounds were the fastest but they brought their cheetahs in and they just shaved so much time off their records that they realized that their cheaters were fast. Well, the cheetahs, they could hit 68 miles an hour. Sorry, 65 miles an hour and 43 for the greyhounds. I think they can go up to about 100 kilometres an hour. Right. It was often thought that that was impossible and maybe it was a myth because it was only one ever study there.
+
+[00:09:58] ever proved that. But then they've started putting tracking devices on collars on cheaters in the wild, and they found that it is true after all. Oh, they were saying as well, and I don't understand this, but they're saying that cheetahs, when they accelerate, they change gears, like a car changing gears as they're running. They suddenly just, yeah, yeah, they go into a different stride, a different gate. And, yeah.
+
+[00:10:17] I just love that. They change gears mid-brillian. It's kind of like a horse, like walking, was it walking in a trots, then it gallops and counters. But so they were saying with greyhounds, it's what they do is they then change. the number of steps that they take as they're running and that picks up the speed whereas greyhounds take exactly the same number of steps
+
+[00:10:35] no matter how fast they're going so the feet just get like crazy fast they don't understand like a cartoon yeah yeah exactly but that sounds incredibly glamorous and I've been to a few dog tracks it's not a glamorous nightout and the cheaters though yeah that is quite James Bond
+
+[00:10:50] sounds very vagus it is this this guy Kenneth Gandhar Dada Dau was quite glamorous himself he once brought a male cheater on a leash into Queens Club. Whatever Queens Club is, I don't know what that is. Not the tennis club? Oh yeah, probably is.
+
+[00:11:05] Yeah, yeah. And it was rubbish. It didn't return a single serve. It was very fast, but when it got to the ball, it killed three ball boys. The other thing is that they couldn't negotiate tight bends. The cheaters, apparently, like greyhounds can. I read that they just cut the corners. Yeah, ironically, making them cheaters in the race.
+
+[00:11:26] And they were marketed as Cats v. dogs, which is such a great idea. Were they racing against greyhounds? Yeah, sometimes. Oh, why didn't you? They were racing as each other? You have five greyhounds and then one cheetah. And so the greyhounds, I think, all chased after the hair. And the cheetah did it a couple of times, but then it quickly realised this is a mechanical hair.
+
+[00:11:46] Yeah. There's nothing enough of what happened. With the greyhounds not freaking out? That there was a cheetah next to them. On the track, it would be petrifying. But what happened, the cheater would often kind of just stay at the back and be like, oh, I'm not really bothered. And then something would catch its eye.
+
+[00:11:58] and then it would speed up and then go miles faster than the greyhounds. So it'd be like a proper underdog victory, you know, like in a movie. Right. It would be right at the back. This would be the move if you were having this bet. If you knew that a race was going to be, you know, five dogs and a cheater, the thing to do is in the car on the way, to have a friendly bet with the person you're saying,
+
+[00:12:18] listen, I'm going to take trap seven. I love it. I just, I want to trap seven. And you have the last, the person would be all right, because obviously they've got, if they've got six spots and you've got one, You're in great stress. You'd have the bet. And then when you got there, and they saw it was a cheater, they'd feel tricked.
+
+[00:12:33] And then you'd sell the bet back to them for a huge sum. Oh, yeah. And then the dogs would all race off, and the cheetah would go, well, I can't be bothered with it. I mean, that's a win-win. It's what they call going all green. You're betting and laying at the same time. So every outcome is successful for you. You could definitely negotiate a position where you're winning whatever,
+
+[00:12:50] just because you know there's a cheater in the race. This is that thing about winning both weird. I read about this guy called Brian Zembeck, who bet his friend. Brian Zembek. He bet his pal $100,000 that he would get breast implants for a year. And he did it. But he still has them. This was about eight years ago.
+
+[00:13:06] But this was the moronic thing about Brom. This is what I want to say to Brian Zembeck's friend. This is exactly the kind of proposition bet you have to never take. Prop bets, which is, you know, on certain sort of outcomes that might be under a person's control. You can take a weight loss bet, you know, certain sort of thing. Whether or not someone will get breast implants, he just will get them. You bet him and I won't do that. I think this is a ridiculous.
+
+[00:13:31] Because I think what happened here basically is they've paid him to do it, haven't they? Because like you say, if you give him enough money, he will do it. And they've just found the price that you do it. Well, you have a lot of that, yes. I want a better guy. But it's not really a bet. James Dempsey, flushy, they call him. It's a very good poker player.
+
+[00:13:46] But I had, as it were, a bet with him that he wouldn't turn up to the World Series of poker wearing an outfit that I'd selected for him from the mall. And he accepted the bet. But things we both knew, I knew, I can't remember what we bet, $500 maybe, I knew he would wear anything for the money. And he knew that I was happy to pay $5,500 to see him walk into the room dressed in, you know, I just had a fantastic afternoon going around the wall. Where is he? Terrible sort of glittering hats. And I didn't go for something really outlandish, like, you know, a costume.
+
+[00:14:15] I went for something that would make him look like a real tosser to another. So I think it was like a T-shirt with a straight flush on it. and that sort of Vegas tourist hat. But he also had to factor in, you know, it's a $10,000 tournament. And he needs to have the sort of peace of mind to sit down dressed like that and have everyone think he's a real idiot and play anyway. But that's a different because there's profits.
+
+[00:14:40] You know, the famous one, the ones are always great, are the sort of the trickster gamblers, like Titanic Thompson and, you know, Amarillo Slim, and people who tricked people into bets that weren't really what they sounded like. So the famous, for example, For example, Titanic Thompson once, you know, he bet with a guy there was a watermelon truck was going past. And he bet how many, oh, I reckon there's, you know, 40 watermelons on that truck.
+
+[00:15:03] The other guy said, you know, 100. But of course, Thompson had paid the man to drive past at that moment with the watermelons on the truck. Or Amarillo Slim had a lot of them. He had a bet once, you know, he bet a golfer that he could hit a golf ball further than him. And the guy, he never met this person. He was like, what kind of idiot is this, and he bet? And Slim said, you know, I'm choosing the golf course, that's fine. And, you know, but they chose their own course.
+
+[00:15:28] So the golfer picked his favourite course. He hit the ball. And then they went to Slim's choice, and it was a frozen lake. So he hit the ball, and it sort of skittled from miles, miles, miles, miles. And that kind of thing is that that's rather beautiful. Yeah. You know, someone's just been done. They haven't looked at the small print.
+
+[00:15:43] Yeah. Okay, that's enough facts. Let's have an advert. All right. This is to remind you that today's installment of no such thing as a fish is sponsored by Squarespace. The website building website builder that makes it very easy to build a website. They have beautiful templates, 24-7 support and e-commerce, which means your work will speak for itself. So you can give your story a voice at Squarespace.com.
+
+[00:16:06] And if you use the offer code fish, you will save 10% off your order. 10%? 10%? 10% of people are left-handed, give or take. Oh, yeah. That's about right, yeah. Well, on with the show, eh? on that bombshell
+
+[00:16:23] Okay Time for fact number three And that is Anne Yep In 2010 the US military built a supercomputer As of 1,760 PlayStation 3s Wow How's that even possible
+
+[00:16:36] It's not okay It's not possible anymore They basically got really lucky So basically Sony did an upgrade So you can't mess with PlayStations anymore They got really lucky Sorry They got really lucky
+
+[00:16:45] What were they They bought the PlayStation They're like I'm just gonna do it And we'll see what happens There's no method to this. It was a land party that got out of hand. So basically, they wanted to build the supercomputer, and at the time,
+
+[00:16:58] PlayStation 3s cost $400, but the equivalent computing power would be $10,000 each, and they needed, obviously, $1,760, it's quite a lot. So they got all these PlayStation's, wired them up together, and they hacked them. So they're all joined together, and they're running off Linux, which is rather than running on PlayStation games. And then, yeah, it's using the US military,
+
+[00:17:14] they're using it to track stuff. I mean, it definitely was either that or someone said to that department, I see you've ordered 1700 PlayStation 3 Supercomputer? I went yeah no yeah that's because we're making a super computer. They had to do it.
+
+[00:17:30] Would it be brilliant? But when they did it it was the 30 third biggest computer in the world when they completed it. Really? Wow. I saw a list of the 500 fastest supercomputers in the world and the number one is called Tiana 2. It's in China and that means Milky Way
+
+[00:17:46] because it can do as many calculations per second as there are stars in the Milky Way. But the interesting thing I thought is it's been number one for four years. It's a lot faster than one below it as well. Yeah. But you would kind of think that because of Mars law or whatever, that it would,
+
+[00:18:02] they would get faster and faster, but this one's been number one for all that time. The other thing I love about that list is that a lot of supercomputers sound like they belong on gladiators. So there's like, I went down and so there's Titan, Vulcan, Lightning, Falcon, Shadow, Crystal, MacMan, Maverick, and Supercomputer System for a Statistical Science,
+
+[00:18:18] I. He was a great gladiator. I wouldn't hear a word said against him. Also, the 192nd most powerful supercomputer is called Gordon. Good. It's a good solid name. The famous one's Watson, isn't it? Who won Jeopardy a few years ago, if you remember that.
+
+[00:18:34] He obviously doesn't do that anymore. And so he's now making, he's working as a chef coming up with new dishes. So he takes all of the different dishes and all of different ingredients, and he mixes them up and supposedly uses his intelligence to make new dishes. I bet they're awful. Terrible. And how does that differ from a seven-year-old?
+
+[00:18:57] Well, it differs in that it can't do it very well. And a seven-year-old probably can. There was an article, a new scientist, and they tried to get some of the dishes they had. One of them, a crem fresh, had been replaced by a glass of milk. And another one, the tuna bake, had replaced a tuna with a kilo of goose meat. Oh, wow. No one ever wants even a small amount of goose meat.
+
+[00:19:19] meet these days. I was watching Watson's actually appearance in jeopardy and everyone's like he makes a gaff two minutes in because Watson repeats the same answer someone else's already given. I was like, but we're still being beaten by a machine. I would let that one slide.
+
+[00:19:32] Yeah, and they can presumably computers can make a limited number of gaffes at the moment. They can't be involved in a race scandal and they can't. That's one we'll know we'll have artificial intelligence is when the first computer is forced to resign over an indiscreet late night tweet. Yeah.
+
+[00:19:48] Yeah. I started looking into PlayStation. So, okay, here's a really odd thing I found out. Grand Theft Auto. I don't know if you guys know that. It's made in Dundee. Yeah. Is it?
+
+[00:19:58] Okay, so Grand Theft Auto 5, officially, so far, just up until this point now, is the most successful franchise ever. Think of anything. What? Harry Potter. Grand Theft Auto 5, when they released it, on opening 24 hours,
+
+[00:20:14] it sold 500 million copies. What? 500 million pounds. worth of copies. Yeah, yeah, not 500 million copies. I'll be one person in 12. Yeah, yeah. Everyone in the world. In 24 hours and that makes it officially the biggest franchise. I saw something great yesterday. You know Playmobile, these little plastic toys. The fastest selling Playmobile of all time came out last week and it was a Martin Luther, Playmobile tie. Martin Luther? Yeah. Oh, wait, no. Martin Luther, they're not the extreme Protestant.
+
+[00:20:46] That's the one, yeah. It was released to mark the 500th anniversary of the publication of 95 Theses on the Power and Ephastasy of Indulgencies, and they sold 34,000 in 72 hours. I've got six, yeah. I love them. Why is Pleimobile? Doing a celebratory Martin Luther centenary doll?
+
+[00:21:10] I mean, do they do a lot of historical dolls? Or just someone there absolutely bloody loves it. The new chief executives are a massive. fan of Mars and Louca. I like the new farm yard range, but... I'm going to make a million plastic Tyndall Bible translation. And it's worked. It's amazing. I know. I saw it amazing. There's a movie shop around the corner in Covent Garden, and they have all the kind of, you know, just classic movie merchandise and toys, a lot of action figures. And there's an Apollo 13 toy there. And Apollo 13 is my favorite
+
+[00:21:40] movie. And it's a car that appears in the movie. I thought, who the hell is buying the car? Apollo 13, the one with Tom Hanks goes to space. Yes. Is your favourite film. Yes. Of all the films that were ever made. Wait, wait a minute. Don't ask him for his top five because it gets worse.
+
+[00:21:58] I thought your favourite was grown-ups two. Grown-ups too. Mean girls. No, Apollo 13, because I love the story. I just think it's the greatest story. But your favourite ever? I remember Apollo once coming out about the greatest albums of all time. And number two was the White album from the Beatles.
+
+[00:22:14] And number one was Stars by Simper. Simply Red. And it made me think when people vote in these things. You literally have just written down the last album you bought, haven't you? Yeah. A quick question, though. When's the last time you heard Star is by Simply Red? Because that's a fantastic album. My favourite album is just a recording of Martin Luther. Play it every day. It is, it is, maybe they've looked at Lego with the Playmobile thing. And they've thought, because Lego have diversified so much into robots and all these histories. You can buy a Lego UN building where you can just sort of have meetings in it.
+
+[00:22:44] That's brilliant. In the 50s, there was a Barbie who came with a book which said don't eat on the cover. No. Seriously, yeah. I think it was a dieting Barbie or it was a model Barbie. Okay. Supercomputers. Supercomputers.
+
+[00:23:00] The world's fastest supercomputer, who I mentioned earlier, uses 99% of its volume to... To cool? To keep it cool. Correct. I did just go to the Museum of Computing, so I. Oh, yes. Is that where you found this fact? Yeah, I went to the National Museum of Computing in Bletchley last weekend.
+
+[00:23:15] And it was so, so incredible. If everyone's free, it's half an hour out of London, it's amazing. And they've got Colossus, which actually runs. They let it run and we watched it go. They've got, which is all this computer that you could see being programmed. So as it does, it functions. You see all the different bits lighting up and making whirring noises. They've got this amazing, like, computer memory from the 60s.
+
+[00:23:34] It's like whole crates of memory, and it's worth, like, 20 bytes. Wow. And it's just, yeah, so it was amazing. I always think it's a bit sad the way the first great thing invented in some field is so rubbish. I think it's sad. It's like seeing very old buildings which were the absolute,
+
+[00:23:51] you know, they were the best thing in defence 500 years ago. It's something you look back to your first boyfriend, isn't it? And you think it. At the time, that seemed so exciting. That was like someone to send me a Valentine's card and you go, wow, but then you look at the later upgrades. Yeah.
+
+[00:24:03] Yeah. We had Buzz Aldrin on Museum of Curiosity and there was this amazing moment where we gave him one of those singing birthday cards and he was, you know, it was a Wallace and Gromit one. He just opened it. And the point that we had for him to hold this and open it
+
+[00:24:16] was that there was more computing power in that card than there was in the lunar module. You're just trying to make him feel bad about himself. Well, yeah, he was pretty pissed off with that. He threw the card onto the table. He went, can this card land on the moon? Okay, sorry. I mean, it can.
+
+[00:24:34] You just have to put it in a bit of it. And it can not to make him feel worse, but once it can. My other favorite video game fat is that in a 24, 14, a goldfish played Pokemon. What? I'm totally going to try out the office, Goldfish. I don't know what that sentence means. So, Pokemon's a video game where you, do you remember Pokemon like in the 90s?
+
+[00:24:52] A little monsters. The golfish didn't play it. No, no, it did. It did. I think it knew what it was doing. They put it in a tank, and it had a web count. If it swam left, the character went left. If it went right, the character went right.
+
+[00:25:03] And apparently after the first few hours, it was reported the goldfish had chosen his first Pokemon, a Charmander. He'd named it A, A, A, A, A, B, B, and won a fight against a squirtle. It was. playing Pokemon. Maybe it knew. It was swimming about. But it's not got any hands.
+
+[00:25:17] It would need some sort of motion detection. That's probably right. Inside its head, it was going, damn my lack of hands. I would have chosen a better name. An A-A-B-B-B-K. My name is Terence. I crave Pokemon. Okay, time for our final fact.
+
+[00:25:34] And that is Andy. My fact is that in 1552, a man in England managed to shoot himself to death with a bow and arrow, which I think is a Darwin Award. before the fact. How on earth is that even possible? Well, his name was Perth, Henry Pert, and he was a gentleman. He lived in Nottinghamshire, and he was trying to fire an arrow straight up in the air. History doesn't record why, unfortunately, but he drew the bow to its full extent, and then the arrow lodged. And while he was leaning over to look, it managed to unlogge itself,
+
+[00:26:07] and he died the next day, unfortunately, for him. The next day. I mean, he didn't, yeah. He'd an arrow in his head for a few four hours. Yeah, but I just, it's quite an achievement, because obviously with handguns, you know, accidents happen. But with a bow and arrow, you have to be doing it quite badly wrong to kill yourself that way. Yeah. Yeah. But that's the thing. Coroners in the Middle Ages have recorded 56 accidental deaths from people at archery who were standing too close to the targets or who just went and collected arrows at the wrong time, which had already been fired.
+
+[00:26:37] I think it's a bit unfair to say that the people were standing too close to the time. It's more the guy who shot didn't hit the target, really. Yeah, I mean, it depends how bad the archer was. You're right. You remember the Olympics? There was an archer who was, like, a very famous celebrity, Gina Davis. Gina Davis from Thelma and Louise? Yeah, she didn't quite make it into the Olympic team.
+
+[00:26:58] She placed 24th out of 300 people competing. I mean, that's, you know, I didn't quite make it onto the Olympics team. Do you know, I think if there's a linking theme to this episode, It's the sort of tragedy of the transients of an actor's life. I mean, you've got Charles Hortry hoarding the bedsteads, Gina Davis desperately trying and failing to make the Olympic archery team. Even the supercomputer is branched out into cookery. Yeah, that's true.
+
+[00:27:24] You do realize this isn't only connect. We're not looking for a link between all. He desperately even saying they're going, what the hell is going? I have run to the fourth thing. I want to go next. It's still one point available. So some mortality things. There was a Greek philosopher called Phylatus of Cause,
+
+[00:27:43] who studied erroneous word usage so intensely that he wasted away and starved to death. But we all do know somebody like that. Yeah, you can't leave so you get the sentence right. Somebody who's such a pedant. Why are you looking at me, Andy? You know, Captain Pinino. Yeah, James won't let us say pinini, because it's a plural. He'd say one penino.
+
+[00:28:01] If you order a pinini, he will make you eat two of them. Yeah. Or else are fat. Oh, you would say you order it. A pinini? A pinino. I would say, I would... No, no, no, I'm sorry, you can't say a panini, that's...
+
+[00:28:12] Okay, all right. Finally, someone who agrees. You think I asked about four years. No, no, no. It doesn't it feel so plural to you? Would you say, can I have a pinino? I do. James does.
+
+[00:28:24] I think... No, I would be trapped between not wanting to be grammatically incorrect and not wanting to sound like a wanker, so... That's the real... I think I'd have to find some middle ground. See, this is the kind of argument we have a day. James is wasting away at the moment because we have to be locked in a garage. I found some stats in Australia.
+
+[00:28:42] Contact with a hot water tap is more deadly than a venomous spider in Australia. Again, I'm sorry. If you're a man that will go into a sandwich shop and say I want a pinino, I'm going to point out you that it isn't. More people might die as a result, but that doesn't make the hot water tap more deadly than a poisonous spider. You must have seen the later series of I'm a celebrity get me out of here, but they have to be locked in a cage with a whole.
+
+[00:29:05] hot water tap. It's the big series back home. Australia's worst taps. It's the most dangerous taps this week. He's taken out six men. Wait, so they would scold them to the point of death? Yeah, basically that. Wow. Yeah, being scalded to death. Is it only Australia? Australia is the only place I have figures from. I've not heard this. This isn't like a cultural thing that I was told at school. No, I think it's more that people think like bugs and things and shocks are really deadly,
+
+[00:29:31] but actually the amount of people they kill. Yeah, that's it basically. Very, very few people die of venomous spiders in Australia because they have answered. Yeah. But I mean, isn't there a difference between a kill and stupidity? As in like the tap's not trying to kill... That's a good point, actually. Yeah. In the Middle Ages, they would have put the tap on trial as a Diod.
+
+[00:29:49] As a witch. Yeah. As a satanic object. What was the word you said? A Diodan. What's that? So it's like they would have trials in the Middle Ages. If like a bow of a tree had fallen on someone,
+
+[00:30:01] they would put the bow of the tree on trial. Wow. I found a brilliant one on the QI talk boards that between 1658 and 1663, there were four deaths recorded in the parish of Lampbellu in Cumbria for cause of death, frightened to death by fairies. That's an inexperienced coroner who wants to cover his back, basically. Well, they've changed the rules now that you can't die of natural causes in the UK, so they have to put something down on your death certificate they used to.
+
+[00:30:29] Just put monoculars in the throat. This is quite a nice thing. The first ever funeral flowers were 13,000 years ago, which I find fascinating. How would we know that? Well, they found Stone Age graves. There's a Mediterranean culture called the Natufians. I'm sorry if I'm mispronancing it, to any Natufians listening. But they built the first cemetery.
+
+[00:30:53] So before that, there were only scattered bodies, which had been buried, but they were the first people where we found 100 bodies in the same place. So we think that's a cemetery. and archaeologists have found I think the remains of flower beds which would have been around and underneath the bodies as well so that's the earliest evidence we have for the use of flowers in a funeral ritual if you like which I think is amazing
+
+[00:31:16] I think that's rather nice actually and they were the first people who had a feast first ever feast was the Natufians and it consisted of 71 turtles no sorry 71 tortoises I when I was a kid they so in Hong Kong they used to tell that you would be vertical burials
+
+[00:31:33] okay space have you guys heard of that I have heard of that yeah a lot of people live in cemeteries in Cairo as in they live in cemeteries because there's such a housing problem that thousands upon thousands of people and the city has these enormous cemeteries
+
+[00:31:48] it's where I always blows like when we found out there's this thing about 30 million people in China live in caves they're just housed in caves and when you hear that I just always think I thought I kind of thought I just knew where everyone was.
+
+[00:32:02] And then you discover there's just all these people living in these extreme locations. That's a big number for a cemetery. Yeah. How many people do you expect there to be living in the cemetery? What, just none? I just saw that. I mean, the fact itself was already at the starting one. 12.
+
+[00:32:18] 12. Was that work immediately? Yes, he's about the right number. Actually, there is a fact about, is it Brookwood Cemetery just outside London? If all the bodies came back to life and became zombies, the people, the people. population would be higher than Southampton. Really? Yeah.
+
+[00:32:34] Because so many people. Someone's really gone a long way to come up with that fact. I'm sorry it was me. Mr. Panino. I mean, given the unlikelyhood of all of the bodies coming to life, here's my favourite fact about Southampton. Southampton once, and I think this was in, sometimes in the 80s or early 90s.
+
+[00:32:49] Southampton came second in a poll of the most boring towns in Britain. Oh, yeah. What's brilliant about that is it wasn't even interesting enough to him. I mean, whatever. There's something remarkable about that place. Southam just so boring. It's not even the most boring. That's brilliant.
+
+[00:33:10] Okay, that's it. That's all of our facts. Thanks so much for listening. If you want to get in contact with any of us, you can find us on Twitter. I'm on at Schreiberland and... At Miller underscore Anne. Andy. At Andrew Hunter M.
+
+[00:33:21] James. At Egg shaped. And Victoria. At Victoria Corrin, which isn't even my name anymore, but the new one is too long to change. Can you put just an M at the end? I put a name in my...
+
+[00:33:31] tweeting name. I mean, listen, you all talked about supercomputers, and I pretended to know what they are, and I don't. You probably can change your Twitter name, but I don't know how. Okay. If you want to hear all of our previous episodes, you can head to No Such Thing as a Fish.com. They're all theirs, about 48 of them, and we'll be back again next week with another episode. Thanks for listening to you then. Goodbye.

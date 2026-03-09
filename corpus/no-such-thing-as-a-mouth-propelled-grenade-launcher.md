@@ -1,0 +1,231 @@
+# No Such Thing As A Fish - No Such Thing As A Mouth-Propelled Grenade Launcher
+
+- Episode date: October 27, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-mouth-propelled-grenade-launcher
+- Slug: no-such-thing-as-a-mouth-propelled-grenade-launcher
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you this week from the stand in Newcastle. I am sitting here with Anna Chazinski, James Harkin, and Andrew Hunter Murray. And once again, we have gathered around the microphones to us share our four favorite facts from the last seven days. And now it is time for fact number one. And that is James. Okay, my fact this week is that Mo Farrow, has only one Guinness World Record. And it is in the 100 metre sack race.
+
+[00:00:58] When? Is it like a school sports day? He was at? I don't know why he did it, but he did it. I read an article and it said, Mo Farrow needs a world record to seal his place among the old-time greats. And I thought, I'll check if he has one.
+
+[00:01:12] And he does. He has one other one, which is a two-mile indoor run, but that's not in the Guinness Book of Record. But in the Guinness Book of Records, this is the only one. And he's about to lose it. What? Really? Yeah.
+
+[00:01:26] There's a guy called Stephen Wildish from Rorton. And Mo Farrah got 39.91 seconds for his 100 meters. And Stephen Wildish has already got 28 seconds. Okay. But unfortunately, two weeks after he did it, he got a letter from Guinness saying that to get the world record, he needed a 50 kilogram sack. And his sack was only 30 kilograms. I thought for a second you meant the sack had to weigh 50 kilograms
+
+[00:01:52] and I am amazed anyone finishes it So anyway I got in touch With Stephen Wildish and he's going to repeat his attempt next week And he's really confident that he's definitely going to do it And so that means that by probably The week after this goes out Mo Farrow will have no Guinness World Records
+
+[00:02:13] So we snuck in Right up this definitely needs to go out this Friday James what's the speed that he managed to clock in for the record so Stephen managed to do it at 28 seconds for the 100 meters so a normal 100 meters for usain bolt would be just under 10 seconds so you know it's not that fast but it's quite fast and i asked him why i asked stephen why he was so much better at the sack race than mo farrah and he says he says unlike mo i have little legs but large calf muscles and i asked him if he has any inspirational words for the people of newcastle and he said inspirational words always check your sack very good wise man
+
+[00:02:57] so Mo Farrah you're saying has the Guinness World Record for the sack race but he also has but he does have a world record he just has one other world record but it's not a special Guinness one it's just like just the IAAF or someone
+
+[00:03:11] but it's a world it's a world record I don't think like when Usain Bolt gets an Olympic world record they're going yeah it's not a Guinness World Record is there Surely that's more of a... I see what you mean, but it is...
+
+[00:03:23] I mean, it's the two-mile indoor run. Yeah. I mean, I'm not putting him down, but why is that any different than an outdoor run? It's more impressive, really, to have a two-mile long building, frankly. That's true. It's weird, though,
+
+[00:03:41] because on the Guinness Record page for running records, they've really bumped him up, haven't they? Like, he's in the top four. I think his fourth one down is the sack race. So, like, number one is fastest male marathon, and number two as fast as female, number three is first to get three records at the Olympics, and number four, he sneaks in there with a sack race.
+
+[00:03:59] And I don't want to put down Guinness Book of Records, but when they said that Stephen Wildish's sack was too small, I kind of think they're a bit upset about Mo Farrow losing this record. Yeah. No, but they do have rules about how big your sack is. They actually do. They have one thing, which is if the sack is too big, they notice that people as opposed to...
+
+[00:04:19] If it's like 100 meters long, for instance... But that's the main issue really Because obviously in a sack race You're hopping everywhere If you have a slightly larger sack People actually run inside the sack In order to get there And that builds up speed in a way of it
+
+[00:04:39] You can kind of run You can put your feet into the little corners And do a little kind of wiggly run But the thing is It used to be In the 19th century in America That each college would have Their athletics team
+
+[00:04:51] So they'd have a javelin thrower And they have a hundred meters runner, but they would all also have a sack race guy. And this was quite a big deal. And they would train and they would really try and be awesome at the sack race. And some of them would hop and some of them would run with their feet in the corners. And the hoppers were usually better. And the thing is that they came up with a technique of really hopping as far as they could. And it was quite ungainly. And sometimes they'd fall over. Okay. But they were so good that when they fell over, they sort of did a little somersault and could get back on their feet immediately and they virtually lost no time
+
+[00:05:25] whatsoever. Oh wow. Like Andy's anal thing that he was talking about earlier. Sorry. So for the people listening to this podcast on Friday. And I would hope you'd edit this bit right out. Not a chance. There's a new robot. We don't have time for this. We don't have time. No, no. We don't have time. No, no. People can just imagine what you were thinking about. Okay. Do you know there's 100 metres on all fours world record? Is there? And it's 15.71 seconds.
+
+[00:06:03] That's fast. They are unbelievably fast. The guys who do it. It's so good. So it's the same man who's broken the record four times since 2008. He's a Japanese guy. And to practice, he mops floors on all fours. Which is fun to say as well as to do.
+
+[00:06:21] How does that help in practice? I think he just gets habituated to being on all fours all the time and moving around and he's less likely... But it's misrepresentative of the actual purchase you can get on the ground.
+
+[00:06:33] That would be more useful if he was ice skating because then you have the slip of a... It's like training at altitude, isn't it? Because if you can do it on a slippy floor and then you get on a proper road... Yeah. He's not wrong.
+
+[00:06:44] He's right. He's right. These stupid sports, like Sports Day Sports, used to be more difficult. Stupid sports. You know, sports for the people who aren't sporty at sports day. We've all got a list and I had poll vaults on mine. Pol votes are stupid sport people.
+
+[00:06:59] I'm thinking more egg and spoon, the three-legged, all that kind of stuff. But I was looking them up in the British newspaper archive to see, you know, what people used to do in the olden days about them. And it turns out that the Egg and Spoon race, for instance, used to be done well punting. So there was a reference. This is, in fact, this is the earliest usage in the OED of Egg and Spoon, is an 1894 and it said the gentleman had a turn in the egg and spoon race in which competitors had to punt with one hand and balance an egg and spoon with another. So that is actually much harder,
+
+[00:07:31] you know, punting for people who aren't from Oxford or Cambridge is where you are on a boat standing up and you drop a stick in and you have to power your boat along at the same time as carrying an egg and spoon. Wow. Yeah. I thought you meant punting as in putting a bet on with the horses. No, no, that was strictly forbidden actually. And the wheelbarrow race was blindfolded. This is in the 19th century at, so for instance, blindfolded. Wheelbarrows don't have eyes. Exactly.
+
+[00:07:58] It's just more realistic. I think you're both blindfolded. So this is for Queen Victoria's Jubilee. There was a huge wheelbarrow race. And she didn't participate. Sorry, the wheelbarrow. Are we talking, we're talking where you're carrying someone's legs and they're moving on their hands in front of you.
+
+[00:08:14] Not a wheelbarrow, wheelbarrow. No, no, there are two people. One of them is pretending to be a wheelbarrow. Yeah. Yeah. Yeah, you have to be blindfolded, which makes it a lot more difficult. Both of you? That's nuts.
+
+[00:08:24] Hey, you know that MoFarrah does the Mobot? Oh, yeah. It turns out that he's actually being the M from YMCA. As in, are you saying that's where he came up with it or just... No, they came... So he does that thing. He does his mobot. And the inspiration from that was he was on a TV show, Claire Bolding, and James Corden were
+
+[00:08:47] trying to work out what he should do to celebrate the win. and Claire Boulding was the one who invented it. James Corden called it the Mobot, but she said it's the M from YMCA. If you had someone who'd just done a vault in the gymnastics stood next to him, you only need a C and A and you've got the whole thing. But wait, that's not, it stands for the M of his name.
+
+[00:09:07] I think Claire Boulding was just trying to explain what it looked like to people if they weren't watching the TV, right? He doesn't do it as a tribute to the YMCA. I don't think. No, he's plagiarized one of the greatest dance. If Mr. Farrow's lawyers are listening,
+
+[00:09:22] it's a big claim. It's not one we all support on this show. Do you know something Mo Farrah did do, which is not that cool, actually. He has a fellow runner called Chris Thompson, and their good friends, and Chris Thompson won silver medal in Barcelona when Mo won gold a few years ago.
+
+[00:09:39] I don't know why I'm calling him Mo, I don't know him, when Mo Farrow won gold a few years ago. But the first time they ran a race together, Mo Farrah said, was encouraging him and said, We'll run this race. We're going to win it.
+
+[00:09:51] We'll both run it. We'll hold hands as we run. And then we can cross the finish line at the same time. And so they did it and they held hands for the full race. And then with 10 meters to go, Mo Farrell-Letka of him pushing aside and sprinted ahead to the win. So the 100-meter record for Egg and Spoon Race. Yeah. Is, do you think it's more or less than Stephen Wildish's?
+
+[00:10:14] 28 seconds? 28 seconds. Quicker or slower? It is quicker. It is quicker. Yeah, it's 16.59 seconds. But it was set by Sally Pearson, who is a professional 100-meter runner.
+
+[00:10:27] Oh, she's a hurdler, but she's quite famous. And she beat a guy called Ashreta Furman, who you guys might recognize. We've mentioned him before. He has more than 100 world records, mostly in what Anna might call the stupid sports. Triple jump. I've got loads.
+
+[00:10:47] I can't think of many non-stuble. stupid sports. Well, I reckon he must have been pretty annoyed to have lost his 100 metre egg and spoon race, because the very next month, he then broke the 100 metres carrying an egg and spoon in the mouth record.
+
+[00:11:04] I didn't even know that was a sport. I suspect it probably wasn't. Do you know that school sports days, a regular feature of them used to be the pillow fight? Now that's a sport. How do you win the pillow fight? I don't know. It didn't actually say it.
+
+[00:11:21] So I read this article where the winner was just announced. We used to play in Australia for sports. You would sit on a big wooden pole and you'd each have a pillow and you'd try and whack each other off. Sorry. I wasn't to where you had such a traditional education, Dan. Okay, it is time for fact number two.
+
+[00:11:43] And that is Andy. My fact is that the inside of a Kit Kat is made of more Kit Kat. Kit Katz are an infinite recursive loop is what I'm trying to say This is so cool I mean it can't be true right Because where did the first Kit Kat insides come from
+
+[00:12:02] Nobody knows Yeah this is like a chicken and egg situation Isn't it? Kind of yeah Except the eggs are not made of mashed up chickens Yeah It's kind of like that
+
+[00:12:20] So basically during the production process of Some of them don't meet the very strict criteria for a proper kick cat. They're the wrong shape or they've got too many fingers. I don't know. But anyway, they're wrong and they are rejected and they are ground up. And they are the filling layer between the wafer bits in a Kit Kat is made of those. Plus a couple of other things as well. More sugar.
+
+[00:12:47] So, yeah, this hit the headlines earlier this year. Which I'd never hit the headlines. Sure. It was a slow news day, wasn't it? I'd never noticed until you said this fact I looked into it that there was a layer between the wafer and a Kit Kat. I just thought it was chocolate around the outside
+
+[00:13:00] and wafer on the inside. Sometimes you get one which is all chocolate. Wow. It's a big day. It's a good day that is it when you get one of those. Oh yeah. Has anyone else? Yeah.
+
+[00:13:11] About half the room, okay, cool. Wow. Okay. You really, honestly, Andy, wait until it happens to you. It's a real life changer. But Kit Katz, I, I've only realized looking into this
+
+[00:13:24] what they mean in Japan which is a lot. Everything. What do you mean? So Japanese people just love Kit Katz and they've gone way more nuts for them than we have. So apparently Kito Katsu is a Japanese expression that means surely win.
+
+[00:13:39] So it basically means good luck. And so because of this coincidence, they're super popular in Japan and they've got loads of flavors. So they've got more than 300 different Kit Kat flavors in Japan. Nestle have just built a factory there specifically to make the weird-ass flavors that they have.
+
+[00:13:55] So they have like wasabi-flavored Kit-Kats. They have soy sauce flavor. They have sushi-flavored Kit-Kats. Guys, you haven't tried it. That's great. They have in Japan made a Kit-Kat which doubles up as a postcard and you can just put it in the post to someone because every year about half the children doing their exams
+
+[00:14:14] get sent a Kit-Kat for good luck because of that surely win thing. So Kit-Kat invented one that's a postcard. You can just send it to someone. Just put a Kit Kat into the letterbox If you did that you'd be arrested. We're only one envelope away from that. Yeah, but...
+
+[00:14:33] You know that Kit Kat started out as mutton pies. This is true. So there was a club in London called the Kit Kat... The Kit Kat... The Kit... The Kit Kat Club. and it was run by an innkeeper called Christopher Cat,
+
+[00:14:54] who was called Kit Kat. And all the literary figures of the time used to go there, and he would serve them mutton pies, which they called a Kit Kat. And so the idea is that that just became a name of a popular food source, and then eventually it turned into Kit Kat. No one has acknowledged that this is true. No, they have.
+
+[00:15:15] The Kit Kow Club is definitely true. It's definitely true, and it had a socialist party. Yeah, yeah. So the original Kit Kat definitely was mutton pies. But get this. The ceilings were so low in the Kit Kat club that they were a beautiful establishment. So what they did was have paintings all over the club. But because the ceilings were so low, they needed to get paintings that were longer on the, well, on landscape rather than portrait.
+
+[00:15:41] And there's a theory that the reason that Kit Katz are shaped like they are is because they're paying tribute to the squatty paintings of the Kit Katz in London. Sorry, I didn't realize when he said no one's acknowledged this is true. You were talking about the thing you were about to say. You know the Kit Kat slogan? Have a break.
+
+[00:16:03] Have a break. I only got that yesterday. That's a pun. I didn't realize it was a reference to Kit Kat's breaking. I thought it was just like, you know, a break or what? I didn't get the other meaning.
+
+[00:16:16] And it only... Did everyone get that? No, no. No. No. Of course everyone fucking got. It's not as if the slogan writer's going to be at a term going, finally!
+
+[00:16:29] Oh, was it too obtuse? What was I doing that was wrong? Sorry, can I join Anna's club of people who didn't be? You're not kidding. I'm sorry, I'm sorry. In the advert, they break it as they say, have a break. I didn't, I know. I know. I know. We know all the clues were there, James.
+
+[00:16:47] Sometimes I'm crazy things. And it only came about in the 50s when they toughened up. the materials that they made Kit Katz from and they were very proud of the new snapping sound that it made and so actually the crucial thing about it is the breaking sound look who's suddenly the expert on the etymology and
+
+[00:17:04] understanding of a slogan I have a fact about chocolate okay okay the average chocolate bar is about 20 to 25% fat 40 to 50% sugar right so it's one gram of fat to two grams of sugar okay now it's very unusual in nature to find those ratios of sugar and fat
+
+[00:17:19] together so if you have nuts they have lots of fat but no sugar. If you have fruit, loads of sugar, but no fat. There is a theory that the reason we like chocolate is because the place you find that same ratio, one gram fat, two grams sugar, is breast milk. Oh. No way.
+
+[00:17:36] Yeah, 4% fat, 8% sugar. So it may be that we are trying to recreate... No. Our earliest... Yeah. Comfort food. That's what's happening. Why do you think a Terry...
+
+[00:17:51] Chocolate Orange is so successful. I don't know. Why? Because you were breastfed by an umpah-lumpur, and you're trying to get back to that. Wait, Dan, the Terry's chocolate orange isn't orange. You know you have to take the wrapping off. I found a really cool thing. I was looking into how they test chocolate,
+
+[00:18:16] and it led me down a little road that got me to McVitties and all sorts of just how they, for candies and biscuits. and chocolate biscuits and stuff. And there's a dummy that tests crumb, uh, lucid, once you're biting into it. So it's a robot dummy that just bites. It's got plastic teeth.
+
+[00:18:36] It's called a crumb test dummy. And the idea is that McVitties have a laboratory where they put it into its mouth and it just goes da-b-ba-ba. And the, the advantage is that it never stops doing that because it doesn't need to breathe. Because Andy, what is it? The robot. Yes.
+
+[00:18:53] it's a bit like that anal thing you were talking about. Do we need to move on to the next fact? Yeah, we do actually. We do need to move on to the next fact. Sorry, Andy, to cut you off again. Try to get to it before the end of the show. And now it is time for fact number three, and that is Chazinski.
+
+[00:19:15] Yep, my fact this week is that the first hamsters to come to the UK arrived in a coat pocket. Oh. I know. So sweet. The story of hamsters is really interesting. So basically there was a scientist called, don't be skeptical. There was a scientist called Saul Adler back in the 1920s, 1930s, and he decided that hamsters were similar enough to humans that they might serve as useful lab animals for obvious
+
+[00:19:47] reasons that I don't need to go into. Hamsters, humans basically the same. And, you know, he specifically wanted to try out stuff that might cure parasitic diseases. on them. And so he brought three hamsters back from Syria in 1931. So all the pet hamsters that you have had in your childhoods and that you've ever seen are all descended from this tiny batch of Syrian hamsters that these guys found in the 1930s. And yeah, he smuggled these guys back in his coat pocket. And didn't he smuggle them? I might be thinking of a different person, but didn't he smuggle them back in the coat pocket because they ate their way out of the box that they were in? Yes. It's a very...
+
+[00:20:25] really exciting story. Yeah. It is. No, they got a dozen, didn't they to start? They had 11 and a mother, and then the mother killed one of the babies, so then they had 10 less. Okay, fine. And then half of them escaped and had to be recaptured.
+
+[00:20:40] And then they put them in a wooden box and they chewed through that and then were recaptured. It's like the great escape, but with hamsters. And that was with, the guy was called Israel Aharoni, wasn't he? He was the guy who was determined that he'd get these hamsters. And it sounds like his life. depended on it. When these five escaped, he was absolutely devastated.
+
+[00:21:00] He said he was shaken to his depths. And imagine, yeah, when the mother ate her children. And then he had three left and then I think, oh no, yeah, one sibling ate another. And then he had to mate the brother and sister, didn't he, that were left? So they're all products of incest. No. All your childhood hamsters. Yeah.
+
+[00:21:18] Incest. That's actually one of... All of them. That's one of the reasons they're so useful because their similarity to humans is, is genuinely because they're very susceptible to heart disease hamsters as susceptible as humans are, so that's why they're quite good to study. And the reason they're susceptible is because they're all very imbred. Really?
+
+[00:21:35] Yeah, apparently so. Wow. The thing is about hamsters is it's really weird why they become popular pets, really, because they only live for a couple of years. Tick? Yeah. There's a certain comfort, James, in knowing this is a short-term contract.
+
+[00:21:54] Well, they don't. like being handled. You know? And they're nocturnal, so during the day they don't do anything. Are they nocturnal? I read that they... Well, in the wild, they're definitely nocturnal. Both of mine as a child were nocturnal.
+
+[00:22:09] They just didn't want to hang out with you, man. I read as well that they're... It's because I kept pointing at them and saying, incest. You should be ashamed. Clock's ticking, boys. You got two months left. I've had mobile phone contracts longer than you. I've read that you can, that they are able to drink alcohol because they hold things,
+
+[00:22:34] what is it? They hold stuff in their cheeks for so long and then they hoard them and they don't eat them until much later but then it ferments and it turns into alcohol and so they've had to turn their digestive system into one that can just down booze really quickly and not die, which a lot of animals can't do. So they're like someone from Newcastle basically. Risky. Their pouches are amazing though
+
+[00:22:57] Their cheeks stretch back to their hips When they need them to What? Yeah they basically go and run down The whole length of their body And they switch off their saliva glands To stop themselves accidentally Metabolizing the food that they want to store
+
+[00:23:09] So they stop making saliva Until they feel hungry And then they start making it again I read one thing that said That they can put enough stuff in their cheeks That will make their heads triple in size What? Well, I looked at the size of the hamster's head and did a bit of working out.
+
+[00:23:26] And basically it's the equivalent of me fitting a large tin of paint in my mouth. And ladies and gentlemen, for our finale tonight. I think that's why they were called Saddlebags, right? So when they first went to Syria to find them, they realized the Arabic word for them translated as Mr. Saddlebags. That's what they called hamsters. Well, I'm not sure why, but I assume that must be it. I think that is it.
+
+[00:23:53] Yeah. Have you heard of America's Hamster King? No. He's cool. He's a great guy. He's the guy who popularized the hamster across the whole of the USA. He's a guy from Mobile, Alabama,
+
+[00:24:04] and his name was Albert F. Marsh. And so I think in the early 50s, but I might be wrong, might be 40s. He took one hamster on as a payment of a $1 gambling debt. That was how the debt to him was paid off in a hamster. Right. And he must have got another. one from somewhere because he then bred them.
+
+[00:24:24] But within three years he was making the equivalent of $1.8 million a year just from sending hamsters out to people. And the way he built this business, it was a huge business. He can't have been making that much money. How much was he charging for a master? I think he charged about $1 million. No, it was about $9, which would have been a lot more then.
+
+[00:24:42] But this is incredible. So he built the business up and he made it absolutely massive really quickly. And his shipping method was to send a hamster to the address you wanted it sent to in a coffee can with a potato. The potato was for it to eat and drink along the way. And it would arrive and you would have a hamster and then no potato in a coffee tin.
+
+[00:25:03] That is worse than Ryanair food. I've got to say one potato. Come on. I was reading that, so the idea of him bringing these bunch of hamsters in his coat pocket, I suddenly thought that's, you know, the idea of like smuggling things in. I think I slightly misread the fact thinking it was smuggling in. So I looked up smuggling and that's where we're going now.
+
+[00:25:29] But I was a story that happened just this year and I'm so upset that it's not made it into the book because it would have been perfect. A woman was arrested in Venezuela after several guards caught her trying to break her boyfriend out of jail by smuggling him out in the suitcase that she brought in with her. So she went in with her daughter and she just had, oh, I've just got my suitcase with me. And during the visit, while the guards were away, she opened it up, he got inside, they zipped him up,
+
+[00:25:58] and then she tried to just walk out again with him. And she got quite far, but then she started struggling with the suitcase. And so they laid it down and they opened it up. And inside was a squashed boyfriend who, yeah. That is not the only person in suitcase crime story. What from this year? From this year?
+
+[00:26:15] No. Yes. In the news last one, week there was a guy I think in India who was arrested because he had been committing crime by getting himself loaded into luggage holds in a bag
+
+[00:26:28] and then he would get out of the bag rob all the other bags in the luggage hold and then get back into his bag no yes great how could he put everything in his bag with him I think he might have just left at that point well he might have just stolen small things but imagine on that carousel if you accidentally pick up
+
+[00:26:48] the wrong back. Small Indian man is this mine? No, that's not mine. All right, let's move on to our final fact. Okay, it's time for a final fact of the show, and that is my fact. My fact this week is that an effective way to treat snoring is to regularly play the didgeridoo. This has been done. It's been proven by scientists to work.
+
+[00:27:12] No less annoying for the partner, is it? When you come home, you're like, darling, I've got fantastic news. I found a cure. I'm just going to constantly play the didgeridoo for the rest of our relationship. Instead of sleeping, I will be in bed next to you, playing the didry do. You won't even notice any snoring.
+
+[00:27:27] Yeah, they did this as a test. They had 25 patients who all suffer from chronic snoring. They're 18 years old onwards. So they usually snoring affects people much older, but they wanted to start at a younger age. And they had them all practice, a didgeridoo, for 5.9 days per week. That's how it worked out.
+
+[00:27:46] for 25.3 minutes per session. And they found a remarkable recovery process of the nasal passage for when you're sleeping that you no longer were snoring either as intensely or at all. So if anyone here in the audience is a snorer, get yourself to Australia. It's a bit expensive. That's where they sell them. And, yeah, start playing. So I found out about this a few years ago.
+
+[00:28:13] I went on to the QI forums, which is where we do the research for the TV show. and I look for Didgeridoo, and it turns out I'd post about this in 2006. Which is when the report came out. Yeah, and I suggested a question for QI which was, how does Rolf Harris sleep at night? We touched a bullet there, right? Oh, my God.
+
+[00:28:41] I actually own a Didgeridoo. No, you don't. Promise. I was giving it as a present for my 16th birthday. Can you play it? No. It's very hard to play. I can only get one note out of it. And you need a circular breathing the whole way through. Which I can't do.
+
+[00:28:56] And I read that when the way that they get different sounds, it's all to do with the way that you shape your lip once it's inside. So in the way that if you were saying words like, hello, hello, hello, that would be like, and then if you're like, wow, wow, wow. Wait, do you put your lips inside? I think your lips go inside the dictionary. Yep, I see now.
+
+[00:29:16] Okay. Because it stretches the mouth unbelievably. how do these guys do it? This explains my short-lived trumpet career as well. But it is a circular breathing, right, that means it can cure snoring. Is that the idea? I'm guessing.
+
+[00:29:40] I thought it also just seems to strengthen your whole respiratory tract. You know, it just makes everything stronger in the whole... Yeah. And snoring is very problematic. Apparently a third of people in relationships cite snoring. It's a problem in their relationship. In Finland. Maybe they snore loads of Finland. I have snoring.
+
+[00:30:01] Bad. I have bad snoring. And talking. Yeah. And I talk to my wife about it every morning because I'm like, was it bad last night with my snoring? Was it bad for you last night? And she's always, she's like, no, I really like it. It's really, it's, God, you're a lucky man. Are you?
+
+[00:30:23] Or I've married a freak I don't know what's going But she She says because it's consistent You know It has a rhythm It feels like you know You're out at sea or you know
+
+[00:30:33] There's a I think I have a very pleasurable snore Did you know that she is suffering More than you are probably So when snoring is cured People's partner's quality of life Improves more than the snores Quality of Life
+
+[00:30:48] And apparently the partners of snores wake up on average 21 times an hour What? In the night. Yeah. Like a little bit, you know, like you semi-wake up and then you fall back to sleep. Wow.
+
+[00:31:00] Have some pity. Well, no, it's about didgerie do's. But it is about didgeridoo's. All right, didgeridoo's. This is just a story that was in the BBC news website. It's from a few years ago. It's from 2004. And the story is,
+
+[00:31:17] a Thameslinked train driver caused two terror alerts when he mistook a didgeridoo for a grenade launcher. He was a train driver in London And he reported that he had seen a man carrying a grenade launcher Other passengers said the man fitting the driver's description of this aspect Had been there but only had a didgerie do Right, that happened in the morning Then later the same day
+
+[00:31:41] The same driver reported seeing the man taking aim at Loughborough Junction And the terror police said This time we found the man with the didgeridoo he added, the driver was quite right to inform us about what he genuinely thought was a terrorist threat on both occasions. You can't really say anything else, can you? If you're an idiot,
+
+[00:32:03] don't phone in. You can't say that. He must have been so annoyed the second time calling saying, I can't believe you guys were irresponsible enough not to catch him the first time round and I'm having to tell you again. The traditional mouth-launched grenade launch.
+
+[00:32:18] I was trying to work out actually because did redo is obviously very long very wide, how they hollow out the inside of a didgeridoo so that you get it hollow... So I started Googling it and couldn't find anything. Oh, great. Yeah, termites do it.
+
+[00:32:32] What? They train termites. No. No, they're kind of naturally occurring, aren't they? So you get a big bit of eucalyptus and the termites live inside and they eat all the inside bit and then you can cut it off and you've got a naturally occurring.
+
+[00:32:47] So you have to wait for a dideridoo to naturally occur before... Yeah, but it's... It's not like a long way. It's not like people buy, like, filled in planks of wood, and then they sit there staring at it. They're just in the wild. No, that's what, but I mean, it's like we're just,
+
+[00:33:00] we're taking wild instruments and bringing them. Like, we're not even making them. We're just finding them in the wild, taking them from their habitat, and then stick in our mouth right around the rim of them. Hey, we're going to have to wrap up in a sec. Have you guys got anything more before we do? There's a bed you can buy.
+
+[00:33:19] It's like a robotic bed. Oh. Like my... My radar thing. Yeah. Yeah. We don't have time, Andy. But anyway, this is amazing.
+
+[00:33:31] It has senses in it. And it can tell when you're snoring. And then it kind of just moves you very slowly into a better position so you won't snort. Oh. Isn't that incredible? And it also will warm up your feet. So it'll tell if you got cold feet and it'll go,
+
+[00:33:47] oh, no, I'm going to warm them. How can it tell? They're clever robots, aren't they? Yeah. Mate, they're doing somersaults inside you. They are... That's the robot for listeners. It's a Colin Oscar-Bee robot.
+
+[00:34:00] Get the word out. We don't have time. We don't have time. Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with us about anything that we've said
+
+[00:34:08] over the course of this podcast, you can find us on our Twitter accounts. I'm on at Shreiberland, Andy. At Andrew Hunter M. James. At James Harkin. Anna. You can email podcast.
+
+[00:34:17] At QI.com. Yep. Or you can go to our website, which is no such thing as a fish We have all of our previous episodes up there. We also have a book available. It's out on November the 2nd. We're about to give one away to the best fact
+
+[00:34:29] that we've received from the audience of which we have picked. James, have you got it? Yes, the winner is at Jess Sarah X on Twitter. And her fact is that the northeast has the greatest variety of ginger hair in the world with 47 shades. Whoa.
+
+[00:34:47] 47 shades of ginger. That is a book that I would definitely... Definitely be down for. Okay, that's it. We'll be back again next week with another episode. Thank you so much for being here, guys. That was really fun. We'll see you again.
+
+[00:35:02] Goodbye. Well, hi, guys. It seems I'm the last one left in the office. And I think that's because all the others have gone to use their brand new Harry's Razors. That's what they do with a Friday night. That's just the kind of lives they lead. and I just wanted to thank our sponsors, Harries, once again,
+
+[00:35:25] and say if you do want to support the show and get that trial set delivered to you, then you should go to harries.com slash fish. And you get your razor handle and your five blade cartridge and your shaving gel and your travel blade cover and you two can have an excellent Friday night. Harries.com slash fish.

@@ -1,0 +1,283 @@
+# No Such Thing As A Fish - 550: No Such Thing as an Ice Cream at Stonehenge
+
+- Episode date: September 26, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/550-no-such-thing-as-an-ice-cream-at-stonehenge
+- Slug: 550-no-such-thing-as-an-ice-cream-at-stonehenge
+
+## Transcript
+
+[00:00:00] Hi everyone, just before we start this show, I wanted to perform a tiny, tiny interview about a very exciting new book that's been released. It's a book called Impossible Things – Unbelievable Answers to the World's Weirdest Questions. And it's by renowned author and podcaster Dan Schreiber here with me today. Hello, thank you for having me. It's a real pleasure. How would you describe what this book is about? This is a book where I look into all the mysteries that kids are fascinated by. Are we being visited by aliens? Are there
+
+[00:00:30] ghosts out there in haunted houses? Are there monsters in the lock? Do time travelers visit us? All that sort of stuff. I've actually gone on 10 adventures to investigate it on behalf of kids, getting to the bottom of the history of why we believe in this stuff, how it's changed the course of the world. And it's also just a funny little adventure that kids will hopefully enjoy. Yes, if you are fans of this podcast at all, this book is basically bang in line with that. And when Dan's personality is full of amazing facts, it doesn't say wrong stuff,
+
+[00:00:58] even though it's about all these weird mysterious phenomena. Yeah, and it's as much written for adults as it is kids. Fish listeners, it would really be a huge, huge deal for me if you could go out and get a copy today. It's really, really incredibly hard to sell books, particularly kids' books, and I would love to turn this into a series, and I can only do that if it's a success, and you are my best chance at that. So please do pick up a copy online or in bookshops today.
+
+[00:01:23] Okay, on with the show. On with the show. ["The Fish and the Fish"] ["The Fish and the Fish"] ["The Fish and the Fish"] ["The Fish and the Fish"] ["The Fish and the Fish"] Hello and welcome to another episode of No Such Thing as a Fish,
+
+[00:01:43] a weekly podcast this week coming to you live from Dublin. My name is Dan Schreiber. I am sitting here with Anna Tyshinsky, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is James. Okay, my fact this week is that mathematician, Blaise Pascal, once cured his toothache by thinking about maths.
+
+[00:02:22] We went from like crazy rock and roll beginning to... Excuse me, but there is nothing more rock and roll than maths. That's true. And especially 17th century French maths. Blaise Pascal, what a hot name. That's a rock star. Yeah. I've never heard one.
+
+[00:02:38] You don't get enough blaze these days, do you? No. Please come back. So was this like one of those cures where if you've got a pain, subject yourself to something even worse? Like you've got a toothache, shoot yourself in the foot and you'll forget about the toothache, kind of thing? I see where you're going, but no, it's the exact opposite. He was thinking about problems concerning the cycloid, which is a curve traced by a point on the edge of a circle.
+
+[00:03:00] Rock and roll! Wow. His toothache disappeared and he decided that it was God that did it and God was saying to him, you need to carry on with the maths and carry on with the maths he did. Wow. That's good. So Pascal, he's sort of the only thing I'd ever heard of Pascal before researching this fact is Pascal's Wager and the idea is that if you, what is the idea?
+
+[00:03:22] Is that if you, even if you think it's unlikely that a vengeful god does exist, you may as well go through the motions as if a vengeful god does exist, because on the off chance that you're wrong and he does exist, it's much better to have... You're absolutely fucked. Yeah. Yeah, exactly. But I think actually, God is going to know that you're doing that, right? Because God knows everything. So as soon as you say, oh yeah, I really believed you all that time, he's going to know that you're doing that, right? Because God knows everything.
+
+[00:03:46] So as soon as you say, oh yeah, I really believed you all that time, he's going to go, bullshit. Imagine if God turned out to be such a chump that he didn't know when you truly believed or not. He said, yeah, you believed, I saw at the end. You said, yes, come on in, buddy. Nice to see you. By the way, that's always presented as if he was a non-believer, but he was very much into his religion.
+
+[00:04:05] So the idea of the wager did involve you actually believing as well. It wasn't just like a, oh, yeah, on the side kind of thing. Just quickly, in 2008, Paddy Power offered odds of four to one that God existed. That was a good bet you could have made at the time. Yeah. Have they had to pay out or? Not yet. Not yet. OK.
+
+[00:04:25] They did say they would need an independent authority to verify it. I don't know who that is. Who's going to be independent in that situation? Richard Dawkins. No, he hasn't. No, he's good. Yeah.
+
+[00:04:37] So this, Blaise Pascal, he's such an interesting character. So he very sadly, he lost his mother when he was three years old. And his father, Etienne, basically decided that he was going to home school him. And Etienne was himself an amateur mathematician. However, he thought math isn't for the young, like your brains are not ready when you're young.
+
+[00:04:57] You need to do this when you're like 14, 15. So he took all the math books in the house and he locked them up in a cupboard and he said, don't let me catch you reading any math around here. And so he became very curious about it because he'd seen his father talk about it with his friends and so on. So basically Pascal had to discover math by thinking about it and landed on all the actual equations, which is extraordinary. According to actually Pascal's sister, the reason that his dad banned him from doing math, and he really did and no one was allowed to mention maths
+
+[00:05:25] in front of Blaise. She said that he did it because he knew, Etienne knew, that maths fills and greatly satisfies the mind in such a huge way that he knew as soon as Blaise heard about maths, he wouldn't be interested in classics or the humanities or anything like that. So he was like, I know you're going to get addicted as soon as you're exposed, so I'm going to keep you away from it.
+
+[00:05:44] But of course it piqued his interest so much, Blaise's interest. He was like, I know you're going to get addicted as soon as you're exposed, so I'm going to keep you away from it. But of course it piqued his interest so much, blazed his interest. He was like, what is this mysterious thing I'm not allowed to access? And then it does sound like this incredible moment. A tear kind of came to my eye when I imagined Etienne, maths lover as he was, going up to his 12-year-old son's bedroom, opening the door. Don't come in! I'm doing some maths! I'm doing maths!
+
+[00:06:07] No, no, I'm masturbating! I'm masturbating! You're not masturbating, you're masturbating! But he was, right? That's what he was doing. He was sitting there, like, secretly drawing circles and triangles and, like, thinking about the relationship between angles. I mean, he discovered amazing stuff. Well, it doesn't sound amazing to us.
+
+[00:06:25] He basically discovered that all the angles in a triangle add up to 180, duh. But we all studied maths, you see. That's the difference, whereas this 12-year-old hadn't. He invented a calculator? Again, mid-17th century, not a lot of calculators around. And it was called the Pascaline, named after him, obviously. And he dedicated it to the French Chancellor,
+
+[00:06:45] and he got a patent of it. And then, most French move ever, he said, no one else is allowed to make one but me. I have to have total control over it, so they didn't make any. But then. It was for his dad, wasn't it? Because I think his dad worked in some kind of accounting
+
+[00:06:58] thing. Yeah. And his dad was always tired and stuff. And he thought, if I make this calculator, it'll make his life easier. He used an abacus, his dad. And he invented it to do away with the need for it. So sweet. And yet so worrying in your child as well if they've done that. But mostly really sweet. And it was essentially a calculator that allowed you to carry over, which we all remember fondly,
+
+[00:07:19] which abacuses didn't allow you to do. So his calculator automatically carried over. You know, carrying over. No one in the audience shouted, no, what? What is that? Is anyone here from the 1600s? So yeah, it was amazing. But he'd got this gig being an accountant. It was a really good gig and it was in Normandy and he was actually managing the taxes of the whole area. But he had fallen from grace massively and come back into the grace of the French area, but he had fallen from grace massively and come back into, you know, the grace of the French authorities, not because of Blaise Pascal, but because of Blaise's sister. So basically Etienne's there, he's pissed off
+
+[00:07:53] Richelieu, who's the French Prime Minister, and he's basically been exiled. So he's had to leave his three kids in Paris, Blaise and then Jacqueline and Gilbert, and Jacqueline turns out to be such a talented playwright and actress at the age of 10 or something, that she performs for Cardinal Richelieu, and he's so charmed by her that she goes up to him afterwards and says, oh, I hope you like that. By the way, would you mind forgiving my dad
+
+[00:08:18] not putting him in prison in the Bastille, not cutting his head off and giving him a good position instead? And Richelieu said, yeah, right, you're cute. I'll do that. So then a bit later, Pascal, Blaise Pascal, he was in a carriage and the horses bolted and they threw him into the Seine and he nearly died. Because it's very polluted, isn't it? As we know from the Olympics. So was it? But then he wrote an account of that accident and he had sort of like God came to him while he was in the water and that made him even more religious. It was called his Night of Fire and he had a mystical moment and a realization and he
+
+[00:08:54] wrote this kind of poem which apparently reads like a journal entry and they only found it after he died. And the religion was Jansenism, wasn't it? It was both him and his sister were Jansenists. And the idea of Jansenism is we're all evil and there's nothing you can do about it. And it's decided at the start who's gonna be saved by God and who isn't gonna be saved by God. And it really doesn't matter what you do while you're alive, you're either fucked or not fucked.
+
+[00:09:19] Right, and what's in it for me, sorry? I've got some bad news for you, Andy. Oh, no. Which didn't make any sense, and I'm sure it would if we spent longer than a day reading up on this. But to me, as James says, predestination, nothing you can do. But also, it's not like he went out and had a great time because of it. He had a shit time.
+
+[00:09:39] To be honest, I think he was a bore, Blaise Pascal. He did the old classic mortifying, is it called mortifying, where he wore metal clothes with spikes on the inside to hurt himself at all times so he could constantly be punished and constantly banish vain and profane thoughts. You know, he was so devout. He completely abandoned maths, really, for the last 10 years of his life.
+
+[00:10:00] The fond thing. Is that your definition of boring, someone who wears metal spikes? Yeah, totally. Yeah, to the oddity. If who wears metal spikes? Yeah, totally. If you have metal spikes facing outwards, that's cool. That's S&M. If the metal spikes are facing inwards... He always wore stockings soaked in brandy.
+
+[00:10:15] Really? Yeah, I heard that. What's that for? I heard it. That's some hot gossip. I read it in a document. Yeah, he thought... Well, he did have very bad circulation. He was very sickly in his 30s, and he thought that his circulation would improve if he wore... Because in those days, it was like, this is a hot thing. Brandy is a hot thing. It will improve the heat in your body.
+
+[00:10:36] It will help the circulation. It feels like it would do. I mean, and then... Was it? Yeah. It might do it if it attracted people to suckle at your tights, as you well might. So he met Descartes, this is hugely exciting, in Paris in 1647. He'd been away, he'd been really ill, he'd just got back, and then he and Descartes were in the same room.
+
+[00:10:56] I think it's the only time... Are they both famous at this point? I think they're both pretty famous. Wow. It was a huge, huge meeting of minds. It's like... It's like Comic-Con, but for the... Oh my God. Yeah, it's like Comic-Con, but for the... Oh my God, yeah, it's like Comic-Con,
+
+[00:11:06] but for the greatest thinkers of all time. And all the doctors have been suggesting to Pascal, oh, you need to have more enemas and bloodlettings and purging. And Descartes said, have you just considered resting and having some soup? And it was a very, it went really badly because, you know. So he didn't want the resting and the soup,
+
+[00:11:23] he wanted the enemas purging the bloodless. Yeah, absolutely. Right. Weird guy. So do we know, James, the headline facts? So he thought about mathematics in order to cure his toothache. Did the toothache, was it psychosomatic? Did it actually... Yeah, I think what happened was it just went away.
+
+[00:11:42] Yeah. And perhaps the maths might not have had anything to do with it. Call me a skeptic. But if you... You can take your mind off pain if you fill your mouth with saliva. Does anyone else do that? Really? There are a few yeses and a few more than a few...
+
+[00:11:56] Okay, but if you... It's just something else to focus on. You just focus on filling your mouth with saliva. Right, I've got to get these saliva ducts flowing. What's hurting on you? Is it your teeth or anything on it? Yeah, but not... I don't think this works if you've broken your leg, for instance. It only works in like a headache or something like that. It works for a limited amount of time on minor pains. But on all pain? That's really interesting.
+
+[00:12:15] I would say all pain. So you've done it to yourself? I'm constantly doing it. So when's the last time you did it? I'm really not. Do you think this could be used in childbirth, for instance, Andy? I don't see why not. We've tried a lot of other stuff, and it doesn't seem to have worked, so...
+
+[00:12:31] Some of it does work. I'm just leaning over to you, I forget, have you thought about thinking of math equations? Look, just in your own time, what's six times 17? Hey, so do you know, um, toothache, one of the earliest ideas of what it might be is that you were infected with a tooth worm. Which is an amazing idea.
+
+[00:12:53] They thought there was a living creature inside there that was wiggling around trying to get out, and that's what was causing all the pain inside. And so this is ancient... I think it might be the oldest misconception in humankind. The oldest I've ever found anyway, because the Babylonians believed it. And it lasted forever. So this is ancient. I think it might be the oldest misconception in humankind. The oldest I've ever found anyway, because the Babylonians believed it.
+
+[00:13:08] And it lasted forever. I mean, it lasted until the 18th century, basically, when it was roundly debunked by Pierre Fauchard, a dentist. But it was believed everywhere, wasn't it? From ancient Egypt to Mesoamerica, how are they getting hold of this idea? I briefly believed it while I was researching this,
+
+[00:13:24] because I was in the 17th century and I just didn't do the researching of what a toothache is until later on. So for a few hours in 2024 someone believed in tooth worms. That tooth worms existed. Irish remedies for toothache. So is the National Folklore Collection much discussed still? A little bit, okay. So it was school children, they were sent out, sort of 10 to 14 year olds were sent in their local area. They wrote up all the folklore they could gather from people who'd been alive.
+
+[00:13:55] So this was done, yeah, 1937, 38. So the years it covered because of the age of the people they were talking to went back to the 1860s. And a lot of the folklore was to do with how to cure. It was warts, whooping cough, and toothache. And the cures, I have to say, largely potato-based. They were. All right.
+
+[00:14:16] I'm afraid. What do you do with said potato? Go into the garden, get a potato pecked by a crow, put it in your pocket and never let it fall out. Okay. That'll do it. That's it. Get a slice of raw potato, put it in your cheek.
+
+[00:14:33] It sounds fractionally more believable. That could work. Yeah, but by far the most common actually was not potato but was frog based. It was to keep a live frog in your mouth for a few minutes. The frog gets the tongue, come on, it's all right. Keep it in your mouth for a few minutes and then let it out. And it gets the toothache, very sad for it, but it takes yours away.
+
+[00:14:50] And do you know this sign? It's like you put an L on your forehead. James is calling me a loser? Yeah. No, I'm not calling you a loser. So this sign, this according to Canadian medical hall of fame member Ronald Meltzak, if you take the L sign for calling someone a loser and then you rub an ice cube up and down the L, then that will get rid of your toothache. And it works in more than 50% of patients. Really? Yeah.
+
+[00:15:16] And his theory, and he's tried this, and his theory is your body sort of feels the cold and it blocks some pathways, some pain pathways to your brain and so stops it. Wow. According to him. Give it a go. And he's at the Canadian Medical Hall of Fame. Yeah. OK. Not 17th century Hall of Fame, modern Hall of Fame.
+
+[00:15:35] Modern Canada, but modern. LAUGHTER It is time for fact number two, and that is my fact. My fact this week is that it turns out Stonehenge isn't a henge. Wow. Isn't that nuts? The only henge we know about isn't an actual henge. So what's going on? What is it?
+
+[00:16:03] Okay, this is according to English Heritage. If you go on their site, they have a fantastic page all about henges. And obviously, Stonehenge leads the category there. But then you get to a little bit where it says, it isn't officially a proper henge, as the main ditch is external to the main bank. So what it is, in fact, is a proto-henge. Now, here's the weird thing. Henges are only called henges because they're named after Stonehenge.
+
+[00:16:31] Wow. This cat has eaten its own tail. Yeah. It is amazing. It's where the ditch is and where the raised bank is. But it's also the size as well. It has to be over 65 feet across when you include the ditches. I think it makes sense.
+
+[00:16:44] If they found loads of hinges and they're all the same, apart from Stonehenge, it feels like Stonehenge was assembled incorrectly, but basically the packet instructions clearly showed the ditch inside the bank or whatever, or else I don't care. But do you know what I mean? They just did it wrong. Because I think there is a theory that it was basically a reassembly from another site. Oh, it's a secondhand hinge, basically.
+
+[00:17:08] Yeah. It's basically it was all. It's a hinge me down, basically. Oh, lovely. Lovely. Very strong. Don't boo, that wasn't prepped. You've been sat all day writing that joke, haven't you, Dan?
+
+[00:17:21] Yeah, there's another site in Wales, isn't there, where they've looked at what's missing from there and what's in Stonehenge. Oh my God, what is it? And it almost comes together as a whole thing. Really? Yeah, because they also worked out
+
+[00:17:32] that people were living there for ages and then they stopped living there and then they came back later and they stopped living there about the same time as the stones left. So it could be that they just decided to move to Salisbury and took their big old stones with them. The baggage allowance must have been massive in the olden days. There's also another theory by Jeffrey of Monmouth, the 12th
+
+[00:17:52] century author, he says that Stonehenge was originally built in Ireland by a group of giants from Africa. By a group of who? A group of giants from Africa. Oh right yeah. Classic. And then Merlin took, yeah. Yeah. Classic. And then Merlin took them over from Ireland to Britain. We're booing Merlin? We're booing Merlin? Wow. Wow.
+
+[00:18:12] Don't you mention his name in this town. He knows what he did. That's actually just very good etymological knowledge from this audience, because Merlin, of course, literally means shit. Merdin. It does, yeah, one of our earliest facts. In Welsh it meant shit and that's why we changed it to Merlin because we thought the name shit was too embarrassing. It was embarrassing. But he did indeed. I think these giants brought it all the way to Ireland from Africa and
+
+[00:18:39] then back to England and this was the prevailing theory or the most common popular theory, wasn't it, until the 19th century? I don't think many people believed it. I think it qualifies as a theory. I don't know. There were lots of theories and they all sort of reflect the times in which they were espoused. So there's, you know, is it a calculator to work out the seasons? Is it a healing place? Is it a spacecraft landing pad? Is it a dating, literally a date, a site for romance?
+
+[00:19:04] Oh, not dating, as in the date of... No, sorry, not carbon dating, just a date site for romance. Oh, not dating as in the date of the year. No, sorry, not carbon dating, just dating. Right. Dating, dating, yeah. How would the dating work? It's just a symbolic sort of meet. But you would meet them like, let's go to Stonehenge and catch a...
+
+[00:19:17] Catch something. Catch something. Well, that would be nice because it would be a dating site called Henge. That would be very pleasing. Oh, yes. Dan and I sitting... would be a dating site called Henge. That would be very pleasing. Oh, yes. You're a whole day writing that joke. Dan and I sitting next to each other on the plane.
+
+[00:19:30] What are you doing? Nothing. But one of the later series is that it was basically a meeting place, and it was actually a sort of community center, effectively. Like, it was an attempt to get people to come here, get involved in a big project, work together, because it was a time of big population decline and dispersal. So it was just an attempt to kind of get people together, you know. There's a lot of shit, isn't there, about Stonehenge?
+
+[00:19:55] But the nice thing is there always has been. When you look back at early 1800s sources, people bitch about the fact that the number of theories about where Stonehenge comes from, why it's there, are ridiculous. So there was a whole spate of research in the 1920s and 1930s. There was an extremely authoritative account written called The Stones of Stonehenge, and his name was Edward Herbert Stone, which is nice. Mmm. Those are Henry Brown as well, 1823.
+
+[00:20:21] He wrote what was officially the guidebook, it's the first guidebook to Stonehenge, and the theory that he puts in there, which he kind of presents as well, 1823, he wrote what was officially the guidebook, it's the first guidebook to Stonehenge, and the theory that he puts in there, which he kind of presents as fact, is that it survived Noah's flood. There was a very interesting debate between two excavators, again, in the 20s and 30s, when people were starting to do serious archaeology about Stonehenge rather than coming up with mad theories. The two main explorers of it and excavators of it were a woman called Maud Cunnington and a man called Alexander Kailer.
+
+[00:20:48] And I got really obsessed with them because they sort of hated each other. Eventually, their rivalry came to center on this one stone. And it was a stone that Maud visited in 1911. So she'd gone to lift up another stone, which is called Adam. You know, they give a couple of the stones names, Adam and Eve notably. And she lifted up this another stone, which is called Adam. One, you know, they give a couple of stones names, Adam and Eve notably. And she lifted up this other stone, which had fallen over.
+
+[00:21:08] Was she a giant? Sorry. Yeah, sorry. I should have made it clear that she brought quite a lot of heavy machinery with her. A large number of other people lifted up the Henge stone. Cunnington came to the site in the thirties when that idiot woman, she's put it the wrong way up, was determined she put it the wrong way up, flipped it over, put it on its head.
+
+[00:21:29] Now they've looked at the stones and realized that he got it wrong. So there's this upside down stone there that's messing it all up, solely the result of this rivalry between these two people. Did they fall in love? Because it sounds like everything you're saying is a rom-com. It does, I know. Yes, this is the beginning of You've Got Mail, yes. Other places that are modeled on Stonehenge.
+
+[00:21:53] Have you heard of a bonehenge? No. It's like an elephant graveyard kind of thing? Yeah, it's a mammoth bone circle in Russia made about 20,000 years ago. Very cool. Skonhenge. Is that as in scones? It's pronounced scone hench, that's correct.
+
+[00:22:10] That's a restaurant in California. There was the time when Queen Elizabeth was beamed onto the stones for her jubilee. What is there a word for it? Thronehenge. Ah, damn it. And Ireland is home to a historic site that was found by someone flying up an unmanned aerial vehicle. Would it by any chance be Dronehenge? Dronehenge!
+
+[00:22:32] Amazing. So it's still a mystery, isn't it, Stonehenge, where the stones come from? There's always new reports. They suddenly think that some of the stones are from Wales. I think they've always thought from Wales. Sorry, from Scotland. Yeah, that's the huge news, isn't it? That's the big news.
+
+[00:22:45] But recently they thought, why don't we try and see if the method of laying them down on sleds over logs is something that is achievable? And the result was they discovered it's just incredibly easy to do that. Ten people can pull the stones in a very, it's a slow manner, but it's not as taxing as we thought it was. We've just given these guys so much credit for hundreds of years it's a piece of piss do you know we found that we found the original tape measures that were probably used for Stonehenge we have this is so cool okay what they're
+
+[00:23:16] called the Folkton drums and they're big stone cylinders carved from solid chalk right and they are they're massive they're about 5,000 years old. And each of them is a particular size, so that if it goes around once, for example, it's a number of multiples of 3.2 meters. And that measurement crops up everywhere. So we think those are the sort of tape measures of the gods. And they could send off to Wales, saying,
+
+[00:23:39] can you bring me a stone that's this big, according to the drums? And they'll send back something that's the right size for you. How cool is that? What if it was just like an earthquake and they landed like that? Yeah. Yeah, I mean, that's a good... That's in many ways an easier theory for us all, isn't it?
+
+[00:23:55] Yeah. Older than Stonehenge is New Grange. In fact, I feel like your fact could have been New Grange is not new. Yeah. Oh, right. Yeah, but they recently Yeah, very old older than Stonehenge. They've recently done some DNA tests. What is it? Oh, sorry for international listeners And for those who maybe didn't do that better the reading It's a huge like a huge Barrow It's huge earth matter under the middle of Ireland very nice
+
+[00:24:23] which was probably a burial site, we think, because they found some bodies in there and they've done some DNA tests. And they found that there was a lot of incest going on. And what they reckon is it was a bit like, you know, in ancient Egypt, how all the kings and queens married each other and then, you know, their children married each other and stuff like that. They reckon there was a lot of that in Ireland at the time. No! LAUGHTER
+
+[00:24:47] LAUGHTER That was just one person cheering and a very worried-looking sister next to him. LAUGHTER APPLAUSE His mum and his sister and his cousin have all come along, but thankfully they're all in the same seat. Sorry.
+
+[00:25:06] Childish. But yeah, it's really interesting now because it implies a really elite system of almost like pharaohs in Ireland. Wow, cool. And that's also where they found Dronehenge, isn't it? Near thereabouts where that bloke found Dronehenge. And he's now published a book, The Story Behind the Remarkable Neolithic Discovery, about the events following the day he found it and how the world's media descended on him. And I encourage you to look up the accounts because I don't know how much it was headline news all around the world, as is claimed in the book. I've got one last thing, which is that I've always wanted to go to Stonehenge. I've never been, and as part of this research, I thought,
+
+[00:25:47] oh, I wonder if it's on TripAdvisor. And it turns out it is, and it has a lot of one-star reviews. No! Yeah. So this is one. This is one going as back as 2014. I was disgusted to find that this was just a few rocks to look at. Nothing to do.
+
+[00:26:05] They should knock it down and build an arcade or a fun fair. Don't waste your time. What a silly place. And then, August of 2023, someone wrote, I expected so much more than just stones placed in a circle. As a World Heritage Site, at the very least, I would have expected an ice cream van. I didn't fight the war for this. Next review, next review.
+
+[00:26:29] Not even a henge. It is time for fact number three, and that is Anne. My fact this week is that the sport with the highest rate of concussion is synchronised swimming. Is that because one of the swimmers bangs ahead and everyone has to copy them? LAUGHTER It's a funny line, James, but it's a fundamental misunderstanding of synchronised swimming.
+
+[00:27:04] We'll come come onto that. But I should caveat this by saying this is based on my reading and not actual academic comparative studies. But I have surmised this from a lot that I've read about synchronized swimming. It's extremely dangerous. So I was reading an account of Bill Moreau,
+
+[00:27:22] who was the vice president of sports medicine for the US Olympic Committee between 2009 and 2019 and he supervised lots of sports for safety and health concerns and he supervised synchronised swimming and in a two week training camp he said 50% of the team sustained a concussion and that surpassed NFL and Aussie rules football. Is that team just really shit? Like what are they doing? They must be, because they can't be hitting the bottom of the pool. Okay, it's not allowed.
+
+[00:27:53] It's just knocking heads isn't it? Yeah. It's just crazy. Well they keep on trying to make it better and better and better and better and better, which means getting in tighter and tighter and tighter to each other, and you're flailing around, and you're upside down, and you're kicking, and you just bang heads or kick each other in the face all the time.
+
+[00:28:10] Absolutely. It's colliding with each other. Sometimes I read an account from one of them who, I think one of them broke another's nose accidentally with a stray hand or foot or whatever, and they didn't notice. Because they're so focused on the routine. Yeah, you're doing your job. Here's the thing... Like... Sorry, but if I punch you in the nose right now,
+
+[00:28:30] you wouldn't continue with this fact. I'm a pro. I would continue on. There's a photo for the audience at home that's sitting behind us, and what you can see on the photo here is that the team is about to lob one of their members up into the air, right? And the thing is, in synchronised swimming, you aren't allowed to touch the bottom, right? So the amount of kicking that you need to do in order to get them up into the air, purely from swimming, it's nuts.
+
+[00:28:53] It's insane. I would think that they would breed synchronized swimmers who are just very tall so they can touch the bottom, but that is apparently not how the sport works. It's not. Yeah, exactly. No, no, it's against the rules. They're completely pointless. you wouldn't work. But this photo and the idea that they are kicking madly
+
+[00:29:09] underwater to sustain this beautiful performance above the water is epitomized by Sarah Oeck, who was a great synchronized swimmer who actually got kicked in the head and concussed and spent three years recuperating from that and so retired. But she said, we make it look pretty above the water, but below it's a battlefield. And it is like underwater.
+
+[00:29:30] It's mad. And there are lots of studies into concussion in other sports. You know, rugby is often cited as the worst. That's three concussions per 1000 kind of athletic exposures, which is one person in one game. But reading about synchronized swimming, there was
+
+[00:29:50] Miriam Glez who is the chief executive of USA Synchro which is a national organizing body said 100% of my athletes will get a concussion at some point and it is just crashing into and falling on each other. They have helmets. Well, they do in practice. But do they? They wear practice helmets. Yeah, they're made of silicon and they got like a honeycomb style makeup to them. They're very tasty, right? Have a lick while you're down there. Um, don't ever, don't ever, ever, ever say that again. Ah, obviously you can't see what's going on under the water, but I don't think... I think that's... the judges would come down very hard on that. That's what makes them jump up so high. Here's the thing, we're looking at the photo right now.
+
+[00:30:33] Doesn't look very synchronised, does it? And that's the thing, we're saying synchronised swimming. It's artistic swimming. So, it's not... synchronised has gone out as a term. But also, you were never synchronised with each other. You were synchronised with the music. Yeah. Which is why you can have solo synchronised swimming.
+
+[00:30:49] I have an opinion, which is that, I think this is a better sport under the water than it is on top. Ah, yes. Whoa! Yeah, yeah, I agree. So, you see the effort that goes in. And there are sometimes cameras under the water and you can just see the furious effort that's going in.
+
+[00:31:03] And I think it's probably the only sport where if you film it in a different medium it's I don't I'm not sure what I'm trying to say it takes place between two forms of matter right well okay okay now gradually diving what's the one water water polo where they've got the ball? Yeah, water polo is another word. That is crazy underneath, because they're literally kicking and punching and everything.
+
+[00:31:33] I think, to give Andy credit, diving isn't the same, because diving ends once you enter the water. Sikronite swimming is constantly taking part in both media. Thank you. There you go. So there's no sport where half of your body is encased in solid and half of you is in plasma. It just doesn't happen.
+
+[00:31:51] So I think that's what makes it interesting. That is true. People pass out quite regularly, because again, because so much of it is underwater, you have to be holding your breath a huge amount of the time, and holding your breath while exerting yourself enormously. And this is another reason why the concussion issue in synchronized swimming is such a thing,
+
+[00:32:08] is that it's probably extremely under-reported because the symptoms of concussion are very similar to the symptoms of swimming upside down whilst holding your breath whilst having to fling people out of the air quite a lot. So imagine doing that, you're there going, am I concussed or is this just how you feel when you're doing this mad thing? That's so funny. Yeah. When they're training, I mean,
+
+[00:32:28] the training is incredibly stressful and there's a lot of it. But one of the things they do is they do crossfit workouts with their mouths taped because they have to hold their breath under water for like up to two minutes. And because there's so much exertion, they have to not just get fit,
+
+[00:32:42] but be able to do these things while holding their breath so they'll take them out and do some crossfit. I can breathe through my nose, so... In your face! I believe they probably take the nose as well. I think they probably do. Also, and this is another sort of like cruel intensity about it, they're not allowed to wear swimming goggles. Yeah.
+
+[00:33:03] No, not in the final thing. Yeah, because the judges want to see their expressions. So the goggles aren't allowed to be there. And as a result, they get really irritated eyes. And so a lot of synchronized or artistic swimmers bathe their eyes in milk, because apparently milk is very good for it. Yeah.
+
+[00:33:19] And that's not recommended from the 17th century handbooks. That's a genuine. That's Blaise Pascal's face there. When you... Like you say, they want to see their eyes, they want to see their expressions, they want to see them smiling. And if you speak to any synchronised swimmer, they all say that the smile is fake.
+
+[00:33:35] And the reason they're smiling is to kind of hide the pain. It's kind of a grimace, because the pain is so bad, and they're like... Yes, yes, yes, yes, yes, yes. I mean, all of these reports about how tough it is do come from synchronised FEMIS. True. Yeah, but... I'm just saying...
+
+[00:33:51] How would the power lifters know? It does obviously incredibly hard. And obviously, if you come out of the water, your natural instinct is to rub your face and get the water out of your eyes, and you're not allowed to do that, because you have to be looking at the judges. Are you meant to maintain eye contact with the judges?
+
+[00:34:08] With water in your eyes because you're mostly blind because you're not wearing your... It's crazy. It's really, it is very hard. I take back my comment, please don't email him. And it, well, it is this very interesting thing which has a long history, it sort of kicked off officially in the 1890s
+
+[00:34:25] and was about looking good. It was only men who were allowed to do it at first. And almost immediately, people realized that women were much better candidates for it because, A, we have much more fat on our bodies, so we're more buoyant, and, B, people want to look at women in swimsuits, doing really pretty things. And so it's meant to be this display of aesthetic brilliance, but you do have these weird standards.
+
+[00:34:49] Like the hair gel is amazing that they have to wear on their hair to keep it looking completely, staying completely still in the water and looking great. So the way they do their hair is called noxing, with a K, K-N-O-X, and like Fort Knox. And it's because it's using Knox gelatin, which is a thing that's used to make jelly in cooking.
+
+[00:35:12] Especially in America, I think it's like the main brand of gelatin. Is it? Okay, okay, so there you go. So it's like industrial strength and you spread this paste onto your head and it basically solidifies your hair so it can't move.
+
+[00:35:27] And it's rock solid. Then you go in. Nox, by the way, was run by a woman called Rose Nox, who made this gelatin. She was married to another guy who died and then she took over the business. The first day she took over, she closed the back door of the factory, which previously all the women had to go into a different door than all the men, which was a kind of a thing that did happen occasionally in factories in America. Yeah, because they didn't want them mixing because they thought they wouldn't do any work if they were flirting the whole time.
+
+[00:35:54] She made a five-day week for her workers and gave them two weeks of paid vacation, which really no one else was doing at the time. Right. And she wrote a book. Her book was called Seventy Easy Delicious Desserts Made from Sparkling Carve's Foot Gelatin. No way! Sounds like a great book. That's nice.
+
+[00:36:12] Did you guys hear of Esther Williams in the course of the series? The movie star? She was very cool. She was a movie star who swam in the very elaborate routines. In the sort of 40s and 50s, there was a huge trend of aqua ballets and the time of Busby Berkeley and all of these amazing balletic dance scenes. She was great. Her films included Neptune's Daughter, Million Dollar Mermaid, Dangerous When Wet. They were just cool, cool films.
+
+[00:36:36] And she then had an unsuccessful move into land-based acting. And... Ah. She was just flopping around. Well, there was a comedian called Fanny Bryce who said of her, Wet, she's a star. Dry, she ain't. And she was very self-deprecating though. She said, if they ever teach a duck to act, I'm in big trouble.
+
+[00:36:56] She was great. She was so cool. She once did a 35-meter dive in a film playing another swimmer. That was Million Dollar Mermaid. She broke her neck. She spent seven months in a body cast. Was that one of the land-based ones? I don't know. It is time for our final fact of the show, and that is Andy.
+
+[00:37:23] My fact is that early phone boxes came with a little man inside who would arrange the call for you, then wait outside until it was over. Aw! Very nice! That's lovely. Why did we get rid of it? We could have had a really civilized time. Well, I guess it was because everyone learned how to use phones.
+
+[00:37:39] Yeah. That's true, and they didn't in the first place, so this is really interesting. This is from a book called... Before you explain it, when you say little man inside... Oh, yeah. Yeah, that's true. And they didn't in the first place. So this is really interesting. This is from a book called... Before you explain it, when you say little man inside... Oh, yeah. Like a borrower, right? Yeah, like a borrower.
+
+[00:37:52] A Lillibutian? No. It has to be small enough to fit in the phone box. Yeah. I mean, phone boxes, they're quite big. How little was the man? It's just a figure of speech. Some of the men were probably normal or even above average size, alright?
+
+[00:38:09] I also, for the show we're doing in Ireland, we have chosen the most quintessentially English thing to talk about. This will be 25 minutes on Red Phone Boxes. I don't think it's any more English than Stonehenge. Very good. Stonehenge, built by a giant. These phone boxes contained a little man. This is from a book,
+
+[00:38:37] which admittedly is called Enigmatic England. It's about... No, your audience! It's about these very early phone boxes. So before you have the one person sort of booth, you know, TARDIS style phone boxes, you had call stations, which are more like a garden shed. And they first appeared in 1886. They're incredibly old. And there would be an attendant inside who would take your money, place the call,
+
+[00:39:07] wait outside in whatever the weather until you finished. I read some reports as well that they would also lock you in so that you couldn't escape without paying. Which I love. Oh, right. Yeah. And then that was the thing, wasn't it? Cause you had to pay for it and they had no system
+
+[00:39:21] of you just putting coins in and it knowing that you put the right amount in and then connecting you. So you had to give them the money and then they would sort out all the connection part. Yeah, exactly. It's like, you know, I had to go to a phone exchange, to an operator, it was really complicated. And they would, I think, maybe time the call as well, I don't know. Well, the first ones actually, so...
+
+[00:39:40] A lot of them were in post offices and shops, the ones that didn't have little men. So you would... So you might have it in a place where there was already someone there. The first one's from Manchester and Liverpool in 1885. And in this one, you would give them the money, they would set it off. And then it said, this was from a newspaper article, a clockwork arrangement slowly moves an index finger visible to the user over a graduated arc.
+
+[00:40:06] So there's like a picture of someone's finger going, like the countdown clock going, do, do, do, do, do, do, do, do, do, do, do, do. Really? It's creepy, that, isn't it? That's amazing. What I noticed with your finger there is you did it anti-clockwise to us, so it was clockwise for the audience. Was that deliberate?
+
+[00:40:21] Oh, I've been working in theatre for many years now. Oh, God, you've just reminded me of a toothache cure. Sorry. It was to put a dead person's finger in your mouth and rub it on the tooth. Sorry, you reminded me. Was the finger connected to the dead person? I don't think it mattered.
+
+[00:40:41] I suggest... But I think for reas of use, you would probably disconnect it. You'd disconnect it, yeah, if you could. When was this? This was the 1880s. It was such an exciting time in the 1880s in Phoneland, wasn't it? Because it was... Show us.
+
+[00:40:56] What was happening? The invention of the phone, pretty much. That's a fairly seminal moment, yeah? It was mostly that. I like the fact that phone operators had to sort of know everyone in their area because there were so few people who were subscribed to the telephone exchange. As a phone operator, you'd call the operator and you'd say something like, could you put me through to the doctor who specifically does knee stuff, I've got a really sore knee,
+
+[00:41:23] and as an operator you'd need to know that doctor and which exchange point they were and plug them into the right thing. Have you tried attaching a frog to the knee? You have a dead man with you. Yeah, the first Irish telephone exchange was set up in 1880, but it had just five customers at the time. Right.
+
+[00:41:42] But you think there would be an even number so they could ring each other, but I guess that's not how it works. Do you know, I did check the phone book in Ireland from that year, which is very short. As you say, it got to about 19 or 20 customers by the end of the year. One of the customers was Messier's Guinness and Sons.
+
+[00:41:59] Oh, wow. Yeah, they got in there. Because if you need your Guinness, you need it now. Right. That's so funny. They had, in 1885, an got in there, because if you need your Guinness, you need it now. Right. That's so funny. They had, in 1885, an invention which was like an out of office email for phones. Okay. So if someone phoned you, you could let them know that you were out and you'd be back later.
+
+[00:42:16] Can you guess how that would work? Sorry, so you phoned them and... So you phoned me, I'm not in, but I know that I'm going to be back at 4pm. So I'm going to let you know. So I'm in the booth, the finger beckons. Is that it? No fingers involved. Oh, I know, I know, because there weren't that many phones back then, we're saying. So what you would do is you would call up the operator and say, anyone who tries to
+
+[00:42:41] call my phone, can you let them know I'm out until 4.30? This is an invention. It's a thing that's been... So your phone is ringing on the desk, and I'm away from my desk, so I need a mechanical claw to lift the phone to a mechanical mouth. No fingers, no claws.
+
+[00:42:58] Employ a boy. Employ a boy or a girl. I don't think that's an invention. The boy. The boy. This is when the boy was invented. Wow, the 1880s really were amazing. Basically, what you would do is if you're going to be back at 4pm, as someone called, no one would answer it. It would just go click, click, click, click, and then it would hang up.
+
+[00:43:19] And then they knew that you had to phone back at 4pm. Clever. Isn't that clever? That is. That's amazing. That's very cool. The Bristol Mercury, I read about this invention, they said this will be the most useful invention of the time.
+
+[00:43:30] Right. They were sure. Well, this was a useful invention. Jumping a bit forward to 1905, and there was a guy who was called Almond Stroger, and he ran a funeral home in Kansas City, and he invented the Stroger potbelly candlestick phone, and he invented it. It's not a catchy name. and he invented the stroger potbelly candlestick phone and he invented Stick is where you you have that bit you pull by your ear and then you hang it up and it sticks I like it. It does look like a candlestick
+
+[00:43:53] Yeah, or candlestick holder rather but the reason he invented it is because he worked in the funeral business and Anytime someone was calling up there was an operator whose husband ran a rival funeral home, and she kept putting it through to them. And he was like, I'm losing all my business because she works on the inside, she's feeding it to the wrong place. So he's like, I'm going to innovate the telephone. And he did with numbers. Someone's stolen the finger from my husband. Hang on, are you about, because I was about to say that's the best fact you've ever told
+
+[00:44:26] me. Yes. And were you about to say, so the story goes? Yes. Why do you do this to us? Well, no, because it's just covering my tracks, you know. That is the story that that was the invention. It's a fantastic story.
+
+[00:44:41] Great story. Oh dear. In 1915, a three-minute call between New York and San Francisco cost the equivalent today of $500. Three... Wow. Yeah. And these first ones, the ones that you were talking about, were three pence for three minutes.
+
+[00:44:58] That's very good. Well, a lot of... It was for business only, that was the thing. Phones were for business, they were for Guinness, and sons to place orders or talk to their merchants or whatever. And there were warnings in the early phone, that I'm quoting now, a document that said, it should not be used for the exchange of twaddle between foolish women. Wow.
+
+[00:45:17] Yeah. And again, in 1909, one phone company manager found that 30% of all calls were idle gossip. And this was very frowned on, because were, you know, rare and precious. And so they should only be for business and all that. And then gradually phone company bosses started realizing, oh, well, probably quite useful if people are speaking on our phone for a long time. I think also because it clogged up the lines, didn't it? Basically, if you were talking your twaddle to someone,
+
+[00:45:40] it meant that other people might not be able to use the lines because there weren't that many of them. Yeah. Eventually we got the automatic payphone where people could put coins in. Oh, yeah. So bad news for the little men. A lot of little guys. Unimplied all around the country.
+
+[00:45:54] Putting out little signs. But this was invented by William Gray and his original invention is very clever. So you have the thing that you're talking to, and there was a little bit of metal near the microphone. And whenever you put the money in, the little bit of metal slid out of the way, so you'd be able to talk. And then as soon as your money ran out, it would slide back into place,
+
+[00:46:17] so you wouldn't be able to hear them anymore. Chapsculatine. Isn't that cool? It is cool. It's really cool. He also invented the chest protector for baseball catchers. Oh that big like buff looking thing that they were Yeah, the thing that takes a chest. Yeah It's just two weird things to event isn't it is it is a little quiz from a California phone manual in the early days
+
+[00:46:40] I think this is the early 1900s. Keep your what out of the opening of the phone Keep your twaddle keep these what's the opening of the phone whether your mouth is keep your tongue out Oh keep your tongue out. It's good. Well, yes, I just think you're like what is close by who's using phones at this time Keep your nose out saliva saliva Yeah, no, this is a manly thing I Oh, it's a manly thing? Yeah. Oh. Okay, penis. James, mustache. Why on earth would you put your penis into the mouthpiece? I can't help but think of the name. I can't believe you would think of a peanut.
+
+[00:47:25] That's disgraceful. Oh, James. I'm really disappointed. So that was a phone manual, how to use a phone. I just had a thing on a phone book, which is, you know, another phone-related book. Which, that's the link. And I just really like this. Someone found this randomly a few years ago.
+
+[00:47:49] They lived in Idaho and they wondered what would happen if you looked up Adam West. You remember Adam West? He died recently, he was Batman. He died? I'm, God, this is a big moment. Did he? Quite recently, the last couple of years, I think. Gosh.
+
+[00:48:05] He was tied to a huge vat of acid. Anyway, this random guy on the internet found out that he just idly looked up Adam West in the phone book, and the message in the phone book read in Idaho, because Adam West lived in Idaho when he died, the message read, see Wayne, Bruce, brackets millionaire. No. And so you went to that listing in the phone book and then it said, please consult crime fighters in the yellow pages. And then you went to that listing in the yellow pages and it said, see Batman, white pages.
+
+[00:48:46] And then you went to that listing and it sent you back to Adam West in the phone book. Oh, okay, I need to end us here. And that is it for our show tonight. Thank you, Dublin, so much for being here. That is all our facts. We'll be back again next week with another episode. We will see you then. Goodbye!

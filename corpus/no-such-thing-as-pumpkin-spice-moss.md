@@ -1,0 +1,363 @@
+# No Such Thing As A Fish - No Such Thing As Pumpkin Spice Moss
+
+- Episode date: December 21, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-pumpkin-spice-moss
+- Slug: no-such-thing-as-pumpkin-spice-moss
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode and no such thing as a fish, a weekly podcast. This week coming to you live from the Soho Theater in London. My name is Dan Schreiber. I'm sitting here with Anna Tyshinsky, Andrew Arndt Murray, and James Harkin. And once again, we have gathered around with our four favorite Christmas facts for our Christmas special. And in no particular order, here we go. Starting with fact number one, and that is Anna. My fact this week is that when concocting its pumpkin spice latte flavor,
+
+[00:00:47] Starbucks tried various ratios of pumpkin to spice before eventually settling on 100% spice, 0% pumpkin. Was there a big pumpkin tax that they were trying to avoid, perhaps? Come on, James, we're an apolitical podcast. I think I've just saw a sign for pumpkin spice last year the other day and realised I've got no clue what it is and I still haven't had one by the way I think we established that none of us have ever tried it.
+
+[00:01:17] Dan has. I've had one, yeah. You've had one. Has anyone else in the room never had a pumpkin spice anything? Wait, has anyone ever had one? Yeah. Wow. Not many people. Okay, well it's not the sensation that it claims. We're not to do 50 minutes on how popular it is.
+
+[00:01:35] Yeah. For something that not many people have had, I'm shocked that you're not asking me for the experience, for where did I have it? How was it? I want it to be a surprise. Well, there's no story anyway, so yeah, let's move on. So Starbucks, they're a coffee selling company,
+
+[00:01:51] and they were looking for a new kind of holiday PR thing in about 2003, holiday flavor. And they set up a sort of testing room, a, I think they called it a lab. A coffee lab. They call it a liquid lab. A liquid lab. Yes.
+
+[00:02:11] And they sampled lots of different drinks. They had 100 ideas for new autumn drinks, fall drinks. And people in America can listen to this show as well. A lot of them do. And if you're listening in America, just sit back and feel right at home. Yeah, exactly. Because we're talking about the fall.
+
+[00:02:32] And they said they realized at the time that there was, and I quote, nothing around pumpkin in the market. And so they thought, let's come up with a pumpkin spice, as in the spice in pumpkin pie, which is obviously a Thanksgiving thing in America. And so they thought, okay, let's create a pumpkin flavor with the spices that come with pumpkin pie.
+
+[00:02:53] And they just tested a high pumpkin low spice option, high spice, low pumpkin option, and then they settled on zero pumpkin, because pumpkin does not taste of anything. And what it is, it's like what, cinnamon nut, Meg, cloves, all those kind of Christmasy. Ginger, yeah, yeah, yeah. Like, those are the spices that go with pumpkin.
+
+[00:03:12] But they did massively popularise it. I bet you wouldn't have heard of pumpkin spice in 2002. Oh, it was huge, wasn't it? Like Starbucks, particularly, those fans, there's a secret society of pumpkin spice lovers. It's the PSL. How secret? Like, what infiltration work have you done to find out there's a secret?
+
+[00:03:31] I reckon you'd be able to tell. If there was one in this room, I reckon we'd be able to smell it. Put it that way. Yeah, but people really went into it. So the Secret Society, you basically, when you joined it, they gave you a sort of, you know, the cardboard slip that comes over a coffee? It was a sort of woolly version of it, and it was orange, and so you got that as part of the Society.
+
+[00:03:48] There was a Twitter account that had 120,000 followers. That was 2015, but I checked it today, and they've now gone down to 85,000 followers, and the tweets have gone private. So something... So the tweets weren't even private, but the Secret Society. It had public tweets. I don't know what's happened, but something's gone on.
+
+[00:04:08] I'm a member of some pretty niche societies, but that is very niche. Yeah. Well, 2015 was a huge year for pumpkin spice flavour, because we should say that was the year that they did add pumpkin due to a public outcry. So there is pumpkin in it now, because there were various people who spotted that there was no pumpkin in it before. I believe there was a blogger called Food Babe, who she wrote an article about all the ingredients in Starbucks stuff,
+
+[00:04:33] and it was meant to be an article about the fact. that they were unethical or unhealthy and stuff, but she added on the end. And also, there's no pumpkin in pumpkin-spice lates. And they hit on that and added pumpkin. Okay. Ignored the other stuff. Yeah, yeah.
+
+[00:04:46] It has spread to everything now, mostly in America, but there's quite a bit over here as well. There are pumpkin spice humus, pumpkin spice salad, pumpkin spice butter, pumpkin spice peanut butter. Peanut butter already has a flavor. Peanuts. Pumpkin spice water, wallpaper,
+
+[00:05:02] toilet spray. Warpaper? I'm afraid. I'm afraid there are. there's a thing called dude wipes which are male pitched wet wipes
+
+[00:05:12] and I'm really sorry to announce they're called dumpkin spice okay there's pumpkin spice spam as well that you can get and they sort of announced it as a joke yeah spam announced it as a joke
+
+[00:05:25] and it was not real and then the outcry suddenly was there going but we wanted to be real and so they put it out as a limited series because they thought okay no one's really gonna buy it And everyone bought it. And for two years, they had this huge selling pumpkin spice spam, which no one really liked, but they just wanted it.
+
+[00:05:43] You know, Andy, you can get pumpkin spice moss. No. Yeah. Really? Wait. Those of you haven't been here before, Andy is very much into his moss. Yeah, I like moss. Yeah.
+
+[00:05:54] One of those secret societies we were talking about earlier. It's not officially that, but in Jamaica, you can buy Irish moss, which is an aphrodisiac, and it comes spiced with vanilla, cinnamon and nutmeg. So to all intents of purposes, it's pumpkin spiced. I believe, isn't that, what kind of boss is it called again? Okay, it's not real moss. It's not technically malt, is it?
+
+[00:06:14] It's a... It's algae, yes. Yeah, yeah, yeah. Sorry, just the last newsletter was quite big on that kind of stuff. Yeah. I was reading some psychology about why pumpkin spice is so popular. Oh, yeah. As we've established, it isn't.
+
+[00:06:30] But let's go with it is. Apparently, scarcity is one of, the main reasons that you can only get it in the fall. Did I do that right? Yeah, but I need to question your pronunciation of scarcity. Apparently, because you can only get it in the autumn and in the winter, it makes people desire it more. Also, a lot of the ingredients are Aphrodisiacs, supposedly.
+
+[00:06:54] What? Sure they are. Oh, the spices? Yeah, so cinnamon is known to relax muscles and increase sexual desire. It's been used in... Indian traditional medicine for a long time for that. Nutmeg, there's been one study on rats that found that if you give it to rats...
+
+[00:07:11] One study. You're not picky, are you, James? I'll tell you what, I was chasing them around that maze for a long time. Apparently, if you give a rat nutmeg, they have increased number of mounting episodes. Mounding episodes. Wow.
+
+[00:07:31] And nutmeg used to be so popular that people would carry it around with them, and they would carry their own like nutmeg graders. This was in the Victorian times. And Charles Sackfield, the sixth Earl of Dorset, used to just eat spoonfuls of nutmeg, which you shouldn't do because it is poisonous if you have too much of it.
+
+[00:07:49] But he did it. And he had so much one evening that he was imprisoned after running up and down all night, almost naked, through the street, in a nutmeg frenzy. Wow. So pumpkin spice,
+
+[00:08:02] I have a few issues with it and the things it's been included in. Mostly dog-based things. So it's in dog brew, which is a kind of dog-e beer, non-alcoholic dog beer, because I guess you shouldn't give dogs alcohol. Doggy donuts, dog biscuits.
+
+[00:08:17] They all come in pumpkin spice flavor. And this just reminded me of the fact that there's shitload of human food that has dog versions now. Have you seen? I actually haven't heard of it. Have you not seen dog ice cream? No.
+
+[00:08:31] It's everywhere. So in ALDI you get like dog ice cream for dogs that you feed dogs. It's literally everywhere. There's a cool dog vegan ice cream that costs £120 for a tub of it. To be fair, a 5-liter tub. Al-DIS changed. But is it non-dairy? Because dogs can't have dairy, right?
+
+[00:08:50] This one is non-dairy because it's vegan, and that's one of the things they say. Dogs are lactose intolerant. Therefore, we've made our dog ice cream dairy-free. Well, hang on. If they're not allowed dairy and there's dairy-free ice cream for dogs, What's a puppuccino? Because I saw someone order a puppuccino in front of me
+
+[00:09:06] in a coffee shop. This is what I'm talking about? Okay, for a dog? Yeah, yeah, for a dog. Right. So you do know of this phenomenon. And a puppuccino sounds like it's a dog killer. I sort of thought that was like a horrific isolated outbreak
+
+[00:09:17] of that kind of thing. Well, did the guy behind or the person behind the counter go, what the fuck are you talking about? Or did they give them something? Because it's not isolated. Well, they might have misheard cappuccino and just giving them a cappuccine. Because I frequently say, can I have a cup of tea?
+
+[00:09:31] and they say, Capagino, and I say, no, cup of tea. And then, like, that happens to me on a few times a year. Well, your accent is so hard to understand, isn't it, Andy? Can I have a cup of tea? The person who founded Cool Dog, the company, that comes up with these ridiculous ice creams, is called Don Thor, which is quite nice for an ice cream inventing guy. But still, I hate him.
+
+[00:09:54] Pumpkin Spice is, so it began to be, you know, a global phenomenon when Starbucks started doing it. But it is old, isn't it? I mean, it appears in America's first ever cookbook. There was a lady who was called Amelia Simmons, and she wrote this book in 1796, and it has this recipe in it. And it was a pretty amazing cookbook, because on it, it says by Amelia Simmons, but then underneath it says American orphan.
+
+[00:10:19] And there was this whole thing about being an orphan in it and needing to know how to cook for when you have to move, even as an adult, you know, into new places and be the person who is now going to provide food for a new food, family that you're living for. So it's really odd. The first ever American cookbook was basically designed for women
+
+[00:10:36] and orphans as the main thrush. Wow. It was the main thrush. Main thrust. That was one of the recipes, wasn't it? What's the mains? Thrush. We're going to have to move on in a sec, guys.
+
+[00:10:50] Can I tell you about a quick food promotion? Oh yeah, yeah. This was kind of how you make stuff popular. Okay, I really like this one. This is again 2003. This is the year that Pumpkin Spice Latte was launched. there's a seafood chain. They're in the States as well.
+
+[00:11:03] They're called Red Lobster. And they had about 700 restaurants at this time. And they thought, we will need to get more punters in. So they launched a promotion, which was called Endless Crab. And you could order as much crab, snow crab, as a kind of crab, as you want for $23. And they assumed most people have one or two plates of this crab. And boy, did they assume wrong. Because as soon as someone ordered three plates of crab, the restaurant was making a loss.
+
+[00:11:29] and the problem is people were turning up and ordering endless crab basically as it was perfectly their right to do but the problem is it's very fiddly to eat. It's those crabs with really long legs though so it's just very cumbersome process to eat so they were turning up bleeding all over the dish because you cut your fingers
+
+[00:11:45] I've been to one of these restaurants where you eat lobster and crab and I remember there's a dish full of blood in the end red lobster was just called lobster but basically people were coming in filling up the entire restaurant ordering crab they're not leaving for four hours because it takes so long to eat. So no other punters were getting in toward any non-crab dishes.
+
+[00:12:03] I think I lost half a billion dollars, their parent company. Wow. I know. A billion. Wow. This year, they introduced ultimate endless shrimp, and they had almost exactly the same problem all over again. Oh, my God.
+
+[00:12:17] There was a restaurant in Chicago, which had an all-you-can-eat thing. And a woman sat down at a table with a bunch of friends who were like six of them, and she ordered the all-you-can-eat pancakes. And the other said, water, please, and they all let all of her pancakes, and she just kept getting more pancakes, and people just kept eating them. And the police were called eventually.
+
+[00:12:36] What? The police were called. Because they refused to leave. And they were like, well, we're going to have to call the police. They're like, we want more pancakes. Oh, my God. I read one that this just happened recently. There's a new McDonald's burger, which is the McChrispy, and in Cornwall, they were forced to take down a poster
+
+[00:12:52] because they'd accidentally put it up right opposite a crematorium. Nice. Oh gosh, okay. Just spelled bit. Dear. Hey, grief can make you hungry. Smart move.
+
+[00:13:09] It is time for fact number two, and that is Andy. My fact is that when making sherry, it is important that you leave space for two fists inside your bunghole. So, the fortified wife... Making sherry what? Making unhappie. No.
+
+[00:13:28] Guys, that's... Come on, let's be serious for a bit. That's just happen. Sherry grows in... Sherry grows in... Sherry grows... grows on trees, isn't it? All sort of, like, wine bushes, vines, if you like.
+
+[00:13:45] Are you okay, I'm thinking? Yeah, I'm quite... I feel weirdly calm in the middle... I feel like I'm in the eye of the storm and everything's happening around me, but I'm kind of all right. And I know I'm not all right, so... Sherry.
+
+[00:14:00] Can you tell us what your bonghole is? Sorry. Like, sherry is a drink. It grows in Spain. It's made in Spain. In a place genuinely called the Sherry Triangle. Pretty cool. Very cool.
+
+[00:14:13] This sort of region where the soil is amazing and it has very chalky soil and it's absolutely perfect for growing the grapes that make sherry. And it is matured in casks. So you know, you take the grapes, you press them, you leave the pressings. Then it is must. They ferment. and then they go into barrels. And they are aged for ages in the barrels,
+
+[00:14:32] and that's where the flavor's mature. And they're, you know, and so they go into these, they're called butts, the sherry butts, which are 500 liters is one butt. And obviously, you need access to the butt, so you need a bung hole. And the, you know, so you drill a hole and you put the bung in, the bung hole.
+
+[00:14:50] And then you've, and the, the point, the point is that I am fine. I'm fine. I'm fine. Some sheries, like dry sheries, they have this layer that grows on the top. It's called a floor. And it's a layer of different kinds of yeast, and it really contributes to the flavour.
+
+[00:15:09] Right. Okay. So you want to let the floor grow. You need to leave space on top of the wine. So traditionally, you leave two spaces, two fists worth of space on the inside of the barrel below the bunghole. And that's it. That's all it is.
+
+[00:15:21] That's all it to do with fisting. That's all the material I've got. Do you know what an escafina is? Escafina, no. Escofina, yeah, I looked into, there's a glossary. It's the tool that they use. It's a semi-circular tool used to remove splinters on the inside of the butt caused by drilling the bungholes.
+
+[00:15:42] So that is the tools that we use. That's very cool. Yeah. That's cool. There are a load of, there's so much, like, cool terminology. They have the special tools designed to, like, extract a sample from the middle of the barrel, which is where you want to be tasting it.
+
+[00:15:55] And they have this amazing stacking. system as well. It's like a pyramid. The new barrels go on top and then gradually you transfer the sherry down bit by bit. But that means that the sherry's always mingling with newer and older stuff. And there are some of these systems, they're called Soleras. Some of the more than a hundred years old.
+
+[00:16:11] You know, there will be fractions of tiny droplets which are more than 100 years old with that barrel system, I think. Wow. Really? And remaining in there which is cool. And the weird thing about the sherry system that I didn't know is, well, let me see if you know, so if I'm in a restaurant, I order a sherry.
+
+[00:16:27] And they say, um... No, sorry, madam, you're under 80 years old. You can't do that. That's not normal. It's making a comeback, actually. Yeah, yeah, yeah. But you say, oh, what vintage is that? What year is that Sherry from?
+
+[00:16:39] What's wrong with what I've just said? Oh, say it again. A vintage... From no year. From no year. Exactly. How is that right? Talk to me, Dan.
+
+[00:16:48] It's a time-traveling barrel. Stop talking to me. No, because it's been... It's been going through this pyramid system. Exactly. one year, it's from a range of... It's all mixed up. I didn't realize this at all. So it's
+
+[00:17:05] from lots of different years. Each sherry in the Salera system is like the mixing up of different vintages. And apparently the older wine matures the younger wine and the younger wine keeps the older wine fresh and vigorous. So once you've got your sherry, you put it in a barrel. You can improve
+
+[00:17:21] it by sending it round the world. And this is something that again is making a comeback. So quite recently there has been a ship called the Juan Sebastian de Alcano, where they've sent a barrel around the world, and when it comes back, it's going to be tastier, apparently. It's all the sloshing around.
+
+[00:17:39] It's known as Marietos sherry, which is seasick sherry. And apparently, because it sloshes around all that time, it tastes way better. Isn't it amazing that that's the theory, but we don't know. So they just go, like, everyone reports that this makes it better. It must be the swaying of the boat as you go along. Yeah, absolutely. And back in the day, they used to do this all the time.
+
+[00:17:58] and whenever anyone would go around the world, they would take some sherry with them, and you would put it on the boat, and when it came back, it would be worth five times more than when you left it. Yeah, so you could sell it for five times more, so as long as you put enough on there, it was worth it to sail it all the way around the world
+
+[00:18:13] to make that money. That's very cool. Couldn't you just, like, employ an intern to knock it over and pick it up most of times? It's not quite as romantic, is it? Yeah. Like, this has been interned. I don't know the difference.
+
+[00:18:28] But Magellan, when he went around the world, he brought way more sherry than he did actual armory to protect the people on his boats. 20% of the funds that were spent on the things brought onto the boat were for exclusively Sherry. And so he had... To be fair, he wasn't meant to be declaring war on anyone. No, but it did get him into a situation where he, on the day that he died, he did have to bring in a group of people on the island in order to make up the missing armory, basically. And then he died in the subsequent attack. So they say Sherry very slightly was involved in...
+
+[00:18:58] his demise as a result. But he brought on 203 buts barrels of sherry, which is the equivalent of 243,000 litres. That's what they had for these trips. Wow. That's amazing. Yeah. Another person who sailed with a lot of sherry was Sir Francis Drake.
+
+[00:19:14] So after he attacked Cadiz, known as the singeing of the King of Spain's beard. You might know about it. It's like around the time of the Spanish Armada and stuff. He came back with a load of sherry barrels. In fact, he came back with two things. 900 casks of the stuff. And that began something called the sherry craze in Britain
+
+[00:19:34] because they suddenly had all the sherry, all the rich people in the country could drink it. They'd never had it before. And it became really, really popular. And the really interesting thing about that is after a little while, had a lot of empty sherry barrels because they drank it all. So what did they do with that?
+
+[00:19:50] They started putting alcohol in there in Scotland. It gave it more flavour and we invented whiskey. So good. So whiskey came from sherry. Hooray! Yeah. But no, and that's how you make whiskey. You need sherry.
+
+[00:20:05] But there's a huge problem, which is that sherry became really unpopular. You know, it's sort of the sales absolutely created in the 80s. And as a result, they were making, you know, a fifth of the sherry they used to. And it's not shipped in barrels anymore. So what do you do for the whiskey? You can't make whiskey anymore if you don't have the sherry because it's not being made. And even if it is made, it's not in the barrels. So now, sherry makers are filling barrels with sherry,
+
+[00:20:27] just to flavour the barrel. No. What, and then just tipping it into the ocean? Pretty much. Like, I've got space in my house. Have you got space for a million litres of sherry? I'll find room. But some sherry makers make a million litres of sherry
+
+[00:20:43] to season whiskey cusks. No. Wow. I'm sure they find a use for the sherry, but that's why they're doing it. It's for the whiskey thing, for the whiskey trade. Because there are a billion litres of Scotch exported
+
+[00:20:53] from Scotland every year. It's a massive trade. So, yeah. Wow. I like, so Sherry's a fortified wine, basically, and I like the fact that you make fortified wine by adding wine to wine. It's just double wine. That's just like you on a night town, isn't it?
+
+[00:21:10] I'm fortifying the wine gradually in my stomach. I guess, because, no, I've always a bit confused about how you make all these things that are so related to the grape. But basically, you get the wine from this region of Spain, and you make it in a certain way that they make it. And then you add brandy to it. And all brandy is distilled wine, i.e. wine where they've removed as much of the liquid as possible
+
+[00:21:33] and left the distilled alcohol. And so you just chuck, chuck that in. So sherry is just wine plus wine. And it's good because wine, I didn't realize, has a maximum possible strength. Really? You know, I'd never questioned why, you know, wine hovers around the 13, 14%,
+
+[00:21:50] can never quite crack above into 15, 16. Why not? Desperately. and turning around every single bottle and this huge supermarket aisle, there will be one, there will be one, 15. You're right, because like 14 is a horrifically strong wine, to me. Absolutely.
+
+[00:22:07] And I like a nice, you know, 10 or 11. You know, like something of it, you're watered down, yeah. Please, you're drinking the 0.5% beers. But, yeah, it actually can't survive if the alcohol concentration gets too high. So wine is made by having yeast convert the sugar, so it's made by fermentation, where yeast converts the sugars. but yeast dies in a certain concentration of alcohol.
+
+[00:22:30] So awfully, it's killed by the thing it creates. It creates ethanol, and then it's killed by it if it gets above 16%. And so that's why we need things like sherry and brandy, because they are able to exist above the 16% hurdle. Okay. I was reading the Australian Dictionary of Slang about the word bung, because this was about bunkholes. And it says, bung is a term which may refer to two very separate things.
+
+[00:22:59] It may be the hole in the barrel where beer is poured from, or it may also be an anus. So I'm going to give you some bung phrases, and you have to decide whether the bung in the phrase refers to the barrel or the anus. Great. Okay. Okay, so bung juice. This is bung juice a slang word where the bung part refers to an anus or a bong. barrel. Now, I think I've got a bit of inside knowledge here because I think, I think it's the barrel
+
+[00:23:28] because I think there is a thing called bunghole sniffing which is where you're testing the... You're testing the whiskey by just giving the barrel a quick sniff and it's sort of, it's permeated through it. So I'm going to say barrel. Yeah, are we all in agreement? I'm going to go with Andy, the expert on bunghills, yeah. No,
+
+[00:23:46] you're right. Bung juice just means beer. It's another word. Oh, yeah, very nice. Okay. To hit the bung. Shake your territory here. What country did you say? This is in Australia. I should know this. I should know these. Hit the bun.
+
+[00:23:58] Come on, mate. Let's hit the bung. It's... Oh, mate, you hit the bung hard last night. Okay. It's amazing seeing you pretend to be the thing you actually are, Australia. I'm going to say it is, again, a wine thing. Yeah, you're right.
+
+[00:24:19] It means to get drunk. Just to go out. Hit the bun, hit the bun. Yeah, it's very nice. A bun bowl. Bung ball. Bung ball. That's got to be anal.
+
+[00:24:27] It's... Ooh, yes. No, I think it's wine. Yes, I... Weirdly, I read about a mythological creature that seeks out the bung ball and it's a... It's where it's believed the soul is kept.
+
+[00:24:43] It's a little ball inside the anus that this beast comes to eat. What are you talking about? Yeah, it's a... It's not what James has on his face of paper. There's a mythological creature that eats the bungal. whole soul ball
+
+[00:24:59] that's in our anuses. No. Austria. Miss and London's in Australia are very different to the classical ancient Greece. A horse with wings. Australia. It's got to win your bang ball, mate.
+
+[00:25:19] No, it's a dance run by someone who runs a pub. Brilliant. A bung ball. A bung ball. You've not... They've all been beer so far. Yeah. Well, I didn't want to go, you know, fill out of a bell.
+
+[00:25:32] Yeah, yeah, yeah, yeah, fair enough. Two blues. There's been a period where rude words have been allowed to be added to the names of wines now. So, for example, before 2001, the word bitch was never used on a bottle of wine before. Since then, in the subsequent seven years, there's been 65 wines that all have that as part of their name. And words like ass and asshole. When you say aloud, like, by the government of the wine government. Yeah, yeah, exactly.
+
+[00:25:55] Like, there's, yeah. Are they international? Wine authorities. Or is this in one country? Is it here, for example, in the UK, or is it? Yeah, there is a governing body that allows people to say, yeah, it'll be for certain countries.
+
+[00:26:07] You can call it bitch, sort of bitch-tits wine now. Yeah. Nice. It's ever going to be a 15% wine, that is. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that the 1894 Baltimore Orioles baseball team
+
+[00:26:31] had a superstition in which every player would drink a glass of gravy before every match. Wow. So this is from a book called Field of Magic. And it's a book all about different superstitions. And yeah, I just thought it was strange and very Christmassy gravy. The Orioles were, they were like quite a good team at the time. They were quite dirty team. A lot of people thought that they had very good team morale and they were a good team together.
+
+[00:26:58] And apparently one of the reasons was they would drink a glass of turkey. gravy before batting practice on game days. Was that one of the reasons why they were a dirty team? Had they all thrown up gravy down my front? Yeah. What's a dirty team? Are they cheating? They would do a few tricks.
+
+[00:27:13] They would put soap around the mounds so that if an opposing pitcher was trying to get their hands nice and slippery, or sorry, to dry them in the dirt, it would get slippery instead. And so they did just little psychological things to... Wait, so as a picture you want to have, just to explain...
+
+[00:27:27] Yeah. You want to have hands that are dried in the dirt. Yeah, you want... You want to throw with precision, right? So you want your hands as dry as possible and not sweaty. You want grip. Because spitting on balls, obviously, in other related sports, can be an advantage. Cricket.
+
+[00:27:40] Also not allowed. Spitting on baseballs was a thing as well, wasn't spitballs. And the idea was you would normally have a good grip on them. But with the spitball, they might go in a really weird direction when they flew through the air. They became quite dangerous. And they got banned because someone actually died, I think, when they got hit by a spit. Get out. Yeah, yeah.
+
+[00:27:56] Before we get into them... They blame the spit for that? Like, surely, that's the... That's the very outermost layer of a hard baseball traveling through the air fast. Well, like, what are they otherwise going to do is just use foam? No, I know, I know. I just think that's like, blame the ball. No, I completely agree.
+
+[00:28:13] I think it's all very questionable whether these things make that much of a difference to the ball. You know in cricket where it's cloudy, and so people go, oh, it's clear the ball's going to move around a lot today. Or, I don't know, you know, it's a little bit of a fog. It's like, oh, the ball's going to swing to the left constantly. And no one actually, I think a lot of these things have not been proven and no one can actually say why. They've got to talk about something for five days.
+
+[00:28:38] I'll tell you the thing about gravy. Oh yeah? This is a story about an elderly lady in Scotland, in West Dunbartonshire, right? This was three years ago, 2020. Her family, she was, I think, in her 80s, they were tidying up her house. She was still around, but she was just having a clear out.
+
+[00:28:57] And they threw away some old bistos. tins, right? You know, like a load of cluther in the kitchen, lead of old Bisto tins, chucked them out. Turns out she had hidden her life savings of 20,000 pounds in cash. Oh, not in gravy. No, she'd hidden 20 grand in the Bistowice in the family of chucking away.
+
+[00:29:18] There is a happy ending. They went to the recycling centre and two absolute heroes who worked there searched for two hours through all the chucked-away bags and they found the tins. Wow. Got it back, thank God. Listen, guys.
+
+[00:29:32] You don't need to applaud the recycling workers. Also, two hours. That wasn't 48 hours. Do you know why Bisto is called? Bisto. I actually don't. Bistow. Bistow. Because you bestow it on,
+
+[00:29:47] well, your daughter, if she haven't chucked it out, for instance. That's a great answer, but it's wrong. Well, it sort of rhymes with bliss, a bit, not quite at the first time. Blist, though. Like, I thought it was an ad campaign. A bit of the world. rhymes with bliss. Yeah.
+
+[00:30:00] I thought there was an ad campaign which used the word bliss and Bisto together. There might have been, there was quite a lot of have campaigns, but that wasn't, no, no. It is an acronym for Browns, seasons and thickens all in one.
+
+[00:30:13] Oh. Is that cool? Sorry, but that doesn't... Well, I added some extra words in... Browns season... BESTIC. Browns seasons, thickens in one. Where's the eye?
+
+[00:30:22] Bisto. Bisto. The in one. The inn has been taken and moved to it. earlier in the acronym. Right, so we should call it stewy. Well, there's an hand in there as well.
+
+[00:30:35] Steep. Basatio. Bisatio. These guys don't know what they're doing. They're drunk on gravy. They probably changed it to what it became because they were like, this is getting nothing like the word bliss.
+
+[00:30:48] What will we do? A gravy train. Yeah. That's a phrase. Yeah. I found myself looking for whether there was ever an actual gravy train. Yeah.
+
+[00:30:55] Doesn't appear so. Wow. We don't know why we say gravy train. We don't know why it's a train. And gravy obviously is slang for something that's like easily won. Hence the reason we say gravy train. But why train? And apparently there was a writer who theorised that it was actually a mishearing.
+
+[00:31:19] And he wrote that since gravid means laden with eggs, a gravied rain would imply a fall of eggs. So gravy train is probably a mishearing of gravied rain. What a disgusting sounding. The eggs raining down on you. Wow. We don't think that's where it comes from. No.
+
+[00:31:44] I was looking at what is gravy but the juices of meat. So I was... Right? Thank you, Slavoy, Zijek. It sounds like a sort of philosophical paper that you've been working on for 12 years. Yeah, yeah. Yeah, no, I'm building it up. So, I mean, gravy is just the juices of meat and then you thicken it, right?
+
+[00:32:11] By chucking in a thickener. Exactly, cornflower. And so, you know, when you get rare meat and it's red, why is it red? Blood. Yeah, it's all that. But it's not blood, is it? Meat juice.
+
+[00:32:23] Meat juice. It's, thank you from backstage. Sinister heck. because it sounded like it came from behind. Was it you who said it? Have you been there the whole show? I'm so sorry, you've got the worst view in the house. I'm so sorry.
+
+[00:32:37] He's just got a view of my bunk. Oh yeah, you've got a lot. Well, thank you for quietly and cynicely murmuring meat juice. That was amazing. I thought this was interesting. When people say, is that meat really nice and bloody, it's got nothing to do with blood, the redness of rare meat,
+
+[00:32:55] and the juices, the red juices that squeeze out of it. So it's from myoglobin. So it's from the muscle. And myoglobin is the protein that transports oxygen through muscles, like hemoglobin transports it around our body. And similarly, like with hemoglobin, the reason that's red, when myoglobin is exposed to oxygen, it goes red. So it's just this protein in the muscles that goes red when you cut into meat.
+
+[00:33:17] When it's sitting inside the meat, it's not red at all when it's not exposed to oxygen. But then it becomes red. It's kind of our fold in a way. We've turned it red. The red stuff is there. As in... I think... It is indeed our fault, yes.
+
+[00:33:31] The World Gravy Wrestling Championships. Gravy Wrestling. Gravy wrestling takes place at the Rosen Bowl pub in Rosendale in Lancashire, and the Fire Brigade are always there. What? Can't they just use the gravy? If there's a fire?
+
+[00:33:47] Deploy the gravy cannon. Can you guess why they're always there? People get stuck. No, people don't get stuck. They're covered in gravy. You could drown in gravy, so they're sort of like a life rescue. Yeah, I guess the fire brigade would do that.
+
+[00:34:01] No, they just... You need a big fire, you need a big flame to make all that gravy. No, they just wash down the wrestlers between belts. Oh, okay. Very good. And there was a pro... They specifically say that if you're a pro wrestler, you shouldn't take parks.
+
+[00:34:19] Because it's just for fun. It's like the people who win it are the people who have the best outfits and who have the best style and stuff like that. But there was a professional wrestler called Tommy Jupiter who went and did it. Can you tell what the difference between pro wrestling and gravy wrestling is?
+
+[00:34:35] What's the biggest problem, perhaps, with gravy wrestling? Boiling water? Boiling water? It's not boiling hot gravy. I should say, it's cold gravy. Another year of third degree burns at the Gravy Wrestling Championships. Shall we go cold?
+
+[00:34:51] Make shit? No, no. Apparently you can't get grip on people, but also it gets into your eyes and your ears and you can't see or hear anything and you just end up flailing around the whole time. Oh wow. So was this the progress's excuse for losing?
+
+[00:35:10] I was like it. Can I just quickly ask the room? Those of you here who are millennial or Gen Z, if you know what roughly age group we were in, can you give me a chair? And those who are, I know it's a slightly younger crowd, those who are over like 50, give us a chair? Okay, right, so the first lot,
+
+[00:35:29] if you like gravy of the Millennials or Gen Z lot, give us a cheer. Okay, it's completely ruined my fact, thank you. And the slightly older group, the 50s and over, if you like gravy, give me a chair? Okay, right, that's... Okay, now let's hear the fact. The words I've got written down are,
+
+[00:35:49] young people don't like gravy anymore. Not in this room. This room is the absolute nexus of, young gravy lovers. It doesn't surprise me that our fans are weirdo outliers. I bet you anything. If we ask, Millennials or Gen Z, give us a trivia like Sherry.
+
+[00:36:09] See, I told you. Weirdo outliers. I was reading a lot of surveys about gravy and about who likes it and who doesn't. And I did read, okay, just listen to this. I'm quoting directly, right? British people are so obsessed with gravy that they drink it through straws,
+
+[00:36:23] take it on holiday. and even pour it over pizza and pasta. This is a poll of 2,000 adults that found that 13% of people eat it in the car, 11% carry it in a flask, and 14% take it on holiday with them. And this happens to be a survey commissioned by Schwartz Gravy. Claudia Winkleman uses it to tan.
+
+[00:36:49] Brady, really? Yeah, she does or she used to. I think now she has someone else. who sprays tan on her. But yeah, when she was at uni... What didn't she used... It's like painted on? Well, you know, all she did was
+
+[00:37:00] she told Women's Hour that she used gravy granules to generate her tan, her fake tan at uni when she first got obsessed with tanning, as she explained. Didn't they do that in the war when they didn't have stockings? They did, yeah, dark in their legs with gravy,
+
+[00:37:13] wartime thing. But I don't think... I don't think it was even Second World War when Claudia Winkelman was at uni. Okay, it is time for our final fact to the show, and that is my fact. My fact this week is that every year on November 29th,
+
+[00:37:34] people in the Netherlands put a pancake on their head. It's just a thing they do in the lead up to the Christmas period. It's, what day is it today? Get the pancakes out, and they just plop it on their head. Is this everyone? Like, if you watch the news,
+
+[00:37:48] are they all wearing pancakes? Exactly. Is it like a poppy, and if you don't wear it on TV, then people really kick it on. Where's his bloody pancake? It's so disrespectful. Yeah, yeah. Yeah, this is a growing trend. Basically, this erupted off the back of a cartoon that was published in 1986,
+
+[00:38:04] where in the cartoon pancakes are put on that. There's a long convoluted story, but the basic premise is a joke is made, a pancake's put on ahead, and it kind of just got picked up by people in the Netherlands, and slowly in the subsequent, what, you know, 30-ish years, people are now doing it to the point that I've asked three people from the Netherlands, they go, yeah, yeah, we do that. So effectively, in the cartoon, the reason, for one of the reasons that it was used
+
+[00:38:29] is that it's very cold in late November and if you have a bald head or even a bold spot you can use the pancake as effectively... Nope, not a reason. Okay, not the reason that there was... Not in the post-hatt world. No, yeah. You're right.
+
+[00:38:44] Before the invention of the hat and it is correct, this would be plausible to you. Yeah, but you can't eat your hat afterwards, can you? Yeah, and that's where the phrase comes from, doesn't it? I mean, that's from when the hats were pancakes. I'm sorry, I should have properly researched this made-up story from a comic book.
+
+[00:39:00] Don't start where you can't finish, all right? We've got more questions about this. Okay, keep going. Do the pancakes end up being eaten? Or are they disposed of? No, I think... Do you eat your own pancake, or is it like you... You think that's a bit sexy?
+
+[00:39:13] It's eating someone else's a package. It's just sort of like lock eyes with someone across a bar and they've got a nice pancake on their head. Yeah, yeah, yeah. You know. It gets to 1159 and you're like, oh, licking your lips. Well, you know, you're both upside down, eating each other's pancakes, you know.
+
+[00:39:28] Well, you'd think, given I'd spoke to three people who do this, I would have asked more questions than just, do you put it on your head? Yep, okay, good, thank you, goodbye. But that's what happened. I just asked that one question. Silly me. What a great question. Do they eat it afterwards?
+
+[00:39:44] I have no idea. I think they do. Okay, there we go. I believe they do. And I think it's just for a photo, isn't it? Often. Maybe the cheats do it for a photo. And no toppings on the pancakes at the time, as far as I can tell.
+
+[00:39:55] Is it the sort of smaller... smaller diameter, thicker pancakes, or is it like the big crepes that you have? Oh, that's a great question. Like thin or thick pancakes? I think if I had a bold patch, I'd go for the thick, but I've seen the photos, and they're more like the crepes. Yeah.
+
+[00:40:10] That would be like a yamulka, wouldn't it? Well, that's what I was thinking it was. It was like a winter yarmica, which is... But yeah, no, it's more like the big, a bucket hat. So they are like the crepe ones. Okay, good? Yeah. All right.
+
+[00:40:23] Any further... I'm actually not taking any more questions at this time. It is quite a niche, and it feels like quite a modern social media-driven tradition, isn't it? Yeah. People sharing pictures themselves. And I was looking at like kind of weird modern Christmas traditions that grow. So in Sweden, I don't think we've mentioned Kale Anka before, which is such a phenomenon. So this is the fact that half of people in Sweden on Christmas Eve watched Donald Duck, 50% of the country.
+
+[00:40:55] Wow. Mid-40s percent since, you know, Netflix. and stuff. But yeah, and it's these Disney short cartoons. It's been happening since 1959. And I was reading an article by a guy who's going out with a Swedish girl, and he spent Christmas with their family, and he said it's not at all, a light-hearted thing. You do not eat or prepare dinner while watching. Everyone sits very quietly and watches. Really? People plan their Christmas around it, so you've got lunch before Calaisanka, you've got Father Christmas comes after Calaisanker, but when that's on, you've all got to
+
+[00:41:27] watch. And they've seen it, you know, 40, 50, 60 times before. And the biggest complaint scandals in Swedish television come the few times that they suggest canceling it. So I think the 1970s, they said they wanted to alter it or cancel it. And, yeah, huge outcry. So the same cartoon, a five-minute shorts every time. Yeah.
+
+[00:41:49] Wow. A series of cartoons. That's amazing. What country do you say? In Sweden and also in Denmark, I think they do it as well. Is anyone from Sweden or Denmark in the audience? And Norway? And Norway.
+
+[00:42:01] And so you guys do that? Wow. Do you like it? The first ten times was okay. The first ten times was okay. There's a guy called Arnie Weiss, who is a presenter in Sweden, and he was the presenter of the show that kind of hosted it, and he said it broke up three of his marriages.
+
+[00:42:20] What? Sorry. Oh, wow. Again, who would like to take first question on this one? Donald Duck. Do we know how? Like, was he walking around like Donald Duck without any trousers on him?
+
+[00:42:32] And kept bumping into other women. Wait, him presenting it broke up three of his marriages. This feels like a lot of transference by him. I think he did drink a lot as well. But no, no, he had to present it every year. And one year he said, do you mind if I record it in advance? Because it is literally the same thing every year.
+
+[00:42:56] Record it in advance. and I can spend Christmas with my family. And rumour got out that he wanted to record it in advance. And there was genuine proper public outcry. The media got hold of it and said, absolutely not. Has to be live. Has to be Christmas Eve. And Christmas Eve, I think, is a bigger deal on Christmas Day
+
+[00:43:09] and not of those places. And it broke up his marriages. It's not like getting brownie points, offender. No, because it's on the rocks already. The wife said, you know, get back to your producers and tell them you're not going in this year. He's asked them, he's come back, tail between his legs. And the producer's like,
+
+[00:43:23] whewo, wow, wow, wow. That's, wow, gosh, poor guy. Poor guy. Spending Christmas with your family is kind of modern tradition, I guess, in this country. And apparently spending Christmas with your in-laws can have a detrimental effect on your bowels. This is a study in 2016 that collected gut bacteria from people who had spent Christmas in their own family or people who'd spent Christmas with their in-laws. And they found a significant decrease in ruminococcus species.
+
+[00:43:58] in people who've visited in-laws, and if you don't have as much of this kind of good bacteria, it's associated with stress, with depression, and it can give you very loose bowels. Right. Is it the stress and depression that causes the bacterial thing? That's what we're thinking, yeah, exactly. So it's more stressful and depression to be.
+
+[00:44:16] It's more stressful for you because you're with your in-laws, you have less of this bacteria, you need to go to toilet more. Right. Wow. And we're sure it's not just an excuse. The scientists writing this, we're visiting their in-laws, and they just want to excuse themselves for the night.
+
+[00:44:28] 19th time at Christmas. Oh, where's Daniel? Oh, it's just the bowel thing. You read that study, didn't you? In these papers, the scientists are always really rigorous and they give their like caveats in case there's anything. They said, it is possible that participants with greater aversion towards their in-laws have used the excuse of participating in a scientific study
+
+[00:44:48] addressing Christmas poo to not visit their in-laws during Christmas. Yeah. Well, just while I remember, as well as a pumpkin spice latte, Starbucks also recently released a olive oil latte and allegedly if you have it you may shit yourself so be near a toilet if you go there I mean with a latte you're in danger of shitting yourself anyway
+
+[00:45:10] exactly then put some oil in it's like the yeah the oil loosens you up and the coffee makes you want to go lubricates yeah sorry why would anyone order an olive oil latte that sounds absolutely mouth it's much smoother apparently yeah no kidding I mean
+
+[00:45:26] I wasn't struggling. I wasn't treating a normal latte like it was made of gravel. I'm not a frontier pioneer kind of guy, but I'm capable of getting to the end of a latte without, you know, lacerating my throat. All right, can I tell you about another tradition? This is an old tradition, actually.
+
+[00:45:45] This is a very ancient French tradition. It's called the Feast of the Ass, and it dates back to grow up. It's also known as the Feast of the Donkey, but it's much less funny. And it's basically you take a donkey... Take it where, Andy? You take it to church, actually.
+
+[00:46:09] Do you? Okay. Yeah, you take the donkey through the town. And then it's... And then you take it... What, guys? Literally everything you say sounds like a youth person. I've got sort of track. I'm in a maze.
+
+[00:46:21] Everywhere is suggestive. Often there's... someone riding the donkey, and it goes in and it goes in, you're like, I'm just trying to whip through all the innuendo so we can, you know, like, and it stands next to the altar in the church, and it stands, and then the priest does the sermon. Yeah. And then at the end of the sermon, the priest and the congregation,
+
+[00:46:41] they both do a call and response kind of mimicking the donkey's voice. They all go, e-on, eat-aw. And it's a really fun thing to do. Yeah. It's the 12th century, so this is like, this is as fun as life gets, basically. And then you have a raucous part. outside and it's basically that old Christmas tradition of inverting normal society.
+
+[00:47:01] Lord of misrule. The bosses are not in charge, the servants are in charge, all of that and it's basically all folded into that. Yeah. But that was Christmas for centuries was not a family affair. It wasn't something sort of pleasant and homely and and Christmasy and snugly. It was like out in the streets and there's a whiff of violence and a lot of alcohol. And a lot of shagging I think. I've seen to have the feet of the ass. There were a lot of people A lot of pancake gone through Yeah
+
+[00:47:30] I think so Wasailing was another thing They did wasn't there Is that you pronounce it Wassailing? Wassaling? I don't really know What's sailing?
+
+[00:47:37] It's when you go house to house singing Basically And they give you Like some money Or some candy or whatever But traditionally it was Oh it's like
+
+[00:47:46] Over a thousand years old Maybe the idea of it And what would happen Was the lords of the manor Would be in their house And the local people would go round to their house and were sale and they'd be given gifts by the Lord of the Manor.
+
+[00:48:00] It's kind of like Christmas trickle treat. It is, apart from the fact that the gift that they got given was often animal manure. Oh. Because in those days, obviously, you know, it was good for growing your plants and crops and stuff like that. Very hard to wrap, though. Oh, what could it be?
+
+[00:48:20] Has it made it the tricycle, my little boys been asking for? You could mould it into deceptive shapes to get people's hopes. It's very hard to wrap if you've had an olive oil latte. Oh, God. I found a few other Dutch traditions. So there's this thing that they do in the Netherlands, which is they'll take children, sort of about 10 to 13, about that sort of age,
+
+[00:48:46] and they just drop them off in the woods at the middle of the night. They just drop them off. Is this Hansel and Gretel you've been reading it? It's basically this thing. It's a scounder. thing where they just get them into a car in the middle of the night, they drop them off of the woods, and they just have to find their way back. And they say that in the towns, at like 2 to 3 a.m., these kids come stumbling.
+
+[00:49:03] Yeah, yeah, it's a genuine tradition. Again, I spoke to three people who've done it, and I asked one question of them, and then hung up. And then there's this other amazing thing, which I think is really sweet. In the Netherlands, there's this town that's called Margaritan, and it has an American cemetery. And so there are 8,300 Americans who were buried there from the Second World War.
+
+[00:49:26] And there's a thing that they have there, which is you adopt a grave. And so each family goes, and they maintain the grave, and they bring flowers every weekend and so on. And they make sure that the person is being remembered and looked after. Quite a cool tradition. Yeah. Do you guys know elf on the shelf?
+
+[00:49:42] Oh, yeah. Do you know what elf on the shelf is? Yeah. Again, I'm clinging on by my fingernails to wealth on the shelf. I don't really know what it is. So it's where you, as a parent, mostly in America, you buy an elf on the shelf, and you hide it in a different place in the house every day in the Christmas period.
+
+[00:49:58] We do it at home. It's a little stuffed toy elf, yeah, and you put it up, and it's like, what's he doing up there today? And then what's she hiding in that cupboard for today? And so it's hide-and-seek every day. Is the idea not, though, that the elf is watching over you and making sure that you're not naughty? That's what I thought it was.
+
+[00:50:11] That's exactly correct, yes. Wait, because it... So I thought I'd been around forever elf on the shelf, but it's based on a 2005 self-published book. Must be the most successful self-published book ever by a mother and daughter who talked, this story to each other about these elves that spy on the kids
+
+[00:50:27] before Christmas and report back to Santa every night, whether they've been naughty or nice, then they fly back in the morning and hide in a different place. And yeah, it's been on the bestseller list every year since 2013, which is quite good for a self-published book. And it came with a free, like, elf that you sit
+
+[00:50:43] on your shelf. But yeah, it's caused so much outrage. Does it have cameras in it and stuff? It doesn't need to. It's got eyes that can see. I see. Okay. But no, it doesn't. But it gives your kids the idea that they're constantly being surveilled.
+
+[00:50:58] Yeah. It's kind of just like, you know, naughty and nice list from Santa Claus, isn't it? Like, he sees you when you're sleeping. Exactly. He knows when you're awake. That's how they sing it, isn't it? That's like you sing it in your overcoat on street corners.
+
+[00:51:17] You better watch it. Okay, that is it. that is all of our facts. If you'd like to get in contact with any of us about the things we've said over the course of this podcast, we can be found on various bits of social media. I'm on Instagram on at Schreiberland. James.
+
+[00:51:37] On Twitter at James Harkin. Andy. At Andrew Hunter M. And Anna. You can contact all of the fish by emailing podcast at QI.com or twittering or exing at no such thing. Yeah.
+
+[00:51:51] Xing? Is that the verb? No, it's such a stupid word. No one's come up with a verb yet. Okay, cool. Yeah, or you can go to our group website, which is no such thing as a fish.com. We have all of our previous episodes up there.
+
+[00:52:03] We have a link to Clubfish or just come back next week because we'll have another episode for you. Merry Christmas, everyone. We hope you have a great day and we'll see you again next time. Goodbye!

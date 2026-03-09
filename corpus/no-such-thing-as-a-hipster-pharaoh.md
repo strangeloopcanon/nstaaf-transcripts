@@ -1,0 +1,265 @@
+# No Such Thing As A Fish - No Such Thing As A Hipster Pharaoh
+
+- Episode date: April 13, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-hipster-pharaoh
+- Slug: no-such-thing-as-a-hipster-pharaoh
+
+## Transcript
+
+[00:00:02] You do with it. ...thing is a fish, a weekly podcast this week coming to you live from Bell. I am sitting here with Anna Chisinski, Andrew Hunton Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that there are a number of chickens in California that have their own personal chefs. I think you'd live in constant fear as a chicken if you had your own show.
+
+[00:00:59] One day he's going to run out of our stuff in the pantry. They've been giving me a lot of sage and onion recently. Mr. Chicken, tonight for dinner? You? Yeah, that's very exciting. So this is specifically in Silicon Valley. And at the moment there is a chicken mania happening in Silicon Valley. A single chicken can cost $350. and normally they cost about $15.
+
+[00:01:23] Their coops are controlled by smartphone apps and basically it's kind of a status symbol in Silicon Valley to have your own chicken. Wow. Are they special chickens in any way? Are they amazing ornate, you know, amazingly ornate chickens? Some of them are pretty good actually, I have to say.
+
+[00:01:41] I'm not sure I'd pay $350 for one, but they are pretty good. So they're specially bred for desirable personality traits. So the ones that are particularly... What is a personality trait in a chicken? Well, you know... Picks the ground. So, for instance, if they're gentle enough for a child to cuddle.
+
+[00:02:02] So rather than, you know, like an angry chicken, you wouldn't want to put that near your child. They don't have those. There are some that are rare. There are some that are beautiful, according to the article I read. And some of them have special, highly coveted, colored eggs. And they're called Easter Eggers. And they give you blue eggs.
+
+[00:02:20] Wow. They're really, really good ones, those. That's very cool. They also, I read, a lot of people keep the chickens in their house, like they're a cat or a dog. And they call them lap chickens, because they come and they sit on your lap, and you can just stroke them. And the way that they make sure that they don't defecate all over the house is they put them in diapers. So there's special chicken diapers that you can now buy. And I went to a website that sells these chicken diapers because I wanted to...
+
+[00:02:47] And you're wearing them tonight. No, there's a few good websites that do it actually. There's one called My Pet Chicken, and there's one called Pampered Paltry. Pampered poultry is very nice, so you can see them. They're all nicely designed. They sit around the bum of the chicken, like a diaper. But they not only sell diapers, they also sell saddles on chickens. And it's mainly...
+
+[00:03:12] For people to ride chickens? No, yeah. That's what I thought, but it turns out what it is. is that when a chicken is having sex, from the behind, the male is really aggressive and pecks away at their back. So it's a sort of blanket that sits over the back of the chicken so they don't lose all their feathers when the male is just...
+
+[00:03:32] So it's the when they're being ridden in a way. Very true. Very true. They also, My Pet Chicken has a very exciting device. Basically, a lot of people have problems if they do have a chicken in their house where it does cockle-doodle-do a lot. So they have what on their side, called Cockadoodle Don't.
+
+[00:03:51] And cock or doodle don't is a new contraption that goes around the neck that stops it from crowing, from roostering. How does it stop it? It goes around the throat. It strangles the chicken. It's a bit questionable. I'm not sure my petchicken.com is...
+
+[00:04:08] Did you not just say this is a very cool contraption? Can we edit that bit out? That's staying in, isn't it? If you pay an extra amount of money, $12 more, it only costs $18 for it to happen. They say it doesn't hurt the chicken, but if you, the rooster, if you do it, for $12 more, you can buy a bow tie that goes around. Absolute bargain.
+
+[00:04:29] For just $30, you can choke the chicken in a classy, bow-tied fashion. How nice. Nothing more classy than a dead chicken with a bow-tie on. You do get some incredible-looking kind of designer chickens now, though. I mean, just Google some designer chickens. But I think my favorite is the I-Am chicken, is A-Y-A-M, and it's described by breeders as the Lamborghini of chickens. And you can see why. So you might have seen it.
+
+[00:05:03] It's that chicken that's black, completely black from head to toe. It looks like it's been dipped in oil, so it's big, it's crown, it's, sorry, it's comb, its legs, its feet. And the weird thing is, like, its eyes completely black. But the weird thing is, it's fully black on the inside as well, which I do. didn't realize. So all of its organs, all of the meat in it, all of its flesh, all of its bones, everything is black. And so if you then eat this chicken, it's the meat itself is black. The only thing about the chicken that's not black is it lays white eggs. And they're just, they're incredible. And there's this I Am breeder in America who's got a site where they sell them.
+
+[00:05:41] And they say they're very, very good natured as well. So I think a New York magazine wanted to meet one. And the review said, the rooster patiently allowed himself. to be draped with million dollar jewelry and trust with red ribbon while being photographed under bright lights. Which again, it's an amazing looking chicken. People are doing some weird shit with their chickens. Of course your website's going to say
+
+[00:06:02] our chickens are extremely friendly. No website selling you these chickens are going to say, our chickens are real bastards, actually. So I was looking up chickens in Silicon Valley, because this is a massive trend at the moment. There is a company at the moment that is trying to disrupt eggs. Okay? So they're trying to make...
+
+[00:06:18] They're a food startup thing. They're called Just, and they make eggless scrambled eggs out of mung beans. But the other thing they've started doing recently, they've started making chicken nuggets from chickens which are still alive. What? And so there's just like chickens with bits missing. Well, kind of. So they took some cells from the inside of a chicken feather.
+
+[00:06:43] So they took one feather from a chicken called Ian, for the record. I don't know. It's a perfectly normal name. So they took some cells from the inside of the feather and then they cultivated them and they fed those cells on plant proteins, right, and they turned those into a big mass
+
+[00:07:04] of chicken meat, they grew those into chicken muscle and then they had a barbecue where they served up chicken nuggets and Ian was present walking around on the table while he was being eaten by these people.
+
+[00:07:17] Presumably surely he was there with a megaphone saying, this is an outrage. Yeah, it's very, basically people in Silicon Valley are mad. That's all we need. That's all we need to know. Yeah, you can go on a tour of Silicon Valley
+
+[00:07:28] called Tor de Coupe, where you just see all of the chicken coops that they have because they're unbelievably expensive. Some of them can cost up to like $20,000. And one owner, at least, plans to transform his coop into an Airbnb for humans. Once his chickens die, that's how ornate it is. My parents had chickens.
+
+[00:07:48] There's no way I'd want to sleep in the same place that those chickens were sleeping. That's disgusting. Would you share the coop with them, or do they vacate? Like Airbnb? I guess they vacate and leave your croissant and stuff when you stay there, presumably. They're basically dead. They've been eaten.
+
+[00:08:04] They're long gone, and they probably clean it. And, you know. Oh, that's actually not how Airbnb works at all. Thank God. Yeah, some other weird stuff that people in Silicon Valley are doing. So there's been a lot lately about what people, and Silicon Valley call biohacking, which I just find a really amusing word
+
+[00:08:30] because what it means is stupid diets, but they call it biohacking because it sounds really smart. But like all the CEOs of all the big companies are into this and like weird kind of diets. So there's Jeffrey Wu, who's a CEO of, he's actually CEO of a biohacking company and he got all his staff to do a full-on seven-day fast, and they all had to wear glucose monitors
+
+[00:08:51] that are designed for diabetics, and it like inserts pinpricks into your skin. and it measures your blood-elevated ketones, which is a way of checking how much fat you're using and stuff. So he makes all his staff go starve themselves for seven days to make sure they're burning enough fat and it elevates your mental acuity and things like that. But they're all kind of going on silly teenage girl diets
+
+[00:09:14] claiming it's biohacking and so it's okay. I read about Jeffrey Wu because he started this thing. There's a drug that people in Silicon Valley take, which is the idea is it's a cognitive enhancing drug, and so it's a brain drug effectively, and it's called New Tropics, which is an old idea. That was back in 1972 that that term was coined, but the idea is you take it and it makes your brain get stimulated. So he runs a company where he provides these drugs.
+
+[00:09:39] Everyone's on these brain stimulant drugs in Silicon Valley, if they're working with Jeffrey. But I don't know, if it's making you want to pay $350 for a chicken, I'm not sure how smart they're making you. Actually, the chickens control the company that makes the drug. Have you met us? D-O-N. There is very... I read about...
+
+[00:10:02] So I read about a hobby because the hobbies that people have in Silicon Valley, and people do various weird sports and stuff because there's a lot of mountainous terrain. Have you heard of ride and tie? No. No. So it's a mountain race involving two people and one horse.
+
+[00:10:17] Okay? So... But the rule is only one person can be touching the horse at any given moment. What? So you get on the horse and you ride for a couple of miles and your friend runs and then you tie the horse up after a couple of miles and then you start running and your friend catches up to the horse gets on it, right?
+
+[00:10:35] It overtakes you. And then... And you have to get off after two miles. You can't just go on the horse for the whole length of the car. Oh, that's a much better idea actually. Yeah, again, see, they're reinventing the wheel, just going for a ride on a horse. That's pretty cool. I think it does sound kind of fun.
+
+[00:10:50] It sounds quite intense. Yeah, really fun. Why wouldn't you just go on the horse alongside? the person who's running. Horses can run faster than people can run. No, I know, but... Famous... I mean, that's why it's those guys who do the Grand National.
+
+[00:11:03] Yeah. That's why no humans have won that, have they? They've never even qualified for it. But actually, there is a horse versus human race, isn't there? I think it's in Wales every year or something. Yeah. And, like, sometimes the humans do win, but it's on a really twisty course
+
+[00:11:19] with, like, you know, stairs and lifts. Things that horses can't do. On drugs, actually, or Silicon Valley CEOs are also doing LSD at the moment. And again, for legal reasons, I think not all. Sorry, yes, definitely not all. Yeah, but bloody most, right? Certainly not. But it's micro-dosing.
+
+[00:11:40] So they take a tenth of the amount of LSD that one might usually take to get a proper hallucination. And apparently the effect this has is that it increases alertness and energy and stuff. and it's another way of them, I guess, kind of biohacking themselves, taking a bit of hallucinogenic to make themselves more switched on. So the other thing that's been in the news is like raw water. Have you seen all this? Basically, people are drinking water that's come direct from source
+
+[00:12:06] and hasn't been decontaminated, which is really, really a terrible idea. There was an expert who said, almost everything conceivable that can make you sick can be found in water. So a lot of it contains animal feces. there are terrible diseases. You can get hepatitis A, you can get cholera, you can get E. coli. And this expert, they asked him about it, and he said,
+
+[00:12:28] you can't stop consenting adults from being stupid. But we should at least try. That's amazing. Sorry, we're going to have to move on to our next vaccine. I was just going to say that I was reading a quote from Mukande Singh, who's the founder of Live Water, which is one of the big water startups. And so they don't trust all the chemicals that go in the water that we drink. And he said, so we have things like chloramine and fluoride in our water.
+
+[00:12:56] Call me a conspiracy theorist, but it's a mind-controlled drug that has no benefit to our dental health. I'll go there. He's a fucking conspiracy theorist. Just one more thing. Apple have built a new campus in California this year. It's made completely out of glass. And the idea is to encourage an open working environment. And on the very first day, seven people were taken to hospital through walking into the dollars.
+
+[00:13:21] It's so good Okay, it is time to move on to fact number two And that is Andy My fact is that the Victorian cat burglar Charles Peace could supposedly disguise himself Just by changing the shape of his face So he was a real guy And before we go any further
+
+[00:13:49] He was a really unpleasant guy He was a burglar and he was a murderer as well But he killed two people For a while he was the nation's most wanted man but he had this incredible gift, supposedly, for just moving his face into a slightly different shape, and he would think, where did he go? I just can't see how that would...
+
+[00:14:08] I can't imagine how that would work. I know, well, neither can I, but supposedly he was very rubbery face. I suppose like Mr. Bean kind of thing, like Rowan Atkinson, maybe. Yeah. Exactly. Well, Jim Kerry, when he was in the movie The Mask, the people who were doing the CGI said they had to spend way less than they anticipated,
+
+[00:14:24] because his face was so elastic that he was able to contort it and it looked like CGI had been done already. Is that right? There we go. But it's not like it doesn't look like them. It's not like Rowan Atkinson and Jim Carrey can avoid all publicity and attention
+
+[00:14:36] by just contorting their face quickly. Rowan Atkinson could be in the front row. So this guy, Charles Pease, he was an extremely interesting man in lots of ways. So he... He was really famous at the time, wasn't he? He was very famous, very notorious. And he had a missing finger,
+
+[00:14:53] which you would think would have identified identified him, but he cleverly got around this by using an entire prosthetic arm, which apparently is less inconspicuous. Yeah, the guy with three arms, Sean. He's got the right number of fingers, but he's got one extra arm. He was executed, wasn't he? He was. And he told the clergyman, who interviewed him in prison just before his execution, he said that he hoped that after he was gone, he would be entirely forgotten by everybody, and his name never mentioned again. Yeah. Sorry, mate.
+
+[00:15:27] But also, within hours of his death, the first ballad of Charles Peace was on sale. Was it? Yeah, and biography was ready for publication even before he was dead. So that's how famous he was. Wow, and also his executioner was very famous as well. It was a guy called Marwood. So he was executed by probably Britain's most famous at the time executioner. People would go, he was a celebrity of execution.
+
+[00:15:50] And to the point where he had a popular rhyme that people used to sing about him, which was if par killed Ma, who'd kill Parr, Mar would. That was the... Oh, that's very clever. That's really clever. So clever. I read... I mean, it's a bit gruesome, but in the British newspaper archive, I actually read one of the articles from the time about when he was executed, and it's darkly amusing
+
+[00:16:09] because he does what any of us would do, which is, like, he keeps trying to put it off, so you'd like say, and he said his prayers and thanks to everyone he was ready to go, and then he went, actually, I'm really thirsty, can I get a drink of water, please? And they were like, no, I don't think so. And they said, oh, and I've got one more thing to say and this article goes on and on he keeps on going wait wait i've just got one more quick thing
+
+[00:16:27] before we can i and the person who he killed um was a policeman uh called p c cock um and what was interesting is because he did kill this guy um he was basically caught doing a burglary and he killed the policeman um but luckily for him the police simply picked up the nearest irishman they could find uh they charged this irishman with murder and then apparently charlie attended the trial dressed as a vicar and made... Of course he did. With his three arms. He played all 12 members of the jury at various points.
+
+[00:17:01] I'm balanced to anybody. And he made loud remarks from the public gallery to the effect that the evidence was merely circumstantial. So he was, you know, he was the guy who did it and he was like, this guy's not guilty, man, this guy's not guilty. He wasn't willing to say it was me, I did it. No, you're right. He's halfway there, conscience-wise, I think.
+
+[00:17:20] Yeah, I... He admitted to it. in the end, when he was found guilty of the other murder, he admitted to the earlier one. Yeah, that's what I read in the article that I read, is that he did admit by doing that, that it was him. I read this, by the way, on a website called executed today.com. Every new day, a new execution to read up on about.
+
+[00:17:43] If you're looking for a cheery read, executed today.com. He did once have a really good comedy moment where he was imprisoned loads of times. I don't know how he had time to do any burglaries. And one time he was put in a train and was being taken to a prison and he was coming out of works up
+
+[00:17:59] on his way to this prison and he jumped off the train to escape and a warden on the train grabbed hold of his leg as he jumped off and apparently he bounced along on his head with the warden clinging to his ankle for a few, like hundreds of feet until eventually he wriggled out of his grip
+
+[00:18:16] and then the train stopped and they turned back and picked him up again. Should have worn a third leg. Speaking of him and legs, his father was a one-legged lion-tamer. Yes. It was quite a family, is what they're saying. What's amazing as well, there is no more detail about his dad other than that one sentence.
+
+[00:18:36] His life, that's all that exists now. That's all we know. We can't guess how he lost the leg, I think. But it's only a guess. He was a very bad two-legged lion table, wasn't it? If we're being sticklers for facts, he started as a collier and lost his leg when he was doing mining. Oh.
+
+[00:18:51] And then became a lion tamer. as he would. So when you said there was no other information online, it was just... Well, it wasn't un-executed today. Upcom, yeah. He became a shoemaker after being a lion tamer, which I really loved that as a weird...
+
+[00:19:03] Okay, there's a lot of stuff on it online, I get it. Sorry, was he a one-legged shoemaker? That's incredible, everything half-priced. So he was apparently irresistible to women with his, you know, three arms and... Take your hand off me, and that one. and that one but I suppose
+
+[00:19:25] if you can change your face all the time then you can if you don't like this one I've got others I've just done my last boyfriend he had three arms weirdly the new one's got three arms too so he got married and then he moved to London
+
+[00:19:40] and he got married again but he lived with his previous wife as well who he called his mother and it seems that the second wife didn't know that who he called his mother was actually his first wife. Wow. Oh, for a Victorian Jeremy Kyle show.
+
+[00:19:58] Welcome to Jeremiah Kyle. That's incredible. It's true. Well, I mean, a lot of... We should say, actually, at this point, because I said it's true, a lot of it is clouded in myth, isn't it? Because he was so famous,
+
+[00:20:16] and he was famous as like a Robin Hood kind of character. So there were lots of stories about him. But according to people at the time, this is what happened. He lived with his wife and his mother in Peckham, and they used to have parties attended by all the rich people in Peckham, which there were at the time. And they're on now since Del Boy won the lottery.
+
+[00:20:41] And then what would happen is Charlie would get called out on some urgent business during the party. They would carry on the party, and then when all the guests got home, they all found they'd been burgled. Wow. So just on disguises, because this guy was disguising himself a lot, I tried to look up other people who had great disguises. So there was a guy, a bank robber called Willie Sutton, and he was very crafty because he was known in life as Slick Willie,
+
+[00:21:09] and he in, come on now, he in 1947, he escaped the Philadelphia County Prison, where he was being held, and he escaped, dressed as a prison guard, and he was so crafty that the search of, light on the prison wall found him, but he was dressed as a prison garden. He just shouted, it's okay. That's so good. So good. Yeah, so I was looking at some other good disguises, more modern burglars of tried. Did you guys read about the guy, I think, last year, who dressed as a tree to rob a bank? Which branch was it?
+
+[00:21:55] So this is a New Hampshire. And this is a guy who walks straight into a bank, and there's pictures of him, there's CCTV, he had kind of leaves duct tape to his kind of face and bits of his body. He looked almost nothing like a tree. But he walked in and he said, give me all your money and they gave him money. But then on CCTV, someone immediately recognized him
+
+[00:22:17] because he'd only covered about a quarter of his face with bits of twig and said, that's up Bob, whoever it was, and he was caught. Well, it'd be great if there was a police lineup of genuine trees and just him. Do you know how you can tell an officer from MI5? They're spies, are they? They are spies. So you wouldn't be able to tell them. But there's a good chance that they will be dressed as a beggar.
+
+[00:22:39] Because this is a very good way of keeping surveillance on a building because a lot of people, you know, just ignore the beggars or the homeless and walk on by. And one guy from MI5 said that for operations, he would use my own clothes soaked in my own urine to complement that cover. So it is proper deep cover. Wow. I didn't see that James Bond film.
+
+[00:23:00] Ah, Bond, we've got you these. They're your trousers covered in your piss. Just on spies, did you guys see the news today that you know how every country at the moment is sort of sending their Russian spies out? So Britain sent the Russian spies out. New Zealand said that they would do the same and then added, actually, we can't find any.
+
+[00:23:23] That could be that they're just really good spies. There are some weird new trees outside. the Russian taxi, but... A lot of people come in their own piss. Do you know the CIA has a chief of disguise? So this is a real post in the CIA, and there is someone who's just retired
+
+[00:23:40] as the chief of disguise. She's called John A Mendes, and she said this in an interview, I can't tell her if she's joking or not. I think she's being serious. She said that one message to the CIA... Sorry, she said that one method the CIA might use to send a message to someone
+
+[00:23:55] would be to shave a peck. tattoo a message onto it and then pass the animal on once the hair has grown back on the animal. Yeah, that's a historical thing, I think. Well, I've heard it with, you know, ancient emperors shaving the head of a slave. I think the Spartans might have done it.
+
+[00:24:12] But I'm very much like the idea of shaving a hamster and writing. I think you'd go for a snake. No, you can't shave a snake. Imagine if you wrote on, let's say, I don't know, It's going to be something big. Well, a dog. But, yeah, if you got to the end of a dog
+
+[00:24:30] and then you ran out of word, so you had to append a hamster to the dog. It's not the immediate messaging service of texting, is it? If it's, we're compromised, burn everything and get out of the country. Okay, it's time to move on to our third fact, and that is my fact.
+
+[00:24:49] My fact this week is that if the British treated their monarchy, the way that the ancient Egyptians did, Queen Elizabeth the second would have to run around a racetrack every three years to prove she was still fit for the job. So the idea of this is that in ancient Egypt it said that what they used to have was a festival called Hebsed and after a pharaoh had reached 30 years in ruling power that were they still fit to run it? That was a big question and in order to prove that they were still fit, they would have to run around the complex of where they were living and usually it was a racetrack
+
+[00:25:22] and they would do it with a sort of animal tail that was hanging behind them, and everyone came to watch it. And the first time you did it was after 30 years, but then it was every subsequent three years because they thought you might lose it in those three years' time. So if Queen Elizabeth II had to do it, she would have done it 13 times by now. And we don't actually know why they did it, do we?
+
+[00:25:42] No. We're not quite sure. There's a few different theories. One theory that I quite like is that there was an original thing they did where once you're in office for 30 years, you would just get killed. And then some smart pharaoh went, well, what if I do the running thing instead?
+
+[00:25:58] Or maybe they were trying to kill him and he was running away. But some people think that. Other people, it's just like, it proves that you're fit enough to be there. I read it was a thing as well where it was directly related to the afterlife. And by doing it, you were building up,
+
+[00:26:12] as it were, bonus points. I don't know what for, but you know, like how Mario collects coins and it was just, and it would do something for your next life. didn't see that theory. Another idea is they were outrunning old age, or outrunning death, that was another theory. But they did really have to collect all the right stuff for the
+
+[00:26:31] afterlife, didn't they? Egyptian pharaohs. They're burying them with such a hassle. It was like going on a holiday for the rest of your life, so you had to pack everything you possibly needed. So all ancient Egyptian royals were buried with mini breweries, so they had all the alcohol they would need for the
+
+[00:26:47] afterlife, which is quite good. So it's like a really good source of how we know how they brewed beer and stuff in ancient Egypt is because if you look at all the tombs of people from 3,000 years ago, they all had a little brewery in them. They all had microbreweries. They all had a microbrewery. A bunch of hipsters.
+
+[00:27:02] With their beards. Little beards. And I do, have we said before that they used to have slaves specifically to keep their wine cool, to fan their wine, which I don't know how well it worked, but they just go around with a fan, fanning the wine. Well, there was an ancient Egyptian pharaoh called Pepe the Second, and he used to have a thing where there were so many flies
+
+[00:27:24] that would hit you in ancient Egypt and it said that what he did was to make sure no flies ever landed on him he always took with him a servant or a slave who was coated completely in honey so that any fly would immediately sit on that I learned that from horrible histories good stuff Pepey the second he was he reigned for 90 years so it seems like he did this running thing 20 times
+
+[00:27:48] he reigned for 90 90 years, yeah. Yeah, they can't decide if, because it comes from one source, they think it might be that he reigned for about 64 years. On the beards thing, they would always,
+
+[00:27:59] they would shave, and then they would wear a false beard, which is supposed, I think it was an imitation of the gods, because I think they said that Osiris, the god, had a beard just like this, and so if you shave
+
+[00:28:08] and you put it on a false beard just like this, that's better. So there was a female pharaoh, wasn't there, and she always wore a fake beard, had a set shirt or something. Yeah. So the queen, if she was ancient Egyptian, would have to wear a fake beard as well.
+
+[00:28:19] Yeah. Wow. And on a hatchet suit, there has just been a new image of her discovered. This is very exciting, brand new archaeological discovery, and a new image of her has been found in Swansea. Really? Yeah. It's been in storage for 40 years at Swansea University's Egypt Centre,
+
+[00:28:37] and they were just having a standard teaching session going through a few of the images, and one of the professors, his name is Ken Griffin. He was examining it, and he thought, that's hatchet suit. And it's very hard because they're all wearing a beard and normal male clothes in these depictions, so it's very hard to spot it. What was she doing in Swansea?
+
+[00:28:53] Was that where she summered or... Weird. I don't know. We should say that a lot of the information that we have about ancient Egypt comes from Greek sources, so a lot of it comes from Herodotus, and who was a good history in a lot of ways,
+
+[00:29:09] but then was sometimes a bit fanciful. But I really like this, which I think is Herodotus, about, I'd never read this before, about the Persian king Cambysis, who defeated him. Egyptian pharaoh called Samatic the 3rd, and he defeated him using his knowledge of Egyptian culture,
+
+[00:29:24] specifically the fact that Egyptians worshipped cats, which is quite well known. So what he did was he was attacking the Egyptians, and he had this big army, but then rather than actually attack their army with his army, he took a bunch of cats hostage, and then he released them onto the battlefield as his front line, and actually he had sort of backing them up
+
+[00:29:43] a bunch of dogs, sheep, ibises, and whatever other animals the Egyptians hold, and the Egyptians just surrendered. They said, well, we can't kill any of those because they're precious to us and they gave in. How many cats was it? It was quite a lot, right? I think it was many.
+
+[00:29:58] Enough the front line. I mean, looking after cats like that and keeping them all in one place and making them stand in a row. Yeah. I think he deserves it. I'd reckon that's why they ran away. They're like, this guy is a cat whisperer.
+
+[00:30:11] I read another thing, if we're talking about pharaohs and the weird things that they got up to, there was one guy called Ferros, and he... He's a pharaoh called Ferris. Yeah, I think so. Yeah, so the gnar was flooding
+
+[00:30:23] and he got very angry about that. So he went down to it and he threw a spear at it as if to say, get down and thought he could puncture it, maybe. And the gods were furious that he did that. So they blinded him. And as a result, he couldn't see. Obviously he was blind, but he really wanted to. So he spoke to, I believe it was an oracle,
+
+[00:30:40] and said, I want my sight back. And she said, what you have to do is you have to wash your eyes with the urine of a woman who had. never slept with anyone but her husband. So he thought that's easy. I'll just use my wife's. So it didn't work. Yeah.
+
+[00:30:56] She got in a lot of trouble. That's just not going to work anyway, though, is it? There is no medical way that washing your blind eye and urine is ever going to work. You say that, but he got every woman in town to come, and he sampled their... I bet he bloody did. He sampled their urine, and one eventually worked,
+
+[00:31:13] and he got his sight back, so egg on your face. urine on your face. It's like the original Cinderella, really, isn't it? It's pretty charming. Touring the land. We in my eye, way in my eye. No, it's not this one. James Bond turns up, I think I can help with this.
+
+[00:31:32] We're going to have to move on shortly to the next fact. I just have a fact about running that I've wanted to say for a while. And that is that in ancient times, in ancient Egypt, they didn't know what your spleen did. and so they would often remove it in long-distance runners to make them run faster. This is amazing. This is genuinely true. They basically, it was like a big organ and they thought if they got rid of it, maybe they'll just be a bit lighter and you'll be able to run faster, because they didn't know what it did.
+
+[00:32:00] Does it work? Well, let's give it a go. Is Paula Radcliffe missing a trick here? So here is the amazing thing. In 1922, some scientists at John Hopkins University removed the splice. from mice and they ran faster. Wow. Okay.
+
+[00:32:18] And no one quite knows what causes a stitch. But one theory is that it's too much blood going to your spleen. But yeah, apparently, you know, it's possible that by removing your spleen, you might not have a stitch as much. Of course, you would, everything that the spleen does, you'd be in trouble for. I think, I mean, I don't know if this is how you two are feeling on either side of me, but I feel like we're all looking at you, partly thinking, what a stupid idea? and partly thinking, but what exactly does the spleen do?
+
+[00:32:45] Yeah. I think we're going to need to check the British cycling team for spleens at the start of the next season. But what does it? Explain yourself? What does it? I think it's part of your immune system or something. Someone will probably 50 people will come up and tell us after the show, and then lots of people will tweet me, but I think it's something to do with your immune system. Okay. Can I tell you one quick thing about an Egyptian pharaoh that I like?
+
+[00:33:09] Yeah. the pharaohs Sosestrus, who whenever Sosestrists conquered a city or conquered an army, if it had been a particularly easy conquest, then the first thing he would do was he'd go up to all their pillars and he'd draw a female genitalia all over them to imply that they were a bunch of cowards, which I know is very anti-feminist, but it is also quite funny. Wow. Okay. It is time for our final fact of the show. And that is Chazinsky. Yeah, my fact this week is that people who smuggled drugs one way across the Sahara Desert
+
+[00:33:47] often smuggled pasta the other way. And this is pasta smuggling. It's a big deal. I read this in The Economist, and so they did a little investigation, and it turns out that if you're trafficking drugs, you have these big trucks that take them to where you need to drop off the drugs, and then you've got empty trucks, so you might as well fill them with something. And so they stuff pasture in them.
+
+[00:34:09] and the drugs go north over the Sahara and then they fill them up with pasta in countries like Libya or Algeria because they have subsidised pasta prices so it means that pasta is much cheaper there so they shove their trucks full of Tagliatelli and then they drive them back down through the Sahara and deliver them in places like you know more southern places like the Ivory Coast
+
+[00:34:32] or places like that. Senegal and Bamako in Mali as well yeah and the economist spoke to an expert who reckons that by weight pasta is the main product by weight that smuggled across the Sahara. Wow, just because you can make a profit on the other side. Yeah, yeah, exactly. You might as well, right? But still, driving a truck full of pasta by yourself across the Sahara Desert,
+
+[00:34:53] it must be a cannolini life. Mixed. A mixed reaction. Did you say how they weigh marks on the way back? They stick spaghetti sticking out of the desert in the sand. Right. So when they're going from Libya to Senegal, they're putting bits of spaghetti in so they know how to get back to Libya.
+
+[00:35:20] Yes. Exactly. But how do they see it? I don't know. That's the worst colour to put as a way marker on sand. It is. It is weird. That bit did confuse me.
+
+[00:35:31] I wondered if they maybe tape blocks together, so at least it sticks up like a pole, because spaghetti isn't that long, unless it's very different in West Africa. But also, when they're going the other way, do they stick, like, cocaine in the... So in the 13th century, they have... pastor guilds in Italy, and they were
+
+[00:35:46] fighting over the right to make pastor, and the Pope got involved. And the Pope was just trying to sort out tensions, and he made a decree in 1641, requiring that all pastor shops be at least 25 yards apart. So if you see two
+
+[00:36:02] pastor shops that are closer than that apart, then that's basically their excommunicated, basically. Wow. Just to stop them fighting? Yeah. Do you know, in Italy, and please shout if you're Italian, or you're fluent Italian, and this isn't true. I think it was in the New York Times, but in Italy, there's a specific word that refers to pasta without salt, and the word is shioca, or shiocha, and it also means silly. So that's the word for
+
+[00:36:27] silly, which is also a pass without salt. That's cool. Because it's a stupid idea. And in the 19th century, they made pasta by getting huge troughs full of dough, and they would trample them like wine, like wine grapes. And that's how you made it. Really? And the King of Naples, wanted to modernise and wanted to find a new way of doing it. And the only way he could find of doing it was a huge mechanical man with bronze feet. Last year, officials in Sudan seized more than 70 ewes with sexual organs sewn onto them. What? Sorry, can you?
+
+[00:37:04] So a U is a female sheep. Thanks. And they sewed on male sheep sexual organs onto the female sheep. and that's because you have to pay a lot of tax Sorry, you have to pay a lot of tax Seems unfair One has to pay a lot of tax
+
+[00:37:24] for female sheep because they're really They're really good and they can make lots of baby sheep and stuff but actually male sheep are not that important and so if you're sending male sheep across then you don't have to pay the tax and so the way they did it is got the female ones and just put little light so'd some cock and balls on them
+
+[00:37:40] Obviously it didn't work in the end because they got caught. No, it didn't, they got caught. But we only know at the time they got caught. This might have been happening for centuries. It was called owling, actually, wasn't it? Sheep smuggling. That's a version of owling. That's right.
+
+[00:37:58] Which was sort of the main version of smuggling that existed in England, specifically, from about the 1300s until the 1800s, because they didn't want other countries to be creating their own world. I think. And so a lot we smuggled wool out of England. And yeah, but confusingly called Howling, we don't know why, probably to just bewilder customs officials. Weirdly, I found someone which combined smuggling and pasta in another sense. Okay. But it turns out to be a very disappointing story, I'm afraid. Basically, in 2012, there were smugglers
+
+[00:38:32] who tried to smuggle four million fake cigarettes into the West Midlands, and they did so by hiding them in a pasta consignment. And I was really excited. And then it turned out that they just hid them behind Canaloni, actually. But they just hid them behind boxes of Canalone rather than what I assumed they had done, which was put the fake cigarettes inside Pene.
+
+[00:38:56] I was, I kid you not, I was so excited about that story. I'm glad you took us on your emotional journey there. Thank you. Well, it wasn't a strong enough fact without the emotional journey. That's the problem. I was reading about a modern smuggler who I really like, a guy called Robert Cusack, who's a Californian,
+
+[00:39:13] and he was flying home from Thailand. He'd been on holiday in Thailand, and he was undergoing a routine inspection at the airport when an exotic bird flew out of his bag, which was awkward. And so they searched his bags, and they found three more exotic birds, and they also found 50 orchids. And then the security official said, do you have any other contraband to declare? And he immediately said, yes, I've got monkeys in my pants. but he pulled down his trousers and he did indeed have two pygmy monkeys down his pants. I've got a modern smuggler as well called Jasmine Clare and she was caught off the back of a tip that was given to the homeland security. It was anonymously given saying that there would be possible smuggling activity taking place
+
+[00:39:59] in the vicinity of a bed and breakfast called the smugglers Inn. So they took it as a real, tip as opposed to thinking that was a bad joke and they set up a surveillance there and they eventually saw someone who was doing the smuggling. It was Jasmine Claire, it turns out. They were alerted to the fact
+
+[00:40:19] it might be her because the car that arrived had the vanity license plate smuggler on and it was her and she had blocks of cocaine, nine bricks of cocaine. That's incredible. Yeah, smugglers in smuggler on the license plate. It's the boldest double bluff I've ever heard.
+
+[00:40:35] I'm sorry it didn't work. So I became a bit obsessed with trying to find out I think we're all familiar with the term budgie smugglers. Oh yeah? Which are those very tight swimsuits worn in Australia and elsewhere. And I became obsessed with trying to find out if anyone has ever actually smuggled a budgie
+
+[00:40:51] and it was a very long search and it was a hard search. I tried typing in the Latin name of the species that didn't yield anything. I did find a paper called the smuggled budgie from 2010, very exciting, etymology paper about the origin of the word budgie. nightmare. But...
+
+[00:41:08] This emotional journey is amazing. But I did find a guy in Cuba in 2014, who this was pants-based as well. He was detained trying to board a flight to the USA with 66 birds inside his trousers. And he made it through the metal detector. Obviously, birds are not made of metal. So he's doing great.
+
+[00:41:30] But there were loads of bulges in his trousers and he was stopped in the airport. And when the police at the audience... the authorities at the airport stopped him, he said, okay, you got me. I am concealing a pigeon as a gift for my grandson in my trousers. I presume he thought they would say, okay, fine,
+
+[00:41:46] no questions asked, go on your way. Police forced him to remove his trousers, and they found dozens of finches and hummingbirds hidden inside his trousers and his pants. And sometimes when people smuggle rare birds, they have to tape their beaks shut, so they won't sing like a
+
+[00:42:02] canary. But also, some people who smuggle them have their beaks facing inwards on the crotch region. Right. It's like a massive hostage to fortune. Why would they do that? I think it's just they're very small and I think it's the best place to hide them.
+
+[00:42:17] It's pleasant. Who knows? But I read about that... It'll be happening in Silicon Valley within a fortnight of this podcast going out. I read about that guy and the article specified that the two birds next to his genitals
+
+[00:42:29] were dead. I don't know what kind of weird toxicity was happening there, but... Wow. Oh, he killed two birds with one bone. We're going to have to wrap up. Okay, that is it. That is all of our facts.
+
+[00:42:49] Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, Andy. At Andrew Hunter, M. James. At James Harkin.
+
+[00:43:01] And Chisinski. You can email a podcast at QI.com. Yep, or you can go to a group account at no such thing or a Facebook page, no such thing as a fish. or no such thing as a fish.com. It's our website. We have everything up there
+
+[00:43:12] from links to our tour dates. We have our previous book that we released, and we also have linked to our new tape that we've released. And we're about to give a copy of it away right now to one of the members of our audience here in Belfast. Yeah. So if the person who wins it,
+
+[00:43:29] if you can give us a shout when we say your fact, and the winner is, Anna. Yeah, so it's Natasha Riley. Are you here? Yeah, come and get us at the end. This is the fact. When filming the battle scenes, for Game of Thrones, filmed in Northern Ireland, of course.
+
+[00:43:42] The fighting was so intense that they had to create a safe word in case someone got hurt. So the safe word for Game of Thrones is banana. That's awesome. That's it. That's all of our facts. Thank you so much. Good night.

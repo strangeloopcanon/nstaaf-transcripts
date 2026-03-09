@@ -1,0 +1,377 @@
+# No Such Thing As A Fish - No Such Thing As Andrew Marvell's Cinematic Universe
+
+- Episode date: February 15, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-andrew-marvells-cinematic-universe
+- Slug: no-such-thing-as-andrew-marvells-cinematic-universe
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hobern. My name is Dan Shriver. I am sitting here with Andrew Hunter Murray, James Harkin, and Anna Tashinsky. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, and that is Anna. My fact this week is that shortly after writing an essay on why writers shouldn't publish anonymously, Anthony Trollope published a book anonymously. Oh, called out a mere 130 years later. Not a moment too soon. So I've just sort of inherited from a friend who decided he was never going to read them, the complete works for Anthony Trollope.
+
+[00:01:01] Oh, nice. And he's giving them to me in bits, and he seems to have given me the three least known Anthony Trollope. So this is in the introduction to Nina Balatka, which was... If you want to get into Trollope, I would say probably don't start with that one. It's not an entry level. No, no. Anyway, this fact, Nina Balakka, in the introduction, it just mentioned that he wrote an essay in 1865 and he said, a man should always dare to be responsible for the work which he does
+
+[00:01:29] and should be ready to accept the shame, rebuffs, ridicule, or the indifference which will attend bad work. And it's all about how, you know, Put your name to something. And then he didn't put his name to Nina Balakka. I do have some sympathy if your name is a trollop that you don't want to put it on every thing.
+
+[00:01:47] Who here's read trollop? I've read the start of Barchester Towers. Okay. Did you read it in preparation for this podcast? I certainly did. Read the first 50 pages. Nice. I've done quite a lot of books over the years
+
+[00:01:59] just because of this podcast. Yeah. Just kind of started reading, got an idea and gone, well, I think I got an idea of this guy's entire earth right now. If you haven't got to the end, you don't know about the robots in it. What? So Anna's read some Trollope, Andy, you must have done.
+
+[00:02:12] I'm actually a Trollope Virgin. Honestly, I said to my wife last night that if anyone likes Anthony Trollope, Andy would like Anthony Trollope. Is it because he writes about ecclesiastical matters in the 19th century? Yeah. I think I will. It's right up your street. I don't know if it is.
+
+[00:02:29] I think that's a miscall on Andy. You think? Yeah, I do. I think I'm slightly prefer that kind of literature. It feels like it's in between what you would like. It feels to me like it's halfway between Dickens and Jane Austen. It is. But the thing about Anthony Trollope, he's not as widely read as I think he should be.
+
+[00:02:46] He's frowned on in a lot of circles because he was just a machine of output, wasn't he? 47 novels, loads of stories. His routine was getting up every morning, 5.30, writing for three solid hours. He put a watch in front of him, made himself write 250 words every 15 minutes. And you didn't have word counts that time. So he must have incorporated counting the words. He must have counted the pages because you just had so much stuff. I love it.
+
+[00:03:11] I think that is exactly how I would write if I was writing novels. I actually thought reading about him, and this is not a negative thing at all. I thought there's quite a lot of you in him. He's quite annoying. We all write books. As someone who, you know, foodles around a bit, toys with the margins. And you just see, like, in the time you've spent foodling around with the margins, Anthony Trollope will have written 16 pages of prose.
+
+[00:03:36] And he had a portable desk made. I love this, so he could write on trains. And if he was going on board a ship, he would meet up with the ship's carpenter to arrange proper writing conditions. That's pretty ritzy. Wow. That's cool.
+
+[00:03:50] But the reason he had to do it was because he was, and I'm simplifying here, postman. You are simplifying. But he wrote in the morning because he had a full-time job at the post office for about, what, how long it was decades. Yeah. And he was quite 60s. senior. He was really senior in the post office. Yeah, well, if you weren't there that long. And it's that
+
+[00:04:06] really cool fact, which is the only thing I knew about him, which is that he's basically responsible for the reason that we have postboxes all over the UK. Possibly he spotted in in France. I don't think he ever claimed that he invented it, but he certainly recommended it to the government. And they used to be green, but now they're red. That's the thing, though. Like, he is responsible for that, I suppose, but they did exist in France. They did exist in Belgium. The stamp had been invented about 30 or 40 years earlier. It feels like we might have got there. anyway, even without him? Totally, but he's the one who did.
+
+[00:04:36] Yeah. Hey, here's a cool quote just to sort of really hammer home what a workaholic he was. He said there was no human bliss equal to 12 hours of work with only six hours in which to do it. He was a bit like bankers in 1990s in the UK because his motto was no day without a line. Hey. Can we talk a little about Fanny Trollope? Sure. Yeah. His mum.
+
+[00:05:02] Yes, please. So his parents were very interesting people. Just briefly, his dad was a complete failure in life. Sounds harsh, but it is true. Imagine someone in a podcast in 200 years saying that part of you. I know, and they will. I dream of them doing that, you know. But his father had law work which had failed,
+
+[00:05:19] than a farm which had failed. And he decided finally to write a thing called the Insicopedia Ecclesiastica, which would define all the ecclesiastical terms that had ever existed. By the time he died, he was still only on the letter D. It was... To be honest, church is quite a long one. Huge. Yeah. Amen. There's another biggie right on the top. Chascible.
+
+[00:05:42] I mean, you can see why he struggled. Christian, Catholic. Baby Jesus. Starting with David. Anyway, that was his dad. Tricky time. But his mum was a successful author and mega successful. And she made her name by writing a book called The Domestic.
+
+[00:06:01] manners of the Americans, because she'd gone to America, set up this business venture, which had completely collapsed and been a disaster. But then she wrote this book, which was basically just incredibly rude about everyone in the USA. It was very, very, very, very snobbish. And it became a massive success. She said of people living in New York that they were bullying, struggling, crafty, enterprising, industrious, swaggering, drinking, boasting, and money-getting. But then, enemy of the podcast, Mark Twain. Thank you. He really loved her And he was like basically saying
+
+[00:06:33] Well you know she's telling the truth That's what we're like Fair enough, fair play So he liked her So I now don't like her Great, okay thank you Keeping my beef going throughout the century One thing I noticed from reading the first 50 pages
+
+[00:06:46] Marchester Towers Is how hackish he is with names Oh really? I don't know if you notice this sound I've only read the way we live now Well the first two A couple of the first characters are, I think the policeman, and they're called Landa Mu Niu and Omicron Pie, where he's basically just taken Greek letters and turned them into names.
+
+[00:07:09] Right. But what he used to do quite a lot is do that thing where, I suppose Dickens did it a bit, where you just take whatever attribute your character has and just call them that. Oh, yeah, Dickens is, yeah. So in his novel, Miss McKenzie, it's about a young woman who's pursued by three men who are called Handcock Rub and Ball What? And there was another man...
+
+[00:07:33] Handcock. Handcock. And there's another man in it where he's not a suitable suitor for this woman and he's called Mr. Frigidi. Wow. They're so on the nose.
+
+[00:07:45] It takes a bit of the suspense out of it, doesn't it? Yeah, I think so. I wonder if I can give you some names of characters and you can tell me what they did in the novels. Oh, okay, yeah, right.
+
+[00:07:55] So Dick Rabbit Ended up in prison Shagging Rabbit Had lots of kids breeded a lot No he was the leader of a hunt Okay Oh okay yeah good Samuel Nickham
+
+[00:08:10] Policeman Yeah yeah Kind of he wasn't a policeman but he found evidence Against some people who've been poisoning Animals I was going to say shoplifter And I've only just realised that Knickin'em Is something that shoplifters do
+
+[00:08:21] And policemen do I nickham No I nickam We're on opposite sides. How confusing. Gosh, yeah. Food for thought. So Oliver Cromblewit. Stand-up. Stand-up comedian. Yeah. Someone who thinks they're funny.
+
+[00:08:36] So like a dad joke to call back to the previous episode character. No, he was a phrenologist. Crumbull. So just like witless person, I guess. It was slagged off phrenology. And Joe Thurabug. Thuribung. Proxologist.
+
+[00:08:54] No, he was a brewer, of course. A brewer? I was going to say the thung-hole in the sherry. That's right. Did you, sorry, just while we're quickly on Barchester Towers, have you ever got to a bit in the book where he injects himself as a narrator? Because that's something he apparently loves to do. So he does it twice. He pops in.
+
+[00:09:13] He pops in. So, for example, there's a sentence that comes in that book where it says, how easily she would have forgiven and forgotten the archdeacon's suspicions had she but heard the whole truth from Mr. Arribin. But then where would have been mine not? So he sort of just says, I didn't notice that. I love it. And then right at the end, he says, the end of a novel, like the end of a children's dinner party, must be filled with sweet meats and sugar plums. Obviously, alluding maybe to a nice happy ending. Yes. Followed by tears.
+
+[00:09:41] Someone being sick. People being dragged home screaming. Nits being spread. Yeah, he does do that self-consciously a little bit. Sometimes I'll be like, she's my favourite actually. She's lovely. I think that's good. I mean, Jane Austen does that all the time.
+
+[00:09:54] just sort of pops her head around the curtain and says hello and then pops back, I like it. Have you heard of his novel The Fixed Period? No. This is very weird. So this was his, I think, only venture into sci-fi where it's set in 1980 on a fictional island in the southern hemisphere
+
+[00:10:10] called Britannula. And the main point of the story is that it has compulsory euthanasia for anyone between the age of 67 and 68. That's the idea. It also features a futuristic cricket match. A bit harsh, you can't get to the best age. Right. Maybe he was sick of all the innuendo.
+
+[00:10:28] Right. There's a steam tricycle which can go at 25 miles an hour. So it's still rooted in the 19th century. But get this. Trollope died at the age of 67 and a half. Did he? He didn't do much of the sci-fi. But basically, I think his novels were essentially a Marvel.
+
+[00:10:48] Marvel? Marvel. Sorry. Andrew Marvel. An Andrew Marvel universe. 17th century laureate. Yeah. That's so funny.
+
+[00:10:57] Had they, but world enough in time, they would, is that him? Yep, very good. Had they, then they would have written a Marvel comic because he basically did that. He created a universe. Ah, right. Oh, lovely. Yeah, yeah.
+
+[00:11:08] And I think this kind of explains why he was able to churn things out so much, as well as the fact that when you read them, there are a lot of extra words. But, like the Bar-Sage at Chronicles, you can lose a lot. Have you ever read, sorry to, this is a digression, but have you ever read the Womble books? No. No. I was reading the Womble books to my daughter.
+
+[00:11:24] daughter and all the way through it's like and then the Womble went to the park and picked up some litter they picked up an umbrella a bag of crisps and this and they just fill up all the sentences with just lists of nonsense that's your word count for the day that's trollop thinking right i put in 16 adjectives to describe this table that's fine i can knock off for the next five minutes can't really read the Womble books because i thought it was just a tv show you're the guy who's like you know the books are actually much better the novelizations of the Wombles are actually really yeah yeah I think the bugs came before the TV show, didn't you? I'm sure they did.
+
+[00:11:59] Anyway. So the Trollope Cinematic Universe. The Cinematic Universe. So it embassage shit. It's really fun. So I've only read one and actually it's the way we live now, which is in the universe. But my husband happens to have read quite a few more. And he says it's fun because characters pop in from other places.
+
+[00:12:13] And that have matured quite a lot. So that Vicka, who was quite annoying when he was 25, is now 40 and he's bit wiser. I reckon that he had hyperfantasia. Oh, yeah. Which is, so I have maturedick. have a Fantasia which means I can't imagine things but some people have hyperfantasia where you really can't imagine anything it's like just an incredible story going on in your head and sometimes you don't even realize that it's in your head and he used to
+
+[00:12:36] say that his main work that he did was when he was daydreaming so you know he would churn out these words but actually the rest of the day he'd just be thinking oh I wonder what my characters would be doing now when he came to write them down it was pretty easy for him because he was just this is what I remember them doing I think he almost says that the plot is kind of not even really important. It's just about the characters exactly, as you say. I want to know what his legs were like,
+
+[00:13:01] because I think you might have had a fantastic pair of legs. Okay. Go on. Well, he was all over the UK for his work for the post office. Okay. It was sent to Ireland, first of all, which is where he started writing. And basically, he had to work out the routes for postman, and he rode across the countryside.
+
+[00:13:16] He did about 40 miles a day riding across the countryside. It feels like the horse would have good legs. No, you're right. Sorry, he'd have a great bum. but he was a member of a thing called the Tramp Society which was a Rambler's Club across Southeast England
+
+[00:13:27] they just walked huge distances every time they met up yeah so I think I think his lower half might have been incredibly fit well in support I think of that do you know what the hardest day's work
+
+[00:13:37] he ever did in his life was and that's a high bar for Trouther Oh no it was walking and it was when he was posted to Glasgow and he wanted to review Postman's jobs basically
+
+[00:13:48] and Postman in Glasgow were having to go up and down tenement blocks sometimes to just post a letter to one person and he walked the full Glasgow Postman's route up and downstairs
+
+[00:13:57] on his beat and came back to the post office and none and was like hey those guys have it really rough we need to sort it out yes his second ever novel sold 140 copies
+
+[00:14:06] okay yeah it did not sell and the what was that one they were both set in Ireland his first two and published him and published it on oh I don't know
+
+[00:14:15] but the publisher had to resort to advert saying do you know who this guy's mum is this guy's mum is Fanny Trollum which is so embarrassing As a young debut novelist, you know. What a quote for the front of the book. Do you know who is, my name is? Okay, it is time for fact number two, and that is my fact.
+
+[00:14:38] My fact this week is that in 2008, a TV channel spent the day rescheduling shows so that millions of people in India could continue to watch a live broadcast of a man trying to kill another man using nothing but his mind. Okay. And it took longer than expect... Is it like when a football match goes into extra time, and you have to cancel the news afterwards. It's like that tennis, do you remember, was it Mahat Isna?
+
+[00:14:59] Mahat Isna? Which went on, it was at Wimbledon, like 10 years ago now, and it went on, they played like 70 games each. They won. It was something like crackers. Yeah. It was kind of that. And Mahou and Isna, I imagine, got closer to death than the person that was trying to be killed here. Well, not quite, actually.
+
+[00:15:15] So, okay, at that time, there was a politician who said out loud that she thought that someone was attacking her mentally using tantric powers, which is, you know, when we talk about tantric sex and all that, there's a side of it, which is to do with the mind, and you can supposedly attack people if you're using the dark practices of it, right? So, as a result, there was a TV show where skeptics and tantra practitioners were brought together on the show. It was called Tantric Power versus Science. And while on the show, this guy who was called Pandit Surinda Sharma claimed that he could kill someone within minutes using nothing but his mind. Now, the person who was sitting on the panel with him was a guy called Sinal Edomaruk.
+
+[00:15:54] Is he representing science in this? He is the president of the rational international group. He says, you can't do that. You think you can do that? Do it to me now. And the guy says, okay, fine, I'll do it to you now. That's annoying when they call your bluff like that, isn't it? Exactly.
+
+[00:16:09] So he says, do it now. So they say, all right, let's do this. The host of the show is going, all right, let's do this. So legally, very tricky water for the channel and the program to be in. Exactly. Because I'm thinking about all the forms we have to fill in on QI if you just strike a match in the studio. Yeah. You very rarely use dark tantra on QI.
+
+[00:16:29] So basically what happens is, is this guy, Sharma gets up and he starts focusing his mind on him. It's clearly not working. The rational guy is sort of giving laps and so on. So Sharma comes over. He starts sprinkling water on him as an intimidation tactic. He starts ruffling his hair. Oh, the big guns are coming out now. He covers his eyes.
+
+[00:16:51] It was all that stuff. But then, and this is where it gets a bit december. He suddenly presses his fingers down onto his forehead and steadily really pushes and pushes. And he has to be called out because basically, you will kill me because you're trying to crush my skull, basically. So he has to go back to his seat and he has to do it with his mind. Now, at this point, the show's meant to be ending. But they say it's not done yet. So the show continues and the next show is cancelled.
+
+[00:17:18] And at this point, word is getting around. So people are tuning in and tuning in. After a couple of hours, the guy's exhausted, Sharma's exhausted. Arm is exhausted and he says, but I'm not done yet. Let's meet again this evening. And this evening, I will do the ultimate destruction ceremony and kill you. What is going through his mind? He's saying, I'm going to do that. I'm sure I can think of an ultimate destruction ceremony in the two hours between the broadcast. Like, what is it? What is his plan? But then I think his plan probably is to not turn up and then go, I'm sorry, I was killing some other person. They go to
+
+[00:17:47] another school. You wouldn't know them. Yeah. So they do it at night. It's performed under an altar in an open night sky. They've got all the cameras there. And he tries and tries and tries. And obviously the guy who's the rational guy is laughing his ass off the whole time. So it didn't work out. But this, you know, just to remind you it is 2008 and this was broadcast live. And according to many reports, some say hundreds of millions, obviously a huge population in India. But, you know, millions tuned in to see a man killed live on TV, probably knowing he wasn't going to be, but wanted to see what happened. I have a question for you guys. If you were on that TV show and you were next to a tantric master and they said, I can, I
+
+[00:18:22] could kill someone with my mind. Would you have the courage to say, no, you can't do it to me? Yeah. You definitely would. There wouldn't be a tiny bit of doubt that like, I'm pretty sure you can't. Once he started, I'd shit my pants. But yeah, I would probably call it. I would feel fairly confident that that wouldn't happen. No, but you can't be fairly confident. Okay, I would be 100% certain that that wouldn't happen. You'd be up for it. Okay. I would be pretty confident, but I would think to myself, I'd be so annoyed if I have a heart attack and die. Unrelatedly. When I went to, I was in Bhutan and I went to the Tiger's Nest monastery.
+
+[00:18:59] And there's a little bit where you have to jump from one bit to the other. And you're going over a sheer drop of thousands of feet. And the step is basically just a step. You know, it's a step that you do every single day and it's no problem. But all the way through, I was thinking, if I fall now, what a fucking idiot. Yeah. You know, what an idiot I am for doing that. Yeah.
+
+[00:19:21] And I suppose it's that. kind of part. Exactly. Yeah. And the pressure of the TV cameras will make you think, you know, this is a very public forum. I can understand, I'm very impressed by the skeptic. You'd feel embarrassed for him. You'd start wanting to die.
+
+[00:19:33] Yeah. Yeah. I would try to have them out. Do you think you'd fake it, Dan? You'd collapse. Well, it would be really fun to draw the death tantra dude out by pretending to die. And then like, ah! And that would be great.
+
+[00:19:46] That's good point. No, I've never heard of this. I think of tantra as primarily a sexual thing. No, I'm thinking about Sting. Yes. Who proclaimed in the 90s that he could have sex for five hours because of tantra. He says he never said that. He does now, but that's...
+
+[00:20:07] Right. He says Bob Geldof spread that rumor. Right. And then he said, oh, I said five hours, but that includes dinner and a movie followed by some begging. You know, he's got some very funny jokes about it. Yeah. And the movie is Lord of the Rings. The entire trilogy.
+
+[00:20:21] No, but I don't know anything about Tentra really, although the idea of... And I gather it's more of a philosophy or a set of philosophies and it's... Very complicated. Lots of different religions have elements of Tentra or... Definitely. So it's sort of spread across all these different schools of thoughts. There's no one thing. And, you know, when I say, you know, the dark side or whatever, you know, that's so rare.
+
+[00:20:41] It's like a... It's not really even a thing. We'll get letters, people saying, but it's not a thing. Right, right. Yeah. Well, it's based in Hinduism. Yeah. When we say lots of different religions and it's not its own belief system within
+
+[00:20:50] Hinduism as far as I can tell. It's like a series of practices which seem to exist in lots of strands of Hinduism. Yeah, it's almost like non-Orthodox Hinduism. Yeah. In fact, I did read things saying the whole point of it was to subvert Hinduism and encourage lots of things that Hinduism does not. Like, I think there's one where you're encouraged to have the special tantric fivesome, which is like eating meat, drinking wine. Right. Have you ever had a fiveson? Yeah. A bit of meat and drank a bit of wine, yeah. Coming to the party to the party.
+
+[00:21:22] I didn't have the guy, why is everyone in the chest? God, that looks delicious. I've had a fosom. I didn't have the sherry
+
+[00:21:29] at the end, which would have been, you know. To be fair, sex is the last one. Oh, okay, okay. So it's like a date.
+
+[00:21:35] They're describing a date. What are the previous four? Is there an order? Netflix. Sorry. It's drinking, eating, movie,
+
+[00:21:46] begging. Sex. So the five are, alcohol, meat, fish, grain and sex. Okay. You're very full at that point, so it's not very pleasant. We do that five at home, but the fifth one is always headache. It's really annoying.
+
+[00:22:03] But the idea is violating all these Hindu taboos. I see. And I think that's called left-handed tantra. So there's left-handed tantra and right-handed tantra, and left-handed tantra is the sex one. I'm left-handed. Well, that doesn't surprise me, Andy. No, no, no.
+
+[00:22:17] It's all something to come together. I always do left-handed tantra because it feels like someone else is doing it. There's no thousand-year-old tradition we can be trusted with. Other things that are done in tantra traditions that are non-sexual for the right-handed living in cemeteries, if you want that, and smearing cremation ashes on your body.
+
+[00:22:43] So these are all agori rituals. Do you say agori? Yeah. Because it sounds quite gory. A gory tradition I was just miss hearing No that's very good Maybe it's a fun play on words
+
+[00:22:55] Because it is very dark They smoke a lot of marijuana Not too dark They drink a lot of alcohol And they meditate on top of corpses I got some good news for you Dan Yeah So they're meditating on a corpse
+
+[00:23:07] There are quite a lot of rules About the kind of corpse That you can meditate on Ideally it would be someone who died From drowning lightning strikes Snake bite Something like that You are allowed to
+
+[00:23:18] kill the person before you meditate on top of them, but you shouldn't really meditate on top of a man with a beard or on top of a wife guy. Are you kidding me? Anyone who's hen pecked you shouldn't be doing. Really? Wow. Dan, you're in the clear. I am safe and sound, girls.
+
+[00:23:42] Wow. But what about a clean-shaven bad boy like me, James? Am I in the firing line for getting meditated on? Oh, dear. That's amazing. I read an amazing way of if someone, so let's say we are on that show and we have said yes consenting to Sharma
+
+[00:24:00] trying to kill us with his mind. One way of getting him out of your mind and shaking off the bad juju that's inside there is something that was practiced by a guy called Victor Kortnoy, who's a chess player. Now we spoke many episodes.
+
+[00:24:16] ago about a very famous chess championship in 1978 and there were two Russian grandmaster chess players, Karpov against Kortchernoy and basically Kortchernoy as he was sitting there had a guy in the audience who was who was mentally trying to ruin his game, get into his head. It was a weirdest chess game ever, right? Kortnoy eventually brings in two people who practice the idea of all this mind power stuff and he genuinely did this during the course of the game to get rid of. of all the bad thoughts that are in his head, you do a handstand so that you can shake it out
+
+[00:24:51] using the gravity that's pulling down to the earth all the bad vibes. So, if ever you're in a space where you think you're being infiltrated in your mind, do a handstand. If you believe, though, yeah. I mean, we're sort of skirting around
+
+[00:25:04] the psychosomatic thing. If you believe that someone is in the crowd getting into your head. Which he did. Then they're already in there. Yeah. And he was in there. It's too late.
+
+[00:25:10] Like, that's exactly it. Red-free. Did he win? He lost. Only just by one gay. He was down. He was down and then he did the handstand thing and he came back for like a few games. And then he lost the final game.
+
+[00:25:20] Didn't shake that last bit out, did he? This just reminded me of another interesting Hindu sect, which I've been fond of for a while, the Nagas saddos. Okay. Which, I think we've talked about, the naked saddos. Which, who are just naked all the time? Saddows. Naked saddos, yeah. So a lot of this is about asceticism and renouncing everything.
+
+[00:25:42] And they have very strict exercise routines. so they're very fit, but they have long beards, but they have no clothes. They also smear themselves in ashes. I think this seems to be a thing. But they were great fighters back in the day, so they've been around for many hundreds or thousands of years, and they were military men. So in 19th century reports, they wore nothing but a belt,
+
+[00:26:03] and they'd have like ammunition and flints and guns hanging off their belt. Wow, like Batman. Yeah, but nude Batman. Yeah, because he normally is wearing the full Batman outfits. He's in fact a bit too. covered up, really. Yeah, yeah, yeah, but I'm just being like the utility belt. Yeah, yeah, yeah, yeah, absolutely. They've got the utility belt.
+
+[00:26:20] And that's all you need, really. And they were great military leaders, and in fact, there was one in the 18th century who commanded over 20,000 men. In fact, quite a few of them commanded that many. And in the battles that the British East India Company had, when they were trying to colonise India, they played a huge role.
+
+[00:26:37] And bizarrely, they were often mercenaries, so they often fought for different sides, which is weird, given that they renounce all possessions. so I don't know what you're using, all that money you're getting paid. Well, you've got to, you know, there are incidental expenditures
+
+[00:26:50] and you know, you want to have something for a rainy day. You want a really nice belt. That beard oil's very pricey. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that the last thing that British soldiers going to the Crimean War saw was Queen Victoria throwing a shoe at them.
+
+[00:27:22] And stay out. No, this is a good luck thing. It's been a good luck thing since the 16th century at least. And Queen Victoria, when she got married, she had shoes thrown after her. So she obviously had this idea that it was good luck. And there is an 1854 sketch from Punch Magazine that shows her throwing a shoe at her soldiers as they go off for the Crimean War. It's very, I'd never heard this tradition at all. shoe chucking for luck. I just never ever heard it. But she did it a lot. She did it in 1855.
+
+[00:27:52] She chucked shoes into Balmoral Castle again for luck. And that was a... And is it she takes one of her own shoes off or does she take an extra shoe in her handbag? Great question. Good question. Tell you know. Yeah. So the first one she's throwing it off from where is she. She's standing on a balcony. That's right. So, okay, so she's at home. She's probably in slippers anyway. So she could do that do you want to chuck a really heavy shoe because they hit someone. Yeah. Well, that's from a balcony. It seems quite risky. That's going to be my question. Do we know where the shoe is? Because I couldn't find it in my hunt.
+
+[00:28:19] Yeah, the shoe. I don't know how many of the tourists. Yeah, shoes are surviving. Yeah, but the shoe, lots of shoe traditions. Hiding shoes in the walls of your building. That was not the big one, wasn't it? Yeah. What was that?
+
+[00:28:30] Is that for good luck? Yes, it is. It's for a rainy day. It's to ward off evil. Ah, evil hates shoes. Yes. Northampton made all, basically all the shoes made in the UK came from Northampton. Really?
+
+[00:28:42] Yeah, it was Chew Town. It's where the football team's called the cobblers. Oh, is it? I didn't know they were. But they've got a thing called the Hidden Shoe Index at the Northampton Museum. I read it was called the Concealed Shoe Index, which made me wonder what CSI North Hampton would be like. Very strong. I don't know which is the true name.
+
+[00:29:01] It goes back to the 50s though. But the oldest shoe they've got or found in a building dates back to 1308. Wow. That's concealed in a building. Yeah. That's not going to be wearable, is it? No. Is this related to, because if we haven't mentioned cats being found in buildings?
+
+[00:29:13] That's a thing, isn't it? That people would bury their dead cats? Yeah. A lot of cats. Frogs, yes. Presumably that was for good luck. I think it's to also attract or distract or deter witches. We're back to the evil thing.
+
+[00:29:27] Distract. Is that my cat? No, I was doing. Maybe one of the most famous shoe-throwing incidents. This was when George Bush had two shoes thrown at him, in fact, in 2008 by an Iraqi reporter. And actually, I was reading what George Bush said when he was asked about it afterwards. And I thought, you know, there was a lot of criticism of George Bush at the time, understandably. But he said, no, I wasn't offended.
+
+[00:29:52] We're in a democracy. This is freedom for you. You're allowed to do this kind of thing. Which is very mature of him. Well done. The guy was then imprisoned and I think beaten very badly. He asked a lot of teeth, I think. I think it was by the Iraqi authorities rather than by everyone else.
+
+[00:30:08] But yes, it was a sentiment, bang on. They did a massive shoe statue, didn't they? Statue. Yeah. Nice. Wait, who's there? In Iraq? In Iraq, yeah.
+
+[00:30:17] But it was done, I think it was done at a university or something, and they had to take it down because it was seen as being political. When they tore it down, did they run over and beat it with miniature statues of Saddam Hussein? I love the museum in America that has, as one of its exhibits, a replica of the shoe. Oh, really? Not even the shoe. The shoes were destroyed by the CIA. Right.
+
+[00:30:40] Sorry, I've never sounded more conspiracist, winged that whack-off. Sorry, but they actually were, because I think they didn't want the shoes to become martyrs. Do the CIA need to be drafted in to destroy shoes? I reckon you get the interim. Or the Secret Service, maybe. It was the Secret Service, maybe. It was the Secret Service, but it became big business as well. All these rival cobbler in the area started claiming, oh, yes, that's our shoe.
+
+[00:31:01] Really? Yeah. And the thrower, Mundada al-Zaid, he was offered a couple of hands in marriage by various people who said, I'd like you to marry my daughter. And then in 2009 he was doing an event So the year after he did the thing Guess what happened? He got a shoe thrown at him
+
+[00:31:20] He got a shoe thrown at him Yeah it was a real cycle of life thing Come up and buy Bush or? Not by Bush But Bush has had more shoes thrown at him since There's a whole, I mean it became a thing post that event Generally There's a whole Wikipedia page where it's a shoe throwing incidents
+
+[00:31:36] It's called and gives you a big timeline And it really picks up after Old mate Bush was yeah was attacked. There's a famous incidents as well. Queen Elizabeth, the late queen, in Australia. Yeah. She threw a shoe at Philip when they were in Australia.
+
+[00:31:53] It was one of the only moments where a fight, I think in fact the only incident in which a fight was seen between Philip and the queen. She threw a tennis racket him as well. Yeah. A tennis racket. Yeah. And the Aussies were filming from a distance and they were like, geez, what did we just see? Because we've never seen anything like that before. And so one of the PR
+
+[00:32:11] people had to come out for the queen and say, what are you doing, with the British accent, though, or the Nazi accent. And then the Queen came out and she apologized and she said, where do you want me as if to say, please don't use that, I'm here now as an embarrassing apology for you witnessing that. But possibly, she was wishing
+
+[00:32:27] him good luck. With their lucky tennis racket as well, yeah. All of your lucky clothes are out on the lawn. That's so funny. Wow. James, have you ever I'm asking James specifically this for a reason. Have you ever seen a panty tree?
+
+[00:32:46] We know the reason. A panty tree. No, but I think I can guess what it is. Is it a tree where people leave their pants? That's right. Why would I have seen it? Why would you specifically have seen it? Is it common in Bolton?
+
+[00:32:58] It's not a Bolton thing. I bet it's a golf thing. Oh, it's a sporting thing. Oh, yeah. I thought it was just because James makes a habit of visiting all the weird places in the world. And is a pervert. Yeah, yeah. Or maybe I'm like Tom Jones and wherever I walk, people just,
+
+[00:33:13] throw pants at me whenever I'm walking in the forest. You are the panty tree actually. No, the reason I asked is because I know James has been on a skiing holiday. Yeah. Oh. But I think you probably all of you guys in metropolitan elites are always skiing.
+
+[00:33:30] But no, apparently it's a thing for a ski lift because your ski lift goes very high, doesn't it? And it passes over some trees. And in some ski resorts, there are trees where people chuck their panties onto the tree. I've seen that. And I thought it was a Mardi Gras thing.
+
+[00:33:44] But there were loads. And there was lots of like sparkly, brazy, panty. Oh my God, and that's a thing. That's a thing. And I think they don't love it, the skiing authorities. Why do they care? I am. Sorry, I don't know.
+
+[00:33:58] What's that problem? It must be hard to get your knick. Littering. Yeah, it is, yeah, yeah. Must be hard to get your knickers off on a ski lift, though. Like, that's a tough. I don't think they're doing that, Andy. Because you're wearing like your ski suit.
+
+[00:34:09] Exactly. And you've got to pull them off and then pull them all over the ski. I don't think it's possible. I feel skis as well. You have to take your skis off. They're going to fall. No, I reckon it's a spare pair of pants situation in the pocket, isn't it? That probably is it.
+
+[00:34:24] Very interesting. I occasionally have dropped a ski pole when going up on a ski lift, as I'm sure many people have. And obviously we hire our skis. And then we went back and we said, we dropped our ski pole. Can we pay for this ski pole? They said, oh, no, don't worry about it. Because at the end of the season, when all the snow mess, else someone goes up and collects all of the ski poles off and then they just distribute them between all the shops.
+
+[00:34:48] No way. That's fascinating. Yeah, yeah, yeah. That's amazing. This was in Italy. It was fine. Just give us your panties. Give us your panties, mate. In 2016, MPs in the Egyptian Parliament attacked each other with shoes. One attacked another with a shoe. Which I think is quite sorry. What's a big drop-down from a mass shoe wall? No, it wasn't. The other one wasn't quick enough off the mark taking his shoe off. He was actually suspended, which I don't.
+
+[00:35:13] don't know why I sound surprised. I suppose you probably would be from our parliament as well. Did they run with the headline S, open brackets, C, close brackets, andle? Sandal. Sandal. Rhy! Oh yeah, scandal. Gosh, that took us all a long time, isn't it? Yeah. No, because I suppose it would have been written in Turkish.
+
+[00:35:33] But yeah, it sounds like a very exciting moment. Torfik Ocasha was the MP who got attacked by his shoe because he'd had the Israeli envoy round and one of his fellow MPs objected to that. and got angry and hit him with a shoe and had to be escorted from the house waving a shoe. I just thought that's a fun addition to parliamentary going on if we want to try it out. There's a bit of an irony about Queen Victoria
+
+[00:35:53] throwing the shoes at the Crimean War soldiers which is that they had very bad shoe situations when they got to the war. Wow, I phrased that badly. They should have kept that one shoe. Well, yeah, they had awful boots and they got trench foot, their feet swelled up in the cold, the clothing was completely awful.
+
+[00:36:11] Sometimes the sole of their shoe would just stick to the mud as they lifted their foot up and the rest of the shoe came and the soul was left behind because the mud was so thick and sticky. Yeah, yeah, yeah. Really bad, yeah, yeah. They had a horrible time. Yeah, it was a tough one. It's a tough war.
+
+[00:36:27] Many of them are. What were the years, the Crimean War? 1850. Three to six. Yeah, as Anna said. Three to six. Three to six. Three to six.
+
+[00:36:36] 1850, three to six. Yeah. Yeah. Sorry. Right. And it was a very complicated war. Yeah, it was basically a pluisecheon about the West trying to limit Russian expansionism, wasn't it? It's basically the Ottomans coming up to the north, the Russians coming out to the West,
+
+[00:36:54] Britain and France having colonial things that they didn't want to lose, trying to keep Russia as quiet as possible and decided to get on the side of the Ottomans and then attack the Underbelly, which is Crimea. Yeah. And also there were a lot of Ottoman. living in Crimea at the time, so it was a bit of a powder keg anyway. It was a very, very complicated situation. Anyway, it started over rights of access to the Church of the Holy Sepulchre in Jerusalem,
+
+[00:37:18] which I think we've talked about. Isn't that the one where they have the disagreement over the ladder? It is. Yes, yeah. And this was the same thing, basically. The Ottoman Sultan gave the Catholic priests a key to the church at 1852. And from that point on, you know, it was like, well, we have to have a war over this. It basically things escalated from there.
+
+[00:37:34] And then suddenly you have got the charge of the Light Brigade happening. And it's all going disastrous to be wrong. Yeah. And Florence Nightingale's having to organise a lot of stuff. I mean, lots of famous things came from it, I suppose. Florence Nightingale, Mary Seacall, Charge of the Light Brigade. Three items of clothing. Balaclava, the cardigan.
+
+[00:37:49] Cardigan, Earl of Cardigan, very heavily involved in the Light Brigade. It's got to be a boot. You're not going to get it. Go on, what is it? The Sebastopol hat. It's the raglan sleeve shirt. Yeah, what's that? It's got a different colour of, the torso is a different colour to the sleeves.
+
+[00:38:06] It's a baseball jersey. Yeah, yeah. But General Fitzroy Somerset, the first Baron Raglan, was not wearing a baseball jersey, but they did have a raglan's shirt named after him. And he was the one who was responsible for the Charter the Light Brigade going so badly wrong. Right. He was very old and he was half deaf and he was not really with it. And he said, oh, the Russians are taking some guns over there.
+
+[00:38:24] Can you go and stop them taking away the guns? And the order was then carried to someone else, the Earl of Cardigan, who could not see the guns because he was somewhere completely different. And he said, what, those guns and pointed at this incredibly well-defended gun emplacement at the end of a long, narrow valley, just a disastrous place to attack. And he said, okay, this isn't going to go well, but fine. Bonacardi's.
+
+[00:38:47] Yeah, yeah, yeah, yeah. Here's exactly words where here go the last of the Brutonels because he thought he was just riding straight to certain death, as a lot of the people in that charge were. Here's another thing that wasn't invented, but someone tried to invent for the Crimean War, which was an entire city-destroying cannon. This is a massive cannon.
+
+[00:39:04] It was 10 metres wide. The shot is 10 metres wide. No. And it would weigh 550 tons. And the idea is that once it landed, it would demolish an entire city. And it was to be called the saxo cannon. How are they going to transport that anywhere?
+
+[00:39:19] Yeah. What's a wacky racer's, like, Acme, roadrunner style. Canon, they're making. The inventor was a solid inventor. Was it not Adolf Sax? It was. The inventor of the saxophone came up with a city destroying cannon, which he really wanted to build.
+
+[00:39:33] He was such a weird guy. He would just invent these things. and they just call it the sacks something. Exactly. So it didn't take off. No, it didn't get past the planning stages. No. That's what we wanted to do.
+
+[00:39:44] Take off. Very nice. Something else the Crimean War gave us is, I think, the earliest war photography, or certainly some of the earliest war photography, very famous photo of the Valley of the Shadow of Death by Roger Fenton in 1855, I think is one of the earliest pictures of warfare. Basically, there are two photos of the Valley of the Shadow of Death. and they're both of this extremely barren landscape,
+
+[00:40:08] very near where the Charles of the Light Brigade was, and gravel little valley slopes on each side. One of them has some cannonballs on the floor, one of them doesn't, and the famous one is the one with the cannonballs, and it's the sort of tragedy of war and the emptiness of the landscape with these war weapons. But there's been so much debate over the last 150 years
+
+[00:40:28] over whether he faked it. Like, where do the cannonballs come from? Well, sacks, I think, prototypes. They were his marbles, weren't they? And we don't know, because it might be that the second photo is after they'd cleared it up. So then he just took another one of it clean. Or he might have deposited. Ooh, tricky.
+
+[00:40:47] The thing was, because he took a lot of photos, right? He had a horse and carriage with him, which was like a portable photo developing booth that he had with him. He had lots of glass slides that he had with him, multiple cameras. And everyone's saying, oh, he staged a lot of photos. I think that I think it's more than just the cannonball one. And the problem is, of course, they were staged. Everything had to be staged. Because you needed a long exposure time. The exposure was like 30 seconds. It's actually why the charge of the light brigade was such a disastrous because they had to wait for half a minute for the photo, the team photo at the start.
+
+[00:41:19] And someone was blinking. Okay, it is time for our final fact of the show, and that is Andy. My fact is, there is a chameleon in Madagascar, which is effectively extinct for several months every year. This fact is incredible It's insane I think it's not true I think if you're extinct You come back three months later
+
+[00:41:46] You're not extinct Let's debate the case And first of all Thanks to Kate Wood Who sent us in In the email The fish inbox If I knew it was from you
+
+[00:41:55] As a must landy I wouldn't have pooed it No no no This is the LeBords chameleon And it is crazy Right so So in November The Chameleon hatches out
+
+[00:42:05] Yes In Madagascar In the forest then they grow to sexual maturity very fast. In about two months, they are grown up, ready to breed. They breed, the females lay some eggs in the ground. Then in March, they all die. All the adults die.
+
+[00:42:22] Yeah. There are then, the entire species exists in egg form, basically, for most of the year. In November, eggs hatch out. On they go. It's so weird. It's so weird. For most of the year, yeah, they're not extinct exactly, but for most of the year, they are, the species lives in as an egg.
+
+[00:42:38] for the first person to come out of the egg every year. Oh my God, yeah. They learn nothing from their elders. I just think these are bizarre. These were discovered in 2008. I think their life cycle was first reported. I think since then they have found that
+
+[00:42:51] if you keep some in captivity or maybe under very specific conditions, one might make it through a year. But it's really, really rare. So it's... What a year 2008 was. Over in India, you had someone being killed on TV with mind power.
+
+[00:43:04] Or not. Or not. In Iraq. A chameleon being extinct. Or not. In Iraq, George Bush is getting a chew thread at him. What? What was Anthony Trollope doing that year?
+
+[00:43:16] No, and they're amazing. And I think it's because they die to avoid the dry season, which is very harsh and very, very hot in Madagascar. And some species hibernate, they just decide to die. And lots of chameleons on Madagascar. I think they've got about... They've got almost half, haven't they? They've got about 40...
+
+[00:43:33] 45% or something. Yeah. Extraordinary variety of estimates as to the number of chameenian species. given that it feels like a very small, countable number, I read anywhere, and all from very reputable sources, anywhere between 134 and more than 217 species of comedian. Well, they're different colours, aren't they? It's very hard to tell, you know?
+
+[00:43:50] That's good point. Well, this was a green one before. Or is it different one? They're great. Yeah, they don't change their colour to match their background. I actually didn't know that until reading it for this podcast. Right. They match their emotions.
+
+[00:44:02] Yeah. No, I think that's amazing, an amazing misconception. It's one of the biggest ones we've debased. You know, sometimes we debunk things that you think, yeah, come on, that's a bit. No, we never do that. No, we never do that. We never do that. There's an amazing thing.
+
+[00:44:16] If you were watching the UFC of chameleon battles, right? Yep. Two competitors enter the ring. If you were betting, you could probably bet in the last few seconds, if that was allowed, on who was going to win. Do they change colour based on whether they think they're going to win or lose? When they pass each other in the street, two males were often changed colours to sort of be like, kind of like if you're, walking poolside and you tuck your tummy in and walk in that kind of thing.
+
+[00:44:42] So yeah, so they found when they were studying it that the chameleon that was brighter and changed more rapidly was the one who was going to win and that they just found that that on average was the way that it happened. Yeah, or above average. So what a useful way, if only we could tell them that, then they never have to fight, right? They can always just go up to each other go, oh, okay. Throw the towel in, yeah, exactly.
+
+[00:45:04] Wow. If you were a chameleon in a boxing ring or something, because you normally wear a little dressing gown, don't you, into the ring? Yeah. And as soon as you take your dressing gown off, you look down. You were confident until you saw how bright and stripy the other guy is. I should just quickly say this was in 2013. It was a guy called Russell Liggan and Kevin McGrew,
+
+[00:45:21] and they did 45 encounters that they monitored, and that's what they've discovered from. That's very cool. They've got amazing anatomy. I didn't know about the shape of their feet at all. And they are bizarre. They are described often as looking like salad tongs. Yeah.
+
+[00:45:35] And they do. So there are two pads opposite each other. And in fact, they're the only animals who aren't birds, who are zygodactylus, which basically means that they have three fingers opposite two fingers in a certain way. And they're not the same kind of zygodactylus really as birds. They're their own special thing. And essentially it's to grip trees. I don't know why more things don't have this.
+
+[00:46:00] So it looks like a sideways claw that just clamps onto trees. It's very clever. But I did find out that you can also get pamprodactyl, anisodactylies and schizodactylies as well, which are in primate schizodactylies grasped with their second and third digits. Instead of thumb and finger. Like doing scissors. Oh, exactly. Does that free you up to hold something like food?
+
+[00:46:26] Or do like a thumbs up at the same time as holding onto the tree. I think that's the idea, yeah. And you can hold a can of paper between fingers four and five. Yeah, perfect No, they are, they're great I know someone who's got a pet comedian Do you? Yeah, yeah, yeah, yeah.
+
+[00:46:41] So at the end of the anecdote? I think it is. I'm rummaging for more, but that really is about it. It's called Roy. Okay, there was more. There was more. And that's the end of the anecdote.
+
+[00:46:53] Yeah. If you were sitting on a chameleon's tongue when it ate something, food for thought, you would die so badly. Really? No, no, it would just. not be able to eat anything because you're way bigger than a chameleon. If you're sitting on its tongue, it's not going to be eating anything. Sorry, you're right. You have to imagine that you're the
+
+[00:47:12] size of a borrower or maybe even smaller. Oh, okay. Of an ant. Oh, yeah, sorry. Well, obviously, if you sit on a comedian's tongue, it'll just crush its tongue. Because you're human size. No, but like, you know, if something bites you, a bite could have venom. I thought the reveal was was going to be the tongue. Sorry, it wasn't. It was the acceleration of their tongues. I should have made clear that you have been shrunken like honey-eye shrunk like kids in this. I think that was a big essential bit of that story. It was. Yeah, Anna, you've class of this one. If you were really, really small
+
+[00:47:38] and you were sitting on a comedian's tongue and it stuck it out, then you would definitely die. The acceleration of their tongues are amazing. They're actually the highest acceleration and power output, like amount of power generated, for any movement of a reptile, bird or mammal. Whoa. Yeah. The power output is 14,000 watts per
+
+[00:47:57] kilogram. Incredible. Okay. Now, Yonis Finggaard or Teddy Pagaccha, who are the best cyclists in the world in the Tard of France say if they're going up a mountain they can max out at about 7 watts per kilogram and these guys are doing 14,000 watts per kilogram it's a lot right I can't
+
+[00:48:15] I almost can't compute that that's amazing it's like so the G force is I think the maximum G force we can survive is maybe nine or ten for a few seconds fighter pilots and the G force on their tongue would be 264G your face is being distorted by that That is so cool.
+
+[00:48:34] That's incredible. I read a bit about what's inside their tongue because they have these things called intralingual sheaths, right? So the tongue has bones running along the core of it, which is weird in itself. I guess they don't, not very big bones, but those are covered by these intralingal sheets and those are covered by an accelerator muscle.
+
+[00:48:51] And what the chameleon does is the chameleons spring loads the sheets and packs them into each other like a telescope. That's like there was a toy that used to do that that you flicked it when you were younger and it was telescopic and it expanded out, wasn't there? I've got a real memory of that I was just playing with a comedian's tongue
+
+[00:49:06] when I was younger You would get like those pointers that teachers had and they would go like that wouldn't they? Yes I got one of those last year For Christmas
+
+[00:49:14] For myself At a non-holiday time And God they're good Yeah You got one of what Did you do Do you just point at stuff Yeah
+
+[00:49:24] Just walk down the street Going there's a panty tree It really It gives you a kind of authority That is extraordinary You know You've never dared to use it here. No, no, no.
+
+[00:49:35] But if I'm in the supermarket and I want to put it something on the conveyor belt, make sure you apply the discount on that radish, my good man. Bleep this one next. I'm so confused about why you actually. I'm so confused because all of this sounds so plausible. We're just missing the one detail. We're sort of playing what I like to you now, aren't we?
+
+[00:49:57] No, I think it was a couple of years ago. I bought it for a show. But I cannot remember the context in which I have, and I've just ended up with a pointer, which I'd love to get out occasionally. I'm right. So, chameleon saliva, this was another fact in the inbox, actually. So not only did Kate Wood send the original fact,
+
+[00:50:11] but Robert Harding writes, Camelian saliva is the opposite of custard. It's disgusting on treacle tart. Is that because it's non-Newtonian, but in a different way? Bingo. Yes. So custard, if you run across custard, as you apply force to it, it gets harder.
+
+[00:50:29] Very good. That's it. It sickens. on impact, a chameleon saliva is thick in the mouth, but when the tongue strikes the insect it's trying to eat, or whatever, that blob becomes very malleable for an instant. That's clever. And then hardens right again. Right.
+
+[00:50:45] So the prey is then glued to the tongue. And then it gets whoop pulled right back into the chameleon's mouth. That's clever. That's amazing. I found a chameleon who was a chameleon before chameleons were chameleons. What? Keep talking. Keep talking.
+
+[00:50:58] I got a headache to me. You know I got a headache. And this is not helping. There used to be a philosopher called Chameleon. Really? He was a disciple of Aristotle? Was he the guy who came up with the idea of karma? He, we don't know anything about him.
+
+[00:51:14] You're just going to go straight out. You're ill, you don't know what you're saying. Just helping you out here. Yeah, no, he is a disciple. We know virtually nothing about him, I guess, as with a lot of people then, but he did write a lot of pieces that we do know of his names attached to, like a piece called on drunkenness, a piece called on pleasure.
+
+[00:51:35] But virtually nothing is known. So he lived, he would have died in 281 BC, and the word chameleon came about in roughly the 14th century, mid-14th century. Okay. Wait, so to describe the lizard,
+
+[00:51:49] presumably. To describe the lizard, and what's interesting is Aristotle wrote about chameleons, but we just didn't have the word and he wasn't writing about his mate. So did he always have to say, you know,
+
+[00:51:56] that thing that kind of changes color looks a bit like a gecko. Looks like my mate. my disciples. Can I give you some animals that were thought to be extinct but then aren't? Yes. The Canterbury knobbed weevil. Okay.
+
+[00:52:12] Might just stop there actually. No, more, more. The cloaked bee, the dinosaur ant, the terra skink, the Batman River Loach, the painted frog, and the Machu Picchu arboreal chinchilla rat, which was found in a tree near Machu Picchu. Right. when they unextincted it. Wow. So these just all things, was there one big find, one day out,
+
+[00:52:36] where they're just all hanging out in the same playing cards for a while? It's some sort of like support group for the extinct who aren't extinct. Yeah. There's also the confusing rocket frog. That's a great name. And they found it in 2019. And it's called confusing because it looks a lot like other frogs. But it's the confusing rocket frog.
+
+[00:52:56] And the interesting thing about this is it was thought to be extinct in 1984. they found it in 2019, but luckily it was in a place where they were about to do loads of mining and logging and stuff like that, and it meant that they couldn't do any of it. Brilliant. That's great. Well done, little rocket frog. The painted frog, was that one, did you say?
+
+[00:53:13] Painted frog, yeah. Yeah. Which just sounds like someone forcing chameleonism onto animal. That's very interesting. There's a type of fish that was thought of gone extinct 66 million years ago, and then it was found in 1938. And it's the sealicant. And do you don't know the story of how it was rediscovered?
+
+[00:53:32] Is it a military, 38? Was it found? No, no, just found by a submarine? No, just found by a normal fisherman in South Africa, caught a weird fish, got back, gave it to this woman who ran the museum who thought that's weird. So she sketched it. Oh, I remember. Yeah. It's this amazing thing.
+
+[00:53:49] So she sketched it and she sent it to Professor Smith, who she knew would be able to tell her what it was. Professor Smith received her sketch, no straight away. This is a seal account. It's been 6.6 million. in years we thought it was gone. And he goes and he visits it, but it's kind of disintegrated by that point. So he can't and he can't confirm really that lots about it or where it came from. And he devoted the next 14 years to finding a second specimen.
+
+[00:54:13] He was desperate. And eventually there was a guy on one of the Comoros Islands off Mozambique in 1952, who found one. And Smith was managed to convince the South African government to get a military plane to fly him to off the coast of Mozambique. He had to have a conversation with the Mozambique authorities saying, hey, we're flying military planes over your airspace. Really sorry.
+
+[00:54:36] They were like, why are you doing that? They said, we're just going to pick up a fish? I remember reading that story, and I think the woman who found it in the first place and knew there was something up. I think it was either Smith or someone else said it was evidence of women's intuition, the greatest evidence we ever had of women's intuition.
+
+[00:54:53] Really? Marjorie Courtney Lassimer, really? Yeah, yeah. What, just because she sensed that this is a weird. She just knew there was something going on. Yeah. Wow. That's proving two things with one fish. That's pretty cool.
+
+[00:55:05] Not only do we have the fish, we now know about women's intuition. Not a happy day for the world. I'd love it if it's paper, which eventually came out, was about women's intuition, not about the fish. Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any. any of us about the things that we've said over the course of this podcast, we can all be found
+
+[00:55:33] on our social media accounts. I'm on Instagram, just use Shreiberland. James. I'm on Twitter, just use at James Harkin. Andy? I'm on X. At Andrew Hunter M. Sorry. And Anna, how can they get through to us as a group? You can just use the email address podcast at QI.com or the Twitter handle at No Such Thing. That's right. Or you can head to our website, which is no such thing as a fish.com. All of the previous episodes are up there, so do check them out. Otherwise, come back next week, because we'll be here with another episode, and we'll see you then. Goodbye.

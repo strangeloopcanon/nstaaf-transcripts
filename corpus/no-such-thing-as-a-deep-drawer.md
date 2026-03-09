@@ -1,0 +1,387 @@
+# No Such Thing As A Fish - No Such Thing As A Deep Drawer
+
+- Episode date: October 27, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-deep-drawer
+- Slug: no-such-thing-as-a-deep-drawer
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I am sitting here with Anna Tyshinsky, Andrew Hunter Murray, and James Harkin. Once again, we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, that is James. Okay, my fact this week is that is. In 1910, the World's Health Organization tried to ban kissing. Wow. You think that'd be a bigger story given such a huge organization, right?
+
+[00:00:51] Especially as it happened 30 years before they existed. Yes. You would think so. Thank you. What's going on here? If you listen very carefully, you will have heard me say the World's Health Organization, as opposed to the more commonly known World Health Organization. And this was an organization.
+
+[00:01:09] Now, when I say an organization, I mean really one, one. in America called Imogene Rectin, and she decided that everyone should stop kissing. And she got in all the newspapers and invented a load of badges and pledges and stuff like that and really thought that if people stop kissing, then maybe we could stop the spread of disease, things like consumption, typhus, all that kind of stuff.
+
+[00:01:33] Yeah. She can't have been completely wrong. If everyone stopped kissing everyone else, we'd have fewer diseases. Yeah. Well, we did try it for half a year in 2020, if you remember. And no one got a cold. So, you know, yeah.
+
+[00:01:47] I'm just saying maybe the cost is greater than the benefit. Yeah, but she was, I feel like she was almost ahead of her time understanding then about exchange of possible germs. I mean, our mouths are rank. We've got like billions of bacteria in them. I know a lot of them are probably good bacteria. Yeah. But I think there was a study done that had people drink like a yak or a probiotic drink and then had them snog their partner. and they found the 80 million bacteria transferred from one face to the other.
+
+[00:02:14] Bacteria's tiny though. Yeah, 80 million. We don't know how much that is, do we? Is there everything where it's like, oh, three bacteria transfer are not the... Like, it's going to be big, right? It's such a good point. Even if three bacteria transferred before long, there's going to be more than... There's going to be four, five, six.
+
+[00:02:29] There you go. They are rampant. She does sound amazing. Imogene as well. Imogene. Weirdly, some newspapers call her Imogen, but I think that... They might be misprints, because most of them say Imogene. She got some support.
+
+[00:02:43] She got some support. She got a thousand acolytes, which I think is a good hit rate for this slightly Dementia campaign. So a good number of acolytes. Yeah. Well, including 70 brides who declined to be kissed at their own weddings. Really? Which I think.
+
+[00:02:55] Yeah. Yeah. You may now kiss a bride. No, you may not. Yeah. So in the article that you sent over James when you found this, there was a nice little thing that she, it starts off by saying that she'd convinced her husband of the risk.
+
+[00:03:08] associated with promiscuous kissing, which sounds like she had a bit of a dog in the race to begin with. Yeah, she had a husband. So he was a big kisser, right? Well, I think what it sounds like reading further into the article is that kissing on the lips and kissing generally was much more what you just did. If you had parties at the house, everyone would kiss each other on the lips, women would kiss each other, men would kiss men. In 1910. That's what her husband was telling her. First of all, the keys go in the bowl, then we start kissing, and then we'll see what happens.
+
+[00:03:38] Yeah, I don't think men were snogging each other that much By 1910 There have been phases when the kiss has been in But I think her husband just spinning in I did just throw that in I have to admit It was definitely said women were kissing women I thought well men should be kissing men
+
+[00:03:51] I was in France recently I saw I was in the south of France I was in particularly kissy region I didn't vary from region of region I think I saw some people kissing four times Yeah But there's more I think you do get
+
+[00:04:02] There are fives definitely I've had a good five or six I've had a six kiss Yeah I lived in France for three months with my grandmother in 2003. I've had a six. You start counting when it. Six.
+
+[00:04:12] Six. I've had a six. Maybe she wanted to give me six. I've seen a five before. No, her old are you mates. All the grandies. At the retirement, maybe they forget, maybe they forgot. Halfway through, they're like, ah, what am I start again?
+
+[00:04:27] You can be stuck in the old people's name for hours, can't you? Think about older people kissing. This was actually one of Imogene's theories. And she thought that if she could stop older people from kissing, each other and actually more like stopping them from kissing children than eventually when the older generation died out so kissing would die out
+
+[00:04:46] because the children wouldn't have got it into their system that it's a thing that you do that was her plan that's interesting probably would have worked if she'd again if she's got more than a thousand acolytes yeah yeah yeah yeah because it's a cultural thing you know it's a learned thing we assume it's yeah I think there's some debate
+
+[00:05:02] isn't there but I think we assume it's a learned thing largely because about just over half of societies don't do it. Yeah. So the number is 46% do do it of cultures that were looked at to see whether lip-to-lip kissing was a thing. But what's a culture? As in is Britain one culture? No, no, no, it's not like Britain. So it's obviously tiny minorities of people because the vast majority of people on earth do kiss now because we're globalized society. But if you go to an Amazonian tribe or, you know, Papua New Guinea or something. Yeah, right. I think it's particularly
+
+[00:05:33] uncommon in parts of China and parts of Mongolia. That area is quite uncommon. So it was 168 cultures from around the world. And this was a professor of anthropology at the University of Nevada, Las Vegas, which I assume is a serious university. I just associate it with gambling. I don't know why. Poor Las Vegas. It does do on the stuff.
+
+[00:05:53] That university is a very wealthy one actually because one year, a few decades ago, they put everything on red. Yeah, exactly. I've got a huge amount now. The first person who kind of observed that a lot of these cultures don't do mouth-to-mouth kissing was a guy called Paul Denjoy. so it's D-Aprosophy and then enjoy Don't enjoy
+
+[00:06:11] He said that some people considered it An Abomination and a form of cannibalism Come on, that's someone kissing too hard It's a step on the road It's a step on the road of cannibalism It's a slippery slope So just back to Imogene very quickly I read a lot of newspaper articles about her
+
+[00:06:27] Because in 1910 and 1911 She was everywhere Obviously the newspapers saw this story That's trying to ban kissing and they loved it She was known as the foe of occulation in the press. Occulation, being another word for kissing. And in August of 1910, she tried to organise a no-kiss-August, which you know what? It's like, you know, no drink January or whatever they call this, November.
+
+[00:06:53] I reckon this might be the first of those. Yeah. You know, 1910, it must be there. But then by 1912, there were no more mentions of her on newspapers.com. So after two years, the press weren't in. interested anymore. Do we know any more about her story at all? Like, do we know when she died? I know when someone with her name died. But I couldn't tell if it was definitely her. So I'm not really sure. She kind of went away after. How many imagines? Yeah, yeah. 13% of people, so they've been
+
+[00:07:23] accidentally kissed on the mouth at work. Oh yeah. How does that? Is that? Dad says, oh yeah. That goes around kissing people on the mouth all the time. But sometimes the turn comes to an air kiss to another air kiss. Especially when you're doing seven. I found someone else who has an anti-kissing rule. Oh yeah. And it's champion whistlers. Specifically one champion whistler.
+
+[00:07:49] He's a guy called Christopher Ullman, who I think has won at the International Whistler's Convention. And there are, you know, lots of different kinds of whistling. And he says he has a no kissing rule for 24 hours before a performance. Interesting. Yeah, well, he must have a lot of groupies, you know, whistling groupies. Yeah. He sounds great. He says it makes your lips mushy kissing before a performance.
+
+[00:08:09] So he doesn't lick his lips, which I'm very impressed by. God, that's amazing. They must be parched and dry by the time he's whistling. But then they must be like a solid whistle, right? Have you got dry lips? I think it's very hard to whistle, isn't it? Is it? What does he say, Andy? I don't actually know how he moistens them.
+
+[00:08:27] I've only got other details like he can do Mozart's oboe concerto, the oboe part, but whistling. Okay. Which is hard. I think most people can do any part, right? Most people can whistle any tune. If it's a tune, it's whistleable. The problem is none of us knows Mozart's. That piece.
+
+[00:08:42] That's a good point. That's a very good point. So when his stooge in the crowd goes, I bet no one here can do that. And then he does it. And everyone's like, is that that? Yeah, exactly. Better to do a plane engine, though, or a drill or, you know,
+
+[00:08:57] something that doesn't sound like a whistle. Yeah. Exactly. What would the point? What was that? It was a drill. That was Beethoven's... All right.
+
+[00:09:07] Well, we've just casually driven by this guy's whole career. No, but it's interesting because I... Sorry, it can't be his career. It's unclear. It's unclear. I know he's got all these groupies, but really, you're making it living out for it. They asked him in this interview if his family gets sick of the whistling. And he said, I actually don't whistle around the house very much.
+
+[00:09:26] Random idle whistling is very annoying. Well, that's... Someone's told him that a lot of times. In 1921, in the newspapers, there was a worry about people kissing freckled girls on the cheeks. Can you guess why that might be dangerous? This was in the newspapers. Freckles come off. They go on your lips.
+
+[00:09:47] You get lip covered in freckles. Can't eat you stuff. Yeah, would they thought to be contagious, I guess, is the... Freckles. Yeah. In the 1920s. Was this a justified thing, or was it a... Okay, so it's justified.
+
+[00:09:59] Freckled girls. Because, because, because they are out in the sun. So they are wearing what back in the 1920s was radioactive sunscreen. You're so close. Yeah, so the sunscreen had chemicals in it. No, no, don't carry on with the wrong answer. Okay, just try. Radioactive sunscreen, which meant that to kiss them would give radiation and you'd become...
+
+[00:10:17] Forget it. That's the radioactive part. Oh, okay. It's the being outside part. No. Poisonous makeup. Almost. Basically, there was a anti-freckle medication that people were using to try and get rid of
+
+[00:10:28] their freckles and it was top. toxic if ingested. And so there was a danger, according to the newspapers, if you kissed a freckled girl on the cheek, you might get sick. Wow. That's awful because the girls are going to think that their medication isn't working at all because still no one's kissing them. Yeah. On alternatives to kissing, which people have had to come up with, these poor societies that don't have kissing, Darwin, who met a lot of people in his life, different people, listed a bunch of alternatives to kissing in cultures and he listed rubbing of noses
+
+[00:11:00] which Laplanders do rubbing or patting of the arms, breast or stomachs or one man striking his own face with the hands or feet of another Like a slap, proper slap It's like, why are you hitting yourself? Why are you hitting yourself? Oh, right. Actually, it's not you hitting yourself,
+
+[00:11:17] it's me grabbing your hand and then hitting me in the face with your hand. You are actually hitting yourself, yeah. Why are you hitting me? Why are you hitting me? Yeah. Yeah. Was that a game? Why are you hitting me?
+
+[00:11:28] It was a catchphrase, you could say. Yeah, yeah. Can I talk about very quickly some other public health stuff? Yeah. Especially done by American women. So this is a group of middle class women from Manhattan called the Ladies' Health Protective Association. And they, basically, there was a huge pile of manure in the middle of New York. Okay.
+
+[00:11:49] It covered two blocks and stood 30 feet tall. I was picturing much smaller when you said there was a pile. That's incredible. Like the Godzilla. So what they would do is obviously a lot of horses in those days, right? They would collect the manure from stables, and they would sell it as fertiliser to farmers who were just outside the city, but they needed someone to keep it.
+
+[00:12:09] And so they just kept it in the middle of the street. It was this guy called, weirdly enough, he was called Michael Kane. But Kane, as in Harry Kane with a K. But anyway, Michael Kane had this huge manure pile. And he was making loads of money. He was making $300,000 a year, which today is about $8 million from this manure pile. And his brother-in-law was a New York state senator, so everyone thought there was nothing they could do about it. Anyway, this lady's health protective association came along and did a court case, and amazingly they won it.
+
+[00:12:41] They basically called it a nuisance, and by the law, that there was no way that he could get around it because of this technical thing they called it. And not only that, the Board of Health denied any permits for any manure dumps in the whole city. So that's why if you go to New York now, there's not a 30-foot pile of the York. I've always wondered why there's not already. And this group then turned to spitting. Sorry, they turned to stop spitting. And that was when New York became the first city in the world that banned spitting. Isn't it true that in the middle of the Central Park, there was a massive reservoir of spit.
+
+[00:13:16] So disgusting. Okay, on with the podcast. Okay, it is time for fact. Number two, and that is Andy. My fact is that after King Charles I was decapitated, he was recapitated. Oh. You just made that word up. Yeah.
+
+[00:13:38] So, King Charles I first, only King who's ever been executed, I guess loads of been killed in battles and things like that. But it was in 1649, and it was just after the English Civil War. And obviously, huge move, you know. Big old move. Big deal. Political chaos, yeah. Yeah.
+
+[00:13:55] But the King's body basically had to be seen. and the, you know, the authorities, the sort of Republican authorities wanted to say, look, he's definitely dead and he's not coming back. So they employed a surgeon after the execution to stitch the head back on. I would have thought that if I'd have seen his body without the head, that would be even more proof that he wasn't alive. What a good point. It sort of looks like he was kind of coming back in the head that's meant to be off, was suddenly back on. Anyway, I should say quickly where I got this from, I've been reading a book.
+
+[00:14:25] It's actually from a novel. It's called Act of Oblivion. and it's all about the hunt for the regicides. Is it by Thomas Harris? Robert Harris. And so basically, and it describes incredibly gory detail, the death of the king and also the death of the regicides, who the people who signed the death warrant and all this,
+
+[00:14:42] and they really put through the ringer. Yeah, this is we should say, for international lists, they didn't put them through the ringer as soon as they'd killed the king. It wasn't like you've executed the king, and now we're going to execute you. It was when the restoration happened. So there was a brief period where everyone was pro-killing the monarchy. About 10 years. Sadly, yeah, after a decade, monarchy came back and then all the registrises got hunted down.
+
+[00:15:01] Sadly, Anna says sadly, Monarchy came back. From the perspective of a roundhead, I was adopting the character of Oliver Cromwell. So I don't know anything about Charles I was having not grown up in this country. So I am one of these foreign listeners, as it were, that you mentioned Anna. And it struck me that what a big deal it was to kill the king off the back of a trial. Because there's all this stuff. And Oliver Cromwell is a name that is very much part of the decision. to bring him to trial and have him executed.
+
+[00:15:28] Almost a key player. Yeah, and the story gets quite gruesome when we talk about what happened to him and the others some 30 years later after the death. Only 10 years later. Sorry, 10 years later. Okay, so 1649, Charles was killed. Yeah.
+
+[00:15:41] And then recapitated, right? 1650, I think is 8, Oliver Cromwell died after less than 10 years in office. And then two years later, the monarchy is restored 1660. Then, at that point, Oliver Cromwell is dug up and decapitated. So both Charles and Cromwell had a head-altering situation.
+
+[00:16:02] They should have switched them around. It was his son, was it King Charles II? Who was a direct son of Charles I, who then was the person in charge of the monarchy once, yeah. The person in charge of the monarchy, or the king. Well, it's surprising that it disappeared for 11 years. I mean, that is a pretty big deal. It wasn't just overthrowing the monarchy.
+
+[00:16:24] It was overthrowing all of the monarchy. It was one of the biggest things that's ever happened in England's history. I'm just saying as a foreigner. You don't follow. Sorry, got up to date on Charles the first. You haven't been about 20 years now. I feel like you should at some point. Yeah, it should have been as I was coming to immigration.
+
+[00:16:40] Did you not have to do an exam to get into the UK? No, a British. Well, do you want to know something really interesting? It's not in a lot of the citizenship test. Or at least a couple of years ago, there was a really good article on... Should it be question number one? There was a really good article. article on history today about how
+
+[00:16:57] it wasn't in the test for new immigrants. There was nothing about the Civil War, anything like that, and missed that whole period. And someone asked immigration, why isn't this included? And they said the wounds are still too fresh. The assumption is that we are all anti-Cromwell. Obviously, parliamentarian, didn't believe in the divine right of kings. The reason
+
+[00:17:19] that Charles First was overthrown was because he really went hard on the divine right of kings as well. He loved it, didn't he? He proroged Parliament for 11 years, didn't want to ask them anything, and then told them to give him loads of money. He was into absolute as monarchy. And when they put him on trial, he was like, well, you can't put me on trial because God put me here. Yeah. And now I think Cromwell is a bit of a villain to almost everyone. But in another country, he would be a hero.
+
+[00:17:42] And in fact, in America, he's remembered quite heroically. He's still got a statue outside of parliament. Yeah, which is surprising. So he's not. Yeah, and that wasn't toppled in the old topples of statues period that we went through quite recently. No, it wouldn't be. after he died his or rather after he died was dug up and then posthumously re-executed his body and a couple of comrades they were hanged beheaded and then the heads were placed on spikes his head stayed on a spike for 25 years that is the most amazing for me the most amazing thing about this whole thing for 25 years whenever you came to london you could go and look at a head on the spike and if you came back 25 years later it would still be there amazing it's amazing like I think about all the shops near my house most of them
+
+[00:18:24] Most of them are less than five years old because they just all got... The turnover. It was much less than those days. You got a lot of custom in the same place for a head. Amazing. But one person who lived through the whole thing was Oliver Cromwell's son, Richard. So when Cromwell died, he... It happens so often with rulers, tyrants, newly established reigns.
+
+[00:18:44] Anyway, they try and hand over to their kids. Let's get rid of the monarchy. It's ridiculous that someone could have the divine right to rule, but when I die, I want my kids to have it. I actually do think Napoleon, too. was a good name for an emperor. And anyway, so Richard Cromwell resigned. He was not up to the job. I mean, he was not, you know, as zealous as his father, and he didn't have the authority.
+
+[00:19:06] So he was kicked out in 1659, one year later, and he just lived out his life. Right. He died in 1712. I think he moved overseas. I think if your dad's head was on a spike in London, you probably would move out of town. You wouldn't say in London, would you? But get this. He died in 1712.
+
+[00:19:23] He lived an incredibly long time. So he saw the whole thing And he was the longest lived British head of state until the year 2012 when he was overtaken by Queen Elizabeth No way! When she was 85.
+
+[00:19:35] So that's the age he lived to. Oh, okay. So for a long time, the longest lived head of state was Richard Cromwell. That's really funny. Do you know where Oliver Cromwell's head is now? Oh, was it reburied with the rest of him?
+
+[00:19:46] No, this is interesting. It was buried in Cambridge University now. Okay, so I read this in a Charles Brandreth book and I tweeted him to ask him if this was true and he tweeted me back. So I said my memory of it goes like this. There is a relic of Oliver Cromwell kept by the chief whip or prime minister. Have I made that up?
+
+[00:20:04] I probably have. He wrote back it's in the drawers at Chequers. So my memory is that the skull of... The skull of Oliver Cromwell is in Chequers? In a drawer? In a drawer. And I think I read it in Brandreth's Brandreth's autobiography, his diaries of his time
+
+[00:20:19] as a politician and in it he says he goes to Chequers and the drawers open and they let you see and stroke the skull. Stroke the skull. So what I have in my notes is that one day there was a storm and the head blew off the spike. And they thought, you know what, it's been here for 25 years. We probably don't need to put it back up again. Everyone's seen it now.
+
+[00:20:38] They get the idea. Yeah, they get it again. Exactly. And then the skull was sort of taken away and it was just kind of sold in auction after auction and went through a load of families. But then it was buried at Sydney Sussex College, Cambridge in 1960. That's what I've got. But I mean, probably, like with these things, there's probably 20 of those skulls around that.
+
+[00:20:58] Yeah, and I don't specify what relic I mean. He could have thought it might have been a finger or something. In my head, it's his head. Oh, well, maybe it's not the head. That's more normal if it's a finger, because I can't think of a draw that could even fit a skull. Oh, I can't think of a drawer. Are you going to pull out of that? I should put out of that.
+
+[00:21:15] I suppose I'm imagining a desk drawer and those old desks of tiny drawers. Often the bottom drawer, even of a standard wooden desk, will be, a bit bigger. But even if that didn't exist, it doesn't take much imagination to take a drawer and make it slightly deeper. My head, ironically, my head is not big enough to get around this concept. Have you ever seen a filing cabinet? Because, oh, no, it's too much. You're going to flip your lid. I can't take it. So Anna's amazing Freaky Friday idea, which I actually think is a brilliant idea. Thank you. Maybe could have been trueish because when Cromwell's head got put on the spike, There was a big rumor around that actually it wasn't his head and that they'd mistakenly got on the wrong one.
+
+[00:21:58] And it was probably some old king of England. They didn't specify which one it was because he was originally buried. Was it in Westminster Abbey, I think. You're right. Yeah. So there was loads of other kings there and they thought that they dug up the wrong thing and just put an old king's head there. Surely you just pick the roundest head. Brilliant.
+
+[00:22:17] Brilliant. Roundhead jokes. It's a roundhead joke. I love it. Very nice. They did used to toss them in all together. a bit. Like actually,
+
+[00:22:23] there was obviously conundrum after Charles was decapitated because they don't want to create a martyr of him by having it either be a big thing bearing him or not
+
+[00:22:30] bearing him at all. So I think they took him away to Windsor and they interred him in Henry the 8th tomb, weirdly. Wow. And then in 1813, they decided to dig him up again.
+
+[00:22:41] I think this was to check again again. He was there again. Just the first time again. This is Charles first. And it was George the third's physician Henry Halford
+
+[00:22:51] who was kind of bleeding the exhumation and he ended up with Charles's vertebra and some beard and some of his teeth which is yeah some beard I'm surprised the beard is still extant after all that time yeah yeah that seems weird isn't how many years are we saying yeah well this was 1813 so it's 160 160 yeah so he says that they went oh it's not worth opening the coffin again do you mind just keeping these and he kept them other people who were there say that he went in and Nick taught the stuff and hung on to it. But then his grandson returned it.
+
+[00:23:26] It was the 1890s and he went to the Prince of Wales and said, look, we've got bits of Charles I first, you want them? The story, the QI facts that we always say about this is that they used the vertebrae as a salt holder. Oh, really? Yeah, so if you ever went for dinner at Sir Henry
+
+[00:23:42] Holford's house and you wanted some salt, it would be a little dish, but when you looked at it closely, it would be part of his backbone. Wow. I can't. No, you can fit that in a cupboard. The eventual outcomes for the regicides Who were the people who'd signed the death warrant basically were bad So I think a lot of them were disemboweled
+
+[00:24:02] They were not good They hanged until not quite dead And then had the genitals removed And then were disemboweled It's still alive, still conscious Got to lie But if you got away Then it could be okay
+
+[00:24:16] And interestingly, if you live in Connecticut Near, I think in New Haven then there are three streets called Dixwell Avenue, a Wally Avenue and Goff Street. Dick Swell. Dixwell and Wally. And what was the other one?
+
+[00:24:30] Dixwell, Wally and Goff. They were the worst surveyors that I ever had for my house. But Wally and Goff are the two that are in this book, Act of Oblivion. They're the two protagonists. Yes. Well, they all ended up in this place and they liked them so much in America,
+
+[00:24:47] obviously, because America aren't that pro monarchy that they name these streets after them. Yeah, it was a very very, They were in very, very religious, puritanical communities, which were already very uncertain about monarchy and wanted divine. It was kind of a place where they could go, wasn't it, when they were safe? There was another place in North America named after someone connected to this story. So the wife of Charles I first was Henriette Marie.
+
+[00:25:08] She was a French Catholic princess. She got married by proxy, which is quite cool. So Charles I first wasn't there when she got married. So he had a proxy, who was George Villiers, the first Duke of Buckingham. But George Villiers wasn't available either. So they got another proxy in him. Charles de Lorraine, who was the Duke of Chavreuse.
+
+[00:25:30] And basically, they got married with this guy pretending to be the king. And in those days, you could do that. I think we've said before, haven't we? There were various rituals if you're married by a proxy. Like, you, as the proxy, would maybe have to touch the person's thigh. I think that happened. You have to lie in bed and touch their thighs. Lying bed and be witnessed with them.
+
+[00:25:48] Yeah. So the king only met his. wife three months later at Dover. Three months later. They'd be married for three months when he met her. Awesome. And one of these areas in North America where Catholics felt safe where they could go was named after
+
+[00:26:03] Henrietta Marie and it was Maryland or Maryland or Maryland. And we always say this name and we always pronounce it wrong on this podcast and the people of Maryland always write to us but now I actually think that because it's named after Henrietta Marie it should be called Marie Land.
+
+[00:26:21] Yeah. Oh, lovely. So that's what I will be calling it from now on. Very nice. Especially because she didn't like Mary, actually. She was French and she was very French. And she was beginning English. She didn't like being called Mary.
+
+[00:26:32] So the English used to call her Mary as like a nickname. And she said, no, I'm French. Mary's not my name. Don't even like the name Mary. Fair enough. Marie is a better name than Mary. I-M-O. Can we talk a bit about the execution itself?
+
+[00:26:42] Why is it was such an interesting, I mean, what an extraordinary, I mean, one of the weirdest days ever to happen in English history. You know, it was on Whitehall. It was not far from here. So when it happened, the executioner had to wear a disguise. Yeah. Because the executioner has never been identified for sure. Do you not just mean like a HUD?
+
+[00:27:02] No, I don't. I mean a wig, a fake beard, a sailor's costume. Yeah, confusing details here. Unclear as to why. And fish nets over the face. Okay. Afterwards, after the restoration, there was a big manhunt for who was the exact executioner, because we're going to kill him.
+
+[00:27:17] Yeah. And he was... There must have been a lot of sailors getting rid of their fish nets. just in case they can't. Well, he was, the execution was never properly identified. One guy was sentenced to death for it, but then the sentence was overturned. One guy claimed to be and then wrote that they, I can't remember about that. There's a museum in London that has a few of these relics from the execution,
+
+[00:27:36] including a shirt that belonged to Charles. The first that they believe, you know, they can't, they can't actually work out properly, but all his, all his bits of clothing was sort of torn off him and handed round. That's the Museum of London, is there? The Museum of London, yeah. Among those items, they have a patched, leather shub of a man called John Big and they believe that Big was the executioner
+
+[00:27:55] at least that's one of the theories Mr Big yeah that's what that whole thing it was an analogy the Sex and the City was an analogy for the English Civil War Yeah that's very interesting Can't believe you didn't see that
+
+[00:28:09] So I guess I guess What's our name is it Carrie? Carrie Fisher but they thought that would be too obvious I don't think it's Carrie Fisher Is she called Carrie Bradshaw is a different person isn't it? She called Carrie Bradshaw.
+
+[00:28:22] Well, interestingly, John Bradshaw was the parliamentary commissioner who tried Charles I first in Westminster. You are joking. No. I can't believe we're actually blowing this shit while. This is huge. Bradshaw and big.
+
+[00:28:36] If any any of us had ever probably watched Sex and City, we'd be all over it right now. Okay, it is time for fact number three, and that is Anna. My fact this week is that in World War II, a Finnish soldier got tired in the army. Arctic, so took the entire platoon's rations of methamphetamine and subsequently skied 400 kilometres to safety.
+
+[00:29:04] It's the power of uppers. It's insane the story. It's a really insane story. So this is a chap called Imo Koevenen, and it was a time when Finland was the war with the Soviet Union. It was mid-second World War. Finland was sort of on Germany's side, war with the Soviet Union, and he's fighting. in this very cold area with his platoon
+
+[00:29:29] and he had been tasked with keeping his entire group supply of purvitin, which is meth. And it was so crucial in the Second World War, everyone was bloody taking it. And he was really, really tired and I think the Soviets were coming and chasing them. And he was told to lead them to make tracks and lead them away so they could escape.
+
+[00:29:49] And he was at the front. And he said in his memory of it that, so implausible. He said, especially because first of all he said, I didn't want to take them because I was kind of against that. I disapproved of drugs. So I tried not to, but then I got so knackered that, look, I just tipped a pill into my hand,
+
+[00:30:06] what I hope was a pill, but I was wearing mittens. And so quite a few came out. Turns out all 30 of the pills came out. And then because he wanted to hide what he was doing from his comrades, he just ate them all. You're being shot at. It's stressful. Just eat them all.
+
+[00:30:23] Have all the tic-tac-tac-tac-stice. basically. If you pour a lot of tic-tacks in your hands, let's say you only want two, but accidentally five come out, you're not going to put them back in the tics. Exactly. Especially if you're being shot at. As I usually am when I eat some tic tacks. Just drop them in the snow, anything. And then it goes Sonic the hedgehog because suddenly he just eats this. I was thinking of Popeye, when Popeye has this finished. Suddenly he turns into a mutant, absolute like, yeah, um, he turns into a mutant absolute like, yeah, um, He basically, as it goes, he received the hit in one swoop.
+
+[00:30:59] And the hit, by the way, lasts for a very long time. When you take a normal amount of meth, it can last a few days. But you figure it, he took an OD level of it, is what they say right. And I figure that the OD level would come to you in one hit. This kind of just plays out over a number of days. And he goes speeding away and they're trying to, they're trying to chase him. And they eventually collect all these rings. And they can't keep up.
+
+[00:31:22] And the music goes really fast. And they're chasing him still and he's just going off. And then this is the craziest bit, which presumably you've got more on Anna, because I just couldn't believe it. So I stopped reading. He blacks out. He blacks out and keeps going. Basically, a few days later, he kind of was like, oh, where am I?
+
+[00:31:42] And it turned out they've been doing that. And he still, he may have collapsed multiple times on the way. Basically, one of the things I found surprising in his account is that he said, said he felt amazing for a bit. Quite a short time, I think, where he skied like Sonic the Hedgehog. And then he said, something very unexpected happened. I completely lost the plot and started hallucinating and collapsing. I would say that's not unexpected if you have taken 30 pills of birth.
+
+[00:32:07] But then the mystery is what happened to the people with him. And I think, because what proceeded this was actually an argument between him and his men. And he blacks out. And the next thing he remembers, he wakes up and he's completely on his own. So one sort of suspects they had a chat and said, this guy's being so annoying right now. He's a massive liability. Post-meth. Post-meth.
+
+[00:32:28] Yeah. Well, they took all his ammunition off him, didn't they? Yeah, yeah. And his food supplies. So he woke up and had nothing. Well, then he started skiing towards some, he saw some allies in the distance and started skiing towards them. Much too late, realizes they're Russians.
+
+[00:32:42] Yeah. But he's still got the drugs on him. He skis, he skis through them and past them, he keeps going. He said they were so confused. They just moved their, they should have shot him, and they just moved their legs out the way to let him get past. Excuse me. He spent all night trying to get to a distant farm window, which turned out to be the North Star.
+
+[00:33:01] And then didn't he, he, he, by, like, chewing on some tree, like a cactus style. He boiled pine needles at one point. So he still had a good, delicious pine tea, had some pine tea. But he was really starving. It was only at the very end where he somehow had found a hut. Finally, this cabin in the woods. And, first what's so funny. He says, I lit a fire in the middle of the cabin. It's still clearly high. So I didn't know what he was doing, lit a fire in the middle of a wooden cabin, and it just set fire to the cabin. And he said, I just sat next to the fire and followed it around as it burned the cabin down gradually. The whole cabin collapsed around him. How many days into the trip, and I mean the trip? Well, he just doesn't know. I think about five days, but he has no idea. He only realized when he came out of it, it had been two weeks.
+
+[00:33:47] And yet, on his last day, he was about to starve to death. And then Jay flew past, and he whacked it with his ski pole and ate a raw j again not the actions of someone who's completely with it i mean the ability to beat a bird out of the sky is a stick that's hard it's a stick those ski poles are quite thin people don't go on pheasant shoots with just a ski pole today and there's the reason with this before or after he got blown up sorry that was after so he was set on fire and then he was blown up and then he at the J, right? Yeah, I think so, yeah. Because he found another
+
+[00:34:22] little building, and so it was a German post, but the Germans had retreated from it, and they had attached mines to it. Yeah. Yeah. So he basically shredded his entire foot in the first explosion, and then he sort of hopped around, and he opened a door, and then
+
+[00:34:38] that was also mined. And supposedly he came to, about many meters away. He'd been blasted across, but he was still holding the door not, like in a cartoon. It's the most extraordinary story. Do we think true? I can't imagine any of it's true.
+
+[00:34:54] I think he was sitting at home. Because we knew he was anti-drugs, right? Maybe he's come up with all this as a don't-do drug style. Yeah, big bit propaganda. This is like a Finnish 40s talk to Frank thing. Yes. I think we know, because we know from his associates the first bit happened and the last bit happened.
+
+[00:35:10] But I suppose the only account we have the in-between bit is his. With a guy with a lot of drugs in his body. That's all we've got. But he must have had a show. shredded foot, right? Yeah, he must have been holding a doorkman. Must have had a bloody ski pole with him. Oh, dead jane.
+
+[00:35:25] He just kind of looked at all these things and like, round and have to make a story up about these. But anyway, somehow he made it. I mean, eventually he was found by his allies, who were the Germans or the Finnish, and taken to hospital. Apparently, his heart rate was still 200 beats per minute at that stage. It's a lot.
+
+[00:35:43] It's a lot. It's incredible he lived. It's extraordinary. And then he's a ripe old age, you know, who just sort of war ended in the 70s and right? Yeah. Yeah.
+
+[00:35:51] Anyway, it was mad. But the use of meth was, it was big, wasn't it? The Germans were particularly into it. Yeah. But everyone did it. Well, I was reading you could get these pills called Forced March.
+
+[00:36:02] Yeah. Which were quite common, even like at the start of the 20th century. So they were a blend of cocaine and caffeine. I mean, I don't know why you need a caffeine at the point where you've had all the cocaine, but it was basically, it was sold publicly. It was sold by the welcome, actually. or by Burroughs Welcome, who was one of the welcome family.
+
+[00:36:20] Oh, really? It was a pharmaceutical family there, yeah. Yeah, they took them on the Antarctic Expeditions, the forced march, yeah, Scott and Shackleton. But they took specifically forced march, which I think they've got to market it in a gentler way. Or maybe that's what you want is false march. I think that's what you need motivation, right? Yeah, you're right. I can't march anymore. Yeah, you're right. And did they use that? Because they use that, the Germans use that in the war.
+
+[00:36:42] Did the Brits use that as well, and the Allies generally? I don't, I think the Allies, I think they're. There was meth used all around. Yeah, yeah. The meth pills that were synthesized in the 30s. But maybe not for everybody, for people who, I mean, obviously not for everybody. But, you know, as in maybe it would be for pilots rather than for standard M3. I think it was pilots to stay awake.
+
+[00:37:02] I think that's why the Allies use it for sure. So off the back of this, I was just looking into supplies that you take in the Arctic. Oh, yeah. What, you know, what you have to keep you going. And, I mean, it was, it seems like it was either cocaine or, biscuits. It sounds like a student's fantasy isn't it?
+
+[00:37:22] Yeah, you're right. What's on offer today? Okay, so get this. Captain Scott, right? Scott of the Antarctica, did loads of expeditions there. He took some specially made biscuits,
+
+[00:37:33] which were glucose enriched and then made by a firm called Huntley and Palmer. But he set off with digestive, rich tea, pitty burr, fancy lunch,
+
+[00:37:43] ginger nuts, as well as emergency Antarctic and small captain biscuits. And later in his trip, he got resupplied with more biscuits. I actually think that they're some of the worst biscuits you've just named like digestive and rich tea. Where's the hobnobs and the...
+
+[00:37:59] Jammy Dodgers? Did we have that back then? Well, tragically, this was a pre-Jammy Dodger world. I mean, maybe he would have made it back if he had some of the Japanese trip. On the first all-female expedition to the North Pole, every woman involved ate four penguins per day. Wow.
+
+[00:38:13] They don't have penguins in the Arctic. They brought penguins from the Antarctic. Arctic to the Arctic solely to mince them up and eat them. Yeah, they're cruel and that's why they haven't sent women back to the North Pole. This is, of course, biscuit penguins. They were sponsored by McVitties. And so McVitties provided them with a hard to nail down the number, maybe but thousands of penguins, I believe.
+
+[00:38:33] And one of the women said they were told to eat four penguins a day. Interesting. According to the biography, rigid women by Sue Richards and Victoria Richards. So this was two of the women who went on it. They were given six biscuits per person, her day for the expedition. Oh, really? Maybe the person who I read,
+
+[00:38:50] they got their biscuits nicks before they gave them to her. Yeah, that could be it. It's interesting, because that many, it must have been loads of days they were travelling. It was,
+
+[00:38:57] it was a relay, so it meant that four women at a time were going, and then they would be airlifted out, and the next lot would be airlifted into wherever they were. That's cool.
+
+[00:39:06] Yeah. Yeah. I was thinking you could wear the biscuits as a kind of extra layer of warmth, but maybe, maybe not. Were the biscuits? It was like you could make it, because they're quite flat,
+
+[00:39:13] aren't they? Penguins, yeah. You could have a waistcoat that was lined with penguins. And actually, they're two biscuits and in between there's like a little bit of chocolate or something, right? What insulation you're thinking? Yeah, exactly. It just sounds like you're one of the members on the trip who misheard where are the biscuits.
+
+[00:39:27] You've emerged covered in penguin. What year was this, by the way? It was 1997. And so I've got a question for you. Remembering that it's 1997 and they're British and thinking what was happening in 1997 at the time, what do you think the newspapers nicknamed them? The handovers. Blair's fruit. Women.
+
+[00:39:47] Go away from politics. Oh, the spice girls were big. And they were in the Arctic. Yeah. So, um, Frozen spices? No, no.
+
+[00:39:56] Wait, say it again. Say the ingredients. The spice girls were big. Yep. Girl power. Girl power. They're going to the North Pole. What nickname?
+
+[00:40:04] Girl Polar. Girl Polar. Zig Zig Zig Arctic. Jesus Christ. Girl polar. Wanna be the North Poles. Two become, 16 become.
+
+[00:40:13] No. Two. Uh. Literally everyone listening has got this. Okay, okay. Well done, everyone. What do you get in the Arctic? Snow.
+
+[00:40:21] As well as snow. Ice? Ice? Ice. Ice girls. The ice girls. Poo, pew, pew, pew. Nice one, dear. Wow, straight away. Straight in there. All Sonic. Sonic Shriver.
+
+[00:40:36] And one of the patrons of the Ice Girls was Don French, the comedian. And she told the press that she'd actually made the cuts. to be on the expedition, but she decided to stay at home and comfort all the husbands. That's so good. One of the husbands dumped his wife while she was out there.
+
+[00:40:56] No, while she was out there? Yeah. She's married to Dawn French now. Was it Lenny Henry? It was, yeah. No, this is Anne who had triplets, and she'd never had any experience before. She's this amazing exploring now.
+
+[00:41:08] And Daniels, yeah. And Daniels, never done anything before. But she, when they finished the expedition, all the other women had letters from home, And she didn't have one, and it was a sign their husband had decided to divorce. Oh my God. Is she about Rosie Stancer? Is she one of the... She's one of the Arctic, one of the frigid women, as the book has it.
+
+[00:41:27] So she was on it. So get this. She's, I think she's quite, um, quite posh. Like her... Posh ice. Brilliant. Brilliant. So, and she, like Anne Daniels, she went on to do a load of other expedition.
+
+[00:41:40] She did one, the Snickers South Pole Solo and the Mars North Pole Solo. So these are all chocolate and biscuits spots. But her grandfather was also a wannabe, thank you, explorer. He was the fourth Earl of Granville, right? And he wanted to be a polar explorer, but he was thwarted, can you guess why? It was something about his body.
+
+[00:41:58] He had the weird sort of inner ear thing, but whenever he wanted to go north, he always went south. That's a very creative one. Better than what I've got. Should I tell you? Yeah. Yeah.
+
+[00:42:07] He was too tall to go on an hour. Because you hit your head on the top of the earth. Because he wouldn't fit. in the tent. He was too tall for the tent. So his feet would be sticking out. Yeah. And that would obviously kill all the men in the tent with cold.
+
+[00:42:22] Could he not do like the kind of the embryo position? He was, I mean, maybe this was an excuse and it was his personality, but he was thought he was too tall to fit in the expedition. Not only five for eight. No, no, too tall. Could you get a bigger tent? No. No, they don't exist.
+
+[00:42:40] My cob knobs. Come up. Bring something doesn't exist, mate. I can't believe you just call the fetal position in the embryo. I know, I couldn't remember. We've got a phrase for that, geez. So I read a story which is that Anne Daniels' mother of triplets, one of her things to keep her going was to just say her kids' names over and over again,
+
+[00:42:59] out loud, the triplets just repeat their names. Baby ice. But they had very near-death experiences. It was so hairy. Scary ice. Oh, Jesus. Okay, let me just cross off three. We've got two more to get.
+
+[00:43:15] done posh, we've done scary, and we've done baby. So that leaves sporty and ginger. Ginger. Wait, they didn't take ginger nuts. They took the penguins. Yeah. They're all sporty. Okay. But yeah, the mother daughter, the daughter wrung her mum to say,
+
+[00:43:28] hey, I'm doing this Arctic expedition. And the mum says her daughter invited her. The daughter says she definitely didn't invite her mum, but her mum decided to go. But they both fell through the ice at one point. So the Arctic moves. They didn't quite realize how much when you're exploring. It shifts and moves and the eyes was creaking.
+
+[00:43:45] and they're wearing skis, and they both fell through the ice and had to, like, swim in skis. And she said she just remembered, while also towing these supply wagons, they all had a supply wagon, they had to tow behind them. And they survived?
+
+[00:43:57] Yeah, they somehow survived. Incredibly. But then, it sounds like God was watching, because they ended up, two of them ended up, managing to climb out onto one side of the ice, but their group was on the other. So they were on either side of a river,
+
+[00:44:11] and they just walked either side of this river, and they were getting more and more divergent, and they realized they were not going to be able to get back to each other and then suddenly the ice started moving and the river closed up and the eyes joined together. Wow.
+
+[00:44:23] But it would have been very precarious, as in to walk across that, it's quite nerve-wracking. You would have had to tread, you would have had to walk quite gingerly spice. Ice. James saw that coming from such a distance. What's that on the horizon?
+
+[00:44:39] Is it the North Pole? No, it's Andy's joke. Oh, it doesn't feel as good when you get there. Okay, it is time for our final fact of the show, and that is my fact. My fact this week is that the crowd science expert, who designed and mapped out the queue, is called Professor Keith Still. Did you try and say keep? It sounds like keep still.
+
+[00:45:12] It looks like keep still when you say it in a weird way. What the cues do? They move, don't they? But this one famously was a very long one that required you to Keith still. We actually required you to keep walking for about five miles. It did, but what were you doing when you weren't walking? I suppose you would keep still. That's right.
+
+[00:45:31] They always say keep still. This is the cue for Elizabeth the seconds. This is the passing of the queen. There was this extraordinary queue that lasted somewhere between five miles onwards. And if you were in it, if you were someone who came to London, to be part of it. You could be waiting between nine and 24 hours to eventually get to the front of the queue. Professor Keith Still is someone who helps. You can say his name normally now we've done the fact. We've explained the joke, which always works. Now let's just call him by his name.
+
+[00:46:01] So he is from Burton and Kendall in Cumbria, and his job is a crowd scientist. So for the last 30 years, he's been doing this as a job. And he was the person who was in charge of creating a line that was going to be one that meant that people felt safe and that they had toilet stops along the way and he had to, and you know, medical assistance and he had to devise it for something that was twice the length. Where would it have gone? I don't know. I'm not sure if we were... Into the English channel. When you dropped into the English channel. Because they did stop it at one point. They said, we're at capacity. So they didn't use the proposed route. But then what they had was a pen where a sort of secondary queue started where you could then go from that second queue.
+
+[00:46:39] The queue for the queue. Exactly. Yeah. I remember that happened. I didn't go clubbing very much as a student You're astonish? No, no, no, it's true. But there was, I think, partly because one of the first times I went. You were two, your friends said you were too tall, didn't they? Yeah, apparently the club had a very low ceiling. They always do.
+
+[00:46:59] Yeah, I would have hated it. No, there was a club called The Bridge, which was, you'd go to. And there was a pre, you'd queue up for ages, and I did queue up for ages, and then you get into, I got in, and it turned out that the club I got into, was actually a queue for the actual club. No. Yeah, there was this whole, and it had a bar and everything, but it was basically the queue for the bridge, as in you'd get given a ticket, and when they called out certain
+
+[00:47:22] tickets, you could go into the actual club. But I'd give for about 40 minutes to get into the queue club, which was rubbish. You must have like an absolute chump. I've been to the bridge multiple times. I don't remember the old double cue. Anna probably walks up to the front and says, I'm Anastoszinski. Yeah. They let me in the back usually.
+
+[00:47:37] And you're DJing. Yeah, yeah, yeah. It is actually quite impressive. The level of the level. of standing. So I hadn't really thought about the fact that you would be actually standing up because you are constantly moving so you can't really sit down. You were standing up for 24 hours. And lots of people needed medical treatment. 291 people needed medical assistance just on one day with 17 having to go to hospital.
+
+[00:48:01] It's a lot. Dehydrating and fainting. It is quite a lot. Of course they could have just not had a queue. I mean these days we do have systems to stop people from having to queue for miles and miles and miles. What like booking in? Yeah. You could have just gone on the website. said I'm going to come between 1 o'clock and 2 o'clock And then the queue would never have gotten longer than an hour Where's the fun in that? What would the news have done for a week? That's the point, isn't it?
+
+[00:48:23] The point is that it's like this ceremonial thing That they wanted to show how much, how important it was and stuff. Yeah, exactly. Professor Still, Keith, Keith Still, Keith, got into Keith. He got into queuing, first of all, several decades ago. He was at a Freddie Mercury gig. It was an AIDS awareness gig. And it was at Wembley, and he and his friends,
+
+[00:48:42] they were stuck in the queue. hours and his friends were all um quite annoyed and he was quite mathematically minded and thought god's really interesting actually and so he got into queuing and he then is interestingly queuing for the queen yeah and cooing for queen oh my god we've blown the shit wide open um his next thing he did he went to wembley uh stadium and he he would he got special permission from the whoever's running the grounds and he would spend his weekends for ages uh sitting above the players tunnel watching the crowds. Oh.
+
+[00:49:16] The match was going on, but he's not watching it. I think he wouldn't have been paying any attention to the match. Yeah. You just seen this guy sitting above the, yeah. He can't, he said of the queue, the one, the recent cue, he would not have been able to withstand the length of time it required to get to the front. He himself can no longer queue within the cues he decides. Because he's old?
+
+[00:49:37] He's got an arthritic hip. That must require him to keep still. more often than he'd like. Absolutely. It's funny because he he's got a lovely website and he lists his hobbies on it. Does he?
+
+[00:49:51] I didn't see his website. Oh yeah, it's a great website. Yeah, he owns multiple motorbikes and he plays bowls. Does he? That's quite a rare combo, I think, like having a Harley Davidson and playing Crown Green Bowls.
+
+[00:50:02] Is it? Well, one seems quite hard school. No, you're right, in Hells Angels, they were famous for the balls match. Sorry, they're the only people at motorbike. I forgot that as well. He's got a... I associate.
+
+[00:50:13] both with real ale pubs. I bet he bloody loves a real ale. Yeah, yeah, yeah. Some other animals, Q. I didn't know this. Okay. Yeah, so... Ants, probably, I reckon.
+
+[00:50:25] Yeah, must do. Fish, cue. There are fish which... Yeah, there's a small goby fish, right? They have this thing where they have a mating cue. Okay, this is a bit sexy, actually. So only the top male and female mate, right? And all the other females have to wait in a queue
+
+[00:50:40] before they're going to have sex. I think with the top male, maybe it's actually there's a queue, there's a sort of queue of males, I don't know. But basically, to organise the queue, they do it by a pecking order of, like, sexiness. And sexiness is body mass for them. So the biggest female is the sexiest one and gets to have sex first, right? And then the next biggest and so on. And they can measure, you know how in school you had to line up for fire drills and things with a height order?
+
+[00:51:05] Yeah. Yeah. Well, we did, yeah. Yeah. Yeah. Yeah. I was always left to burn, weirdly. but the fish can tell their body mass right so if the difference is
+
+[00:51:17] more than 5% of their body mass like between one female and the next they will queue neatly right and they because they know who's bigger they can see well because they've all got scales haven't they brilliant but if the difference is smaller than 5% between two females in the queue the smaller one will try and cue jump and we'll sort of say this is there's enough it's a small enough difference I think I could do it yeah and then the bigger one will drive it out of the group, we'll sort of force it out of the queue, they'll have a fight.
+
+[00:51:44] Well, if in during that fight they both lose weight this is what they... No. Okay, it's similar to that. Smaller fish will sometimes adjust their own size. They will lose weight to avoid presenting a challenge to the fish that's bigger than them. So they don't get in a fight and they don't queue jump. They say, right, I'll just shrink my own body. How do they do that? I guess they don't eat for a while?
+
+[00:52:04] Oh, in the lead-up to the queue. Not as in, okay. Yeah, not on the spot. They can't do like a special, like, like, shut off a field. Yeah. No. Famous queue, when McDonald's opened in Moscow. Oh yeah. In 1990, people queued for six hours to get a McDonald's. Wow.
+
+[00:52:21] They served 30,000 people on the first day. And one Big Mac cost 3.75 rubles. And a monthly wage was 150 rubles. So that is the equivalent today of a Big Mac costing 52 pounds 78 pence. Wow. Yeah. And people queued for $1.50. six hours to get that.
+
+[00:52:42] Jesus. Because if someone tells you it's that expensive, you think it must be worth it. Exactly. Yeah, there was 700 seats inside and 200 outside of this McDonald's in Pushkin's Sky Square. And so 900 people,
+
+[00:52:55] that's about the same as the Globe Theatre. It was the largest McDonald's in the world until McDonald's left Russia. Wow. But in a sense, isn't McDonald's, really, the, you know, the theatre sort of space for um
+
+[00:53:10] you'll get that you know it's like I've got no idea I'm going to I believe in him he can do this you know you've what do you see at McDonald's
+
+[00:53:19] late night you see drama yeah you know you go to a McDonald's all human life is there kind of like a like a theatre Macbeth is a
+
+[00:53:27] Macbeth so much there for you that was what you're going for I feel like I did a lot of work in the midfield there and I have to slotted at home the shirer of your jokes we did on QI once that the way we load planes, aeroplanes, is totally wrong.
+
+[00:53:46] So you know when you get, you're waiting for a plane and they say, if you're in rows 50 to 70, please come forward now and they load the back first, which seems to make sense. Well, actually, that's the least efficient way to do it. It's way more efficient just to say everyone randomly get on the plane. Go, go, go. Run, feel like to close the door and four minutes, go. You mean the easy jet system. Leave the kids go!
+
+[00:54:10] Well, the great thing is if you have kids, you get to the front of the queue. Yeah, although that is one of the best ways to do it is to make sure the slow loaders, i.e. people with kids, do get on first. That's why they do it, I guess. But yeah, someone studied it mathematically and realized that loading from the back is actually slower than doing it randomly because people bunch up and they block each other, but you're not loading the empty spaces. And actually, one really good way to do it is do window seats, then aisle seats, then middle seats. Oh, cool. That's mad. I mean, it is an insane way of doing it.
+
+[00:54:38] That's insane. You're with, let's say you're three people going on a plane, a family. Yeah. All right. Just dad first. Now the four-year-old on their own. Families inside. I do think that is a cool way of doing it because then everyone's slotted.
+
+[00:54:52] Everyone goes to the end of their row where the windows are and no one's faffing about in the corridor bit of the plane. They're not doing on purpose, Andy. They just need to get their bags into the... I'm not sure the window seat knocks that out because you still need to get your bag into the top bit. Well, I think the key thing to do is everyone just carries the bag with them and just holds it in their arms until the plane's taken off. Then you can put it up in the racks above. I don't think you're allowed to hold the bags in your arms, especially if you're on an emergency exit seat. Yeah, that's true.
+
+[00:55:17] You've got to put that under your feet, I'm afraid. Under the seat in front of you. Anyway. Oh, well, don't fly. I was reading a website called Line Logic, and they specialize in looking at public guidances and line management solutions. And so they go into businesses and try and sort out how they can best manage. manage their crowds and stuff. And they say that the word faffing directly relates to the idea of getting to the front of a queue and then waiting for that person who's just in front of you who's
+
+[00:55:46] paid to sort of gather their things together. The faffing that they do of sort of like putting their wallet back and so like that's the first instance of the word faffing. It's what this website says. What is this website? Who are these people? It's line logic. What are their credentials? I'm back. But they say that fapping time takes roughly 3.17 seconds. That's the average faff that you'll have. That's plausible. Yeah? Because, you know, you can pride yourself on being a non-faffer once you're at the front of a queue.
+
+[00:56:12] Yeah. Right now I've got my wallet. I'm ready, I'm ready to put the card away. I'm ready to grab the thing, go. You know. Yes. Or you can faff. Yeah.
+
+[00:56:19] Yeah. I wonder which you are, Andy. Yeah. I'm pride myself on my non-faffa. You really? Yeah. Oh, you guys are expecting that. I see.
+
+[00:56:28] Yeah. It felt like a weighted service. when you explain the difference between the two. Because they do say some people are absolutely awesome and they always know exactly how to leave a checkout. And you get these complete assholes. I panic I'm annoying the people behind me, basically. So I think time when you've finished your transaction feels, you know, longer to you.
+
+[00:56:49] I agree. I often rush off without my shopping. But I feel you're the type of personality that would want to make sure that was acknowledged. And then so you would somehow waste the person behind you's time going. Wait, why my... No worries getting out of your way there so quickly.
+
+[00:57:03] Oh, just, don't worry. Just another day being a hero. I reckon you just go, beep. Three seconds, 24. Very good. Enjoy that extra second I've saved you. Okay, that's it. That's all of our facts.
+
+[00:57:22] Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can all be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter M.
+
+[00:57:32] James. At James Hark. And Anna. You can email podcast. QI.com. Yep. Or go to a group account, which is at no such thing
+
+[00:57:39] or our website. No such thing as a fish.com. Check out all the previous episodes up there. Also check out Clubfish, the exciting hidden behind the scenes membership club where we put extra content, extra fun shows, and you'll also get ad-free episodes.
+
+[00:57:52] Check it out now and join today. Otherwise, come back next week. We're going to be back with another episode and we will see you then. A goodbye.

@@ -1,0 +1,223 @@
+# No Such Thing As A Fish - No Such Thing As A Fourteen Humped Camel
+
+- Episode date: October 8, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-fourteen-humped-camel
+- Slug: no-such-thing-as-a-fourteen-humped-camel
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish this week coming to you live from Tumberge Wells. This bit was actually meant to be coming to you live from Tumbridge Wells, but full disclosure, we forgot to press the record button. So we actually missed the start of my intro, but that doesn't matter. Let's just do it again, and we'll seamlessly edit into the room. So close your eyes, picture that you're sitting in the assembly hall in Tumbridge Wells, the lights of have gone down and the four dorks are about to come on stage. Here we go. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Tumbridge Well. My name is Dan Shriver and I'm sitting here with Anna Tyshinsky, Andrew Hunter Murray and James Harkin and once again we have gathered around the microphones with our four favorite facts
+
+[00:01:15] from the last seven days, and in a particular order, here we go. Starting with fact number one, and that is my fact. My fact this week is that the guy who invented space invaders really struggles to get past the first level of space invaders. Oh my God. This is true. This was invented by a guy called Tomahiro Nishikado, and he's an amazing inventor, but he's terrible at video games.
+
+[00:01:45] games. And so much so that when he invented it in 1978, he kind of tried to make it easier just so he could get to the end. And they all went, no, that's a terrible game. He does sound very cool. He invented the game, but he also designed the artwork. He did the sounds, and he built a customized computer to run the game on. So he did everything. Yeah. And when he first released this game, there was a little process where they showed it to people and so on. And it didn't get good feedback. They thought, no, this is not that great. And then the game was released, and it just exploded. It was really massive in Japan.
+
+[00:02:22] All these stories started coming out, so there was a story that, in Japan, soon after the release, a 12-year-old boy held up a bank with a shotgun, and he didn't want any notes. He just wanted coins. He needed more coins for the arcade. Did that not happen? Did that happen? I think that possibly did happen, but there was a whole raft of stories where they were talking about the fact that there was a hundred, the hundred yen coin, there was a shortage of them.
+
+[00:02:44] in Japan because just too many coins were being used. And I think that was a rumor. I think it might be true that in some small areas, they did run out for a short amount of time, but then over the years that has gone into, they completely ran out of 100 yen coins in Japan. It broke the economy, didn't it? It's what caused the downturn of the Japanese economy in the 90s.
+
+[00:03:04] The first ever world championship in any video game that was a really big one was Space Invaders. It was in 1980. There were more than 10,000, participants and the winner was a 16-year-old called Rebecca Heineman. And Rebecca Heimann's really, really interesting. So she had quite a difficult childhood because she would later find out that she was transsexual. And she had to live in a dumpster for a little while.
+
+[00:03:29] She like got kicked out of home. But she kind of put all of her energy into video games. And she didn't realize how good she was because she didn't really kind of have the self-worth. This is what she says. So she started playing in the regional heats. and she got bored really, really quickly playing against this guy. And she said, I got bored so quickly, I started talking to him and saying, how's the weather?
+
+[00:03:50] What's it like here? This is while she's playing, okay? And slowly people are getting knocked out, knocked out, knocked out, knocked out. She's still just chatting away. In the end, she got to the very, very end of the game, and they said, what's your score? They said 88,000 points. And she says, is that good?
+
+[00:04:07] And it was so good that it was double the amount of points that the runner-up in the competition got. And the tournament refused to post her score because they thought it would intimidate other players. Wow. Isn't that amazing? Did she go on to become a game designer? A programmer, yeah.
+
+[00:04:26] That is actually, I'd say that's more scary if the score is redacted. If I was playing tennis against someone and I said, oh, how did you do in your last match? And he said, you don't want to know. I'd be more actively more frightened. I'd assume it just spilled out a rude word, like boob or something.
+
+[00:04:42] Maybe it was 8,08. It was 8,08. Yeah. I think it meant Andy's tennis. Just shit. What? I'm not a tennis score. This is a distraction.
+
+[00:04:52] The other day, Dan told me a funny thing about when he plays tennis, which is that he imagines that he's on center court, right? He imagines he's on the center court, and he's got this great crowd cheering him on. And that's how he sikes himself up for the game, okay? Yeah, Dennis. Yeah, yeah, really exciting. Okay, the next time I played tennis, I tried this out, okay? I thought, right, I was in centre court at Wimbledon, and I lost the crowd.
+
+[00:05:15] I genuinely, within five seconds, lost the crowd, and they were hostile because I'd hit a ball the wrong way, or I don't know, hit a ball boy or something, and they were on the other guy's side. You played tennis against Andy as well, haven't you, Anna? And I think you won redacted love, redacted love. Anna actually did win very, yeah. I like the way you say Anna actually did win in case people were thinking James was joking there. Space Invaders was made by a company. called Taito in Japan. And the company Taito was founded by a Ukrainian Jewish businessman in 1944.
+
+[00:05:48] He was called Michael Kogan. And they originally sold wigs and hog bristles. Okay. Then that company almost went out of business. So they decided to become the first company to sell vodka. Sorry, can I ask, were they selling wigs and then wigs for pigs? Is that what that was? Pig wigs.
+
+[00:06:07] Why was their hog bristles? I suppose if you're... making wigs, hog bristles is kind of, maybe they use the same machine. It's like for people to make their own, either you can buy a wig or you can make your own wig out of these hog bristles. They also made floor coverings. So maybe the same stuff that they're making carpets with, they also make wigs and pig wigs. A doormat made of hog bristles sounds like an extremely luxurious one. Yeah. But one made of two pays sounds a bit weird. Oh god, yeah. Anyway, then they became the first company to make vodka in Japan. And that did okay,
+
+[00:06:39] but not that well. Then they went into peanut vending machines, then into perfume machines, and then into video games. Wow. Very cool. Finally landed on it. Didn't, sorry, didn't Nintendo started off with... Love hotels. Yeah, they did. Which are hotels in Japan that you rent by, you know, by the... Is it once that you play tennis in? Very nice. Very nice.
+
+[00:07:04] You know, you rent them for a quarter of an hour or... About three minutes. It's a three minutes. You know, Kanye West, the first ever music that he created, the first ever beats was for a video game that he created as well when he was 12 years old. Oh, yeah. Yeah.
+
+[00:07:21] So he said the first beat I did was in seventh grade on my computer. I got into doing beats for the video game I used to try and make. The main character was a giant penis. So it's based on himself. It was like Mario Brothers, but the ghosts were like vaginas. You have to draw. in and program every little step. It literally took me all night to do a step
+
+[00:07:43] because the penis, you know, had little feet and eyes. That's the first ever music he created for a video game based on the walking penis with eyes that was eating vaginas. How did he know how to draw a vagina? I don't believe he knew what a vagina looked like, 12-year-old can you west. And his penis has feet and eyes.
+
+[00:08:02] Christ knows what the vagina was. We're going to have to move on in a sec to our next fact. James, you're learning Russian. Have you heard of the game Repka Siloma? My kind of learning Russian doesn't really go into playing video games. Okay, well, it's a Soviet-era arcade game where the aim of the game is to pull a mechanical turnip to demonstrate your strength.
+
+[00:08:24] I know the story it's based on... It's based on a story? Yeah, there's like a famous story in Russian literature, and I think it did come over to Europe a bit where there's a big turnip in the ground, and everyone's trying to pull it, and there's like a big pile of farmer, and the farmer's wife and the farmer's kids
+
+[00:08:41] and then the dog pulls and the cat pulls and in the end it's just like a little mouse pulls and that pulls up the turnip and that's communism. Wow. Oh! I've just understood this game and communism at the same time.
+
+[00:08:56] That's great. It is time for fact number two and that is Andy. My fact is that during the Cold War there was a Soviet spy in London who contacted his handlers by throwing a copy of men Men Only magazine over a garden hedge.
+
+[00:09:18] This is from an article about the National Archives who sporadically released spy papers when enough time has passed. And this was a batch of papers released in 2015. It was about the Cold War. And Klaus Fuchs was a German physicist who then came to work in the UK. But he was a spy as well for the Soviet Union. And his way of meeting his handlers or saying he needed to have a meeting with them was to buy a copy of men only magazine.
+
+[00:09:44] right on page 10 we need to meet, walk along a street in Q in southwest London, and then just chuck Man Only magazine over the garden hedge, and then they would pick that up and discover it. But there must presumably have been some people who saw a man throwing a magazine over a hedge for no reason and didn't know what was going on. I think he was lucky that Men Only magazine in those days wasn't the sexy Man Only magazine that it became. Wasn't it?
+
+[00:10:09] No, in the early days, this was in the 1930s. It advertised, the first article advertised it as We don't want women readers We won't have women readers So that's one thing I think it retained that founding principle It did, it did, it did But it didn't have naked living women
+
+[00:10:27] And it had the occasional part Dead women actually didn't know It was actually much sicker Women who had been dead for hundreds of years As in painted by famous painters So they did have a few of those But they didn't have pin-ups as we'd know them today and in the second issue they had some letters from readers
+
+[00:10:44] someone said it looks like a guidebook to the British Museum and the other one said I find you too respectable for words I don't know this magazine is it A is it still going and B is it kind of like Playboy is that what it became as I know it's not still going it was kind of became big in the 70s when it was bought over by a guy called Paul Raymond who ran nightclubs in Soho
+
+[00:11:10] and then he turned it into much more of a sexy magazine. It did become kind of a little bit sexy before that, but that's when it became proper top shelf stuff. Okay, right. Before that, it had kind of, it had sort of like Jessica Rabbit-type pictures in it, didn't it? Quite sexy cartoons of women. This is an example.
+
+[00:11:27] On the front page, it had the names of the people who were writing in this edition. One of them was Charles Darwin's grandson, who was a golf writer. Four! Another one was Sir Alan Patrick Herbert, who was an independent member of Parliament for Oxford University. The old independent member of parliament system, which was very interesting, because you had MPs for a city,
+
+[00:11:53] but then also for the university, right? No, doesn't even make it into that shit boring version of Menoni magazine, and you're sorry. They also had a, one of the articles was building better brains, so it was ways to improve your memory, which is a thing called Pelmanism, and the way that you would kind of make your memory. better is do you remember that game where you put like cards turn them all over and you turn two over and you have to match them up and if they don't match you turn them back of both it was telling yeah it was telling people how to play that game basically the game for five-year-olds is that building a better brain if you're four years old um fuchs practically single-handedly showed the ussr
+
+[00:12:30] i how to build an atomic bomb didn't he he was such a successful spy and when he was finally caught he only served nine years. He served nine years in prison and then he was sent back to East Germany where he was married to a communist official. I didn't realize they did arrange marriages, but it seems like they did. And he then gave atom bomb making lessons to the Chinese.
+
+[00:12:52] So to be fair, he wanted global nuclear equality was his defense in court. And I think he might have been his principal. He thought that we were safer if we all had it. Right. The whole mutually assured bullshit thing. The thing I love about this fact is it sort of shows the sort of real lo-fi spying abilities.
+
+[00:13:10] Yeah, we always think of the James Bond, this pen can do this and all that stuff. But actually, there was just so much stuff where it was a bit crap. Have we ever on the podcast mentioned the Jack in the Box? No. No, I think so. Oh, my goodness. I love this.
+
+[00:13:21] This was just such a simple lo-fi thing. This was, imagine you're a spy. There's two spies in a car, and you're driving along, and you're being tailed, and you think, I need to get out of here because they're going to get me. So the Jack in the Box was a little suitcase that sat there in the car,
+
+[00:13:35] And the idea was when you took a sharp corner, you'd open up the suitcase and a new inflatable spy would pop up and you can open the door and just throw yourself out, slam the door, and they'll just be going, well, he's still in the car, and you just roll away to safety. That was a real thing. Does he still drive it, the inflatable you? I think you need to be in the passenger seat, so I think you're throwing the... They did use that a few times, didn't they? Yeah, yeah. And I was watching an interview with a woman called John O'Mendez, who was... the CIA's chief of disguise in the 1980s. What a cool job. And she revealed so many things like the jack in the box
+
+[00:14:13] and things like lying dogo. I don't know if you guys know about this. This was a fake dog that they made for agents in Moscow. And the reason they did it was they sent a couple to Moscow, a couple of spies. And they sent with them a huge dog, some sort of breed of dog. And they got this couple to drive in and out of the embassy, just doing routine stuff in and out of the embassy. And they sent with with a dog in the back of the car, and the dog would be sitting up or lying down or wagging its tail. So the security there would see this dog every day. They also sent with them a fake dog, which was hollow on the inside. They got a wig maker to make them a fake dog that looked exactly the same as their other dog.
+
+[00:14:51] So when this couple of spies needed to smuggle somebody into the embassy, they would curl up inside this fake dog. No. And it would go through security. It's a Trojan dog. That's amazing. Security would just go, oh, roeful. was asleep today looking cute
+
+[00:15:07] how big is this dog because most I think it was like a big duelux dog wasn't it it was super fluffy so wow what would you do if someone came over and started like tickling your chin you'd have to go and they love you and adopt you and you just have to live out the rest
+
+[00:15:24] of your life do you want to know another lo-fi spying method this is a CIA thing the CIA have a facility in Virginia which teaches you all the you know complicated it's spying stuff like how to crash a car, how to parachute,
+
+[00:15:39] how to use a speedboat, and how to commit suicide. Apparently that's just one of the skills they teach you. I guess if you're caught and you know, you can't give away secrets, but they also teach you how to go to Starbucks and this is one of the other methods they have for spying. So one professor, one spy
+
+[00:15:55] would give all of his people he was running a Starbucks gift card that was not just a present because he would say if you need to see me, just buy a coffee and then every morning he just checks in with all of his Starbucks gift cards he's given out and if one of them has any money removed on it he knows that that agent in particular is trying to contact him okay that's quite clever and he can just arrange a meeting and then the next you know
+
+[00:16:17] they meet up the next 3 p.m at the statue or wherever it is they've previously agreed yes how cool is that yeah it is cool those hacks those hacks are amazing there was a hack that was used by a big problem when people were trying to track down all countries trying to track down Osama bin Laden was they were trying to find them via the internet and al-Qaeda were very good at not using the internet so one of the things was how do you get an email to someone without sending an email and going through all the traffic can you think of how you do that thanks no didn't um brian blessed have his printed off or something and he would read his emails that way no he the way he used to tweet because he set up a Twitter account was that he would have tweets sent to him his uh a friend of his would then print out the tweets
+
+[00:17:03] and would call up his agent who would then write them down and fax them to Brian Brian then read them from his fax call his agent his agent would write them down send them back to this guy and then they would be tweeted it was about a four-day process but what's amazing is that was quicker than using WhatsApp yesterday
+
+[00:17:22] but we're not saying Brian Blessers got anything to do with Al Qaeda well maybe we are I don't know but he's got the beard for it here's the thing Sorry. You couldn't hide Brian Blessed anywhere. It's ridiculous. You need a big dog for that, then you?
+
+[00:17:43] So just with the email thing, what they would do is there would be an account, and what they would do is they would go in and they would write an email, and then they would save it as a draft, and then someone else would go in. They would open up the same account because they all had the details,
+
+[00:17:55] and they would find the draft. Brilliant. It goes across any information highway. The Secret Intelligence Service, were the forerunner, I think, to MI5 and MI6. They were just after the First World War, during and after. The SIS. The SIS. SIS, SIS, yeah, Secret Intelligence Service.
+
+[00:18:10] They had an office in London, which was disguised as a company called the Minimax Fire Extinguisher Company, which was their cover story. We just make fire extinguishers. Weirdly, that is still a fire extinguishing company today, so I don't know whether they are... Have they keeping their cover up? Is that what you're saying? I'm not sure what I'm saying. If you need to buy a fire extinguisher, you can get one from the same.
+
+[00:18:31] there. But anyway, everyone knew about it. London taxi drivers all knew. Take me to the spy building, meant take me to 54 Broadway, which is where the office was. Even German intelligence knew all about it, and they positioned an agent there disguised as a blind match seller who would just stand outside the building openly watching what was going on. A blind match? Did he ever strike a match and someone rushed out of the building and extinguished it, just to prove they're doing their job? I don't know. We've got to move on to our next fact very, very shortly. Just one other lo-fi thing that the Americans used to do during the Cold War
+
+[00:19:08] is dip dead rats into Tabasco sauce and then leave them lying around. So they... First of all, they'd find a dead rat, and then they'd have a taxidermist hollow it out and stuff all the stuff inside it that you want to pass to your agent in, let's say, Moscow. So he's asked for a toothbrush, a bunch of roubles, whatever. You put it inside the dead rat, and then you leave it on the street, and this is because they did a bunch of research.
+
+[00:19:31] that showed them that the one thing no one will pick up and dispose of is a dead rat. So no humans will touch a dead rat. Problem is, animals touch dead rats. So to deter animals from picking it up, they just dipped it in a hefty vat of Tabasco before dropping it on the street. Imagine if you're pretending to be a big dog and you see that rat on the floor and you're like, shit, in character, I'm going to have to go for that. Okay, it is time for fact number three.
+
+[00:20:04] and that is Anna. My fact this week is that in 1930s Yemen, it was forbidden to walk backwards or to give a horse a human name. Wow. Yeah, I thought for a live show, a bit of a light one, I'd do a fact about Yemen, so...
+
+[00:20:21] I've got a question right off the blocks, Anna. It was illegal to give a horse a man's name. A person's name. Yeah, yeah, yeah. But that's... There's some grey area there, surely. Yeah, I don't know if there was like a catalogue with the big book of...
+
+[00:20:35] What are you may be names? Well, some names are clearly horses' names like Dobbin and some names are clearly human names like Tony. Yeah. So what I think it is you can't call your horse Tony, right? You can't call your horse Tony, but I'm presuming there's a grey area of names
+
+[00:20:47] which could apply equally to a human... Like Mr. Ed, who... Thank you. I was struggling and struggling. It's just, you know, spooling it out, trying to think, what are these names? Mr. Red is a perfect name. I've started to think Mr. Ed might have been a spy
+
+[00:20:58] inside a horse. I've got some good news for you, Andy. in 1930s Yemen, it was illegal to play tennis. Oh, get me there. Yeah, look, a lot of stuff was forbidden in Yemen in the 1930s. It was a strange place. It was a very insular place. It didn't really open up to the world until the 1960s.
+
+[00:21:20] And the imams kept a completely cut off from the world. And there were a few travel writers who went there in the 30s. One of them was a guy called Norman Lewis, who then wrote a report of what he found. He found you weren't allowed to point at the moon. It was very dangerous because superstition. You weren't allowed to contemplate women. I don't know if that meant with your eyes
+
+[00:21:41] or if you even just thought about women. I imagine that's what Kanye West was doing when he was 12 years old. Contemplate, wow. Yeah, singing, whistling. You're allowed to wear a watch, but only if it wasn't working. Really? Yeah, you could wear it as decoration, but you couldn't use it to tell the time.
+
+[00:21:59] Wow. How interesting. This is all thanks to Imam Yaya, who was the Imam at the Imam at the time. And especially band music and singing. Really frowned on that. Right. So all music and singing,
+
+[00:22:11] apart from religious chants, were banned. You could accompany the religious chants with a tambourine, but I don't think you could play a tambourine unless you were doing a religious chant at the same time. And singers had to perform in locked rooms
+
+[00:22:23] with the windows stuffed with cushions. Wow. Because, you know, it was illegal, so this was the only way you could perform. And this Imam, basically, it was just after the First World War, wasn't it? he'd taken over and he was just trying to stop modernity from coming into the country and he did so by micromanaging everything which meant that basically anything that happened
+
+[00:22:42] he had to know about it and he had to have his say so yeah Norman Lewis the guy Anna mentions thinks that he was probably the third or fourth English person ever to go to north Yemen so Britain had a colonial territory called Aden that was the city which was owned I think until about 1960 something from 1839. Britain owned that, but you weren't allowed to go to North Yemen, and this was the way you got permission to go, kind of like getting Brian Blessed to reply to your tweet, basically. You had to write to the envoy in Aden, and the application was then carried by sea in a traditional Tao boat. It was taken to the port of Hodeida, then it was taken by horseback to Senar, which was the capital in the north. It took up to two months to get a reply.
+
+[00:23:32] from the imam saying whether you could go to north yemen or not it was usually just hashtag no wasn't it was so norman lewis went and he thought he had his permissions he thought he had the papers all in order he got there and it turned out they were expecting someone else and he and his his colleagues were just sent away yeah i think he thinks they were expecting they thought he was someone who they'd also booked to come and deliver quite a lot of weapons yeah and they were very disappointed when he was just some travel writer so they retracted the permission he was just very quickly on Norman Lewis. Amazing travel writer, but also I'm surprised he got turned away
+
+[00:24:06] because he's one of those people where I think he could slip into any country and just be a part of it and not really cause a fuss. He famously claimed that he was the only person he knew who could walk into a room full of people and leave it sometime afterwards without anyone ever realizing he was actually there to begin with. That's easy to say now, isn't it? It's easy to say, oh, I was there yesterday. Oh, you didn't see me. That's because I'm so good at not being seen. I have done that multiple times. Normally at parties. I've gone, I've left, I've left no trace on anyone's mind.
+
+[00:24:38] Fair enough. Yeah, you're the normal Lewis of your day. Thank you. He had some other jobs before he became an explorer writer. One of his jobs, apparently, was as a wholesaler of umbrellas he bought up from lost property offices. Oh, really? Great idea. Resourceful.
+
+[00:24:53] And he tripled his money on them. He made an incredible profit. He was supposed to be a medium. His parents wanted him to be a medium. And he was a large. Well, his father was a medium, right? Claimed to be a medium. Yeah.
+
+[00:25:10] Because when he was married to someone called Ernestina Kovaya, who was a daughter of a mafia lawyer. But when her parents came to visit his parents for the first ever time, it was all going very, very fine. Sunday lunch was happening, and his father slipped into a trance and began to communicate with the spirit of her dead sister. Yay.
+
+[00:25:32] It's a very awkward dinner with the in-laws, isn't it? That's, wow. With, I mean, was it with their permission or with their encouragement? Or was it just? It was just like literally, pass the spuds, please. No, wait a minute. Gosh. I'm getting a bee.
+
+[00:25:46] A B, Brenda. Is it Brenda? I'm like, that's not really a mafia name, is it? Wow, that is, yeah, that's pretty intense for our first meeting. One more thing on Lewis. He went to Havana. He was sent to Havana. by Ian Fleming, pretty cool in 1959.
+
+[00:26:05] And he was meeting up with a guy called Ed Scott, who was one of the models for James Bond. Okay, so that's already a very exciting James Bondi espionage meeting that's happening between Norman Lewis and Ed Scott in Havana. Not only that, the meeting was observed by Graham Green, who then used that meeting scene in his novel, Our Man in Havana. Really? Wow.
+
+[00:26:24] That's one of the most intensely literary espionage meetings that's ever happened, I reckon. God. There were fewer people back then, weren't there? There were only about 10 people in the world. I think on that trip he also met Ernest Hemingway, right? Oh, really? Yeah, because a lot of people said that Lewis was like, you know, he should have been more well known
+
+[00:26:45] because he was such a great writer. But whenever they said it to him, he was like, well, I met Hemingway when I was in Cuba, and he looked exceedingly sad. And I thought, how lucky I am to have got as far as I have, but no further. He was like, thank God I'm not famous, because Hemingway looks so sad.
+
+[00:27:00] Wow. Anyway, who's for a game of humps or eggs? Humps or eggs? Humps or eggs? Okay. I went to look at the world records that are owned by people from Yemen. Oh. And one is the most eggs balanced on top of each other,
+
+[00:27:18] and one is the most humps ever on a camel, which is higher. Ooh. Is it fried eggs? Scrabbled eggs? Eggs and shells. Just eggs and shells, unboiled on top of each other, not allowed to do any tricks. They've just got a lot of.
+
+[00:27:31] balance through gravity. Or humps on a camel. Or humps on a can't. Okay, anyone for humps? This isn't going as well as I thought it might do. Anyone for eggs? Now, I feel like I primed them for that one. I'm going to go for humps
+
+[00:27:46] because I feel like you can just you can grow random humps, right? Whereas defying gravity is hard. See, could you possibly imagine balancing three eggs on each other? I can, but I can also picture a camel with four. 14 hunts. What are you going to do with all them humps?
+
+[00:28:08] That's more impressive in a way to me that Dan can imagine that, because I'm tapping out a camel with four humps. Okay, but that's still more than three. You thought the maximum eggs was three, though, right? Yeah, I think maximum is going to be eggs, but I think it is going to be three. And you think maximum humps is four, but you still think eggs is going to win. No, no, sorry.
+
+[00:28:26] I think the maximum I can imagine is four, but I know that that's an insane thing to imagine a camel with four Humps and I think the most any camel's ever had is two. Anna? Anna's got her head in her hands for the listener at home. I don't... I don't care. I think it's not... I think... And we have a winner, Alice Shinsky. Andy, you were basically right. The maximum eggs is three. The maximum Humps is four, but then you somehow went for the opposite answer. Wow. Either way, I don't think it's going to revolutionize Saturday Night TV, James. The maximum humps is four.
+
+[00:29:02] Where were the extra humps? They were on the camel. Okay. You know, underside. Coming under the arms? They were on the top. This was a guy called Dr. Bernhard Ghrzemeck. He was a German zoologist, but he was in Yemen,
+
+[00:29:18] and he noticed, or a farmer told him, that his camel had grown four humps. It sounds like a start of a joke, doesn't it? And it was sold for $10,000. Wow. Oh. And how did the eggs, how does that work? Do you bounce the bum on the head or side on side?
+
+[00:29:38] It's one on top of the other and they're in the basic egg way you would think, which is the fat bit at the bottom, then thin, fat, thin, fat, thin. Wow, that's impressive. So who was the genius who thought, I'm going to set up a competition where I'm going. The competition of Humps versus X, that was me. That was my idea. Is that what you're saying? Who did you?
+
+[00:29:55] Yes, I used the word genius. Yes, I did. Not lightly. Well, we need to move on to our next bag. Can I quickly then give you, the Queen of Sheba is from Yemen, possibly, we think, maybe. She's in the Bible and in Quran and in a few different holy books. And she's like this legendary person who met with Solomon and asked him lots of riddles. So can I give you one of the Queen of Sheba's riddles? If it's humps or eggs again, James.
+
+[00:30:21] Go on. What are the seven that issue and nine that enter, the two that offer drink and the one that drinks? God, is it some kind of complicated of entering a club rule bounces? I'm throwing a party. Well, this is already unlikely, I invite seven people, nine people say they're going to turn up,
+
+[00:30:44] two people turn up, only other drinks. It is, the answer is, the seven the issue are the seven days of menstrual impurity. The nine that enter are the nine months of pregnancy, the two that offer drink are the breasts and the one the drinks is the child.
+
+[00:31:03] That's the... I can't believe you didn't get it, guys. Fucking weird party at throwing, Andy. Why are you not programming BBC television change? I don't understand. There's time for our final fact, and that is James. Okay, my fact this week is that on the official tourist website of the Montblanc area of France,
+
+[00:31:31] you can buy an excursion into... Pussy Canyon for 69 euros. So... This feels like a fact presented by Canyar West age 12. So I was organised the trip to France and I did my usual loads of research and I was like in... I don't know what brought my mind to...
+
+[00:31:53] I saw Pussy Canyon thought I might want to go there and I looked it up and it turns out that you know it's a funny sounding place with a funny sounding number of euros and I'm not trying to... say any more about the world than that. Just out of curiosity, are they, is that deliberate or is it? No, no, no. It's not? No, no, no.
+
+[00:32:10] Because a lot of places do that, right? They'll just do some sort of like tourist trap. That's a genuine thing. I think so, because you could also buy a more expensive one for like 74 euros. I mean, who's going to do that if it's 69? By the way, James, thank you for the hardest to Google decently fact of the entire show.
+
+[00:32:27] Very, very difficult. So, yeah, it's a town. There's a town called Pussy and their town has a canyon. in it, Pussy Canyon. It's named after a Roman person, we think, called Pusius. Who lived inside a cat when he was spying. And not really much has happened there over the years. The Nazis entered Pussy in 1944 and burned the village down.
+
+[00:32:54] I'm sorry, the Nazis just got a big laugh at our show. I don't know if that's what got the laugh. And that's really pretty much the only interesting thing. that I can ever find that, haven't there? Did this persuade you to enter it? No, Anna, I'm not a child. I see. It was too expensive, wasn't it?
+
+[00:33:13] Too cheap to fork out of the 69. Because you can't do quite fun stuff there, it looks like. It's a canioning destination. So you can do like slides down rocks and abseiling and waterfalls and cliff jump. So it's worth going into Pussy Canyon, it looks like. Okay. But yeah. It's mentioned in the Bocov as well,
+
+[00:33:30] the Bokhov in one of his books called Transparent Things. he writes, there's many a mile between condom in Gascoigne and Pussy in Savoy. Wise words. Dirty old man. Wow. So I got into reading about the Alps and about Mont Blanc. Oh, yeah. Because this is all in the Montblanc area of France.
+
+[00:33:49] Montblanc is a very interesting place. Though it's so interesting that in England, in 1852, there was a show on in London called the Ascent of Montblanc by a guy called Albert Smith, which was just a guy who'd climbed up Mont Blanc. That was it, but the show ran for six years on Piccadilly. Wow. Yeah. And it sounds insane. It sounds so good. There were songs making fun of tourists. There were some Bernard dogs let loose in the aisles of the auditorium in the interval. So he provided... Were they dogs, Andy? Or were they... CIA agents, it's impossible. I'm now doubting every dog I've ever seen. Yeah. And he did 2,000 performances of this show just about going up Mont Blanc. Isn't that cool? Yeah. Wow. Was this
+
+[00:34:32] back when James was in charge of programming the theatres. There's lots of reasons that people have climbed Mont Blanc in the past. This is from a book called Killing Dragons, The Conquest of the Alps by Fergus Fleming. In 1818, there was a Russian count called Mazepsky, and he decided to climb to the top of Montblanc to improve his poetry skills. Oh.
+
+[00:34:55] There's a guy called John Oljo, who climbed to the top so he could see a better reflection of the mountain in a lake. There was a guy called Conte Henri de Tee who wanted to cheer himself up after a failed affair so he decided just to go to the top of Mont Blanc and there was someone called Edward Boutel Wilbraham who went because someone had told him not to I'm just on something on the word pussy
+
+[00:35:24] pussy oh yeah so octopussy not octopussy pussy glor so pussy glor played by Honour blackman in the movie Goldfinger, I think. So the name Pussy Glor apparently comes from the fact that Ian Fleming, who wrote James Bond books, had an octopus called Pussy. And it was a pet octopus that he had.
+
+[00:35:46] Really? Yeah, yeah, yeah. And so this was when he, I think he lived in the Caribbean, right? Yeah. So he lived by the sea, and there was this octopus that used to come up every day, and they used to give him bits of food and stuff, and then it would hide away, and then it would come out, and they would kind of pet it.
+
+[00:35:59] They called it pussy, obviously, because of octopus. And then, unfortunately, one day, the housemaid mashed it up, cunted in olive oil, and etted out of a coconut. Wow. And Fleming wrote it in a paper called My Friend the Octopus, and he says, that's the worst of pets. Something always happens to them. Wow.
+
+[00:36:20] That is an understanding boss. I don't want to sound like I'm on the wrong side of history, but the maids fucked up there. Fucking the pet, yeah. And Honour Blackman, she, became an actor because of an amazing teacher she had called Irene Cochin.
+
+[00:36:36] And it was Irene Cochin who introduced her to poetry and plays and then convinced her father who wasn't kind of, her father was, I think, from London or something and he thought that she didn't, that the family didn't have enough elocution and wouldn't be able to get into theatre and stuff. But it was
+
+[00:36:51] this teacher Irene Cochin who talked her into going for it. Did they ever do a double act of any kind? What, pussy and cocking? Pussy and Cochon, yeah. Why would you put it that way around, guys? Oh, yeah. Because we don't know about branding. That's so good.
+
+[00:37:12] I find there's so many interestingly rude-named places in France, which I didn't realize. I said Pussy Canyon. There's a place called Anus. Do you think that's how they pronounce it? Oh, how would they pronounce it? Anu. Come on. Anu.
+
+[00:37:29] But to be fair, they know it's rude, because it's in their society of rude names. right? Well, that's the thing. It is in their society, but also it happens to be located, the anus, in a town, Yon, but it's called, so it's Yon Burgundy, which sounds very suspiciously close to Ron Burgundy. That just, yeah, made me smile. Only France surely would notice that it had enough rude place names that they have actually formed an association of rude place names in France, the Association de Comune de France on Norm Berlesque. And it's got about 40 towns in it.
+
+[00:38:06] And all these mayors meet up every year in a different one in Arnac La Post, which means postal fraud, or Bousier, which means to cock up. Montetetan, which means my nipple. And the hoarsey, hoarsey village of Mariol rejected membership. So it was asked to be a member, and then got a new mayor who said, actually, we want to be taken seriously now,
+
+[00:38:28] so we're not going to get involved in this. They were supposed to host it, turned it down. and Machiaole means smartass in French night. That is it. That is all of our facts. If you would like to get in contact with any of us about the things that we have said over the course of this podcast,
+
+[00:38:50] we could be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter, M. James. At James Harkin. And Anna. You can email podcast at QI.com. Yep. Or you can go to our group account,
+
+[00:39:00] which is at no such thing. Or you can go to our website, no such thing as a fish.com. all of our previous episodes are on there. Go check them out. And also the tour dates for the rest of this tour. So do check those out. This was one of the dates.
+
+[00:39:14] It was Tumberge Wells. And thank you, Tumbridge Wells, so much for having us here in your city. Our first of the tour. We really appreciate it. We will be back again next week with another episode. We'll see you then. Goodbye.

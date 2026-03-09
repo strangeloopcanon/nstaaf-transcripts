@@ -1,0 +1,187 @@
+# No Such Thing As A Fish - Little Fish: A Biscuit, A Railway Station, And A Mutt
+
+- Episode date: December 28, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/little-fish-a-biscuit-a-railway-station-and-a-mutt
+- Slug: little-fish-a-biscuit-a-railway-station-and-a-mutt
+
+## Transcript
+
+[00:00:00] The O&OG is Orange, and the Marathon, the Orchicle, and the original are back at Booster Juice. It's the juiciest comeback of the year, but only for a limited time. Go Orange at Booster Juice, Canadian-born, blending since 1999. My place in tech changes every day, but I don't fear the future, because I'm with the leader, plural site. Their online learning platform has the hands-on expert-led courses I need to master new tech. skills and create bigger impact so I can learn quickly and stay ahead. With Pluralsight, I don't fear what's next. I embrace it. Tap in at Pluralsight.com and see for yourself. Hi everyone. Welcome to this week's episode of Little Fish. We've been so happy to get messages
+
+[00:00:51] from you guys to say that you've been enjoying this show and we certainly enjoy making it. It's a little bit more loose, a little bit more silly than the normal shows, but we really really love getting your facts so please do keep sending those in the reason i've disturbed the start of your show today is because i want to tell you about a quiz that we're doing it is for patreon subscribers on the top tier and it will take place on the 23rd of january at 7 p.m. UK time so that'll be sometime in the afternoon if you're in north america and it'll be very early in the morning if you're in australia or new zealand but hopefully you will still be able to join us it's going be a whole load of fun we've got loads of amazing stuff planned for you and if you are not a member
+
+[00:01:34] of patreon right now then you have to go to patreon.com slash no such thing as a fish and join our top tier you could probably just do it for a month and then quit if you just want to do the quiz but honestly there's so much good stuff on our patreon that i really think once you join you will be hucked because we have extra content we have merch we have video content with all sorts of stuff on there We hope we've made it value for money because people going on there help to support the podcast, so it is a real good mutual benefit thing. Anyway, enough of that. Really hope you enjoy this episode of Little Fish.
+
+[00:02:24] Hey everyone, welcome to another episode of Welcome to another episode of Little Fish. This is our bonus Monday episode where we put down our facts and we go through the inbox and we find your best facts from the last seven days. And if you want to send in yours, by the way, and be part of this show, podcast at QI.com is the place to do it. But we have had so many entries this week. So let's get straight to it. Point of order. Yeah. At what stage does this stop being a bonus episode and just become part of our normal day-to-day cotidian mundane lives? How many weeks are we in now? Ten? This will be about our 8th or 9th or 10th, yep. So when does a relationship stop being new, you know? Oh, well,
+
+[00:03:02] with my relationship in case my wife's listening, I wake up every morning and think how much I'm in love with her. Yeah, still butterflies every day. Same thing for me. I wake up, I think Polina, I really just would do anything to be with you. I'm stuck in my situation. I can't see it out yet. Andy? Me three. I knew you the listener. I'm right in a few love James as well. Come on. No, no, no, no. I think this is our, now, we're settling into a very happy life as this being the other episode, the other weekly episode we do.
+
+[00:03:37] Yeah? Can we do it? Let's do it. Let's do it. Let's get into it. Who's got a fact? Who wants to open it up? Well, I've got one from Peter Drake, who has sent us a raunchy math fact.
+
+[00:03:47] Oh, great. Yes. And Peter says properties of mathematical graphs include girth and weiner index. A weena index. Wiener Index. That's funny. And separately, Jess Weyer has written to us and said, my fact this week is that there is a mathematical function called the Popcorn Function.
+
+[00:04:07] Other names include the raindrop function, the countable cloud function, and the stars over Babylon. So these are just some mathematicians making fun names for things. Did you have this when you, because you studied math, James? Yeah, I was aware of, well, I know about the girth of graph theory. These are not graphs like you would see a graph on a news article or something. This is a mathematical graph where you get lots of points and you draw lines in between them and it's the connections between different things. Is it graphic if you're measuring your girth on the wiener?
+
+[00:04:40] No, no, no. They're extremely boring. The girth is the shortest way you can go between two objects where only the first and the last ones are the same. Yeah, it does sound tricky. It's quite boring. and these popcorn functions and the stars over Babylon's are basically it's like the kind of maths where it's like if this then that you know like how computers work but it's basically you put in some number
+
+[00:05:04] and it goes through this function and it comes out it's either a zero or a one and it kind of is like random if it's zero or one so it pops around like popcorn oh nice but yeah I do remember some fun names from when I did maths at university the Tits group invented by French mathematician Jacques Titz and if you want to
+
+[00:05:27] work out the Tits group then you first have to find the Cox Eater Complex named after Harold Coxeter Wow his school days I just think Good Lord
+
+[00:05:40] Paul got no wonder he became a mathematician Why Just you'd spend more time with your books Wouldn't you working Would you? Yeah for vengeance all those guys outside in the playground. Well, I would. I would. I mean, just randomly, random, you know.
+
+[00:05:54] His maths is so oblique that it could never be used in real life. It's not like he worked out the trajectory of a missile that he could fire at his enemies. His is like some extremely random bit of group theory. That's brilliant. He's fled, he's fled his own name into the realms of pure mathematics. Yeah. Nice. Love it.
+
+[00:06:13] Love it. Any more facts? Yeah. Well, do you know what? I have something in a similar vein. So why don't we jump to the one that I got sent in by David Reed? So David Reed, he's an observatory coordination support officer at CISRO, C-I-S-I-R-O, Murchison Radio Astronomy Observatory. That's in Western Australia.
+
+[00:06:32] So this comes from international land. And he says, I know you have covered the occasional clever acronym created by scientists that clunkily described their experiments. But did you know a radio telescope imaging program called P-Y-B-D-S-F pronounced P-E-D-S-F, pronounced pi BDSF was the Python coded blob detector and source finder. But that's not what it does. It's actually a blob detector and source measureer, but they didn't want to call it pi BDSM. I see, I see where we're going.
+
+[00:07:03] It was given away at the end, the punchline there, wasn't it? Because I had no idea where we were going with any of that. As often, the punchline does. Not at all you'll stand up, Dan. Sometimes you'll stick it at the front, won't you? Keep it fresh. Keep it fresh. Keep them guessing. So they decided they didn't want it to be called BDSM, so they changed the final word. Exactly. Yeah. To make it something that is slightly a redundant acronym. I saw
+
+[00:07:27] someone's personalized number plate the other day, which was, I won't say exactly what it was, because you don't want to say people's number plates, but it was something like P-I-I-I-H-L-P. So it was like, when you looked at it and glanced at it, it was obviously Philip. Yeah, right, right, right. But when you actually spent any time looking at it, it was like, You do wonder sometimes the things that people will pay lots for, unless that's P-Loop's name. Yes. Which it might be. I think it's fine to read out people's number plates.
+
+[00:07:59] Do you think? I think it's absolutely fine. As long as you're not saying... Well, I did Kea's car. Is that one past? Got it. Podcast at QI.com. So I found a few other acronym things that I thought were quite fun.
+
+[00:08:12] Oh, yeah. Have you heard of RAS syndrome? RAS syndrome? Nope. No. RAS syndrome is redundant acronym syndrome syndrome. Very nice. And this is to describe any time that people say pin number or ATM machine because
+
+[00:08:24] the N and PIN is that's really funny. Yeah, so that that's one. I really like Egot. So we all know Egot, right? Which is Emmy, Grammy, Oscar and Tony. The idea is you become the ultimate actor if you win an EGOT. That was created by an actor called Philip Michael Thomas. He used to walk around with a golden medallion around his chest saying EGOT massively.
+
+[00:08:44] Well, because he'd go on. No, it's his plan. He was like, I want to win all of these things. Oh. Yeah. Anyway, he's now retired, and he was never even nominated for a single one of these things. But he was a good actor. He did a lot of stuff.
+
+[00:08:55] So he had a great career. I always thought it was the Kigot, because you had all those that you said and also the Chortle Award. It's the real one that everyone goes for. Like, obviously, we've got one fifth of a key got. Yeah, yes. And let's not say which fifth. All right, Andy, what have you got?
+
+[00:09:16] Oh, I've got some really fun ones. Do you remember we had a bit of correspondence on Dropers Aline, which is our audience feedback show, from the House of Lords? I do remember that, yeah. Well, I just thought I'd say, Lord Borwick also sent in a fact, as well as a sort of bit of bonus info. So, same Lord, we haven't yet cracked more than one member. Your Highness, thank you for writing in.
+
+[00:09:37] Your grace. Your excellence. Right, here's a quiz question. Okay. How many times does the letter X appear on the face of Big Ben? And for the purposes of this, Big Ben is the clock. I can't get into St. Stephen's Tower, the Elisabeth Tower, blah, blah, blah. Okay, the clock.
+
+[00:09:54] 10, 11, 12. Oh, but there are four faces. 12. Ah, very nice. Okay, so you're saying 12, Dan? I think an aerial view of the Big Ben itself will have an X. Another one on top. Right on top.
+
+[00:10:09] It's how you signal the X files. Okay, so James is the same book. I put an X on my window in my bedroom to signal that I was To lure Gillian Anderson It was worth a try Anderson spotted in Bolton once again All I got was David B. Coffey every day
+
+[00:10:28] Are you sure you're still not interested? I'm like, no, I'm holding out for Anderson Oh, you did the X, that's so cool That's very cool What was that just to, is that what people do on the show? I don't know, I think it was in the show that you put an X there and it showed that you knew truth was out there or something.
+
+[00:10:44] That's cool. It was a thing. Yeah, I can't remember the exact meaning of it, but that was a thing that you do. Yeah. Aliens would know not to touch you. I've never seen an episode of it. Oh, mate. Andy, honestly, I would go to the start and watch them all.
+
+[00:10:55] Yeah. Really? Yeah, you'll love them. I mean, they're brilliant. I assume that they haven't aged badly. No, they're great. I watched them all, but I watched series one quite recently. Did you?
+
+[00:11:06] Yeah. In between viewings of... Now you see me. Now you see me. Great. Brilliant. Okay. Did we get the question? We did. Did we get the answer?
+
+[00:11:15] Well, you haven't had your submitted your guess yet. Well, I did. James is 12 plus, say 13. You're saying 13? Yeah. It's zero. What? Because the designer, Pugin, Augustus Wellby, Northmore Pugin. Yeah, he designed all of the parliament building, didn't he, Pugin? A lot of it, yeah. Crazy name, crazy guy. He did actually die of insanity. Anyway, might have been mercury poisoning, might have been syphilis.
+
+[00:11:39] Anyway, he decided he didn't want an ex. he wanted an F. So it's F, it's so weird. If you look at it, it goes one F for nine. I've got nine. Yes. Then F, then F1, and then F1, I, I for 12. It's just F.
+
+[00:11:59] I don't know. Is it because of the mercury poisoning, maybe? It's possible. It's very possible. He was a really interesting guy. Also had a link to Ramsgate, which we discussed on an episode that we have recorded, but has not yet been broadcast. So this is a call forward to a really fun episode coming up. And what is it? What's the link? He lived there. Oh. Fantastic. He lived there, but he dressed
+
+[00:12:24] as a sailor and he would frequently take his boat out to rescue sailors in difficulties. Wow. I mean, a really peculiar, a really peculiar guy. Imagine how excited the audience is now for the Ramsgate episode. Oh my gosh. Facts like that. Shut up. And we didn't even put that in the show. Can I tell you one more fact I found about the Big Ben thing as a result of this? It's last year a company won a special prize in Elevator World's Project of the Year awards for the lifts in the Big Ben Tower, okay? Can you guess which company it was? Schindler.
+
+[00:12:57] It wasn't Schindler. They do do lifts. Otis. No. What's another? They're the only two right now. I mean, in fairness, I think we did quite well to think of two names of lift. Manufacturers. Is it going to be something like Churchill, like something that's very relevant, Wellington?
+
+[00:13:12] What's a lift? No, it's not that. It's a lift company, but it's not a traditional lift company. What's another kind of lift? It doesn't go up and down straight. It goes up the side. It's not a finicular. It's on your, if I say this, you'll get it. It's on your stairs. Stanner. Stana. Stana did the lifts in the Big Ben Tower. That's really good. And they won a special prize from Elevator World for it. House business, up and down. There we go. Very nice.
+
+[00:13:40] And that's the fact I found. That's a great fact. That is really good. Anyway, look forward to that Ramsgate episode in about a month's time. This one has been sent into us by Peter Monroe. Says a new species of terrosaur has been discovered in a pile of fossilized vomit. Oh. Yeah.
+
+[00:13:59] It was pretty amazing. So this is over 100 million years ago. You're saying someone threw up a whole dinosaur. Yeah, I think they were... Someone, I mean a big... dinosaur. The suggestion is that it might have been a spinosaurus. They don't know for sure, but you have to, I guess, scale up for size. Scale, very good. And they vomited. And when they vomited, they vomited up to pterosaurs. And somehow that vomit fossilized. And these geologists were
+
+[00:14:25] looking through the fossil when they suddenly spotted the bones. And it's a new species altogether of a pterosaur. So that's pretty exciting stuff. This is called, by the way, when you go from vomit. It's called a regurgitalite. That's what a... Oh, like a coprolite. A copulite, but it's a regurgitolite. That's good. Yeah. You guys had quite a heavy QI Christmas party this week. How do you think? Well, I wasn't there. I was invited, but couldn't make it. We left some, we left some fossils around fossils to be. Here's hoping. Did you know, a new type of canopy was discovered. Welcome winter with Scarborough Nissan.
+
+[00:15:12] Lease a 26 rogue-ass all-wheel drive from only 0.9% for 36 months. Or a 26 KixS for only 349 monthly with 1249 down for 48 months. Scarborough Nissan, award-winning cars from award-winning people at Warden & Egglington or scarbronysan.com. Conditions apply.
+
+[00:15:31] Nissan is number one for new vehicle quality. among mainstream brands in the 2025 J.D. Power U.S. initial quality study. I've got a fact. Oh, yeah. From Marcus Darlion, or Dalyan, I hope I'm saying that right, Marcus. The modern Celsius scale of temperature is based on the melting and freezing point of water. That's not the fact. That's not the fact. That's not even good enough to get into our Ramsgate episode.
+
+[00:16:02] But previous proposer. The proposals included some of the following as fixed points. The melting point of butter. Oh. Like, that's boiling pot or whatever. Water hottest to be endured by a handheld still. Like, just what's the hottest water you can take in your hand? Yeah, I know this.
+
+[00:16:18] And then the temperature at the center of the Great Pyramid of Giza. What? And basically, the guy who proposed this Great Pyramid of Giza thing was this insane astronomer Royal for Scotland called Charles Piazzi-Smive. he was obsessed with the Great Pyramid, basically, and obsessed of the pyramid. I thought these have to be what we measure everything based off. So he suggested the pyramid inch, pyramid pint, pyramid gallon.
+
+[00:16:44] He said all of these come from the sacred pyramid. And they were all basically, let's say a pyramid inch could be one, one thousandth of the length of a pyramid. Basically, yeah. He claimed they were all core metrological qualities. I don't mind that, though. I think like, as long as you choose something and stick with it. And was the heat measured by, because it was deep in the center, by the Atlantean crystals?
+
+[00:17:07] That's right. Had been left there. Yeah, yeah. Interesting. I'm preaching to the choir here. Yeah, yeah. Okay. Because actually, that's good to know.
+
+[00:17:13] I didn't know how hot those were. It's an ancient computer system that they left buried there for us. Yeah, great. I genuinely gave a speech about that at school when I was about 16 years old. Did you really? The trial was father to the man. Yeah, yeah. Amazing.
+
+[00:17:25] And I got good marks. It was a Steiner school. Oh, yeah. Okay. James, you got another? This one is from Robbie. No surname here, but Robbie writes about German chocolate cake. And regular listeners to Little Fish will know that I mentioned this on a previous episode. But Robbie sent this email before he'd heard that. Or she, actually, Robbie could be a girl.
+
+[00:17:51] It's got to be Robbie Williams. Sorry. It's not spelled. Robby Williams is I.E. isn't it? Robby is I.e. Is this Robbie with a Y? Oh, he's trying to mask it. Is it? Yeah, it's for Robbie Williams. Okay. Yeah, yeah. Well, I must say, I didn't really care much for your performance at the World Cup draw. But I do like your fact, and it is, as well as German chocolate cake, not being German, being named after someone called German.
+
+[00:18:18] It's made out of Baker's Chocolate, and Baker's Chocolate was named after the company founder, Dr. James Baker, who was. Brilliant. Brilliant. Isn't that amazing? How far did this go? That's so good. And yeah, I decided to look into this a little bit more. So German chocolate cake, it was quite early that this mistake was made that they thought
+
+[00:18:41] it was German. So it was invented in 1957 and in 1963, Lyndon B. Johnson served it to the German Chancellor Ludwig Erhardt, thinking that it was a German dessert. Brilliant. Even though it was named after. an American, cold German. That's really good. So, yeah.
+
+[00:19:02] Imagine that. That's really good. Well, can I jump on this with Ben Wright has written in? So this is another correspondent of ours with a great fact. So, Ben has said, this is rather thin stuff. But it's so nice when someone acknowledges. He knows our standard. Absolutely.
+
+[00:19:24] It made it to the show, Ben. But Italian nationalist Garibaldi of biscuit fame was born in Nice, which is Nice Biscuits Yes, as well, or Nice Biscuits. Nice in France. Nice in France, so of biscuit fame. Interesting. And he defeated the Bourbons. Of Biscuit fame.
+
+[00:19:44] Of Biscuit fame as well. That's very good. I thought he was Italian Garibaldi and nieces in France, but I guess the borders were a little bit different in those things. He is the hero of Italian education. sure. But he was born in France. That's weird, no? That is weird. That is weird. That feels like it needs a Google. I think niece biscuits are named after niece the town. Some royal had been there or something. Yeah. Maybe Queen Victoria or something had been there and it was very fashionable.
+
+[00:20:14] It became very fashionable. So they named the biscuits after them. Because everyone thinks they're nice biscuits. Well, they are nice biscuits. Do you think so? I think they're quite boring. Well, speaking of biscuits, boring people, I was given a, amusingly shaped biscuit today. Were you? Yeah. Oh my God. What was it?
+
+[00:20:30] No, no, no, guys. Like, there's some bits of going behind the curtain of fish that people are really going to like and going to find really interesting, but this unbelievably tedious conversation that you two had before the bikes came on, I think should stay there.
+
+[00:20:44] Okay, let's, yeah, let's preserve the magic. The mystique of this show. All we can say is it revolves around the biscuit, a railway station, And a mutt. Yeah.
+
+[00:20:57] Yeah. Yeah. Yeah. I actually, I decided I would see if I could build on this great discovery by Ben about Garibaldi to see if there are any other Biscuit connections to Garibaldi. So he was known for leading military campaigns. What did he bring with them? Wagons. How do they roll?
+
+[00:21:15] Wagon wheels. Wagon wheels. Really good. Surrounded by wagon wheels. Would you use a wagon in 1850s Europe? Maybe. It's more of a car. The tag hadn't been invented yet.
+
+[00:21:25] Tank? No, that's true. All right. I googled it. Brilliant. I double-checked. He definitely had some wagons. Okay. He died in 1882. Oh, yeah. He died in 1882. Oh, yeah. It is confusing, yeah. Brockhofen, just for the international listener, who's not from Australia. Well, they don't really exist anymore, I don't think. But they did merge with Arnott's biscuits down the line, which is Australia's digestives. You know, it's a massive biscuit over there. So any Aussie listening will know Arnott's. So that's a lot.
+
+[00:22:09] Oh, and then one more. Which is that? No, the first two are so strong. Can you really cap those? No, this is the headliner, I think. Sorry, yeah. Well, I discovered that he was a redhead. He would have been running around with a pair of ginger nuts.
+
+[00:22:22] Oh, gosh. Jesus, Dan. Wow. Ben, Ben Wright. Thank you for that email, which sparked this. Ben is now wishing he hadn't even turned on his laptop that day. Well, listen, those are your facts, everyone. But now it's time for us to do something very exciting, which we love to do at the end of each little fish episode, which is to allocate some custodian.
+
+[00:22:45] to one of the facts, one of the headlines from our 600 plus episodes that we have done that will belong to you forever. And you get this by being part of our friend of the podcast here on Clubfish, which is you'll find it on Patreon if you want to check it out. So let's dish out a batch of new headlines. So, James? Yep, this fact is now under the custodianship of Spoonie. I don't know if that's Spoonie, the Radio 1 DJ from the early 2000s,
+
+[00:23:13] or a different Spoonie. But Spoonie, you now own this fact. It is that the Aztecs wore necklaces made of popcorn worn as an offering to the gods. Lovely. Now, I hope you two were listening before because my question to you is, how would you describe the mathematical popcorn function? It's literally just 10 minutes ago. Just going up and down, up and down in a, and Andy, you do that in the next bit.
+
+[00:23:40] It's random whether it's a zero or a one. So it goes to, goes all over the place. the results for a bit haywire. Okay, disappointingly, you both more or less nailed that. So, well done, U-T. Do you remember anything about the Aztecs? Great girth. Another mathematical.
+
+[00:23:59] No, no, I'm just asking about the time that we mentioned them in episode 15 of the podcast. I just remember that the Aztecs were more recent than we think they were. Oxford University overlaps with the Aztecs. Do you know what I mean? Well, yeah, the Aztecs were there when Columbus went over in 14, 19. So, yeah, they were around in the 15th century, for sure. Probably a 16th as well. That's all I remember.
+
+[00:24:22] Yeah, I can't. Have you got a good Aztec fact outside of this brilliant headline? Sweet or salty? Popcorn? I know that Montezuma supposedly drank 50 cups of hot chocolate at a single meal. Wow. Nice. But it was, that account was written by a noted conquistador liar called Diaz.
+
+[00:24:41] When you look at everything else he wrote, it's like, yeah, this is probably. probably didn't happen. So was that trying to slag off Montezuma? No, it wasn't really, because I think the Spanish were quite impressed by him, but it was basically had so many lovers that he needed the hot chocolate to keep him going. But I think usually a hot chocolate goes before bedtime, not sexy times, but sleepy times. And that would be a hell of a regurgital light waiting to happen, isn't it? There's probably fossilized hot chocolate out there. Should we do some more facts? Yeah, here's one. Here's one. This goes out to Lizzie Uting. Congratulations to you. This is the fact that in 2011, China tried to pass off a scene from Top Gun as footage of its own Air Force.
+
+[00:25:25] Right. They just, I think there was some national security display or something and they were saying, look at our amazing jets. And they cut to like Tom Cruise in a play. Was it the scene of Top Gun where they're all in a bar singing, take my breath away? It was some hot, hot, hot beach volleyball. Look at our super stud airman Yeah, yeah So that's what they did
+
+[00:25:49] I doubt they would need to do that these days I think that's a function of 2011 versus 2025 Oh yeah Probably the US Air Force is using footage from Neijar too Yeah I love that fact That's very cool
+
+[00:26:02] That's an Anna Tashinsky that you've got there Lizzie So well done to that Okay let's do another one This is going out to Steph Steph someone lost the keys to the Lawrence Livermore National Laboratory,
+
+[00:26:17] and the replacement locks cost over one million pounds. Oh, an awful moment. I don't remember that one, I have to say. Imagine saying, I'll buy the new keys. It's fine. I'll get the new lock. How much? The guy who made those keys would not have to make another pair of shoe soles or trophy ever again,
+
+[00:26:38] would they? It's a million for the keys, and it's $50. p for the key ring. That was my fact, by the way. So, congrats to Steph. Okay, so the next fact comes from us, but it now is under the custodianship of Helene. And Helene, your fact is probably the most feminist fact to date. And it was from Andy in episode 15, and it was that Ken is officially an accessory to Barbie.
+
+[00:27:11] Right on, sister. There you go. We've all felt like that. Barby has given us so much over the years, hasn't it? When you think about how many times it has come up, she. The brand. Yes, the brand. The brand.
+
+[00:27:24] Okay. Well, we feminized brands in this podcast, like ships and countries. But it has, hasn't it? Absolutely. In fact, it was mentioned just recently on a little fish or a jewel. No, it was in the episode that doesn't go out until the middle of January with Tom Allen. So let's hold it in. in.
+
+[00:27:44] The timelines have gone bananas on this. Yeah. Yeah, really good. All right, let's do another fact now. This is from episode 16. This is a James Harkin fact. This is a classic fact, and it's going to Oliver Castles, which is the world record for most kicks to one's own head is 127 in a minute.
+
+[00:28:04] Yeah. That was, we mentioned, I believe it was on the last episode that we did our first ever photo shoot where we each put a fact down on a placard and we held it for the camera and that was yours in that one and these was it's sausage to me that's right that's right um yeah and if you are so inclined go onto the internet and search for kicking own head world record and it is remarkable is it both feed yep i guess it's even more well i guess it's impressive either way it's like doing the cancamp but you go too far bloody hell is he sitting down or she um it's a he and I think he is sitting down.
+
+[00:28:43] Because you'd have to get your head right near your feet. I couldn't do it once. I'm not flexible enough. No. And this is 11 years ago, as no one beat the record. They have, but they've forgotten. Well, you have to do an even number of times. Yeah.
+
+[00:28:57] Fancy putting me on the spot like that, does it? As if I know every world record and when it gets changed. Okay, well done, Oliver. That is now your fact. Let's get another one, Andy. Yes, here's a little one. Quick brackets. We had an email from Arge Geese.
+
+[00:29:11] just saying that last time Arge was absolutely blown away to get a fact which was one of Dr. Carl's facts on the show Slight correction says Arge Dan mispronounced my name you've read it as a series of letters A-R-J-G and it's actually Argegegeese just wanted to correct that
+
+[00:29:27] but by the way if in future Dan mispronounces your name do write in but we may not be able to fit in all of Dan's mispronunciations It's just that's a hard that's a high bar to clear Just hold it as a badge of respect Absolutely yeah Exactly. I mean, to be fair, the G was connected to the ARJ in our document. Therefore, I thought it was a internet nickname. Dan, it's not your fault. We've all got cool names online. Like your cool guy, one, two, three. Don't give away my secret super cool online identity, James. So here's the fact going out to Tori, and this is T-O-R-E-Y, Tori. And the fact is, there's a bear in the Pyrenees called Pyros, who is facing castration because he's fathered almost all other bears.
+
+[00:30:10] So basically this is an anti-incest bear castration move because Pyrroth was clearly getting too frisky with, you know, with his own children bears. It's not a nice fact, Tori. I'm going to level with you. But look, this is what you have to do. It's nature. It's nature.
+
+[00:30:31] This, by the way, is an Anne Miller fact. And it's been on the show recently. If you're a listener of the main show, I assume you are. You haven't just come for the bonus. Anne has been with us for many, many years, one of the QILs, been on the show probably as much as any other person, a guest we've ever had. This is her debut onto the show. Yeah.
+
+[00:30:51] That's cool fact I have. It was written up at the time with one headline saying, bear might have necessities removed. It's a very good headline. Very strong. That's nice. James, let's go to you. Okay. This is another one from that same episode, and it's from Dan Schreiber.
+
+[00:31:07] And actually, you don't need me to tell you that because it will be. very obvious when I read it, Poland's only official ghost hunter thinks ghosts have given up haunting humans because we're too skeptical. And now Finley Tyson Carter, that is your fact. Yes. I use the word fact very loosely. Now, you know who told me this fact? James Harkin. Did I? You did, yeah. In that case, it's a great fact. I begged you to let me do it. And I got in contact with the Polish ghost hunter. We had a few emails together. Yeah. Yeah.
+
+[00:31:42] And as the emails went on, he kept changing my name to something just more familiar. It was like, Daniel first, and then he was like, hi, Danny. And then I was like, Hey, Dee Dee Dee. Okay. Yeah, so cool. And we got time for one more? Yeah, go on. So this is going out to Beverly Hart.
+
+[00:32:00] Fallout from the Cold War has been used to solve murders. Ooh. Interesting. And we don't, any of us remember how. Yeah, I wonder how. It was because there was nuclear testing in the Cold War, and that caused a big spike in carbon 14. Yeah. So I think everyone had it in them, and then eventually they banned weapons testing, and then it declined again to the amount of carbon 14 around the place.
+
+[00:32:27] So it's basically carbon dating. Right. Okay. It's basically to tell when this murder happened. Yeah. There we go. That's it. Okay.
+
+[00:32:33] Yeah. All right. Well, there we go. Hope you are happy with your facts. Once again, Spoonie, Lizzie, Steph. Helene, Oliver, Tori, Finley, Beverly. You are now the new custodians of eight of our early show facts, episodes 15 and 16. Thank you for being a friend of the podcast.
+
+[00:32:51] And if anyone else wants to become a custodian, you can be one to simply by going to Clubfish, joining the friend of the podcast, and we will assign one to you. And we're going to be reading these out at the end of every little fish. So it might take a while before you hear it, but you will get one. And you can become part of Clubfish by going to patreon.com slash no-so. thing as a fish. Check it out. There's so many goodies as part of the club. And again, if you want to join the first half of this show, which is us reading out your correspondence, podcast at QI.com, Andy reads all of the facts. So do send them in. We love getting them. And we will
+
+[00:33:23] be back again next week with another little fish. So we will see you all then. And then we'll see you on Friday from the main episode. Until then, goodbye. Thank you.

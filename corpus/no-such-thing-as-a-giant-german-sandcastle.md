@@ -1,0 +1,207 @@
+# No Such Thing As A Fish - No Such Thing As A Giant German Sandcastle
+
+- Episode date: November 7, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-giant-german-sandcastle
+- Slug: no-such-thing-as-a-giant-german-sandcastle
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. No, seriously. It's in the Oxford Dictionary of Underwater Life. He says it, right there, first paragraph, No Such Things a Fish. Hello, and welcome to another episode of No Such Thing as a Fish,
+
+[00:00:21] a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here with Anna Jizinski, James Harkin, and Andy Murray. and once again we've gathered around the table with our four favorite facts from the last seven days, and here they are in no particular order. Okay, fact number one, James. Okay, my fact this week is that comets stink. How could you know that?
+
+[00:00:44] So the Rosetta probe, which we all know, is currently going around a comet, and during that they've managed to collect some data from the comet itself. They've managed to do some spectral analysis on the molecules, and they found out that it smells like a mixture of rotten eggs, cat urine and bitter almonds. Yummy. Although, did we talk about the fact that cat urine is good if you smell it in wine? So if that could be distilled into a wine.
+
+[00:01:11] What do you mean if you smell it in wine? It's like a wine flavour. Wine if you can either say, or it has a cat pee aroma, not as a bad thing. Oh, okay. Cat pee, I guess, is like ammonia, isn't it? That's the kind of smell. But the chemicals that they have on this comet are hydrogen sulfide, ammonia, hydrogen cyanide for maldehyde,
+
+[00:01:30] methanol and sulphur dioxide. And that apparently gives those smells. I really like the science writers who received that kind of slightly dry. Some people would say report from Rosetta and Go, so I've read this list of chemicals. Do you think we can do the headline, Comet stinks?
+
+[00:01:45] Yeah, let's go with it. I kind of oversate, yeah, fine. It does overstates it a bit because actually if you were on the comet, you wouldn't be able to smell it because the molecules are just not numerous enough for your nose to detect them. Really?
+
+[00:01:58] If you had a sniff a dog, they'd be able to detect it. Dogs can smell the weirdest things. I didn't actually realize their nostrils were as amazing as they are, so they can smell whale poo from a mile away. They've been trained to...
+
+[00:02:10] Basically, the way they tell about whales's health is to analyze their poo. It's on the edge of a boat. On the edge of a boat, okay. Just kind of like... Just holding its nose. Yeah, just barking whenever it finds the poo. I read this on the Daily Mail,
+
+[00:02:23] I don't know if it's true. And DVDs, they can... smell DVDs as well, which helps her when people are trying to counterfeit DVDs and get them over borders and stuff, so they can smell huge hordes of DVDs. Dogs are right-nosed, I think. When they smell, they smell with their right nostril. All of them. That's a good question. I don't know if it's like humans and some of them aren't. You get some left-nosed. Dogs who are more creative and arts. Go on about it all the time. 90% of dog presidents were left-nosed as well. Yes, so harmful smells. They smell with their right nostril. But nice.
+
+[00:02:56] familiar smells they reserve for their left nostril and their right nostril new smells they always smell with the more sensitive right nostril and weirdly their ears are the other way around so they prick up their left ear when they're hearing something that's threatening like a thunderstorm and if they're hearing like other dogs barking that they want to hang out with they pick up their right ear but what if there's something threatening over on their right they spin around around and then collapse just take it back to space for a minute oh yeah even if you were up there the odds are that if you're an astronaut up there you might not be able to smell this comet and that's in spite of the few molecules thing because in space your sense of smell really suffers because all the fluids that
+
+[00:03:32] normally pooling at the bottom of your body throughout the day just because you're upright go all over your body and they tend to bunch up in your upper torso in your head which is why astronauts like eating spicy food because it's some of the few foods that can actually get through your sinuses right and make you smell better do humans like smell half the time on the left nose and half the time on the right nose or something like that you breathe through nostrils on an alternating basis um camels have the ability to close their nostrils yeah of sand. It's like with their eyelids, so they have three sets of eyelids. One which are like window wipers, the other which is their normal eyelids,
+
+[00:04:02] and the third one which are transparent, so that when it's sandy, they can just see through anyway. And their nostrils as well have the ability to go, boop, and just shut up. That's cool. That'd be really useful. They make that noise when they did. Yeah, when they shut up. Elephant. You've got that noise before, and it's to describe something else, but it's something rude. Oh, that's it's about hippos testicles retracting inside their bodies.
+
+[00:04:21] Boop. I love that my impressions are limited to you. Don't get down to do impressions. His retracting hippo testicles are exactly the same as covering nostril. As is Arnold Schwarzenegger. The comet doesn't smell bad to anyone under the age of four, because apparently, up until the age of four, nothing smells bad to you.
+
+[00:04:45] What? This is a TED talk given by this... Four-year-old. It smells great, guys. I like it all. So everything is just interesting, and then you learn to react badly to certain. certain smells post the age of four.
+
+[00:04:56] I feel like I've made my brother smell wasabi before he was four and he freaked out. But that's more of a kind of sensation. You know that losing your sense of smell is one of the chief indicators of dying soon. They've tested lots of elderly people and of the elderly people who couldn't smell or whose sense of smell was really badly impaired, a significantly higher proportion of those people died in the following five years. Right. It's interesting that you're saying that your sense of smell is dulled in space because
+
+[00:05:24] there are quite a lot of examples of astronauts giving very sort of exact descriptions of what things smell like, like Buzz Aldrin and Neil Armstrong saying that the moon smelled of gunpowder when they got back in. Also, apparently, one of the big issues that they have, so as well as having a sniffer at NASA, one of the big things they were trying to work out was the diet of astronauts, because both farting and burping were massive things, particularly in the Apollo missions going to the moon. It just smelled a farts inside me. It's because of a smell and not because it could propel you across the spaceship. No, Mary Roach, who wrote a book called Packing from Ars, actually looked into that.
+
+[00:05:56] There was an idea that you could fart, propel yourself across... Yeah, surely you could. According to the person that she asked, he said that the size of the human against the push of whatever air was coming out wouldn't be enough to actually do it. It would be enough, but you just probably wouldn't move very far. Yeah. You'd have had a lot of baked beans before going into space. 17,000 cans.
+
+[00:06:15] You have to not care how long it took you to get to the other side of the space lounge. Space lounge? Space lounge? I mean, it should be called that. They must have a lounge, yeah. They must have a lounge, yeah. On the ISS? Yeah, or on any. Did they have one on Apollo 11?
+
+[00:06:28] Not a lounge, no. It's a luxury, isn't it? Yeah, I think that wasn't a necessary thing. You trimmed down. Lose a billiard room. The fireplace has to go. So, we've definitely covered in our fact books before that in space, astronauts' hearts get rounder.
+
+[00:06:46] Yeah. But also in space, their eyeballs get flatter. Wow. People who are in space for a long mission. They report blurred vision. sometimes and what they think is the reason is extra fluids in your head which are normally elsewhere in the body so this results in a flattening of the eyeballs and even swelling around the optic nerve and when they go back to earth the swelling around the optic nerve subsides but
+
+[00:07:05] sometimes your eyes don't they don't round out again right you have slightly flatter eyeballs if you had aliens who came to earth and they looked like humans you'd be able to tell they were aliens because they'd have flatter eyeballs because they've been in space before they came here So that could be a way of... Oh, yeah, that would be... And that is the plot of James' first novel. I was reading Bill Bryson's short history, nearly everything a while ago,
+
+[00:07:31] and he says this thing about comets in it. And I guess meteorites, anything that enters the Earth's atmosphere, he was asking these two guys what kind of warning we would have against a comet, meteor, asteroid strike. And they said, in all reality, unless someone had spotted it,
+
+[00:07:47] and it's very hard to spot, one second. Well, for instance... That's our morning. One second. Well, what about Chalabinsk? There wasn't any warning of that. It just came down and landed in the middle of Russia.
+
+[00:07:56] Well, it would have been one second. That's terrifying. What would you do with that one last second? Yes, it's a great thing. Well, I guess I'd ring people and tell them what I really thought of. Comets, a lot of scientists think that it's comets that brought life to Earth, don't they? Because comets are made of water, well, of ice, and that might be where the water and organic matter for Earth came from. Yep. When Hale-Bop, the last time Hale-Bop came around because they're on orbits around the sun and they go past the Earth every now and then the last time it came before 1997 was when Stonehenge was being built approximately.
+
+[00:08:31] Really? That's how big that orbit is. So people going crazy with comets, that happens quite a lot. In 1910 there was a comet. It was Halley's Comet where everyone went crazy when it came over. Do you remember? Why did they go crazy? Well, what happened was, you know all these chemicals that they found? One of them includes cyanide, and people had already realized that there was cyanide inside a comet's tail.
+
+[00:08:54] And some people had thought that when the comet goes past, the tail would go through the earth and we'd all get killed by cyanide. And so everyone thought the world's going to end, not in one second, but in like a few years. You'd all asphyxiate, basically. So they had end of the world parties in New York. They had enormous, we're all going to die, events everywhere. It was this mad, enormous scare, like you said. Yeah. They sold these leather inhalers that you would cover your own.
+
+[00:09:18] mouth with so that it wouldn't kill you. Some people thought that the cyanide would react with the earth's atmosphere and create laughing gas and so everyone would be killed. You don't laugh to death. Yeah, all after death. If you want to do an operation with a lot of operations books for that moment. And there was one guy in California who somehow managed to nail himself to a cross on the day it was going to happen.
+
+[00:09:38] Wow. Of course the day went back. How do you get the second hand? Well, that's why it says somehow in the report. Okay. Time from fact number two, and that is Andy. So my fact is that the explorer Sir Ranald Fines, who is the oldest Britain ever to have climbed Mount Everest,
+
+[00:09:59] used to get such bad vertigo that he would ask his wife to climb ladders to clear the gutters instead of him. That sounds like an excuse, doesn't it? It does. And we're talking about, is it acrophobia? He has a fear of heights. I don't think he has the medical vertigo, which is where you feel dizzy,
+
+[00:10:14] no matter whether you're in a high place or not. It's weird. Everest is one of the only mountains I've seen. where any photo doesn't justify the largeness or the danger of it because it's such a wide mountain that you can't really get an understanding of how tall it is that's true like the main peak of Everest is the highest peak in the world of course but the second highest peak is the second highest peak of Everest which is taller than K2 that's cheating it is cheating yeah it's riding on the back of someone else right until the very end so basically this fact is
+
+[00:10:47] pretty much just an excuse to talk about Sir Renov finds, who's done a lot of absolutely amazing stuff. He has gone up the Nile on a hovercraft, which is the first time someone did that. His expedition, the Transglobe expedition, went around the world, but not horizontally, vertically, leaving from Greenwich, going through both poles and then back to Greenwich. No one has done that before, no one has done it since then, which is amazing. And then he, after he had a heart attack and a double heart bypass operation, four months later, he did seven marathons in seven days on seven continents. Such a show off.
+
+[00:11:20] Yeah. He, um, just on the badass nature of Ranalfe finds, he once off on expedition, got frostbite on his fingers, and he got it so bad that he needed to have them amputated. But when he took his fingers and him, self, they're still attached to a doctor. They said, we need to wait for it a bit longer for it to deaden before we can amputate. And he lost his patients at home one day. So he went into his shed. He eventually took them off with a blackened deck of vice and a fretsaw.
+
+[00:11:44] But he tried a number of other devices beforehand. different sores and it just wasn't working. That's a great product placement for the Black and Decker. Yeah. So he's quite fun anyway. He seems to be quite an entertaining chap. So at one point when he was in the army, there was a ball, I think, and he persuaded some of his fellow military men to procure a lively squirming piglet, cover it in tank grease,
+
+[00:12:07] and slip it into a crowded ballroom, which is quite fun. But another fun thing he did was he wanted to get into the SAS. Do you know about this? No. So one of the tests to get into the SAS that he had to. perform was to plan and try to execute a bank robbery. And so he was supposed to rob a branch of Barclay's bank. And he went and he asked for a tour around Barclay's bank. And based on that, he went to a cafe afterwards and made detailed plans of the bank. And that evening, the owner of that
+
+[00:12:34] cafe called the police and said, a man who looks like he's pretending to be in the army has left here some very detailed plans of the local bank. Can you please get on this? It was in the headline of the times the next day was dodgy looking man, leaves behind plans of bank robbery. Although I don't think he was rejected from the SES for that. He also was almost James Bond, weirdly. Really? He auditioned for James Bond.
+
+[00:12:56] Cubby Broccoli got him in, and they auditioned 400 people, and he made it down to the last six. Oh, okay. Yeah, but then he got rejected immediately by Cubby Broccoli. Cubby Rockley said that he looked like a farmer whose hands are too big and clumsy. Well, his hands aren't too big anymore.
+
+[00:13:14] This is such bad taste. That is nice. Lord Lucan as well was asked to audition for James Bond. Oh, was he? Yeah. Lord Lucan. Yeah. He didn't go to it, but he was asked him, wasn't he? He was quite famous. Did he not go to it of being in Africa? He's doing quite a job of going undercover. If this is part of his audition, I would say, he's done very well. Also, because that's the one that Roger Moore then became James Bond for. And I was reading in Craig Brown's book, one-to-one, that George Lazenby got the job of being James Bond by knowing that Cubby Broccoli was going for a, haircut in a place and getting his haircut next to him and feigning ignorance about, oh, hi, how are you?
+
+[00:13:52] So, yeah, martini, like, he was like, yeah, yeah. I have always wondered how the hell George Lazyzenby got the job. So when Ranald Fines and Lord Luton were going for it, they lost the job to George Lazybe? No, to Roger Moore. Oh, okay. Yeah, that's fine. Why, you think it's extraordinary that anyone could have lost it to Lazy's me, yeah. He's the oldest guy to have climbed Everest.
+
+[00:14:11] Do you know how old? They've been older ones, haven't there? Yeah, so he's the oldest British guy. Oh, yeah. The oldest guy's Japanese. He was 80 when he got up there. And he spent half an hour up there. And he broke his own record.
+
+[00:14:23] He was the oldest. It was his third trip up there. He went up there when he was 70. And there was this big thing about two days behind him in terms of trekking was an 81-year-old. So he was going to be able to hold the record for two days. And then this 81-year-old was like on the way behind. But he didn't make it. Didn't make it.
+
+[00:14:41] He didn't die, but he didn't make it. I think there's two of them who keep beating each other's record, aren't there? I think. Because the last time this guy, the Japanese guy, he's called Miura. The last time he did it, they asked him if the other guy beats you, are you going to try and do it again? He said, at this point, I could not think of anything but rest. It must be nak. Yeah, yeah, that's reverse psychology. Is it? Trying to convince the other. No, no, not interested. Nope. Not for me. Okay, time to move on to our third fact, and that's Chisinski. My fact is that a Ryanair crew member, recruited today could not possibly be the same height as a crew member from the first Ryanair cabin crew. Okay. What does that mean?
+
+[00:15:27] So they do have height restrictions, don't they? Yeah, they do. So if you're recruited today, you have to be at least five foot two to be in the crew now. In 1985, on the first Ryanair flight, you had to be under five foot two to work on it. Under five foot two? Less than five foot two. Pretty sure. Because the planes were small.
+
+[00:15:45] It was because it was a tiny cabin. That's amazing. Yeah. So there's just crude tiny people. Yeah. Yeah, but then the passengers are the high-rescate. God knows. I guess they just have to crouch.
+
+[00:15:55] Well, you're not standing throughout the whole flight. Oh, I don't know. I don't know about the first Ryanair flights. Maybe you were. Maybe. No, that's future Ryanair flights, I think. That's very cool. But, yes, I think it's quite weird that you need to be over a certain height now.
+
+[00:16:07] I suppose you need to reach up. Some of them say you need to show that you have to have a certain reach. So you could be sharp with very long down. Yes. Mr. Tickle. I read that on EVA, which is an airline. They do have a height restriction thing as well, but it's purely for aesthetic purposes. I wouldn't be surprised if they had that in the 70s, but these days it seems a little bit...
+
+[00:16:30] Well, I found out about what it was like in the 70s. Okay. Okay, so this is during Pan Am's heyday. You have to be, as you say, Anna, at least 5 foot 2, weigh no more than 130 pounds, and retired by the age of 32. Jeez. And you weren't allowed to be married or have children. and so most women lasted about 18 months
+
+[00:16:47] because they've always bloody go off and have kids, don't they, these women? And that's why we can't be relied on to employ them. Well, the marriage restriction lasted until the 1980s, which is unbelievable. You know, the first budget airline was in 1971. It was founded, which is a long time ago. But that one was outrageously sexist. The stewardesses had to have orange hot pants and white go-go boots. What is it, go-go boots?
+
+[00:17:12] Before they were dressed as that, though, they used to, dress as nurses. And that's not some sort of weird sexual fetish. There were nurses, though, weren't they? Yeah, exactly. In fact, the first official flight attendant was a nurse and a pilot, and she only became a flight attendant because they didn't allow her to become a pilot. Yeah, you can't be a pilot.
+
+[00:17:30] That was Ellen Church. Yeah, yeah. Yeah. Did you read this article in Collectors Weekly? It's a really, really good website. They have loads of great articles on there, and they did a thing about Air Hostess Uniforms, and they talked about Ellen Church,
+
+[00:17:45] She was a registered nurse, but the reason that they had registered nurses is because all the passengers were getting nauseous and vomiting because of the DC3 planes, these particular types of plane that were just all over the place. So everyone would be sick, and that's why they first brought in the female attendants because they needed nurses. Wow. Wow. To hold out sick bags. Yeah, apparently. She, by the way, wasn't the first ever flight attendant. Oh, she wasn't? No, she wasn't. The first female one. She's first female, but the first ever proper flight attendant was a German guy called Heinrich Kubis. And he was flying with the Red Baron and would just give him tiny peanuts.
+
+[00:18:22] He was on all the zeppelins prior to planes. But he was the flight attendants and he very much cared about his job. To the extent that he would wear hot pants and go-go boots. Yes, exactly. But he also, so he was on a number of famous zeppelins. The most famous of all he was on was the Hindberg. And he was the one who basically noticed that it was on fire. and helped all the passengers to get off it.
+
+[00:18:49] And he was a very essential part of survival. Because actually a lot of people survived the Hindenberg. A lot of people were doing with it. Yeah, yeah. A lot of them jumped from about 15 feet in the air. And then he was on the edge and he went, all right, everyone go. And so he gave the go ahead.
+
+[00:19:01] The Hindenberg was almost called the Hitler. It was originally going to be called the Hitler. Wow. Yeah. I didn't know that that pole on the top of the Empire State Building was actually to dock Zeppelins. Yeah. It was a Zeppelin docker.
+
+[00:19:13] Yeah, that's so cool. Very exciting. Just to go back to Ellen Church for a second, the first female stewardess. So they were called Sky Girls originally. The Sky Girls were expected to, I'm quoting here, haul luggage, screw down loose seats, help with fueling the plane. And finally, at Days End, help the pilots push the plane into the hangar. How good is that?
+
+[00:19:36] The first passenger flight, it was one guy, and it was from St. Petersburg in Florida to Tampa, and it lasted 23 minutes and the flight rarely exceeded five feet in altitude. It's brilliant. It's like, we are now cruising at five feet. If you look to the left, you'll see a man. Here's some chewing gum for you to use. So your ears don't pop.
+
+[00:20:03] Oh, you're crazy. Wait, give us more details of this. This is amazing. Well, I know it was called a flying boat, I think, because that was the only terms in which they could just know because they had planes but they called it a skyboat oh wow well it was the first guy paid four hundred dollars which was about uh nine thousand dollars today but then the prices came right down after that and basically it carried a maybe 1200 passengers over the next few months and they paid a five dollars yeah it's kind of a uh a special thing it was the former mayor of the town
+
+[00:20:34] who got to go on this journey and weird that he had to pay more to be the one who's trying it out Not really fair, no. And also, $400 down to five, that's quite... Yeah, he was kicking himself a year later. He was like, probably had booked it a week later. That's the thing with low-cost airlines, do you? You gotta keep checking the prices. It just went on last minute.com straight away. Other things that have been taken on planes or attempted to take on planes,
+
+[00:21:00] a two-month-old tiger cub was recently, a woman recently attempted to smuggle it by disguising it as a stuffed toy amongst other fake tiger cubs. Oh, that is clever. It is clever. That's what E.T. does when he tries to hide among the other toys. He puts all the... Yeah, that's true. But he sticks his face out. Oh, yeah, yeah.
+
+[00:21:15] Whereas a more sensible alien would have just hidden behind him on the toy. Why did he need to do that? Why did he... I was pushing that. A bit of a show off. And then there was the last one which I did put on Twitter yesterday, which was Woody's toy gun was confiscated for him recently at Heathrow. And there's the guy who was confiscated from took a picture,
+
+[00:21:33] and the guy is literally removing this tiny toy gun from Woody. From Woody as a Woody the Cowboy Yeah Woody the Cowboy What? And it's it wasn't like a It's not like a gun A life size
+
+[00:21:44] Yeah it's like a tiny little pistol It was a tiny Woody And they just put an AK 47 In his hands and said What it's a toy Don't be ridiculous That's there was a guy Who was on ground staff
+
+[00:21:55] This guy said Here are some of the conversations I overheard There was a lady who tried to bring her goldfish On board And so she had it in a bag With water in it And they said
+
+[00:22:04] Okay what we've worked out is we can allow the goldfish to go on, but we can allow the water. Yeah, so they did allow the water. The other one was they said, goldfish had to live in a little 25 milliliter. Yeah, exactly, yeah. But you can buy liquid once you've gone through security, so could you hold it in your hand running by a bottle of water? Drop it in your aviary.
+
+[00:22:24] And the other one was they had an argument about what state mashed potato is. So they couldn't decide if it was a liquid. A hundred mils of water. Yeah, they didn't know what it was. And so they eventually decided that it was a gel. and that you couldn't allow it. That's what the grand staff decided it is. I've got two other things on height restriction.
+
+[00:22:43] One is astronauts have height restrictions as well. But there was, famously, there was one astronaut who was a great astronaut called Scott Parasinski. He was not allowed to do a mission because of his height restriction. Interesting thing about him, though, just in relevance to this podcast. Was he really tall or really small? He was really tall. He was really tall. He's the only astronaut ever to have gone into space and also to have reached the summit of Mount Everest. Oh, wow.
+
+[00:23:06] Just as an interesting connection. Did he land on the summit of Mount Everest when he got back? That is cheating. Did he go up Everest and go, no, I want to go higher than this? Yeah, I'm almost there now. Might as well carry on. I've just read that. I'm on this astronaut's got Parasinski's Wikipedia page,
+
+[00:23:23] and it's got a list of awards and honors, and he was the honorary captain for the US Luge team for the 2010 Winter Olympics. What do you mean honorary captain? I don't know. It's just, they made him an honorary captain. He applies to be the honorary captain of an Olympic team. Yeah. I wonder if he got a medal if they won.
+
+[00:23:39] Oh yeah, he could say he won a... Well, you get an honorary medal. Yeah. You stand on an honorary podium, which is next to the main podium. Fortunately, you're so tall. Doesn't matter. It is weird that the word honorary just means not. In life, basically...
+
+[00:23:55] There's restrictions on heights of sandcastles on certain German beaches. They can't be above three meters in height. There's some... Three meters. Yeah, which is here. I was surprised that you can't be about three metres. That's not building a sandcastle. That's building.
+
+[00:24:08] That's earthworks. There's a running permission for that. There's at least one beach in Germany where they knock down the sandcastles at the end of every day so that people don't trip over them in the dark. That's funny. Yeah, yeah.
+
+[00:24:22] Seriously, three meters. What are the crazy rules of the Germans? They're not allowed to build a massive house on the beach. Not allowed to drive more than a thousand miles an hour. Okay, time for a final fact, and that's my fact. This week, my fact is, according to his website, Stephen Segal is the only private citizen to destroy a nuclear device. Stephen Segal, the action hero. I found this on his website.
+
+[00:24:52] Okay, sorry, Stephen Segal has dismantled. As dismantled, according to his website. It's in his philanthropy section of his website. It's a philanthropic act. It is. Definitely. So, looking into it, he's tricked us. of it. He didn't physically with his hands dismantle a nuclear device. Yeah. He used his ponytail.
+
+[00:25:14] He sponsored people to dismantle. So he gave the money to be able to do it. That's really funny. Will you, Stephen Segal turning up at your door? Will you sponsor me to just like that? If you give me 50p per megatone. That's great. So he paid for it to be decommissioned, basically. Yes. He was one of the people. he's an interesting character he does he's a bit of a lone wolf old segal really yeah well he
+
+[00:25:41] what is a lone wolf a lone wolf is someone who just says I'm not a part of any kind of like he doesn't do cinema really anymore he goes straight to DVD I don't think that's out of choice is it on principle I am a straight to video man
+
+[00:25:56] that's a good point very good point he might be in the new Expendables movie so yeah oh right so he sacrificed his strong principles for that did he? My favorite things about Segal.
+
+[00:26:07] I'll just give a quick breakdown. He's a musician as well. I found that out in the music section of his website. What does this mean? Did he want to pay someone to play a music? He's got two albums. What is called Mojo Priest and the other is called Songs from the Crystal Cave. Wow.
+
+[00:26:24] Yeah, I think it's Mojo Priest that has 19 tracks on it. Because he's got a lot to give. And one of the songs is called Talk to My Ass. and cock puncher blues is another one. Is that cock as in cock fighting? He doesn't like cock fighting. Because he's an animal rights activist, isn't he? Well, he...
+
+[00:26:45] No, he's a sheriff. He's a sheriff. We think we've mentioned before that he was... Yeah, you can. I think we mentioned before that he was a sheriff, haven't we? Yes. But one of the things that he did as a sheriff was break up a cockfighting ring in America.
+
+[00:26:56] Wow. And he used a full SWAT team, a bond-detecting robot, and a bevy of armored vehicles including a fully fledged tank. He was in the tank, wasn't he? Yeah. 115 birds were euthanized on the spot
+
+[00:27:09] and thousands of dollars of damage were done to this guy called Jesus Levera, lots of damage done to his property, including damage caused by the tank knocking over his walls. There's a bit overkill, isn't it? When he said 115 birds were euthanized on the spot? Surely part of breaking up a cockfighting ring
+
+[00:27:25] is to prevent cruelty to animals. Yeah. Or let's just go in all guns blaze. Yeah, you're not going to fight anymore, are you? You've missed the best bit of the story. Go on. He got the wrong house. What?
+
+[00:27:36] Yeah, it wasn't the right house. Yeah. He, uh, it was, he slaughtered all these animals, including... Wait, he was just another house with a hundred... Yeah. No, it was a guy who was just breeding them. And, um, not only did the chickens, uh, the cockerels die, um, so did the owner's dog. And Stephen Segal had to write an apology letter to the kid because he killed his dog.
+
+[00:27:58] Good. Yeah. Yeah. That's appropriate. Yeah. Yeah. So they needlessly disposed. of a lot of bombs
+
+[00:28:03] which the family just harmlessly had using the robot. They were just breeding the bombs. Why would you take a bomb disposal robot to a cockfighting ring? Why would you drive a tank
+
+[00:28:11] through the house? Stephen Seagal, that's what he does. In 1940, they had new golf rules to do with the war in certain clubs in England and one of them was a player whose stroke
+
+[00:28:23] is affected by the simultaneous explosion of a bomb may play another ball from the same place. Penalty, one stroke. Wow. I think, as a,
+
+[00:28:32] golfer, I think that's quite harsh. It's not your fault. Yeah. But you've got to be very focused, James, and I think it shows you're not taking it seriously enough if you're distracted by every bomb that goes off. That's a good point. Yeah, I do get distracted on the golf course. You like conspiracy theories, Dan. I have one. So in the 1950s and 60s, there was some
+
+[00:28:50] nuclear testing in space until that was banned by the UN, but in the UN document that forbade it, it said the reason we have to ban nuclear testing in space is because it could destroy exotic weapons and other military satellites. So I want to know what exotic weapons are hovering around our world right now. What does that mean exotic weapons? Pineapple, plays it.
+
+[00:29:11] Pineapple bombs. Just to clarify for listeners, I like conspiracy theories. I don't believe it. Just you to clarify. Dan, you say that every week and every week we cut it out. I know. At rages. When on construction sites in Germany, they still often call bomb disposal units before they do much construction
+
+[00:29:31] because there are plenty of unexploded bombs than Germany. I think someone was killed earlier on this year a man was killed when a bomb from World War II exploded. There were more than a billion shells in Northern Europe that were given by... Billions. Yeah, that were sent over there by the Allies
+
+[00:29:45] and 30% of them failed to explode. And the main Belgian group that get rid of it are called Dovo, and they recover between 150 and 200 tonnes of stuff every year. Wow. Well, good note, do I know. Anyone want to talk about Bruce Willis? That's who I researched
+
+[00:30:02] because I didn't know who Stephen Segal is. Oh, sure, yeah. So, you know he was on Friends? Bruce Willis. Yeah, I didn't know that. No, I didn't know. Oh, God, guys. He played Gunter.
+
+[00:30:13] Oh, God, guys. He's he gunter. 10 very successful seasons. It was great. Yeah, everyone listening is going to know this. So he played Rachel's boyfriend and the dad of Ross's girlfriend. Anyway, he did it for no fee.
+
+[00:30:25] He was in about three episodes, I think, and he lost a bet to Matthew Perry, and so he didn't get paid for it. because he lost a bet when they were in the whole nine yards where Matthew Perry was like this film is going to be good I swear it's going to go to the top of the film charts
+
+[00:30:37] and it did go to the top of the movie charts when it opened Is that how Friends works basically they got people in and then did wages with them For the first four seasons Phoebe was paid in pineapples It really showed in her acting Nothing of Roosevelt is
+
+[00:30:55] He owns, he says the most expensive thing He's ever bought is a ski mountain in Idaho That's the kind of thing you say to someone after you've just bought something really expensive and you want to show off. You say, oh, what's the most expensive thing you own? And then you hope they ask you back. Yeah, exactly. He probably goes around to parties all the time saying that.
+
+[00:31:10] So what's the most expensive thing? That sofa looks expensive. Is it the most expensive thing that you own? Actually, this makes him even more vomit-inducing. He said to the Guardian journalist who asked him, I don't tell many people this, but it's a mountain in Idaho. Obviously, saying it to a Guardian journalist, Well, actually, given the circulation of the gun.
+
+[00:31:32] Keep this under your hat. Only publish it in your newspaper. I'm not BuzzFeed. Bruce Willis as well, I seem to remember that he, when they were looking for Osama bin Laden, said, I will give a million dollars if you find. He put a bounty on his head, basically. Yeah, that's why we all know. When he goes to parties, you can say, well, it's the most expensive thing you've bought.
+
+[00:31:55] Oh, I bought Osama bin Laden. Yeah, exactly. Who's the biggest terrorist you've personally had killed? Another thing about Bruce Willis is that he lost two thirds of the hearing in his left ear went on diehard because the director said that they had to use extra loud blanks. And now apparently his daughter claims this is why he gets accused of being rude and interviews because his hearing isn't very good. So he ignores people a lot.
+
+[00:32:16] What's the justification for him telling people he's bought a mountain? What was that you said? What's the most expensive thing I've ever seen? No, Bruce. She's asked what your favourite animal was. Okay, that's it. That's all of our facts. Thanks everyone for listening. If you want to get in contact with any of us about the things we've said over the course of this podcast, you can get us all on Twitter, either on at QI podcast, which is our general group Twitter page or individually. I'm on at Shriverland, Andy. At Andrew Hunter. James. At Eggshaped. Anna. You can email podcast at QI.com. Yeah, and you can also go to No Such Thing as a Fish.com, where we've got all of our previous episodes. So check them out. And we're going to be back again next week with an another episode. Goodbye.

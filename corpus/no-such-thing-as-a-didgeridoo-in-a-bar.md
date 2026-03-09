@@ -1,0 +1,329 @@
+# No Such Thing As A Fish - No Such Thing As A Didgeridoo in a Bar
+
+- Episode date: September 25, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-didgeridoo-in-a-bar
+- Slug: no-such-thing-as-a-didgeridoo-in-a-bar
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Schreiber. I am sitting here with James Harkin, Andrew Hunter Murray, Anna Tachinsky, and once again, we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, Andy. My fact is that, along with their drink, New Yorkers in bars used to be served a sandwich full of rubber. What? Yum. Yum. Yum.
+
+[00:00:49] Why on earth would that be? Well, this is a sort of legal loophole that bars had to jump through in order to serve their customers. So, as a order to do with something called the Rain's Law, basically. People were trying to curb public drunkenness in the 1890s in America and in particular in New York. And this politician called John Raines got this law passed, which was designed to put nasty bars out of business. So there were various, you know, the cost of a liquor license tripled, and you had to keep your curtains open on a Sunday
+
+[00:01:21] so that police officers could... All sorts of things. Wow. The law was partly designed to shut down Sunday drinking, and that was very annoying for people and for bars, because it was the most profitable day of the week, and it was most people's only day off. But there was a loophole in the law, where if you were serving a meal,
+
+[00:01:39] you could serve a drink with it any day of the week as long as you were a lodging house with 10 rooms or more. So all these bar owners suddenly teamed up with lodging houses and they opened just one room on the ground floor in the basement. They said, oh, this is a dining room
+
+[00:01:55] for an establishment. This is not a bar at all. And they said they were serving meals to the guests at the lodging houses. And what the meal consisted of was the single sandwich, which would sometimes have a little puck of rubber in the middle, or it would sometimes just be a week-old sandwich, which you would get given with your drink. And the barman said, there's your meal.
+
+[00:02:16] And then they would take away the sandwich immediately. They'd leave it there for two seconds, and they'd take it away to the next table, and it would be served to whoever else had also ordered a meal with their drink. And that was the loophole. I read that sometimes the sandwich was either a rock or a brick between two slices of bread. Yeah.
+
+[00:02:33] That's taking the piss out of the loophole a bit. it right. It is taking the piss. And yet they went to court over it and they said, no, it looks like they are serving a meal. So I don't know who the judge was for that case. But yeah. Yeah, there was an incident, I think, where in about 1902, police were called to a bar because there was a massive brawl two guys about to kill each other. And one of the people was a customer who'd been genuinely hungry. So he'd ordered a sandwich. And the innkeeper had brought him the sandwich and then tried to take it away. And the customer had started eating it and been like, I've ordered a sandwich, mate.
+
+[00:03:07] And the innkeeper said, no, no, you don't understand. We don't really eat these. And it ended up in a huge fight. And the law enforcement arrived and said, look, there's been a misunderstanding. It's just pretend sandwiches here. Give it back to the barman and we won't prosecute you for trying to eat your restaurant lunch. Wow. So funny. That's brilliant.
+
+[00:03:26] I love how much this backfired on John Raines, who put this law in place for the Sunday drinking for the fact that the sandwich itself, became known as the Raines sandwich. The fact that all these new establishments that opened up in order to use that loophole to their advantage were called Rain's Hotels. I mean, they really slapped this guy in the face with his own dickhead law.
+
+[00:03:49] And it was bad as well because not only did the number of hotels rocket, so Brooklyn went from having 13 actual hotels to having 800 hotels in six months, which is insane. But there were lots of beds nearby, obviously. it led to lots of casual sex and prostitution happening because you got really, really drunk not eating your sandwiches and there was a bedroom right upstairs. Yeah, they had to have a minimum of 10 rooms, didn't they?
+
+[00:04:15] Yeah. But they tended to be just tiny little boxes with a bed in there. Yeah. I just want to say for the people at home, because Andy is doing a really good job of saying it with his voice, but he is actually doing the imaginary quote marks every time he does, like, say, hotel or sandwich. I certainly am, James.
+
+[00:04:38] Do you think the rubber sandwiches is the origin of all American cheese today? Oh, sick burn on American cheese. There is still a kind of rain sandwich today, and it's been brought in this year in New York. This is really exciting new stuff. So it's because of the coronavirus. New York introduced rules about serving alcohol when you can get a proper drink, and it said you have to order food. There is a bar in Buffalo, New York, which has a food menu.
+
+[00:05:09] Sorry, hang on, let me just say that again, a food menu. There we are. It includes items like just a few grapes, nine French fries, and literally the smallest piece of cheesecake you'll ever see. And they all cost a dollar. And they're all technically food. And they're designed to get around safety legislation, which is really meant to be helping the situation.
+
+[00:05:31] Wait, what's the idea, sorry, with the safety? Is that so it'll only, so no one can share your food? I think it's because they don't want loads of people going to bars all the time, but they don't mind people going to restaurants a bit. I think that's the design. It's not because people sharing food is leading to the spread of the virus. Or it could be to stop the obesity crisis, if everyone's only eating the smallest piece of cheesecake you've ever seen.
+
+[00:05:58] Absolutely, getting one grape for dessert. But no one else is going to finger that one grape if that's all you've got. So, you know, it's a good, good for the German boobs. The bars in late 19th century New York sound pretty amazing. These places, there was one, apparently the earliest ones that were in the Bowery area of New York. They didn't have glasses. They just had a barrel of beer or booze, some kind of booze. And what you did is you would pay three cents and they would give you a rubber tube.
+
+[00:06:29] and for your three cents you're allowed to drink until you ran out of breath. Wow. Isn't that amazing? And so what people learn how to do is you know like some musicians can do this circular breathing, which means you can play notes for longer and longer. Some people learned how to do that so that they didn't have to breathe through their mouths. They could just breathe through their noses and they could just drink more and more and more. Wow.
+
+[00:06:52] That's so funny. You'd have to ban anyone who belong to an orchestra from entering your bar. see a bunch of guys with didgeridoo's turning up. No, absolutely not. Out you go. Out. Yeah, the Bowery sound amazing, right? Like, back in the 19th century, it was just packed with so many bars that went outdoor,
+
+[00:07:12] and it was largely men playing cards and drinking and having little meals and so on. And I've actually been to... I remember that in Gangs of New York. There's a whole scene where someone has a little meal, isn't there? I remember that. I love the fight. the tapas joy from going to New York.
+
+[00:07:32] Leonardo DiCaprio digs into a can of pain. I've been to the Bari. I don't know if you guys have that sort of area of New York. I've actually performed there. I did a performance as a drag queen. I had to create a drag queen character. I was called Danomite. Yeah, I was Danomite.
+
+[00:07:47] It came with that explosion sound. And there's still the remnants of this kind of awesome bohemianness about it, which I imagine what these 19th century bars must have been like. You know, this kind of wild, sort of outlawy kind of place. Can we go back to your drag career briefly? Yeah. And you have to do it. It's quite coquettish, that name, I think.
+
+[00:08:09] That old might. Oh, yeah. I was interviewing a famous drag act in America in New York. And as part of the interview, she, as Linda suggested, that I experienced it. So she made me come up with a character. She dressed me up. And then we did this big bingo night at the Bowery. And it was Danomite.
+
+[00:08:33] Was that part of the name, actually? Would that have been in your passport? It would have said, Danomite, and then open brackets, head explodes. No, no, it's explosion. It's not head explodes. It's just the way you did for people at home. Dan did the head exploding gesture. Yes, sorry, that is confusing for the listeners as well.
+
+[00:08:53] A lot of this show so far relied on some visuals that we're going to be nothing to anyone. You might have fit in quite nicely at Billy McGlory's Armory Hall, which was the hardest chorus of all the bars in New York in that time. So whenever you went there and got drunk, you would basically always get robbed.
+
+[00:09:15] That was just known that that would happen. And it would be by either the female regulars or Billy McGlory used to hire men dressed as women to go and rob people in the bar. So you would get, basically, you would get robbed, and then they would drag you from your table, a bouncer would drag you from the table, they would throw you out in the street, and then when you were outside, the bouncer would try and get anything else that was left on you. And then if there was anything left at all, the people walking past would get it. And then if you didn't have anything, they would steal your clothes.
+
+[00:09:47] So basically, you would just, oh, if you got drunk there, you would end up naked outside without your phone, without your wallet, without anything. Why do people go to this spot? What do they keep going to the pub? It was well known as being an extremely kind of rough place that locals would go and it was the people from out of town that would get the treatment. But a lot of people would go because there was like a balcony upstairs
+
+[00:10:09] because it kicked off so often in this pub that people would pay to sit in the balcony so they could watch the fights happening. Wow. Isn't that amazing? I was just looking at, I was looking a little bit at the Temperance Movement in Britain, which was also quite strong around these parts,
+
+[00:10:25] so America didn't have a monopoly on it. And this is throughout the 19th century, and William Gladstone, who was obviously Prime Minister multiple times, tried to temper people's alcohol consumption and drunkenness by encouraging people to sell wine and encouraging the wider consumption of wine, in fact. And it was because everyone was drinking spirits, and he thought that this would be encouraged
+
+[00:10:45] a more sophisticated sort of drinking, which we all know is always successful. But he also made it so, that food shops and grocers didn't need a license to sell alcohol, so they could all start selling alcohol. And again, this was to encourage people not to get so drunk, because he wanted to end what he called the unnatural divorce between food and alcohol. So the idea is that, you know, you either go to a bar or you go to a grocery shop. So people just, you know, get really drunk without eating. But the controversial thing about the grocers was that it meant that women would be
+
+[00:11:19] able to buy alcohol. So obviously, if you could only buy alcohol in bars, bit risque for a woman to go to a bar, definitely not on her own. But if they were going on a food shop, they could buy a bottle of wine. And there's paper written on it which said, obtaining alcohol from a licensed grocer is regarded as perfectly acceptable if women are using it for dining, cooking and entertaining. However, there are concerns that some women are purchasing alcohol for their own personal use.
+
+[00:11:44] Never. So extremely controversial. Wow. Just while we're on the Bowery, I do find one or two more good names of Bucson. bars that were in the Bowery in the late 19th century, there was the burnt rag, there was chick-trickers flea bag, and McGurk's suicide hall. Now, I can't work out exactly why McGurk's suicide hall was so named, but it was the first ever
+
+[00:12:08] bar to deploy an armed bouncer, and his name was... His name was, Eat Him Up, Jack McManus. It sounds like a wrestler, doesn't he? He does. He absolutely does. I think he basically was. He was repeatedly arrested for assault, And yet, every time it came to do an actual police lineup, people mysteriously had an attack of amnesia when they were asked to point out which absolutely thug is the one who beat you up. Some of the most famous bouncers around that time in New York were women.
+
+[00:12:35] Though there was one called Gallus Meg, and I'll read you this quote about her. It was her custom after she'd felled an upstrieperous customer with her club to clutch his ear between her teeth and drag him to the door amid the frenzy cheers of onlookers. though she would knock you out with a club and they'd grab your ear with her teeth and drag you by the ear with her teeth and then what would happen is if the victim tried to fight back
+
+[00:13:01] she would bite the ear off and then they would put it in a jar and they would keep all the ears behind the bar what? This didn't happen. I'm telling you this happened this happened because she had an enemy who was another female bouncer
+
+[00:13:15] known as Sadie the goat okay and Sadie the goat once had her ear bitten off by Galas Meg in 1869. And she had to leave the area in disgrace because she'd been kicked out of this bar and she'd lost the fight to Gallus Meg. And she walked down to the waterfront. And she saw a few people trying to kind of rob a boat and they were failing quite badly.
+
+[00:13:35] And she was like, okay, I'm going to help you guys out here. And she helped them to rob this boat. And then they decided to take over the boat, put a jolly Roger on the front of it and sail up and down the river, just stealing things from people and kidnapping people and becoming like pirates. And they did this for quite a few weeks until eventually the locals decided to get guns and stop them from doing it. And so once she'd done all that and finished all that, she went back to the bar where Gallus Meg was and kind of made up with her. And Gallus Meg gave her her ear back,
+
+[00:14:08] which she always wore her the locket around the neck for the rest of her life. Wow. So she labeled the jars of whose ear as well? I mean, because that's... If you're wearing an earring, you would know which one was yours, wouldn't you? There we go. I think I'd recognize my own ear in a jar of ears. Do you think you'd have to go to the bar and show them your other ear and say, have you got one that looks like this?
+
+[00:14:27] Yeah, exactly. Have you got a size, size age? They'd go into the back. I'm sorry, this is all we have left, that this was twice the size. It was a really big dude. Did you know they used to flavor drinks with dead rats during contemporance and prohibition?
+
+[00:14:49] Yeah. Oh, during Prohibition, what to put people off? No, to put people, to turn people on. Well, I know I turned on. Well, there you go. Bars had to come up, or speakey, he had to come up with such imaginative ways of simulating the taste of what had been legitimate alcohol
+
+[00:15:06] because they were getting all their alcohol from sort of petrol and, you know, these canstow fuel and, like, ink-used alcohol to make it. So you had to try and make that taste a bit like gin. And so apparently to simulate the flavor of bourbon, you added dead rats or rotten meat to moonshine and you let it sit for a few days. That's true.
+
+[00:15:28] Well, apparently so. Then you take it out. And similarly, to simulate scotch, you wanted a smoky flavor. And apparently there was creosote, which is like an antiseptic made from tar, and that would make it taste nice and smoky. Wow.
+
+[00:15:41] But the temperance movement is still going strong in the US in various states. I mean, like Utah, if you try and buy alcohol in Utah, it's not pill slog sometimes. I didn't know that Utah, until 2017, every single bar had to have not an iron curtain, but a Zion curtain. Are you familiar with this? I wasn't, but I saw this as well.
+
+[00:16:01] It's amazing, isn't it? It's crazy. So basically, it's a barrier has to be erected between customer and bartender so that no customers can see any of the drinks being poured or mixed. And the idea is that it protects young people and innocent people from the glamour of bartending and drink-piting. And so you just sit at a bar and you've got this big Perspect shield in your face all the time.
+
+[00:16:24] Yeah, it's always like frosted glass, isn't it? So you can't see them. Are you like, it looks like they're holding a rat. What is that? All they need to do to stop the glamour of bartending is just introduce Weatherspoons to Utah. No one will see the impossible glory of drinking them. Imagine if they filmed cocktail in Utah and they had Tom Cruise doing all these dances,
+
+[00:16:45] but you can't see it because there's a frosted screen in front of him. Do you think every time you order a Hendrix, they actually just chuck a Gordon's in? Because you're not going to know, are you? No. Yeah. I bet they never say, is Pepsi okay? But you are to get on. Okay, it is time for fact number two, and that is Anna.
+
+[00:17:11] My fact this week is that dead fish can swim upstream. Wow. On top. Absolutely insane. And this, I have to say thank you to someone called Robert T. healing, who sent me a link to this ages ago, and I came across it again. And basically, this was sort of discovered by mistake a few years ago when scientists at MIT and Harvard were looking at how trout cope when they're swimming upstream, but behind an obstacle. So imagine if
+
+[00:17:41] you're in the water and you've got a rounded obstacle in front of you, that deflects some of the current. So it goes around the sides of you. So it's a bit easier if you're swimming behind. Like a slip stream kind of thing. A bit like a slip stream. Yeah, exactly. And so they were looking at like putting live trout in the water and seeing how that worked. And then according to this article, they unintentionally, that's those quote marks again, they unintentionally put a dead trout in the water behind this rounded objects. And they were completely amazed to see it swam upstream. So it swam towards this obstacle, but properly sort of like swimming, like you would see a fish swim.
+
+[00:18:16] And then eventually it would get really, really close. And then you're in sort of a suction region, which really is like a slip stream, where it got sucked into the obstacle, bounced back and landed back where it started and swam towards it again. Yeah. And just kept doing this. There's a video online.
+
+[00:18:30] You can see of it, right? It's pretty amazing. It's basically like a zombie, zombie fish, really. It's pretty mad that that's actually dead. Isn't it the case, though, that, so if you were, say, by a river bed and there was a fish swimming upstream, most likely it is alive because it's... I think that is true, yeah. I read that as well.
+
+[00:18:52] Most fish in the sea swimming are alive, yeah. Just to... It's important not to let this kind of misinformation get out without correcting... You don't want people going down to the river with their friends and family just going. See that fish that's swimming? Dead. Do that one? Probably dead as well.
+
+[00:19:10] No, something is a live fish, turns out. Yeah. But also, the circumstances, like, they were saying that when they put the dead trout in, it happened to land in the sweetest of sweet spots that if it was in any other conditions, that never would have happened. So again, you just wouldn't probably see that in nature ever, really. Well, I think you might do a bit.
+
+[00:19:32] So the way it works is some very complicated fluid dynamics, but I think very simplified, when you've got kind of a rounded object in water and you've got a current going past it, as the current goes past it, it generates these little vortexes of water. and what seems to be happening is that this pattern of spiraling vortexes makes the fish spine move in a specific way that sort of propels it.
+
+[00:19:56] So fish are very flexible spines. And these vortexes sort of give energy to the fish. The fish takes energy from the vortexes and then swims upstream. But yeah, you do have to be in a particular place. And fish, yeah, there aren't loads of dead fish jumping upstream to source. But it does mean that a fish could swim with no effort, doesn't it? As in a fish could not use it. its muscles are tall, and it would still, if it was in this right spot, get upstream, which is pretty
+
+[00:20:21] cool. And so it's incredibly useful to fish this phenomenon because, yeah, they'll, and they're incredibly sensitive, so they can tell the movement of water behind certain rocks, so they'll sort of sense the vortexes that are behind a rock, and then they can swim towards that rock, and that will mean that they have to expend much less energy because the rock just sort of sucks them towards it. It's very useful. One thing in looking into this fact that I never realized, and probably you three did know this, but so a fish swims, as we all know,
+
+[00:20:49] I'm doing it with my hands here, but in the sort of fishy motion, right? It's sort of... You've explained it perfectly, yeah. So its spine allows for it, from its head to its tail, it's a sort of landscape. Yeah, it's like landscape mode. But for mammals... It's not in portrait mode.
+
+[00:21:08] What? Seahorses are in portrait mode. Seahorses are portraits in fish in landscape. Yeah. We're finding it very hot. to describe this. The spines go along, whereas for mammals, so dolphins and so on,
+
+[00:21:22] the spines go like our spine, so they move up and down as opposed to left to right, as it were. Your spine on a dolphin goes along the very top of the dolphin, right? Whereas in the fish, it goes right through the middle of the fish. Is that what you're saying? Exactly, and that's the distinction between
+
+[00:21:38] what is a fish and what is a mammal in the ocean. And I'd never realize that before, and that's why their fins are positioned differently as well on their body. Yeah, that's very cool. So fish wouldn't be able to do butterfly stroke, for instance, would they? Is butterfly the fastest or is it the slowest? I can't remember.
+
+[00:21:54] Got to be the slowest. It's not the fastest. Pressstroke is probably the slowest. I think it's in between and me. It's neither. It is fast, but it's not as fast as front crawl, for instance. Okay. I was reading about Michael Phelps' top speed is why.
+
+[00:22:08] There is method here. You've sort of said an incorrect fact that wouldn't have even been that interesting if it were correct. It's going to bring him onto this very interesting fact that he's about saying about Michael Phelps. Front-loading pressure onto my fact before I've said that, thank you. Sorry, please. Go on. I was just kind of amazed at how crap at swimming we are relative to fish, because the fastest fish swim at about 70 miles an hour. The fastest submarines don't even do that much,
+
+[00:22:39] and some of them in nuclear power, they go at about 50 miles an hour, absolute top speed. Michael Phelps, maybe the greatest swimmer of all. all time can do about 4.7 miles an hour, and he can do that for 100 meters, and then he has to stop. Andy, you're saying top speed of a fish was what for that? I said 70 miles an hour. 70 miles an hour. And that's, yeah, so the... The very fastest ones, obviously.
+
+[00:23:01] Yeah, exactly. There's a few amazing fast ones, so swordfish and sailfish and so on. I was looking at a list of the fastest fish. My favorite one, just for its name, because of its speed. And I don't know if the name is tied in with the speed, but it's called the Wahoo! It just W-A-H-O Okay, yeah
+
+[00:23:20] It has to be right, it has to be the just like Woo-hoo! It's just having Is it particularly fast? Yeah, yeah, it's it goes just under a few miles an hour under the fastest speed of fish. Have you ever seen a fish treadmill? Oh, God.
+
+[00:23:36] Like almost every week, whenever animal we're discussing, they seem to go on a treadmill, don't they? Well, I'm starting to feel a little bit self-conscious that I don't go on treadmills because every other animal of the Animal Kingdom seems to. I think whenever we discuss an animal on this podcast, we shouldn't mention if it's been on a treadmill, but we should always mention if it hasn't. That's the interesting fact at this point. Ants have never been on treadmills. That's a good point.
+
+[00:24:02] Go on what are they doing on treadmills? Well, obviously it's not a rubber treadmill, as we would understand it. But it's for scientists to experiment on how fish propel themselves. So they have to get a, you know, a tank with a current flowing in one direction. And they then put plastic particles in the water, and they record where they go as the fish swims. So you can kind of see how the fish is thrusting. So you can see the directions that all the water is moving in as well. So it's like one of those things in a water park where you sit on a rubber ring and it just takes you slowly around the water park, like that kind of thing.
+
+[00:24:34] Like a lazy river. Yes, but except in this version of the water park, you are having to resist the flow of the current to keep yourself in the same place for hours on end. Okay, but that's when you're on those things. If you don't have a rubber ring, the best thing is to try and beat the currents, isn't it? You're really trying to swim as fast as you can against the current. And then normal people on the rubber rings are going,
+
+[00:24:55] what the fuck are you doing? This is a rubber ring thing. They're like, no, I'm having fun. Aren't you being clogged by people in rubber rings coming past you? Yeah, that's the problem, actually. This is why you're not allowed to go to slide and splash anymore, James. That's the reason. So many reasons.
+
+[00:25:11] And so they've just found a load of new fish that can actually walk on land. I think we've always known the one or two of these. They've just looked at a bunch of fish and looked at like the way their pelvic bones are. And they've worked out that there's at least 11 species of fish that definitely can walk on land. So cool. Yeah. They're not good at walking though, are they? They're not.
+
+[00:25:35] Like when you see a seal on the sand sort of flapping its fins around. Well, I think that's the thing. I think why that Andy was a little bit unfair about Michael Phelps, because, you know, it's not like fish are able to run as quickly as us, so why are we expected to be able to swim as fast as then? There should be a competition which is to work out the species on Earth, which is least crap at everything. The best all-rounder.
+
+[00:26:01] Best all-rounder, exactly. It must be a kind of bird, right? Because nothing else can fly. Or actually a flying fish. A flying fish. Oh, come on, it's not flying. It's just sort of jumping quite high. Are they quite good?
+
+[00:26:16] They put flying fish in a, what they call it, a wind tunnel quite recently. Some scientists. It was a dead one, but they filled it with stuff to make it like as sturdy as an alive one. And they found out that it's the way that it glides is actually almost as good as some of the best gliders in the avian kingdom. There we go. There we go.
+
+[00:26:37] That's a strong contender. They can fly. They can swim when they're dead. This is a very strong contender. There must be a bird which can swim really pretty well. I was thinking ducks. I mean, they're pretty shit at everything, aren't they? They're shit at walking.
+
+[00:26:51] They're shit at swimming. And they're not great at flying. But they can do them all of them. Yeah. I think actually the duck is a very strong contender for this incredibly boring. Well, it felt, you know, Phelps will probably win the sprinting, actually. Phelps is going to be the human rep for the thing. I'm just sort of filling him in.
+
+[00:27:12] Because if you think about it, the triathlon, which is swimming, running, and cycling, the cycling bit is a bit of a fake, I mean, it's a fake spot, isn't it? We invented the bicycle. It's not natural. It should be swimming, running, and flying the triathlon. Although it would be fun to put a trout on a bicycle and see how it fared in a triathlon. The British government has its own fish farm, which I didn't know, and it breeds. tons and tons of fish every year just to fill up ponds around the place. It's really cool. Why do they fill up? Well, there are all these sort of bodies of water which, you know, I don't know, cow ponds or whatever.
+
+[00:27:51] For fishes? For fish people? It's partly for fishermen, but it's also partly, I think, for general health and to keep species in Good Nick. But it's called the National Course Fish Farm. And last year, they produced 12.3 tons of fish to put in rivers and ponds. they released 7.6 million fish. And they're just sending bags around the country of fish and buckets of fish, and then you get to release hundreds and hundreds of them into a river. It looks really fun.
+
+[00:28:18] And they do fish rescue as well, because sometimes the hot weather will cause rivers to flow very low or oxygen levels will drop. And this can be fatal to fish, which need certain levels of oxygen in the water. So they have to go, and they either relocate the fish or they pump oxygen into the water. the water in these places.
+
+[00:28:38] Really? I know. I want to find out more about these people because this sounds like a really cool government body to you know, fish rescue. The government gets a lot of stick these days, but no one's no one's saying about how they're pumping oxygen into water. Right. No one talks about the National
+
+[00:28:54] Course fish farm and I think it's a damn shame. Is that how fish get at lakes? Because I've always wondered. Because I mean, how do they get there? You see a lake and it's a relatively new one. It's only been around for a few hundred years. It's full of fish. What the fuck's done. I mean, it hasn't walked, because we've discussed that they are quite bad at walking, even if they can do it a bit. Mental.
+
+[00:29:12] You get a tarn up in the lake district. I guess. But lakes which don't have a, you know, lakes which don't have any waterways moving into them. Yeah. Maybe it's the National Course Fish Rearing Unit. That's what it is. Could be God. Although, you know, like, what is God if it's not really in some ways, the Fish God is the National Course River Lake Fish thing? Well, we've built up this government body. I don't know if it's also godlike.
+
+[00:29:41] Salmon and trout, very good at swimming upstream. Kind of us discussed, but they have to be, right? This is why this is so useful, this fact that they can even do it when they're dead, because they swim all the way back upstream to spawn in their place of birth. And they actually do that by smelling. So they have stored in their brain the smell of their home. So where they're born, they swim all the way downstream. And they retain it.
+
+[00:30:02] And then when they get to breeding stage, something was triggered in their brain, which makes them desperately want to return to that smell. Oh, my God. So does that mean? It's like as if you could smell where you were conceived and you go back to the place where you were conceived. Is that what that is? Yeah.
+
+[00:30:19] And one day you'll start lusting after that, James, crawling your way back to the hospital in Bolton. Oh, God. It was James conceived in a hospital? Yeah, that was it. Yeah. It was inappropriate that they were doing that there. Sorry.
+
+[00:30:36] But they do it by, they sort of, if they go too far upstream, they lose the smell and they have to go back downstream, pick up the smell again, and then try and... It's like that game, sort of warmer, warmer, colder,
+
+[00:30:49] you know, they... And then eventually the smell is strong enough that you find exactly the tributary off the main river. But they also need... This is one of the big arguments against reintroduction of beavers. You know, that's the latest
+
+[00:31:01] great controversy in this country. And beavers obviously make down. actually at the moment. I would say beavers first, COVID second, Brexit third. Yeah. How much oxygen is part in the water far. Got to bump that up. So beavers make dams, and so then salmon have to jump over those dams.
+
+[00:31:20] And I didn't realize there's an exact equation for how deep the plunge pool in front of a dam has to be for a salmon to make it over the height of it. So you need a sort of a run-up, just like you do with anything. They need a run-up from a great depth to prepare. pelt themselves out with the water and over it. And it needs to be exactly 1.25 or more, 1.25 times the height of the dam. That's how deep it has to be.
+
+[00:31:44] And yeah, at the moment, they're sort of thinking reintroducing beavers in chalk streams where the plunge pools won't be that deep. And we'll just have lots of sort of dead salmon, I suppose. Caught in the dams, yeah, yeah. Caught in the dam. How will we know that they're dead? Because they're still swimming. That's no way to tell.
+
+[00:31:59] I think salmons might be as good at flying as ducks are at swimming. Well, what's that sport at the Olympics where you have to jump over the bars as you go down the 100 meters? Hurdles. Hurdles. If they've got this dam jumping all sorted. Yeah, really good at hurdles in water. Are they going along a dry track, Dan? Or are they in water with hurdles?
+
+[00:32:18] In the steeple chase, they have one water jump, which they would absolutely nail. But all of the other ones, they would really struggle. My team's going to suck at this Olympics. He's entered the salmon into the salmon into the... the hurdles? Dan's team of the Animal Kingdom walking round after all of the different countries have gone past. Dan's there with the Animal Kingdom flag
+
+[00:32:40] with a trout flopping along beyond. Well, at least they can train on all those treadmills before they get there. That's true. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that when the Berlin Wall fell,
+
+[00:33:04] one of the results was an 18 million car traffic jam. It's crazy. 18 million? Oh, my days. That is a lot. How many cars were there in Germany? Did everyone in Germany get in their cars and say,
+
+[00:33:19] we've got to go and see this no longer existing wall? Everyone in East Germany pretty much did do that. So I read an interview with some people who were in East Germany at the time, and they said that, like everyone else, as soon as the wall fell, they got in their car, and they decided that they were going to go to Berlin. They said that the car radio traffic police told them, whatever you are planning,
+
+[00:33:42] do not try to drive to Berlin and the border. There are a million cars on the road. You will never make it. People did sort of, they just wanted to go and check it out, didn't they? So it wasn't just people in East Berlin, just desperate to get to West Berlin, or vice versa.
+
+[00:33:56] People were desperate to go. With one exception, no, with lots of exceptions, but one famous exception. So Angela Merkel was having a sauna when the wall came down. Really? Yeah. She said, she knew it was going to happen.
+
+[00:34:10] She said the atmosphere had been very tense for days. I thought something was going to happen. It heard the announcement, the borders were open. You know, wool was coming down. But it was Thursday, and Thursday's my sauna day. So that's where I went. That is iron commitment to the sauna. That's incredible.
+
+[00:34:25] Wow. Wow. Dan, don't you own a bit of the Berlin Wall? I do. Yeah, I think. I definitely have a bit of a Berlin Wall. I can confirm it's from the Berlin Wall. You own a small piece of concrete. Yeah. Yeah.
+
+[00:34:37] Yeah, James and I, when we were touring fish in Berlin, we went to see the wall. So it's really interesting what is and isn't a bit of the war, because it turns out there's one man who's basically corned the market. Really? Yeah, he's called Volka Pavlovsky. I think he was East German, and when the wall came down, he collected about 300 meters of it. Well, mine's definitely fake then, Andy, because a woman sold me mine.
+
+[00:35:02] Okay, he doesn't sell every individual pebble, But he, basically, you can tell. So if it's fake, you can crumble it with your fingers because of the particular concrete they used, I think. But he does, he has admitted Pavlovsky, he spray paints the bits he sells, which are authentic, and he has sold three tons of them. And he says it matches the,
+
+[00:35:24] he wants it to match the graffiti that was on the western side of the wall. And he says, packaging is everything, Pavlovsky. So he's patented his own method of attaching the burn and wall a bit of it to a plastic globe and putting it in a postcard. So, Dan, did you get that? Was it? It's on a plastic hold, and mine is graffitied to sort of multiple colors. So it sounds like you've got a sort of original bit of slightly retouched, but basically, yeah.
+
+[00:35:47] Danz actually says, I love one direction in the graffiti. When the Valley Mall fell, there was a lot of problems, like, for the people in East Germany, because everyone kind of thinks of it as, okay, they were living in some, you know, terrible place, and it was opened up, and then suddenly they got all the advantages of the West, which kind of was true, but the problem is they weren't used to that. And so all of their culture was suddenly taken over by this kind of European, Western European culture. And a lot of the East Germans felt really overwhelmed, like massively overwhelmed.
+
+[00:36:20] So they didn't know how to pronounce the food in McDonald's. They didn't know how supermarket trolleys worked. They felt like this was their country, but they didn't know how to live in it. I mean, no one knows how supermarket trolleys work. Just spin round and round on the spot. And then you crush it into someone. Physics can't explain it. No one told them that you weren't supposed to know how they work.
+
+[00:36:41] Oh, no. So sad. I know. And so what happened was they kind of, the people in West Germany thought the East Germans were quite ungrateful because they were getting a lot of money and a lot of aid from the West, but they were kind of not really loving it very much. And so the West Germans called the East Germans Yamorossis, meaning moaning Easterners. Oh, wow. They just were like, oh, these guys are moaning.
+
+[00:37:07] And the East Germans, called the West Germans Bessa Vises, meaning no it all westerners. And so there was like, basically, it took a lot of time for it all to become homogenized so that everyone kind of knew what was going on. Yeah. I found that really interesting, really. It is really interesting. But, yeah, traffic jams. They're fun, aren't they?
+
+[00:37:24] Hmm. Yeah. Not really. There's one in Indonesia that's quite famous. It's kind of not so bad now because they fixed the road. but it was on one of the main motorways and it was the exit for the city of Brebis and so locals called it the Brexit
+
+[00:37:40] and apparently this is where they had the worst traffic in the whole of Indonesia over the last few years. Wait, was it called the Brexit before we had a Brexit? I think it was named after that. I think they saw that the English Brexit thought, oh, we can name our massive traffic jam after that. Our catastrophic pilot when no one knows where they're going or what they're doing.
+
+[00:38:01] Oh, great. So nice to know we're still influencing global culture. There was a traffic jam in the Dartford Tunnel in 2006, where a lorry driver hit a ventilation fan because he wasn't in the right part of the lane. And that is known by motoring organizations as the Pratt. They always... What do you mean?
+
+[00:38:22] The move? No, it's like a really famous old traffic jam. And whenever you're talking, whenever you're reminiscing about the olden days and the traffic jams and one of the worst ones that they ever had in London was this one and it's known as the Pratt. Why didn't they call it the shit? Because that would have been the shit hitting the fan.
+
+[00:38:38] You're so right. They needed you. On branding. It's all about branding. I think my favourite traffic jam that I've read of and it feels like this is it feels potentially apocryphal but in August of 1991 there was a two mile traffic jam at the entrance of the Dartford Tunnel and it was caused
+
+[00:38:56] because drivers weren't unable to go on due to laughter. And what had happened was People had heard Andy's joke about the shit hitting the fan in the darkened tunnel. So August 1991, there was a cricket match on, and Ian Botham had leapt over the wickets, and he caught the bales, and they went off, and he was out. And it led to Jonathan Agnew, Agers, saying what has become one of the great cricket commentary moments of he couldn't get his leg over. He didn't quite get his leg over, was the line.
+
+[00:39:30] and to begin with, there's no laughter, but the two of the commentators just start pissing themselves really hard. I listened to it the other day, and you do laugh, you laugh a lot when you listen to it as well. So supposedly, around the country, people were finding it so funny
+
+[00:39:44] that they had to pull over in their cars, they had to stop. And at the Dartford Tunnel, this guy was unable to pay the toll because he just couldn't stop laughing at this thing, and it ended up with a two-mile-long traffic jam. Is that why they've now taken away the toll barriced? in the Dartford Tunnel and replace them with nothing
+
+[00:40:02] so you don't know there's any dart charge until you're hit with a fine two weeks later. Wow. I think the podcast's getting a personal... I brought my personal life... And I was a horrible legal history episode has entered. Just a funny cricket anecdote suddenly turned into a political... I mean, there are lots of signs everywhere telling you how to pay it, but yeah.
+
+[00:40:23] Okay, we are going to have this debate later. There are not. Anyway, good story about cricket, Dan, because I've been waiting to get this complaint about the Dartford tunnel in for like two minutes. And finally, I've had the chance. For international listeners, by the way, the Lego thing is sexual innuendo in Britain. And cricket is a game between two teams of 11 players.
+
+[00:40:45] Yeah. And Dartford is a place where Anna shall not be visiting a game, unless they sort themselves out. Okay, it's time for our final fact of the show, and that is my fact. My fact this week is that there is a stone marker in Wisconsin that commemorates the spot where Elvis Presley once successfully stopped a fight by jumping out of his limo, pulling some karate moves,
+
+[00:41:11] and threatening to kick everyone's ass. So it's this beautiful little marker. It's on the corner of Highway 51 in East Washington Avenue, and this happened on June the 24th, 1977 at about 1 a.m. He was riding in one of the two limousines that he and his posse travel in, and they saw these guys just fighting on the outside, and Elvis is a, I believe he was 8th Dan Black Belt karate student, who, so he knew his moves, he loved karate,
+
+[00:41:43] and he thought, I want to stop this fight, but he wanted to stop it by fighting them himself. So he jumped out, and he engaged all the people in the fight with a sentence saying, I'll take you on, and then showed some karate moves. They all recognized that it was him and thought, oh, my God, it's our chance to meet Elvis, so they stopped fighting and came over and said hi.
+
+[00:42:01] And this was, you know, 52 days later, he died, Elvis, unfortunately. Not connected to this, though. Not connected to this, no. He wasn't, yeah, he wasn't chased down. He didn't die after 52 days of constant fighting. There was really a top-up, isn't it, between whether the fight was stopped by him pulling his awesome karate moves or the fact that he was Elvis Presley.
+
+[00:42:26] It's definitely that he was Elvis. It's definitely that he was Elvis. But, yeah, I mean, he was, He was mad into karate. A lot of people think that that side of Elvis was token kind of, oh, let's give him black belts because he's shown up for one lesson, sort of honorary stuff. He was really dedicated to do it.
+
+[00:42:43] He started it when he was stationed in the war in Germany, and that was 1958, and it was his obsession all the way through to his death. It got to the point where he was actually training kids to learn karate as well. So he became a karate instructor himself. Look, all you have to do kids is become Elvis Presley, and you will win any fight. So this stone marker, it was put up on the 30-year anniversary
+
+[00:43:10] of this historic event. And when they put it up, the local TV station reenacted the fight as part of the ceremony. That's pretty cool. And it was outside a gas station, which they hoped using this marker might bring some custom,
+
+[00:43:28] but it closed and demolished about two years later. Oh, that is sad. It didn't really work, yeah. Yeah. Not a perfect ending. He loved defending himself with guns, though. We should say, as well as, like in karate, Elvis was also a gun maniac. He would carry up to three guns on him at all times.
+
+[00:43:45] So there were one or two shows where a handgun would just fall out of his boot on stage. And I think he was very worried about his safety because, you know, a lot of guns in America. And he would have been a big target. So I think he carried the gun on stage. for that reason. But obviously the idea that he would ever get the chance to use it successfully
+
+[00:44:06] during a show or to return fire if he was being shot at would have been a very foolish thing to do. Although is that why he sung don't step on my blue suede shoes because that's a genuine warning, presumably.
+
+[00:44:18] I've got a like gun in there. He turned up at the White House once wanting to meet Richard Nixon, didn't he? And in fact, there's a famous photo of their meeting because it was obviously a huge encounter. I think the photo was something like the most requested from whichever institution's storing it. Something like the National Library of Congress, which is Elvis and Nixon standing next to each other.
+
+[00:44:40] It's the most requested they've ever had in their archives. But he wanted a drug enforcement badge from the Bureau of Narcotics and Dangerous Drugs. According to his daughter, it's because he believed that if he had the badge, he could turn up in any country both wearing guns and carrying drugs, and that would be fine. he turned up with a gun to give Richard Nixon and he had to be kind of gently told we don't really let people just come along and say even if they're Elvis,
+
+[00:45:06] even if they're Elvis, we let people with guns just walk up to the president and say, I've got this for you. When he was in that fight, he was wearing a DEA kind of track suit. That's how much he loved the drug enforcement agency. He like cosplayed them all the time. Wow, you're kidding.
+
+[00:45:23] Yeah, no, honestly, yeah. It's honestly like, I can't think of an equivalent. Stormsy wanting to work for the home office. I'm just wearing a suit and a free case. Some stuff on plaques. Oh, yeah. And stuff and markers. The blue plaque, so we have blue plaques all over London,
+
+[00:45:42] and you get them all over the world, I think. They were conceived in 1863 by a guy called William Ewart. And he himself has a blue plaque, which is quite nice. It's on Hampton Library, and it says... John Beard Singer and William Ewitt's promoter of public... Sorry, John Beard, singer, and William Uitt's promoter of public libraries lived here. So he has to share it with another guy who lived in the place at the same time. I read about that.
+
+[00:46:09] I thought that was rubbish for poor William Uwitt. They should say, William Uwitt invented this thing. Yeah. Or whatever. Yeah. Put it slightly better than that. Maybe he'll get a second one. They want to put it in the spot where he had the idea for the blue plaques, as they often do.
+
+[00:46:24] It was here that they had the idea. Yeah. It's here where penicillin was first, you know, that kind of stuff. Yeah. Well, they've taken a long time. If that's their plan, it has taken them a while. They still haven't quite got around to it. Have you heard of Sydney Lewis?
+
+[00:46:36] He's got a blue plaque, and he is not very well known. So I also read through just this big long list of people with plaques. Sydney Lewis was the youngest British soldier in the First World War. Guess how old he was when he signed up? 40. 12. He was 12. He was four.
+
+[00:46:53] Dan. He was three, five. year olds in a large trench car. They passed for 12, which happily, you could get into the war at 12. Four years old. No, he signed a page 12. He fought for six weeks at the Somme. Pretty serious stuff. He got sent home after his mum sent a copy of his birth certificate to the war office and said, that is my 12-year-old son fighting in the war. Please send him home. Pretty embarrassing for Sydney. Anyway, he then rejoined in 1918 while the war was still going on. As far as I can tell,
+
+[00:47:26] He cannot have been older than 15 the second time he signed up for the First World War. Yeah, by this stage he has experience as well, though, doesn't he? Yeah, that's true. That's what he's doing. Mind you, they all ripped into him. They were like, well, you're the guy whose mom came and picked him up in the trenches, that was right? Anyway, he then was in the Second World War in bomb disposal, and then he owned a pub. What a life.
+
+[00:47:50] What age did he own the pub? 15. Yeah. Are you guys familiar with the website Plaques to the Future? No. This is, there's a woman in Philadelphia who set it up. And the essence behind it is that to get a blue plaque, it's actually quite difficult. You have to jump through quite a lot of hoops to prove that it's necessary and you're famous enough.
+
+[00:48:15] And so she has designed these waterproof blue stickers, which look almost exactly like blue plaques. But if you go to the website, plaque to the future, you can just write your own memory and say where you want it put. And you'll appear as a blue plaque. And so in Philadelphia, there's, for instance, you've got a blue plaque on a telephone pole. And the inscription reads, Derek B was walking along Dickinson Street on July 2017 when he saw a woman open her door, overhand throw a two-thirds eaten hot dog into this telephone pole and close her door again. Derek has so many questions. That's great. That's great black. There's another one. I find this one really questionable.
+
+[00:48:58] So this one is in a park, and the headline is, ex-girlfriend spotted. Pt M saw his ex-girlfriend here. He felt weird about it. She felt weird about it. He asked her about her jewelry business, and it was obvious he didn't really care.
+
+[00:49:12] He now avoids this intersection. Now, that's a slam, because it's Petey who's put the blue plaque there. Do you know that for sure? Yes, because it says he avoids this intersection. How did you know, but she might hang around the intersection all the time. That's the only reason she knows that he avoids. boys it these days. It might be written from her point of view and she was saying he clearly didn't
+
+[00:49:31] care about my jewellery business. Well, but then the headline is ex-girlfriend spotted. But you're right, maybe she was writing sort of from his perspective, but... It could have been one really nosy dog walker who was kind of walking past both of them and heard this story happening. That's a very good point. That's a really good point. Yeah. There's a cool one in the 70s. A plaque was laid down in a rail station in Castle in Germany. And it had on it, on the 23rd of March, 1994, from 3 to 4 p.m., Dita Mayer will stand on this plaque. And this was set down by this artist.
+
+[00:50:04] And he was a Swiss musician and artist. And so this was 1972. And all those years later, 22 years later, there he was standing on the plaque from 3 to 4 p.m. Just as part of this, yeah, artistic installation. It was the artist who... Yeah, it was the guy... predicting someone else would turn up and stand on.
+
+[00:50:23] No, no, no. I mean, that would have been way cooler. But so did a load of people kind of turn up, like probably hundreds of thousands of people were there to see this momentous thing happening? Or did one or two losers kind of... I can't believe I missed it. I know.
+
+[00:50:39] You had to get tickets so fast. That would be a hard thing to just to remember to do. If I said, I'll do something in 22 years. Like, he must have felt... He must have had to buy a diary for 22 years from now. I don't know how far in advance they'd pretty... I think if you'd gone to the effort of printing a plaque, cementing it to the ground at a specific train station, it's probably going to stick in your head a bit more than just saying it out loud.
+
+[00:51:03] Do you reckon whenever he was, someone said, oh, I've got a party coming up soon? And he's like, oh, can I just check, it's not in 20 years, six months and three days, because I have this thing I really can't do. And then what if, like, that week he got given jury duty or something like that, that was too awkward, couldn't it? Yeah. What do you do? Can you get out of jury duty with that excuse?
+
+[00:51:22] Because there are some loopholes, you know, if you're a doctor or a line. I don't know if it can be I've got to stand on my own plaque thing. I don't know if that passes. I mean, there are lots of, like, if you're building up to that for 22 years, which I imagine he was, because he probably didn't have much else on, then the couple of weeks before that is quite high stakes, isn't it? Yeah, that is high stakes, yeah.
+
+[00:51:43] Like, he must have just stayed in the house for that whole time in case something happened. God, if you were his friend, wouldn't you? book your wedding or something for that day, or just really test him. Speaking of famous people who do martial arts and commemorations thereon,
+
+[00:52:03] the first sentence. The first ever statue of Bruce Lee was in Mostar in Bosnia, and he was chosen because he was the only person that all the country's Serbs, Croats and Bosniaks all liked. So they just couldn't decide on anyone else to put. But they thought, Bruce Lee, we all like him.
+
+[00:52:24] He can go in our place. And it was put up on November 26, 2005, one day before the famous statue in Hong Kong went up, which I don't know. Really? Yeah, I don't know. They must have heard that this one in Hong Kong was happening on Bruce Lee's birthday and thought we'd better get in there one day earlier.
+
+[00:52:43] And they said, oh, the one thing we all have in common is Bruce Lee, and then they did that. but then both the Bosnians and the Croats complained about it because he was doing like a karate move but he was doing it in the direction of the area where all those people lived and they thought that it was an active aggression by the Serbs that they were making Bruce Lee
+
+[00:53:01] kind of fight in their direction. So they should put it on a rotating base. That's a really good idea. That's a great idea. I might put that forward actually. Was Bruce Lee alive to see that happened? No. No, no, he was dead. I don't know when he died. Yeah, it would have been here.
+
+[00:53:17] his 65th birthday, but he died probably... He died in the 80s, I think. Oh, did he? Okay, okay. 173, he died, sorry, I should just out by about 30 years. Okay, cool. Richard Nixon has a plaque on the moon. Does he? Yeah. In fact, it's also got Neil Armstrong, Buzz Aldrin,
+
+[00:53:39] and Michael Collins? Yeah, Michael Collins. But also it has Nixon, because it was the first moon landing, So there's a plaque which says, Here, Men from the Planet Earth first set foot upon the moon, and Nixon's signature is on there as well. And it's such a cheat.
+
+[00:53:54] Wait a minute, that's a trick, isn't it? I mean, it's bad enough. If you say, here are some people on Earth went on the moon, one of them is Michael Collins. Well, first of all, it wasn't. He was just in the kind of space capsule. But Nixon never even left the Earth. How does he get on there?
+
+[00:54:08] Nixon never went to the moon. I know. It's unfair. And also, well, not only is it a cheat because he didn't go to the moon, but he had only been president for about six months. I mean, it was complete, you know, he wasn't really a major movement of the space program.
+
+[00:54:21] He was still the president of the United... How long do you have to serve before he was eligible in your mind to be on the plaque? That was all set up by Kennedy. Kennedy, yeah. Yeah, yeah. The more I hear about this Richard Nixon.
+
+[00:54:36] Yeah, it would be like if you sack me from the podcast and got Richard Nixon on to do it instead, and then you won a major award, I would feel pretty Miff because I feel... I feel like I had done more of the spade work than Nixon. Yeah. You have. Thank you, James.
+
+[00:54:53] And shame on you, Dan and Anna, for not fessing up soon. I was trying to work out on what level that analogy function. Although, actually, when we went to Washington, we stayed in the Watergate Hotel, which was made famous by Nixon. And that actually added quite a lot to my experience of that. So he did do quite a lot of the podcast, I kind of feel. It's 50-50 between Richard and Andy, isn't it? Yeah, okay.
+
+[00:55:15] I wonder what analogy Nixon would have come up with. Probably a better one. Can you imagine? If only. I've got a slightly weird one, but it's one of those weird ones where I don't know if it make it into the show. I'll say it. Stop me if you think it's... I won't stop you, that I'll be rude. So, in 2002...
+
+[00:55:37] No, 2002, no way. Stop. Bruce Lee wasn't even alive, then. 2002 James Earl Jones was invited to Lauder Hill, Florida to be the keynote speaker from Martin Luther King Day and in order to commemorate it, they made a plaque that said, you know, James Earl Jones, thank you for keeping the dream alive.
+
+[00:56:04] Unfortunately, at the place where they were making the plaque, they got it wrong. And what the plaque ended up saying was not James Earl Jones, Thank you for keeping the dream alive. But it instead said James Earl Ray, the man who assassinated Martin Luther King. So they managed to catch this just before it was unveiled, but the story went around. And the company that designed the plaque tried to come up with all these excuses. They said that a lot of people working on it didn't speak English.
+
+[00:56:32] So there must have been a miscommunication. They also said that there was a plaque designed just before that one that was made out to Ray Johnson, and they think the Ray somehow made it onto the next template when they were doing the James Earl Jones one. But yeah, wow, what a mess up. Someone's typed into Google, Martin Luce the King, James Earl, and they've seen Ray and they thought, it must be this one, lest.
+
+[00:56:56] Damn, you all to correct. That's amazing. Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us, about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, Andy, at Andrew Hunter M, James, at James Harkin,
+
+[00:57:19] and Anna. You can email podcast at QI.com. Yep, where you can go to our group account at No Such Thing or our website. No Such Thing isafish.com. All of our previous episodes are up there, as well as links to bits of merchandise that we've released over the years. So that's it. We'll see you again next week, guys.
+
+[00:57:35] Have a good week. Goodbye. Just one last thing, one tiny last thing, quick update. 2017 scientists put an ant on a treadmill, so sorry, Anna. Oh, damn it.

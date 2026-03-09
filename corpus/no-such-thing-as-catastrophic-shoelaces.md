@@ -1,0 +1,311 @@
+# No Such Thing As A Fish - No Such Thing As Catastrophic Shoelaces
+
+- Episode date: April 28, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-catastrophic-shoelaces
+- Slug: no-such-thing-as-catastrophic-shoelaces
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I am sitting here with Anna Chazinski, Andrew Hunter-Murie and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days and in a particular order, here we go. Starting with you, Anna Chisinski. My fact this week is that the largest diamond ever found in Russia is called the 26th Congress of the Communist Party of the Soviet Union. That's its name. Catchy.
+
+[00:00:50] That's its catchy, shiny name. It's called this because it was mined in 1980, and the 26th Congress of the Communist Party opened in 1981 in February 1981. So I think the diamond was actually named before the Congress happened. So the Congress was this big meeting of all the Soviet delegates all important. So was it a complete coincidence? Do they think, oh, what should we call our meeting? Let's name it after that lovely big diamond we found last year.
+
+[00:01:10] What was that called? Yeah, it was that. Let's quickly have 25, small conferences. It does not sound like a great party, the 26th Congress of the Soviet Union. It sounds pretty grim because the leaders were pretty sclerotic and elderly at that point. And it was, was it Brezhnev who was in charge at the time? Yeah, and he spoke for five hours, didn't he? Did he?
+
+[00:01:31] Yeah, he did a five-hour opening speech. Another thing I like about this diamond. Wow, five-hour opening. speech, that's sort of Castro level, isn't it? It's Ken Dodd level. Ken Dod level, yeah. Less entertaining, I reckon. But yeah, so in the Soviet Union, they just used to name stuff after really Soviet
+
+[00:01:50] things in a way that stopped making names kind of nice and attractive and pretty and started making them sound very utilitarian. Yeah. And it all started after the October Revolution in 1917. So then they started calling babies Soviet things. So in 1924, one baby got called Octiabrina. after the October revolution and then you got
+
+[00:02:12] you know, Staliner when Stalin became a thing They used to make names out of acronyms of all their heroes' names So a really popular name was Melz which stood for Marx, Engels, Lenin, Stalin And then actually when Stalin was When the Soviet Union distance itself from Stalin
+
+[00:02:28] A lot of people dropped the S So when they got rid of Stalin Is that where the name Mel comes from Like from the Spice Girls? Yeah I don't think there might be a different origin to our version of Mel. Mel C.
+
+[00:02:41] The C actually stands for communist. And Mel B as a Bolshevik. Yeah. Just back on diamonds very quickly, I was looking down this big Wikipedia list of all the biggest diamonds. And I saw one that caught my eye called the Jane Seymour diamond.
+
+[00:02:58] And the Jane Seabor diamond is a ring which was named after the actress Jane Seymour. She was very proud of it. And when they were doing it at sort of ceremonies, she would go and put the diamond on and be part of the ceremony to show it. She never owned it. She was just sort of, she loved the idea of it. But what caught my eye is the fact that they are selling it now.
+
+[00:03:17] So in July 2016, they announced that they were going to sell it. And it led me down the road of seeing how interesting it is when you buy an expensive diamond, how it gets delivered to you. It's an eight-hour luxury experience in buying the ring. So it begins with a journey by air via helicopter. You get chauffured by Rolls-Royce to a private luxury. cruise and then on the 57th floor of a hotel you're surrounded by hang on does the cruise go to the is the cruise ship a 57 store yeah there's no left yeah they go to the 57th floor of a hotel
+
+[00:03:49] they're surrounded by 10,000 roses they have an 18 course modern Asian menu um with diamond encrusted chop sticks I don't really like modern Asian oh okay so this is why you didn't go for it that's why I bought my wife with very cheap in gay But to top it off, they present the ring at midnight while fireworks go off in the night sky. That's how they're selling this ring. And can you turn it down at that point? Can you say actually, now that I've seen it? That sounds like such a slice of hot nonsense.
+
+[00:04:21] Yeah, yeah, it really does. So you go on a helicopter ride to a cruise ship, which then pointlessly goes in a circle so you can go to a hotel. Yeah. Go to the hotel first. Yeah, I mean, yeah. Well, you'd be rubbish on a cruise, wouldn't you? I won't have a two-week cruise, but actually I end up back where I'm going to
+
+[00:04:35] started so I'm not going to bother. I'm just going to sit in this harbour for three weeks. I save a lot of money on cruises. But it's interesting, if you buy these rings and you get them insured, the insurance only lasts for so long. There's a very famous ring called the Burton Taylor ring, which was Richard Burden bought for Elizabeth Taylor. It costs $1.1 million. And because of the insurance, she was only allowed to wear it 30 days per year that they're willing to insure you for. Because most times you need security. Yeah, it's really odd.
+
+[00:05:03] when Elizabeth Taylor was delivered the ring. So again, the crazy security. She was in Monaco at the time. And three men carrying briefcases, one of which carried the ring, all went on to the plane at the same time and went sort of different seats, different ways. So no one knew which briefcase it was going to be in. And when they finally delivered to it,
+
+[00:05:20] the guy with the briefcase that had the ring in it also had three pairs of stockings that cost 50 cents in America, but was Elizabeth Taylor's favorite, but she couldn't get in Monaco. So along with the ring with the three stockings, and everyone said she was way more excited by the stockings than she was by the ring that eventually rhymed. Right.
+
+[00:05:36] On helicopters and diamonds, this massive Communist Party diamond was found in the MIR mine. And the MIR mine is one of the biggest holes in the world. That's not quite kind, James. Sure, it's got some of me. It's a bit better than Wigan, but it's one of the biggest holes in the world. And Russia has banned helicopters from flying over it because they can get sucked in. They can get sucked in? Wow.
+
+[00:05:59] Yeah. How? the wind. Well, a big diamond breathing monster as it inhaled. Well, what it is is if you dig a hole deep enough,
+
+[00:06:10] it gets really hot at the bottom because it's the pressure, and that heats up the air, and obviously the air at the top because it's in the middle of Siberia's cold, and so you get this convection current of air and it can cause a vortex, and so anything flying over the top of it
+
+[00:06:24] can get sucked down into the... Wow. That's cool. It's good that, isn't it? Why don't birds always get... suck down chimneys. Because most chimneys are not the biggest hole in the world. I've understood James Wright.
+
+[00:06:38] Yeah, it's the depth and the difference in heat. Although I suppose a fire is quite hot. If I'm ever flying over that and the helicopter starts to get into trouble, I'll be able to say as we plummet, this is quite interesting actually what's happening. It's due to a convection thing. The me and mine in the 1960s made 20% of all the gems in the world. Wow. They found them there.
+
+[00:07:01] And when they first dug it, it's in near Yakutsk, I think. So it's really cold in the middle of Siberia. And they had permafrost. So it's really icy there. And even the dynamite wouldn't get through the permafrost because it was so cold. Wow. What? That is way cool.
+
+[00:07:19] I have a little more stuff on things being named oddly in the Soviet Union and elsewhere. Go. Okay. So loads of people during the French Revolution. started changing our names as well. Basically, whenever there's a massive political upheaval, people start naming their babies crazy things. So what will you name your baby after Jeremy Corby?
+
+[00:07:39] I would name him St. Jez. So in 1792, basically there have been loads of rules up until that point on what you could name your babies. And then there was a rule change during the revolution which said, no, any citizen can change their name by just making a declaration at their local town hall, wherever it might be. And there's a list of things that people change their names to, and they are wild.
+
+[00:08:03] So people chose names including Amour Sacred de la Patry, Lain Trois, which means sacred love of the native land year three. Moor or Aristocrat, death to aristocrats, which is a cool name. And my favorite is Simon La Liberté or La Moat, which means Simon, liberty or death. Simon? I'll just use Simon. Thanks, ma'am. Someone after the Egyptian Revolution in 2011 called his daughter Facebook.
+
+[00:08:28] Oh. Really? Yeah. Because it played a big part in, you know, organising the protests. Yeah, yeah, not just because he liked seeing people's holiday protests. Yeah, that's true, yeah, yeah.
+
+[00:08:36] I would imagine that that person's going to find it hard to get a Facebook account, actually. Just on the largest diamond in the world. Yeah. It's worth covering. It's called the Golden Jubilee, although it was originally called unnamed brown. It's a brown diamond. Didn't have a name. It was referred to that as that one.
+
+[00:08:56] Brown diamond? Yeah, there's a lot of brown diamond. What are they? They're light diamonds, but they're brown. Yeah. It sounds like a very unpleasant euphemism. Come back from the bathroom, kind of hobbling. Oh, it's a brown diamond day.
+
+[00:09:09] So are they actually colour brown, or are they just sort of, they're murky with imperfections? They're probably murky, yeah. Oh, yeah. Oh, wow, so they actually are brown, but they're very beautiful. Yeah. Just for the people at home, Dan is showing us on his laptop pictures of brown diamonds. Yes.
+
+[00:09:25] And that is disgusting. Anyway, when it was found in South Africa, this brown diamond got all these blessings. It was blessed by the Buddhist supreme patriarch of Thailand, visited the Pope, and then it went to an Islamic scholar to be blessed by him as well. Did they all get to go on the boat trip and then in the helicopter? Surrounded by 20,000 roses. Dan, can you check Urban Dictionary? Well, you have your laptop.
+
+[00:09:52] We don't usually use laptops, but can you check Urban Dictionary to see if Brown Diamond is a thing? Oh, God. Just while Dan's doing that, I thought you might like to know, there was a tradition in England of what's called haughtatory names. So it's extreme Puritans got names which were designed to encourage you
+
+[00:10:10] to behave particularly well. So one of the men who rebuilt London after the Great Fire was called Nicholas Barbon, right? But his middle name was, if Christ had not died for thee, thou hadst been damned. That was from Sophie Hay, who we know. A friend of us is a classical historian
+
+[00:10:27] He knows a lot about Pompeii But she also knows about him It's not an amazing middle name You hear a lot of those I think one or two of them Turn out to be myths or you know Post hoc things But that one is real isn't it?
+
+[00:10:39] Yeah yeah yeah It is in urban dictionary Okay what's it mean It's just as we were saying basically Slang for turd or poo Ie my dog has left a minefield Of brown diamonds in the yard Okay
+
+[00:10:51] Well it's just a bit of knowledge You clocked it I don't know if we're going to call that knowledge. I'm going to try and unknow it as soon as possible. Okay, it is time for fact number two, and that is my fact. My fact this week is that scientists have announced that they finally know why shoelaces untie themselves. Good old scientists. Good old scientists.
+
+[00:11:19] Do you know in Russia there's a joke, because we were talking about Russia before, where you say, according to British scientists, and then you say something ridiculous, and that's like a meme of jokes in Russia. Russia, yeah, because they have this idea that all British scientists do is really ridiculous shoelace-related studies. Yeah, we haven't helped that argument there. This is a university researchers at a university in California, Berkeley, and they were studying why shoelaces untie themselves.
+
+[00:11:48] Surprisingly, it's been a massive mystery to science for a very long time, so they dedicated their time to working that out. And it's interesting, it's all to do with the way that we slam our feet to the ground. And it plays with... Well, I didn't think it would be to do with how we clap our hands. Unless you wear your shoes on your hands. And my pictoky's poking through my gloves. Yeah, it's all to do with sort of gravity and so on.
+
+[00:12:18] I don't fully understand it. Basically, one of the things that they're saying is that when you force your foot down, you're going... When you walk. When you walk. Because you make it sound down, like you walk around stamping your feet on the ground
+
+[00:12:33] when you slam your foot down. Like Hagrid. Yeah. Walking everywhere like a giant. Yeah, he, so not Hagrid, sorry. When we're putting our, when we're putting our feet down,
+
+[00:12:44] the shoelaces, the tips of the shoelaces that are left exposed are being pulled back up as you go down by gravity, almost as if hands are pulling them because of the force that we go down. Therefore, it's slowly loosening them
+
+[00:12:55] and loosening them as we take more and more steps. Does that make sense? I might have made that up. So wait, the tips are still pulling towards the ground when we're lifting our foot up. Yes. Is that it? But it's actually the flick.
+
+[00:13:04] So the two things that cause it, I think, in the study said, was it's caused by a combination of the impact of the shoe on the ground as it hits the ground, which deforms the knot itself. And then the whipping of the laces as you lift your foot back up pulls the laces away from the already deformed knot. So does that mean like if you moonwalk everywhere, then your shoe laces will never come on done? Yeah, that's absolutely true. So they tested it with people either walking on the spot up and down without. any forward motion and shoelaces don't come undone. And they test that people swinging their legs from a chair and shoelaces don't come undone.
+
+[00:13:34] And I just want to say for the record, my shoelaces just don't come undone anyway, so I don't understand what this whole... Mine come undone all the time. Do they really? Mine do sometimes. Yeah. This is a really interesting chat, guys.
+
+[00:13:47] I always thought that we should add more personal touches to the podcast. Some people learn a bit more about our personalities and now people know that your shoelaces never come undone. But they might sometimes do. Yeah. The Royal Society website described this study, and they, I think, have been over-egging it a bit, because they said, as demonstrated using slow-motion video footage and a series of experiments, the failure of the knot happens in a matter of seconds, often without warning, and is catastrophic.
+
+[00:14:16] Wow. If you're on the edge of a cliff or something, it can be. That's true. I don't know if this is over-agging it as well, but they're saying that the forces that act on the tied shoelace can be greater than those felt by humans on the most extreme role. roller coaster. Yeah. That's what your shoelace is going through every time you put your foot down. It's like,
+
+[00:14:33] it's like a mass roller coaster ride. They're saying 7G, which is seven times the force of gravity. And the biggest, most powerful roller coaster is the Tower of Terror in Johannesburg, and that's 6.3G. And to put that into some kind of context, space shuttle,
+
+[00:14:51] someone in that would get 3G. You all should think so. They're near the satellite, aren't they? Have you ever seen the website, Ian's shoelace Yes. No. Yes.
+
+[00:15:02] It is fantastic, isn't it? Best shoe lace site, I would say, on the whole internet. Yep. That's a big claim. I agree. It's a guy called Ian,
+
+[00:15:10] who has set up a site partly just to tell people about his own knot, which is called the Ian knot. And he says it stays securely tied. It's much better than the granny knot that almost everybody uses. And he says that there's also a high security
+
+[00:15:27] version of it, which is called Ian's secure shoe not, but he does say on the website, note that my Ian knot is quite secure for all normal activities. Wow, Anna, maybe you're using Ian's knot. Yeah. I think I am. The knot thing is unbelievable that we've all been tying our shoelaces wrong. I saw this in a TED talk. You saw it in Ian's knots. So we are all doing this granny knot, or most of us are. And the way you can tell is if you
+
+[00:15:50] get your fingers, if you sort of pull the sides of your shoe apart when your shoes are tied in a bow, then the bow orients itself vertically. So it orients itself away from. from your body. Whereas if you've done a good knot and you pull the two sides of your shoe apart, then the bow orientes itself horizontally. So it oriented itself. Does that make sense?
+
+[00:16:09] I was looking at Dan's shoes now and they have no laces. I'm not like to wear them anymore. Fell off one cliff too many. Well, you should explain that now that you know how to do up shoes which is basically when we do them up usually you're putting the very first cross you make with the laces,
+
+[00:16:27] the very first one when you're doing your shoes in a bow, you're putting the wrong lace over the top and if you do the other one then you'll find that it orientes itself the right way and it's much stronger so you put the left hand lace over the top of the right hand lace and then draw it underneath I've just redone it on myself
+
+[00:16:43] and I think because I'm left-handed I've been putting the left one over as is recommended I was just going to say I bet left-handed people do it differently you've been doing it right and they're very secure my laces well no they do come apart sometimes I've given away too much about myself I have to say I tried this last night And I, what my mind was blown, I would say.
+
+[00:17:03] I'm so excited. I'm never going to do my laces up wrong again. Can I just say on Ian very quickly? His website's called Ian's shoelace site. Ian Feigen is his name. It's worth pointing out he's made a whole site about shoelaces And he actually doesn't really overly care about shoe laces. He kind of does what we do.
+
+[00:17:19] He's picked a subject that he wants to mine and find out stuff about And just create a place that's the place to go to about the knowledge, the history and so on about it. So a huge shout out to him for just doing that. He doesn't give a shit about shoelaces. Are you sure? He doesn't. He says on his site, I'm really not a knotting nut.
+
+[00:17:34] I'm just a friendly Aussie guy trying to contribute to the internet. He has a celebrity section too. Does he? Yeah. What do Taylor Swift, John McEnroe and Reese Witherspoon have in common? They all wear shoes. Well, they're all celebrities who I believe may be tying granny knots thanks to the telltale sign of crooked shoelace bows
+
+[00:17:51] that run along the shoe instead of across the shoe. Celebrities are human too. So who were they? Taylor Swift. John McEnroe. John McEnroe. So if I'm looking for celebrities, they're not going to be the first three that I look for. Taylor Swift might be, but John McEnroe probably would be down in the thousands. And so basically he's checked a lot of celebrities to get down as far as John McEnroe, I'd say. And yet he doesn't care about shoelaces. I think he went straight to John McEnroe because tennis is one of the jobs you'd have where you'd really want strong shoelaces.
+
+[00:18:20] I may have one of few extra grand slams, had he been tying his shoes. And he's probably got a shoe. Like no one else on that list probably has a shoe, but he'll have a sponsored shoe. Well, you know, you have shoes as tennis players. They all also have shoes as other people. No, but I mean like the McEnroe shoe, there might be. Yeah, okay. Right.
+
+[00:18:37] Yeah. I'm saying sports people tend to have shoes. Do they? Yes. Zola Bud didn't. Who? Sorry. That's a very niche reference.
+
+[00:18:46] But she used to run without shoes. She's very famous for it. That is a fantastic joke for those who know who Zola Bud is. Sandy Shoeh. Is that, no? We've talked about Sandy Shore before. She didn't wear shoes. Wait, the singer?
+
+[00:19:00] Yeah. Oh, yeah, she's never got shoes in the video clubs. What did she? Bill Bill Bow Buggins. Does that work for you guys? Yes. Yes. Okay, yeah.
+
+[00:19:06] We got the reference. Yeah. He didn't get any lucrative sponsorship deals as he went to Mordor. So, um, on knots. Yeah. Okay. This is so cool. Every single cell in your body has two meters of DNA in it.
+
+[00:19:21] Right? Mm-hmm. But according to science, anything longer than about 139 centimetres is likely to get tied up in a knot spontaneously just usually being agitated about 50% of the time. So how does our DNA not get into this massive tangled ball? And there are loads of theories and scientists don't know. It's so cool. So one of the latest theories is that it's got these, I'm going to mis-explain it because it's quite complicated, but it's constantly slipping through these rings like proteins. And basically
+
+[00:19:51] it gets bunched up in lengths like carriages in a train. So you're interacting a bit with the rest of the length in your carriage, but you're not interacting with other lengths of the DNA. Okay, so it gets bunched up into balls, which kind of rub against each other. Basically, it gets bunched up into sections, which are much less likely to form knots. Okay, is that like if you put loads of elastic bands in a box or something, they'd all get tangled up with each other, maybe, but if you put elastic band balls, then they wouldn't get tangled up with each other.
+
+[00:20:20] No. I mean, that would be a great explanation if it was true. I don't know. Because I really understood that very well. It's true. I don't know if it is. Maybe it is. Okay.
+
+[00:20:28] Here's hoping. So the idea that things get tangled was discovered by Dorian Rameh and Douglas Smith. And they won an Ig Nobel Prize for Physics in 2008. Wow. And what they did was they put a load of chords in a rotating box. And they did it more than 3,000 times. And they found that almost always it all got knotted up. And this is why if you put your headphones in your pocket or if you,
+
+[00:20:53] you know, all that kind of stuff. It always gets tangled, right? Yeah. Basically, their explanation is if you have a cord, there is only one way that it's not knotted, mathematically. The way that it's not knotted is nothing is over the top of each other, whereas there are hundreds and thousands of ways that it might be knotted. So it's just much more likely that it'll be in one of those knotted states
+
+[00:21:14] and one of the not knotted states. Oh, okay. But that's if it moves. So they haven't really cracked the mystery of when I wrap Christmas lights up in a perfect role, put them in a box where they stay motionless for 360 days and then get them out, why are they tangled? Hang on, you only have your Christmas lights up for five days.
+
+[00:21:34] All this preparing for Christmas more than a week in advance is bullshit. Miserable life you lead, Anna. It's screwed. It's because they take two months to are not. We don't get them up until the 2nd of January. Maybe it's tiny earthquakes. It's probably that. This is always tiny earthquakes, aren't there?
+
+[00:21:56] Yeah. It must be. that. But it does depend on the length of the cable as well. So if a cable is shorter than 46 centimeters, which I imagine Anna's Christmas lights probably are. Put them on a tiny twig of a tree. But if it's shorter than 46 centimeters, it will rarely, if ever get knotted. So all you have to do is buy headphone cables, which are shorter than 46 centimeters and ensure that you're constantly holding your phone near your face. Uh, the shoelaces get at least 12 mentions in the Bible. No.
+
+[00:22:31] No. No. Yeah. No. Yeah. It's true. I got this from Ian's shoelace site and he has a section called shoelaces as seen in. And you can see, he's listed movies where shoes.
+
+[00:22:42] And then Jesus's shoelaces came undone. And lo, he tied them in Ian's knot. Well, Genesis. I've got one here. Genesis. What else? And on the eighth day. Can you give us any quote?
+
+[00:22:58] Just give us chapter and verse. Yeah, so Genesis, it's that I would not take a thread or a shoelace or anything that is yours, lest you should say, I have made a room rich. Okay, here's possible support for that. Wasn't Erzzi the Iceman, who was about 5,500 years ago, he lived then? His shoes were done up, weren't they, with kind of leather songs? Yeah. With some very rudimentary lacementary lace.
+
+[00:23:23] So it's not inconceivable. Yeah. Here's one from American King James Version, John 127. Here it is, who coming after me is preferred before me, whose shoelace I am not worthy to unloose. Oh, yeah, okay. Okay, yeah, all right, fine. Wow.
+
+[00:23:40] Right. We're buying it. Didn't think that was going to work. See, Ian, he knows his stuff. She does. Hey, if I say the phrase, I like your shoelaces to you, what is the appropriate response? Oh, thank you, Ian.
+
+[00:23:53] and may I say your not has made all the difference in the world to me is that it's not it is thanks I stole them from the president does that ring any bells with you it didn't for me and I wonder if I'm being sort of internet
+
+[00:24:09] illiterate to me like it's a thing that you might say to prove you're a spy like if you're reading a newspaper in a park and someone said I like your shoelaces you would say that response and they would know you were a spy it's very close it's what people who use Tumblr say to detect that another Tumblr user in the real world.
+
+[00:24:29] So it's a code that they all know to say. I like your shoelaces. You've just spoiled it now. No, because they all know it. Yeah, but now everyone else knows it. There used to be the Dennis and Menace fan club from the Beano used to have a secret thing that you would say to people. I was a member of that.
+
+[00:24:47] Do you remember the secret code? No, I don't. Oh, no. You weren't a real member. No, God. You were one of the fake members. They used to knob you off. All your parents have just been doing up
+
+[00:24:57] a letter every week from Dennis Leavittes to you. Dear Sandor. I'm not going to say what it is, but if anyone ever sees me in the street and you used to be a member, then I still know it. See, James knows how to keep a secret, Dan. So you know the extra hole on a shoe lace?
+
+[00:25:15] So you know when you often tie up your shoes? Yeah. And there's kind of an... You get to the top, and then there's an extra hole kind of just behind that, often slightly lower. especially in walking boots you get this. And so usually I just don't do anything with it.
+
+[00:25:27] The purpose of it is for preventing blisters. So what you do is you tie all your shoelaces up to the top like normal. And then you keep your shoelace on the same side and thread it through that next hole to create a loop. And you do that on both sides. And then you weave the shoelaces on opposite sides through the loops you've created. And this tightens it around your ankle and stops you from getting blisters.
+
+[00:25:49] That's great. Yeah, look up a vid. It's simple and effective. That's what they would teach you that when you're in scouts. Would they? Yeah. I'm really giving away a lot about my childhood here. But they never taught me.
+
+[00:26:02] Did they not? No. No, you weren't really a scout. Well... Your parents just sent you a letter from Baden Powell everywhere. Yeah, that's right. You don't understand. Dennis and Merliss and I.
+
+[00:26:11] I'm very proud of you. Okay, it's time for fact number three, and that is Andy. My fact is that Nelson's ship, HMS Victory, nearly didn't get out of the dock it was built in, because it was too big. It was a classic mistake. They thought, we're going to build this fantastic big ship,
+
+[00:26:32] and they built it. And the night before the launch, the dockyard foreman looked at it, and he thought, I wonder if it's too big. And he measured the ship at its widest point, and then he measured the dock.
+
+[00:26:43] And he found his horror. It was nine and a half inches wider than the dock. That's a rookie era. It's a rookie. I look, complete amateurism. And so, like, he told his boss, who apparently fell into despair.
+
+[00:26:55] They said, what are we going to do? The ship will get stuck. if we try and launch it, it'd be massively embarrassing. And then the shipwrights and the carpenters who were working at the dock, just wore away at the dock's timbers and removed bits, and they managed to save that crucial,
+
+[00:27:08] you know, they must have removed about a foot. So it got through, but imagine it would have had about a couple of inches on either side. Yeah, so exciting. I read that his boss was called John Allen, and he was already suffering from violent and frequent attacks
+
+[00:27:21] of abelious disorder in his bowels. Oh, no. And this could not have helped. His brown diamonds. will not have been amused. So, you know, I mean, this was said at the time that HMS victory nearly didn't make it to the Battle of Trafalgo, but it was launched in 1765, 40 years before, so it probably would have caught up. Well, it was a long way away, wasn't it, from the location?
+
+[00:27:43] Where did they build it in New Zealand or something? Set off towards the battle 40 years before. This isn't the only time this has happened. So, Izenbar Kingdom Brunel built the world's first proper business. big iron ship. It was the first iron steams shipped across the Atlantic. It was a massive deal. It was SS Great Britain and it was built to be a passenger service
+
+[00:28:05] between Bristol and America, but when he built it, it was in Bristol docks in 1844 and it got trapped in the lock gates and I was reading a letter of apology he wrote to people at a meeting he was supposed to be out the next day saying he wasn't able to get there because this huge boat he built
+
+[00:28:21] got trapped because the lock was too small and he'd been up all night having to dismantle the masonry of the lock in order to get it And that's Brunel who you would have thought knows what he's doing. It must be a thing you just forget to check, that last minute exit door bit. It has happened a lot. There's a different one slightly. This could get out the dock, but have you heard of the Ural?
+
+[00:28:42] It was called. The Ural? Yeah, the Ural. Is that a famous ship? I'd not heard of it before. No, but there's a place called the Ural Mountains. Oh, okay. All right.
+
+[00:28:50] So this was commissioned in 1989, and it was 265 meters long, 36,000 tons, basically it was so large that nowhere was big enough to dock it. So they had to dock it just off the harbour and just use it as a place where soldiers and naval officers could just have as a base and track things and so on. And they've now decommissioned it, but they just couldn't use it. It was too big. And it was supposed to be, because it became basically a barracks, didn't it? But it was supposed to be a huge thing for the Soviet Union.
+
+[00:29:19] The technology on it was amazing. So it was powered by nuclear reactors. It was huge, like you said. It had the best in like electronics and intelligence. It could see satellites from out of space, it could see any ballistic missiles that might be coming towards it. It was supposed to be an amazing intelligence-gathering ship that travelled around the world.
+
+[00:29:37] And yeah, they just built it too big. So HMS Victory, this is quite cool. It was the same age as Nelson, basically. As in when they had the battle, I think he was 48 and the ship was 47. Okay, so not the same age. Not the same age. Yeah, all right. Different years at school.
+
+[00:29:56] But they would have known each other. Yeah, yeah, yeah. He knew his big sister. When Nelson was born, was he too large to fit out of the birth? Oh, they had to physically dismantle him. Oh, God. But this is really cool. So three years before the battle, right, he went around the Forest of Deem,
+
+[00:30:20] which provided all the wood for the, you know, the Napoleonic Navy. And it was 6,000 trees. And he was appalled at what he found, right? Because loads of the forest was unavailable. Timber merchants were saying, no, you can't have this bit. Lots of the rest of it had been kind of ruined by charcoal burners. And Nelson said Parliament should plant lots of new forest, right? And a few years after he died in Trafalgar, they did plant a load of new forest.
+
+[00:30:40] And two of the oaks planted during that ship building tree planting drive provided raw material to restore HMS victory 200 years later. Oh, that's so nice. How cool is that? Yeah, that's very cool. Do you know how it got its name? The name victory? Yeah, victory. Was it not named until after the Battle of Trafalgar?
+
+[00:31:01] It was just unnamed Brown. Was it named in a massive act of hubris? It was named, they say, potentially, because I think it's not fully known, to commemorate the victories that were happening in the year of 1759, which were a lot. And they called that year, the year of miracles, anis mirabillis, if I'm pronouncing that correctly.
+
+[00:31:22] It's the year of miracles. But I suspect it was the other thing. because on the article it says, or it may have been chosen simply because out of the seven names shortlisted, victory was the only one that was not in use. So the other six were already massive ship names. Right, okay. So I reckon it...
+
+[00:31:37] Shipface was already... The Battle of Trafalgar was obviously very heated. That's an understatement. But Nelson was shot at the height of the battle and his ship was tangled with a French ship, I think, maybe a Spanish one, and there were snipers in the rigging of that ship shooting people on deck.
+
+[00:31:54] But listen to this. So Nelson, it seems like he really had a death wish, because he was walking up and down on deck in spite of that. He was dictating to his secretary who was called Scott at the time. Scott got blasted in half by a cannonball. Okay. So Nelson's assistants quickly pick up his body and they throw him overboard. Nelson's response is just to say, is that poor Scott?
+
+[00:32:17] If you get hit by a cannibal, it could literally cut you in half. If a cannonball is fired, yeah. I mean, that's a huge heavy lump of metal traveling at 100 of the miles. I'm not saying that it couldn't kill you, but I thought it would splatter you rather than just literally cutting you in half. Well, maybe he was almost cut in two. I don't know. Anyway,
+
+[00:32:32] it probably wasn't a clean cut. I can't he say it's like a guillotine? No. So anyway, Scott is no longer available for secretarial duties, to put it mildly. So then the next person to replace him is called Thomas Whipple. He arrives on deck. Nelson probably continues dictating to him. Then Whipple dies almost immediately.
+
+[00:32:54] because a cannibal doesn't hit him, but it passes him, and it's believed he was killed by the shockwave from. Whoa. Yeah. Whipple, pull yourself together. Wow. I know. And this is what Nelson was just walking up and down in, unconcernedly, and eventually, you know, he was hit. Poor old Whipple. Because he would be nervous, having probably witnessed what just happened to your predecessor. In 2005, there was a big anniversary of Chafaga, and it included a four. fireworks display, which used the same amount of gunpowder that HMS victory used in the Battle
+
+[00:33:29] of Trafalgar. Wow. How cool is that? And so how much was that? I think it was about 12 tons. Cool. That might be wrong. And there was also a naval battle reenactment, right?
+
+[00:33:37] But they didn't say these are the British ships and these are the French, because they didn't want to annoy the French. Because relations were quite good and they don't want to say, ha ha, ha, we beat you. So they just said it was a reenactment of a sort of naval battle that would have taken place at that time. I think it's very considerate. Yeah. I don't have a lot of sympathy for the political correctness gone mad phrase, but that really does feel like.
+
+[00:34:00] And they also featured a simulation of the death of Nelson, where Nelson was played by Alex Naylor, who is described in the newspaper accounts at the time as a professional Nelson look-alike. Wow. Were they not allowed to simulate that he actually died in case it offended dead people? And so... Well, they weren't actually allowed to kill Alex Naylor. No, I think political correctness has not gone far enough. Honestly, the guy played Scott.
+
+[00:34:24] I mean, there can't be much work for a Nelson professional Nelson looked like. I didn't look up if he's still working or still doing it. But I'm sure it's a sideline. It's weird, you know, in Colmigarden, when you see the people being statues, that you don't ever see that, of someone being... You do, but he's on a massive column. He's been holding that strong. Sorry, this is my spot.
+
+[00:34:47] Ah, that guy is hogging that plin. Okay, it is time for a final fact of the show, and that is James. Okay, my fact this week is that in a chocolate hobnob, can you check Urban Dictionary for that? My fact is that in a chocolate hobnob, the chocolate is on the bottom. So I don't know if hobnobs are international. Are they all over the world? Are they in America or in Australia?
+
+[00:35:22] I can't remember. I suspect they're mostly British. It's a chocolate biscuit, a hobnob. It's like, no, hobnob is like an oat biscuit. and they have chocolate hobnobs, which are oat biscuits with chocolate on them. And most normal people would probably assume that the chocolate was on the top.
+
+[00:35:38] It's only on one side. It's only on one side, yeah. But then someone posted a picture on Facebook and asked McVitties who make these biscuits, which side is the chocolate on the top or the bottom. And they said, we take our hobnobbs and we dip them in a pool of chocolate. And so that means that the chocolate is on the bottom.
+
+[00:35:58] They actually say reservoir of chocolate And they use it a lot And I've been Googling reservoir of chocolate And I can't find That's inaccurate though Because you don't produce chocolate By waiting for it to fall from the sky And then storing it for years
+
+[00:36:12] As you do with the water reservoir So it should be a pool Maybe they do Well, but then can we trust them About this up-down situation Because actually reservoir does imply Reserving something Like it's a reservoir of water
+
+[00:36:24] Is something where you're keeping The water there for when you need it Right? Whereas the chocolate I imagine they probably change it pretty much every day. I would hope so. Yeah. But here's my controversial hot take.
+
+[00:36:36] Uh-oh. On the packet of chocolate hobnobs, they clearly depict a hobnob with the biscuit side facing down and the chocolate side facing up. So either they are lying. Or you've got your packet upside down. And all the words should be up. Either all the words should be upside down or the biscuit should be the other way up. Yeah, maybe they're showing the biscuit upside down on the,
+
+[00:36:58] Why would you do that? But it's their decision, right? It's their decision. It's up to them. Basically, we're going on what McVitzie say, and it's their product, so they're allowed to say what they want. And they say it's on the bottom,
+
+[00:37:09] so it's on the bottom. And it's all their chocolate biscuits, isn't it, that they dip? Well, here's another bit of evidence. Even we could hear the inverted quotes around the word evidence there. If you take a digestive biscuit, they're not called digestive biscuits in America,
+
+[00:37:27] are they because they don't help your digestion. I can't remember what they're called over there. But they're just basically biscuits. The top is rounded and has a McVitties logo on. And the bottom has kind of criss-cross on it. And then when you have a chocolate digestive, it's the criss-cross bit which has got the chocolate on it. So that it's much more clear that it's the bottom.
+
+[00:37:48] Oh, yeah. That's a really good point. Yeah. But if I saw someone eating a chocolate hobnob upside down, and when I say that, I mean, with the chocolate side on the bottom, I would think they were mad Because now whenever I see anyone
+
+[00:38:03] Eating a chocolate hobnob the other way around I'm going to go, excuse me You're eating that upside down But for again for overseas listeners The sort of Who have switched off a long time ago But sort of the massiveness Of this news in this country
+
+[00:38:19] I told my wife this this morning And you're now divorced Yeah she couldn't believe it She said yeah She said how dare you slapped me and walked away it's it's big news it's kind of like in america when um when and we said this on the podcast a long time ago someone wrote to nike to say is it nike or nike and and the owner came back and said it's nike and everyone's like what we've been saying nike for years and it's just a confirmation thing but it's massive here
+
+[00:38:43] i wonder how much control they have over it once it goes out into the world you don't get to choose how people pronounce a word that's true and you don't get to choose how people eat hobnops Thank God. But you do get to choose what your official answer is. Yeah, but you also get to choose how you depict it on the packet. If they really were committing to this, they would put an upside down, they would put a hobnob on the packet the other way up.
+
+[00:39:07] But then you wouldn't be able to see the chocolate very well. Oh, yeah, it would just look like a normal brown. But yeah, I think the reason that they show it upside down is so that you can see that it's a chocolatey one and not a normal one. That's a really good point. That's such a good point. Otherwise you'd just be buying digestive biscuits, thinking in the hope there might be some chocolate underneath. Says the word chocolate on the packet. What further proof do you need?
+
+[00:39:31] Well, in that case, it says biscuit on the packet. Why do you even need a picture? Why doesn't all of our packaging of all of our things just have an explanation of what everything is? In fact, they're sold in flat packets where they're all on their edge. So this is a nonsense. That's the correct way up to eat a hobnob is to have it on its edge. Put it vertically into your mouth. You have to put your head sideways to eat it. I was looking into McVitties. Oh, yeah.
+
+[00:40:02] Yeah, McVitties, been around for a very long time. McVitties made the wedding cake for Queen Elizabeth and Phillips' wedding. Did they? Yeah, McVitties provided the official wedding cake. Everyone said it was upside down. They had the little squashed bride and groom underneath it. But interestingly, they actually had 12 wedding cakes in total.
+
+[00:40:26] They had the official one, which was made by McVitties, but this was 1947. There was a lot of rations going on at the time. Eleven cakes were donated by different countries from around the world to say, you probably can't afford your own cake because of the rationing that's going. Slam.
+
+[00:40:41] Wow, all the impoverished Commonwealth countries are stripping and saving to make a cake just so they could deliver a sick burn. Yeah, but so they would send ingredients. Sorry for sending all the marbles and all our treasures for the last hundred years. You probably can't afford your own cake. But yeah, it's weird. It says the official cake was made using ingredients given as a wedding gift by Australian Girl Guides.
+
+[00:41:09] I don't know if that means then McVitties turned that into a cake or if McVitties wasn't the official official. But yeah. You know the main cake was six feet tall? Was it? The McVitties one, presumably. Yes. And it had a metal knight on a horse on top of it. Pretty cool cake.
+
+[00:41:24] Just one more thing, Prince William's wedding, 2011, his groom's cake for his wedding, was 1,700 McVitties rich tea biscuits. Oh, terrible choice. Yeah, it was made from those. It wasn't like them stacked on each other. It was, I guess, crumbed up and used. But it was a McViddy's cake as well. So that's two of the British Royals who've had wedding cakes from McViddy's. Oh, wow.
+
+[00:41:46] You know the guy who actually knew from this year, the guy who invented a lot of chocolate biscuits died recently. He died aged 81. It was last month. And apparently he created chedders, many cheddars, and he created cracker wheat, and he created hobnobs. And he worked for Meredith and Drew, which became United Biscuits, which are the company that own Mac Vissies,
+
+[00:42:08] in 1960. And he invented a whole bunch of recipes. And apparently people who worked at the company would just write down these recipes, and then they'd shove them in a box somewhere. And years after he left the company, they were running out of ideas, and they went through his recipes,
+
+[00:42:20] and they made all these biscuits. The word hobnob used to mean to tell, host each other with drinks. Did it? It's in 12th night. Yeah, that's its first mention, isn't it? Yeah, first mentioned 12th night. I saw this on the Inky Fool blog by a friend of ours called Mark Forsyfe.
+
+[00:42:36] And he said that the first record is in 12th night where an angry jewelist is described as hobnob is his word, give or taked. And hobnob meant to give or take. It's like, you know, positive or negative plus or minus give and take. Hob and knob Hobb and knob Meant to have And knob meant to not have
+
+[00:42:57] Make sense Oh really To have and have knob And they're derived From ship's biscuits Which would have been used At the Battle of Trafalgar To eat
+
+[00:43:09] But ships biscuits They were kind of designed To be unbreakably hard You had to dunk them To get them soft enough to eat And even if you did dunk them Sometimes Because biscuit means twice cooked
+
+[00:43:18] It's from the I think the French Or probably originally Latin Biscuit means twice cooked to make them hard to you bake them twice but some ships biscuits were baked four times
+
+[00:43:26] for a really long voyage if you needed really tough food I was reading actually I found an old book which was talking about the process of making naval biscuits so this is a book from 1815 which was describing this guy
+
+[00:43:41] who went to a biscuit factory what was a biscuit factory then and he described the mass production of biscuits which involved five men around the oven and it involved lots of tossing lumps of dough to each other and then getting it exactly
+
+[00:43:52] on the peel, which was the big plate at the right time. But the first thing that had to happen was the dough had to be needed. And the way the dough was needed was it's placed on top of a piece of machinery called a horse and a man literally rides the horse up and down until the dough is sufficiently needed. Wait a minute. So where is the dough in between his bottom and the horse? No. The dough is in between the horse and the table.
+
+[00:44:17] Oh, okay. But he needs to get on the horse in order to move it about. Right, I see. because I was thinking about how like the Huns used to tenderize their meat by putting it in their trousers and then riding all day and then by the end of the day it was tender. And I was wondering if these biscuits were made in the same way. The hobnobs were named by John Murphy.
+
+[00:44:41] They were going to be called Oak Crunchies before that. And he has a history of naming things. He named British Telecom, Prozac and Home Base. He's a professional nameer of things. That's just his job. He just goes and... Yeah, he saw a kind of gap in the market of when people were naming new companies and he's like, I can do that. They're almost all the things you need to lead a happy life, aren't they? Those four things.
+
+[00:45:05] BT, home base of Prozac. Yeah, and hobnobs. He says when it comes to naming, it's in thirds. One third is strategy. One third is creative. And the final third is checking that the name is available. And he also invented, I don't know if we've mentioned this before, cello scrotum. Do you remember that?
+
+[00:45:28] No. So cello scrotum was a condition, a medical condition, that cellist got. And apparently rubbed against your scrotum when you're playing the cello. Presumably you played it wrong. But he said that, forgot the cello, just brought the boat. He wrote to a newspaper, actually to the BMJ, to the British Medical Journal, saying that he was a doctor and that he'd come up with this thing called
+
+[00:45:54] cellos Grotum and a lot of cellists were getting it but actually it was a trick and he was trying to make fun of the fact that all of these like housemaid's knee and golfer's elbow and all these kind of things were kind of taking on and he was trying to make fun of it. So it wasn't real. I think most chatlists
+
+[00:46:11] this is a generalisation are women. Sure. So if you've got the cellos grotum you really have been playing it wrong. In April last year, year five men were imprisoned for stealing a trailer with 20,000 pounds worth of biscuits in it. That was the street value of the biscuits. The production value was £12,000.
+
+[00:46:32] Okay. But they'd nick the trailer and it was found abandoned without the biscuits in it. I don't think the biscuits were recovered. And so they eventually admitted theft, these five men. They were sentenced each of them to between 16 and 44 months. And as they were sentenced, one of them shouted, would you like a biscuit? That's great. Did the judge at any point say they absolutely took the biscuit?
+
+[00:46:56] No. Oh, that's brilliant. Okay, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, James.
+
+[00:47:16] At egg-shaped. Andy. At Andrew Hunter M. And Anna. You can email a podcast at QI.com. Yep. Or you can go to our group account, which is at QI podcast. or you can go to our website
+
+[00:47:25] No Such Thing Asafish.com. We've got all of our previous episodes up there. We've also got a link to our tour coming up this October and November. We'll see again next week. Goodbye.

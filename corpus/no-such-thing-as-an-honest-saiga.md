@@ -1,0 +1,175 @@
+# No Such Thing As A Fish - No Such Thing As An Honest Saiga
+
+- Episode date: June 5, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-an-honest-saiga
+- Slug: no-such-thing-as-an-honest-saiga
+
+## Transcript
+
+[00:00:02] Oh, and welcome to another episode of No such thing as a fish, a weekly podcast, coming to you from the QI offices in Covern Garden. My name is Dan Schreiber. I'm sitting here with James Harkin, Anna Chazinski, and Andy Murray. And once again, we have gathered around the microphones with our poor favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that bananas emit antimatter. that's not so I've had to get my head round antimatter
+
+[00:00:39] which I just researched bananas I should have gone down that road what am I doing so anti-water is just like the opposite of matter so if you have an electron with a negative charge then the antimatter version of that is a positron which has a positive charge I know I see what's weird is I just for me I still don't understand what that means it means that when you say you have to get your head round it
+
+[00:01:00] if you'd actually have to put your head around antimatter your head would no longer exist wait andy matter Antimatter. It was some kind of Freudian slip. The presence of Andy in a room eliminates everything else in it. So wait, because what I read was the beginning of the universe, big explosion, and what should have happened is the universe created enough matter,
+
+[00:01:18] which is why we're here. But it also should have created an equal amount of antimatter, which in theory should have wiped out the matter, and we shouldn't be here at all. Because if you get to an matter particle and an antimatter particle and they come together, they just explode into energy. Put my hand up. I still don't fully understand it.
+
+[00:01:35] Well, that's why you research bananas, I guess. So, quick question about the bananas. If banana emits antimatter, but it is matter, why doesn't it cancel itself out? It doesn't matter. It's very good answer. Yeah, it's a very good... It's not very satisfying an answer, though. So what happens is bananas contain potassium.
+
+[00:01:54] Yeah. And some of the potassium decays because it's slightly radioactive. I think you might have already known that... Yes, bananas are radioactive. And what it does is it... When it decays, it emits a positron and turns into argon from potassium. And a positron is an antimatter particle. It is.
+
+[00:02:11] And then the positron will then meet an electron and then we'll just turn into a little bit of energy. So there's a tiny reaction happening in a banana? It'll be in the outside of banana, yeah. It's about every 75 minutes, I believe. I read that with humans that we're trying to create antimatter. We've got a tiny amount. But if we created a lot, it would be the equivalent of like an atomic bomb. explosion. Yeah, I mean, it's much bigger.
+
+[00:02:36] So if we created a giant banana, not only would it explode, but it would have the radioactive fallout as well. Well, there is someone on Wired who has worked this out, and they said to turn bananas into a power station by utilizing this fact that they create positrons, to get 200 watts, you would need a banana generator with 2.2 times 10 to the 20 bananas. And it would be a sphere full of bananas. 200 kilometres in radius and that would create 200 watts. So we don't think big supermarket
+
+[00:03:11] should be on the lookout for someone ordering a suspicious number of bananas. There isn't a button for times 10 to the automatic checkouts, is there? Do you guys know when bananas reached the UK? Because they think it dates to the mid-15th century. Really? They found a banana peel in a Tudor rubbish tip.
+
+[00:03:32] and the first Were they doing like a Charlie Chapton style comedy sketch? Who knows? We have no idea how it got there and it's really freaked everyone out because previously archaeologists and historians thought that they got to England in the 19th century but there's a theory, this is just a theory
+
+[00:03:49] that they were really common in Tudor England but obviously by the time they got here they'd all be completely black and unrecognizable as bananas and therefore that's why we have no depictions of bananas just picture Henry VIII eating a banana. It's so weird. That's kind of dirty actually That image, isn't it?
+
+[00:04:06] I don't like it I read in the QI archives Victorian guy called Lord Egremont Do you know this fact? Okay so Lord Egremont He spent £3,000 building a greenhouse where he kept a single banana tree
+
+[00:04:23] because he wanted to grow his own bananas And so he managed to grow them And the day came where he was having his first taste of it at which he exclaimed, oh God, it tastes just like every other damn banana. And had the tree immediately destroyed. Have you heard the story of Orban War and the bananas? This is so good. So the banana imports were banned between 1940 and 1945.
+
+[00:04:49] And soon after that, the first delivery arrived since the ban, which was 10 million bananas. And the new Labour government said, let's have a national banana day where every child should have a banana. Great. Auburn War was a writer. He was the son of Evelyn War. And as a child, he and his two sisters, they got three bananas. And they had heard all about bananas. They were so excited.
+
+[00:05:11] And he wrote later on in his memoirs, They were put on my father's plate. And before the anguished eyes of his children, he poured on cream, which was almost unprocurable, and sugar, which was heavily rationed, and ate all three. From that moment, I never treated anything he had to say on faith or morals very seriously. Isn't that incredible? Have you heard of banana peelers?
+
+[00:05:34] No, I don't think so. These are such interesting people. They were fraudsters in the late 19th century, and they made their living from... It was on railways, they were. They would take an old banana peel out of their pocket, put it on the ground, slip over on it, and sue the railway for compensation.
+
+[00:05:49] One woman called Banana Anna, she did that 17 times over the course of her career. She got huge compensation for it. It's weird she called Banana Anna when she could just be called Banana. You would have thought, Wouldn't you? You've thought this already, doesn't make any sense.
+
+[00:06:03] There was this, relatedly to banana slipping, in 1941 in Texas, first of all in the newspaper article where I read this, there was a ship that was described as the first ocean-going cargo ship
+
+[00:06:14] built since the World War. This is in 1941, so poor old America hadn't quite predicted what was happening around them as in the other World War. Anyway, the newspaper reported that the first ocean-going cargo ship
+
+[00:06:26] built since the World War was launched on a bed of half a ton of bananas. Because it was cheaper than Greece, apparently. So the bed, it slid into the water on half a ton of bananas. In 1923, the song, Yes, We Have No Bananas, was released. It was a massive hit. It sold 25,000 copies a day.
+
+[00:06:46] But this was in sheet music because they didn't have the recordings back then. And it was so popular, it spurred a new craze, dancing the Charleston on banana peel covered floors. Wow. That sounds great, doesn't it? Do you know who wrote that? It was Leon Trotsky's nephew. He followed a very different career path to his uncle. Well, here's a slightly weird link.
+
+[00:07:11] The Bananas and Pajamas, the TV show. Yeah. Australian big TV show. It was big here, right? Karl Marx's grandson, I believe, played the banana. Yeah. So it started off as a song. It was called Bananas and Pajamas,
+
+[00:07:25] and that's what the whole series was based on. The song was written by Carrie Bollinger. Blyton, who was the nephew of Enid Blyton. Really? Oh. So two nephews involved in on... There we go. About bananas.
+
+[00:07:38] About bananas. So when I started researching this fact on bananas, I thought I hit a jackpot moment because I discovered on Twitter there was an account called At True Banana Facts. Oh, yeah. Unfortunately, really disappointing. Let me give you a few examples of the facts. Bananas are actually very bad and not good. Just kidding.
+
+[00:07:55] Bananas are yellow and healthy. 420 retweet. They had me for a second there, actually. Yeah. Don't like what someone is saying. Pop a nice banana in their mouth and shut them up. 1,628 retweets. All right?
+
+[00:08:10] What's your problem, Dan? These are true. They are fact, and they are about bananas. Bananas are not good at soccer. Because they don't really have legs. Really? They don't really have legs. They've sort of got legs.
+
+[00:08:23] You mentioned the bananas are yellow. Yeah. And I think they're healthy and good for you, aren't they? Not entirely true. They are not yellow if you see in the UV spectrum. I don't think they'll hold up in port. So, yeah, they've recently discovered this. Only recently discovered that if you shine a black light on a yellow banana,
+
+[00:08:50] it glows blue, which other plants don't do, and they don't know why. But they think it might be to help things like fruit bats, which prey on bananas, they do see in the UV spectrum. And so that makes the bananas show up more. Do you say they prey on bananas? With those little legs, they can get away fast than anything. Actually, they don't really have legs. I read a thing psychologically that if you've shown a black and white photo of a banana,
+
+[00:09:14] you see yellow. Your brain just projects yellow onto a tinge. Which tincts of yellow, you kind of, your brain just naturally finds little tingers of it. That is really interesting. So bananas are slightly radioactive. I read that eating 600 bananas is the equivalent of having a single chest x-ray. I just like the idea of presented with that option in hospital. How many bananas was it?
+
+[00:09:39] 600. Well, we can x-ray the foot, of course, or you can just eat these bananas. I'm going to give you 600 bananas. The nurse and I are going to stand behind this screen. That would kill you, wouldn't it? There's too much potassium or something. What's too much of eating food? Generally.
+
+[00:09:58] Depends on the time span. I mean, you probably eat that over a lifetime. But that's a long wait for your chest tax. There was a guy in a hospital. He'd stolen the necklace, and he ate the necklace, and they wanted to get it back off him. And so to get it back, they needed him to pass stool. And in order to do that, they fed him bananas.
+
+[00:10:21] But then it came in the news, and some doctor said this is stupid, because bananas do not really work as laxatives. And the only thing bananas will... do is add bulk to his store. Maybe that was a way of protecting the necklace though or the man's stomach. Like bubble wrapping the goods. I read that they
+
+[00:10:38] fed him 60 bananas. Yeah. And the article just finished by saying meanwhile, the owner of the necklace has said she will not wear it again. Okay, time for fact number two, and that is Chazinski. My fact this week is that Slovenia's largest
+
+[00:11:00] lake, Blake Sirkneetser, disappears every year. Where does it go? This is, so it's a lake called Lake Kirchnika, and when it exists, it has a surface area of 30 kilometres squared, so it's not volume, it's surface area that makes it the biggest lake in Slovenia. So there are two terms here, Polier, which is a field above a cast,
+
+[00:11:18] and a cast is basically a landscape that's got loads of kind of soft rock in it, and it means that waters eroded the soft rock in various places and created holes in it like a Swiss cheese, and it basically means that the lake gets filled up in rainy season, and then it gets sucked through these swallow holes or these sink holes when it gets dry and the water stops coming through and it vanishes. So it'll be a lake one day and there's boats on it. Imagine if you were camping in like the in this nice big field.
+
+[00:11:44] Yeah. And then you just wake up and suddenly you're in the middle of a lake. Yep. It'd be like Glastonbury. How long does it disappear for? So it generally disappears between, I think, June and September. Yeah. It's amazing that this is the biggest lake in Slovenia.
+
+[00:11:56] Yeah. It is a natural wonder. It disappears every year, but we still haven't heard of it. Isn't I find that's truly bizarre? So you just went. You just got back from Slovenia. I just come back from Slovenia. Did you go and visit this?
+
+[00:12:06] Like? I didn't. How bad is that? I was actually... Well, maybe you didn't. It wasn't there. Anyway, do you guys, did you happen to hear about while you were there the religion, the fifth biggest religion of Slavenia? I love this.
+
+[00:12:19] I can't think they haven't heard this. Okay. So the fifth biggest religion in Slovenia is called the trans universal zombie church of blissful ringing. And it's, yeah, it's become the fifth biggest religion in less than a year. What do they do? They ring bells. Yeah, they ring bells. They have a holy book which says, so its rules written down its holy book include the fact that its zombies resurrect daily.
+
+[00:12:43] It's holy drinks of beer and pina coladas. Holy pina caladas. Holy pina cladas. And it worships cows and it recommends eating the super succulent Japanese Kobe beef. And also I like this. Their sermons, instead of ending with an amen and with bong. Which I think it's cool But it's actually
+
+[00:13:04] I mean it's actually really good So it's an anti-corruption party And it was set up as a serious opposition To a ramp and corruption in Slovenia And it was called by the Prime Minister of Savinaa I think It was referred to as a bunch of zombies And so they embraced the zombie tag
+
+[00:13:16] That was very cool Yeah Guys You were talking about holy pinocalada Here's another Slovenian drink Salamanda brandy You tried that when you were in Slovenia Damn it
+
+[00:13:26] Well I'm glad you didn't try it Because it's not a very nice way of making it they take a salamander hang it by its back legs and pour brandy over its body and so it drips into a cup and then you drink it and the idea is you infuse the alcohol with the poison that the salamander makes on its back and the slight bit of poison and the brandy apparently gives you more of a kick than normal brandy I was looking up oldest things in Slovenia Slovenia has the oldest wheel ever found oh really oldest wheel and it was found in and I can't pronounce it but Ljjubjana. Ljubljana. Yep.
+
+[00:14:03] I think Danz was right, actually. Le Jubdiana, Marshes. Also, they have, are you about to say this? They have the oldest vine. It's a great vine. It still bears grapes. It's over 400 years old. The Guinness World Records book went over there, put it in their book.
+
+[00:14:17] And do you know what it's called? No. It's called Old Vine. So they also like the Linden Tree, which is that tree that kind of smells of semen. Wait, sorry? Have we just spoken about this? Have I missed us? No, what knows about the linden tree?
+
+[00:14:32] It smells like semen. There's a famous Michelin web sketch. Anyway, the linden tree smells of semen. Right. They're proud of their linden trees, and there's a 780-year-old linden tree in Slovenia, which is the oldest one, and every year in the summer,
+
+[00:14:43] the government has a political meeting underneath it. Does it smell like very, very old semen? Yes, a long abandoned condom. Oh, God. Do they... The government gathers around. Does anyone got anything else? Something Slovenia also has.
+
+[00:15:01] The Hitler Beetle. Oh, yeah. If you haven't... Oh, yes, yes. Yeah, and I think... I'm not sure... I don't think we... In my head, I thought you meant the Beatles is in the band, and I was like, who's the Hitler
+
+[00:15:11] Beatles? John Paul, George, Jorgergo, and the Hitler Beater. The Hitler beetle, it's a cave beetle. It's blind, and it lives in five caves in Slovenia. It's very, very rare. And it was named in 1933 by someone who really liked Hitler. He was a guy called Oscar Scheibel. And Hitler wrote him a thank you letter.
+
+[00:15:30] And they're now critically endangered because Hitler fans are still in the market for them. And they sell for a thousand pounds each. Well, that's why I went to Slovenia this year. Also, just one more thing. Just on taxonomy, I know this is a complete tangent. But there was a fly in 1994, a fossil fly which was named I, just the letter I. It was named that until a researcher said he didn't want to have to keep writing, I have small male genitalia.
+
+[00:15:59] You got changed. You got changed to, I, aye, aye. Okay, time for fact number three, and that is Andy. My fact is that half the world's sikas have died in the last month and nobody knows why. What is a siger? They look like antelopes that are in Star Wars. They look like a Dr. Seuss character. Yes, they do.
+
+[00:16:22] Yeah. They have this incredibly strange proboscis on the front of their face. and they live in Mongolia and Kazakhstan, I believe, and bits of China. And for some reason, we don't know why, but in the last month, half of all Saiga have died. Wow. I think the dying has stopped now. You mentioned Mongolia and China. I actually think they're extinct there now.
+
+[00:16:46] Oh, really? And I think they were driven to extinction by the fact that they were being used for medicine. So you could buy bits of them for quite a lot of money. It's their horns, isn't it? Yeah. They put the ground-up horns. That's one of the reasons they're so endangered. In the early 90s, I think there were millions of them.
+
+[00:17:02] And, yeah, they were hunted partly because conservationists were trying to conserve rhinos because rhino horn was being used as a traditional medicine. And so sort of encouraged people to revert to, yeah, siger horns instead as traditional medicine. And it's thought to be like an aphrodisiac. And it's thought, so for instance, in Singapore, you can buy cooling water, which is, it looks like a normal bottle of water, which says that this can reduce a fever or just really cool you off. And if you look at the ingredients, it's got Sigerhorn as one of the ingredients. It's terrible.
+
+[00:17:30] They are really delightful creatures. There's a website, Ultimate Ungulate.com, which has good stuff about them. And it also says, only one word can describe the face of the saga, bulging. If you look at them straight on, it looks like their eyes are sticking out on little stalks. They have really, really odd faces. And they're tiny, aren't they? They're about two foot tall, I think. Yeah, they're not very big.
+
+[00:17:54] Really small deer. But those noses that they have, they're pretty extraordinary. They can heat air in them. In the winter, they do that. Yeah, so if it's too cold, they'll take air in and they'll just do a quick sort of microwave on it. And then take it into their lungs. Ding! Do they sometimes suck in like a little ginsters burger at the same time?
+
+[00:18:12] Quickly. I was looking up other animals with mental noses, basically, for this. I really like the hammerhead bat, which looks just like a moose. It's just quite huge nose. And its larynx takes up. half of its body. And the way they attract female mates is by a big honking ceremony. So all the bats line up on hang off various trees and they all perform this honking ceremony through their gigantic larynxes. Then the female bats all fly past and listen. And if they like the sound of
+
+[00:18:40] someone's honking, then they pop onto the branch next to him. Yeah. So cool. One more thing that cygas do with their trunks. Yeah. They use them to lure females. Male cygas do. They make sounds through their proboscis. If they make lower sounds, they can make themselves seem larger than they are. And that's more attractive. Yeah. And this is important for cygas because most matings occur mainly at nights when the real sizes of callers are not visible. So all the female cigars are thinking that there's these really beefy kind of male cigars around.
+
+[00:19:12] And then during the daytime, they're like, weren't they all gone? There's just this little weedy guy around. Is it like that thing where you wake up in the morning after a one night stand and go, oh. That is not what I was. You said you were huge. This is probably the most interesting taxonomy thing about antelopes generally. They are even-toed ungulates. So that group is called artio-dactylla.
+
+[00:19:35] It's recently been discovered that these share a common ancestor with cetaceans, i.e. whales, and they're all part of the same group as quotations. And this is partly why we believe now that whales evolve from being on land to going back in the water, because there's this tiny two-kilogram mouse deer, which really likes being in the water and so we've just wants to be a whale yeah wants to be a whale and that's kind of the link between whales now and millions of years ago
+
+[00:20:01] when these little deer kind of evolved to creep back into the water and turn into whales you have a little deer you have a little deer who wants to be a whale at night time probably telling the ladies he is a whale and it's because we found ankle bones in certain cetaceans haven't we yeah and also they sometimes grow hips
+
+[00:20:21] Well, they have hit bones and sometimes grow little legs on the side of whales. They don't really have legs. Not like bananas. I was reading this book. It was like a book of biology from 1800. And apparently to say a woman had eyes like an antelope was the highest praise you could possibly give her. Because they have the most beautiful eyes. You have eyes like an antelope and nose like a tiger.
+
+[00:20:44] Legs like a whale. Also on attractive women being compared to antelopes. The word for an Arabic love poem is a gazelle, and that is thought to come be connected to the word gazelle, because often women were compared to gazelles in Arabic love poetry. So, for instance, there's one poem, I think, from the year till about 650 AD, where the Caliph Abt al-Malek frees a gazelle he's captured
+
+[00:21:11] because he suddenly realizes it looks like the woman he's in love with, so he captures this gazelle, and he's like, oh, my God. On extinctions, just one more thing, the voluntary human extinction movement. Do you know about these guys? So there is the V-H-E-M-T, they call themselves vehement. And their idea is that humans should die out
+
+[00:21:30] because it would save all the other animals on the planet. He doesn't think the people who are in charge don't think that everyone should just be killed. They think we should just not have children. That's the idea. And they think that the need for children is cultural conditioning. And actually people
+
+[00:21:48] don't really want to have children, and they could take such desires and channel them into perhaps gardening or adopting a stream. Adopting a stream. That's one of their suggestions. You'd be really sad if you adopt a lake in Slovenia, weren't you? Okay, time for a final fact of the show, and that is my fact. My fact this week is that Barbara Streisand had a shopping mall built for her sole use, and it's under her house.
+
+[00:22:18] It's got cobblestone paved. street and then it's a collection of just old last century style shops sounds like diagonal alley it it kind of looks like it when you see it i mean it's got a sweet shop it has um it has an antique doll shop are they all stuffed no there's no cash registers what she does is she buys it rather than putting stuff in her actual house she's just set up shops underneath her house to put the things that she's bought into so they're like cupboards really yeah but they're but what you're saying is she's got a massive cupboard which I know what it's covered.
+
+[00:22:49] But she's now, like, she's taking it so seriously that when she's on the sets of movies, like famously on Meet the Fokkers, the movie that she was in, when they were dismantling the sets, she started collecting the doors and bringing them back. When you say collecting, do you mean stealing? I think she asked.
+
+[00:23:03] I don't think Barbara Streisand could steal. I think she just takes it and you go, well, I must have given that to her. That kind of thought that gets people in trouble. St. Blasor was just collecting a lot of money. Yeah, so she has an antique. She's shop. She has things like benches out the front for men to sit on. I think she sounds tiresome. I'm sorry, Dan. I'm not defending her. I'm just saying this is what she's got. Also, she doesn't know what a shop is. That's not a mall. You don't, you have, there has to be some kind of exchange of money for goods in a mall. Does she walk around it? Yeah, she walks around it. If she's going to a party and she needs to bring a present, she'll go down into her mall and she'll pick out an item. Does she do all the voices? Does she run around behind the counter? and say, oh, that'll be $86
+
+[00:23:48] Miss Streisand. Oh, well, that's very expensive, but I'm sure I'll... Well, it looks like it's worth the money. Thank you. Would you like it, rap? Well, yes, please. I'd love it, wrap.
+
+[00:23:56] That's an excellent Barbara Streisand. Thank you very much. So my favourite thing about Barbara Streisand is that her real name is Barbara Stricand, originally, but she got rid of an A in the name Barbara, so it's now B-A-R-B-R-A. I think she said she did that, because she wanted to be a bit special,
+
+[00:24:12] but, like, changing her name fully was too showy. Yeah. And that seems to be a... part of herself she's left behind that desire not to be too, Sherry. Do you think she goes to her Starbucks in her mall and then... Excuse me, what is the name, please? Well, it's Barbara. Okay, is that B-A-R-B-A-A-A?
+
+[00:24:32] Not actually, is it? In 2006, she donated $11,750,000 to the Barbara Streisand Foundation, which I'm sure that that money goes up. wherever I like that idea. Because it was the construction of vast underground palaces. So the main thing that I know Barbara Streisand for is the Barbara Streisand effect. Yes. Okay.
+
+[00:24:57] So this is on the internet, you try and stop people from doing it, and it just makes them want to do it even more. And it started off when some guy took a photo of her house, and she wasn't very happy, and she tried to sue him to stop people from being able to see it on the internet. And 420,000 people went to the website to look at this house, because of the lawsuit. And before they'd done the lawsuit, it had only been downloaded six times. Wow.
+
+[00:25:23] So just by starting off the lawsuit, it meant that everyone then saw what she was trying to hide. Did she also recently do a lawsuit about no one's allowed to release a podcast referring to my ridiculously extravagant basement? Yeah. And doing a series of amusing, but also startlingly accurate impressions of me.
+
+[00:25:42] Oh, actually, relatedly, I read this most fascinating article in the New Yorker recently. And on extravagant houses, the second biggest mansion in London after Buckingham Palace is in Highgate. Nobody knows who owns it. People have been trying to find out for years. And it's this like, so it's called Wittenhurst. It also has a ridiculous basement. So it has a 70 foot long swimming pool in the basement, a cinema with the mezzanine massage rooms, a sauna, gym, staff quarters.
+
+[00:26:09] So just a normal house, then. It's a standard basement, yeah. It's more than 40,000 square feet. And the family's lawyer, the family of the. that owns its lawyer, said that he would take the secret of Wittenhurst's ownership to the grave. The journalist and the New Yorker who went to talk to the estate agent about it, the estate agent made the journalist leave her phone and her bag in a different room while he just discussed the house with her. I mean, it's the only thing bigger than it in London is Buckingham Palace. That's insane.
+
+[00:26:35] That's incredible. The idea of digging downwards now to make house extensions is massive. And stuff that they're building is insane. People are putting in two-floor rock-climing walls and Ferrari museums. And it's insane. That's what the guy, the guy who, he hasn't been able to build it just yet, but the Foxton's owner is trying to get a extension below his garden where he wants to keep his Ferraris as a Ferrari museum. As a museum, though. Will the museum be open to the public?
+
+[00:27:04] Will it be one of these bars and shopping mall things? Oh, what a lovely Ferrari, you enormously wealthy man. Have you guys read about this guy? who posted on Reddit earlier on this year, I think. He moved into a studio apartment somewhere in England, and he found a trapdoor. He saw a trapdoor in the floor that hadn't been, the estate agents hadn't mentioned it,
+
+[00:27:24] opened it. Turns out it's an old English monastery conversion underground. So he bought a studio apartment. He now has 30 rooms. Fantastic. It's quite exciting, isn't it? That's great. I'm going to dig up all the floors in my house just in case.
+
+[00:27:38] I would do the same thing, but I live on the first floor. There's a mirror kingdom underneath. mine. The White House has an amazing bunker and they're currently built it. In fact, they're going to be moving Barack Obama and the Oval Office this year away to another location in the White House
+
+[00:27:56] because they now need to add all the extensions. Because he has a trapdoor underneath the desk. I didn't know that. Yes, there's a trapdoor. There's a trap door for the president underneath the desk. This is what it says. The existing trap door under the president's desk leading down to the Secret Service command post
+
+[00:28:10] will be modified, so this is what's currently going on, to allow presidential passage directly to the new underground command bunker. Now, what's interesting is, now, this is from the White House's website. In 2010, they started building a new underground command center, and it was just this building that was sitting there, that in the Bush administration, the building officially didn't exist. Despite being there, they just said, we don't know what you're talking about.
+
+[00:28:34] It did notoriously have a problem, that administration, with whether or not things existed or not. Okay, that's it. That's all of our facts. much for listening. If you want to get in contact with any of us about the things we've said over the course of this podcast, we are all on Twitter. You can get me on at Schreiberland, Andy, at Andrew Hunter, Ed, James, at Egg, at Egg, James, at Egg, Anna. You can email podcast at QI.com. Yep, or you can go to at QI podcast. We'll answer on that too. We'll be back again next week with another episode. We'll see you then. Goodbye.

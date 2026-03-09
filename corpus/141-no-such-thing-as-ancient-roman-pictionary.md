@@ -1,0 +1,269 @@
+# No Such Thing As A Fish - 141: No Such Thing As Ancient Roman Pictionary
+
+- Episode date: November 25, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/141-no-such-thing-as-ancient-roman-pictionary
+- Slug: 141-no-such-thing-as-ancient-roman-pictionary
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, and I'm sitting here with James Harkin, Andrew Hunter Murray, Anna Chazinski, and once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, James Harkin. Okay, my fact this week is that the word wow was popular in Scotland for 400 years before it caught on in the rest of the English-speaking world. You were so waiting for one of us to go there, weren't you? Oh, hang on. Wow, wow. I'll edit that in the right place. Yeah, isn't that crazy?
+
+[00:00:59] It's first use, 1513, this is according to the Oxford English Dictionary, in a translation of the Aeneid by G. Douglas, whoever that was. Was it the original author, Virgil? Yeah, you're right. But G. Douglas was a Scottish person, and he said, out on their wondered spirits, wow, thou cryus. And then the first time it gets used really in the English-speaking world is about the 1890s, and Burns uses it, and a few other Scottish writers use it as well. And it was in that context, it's meant as an exclamation. Looks like it, doesn't it? Wow, thou cryus. Yeah. You're crying. Wow. Yeah. So why were Scottish people keeping it to themselves like a secret for 400 years? Maybe the only exciting things that happened in the world were all in Scotland.
+
+[00:01:43] That's true. They were ahead with inventions and the Enlightenment. There was much more to say wow to than there was necessarily elsewhere. Yeah. So yeah, Andy brings up a good point. How is it that we must have been, people were communicating, obviously, from Scotland and England and Ireland and further places. Would they have been saying it to their face, do we know? So you think that when the English went back down south, they go, wow, what a bunch of idiots. Wow, thank God he's gone. Well, we don't know. Basically, this is, as with all of these citations, this is the evidence that we have. So the only evidence that we have that it was spoken by anyone or written by anyone was in Scotland. And then when the evidence for it being spoken in England and the rest of the
+
+[00:02:27] world comes in, that's all later on. Okay. But it seems like they were deliberately keeping it secret for everyone, I guess. As soon as an English person comes along, they all had an agreement to shut up. Do you know another very old Scottish word first used in Scotland is boo. Really? B-E-O-O. Boo. Same meaning. Yeah, it's a word that's used in the north of Scotland to frighten crying children. So they were already frightened and crying. But does that frighten them out of their tears? It does sometimes with children, doesn't it? I've tried it. Does it? Yeah, just on random. You did not sometimes make it worse. I think it's 50-50. It's definitely worth a try though. It's quite fun. But then you might try it like eight times and by
+
+[00:03:03] then it's like, you know, you do it once and it gets worse and then you do it again thinking, oh, I'll bring it back to the last time and it just gets worse again. It's a slippery slope. So another early reference this might give more of a guide to what context it was used in was used by Sir Walter Scott in 1830. And he used to write papers on the esoteric on the paranormal. I had no idea about that. So he wrote a paper on, it was called Letters on Demonology and Witchcraft. And that was from 1830. And the sentence he had in it was, we start and are afraid when we hear one cry, boo. But he's spelled it B-O-H. So sorry, is he claiming that ghosts shout boo? Is that where we've got the original idea that ridiculous ghosts shout boo? Yeah, I guess so.
+
+[00:03:45] Ghosts say boo. Ghosts go woo. In comics they say boo. They say boo. Do they? Yeah. It depends on the kind of... It's a lot like Scottish dialects. I think ghosts from different places have different ways of speaking, don't they? Different pronunciations. Yeah. So the Scottish also have, Scots has 421 words for snow, which is... So I think a lot of people used to say that Scandinavians had thousands of words for snow as well. Eskimos, yeah. Eskimos. And they don't, but the Scots do. So they've got these amazing words for snow and this is taken from all the Scottish dialects. So there are a lot of Scottish dialects from all around the country and that's different to Gallic. And there was a study done a couple of years ago by a Scottish thesaurus compiler
+
+[00:04:29] that found they have words specific to snow like sneezle, which is to begin to rain or snow. Skelf is a large snowflake. Fuchta is to fall lightly and come down in odd flakes. Fuchta. Really? It's really fuchtering out there. That sounds very Germanic. Germanic. Fuchta, no. It does a bit, but it also sounds a bit Scottish. And it obviously is a Germanic language. The thing with the Eskimos, I think, is that you could technically say that they do have a hundred words for snow, but the way it is is they have one or two or maybe four or five roots, which kind of means snow. And then the rest of them you can just put like a prefix or a suffix after it to make another word, which means this type of snow or this type of snow. So it's snowing a bit
+
+[00:05:12] or it's snowing a lot or 98 other variations. So like we would... It counts heavy snow and light snow and, you know, fuchta snow, all this wonderful thing. Just in this study that they did, the Cessaurus, they also looked at words that Scottish people have for sport. They figured there'd be a lot of sporting words as well. And they assumed that football would have the most words that are used to refer to it because football is popular sport. And actually it turns out that the sport of marbles has many more words specific to that sport of football. Yeah, so marbles has things like it had 369 different items of vocabulary linked to it in Scotland. Have you got any? Yeah, there's runt it, which is having lost all of one's marbles to one's opponent.
+
+[00:05:54] There's a knieve, which is a method of a cheating in delivering the shot by advancing the hand too far. I remember having that done to me when I was a kid. Wow. So marbles actually more popular in Scotland than football in some ways. And are these, these are words from Scottish dialects or are the Gaelic words? They're words from Scottish dialects. Got it. And I think you mean Gaelic. I think I mean Gaelic. Oh my God. Guys, we've just spent the last 15 minutes before this podcast arguing about this. Yeah. That was an act of war that Andy just pulled out there. All I'm saying is what my Glaswegian father has said. And now I think of it, I'm not certain whether he said Gaelic or Gaelic, but I'm pretty sure it was Gaelic. So please write in. In your hundreds.
+
+[00:06:37] Sorry. Is marbles competitive on like, is it as in like, you know how we have darts on TV here? Is there marbles on TV in Scotland? Yeah, the marbles channel. You're kidding. Oh, you are. I think it's just like an old fashioned game. Isn't it like, for instance, Skittles or something like that? Yeah. It's not one. It's a bit more old fashioned than Pogs. Pogs go back to the Romans. The Romans had 500 different words to describe Pogs, didn't they? So there is another word which Macmillan's open dictionary took in August. So some dictionaries have an open section where anyone can submit a word. And then but then it's like a holding pen for words. And then they take the words that they could find actual evidence for.
+
+[00:07:20] And one or few of them, I imagine. Yeah, very few. Well, actually, they say about three quarters fall into the disallowed sections. And they said that those are words that you or your friends have invented, obscenities, the names of people you dislike and what you would like to do to them. But with me, all three of those are just one word. Can you share that? Or is we'd have to edit that out with you? We'd have to let Andy out of the room. But the word that they took in August was boar bag. Oh, yeah. After Hurricane Boar Bag. After Hurricane Boar Bag, which was a storm in 2011, all the papers, it was so annoying that
+
+[00:07:56] all the papers called Hurricane Boar Bag. Ball bag. Yeah, but with a W ball bag. And when Nigel Farage visited Scotland in 2013, he was greeted with cries of Nigel, you're a ball bag. Was that a reference to the hurricane of political activity that he engendered? I can only assume that it is. I can't think of any other reason why people would compare him to a ball bag. Yeah. Is there a picture of him next to that word in the dictionary? I don't know. They don't really go for pictures in the dictionary, but maybe in the children's edition, they'll have a picture of him. It's weird that that's a saying, actually, isn't it? If you look up stupid, there'll be a picture
+
+[00:08:28] of you. Because as you say, the dictionary is a book that does not go in for pictures at all. They should say, if you looked up stupid in the dictionary, there'd be a lengthy verbal description of you. However, if you were to look it up in the children's dictionary or the picture dictionary, there would be a picture of you. Can I just on? Or in the dictionary? Sorry, you're still going. What is picture number? That's a game, right? It's a game. It's an ancient Roman game. It dates back to earlier than Pogs. Impossible. Just on Scots dialects. So there was a census in 2011, which asked Scottish people if they spoke Scots. And there was a website that was set up to help people out with this in case they didn't
+
+[00:09:06] know if they did, because it's dialects. A lot of Scottish people might speak a dialect, but think they're actually speaking just kind of bad English. And so there's now a website called I can, A-Y-E-C-A-N, which is really fun. And it plays the dialects from all the different regions of Scotland. And if you can understand them, it shows that you speak that dialect. Does it also play bad English just in case that's what you speak? Yeah, that's actually become a Scottish dialect now in its own right. What they should do is put bad English at the top. And so you click on that, and it's bad English. And you're like, okay, I definitely don't have any of the rest,
+
+[00:09:38] rather than going through all the dialects and get into the end of going, oh, it was bad English after all. I don't know if you go through all, because if you're from Glasgow, for instance, it's very unlikely that you'll speak the Shetland dialect unless you're in Shetland. They spoke something very similar to Old Norse for a long time, didn't they? Yeah, Norn. Yeah. Until only like two or three hundred years ago. Yeah. Yes. It clung on, because it came because Norway owned Shetland. What's clung on? Sorry, is that the name of it? It clung on. Sorry, that's just my bad diction.
+
+[00:10:07] You've got bad English. I've got bad English. So I found another Scottish word, which is glamour is Scottish, which I didn't know. Because I've heard of that in English as well. Yeah. Well, we use it now. It's passed on to us. That's fine. But I just assumed glamour meant someone who looks very glamorous, as someone who's dressed very well in high fashion. But the definition of glamour,
+
+[00:10:30] at least the original definition, is magic, enchantment, spell. So whenever a magician says my glamorous assistant, he's actually saying my magical assistant. Is that really true? Yeah. As in that's why he says, oh, I see you. No, I know. I'm assuming that must be the origin of why that can't be an amazing magician. That's not why all magicians say my glamorous assistant. Glamour meant something astonishing, like magical, and then it meant something beautiful, and then it was used by magicians, and then Dan made this connection.
+
+[00:10:57] Yeah. So that's how that works. Okay. Well, what a beautiful connection to me. That's very cool. They might be saying my magical assistant. So the Collins English Dictionary, they have a Scottish wing, and they recently added, so they have Words of the Year, which we've discussed on the TV show as well. So they added things like- What TV show is that? There's no such thing as the news. It's the BBC2 TV show.
+
+[00:11:16] Wednesday night? It's on Wednesday night. It's on BBC2 after news night. Okay. They had a word, it's like never-endom. Have you heard of this? Which is just, you know, this debate about the referendum. I think that Bob Bag was talking about the whole time. Yeah, exactly. That just keeps going on. And they've also added Nicola Billia. Any guesses?
+
+[00:11:36] Is it a lot of things that you collect that are made out of nickel? No. Not bad. That's been all the rage this year. James' desk is biding up. Is it like loose change, because that's like nickels? No. Think of the Nicola bit of Nicola Billia. Nicola Sturgeon. It's merchandise-
+
+[00:11:54] She collects nickel. And no. No. It's merchandise, featuring the face of Nicola Sturgeon. And I'm unsure about how much this is used. I haven't found out my relatives. Right. I'd ask them. I've just got a couple more things on exclamations. So one that I use all the time is Holy Moly.
+
+[00:12:12] And I assume that I got that from the early Batman series. You know, Holy Moly Batman. So there's actually a Wikipedia article where they've listed every single Holy something that Robin has said. And there's hundreds of them. And I've just picked out a few. Holy Bank Balance, that's fine. Holy Contributing to the Delinquency of Miners, Batman.
+
+[00:12:31] And Holy Priceless Collection of a Truscan Snoods, Batman. In context, they might make sense. I think it was plot point explaining. I think it was like, he was just trying to remind you that we're looking at a Truscan Snoods here. Holy crowbar, Batman. But weirdly, the one missing from the list, Holy Moly. Not on the list.
+
+[00:12:49] Because it's a catchphrase that's owned by Captain Marvel. You were saying, Holy, that's what kind of a lot of old sour, aren't they? They're kind of things against the church. Gosh means, it's another way of saying God. Gadzooks. Gadzooks, Gadzooks. But when I was looking up Gosh, I found out that people used to say Losh. Which was like short for Lord.
+
+[00:13:11] Yeah, in the 18th century, Losh. Oh, that's really good. Isn't it? I might bring that back. I really like that. Just on Fuddleduddle, another explanation. That's got a more recent history. Do you know where that came from?
+
+[00:13:23] Fuddleduddle, no. Yeah. Fuddleduddle, that thing we say all the time to exclaim. That comes from Pierre Trudeau. So you know Justin Trudeau's dad, who was Prime Minister of Canada in the 70s. He was in a parliamentary debate when he was Prime Minister. And the opposition said something he didn't like. And he mouthed what the opposition then went out to journalists and complained,
+
+[00:13:41] looked a lot like a word beginning with F, then a word beginning with O. So they said, what were you thinking when you mouthed those two words? And he said, well, what's the nature of your thoughts, gentlemen, when you say Fuddleduddle? So he sort of claimed it was Fuddleduddle. And then that's caught on in a way. They all went, fuck off. And then actually recently, last year, Justin made a speech where he did admit
+
+[00:14:04] that his dad hadn't in fact said Fuddleduddle. Right. Yeah. Scandal. There was an Israeli guy, he was 90 years old, and he said, he was in the news about five, 10 years ago saying that he invented have a nice day. And he was like, I don't know what I was thinking. It just came into my head and I just said, have a nice day.
+
+[00:14:21] And then before I knew it, everyone would say it. OK, it is time for fact number two. And that is Anna. My fact this week is that at least 61 species live in elephant footprints. That's so cool. It's so cool. Wow. What, so exclusively live in?
+
+[00:14:42] No. So this is a paper that was published a couple of months ago. I read about it in Scientific American. And they've just studied the mini ecosystems that are elephant footprints. And they found 61 species in them. And that's the only studying a few. So all these creatures are living in elephant footprints. But they make it their permanent habitat because they looked at older footprints
+
+[00:15:03] and they found that they'd have much many more animals in them. And that's because dead leaves have fallen into them and things like that. So it's become a bit like richer environment for them. But yeah, you get tadpoles in them swimming around. You get mites, mayflies, leeches, gastricods. None of the big hitters. You don't get any shrews or anything. They don't get dolphins in there.
+
+[00:15:26] No, you cheat. Apparently they can hold 200 litres of water. Isn't that amazing? What? Yeah. Maybe a litre is less than we think it is. Yeah, how much is that really? This is an African litre, which is five millilitres.
+
+[00:15:36] No, I don't know. I think it's, yeah. If you had to express that in something that I'd understand. It will be, you know, nearly 400 pints. Wow. In one footprint. Yeah, I think that's, I was so skeptical. But I guess in mud, then they'll sink very deep, won't they?
+
+[00:15:53] 00:15:53,440 --> 00:15:54,400 So that can really fit. Does that count as a footprint, then? If like your leg is in... You think it's a leg print? That's a leg print. It's a full elephant print if he just gets completely stuck in. But they do, and the other thing I do is they hop from footprint to footprint.
+
+[00:16:07] What, elephants? Oh, no. I read they can't even jump. They call them stepping stone habitats. And apparently it's, because during the dry season, it's really important for animals. And if the elephants weren't walking through this area, they would disappear during the dry season.
+
+[00:16:22] Certain other species would not be able to live in these areas. But they, I mean, this is, this raises more cause for concern at elephant poaching, obviously, because it looks like these elephant footprints are preserving a lot of these creatures. Massive housing crisis. Yeah, exactly. Yeah. I mean, I was already quite concerned about elephant poaching,
+
+[00:16:40] but now I hear that tadpoles are involved. I'm breaking it. Well, the thing is, like with all this kind of thing, the elephants, you can be concerned about the elephants, but actually it's the fact that they're top, you know, species in an ecosystem. And actually it is. There's hundreds and hundreds of different species that rely on them.
+
+[00:16:56] So you, like, if you want to save an elephant, it's mostly the other animals you should be worried about, really. Yeah, but they don't look as cool as an elephant, do they? That's true. But also, is it not that they loads of plants, that they disperse the seeds through the plants? Yeah, they do, they really do. Who do, sorry?
+
+[00:17:11] Elephants. So people, they're called ecological engineers, because they properly create habitats for other animals to live in, don't they, by knocking down all the trees? Yeah, so they're good for lions, because they knock down trees as they move along, and they convert forests to scrubland, which means you get smaller animals living in the scrubland,
+
+[00:17:27] which means that lions prey on the smaller animals. So not so good for the smaller animals then? No, but good for the lions, yeah. And apparently they have 96 species of seed a day, on average, in their poo, which they disperse across the areas they're moving through. They're like large insects, really, aren't they, spreading? They're like big bees, spreading seeds.
+
+[00:17:47] They are, they're almost like pollinators. They're so unlike insects, the opposite of insects. They spread the seed of plants. I mean, in that one incredibly specific respect, they're quite like it. And they've got six legs, is that right? So just to get my head around it, these animals, they're most found there?
+
+[00:18:05] Where else would they live, if not in the footprints? In ponds and stuff. So there are fewer ponds around, especially in the dry season, so they'll find this kind of footprint, which has turned into a pond, and they'll live there. If it wasn't there, they'd have to try and find another pond. But the more ponds there are,
+
+[00:18:18] the more places they can live, and the better their species will do. Do you know what amazing use for elephant poo? If you're dying of thirst. Oh, no. Yes, you can squeeze it together and wring a few drops of water out of it. Barry Grills does that, doesn't he?
+
+[00:18:35] I think he did it with camel poo, as opposed to elephant poo. Can't remember, maybe it was elephant poo, but yeah, you can see footage of that. There's not much bacteria in there. Botswana gets 650,000 kilos of elephant droppings on the ground. That's Botswana alone, every day. Wow. It's a lot.
+
+[00:18:50] It's so much. Yeah, they poo it up. It is a lot. No one's denying it. All right, but I'm waiting for one of you to try to deny it. It's not that much. It is that much. So I was looking into other odd places
+
+[00:19:08] that you find species living in that aren't necessarily natural to their habitat. There's researchers have been looking in this specific African cave because they found out about this group of crocodiles who live in this cave. And it's really rare because they're out of sunlight for most of the time.
+
+[00:19:24] They feed off bats that live in the cave and so on. Yeah, they have just a totally different eating habit. The thing is they do go out though, so they're not going to go blind. They're not going to adapt to nighttime. Because they're going to need the heat because they don't make their own heat. Yeah, exactly.
+
+[00:19:38] But they do spend a lot of time there. And one thing they noticed, they did think for a while, at least to begin with, like, wow, I wonder if this is a completely different species or subspecies of crocodile, because it was orange. And they were like, what's going on here?
+
+[00:19:50] And it turns out that because of the water that they're in in the caves, there's so much bat poo that goes into the water that it's colored the crocodiles into a different color. So they come out and they're like, whoa, what's this weird color? And it's just batshit. Do you think that's where the phrase
+
+[00:20:03] batshit crazy comes from? Because they look so crazy, they've turned orange, and the other crocodiles are going, you look batshit crazy. It could be, yeah. I don't think so. There's actually this other amazing cave that has its own ecosystem,
+
+[00:20:17] which I found out about. So this is called the Sundun Cave in Vietnam. Apologies if I mispronounce that. This is the world's largest cave, and it was discovered in 2009 by a British guy. So that's when it's reported it was discovered, even though I think the people in Vietnam knew about it. But it's this huge cave.
+
+[00:20:34] So it has a jungle in it, if you go into it. So it's got a jungle with... You should honestly look up pictures of this place. It's extraordinary. A jungle in a cave. The trees. Come on. And inside the jungle, there's a desert.
+
+[00:20:47] Inside that, there's an ocean. Why won't you believe me? We're at the bottom. It's another massive cave. It's the Russian doll of caves. There's a jungle with trees that are 30 meters tall. It has its own river. It's got a center park.
+
+[00:21:06] And all these new species have been found in it anyway. Yeah, honestly, look up pictures of it. So they found a new type of gecko, a tree frog, a new type of striped hare living inside this cave, completely underground. The main cavern of it is so big it has its own climate. So it has rain clouds, which I imagine means it actually rains inside this huge cave.
+
+[00:21:25] Where is this again? It's in Vietnam. Can I just say one last thing? Yeah, sure. Because I read this the other day. I haven't got the full details here, but there's a species of crab and they're polygamus. So the males have sex with loads of different females
+
+[00:21:36] and vice versa. If these crabs find a turtle shell with just the right gap between the shell and the bottom of the turtle that will fit two crabs in, then a male and a female crab will go and live inside the turtle shell and they'll have a monogamous relationship. And they won't have sex with anyone else.
+
+[00:21:53] No way. But anywhere else they live, they'll have loads of partners. But if they find that little niche, then they'll kind of stay together. It's like a suburb. It's right if you move into the perfect house, your relationship can be repaired.
+
+[00:22:08] Absolutely, yeah. That's the lesson here. Okay, it is time to move on to fact number three. And that is my fact. My fact this week is that the original edition of Wisdom's Cricketers Almanac was 112 pages long. And because the author wasn't sure what to put in it, was padded out with accounts of the trial
+
+[00:22:30] of King Charles I. So if you don't know what this book is, this is published annually and it is the ultimate cricketers book. And the current edition, the 2016 edition, is over 1,500 pages long. And so it's a huge book. It has nothing but cricket.
+
+[00:22:47] But the very first edition, Wisdom, was like, I don't have enough cricket to put in this, but I need to make it worth buying. So he added the accounts of the trial from King Charles I. He also put in Battles of the English Civil War and also Britain's canals, the size of them and length. And also the rules of quiting.
+
+[00:23:03] Yeah, what is that? Quiting is where you, I think you have a quite is like a kind of a circular thing, a bit like a horseshoe and you throw it to a stick and it goes round the stick. And if you get it round the stick, you get points. It's based on pub garden games, quits. We should actually not only explain what quiting is,
+
+[00:23:21] but probably for our American... We'll explain what cricket is. It's like baseball only a lot slower. I don't know, that'll do. And there are tea breaks. I still find that insane. So I didn't know that because I didn't really follow cricket, but halfway through a day of playing cricket,
+
+[00:23:37] they all stop to have cups of tea. No, you have tea as in food. You would have like sandwiches and stuff. Yeah, to see to English people who know about cricket, that seems like the most normal thing in the world. Yeah. I mean, you go for five days. Well, I'm an Aussie, I should know that in theory.
+
+[00:23:50] Well, actually, do Australia play cricket anymore? Interesting fact about the cricket is almanac. Really interesting fact. Get ready, hold onto your seats. So it's been published every year since 1864. And for the first six years it was published, it was Wisdom's Cricketers Almanac, but for the subsequent however many years,
+
+[00:24:12] it's been Wisdom's Cricketers Almanac, with the apostrophe on the other side of the S. Which S? Wisdoms or cricketers? Cricketers. Yeah, there's only ever been one Wisdom. So it's always been from one Wisdom, but originally it was for only one cricketer. It was for one cricketer for the first six years.
+
+[00:24:29] It was just aimed at one cricketer. No one knows who that cricketer is. But John Wisdom, the founder, was quite an interesting guy. He was a cricketer, and his nickname was The Little Wonder. Because he was five foot nothing, and he weighed seven stone when he started his career. And he was tiny. And yet in one match in 1850,
+
+[00:24:44] he bowled out all 10 of the opposite team in a single innings. Which I think it's written online that this is the only time that's ever happened in a first class match. So they were all bowled out as in he hit the stumps rather than them being caught out or got out another way. There are about 10 ways you can be caught out. That's great.
+
+[00:25:01] Yeah. Well done him. Yeah. On page 657 of the year 2000 edition, the Leicester spin bowler Matthew Brimson exposed himself. And nobody noticed at the time. And it went into the edition. And then about six days after it had been published,
+
+[00:25:18] someone wrote in and said, this guy's middle stump is in this picture. Matthew Engel, who was editor at the time, wrote about this. And he said, in the 2000 Leicester Shafoto, one of their most obscure players was laughing. Oh, having chosen to expose himself to the camera, his only contribution to cricket history.
+
+[00:25:35] The Leicestershire squad was large. The page was small. So was our editorial team. And so was the appendage. Okay, this guy got slammed by the side. Yeah, absolutely. It is kind of embarrassing that nobody noticed for a week. Yeah.
+
+[00:25:50] And then when it so then he was asked to apologize and he didn't. And apparently he said, well, he said it was the editors folks. They should have spotted it. And Engel said, oh, do you think we need to, we need to employ a full-time penis spotter then? So did you know the first cricket balls
+
+[00:26:05] were rolled along the ground? That was the first way you bowled in cricket. Really? This is very early. Yeah. So it was more like croquet. Kind of, yeah. Except you're allowed to roll the balls along the ground.
+
+[00:26:16] So yeah, yeah. And the idea being that it was still trying to hit stumps behind. Yeah, yeah, yeah. So there's, is it French cricket where you throw very, very low? You rain for someone's legs. Yeah, yeah, you're throwing it around basically.
+
+[00:26:28] So instead of having wickets that you aim for, you aim for their legs. Yeah. So, but one, and this is very exciting. So one of the first bowlers to pitch was a guy called Edward Lumpey Stevens. Lumpey was his nickname. And there's a book, the author.
+
+[00:26:40] He got that nickname after he exposed himself. There's a book called The Author's Eleven. And it says, the name Lumpey may have come either from his ability to pitch the ball on any protrusion on the pitch. Oh, yeah. Or his fondness for eating a whole apple pie at a time. Oh, yeah.
+
+[00:26:57] You know, in all the kind of, if you read, you know, amazing things about Wisden's Cricketers Almanac, one of the claims they make is that both P.G. Woodhouse got the name Jeeves from Wisden Cricketers Almanac and Sherlock Holmes was named after a cricketer as well. Conan Doyle used to read Wisden's Cricketers Almanac. I can't see any evidence that that's true though. So I think that's one of those myths
+
+[00:27:24] that's been going around that that's where they got them. Because you do have quotes from P.G. Woodhouse saying that he knew Jeeves the cricketer and he was a big fan of his. And that's where the name came from. So presumably he didn't need to discover that in a book. He already knew that. That reminds me that Blowfelt, the bad guy in James Bond,
+
+[00:27:40] is named after Henry Blowfelt's father, I think. Oh, yes, he is. The family. Who is a cricketer commentator? So, yeah, Henry Blowfelt's a cricket commentator. We met him last year. He came on our radio show, Museum of Curiosity. And he told the story about how Ian Fleming
+
+[00:27:56] was in a gentleman's club in London and was looking through the member's list and saw Blowers' father in there and decided to name him after that. Wow, was there beef between them? No, I don't think so. Because he named Goldfinger after the architect Goldfinger, who he didn't like at all.
+
+[00:28:10] And he tried to sue him, didn't he? Like he was very... Goldfinger tried to sue. Goldfinger was very angry about that. The most famous copy of Wisden is a 1939 edition belonging to E.W. Swanton. He was a cricket writer, and then he was taken prisoner by the Japanese in the war.
+
+[00:28:27] And it was so popular with all the other prisoners of war that everyone used to borrow it. And he had to turn it into like a library book so people could take it at different times. And then it became really, really thumbed through. It was stamped not subversive by the Japanese. Little did they know all the subversive political undertokes to those extensive scorecards.
+
+[00:28:46] And now it's in the Museum at Lodz. Wow. It does show how poor the reading material was for prisoners of war because it is not an interesting book. It's a thick book. Whoa, whoa, whoa, whoa, whoa. You can recreate an entire cricket match just based on a few numbers of names.
+
+[00:29:00] That's incredible. That's true. And you could picture it in your head probably as you're going along. Right, yeah. It's like saying that... If you've got a good imagination, then anything's interesting, I suppose, guys, but it is not a list of scores. It's like saying the score of an opera isn't an interesting read.
+
+[00:29:13] Come on, Emma. When was the first edition? This was like... 1864. It's been in print every year since that... It's a good book. Yeah, but I bet not that many people buy it. Have you ever read it?
+
+[00:29:24] No, no, no. There are loads of people buy it. More than 50 Shades of Grey and stuff like that. Oh, come on, you can't compare like for like with... Well, I'm comparing those two now, and I'm saying one of them is probably a better read than the other, and it's wisdom. Do you know who invented bowling?
+
+[00:29:41] This is really interesting. Edward Lumpy Stevens. Sorry, do you know who invented overarm bowling? The theory goes it was invented by a woman. So, Women's Cricket has a really interesting history, but this is the claim that a woman called Christina Willis used to bowl over onto her brother, John, who played for England.
+
+[00:29:58] This was in the early 19th century, and she did it to avoid getting tangled up in her skirts when she went underarm, and he took it to the matches he went on to play and realised it was much more effective than underarm. But, yeah, Women's Cricket was really popular in the 19th century, so there were matches played all over England that would get crowds of 3,000,
+
+[00:30:15] which is quite large for just an amateur cricket match. There are pictures of women playing cricket that go back to medieval times, and women were the first people to have not red balls, and the reason was, in the late 19th century, balls would turn from red to blue for women because it was worried that lady cricketers would swoon at the sight of a red one.
+
+[00:30:35] And just one last thing, we said at the top that Americans won't really know what cricket is, but they do have a cricket team that does play internationally, and they're called the Compton Cricket Team. So, straight out of Compton, we know from MWA. It's about cricket. Yes, Ice Cube was actually an umpire, and, yeah, the Compton Cricket Team,
+
+[00:30:52] they say that the aim of playing cricket is to teach people how to respect themselves and respect authority so they stop killing each other, and the homies' mission is to curb the negative effect of gang activities, and they've been over to the UK a bunch of times playing exhibition matches with UK teams. So, yeah, so cricket is starting up there.
+
+[00:31:09] First ever international game, USA vs Canada. No way. Really? Yeah. Britain toured to the USA in the mid-19th century. And it would have become massive if it wasn't for the Civil War. Yeah.
+
+[00:31:21] Oh, which you can read about in the original edition of... It was different Civil War. Oh, okay. Okay, it is time to move on to our final fact of the show, and that is Andrew Hunter Murray. My fact is that fossilized poo is worth more if it has what one collector calls the classic poo look. Okay, so...
+
+[00:31:45] Describe that. Well, I think we all know what the classic poo look is. So this is the fact that the Guinness World Record has just been announced for the largest collection of fossilized poo. It's a man called George Franson. He studied paleontology. George Lumpy Franson.
+
+[00:32:01] He owns 1,277 pieces of fossilized excrement. How many? 1,277. Wow. He's been collecting it for nearly 20 years. He says that the classic poo look makes it more valuable along with distinctive ripples and of size, the bigger the better.
+
+[00:32:18] Bigger the better always. What is a distinctive rip? Is that like if someone's name is written in the ripples? That would be very romantic, I think. It's so good. And they've all had to be examined by a professional paleontologist. All 1,277 pieces. They're paleoscatologists, aren't they?
+
+[00:32:37] People who study them, yeah. Well, because the problem is a lot of people like to buy coprolites, as they're called, online. But most people can't really tell the difference between a real one and a fake one. So a lot of people are just buying rocks. And they just think they have it, but it's just a rock. Yeah.
+
+[00:32:53] And they're called pseudo coprolites. Yes. And there's real controversy about the biggest one ever. You know this? No. It got sold in July 2014. It was auctioned off. It was 40 inches long.
+
+[00:33:06] That was quite a famous one, wasn't it? Very famous. It got sold for $10,000. And the auction said, the pastor of this remarkable object is unknown. And all this stuff. But it came from a place called the Wilkes Formation, which is where there was a swamp.
+
+[00:33:20] And there is a theory that actually it's plant material and lumps of mineral. Because sometimes things get, lumps of ash get turned into clay, and they get squeezed through knot holes in trees. I mean, how is it? It's not that much different than a poo, is it? Exactly.
+
+[00:33:34] It's just a tiny poo. Yeah, it's basically being pushed through, like a tube of toothpaste. So there is a theory that's that. But you'd have to cut it in twos to take a slice, because there'll be organic material in there if it is a coprolite. I found a really good website called the Puseum.
+
+[00:33:48] Did you guys see that? No. Did no one see it? I've seen the Puseum. Isn't it great? I didn't look at the website I saw it referred to, and I thought that was a funny name. Exactly.
+
+[00:33:55] So it puts you off to look at it, because you think this is a silly name. It's not going to be good. This is a guy who much like the person you've just said with the largest collection, has dedicated his life to understanding and cataloging and reporting on coprolites. And it's fantastic.
+
+[00:34:08] It's an incredible website. It's got pictures. It's got all the latest news stories. Honestly, I highly recommend Puseum. Give us an example of a brilliant Puseum news story. What he was telling you, how you can make your own. I know how to do that. I've been dedicating my life to making my own.
+
+[00:34:25] How you can make your own poo fossil in time. So he says you, and this was done in an interview that he reposted on his own site by Jason Rosenfeld on Silicon Exit, which is a website. Did this great interview with him. So he said that the way that you can make your own coprolite is that you start off by eating a bunch of corn and peanuts
+
+[00:34:43] every few days. And that will give the coprolite interesting inclusions and make it worth more money when someone finds it a special treasure. Because that's easier to tell if something is genuinely poo, because it has little bits sticking out of it of insects or whatever that helps them identify it.
+
+[00:34:57] And then you dig it into a very deep hole and then put the soil over immediately so nothing gets to it. That in theory is how you make your own fossil poo if someone wants to start going on that. Unbelievably weird thing to do. Or you poo in the lake. How come?
+
+[00:35:09] It sinks through the water, right? And it gets to the bottom and there's much less oxygen down there for bacteria to eat it. So the hope is that over time, anaerobic bacteria gradually replace the matter with minerals. But for best results, you have to poo in the lake. You have to get in the lake, do the poo, get out of the lake.
+
+[00:35:28] Okay. I mean, there are other ways to make your mark on this. That's true. It's very unreliable because, you know, the world would be covered in poo if they all survived. So in fact, it's a really valuable substance, right? Because it used to be important as fertilizer, coprolite.
+
+[00:35:44] And so when they discovered this, then it became something that people mined. And there are various places in the UK where coprolite mining was an important industry. So one of the main centres of this was a place called Shillington in Bedfordshire. And this was, in the mid-19th century, its population doubled because loads of people flocked.
+
+[00:36:03] It was a bit like the Gold Rush. It was the UK equivalent of the Gold Rush. People flocked. America's always better, isn't it? We've had a turd rush, America. Have you gone to Bedfordshire? All the streets are paved with shit. So the brilliant thing about this place
+
+[00:36:20] is it had this big boost to the local economy. And it was actually a bit of a problem because these pubs multiplied because coprolite miners were paid. Desperately to drink away the memories of what they spent their day doing. Well, they had quite a lot of fights. So there was tension and everything.
+
+[00:36:36] I mean, exactly at the Gold Rush. Can I just say, in the Gold Rush, people used to go to the pubs and pay for their drinks with like little bits of gold that they'd found. Do you think people used to just go with a, and they're like, this isn't an ancient one? Forgeries from half an hour ago. The great thing about this place is it's called Shillington,
+
+[00:36:56] but its name was actually changed in the 1880s because it was worried it was going to offend Queen Victoria because it was called Shillington. Really? No. Yeah. Shillington was the heart of shit mining. Wow.
+
+[00:37:08] That's amazing. Hello to anyone living in Shillington. Yeah. Who's learning that for the first time. Is that a coincidence? Like Glamorous Assistant. Like it's a total coincidence? It's a coincidence, yeah.
+
+[00:37:19] Wow. They only discovered the turd seam in the mid-19th century and it had been around for hundreds of years before that. They call it the treacle mines. Locally. Yeah, they used to. Yeah. That's the worst euphemism I've ever heard of or anything.
+
+[00:37:32] Horrible. It's weird that there's a seam, isn't it? You would think that they'd be scattered fairly evenly, but actually it all comes from a time when the south of England was covered in hundreds of meters of water flooded and all the land animals died. So there's a lot remaining from that period. Yeah.
+
+[00:37:49] So Andy, the whole idea of coprolite selling more if it looks actually like a poo. I was reading again in this interview from Poozium that the reason that it's so precious is actually most fossilized poo. The reason it doesn't retain the shape of a poo is that most animals will do it from a height, obviously, and then it experiences what he calls the splatter effect.
+
+[00:38:09] So it's very hard to get a poo-shaped fossil because most of it has splattered once it hits the ground. Get in the lake. Get in the lake is the answer, yeah. Yeah, slow it down on the descent. Absolutely, yeah. You say they're so precious. This guy, George Ranson, his most valuable coprolite
+
+[00:38:25] is called precious. Just to make him a tiny bit more creepy, the idea of his sitting quiet going, my precious. I wonder because this splatter effect thing I just said was he's talking literally about precious in this sentence. Is this the same guy? Does he run Poozium?
+
+[00:38:41] I don't know. I think that your guy runs the Poozium. I've just checked it. That's a great site. The guy knows what he's talking about. He sure does. Something related to coprolites are regurgitolites, which is, well, what do you think?
+
+[00:38:59] Fossilized vomit. Correct. Wow. Yeah, really good because often this will be something, if you've got fossilized poo, and you can see what someone's eaten, but it's obviously been through the digestive system. If it's fossilized vomit,
+
+[00:39:11] then obviously not been quite as far through the digestive system. So you can see a lot better what these things have eaten. So there was a bit of vomit coughed up by an ichthyosaur 160 million years ago, and it still got little bits of the like ammonites and stuff that were in there. That's amazing. Yeah, it's really good.
+
+[00:39:27] That's so cool. It's a shame for the ichthyosaur who vomited and thought, God, I hope no one remembers this moment. 160 million years later, still reminiscing. That's an even more embarrassing thing. We think we have a 300-year-old piece of Bishop's excrement. Wow. This is in the news this week.
+
+[00:39:43] So there's a Danish bishop. In the news. It is. I didn't see him. So I don't think it's credible. It was a Danish bishop called Jens Bircherodd, and he lived in a city called Alborg until 1708. And 80 years ago, archaeologists found in his private midden
+
+[00:39:58] a lump of stuff. And now it's been analyzed. And they think it's Bishop's poo. It could be the Bishop's wife, but it's got. 18th century Denmark was a very liberal place. No, one professor said this is a way of making history through the back door.
+
+[00:40:23] The world. Through the treacle night. And they're going to put it probably in the local museum. It's so embarrassing. No, I think it's good to be proud of it. So there's a village called Bassingborn. Hello to those in Bassingborn as well, which was another home of copper light mining.
+
+[00:40:39] And they wanted to erect a statue as a monument to their village's great history in 2005. And there were some contenders. So they could have had a heron. There are lots of beautiful herons there. They thought about having a Second World War bomber because they had a strong Second World War history. And then one of the suggestions was a large poo.
+
+[00:40:55] And the village voted and they voted for the poo. So they've got. Don't let the public vote on things. Okay, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said
+
+[00:41:12] over the course of this podcast, we can be found on our Twitter account. So I'm on our Shriverland, James. That's egg-shaped Andy. At Andrew Hunter M. And Anna. You can email podcast at qi.com. Yep.
+
+[00:41:22] Or you can go to our group Twitter account, which is at qipodcast or our website, no such thing as a fish.com, where we have all of our previous episodes. You can also go to no such thing as the news.com, which has all of our TV show episodes. A topical look at the world week by week. We will be back again next week with another episode.
+
+[00:41:40] We'll see you then. Goodbye.

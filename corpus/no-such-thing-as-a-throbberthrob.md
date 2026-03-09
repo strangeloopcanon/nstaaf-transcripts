@@ -1,0 +1,381 @@
+# No Such Thing As A Fish - No Such Thing As A Throbberthrob
+
+- Episode date: May 9, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-throbberthrob
+- Slug: no-such-thing-as-a-throbberthrob
+
+## Transcript
+
+[00:00:03] Hi everybody, Andy and James here with an announcement. Yes, absolutely. It's a very exciting announcement for people who like coming to know such things a fish tour shows live. Oh, I think I might have given it away. James, you fool. We were saving it for three minutes into the announcement. But James is right. We're going on tour. So if you live in a large city in the UK or island or some places on mainland Europe or, excitingly in Australia or New Zealand, then we may well be coming to a place near you quite soon.
+
+[00:00:40] That's right. It's a world tour if you have a very limited definition of what the world is. And it's basically like an earth sandwich tour. We're doing this antipode and we're doing the other antipode. And it's going to be great. It's going to be between September and November. We should say that. It's months of touring.
+
+[00:00:56] Yes. And the reason that we're telling you today is that tickets are going to be on sale in one. one week's time. Yes. In seven days, you must go to no six thingsafish.com forward slash live, and all the details of our tour will be there, and you'll be able to snaffle up those best seats in the house. The only way to get tickets faster is if you're a member of Clubfish,
+
+[00:01:20] when you will receive bonus instructions in your forthcoming bit of extra material. What a great thing Clubfish sounds like. That's what I say. Anyway, we're going on tour around the world. It's going to be amazing. The other two will be there as well. It's not just me and James doing a world tour. It would be good.
+
+[00:01:35] Yeah, that would be great. And the great thing about going to club fish is not only do you get early access to tickets, but you get a much cleaner and more clear announcement than this. Oh, yeah. Probably Anna and Dan will do it, and it will be so professional. Oh, yeah. That's so slick. Yeah.
+
+[00:01:51] And so, yes, that is our news. We are going on tour around the world to both antipodes. It's going to be a whole lot of fun, and you guys can get tickets to come and see us. by going to no-sixthingersofish.com forward slash live any time after Friday the 17th of May. On with the show! Up with the podcast. That was slick, Andy, I reckon. That was very slick, very slick.
+
+[00:02:15] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Coven Garden. My name is Andrew Hunter Murray and I'm sitting here, joined by Anna Tosynsky, James Harkin, and Dan Shriver. But wait, Dan's normally the host. What's going on? It's all on topsy-turvy. Don't worry, everybody. It's an audience fact special. Yay!
+
+[00:02:52] Yay! Hooray. And it's because we have an inbox, podcast at QR.com, and people send in all sorts of questions, comments, complaints, insults, praise sometimes, and also a lot of facts. And the facts are so good that we thought we'd just take a show to go through some of the best ones, starting with audience facts section number one. And that is you, James. Yes. So thank you, Andrew. You have sent me a big podcast.
+
+[00:03:18] pile of audience facts. So here's the first one that you sent me. Caro de Ken sent it. And she, he, they have an astrophysics PhD. And they say that the more massive a white dwarf becomes, the smaller it gets. What? Riddle me this. We made a sting for riddle me this.
+
+[00:03:43] Yeah. Really, I'll be honest, probably you're only going to get this if you, also have an astrophysics PhD. It's not really something you can guess. We're off the box with an unbelievably hard fact to understand. Yeah, it's like you've sent me these on purpose, I think. I thought, who knows physics? And Dan
+
+[00:04:00] Dan's out of office was on. Is that why I've got all the Bigfoot facts in my one? That's right. They're met for names. Yeah, yeah, yeah. That makes sense. So in normal stars, you have fusion happening at the car, so you're getting elements turning into other elements and making
+
+[00:04:14] energy. But in white dwarfs, that doesn't happen. And so if you just put stuff into it, then there's nothing to stop gravity from just squishing them smaller and smaller and smaller. More massive? More massive, yeah. Because they've got more mass?
+
+[00:04:27] Absolutely. So it doesn't just... Did you say it looks smaller? Was that the way it's put in the fact? It's not only look smaller, it is more physically. But it's heavier. But it's heavier. It's more massive.
+
+[00:04:36] Gotta be careful with words like heavy, haven't you? You never know. Yeah, you can't do that. There are physicists waiting around every corner ready to jump out and beat you up. It's actually not heavier. It's more massive. I get that a lot.
+
+[00:04:50] I just want 100 grams of gobstoppers. You know how I spend my pocket money. Caro goes on. This one is bonkers, in my opinion. After a certain distance, the further away something is from Earth, the bigger it looks. Okay. So Dan, you see that cow out of the window. Yeah.
+
+[00:05:10] They look small. That's actually far away. Yeah. Right? But it looks small because it's further away. But if you take it far in. off away, it'll start to get bigger. Is that because it's coming around the back?
+
+[00:05:23] Coming towards you again? Someone's left the gate open. Well, I have this, I've not said this to you guys before, but I have this thing outside my house where when I turn to the left, I can see the sea front and I can see ships and they're massive. But then when I walk down to the edge of the cliff, they are further away. But that's just because they've moved away from you. No, no, no.
+
+[00:05:41] It's a genuine, it's a horizon effect, it's called. Because you're seeing it's from the top of a cliff versus the bottom. Yeah. Oh, I see. Yeah, yeah, yeah, that makes sense. But they're huge. And then you go down and they're literally, sometimes they feel twice the distance and twice the size.
+
+[00:05:54] And you're sure you're not looking at the dinghies that are on the seafront. There's a tiny. And someone's peddling them. I didn't know. That was a thing. That's really interesting. I don't understand it.
+
+[00:06:04] It's magic. I don't get it. Right. But I've been told by people like leaving Skyera, it's a real thing. That's cool. Very cool. He knows his shit.
+
+[00:06:12] Yeah. So the thing is with galaxies, if you go far enough away, you're looking at something that was sending out its light quite near the start of the universe. The whole of the universe was quite small in those days. So if you're looking at something in the sky, if you're an astronomer,
+
+[00:06:29] you're working out how much of the sky it's using up. But these things that are way, way further away are using up more of the sky because actually space itself was smaller. That's incredible. So confusing. That's incredible. I was speaking to an astrophysics student recently
+
+[00:06:45] who said, there are some things in the sky that appear in three different places depending on I can't remember what it was depending on depending on what time of day it is and the sun's in the east now and how much you've had to drink as well
+
+[00:06:58] that was the other fact that was the baffling these facts are so baffling the reason they messed it up for us is when scientists decided about 100 years ago that space and time are sort of the same but sort of different isn't that so the thing you're looking at is longer ago
+
+[00:07:12] you're talking about Einstein here he screwed it up for everyone isn't he He made it a bit of a head fork. Yeah, well, things were certainly easier when it was just, how long does it take this apple to fall out of the tree and land on my head? Exactly. Certainly was. I feel like we started quite difficult.
+
+[00:07:29] Yeah, can you give us an easy one? Give us an easy. Andrew Lillia says cicadas, pee in jets, not droplets. That's nice. What does that mean? Well, imagine you're urinating. I'm being a jet, don't I? I can't say for sure, but as a human, probably.
+
+[00:07:45] It depends how much you. You've had to drink. That's the thing. Right. Old men pee in droplets, I've heard. So the thing is that most insects feed on sap, but cicadas drink so much sap that peeing in droplets doesn't work. And so they have to pee out in streams because they've just got so much of this stuff inside them. Oh my goodness. You just need to get rid of it. So it becomes more energy effective to pee in a stream than in drops. And cicadas are actually the smallest animals that pee in streams. Are they? Yeah. Get on. Okay.
+
+[00:08:15] What a niche record for them to have. I think they're proud of that. And has this been discovered by scientists who are looking into it using it? I'm guessing for a big military application somehow. Yep, that's absolutely right. This will be used in the next war. No, it's like in any science you learn something and you find the applications later, don't you?
+
+[00:08:36] Yeah, yeah, yeah, true. Just thinking of cicadas, penises or other genitals, it's reminded me of a phrase I learned just the other day, which is a bees dick. Have you heard that? Is it like the bees' needs? Only a bit... No, it's a unit to describe a very small distance.
+
+[00:08:52] So you would say it's an Australian term. I miss crashing into the truck by a bees' dick. Of course it's an Australian term. Of course it is so Aussie. Do we know, I'm sure we've mentioned on the show at some point, but do we know if that's a fair comparison? As in, do bees have proportionally small penises? I think regardless, they are small.
+
+[00:09:10] And so if it's the size of a bees' dick, that's an incredibly tiny distance. I can just see bees objecting to that on proportion grounds. Fair do. Fair do, the most Australian thing you've ever said. Carl Heppokoski writes about a guy called Dave Bresnahan, who was a minor league baseball player
+
+[00:09:30] and he used a peeled potato in the spot. And what he would do is he would grab the potato and throw it, and so the opponent thought that he was throwing the ball, but actually he kept the ball concealed about his person and then in baseball one way to get someone out is if you tag them with the ball when they're between bases and the other person
+
+[00:09:53] thought well he can't possibly do that because he's just thrown it and he's like aha that was a potato that I threw classic move so he wasn't allowed to do that well the interesting thing is I don't think it was against the rules but it was against the spirit of the rules I think that's fair I do think that's fair I think there was a thing in cricket once where WG grace was the most maybe the most famous cricketer of, maybe of all time, certainly the 19th century. He was a legend. I think he caught the ball in his jumper when he was batting and then just kept running around with the move on him or about his person.
+
+[00:10:23] It wasn't in his beard, but he did have a great big beard. Come on. I can't remember for sure. And basically he was just running back and forth, scoring lots of runs because he was the ball at that moment. But then if someone grabbed him. Exactly. It hadn't touched the ground.
+
+[00:10:38] Yeah, the ball hadn't touched the ground. Oh, that's a good boy. He could be caught out. So maybe you just ended up running like just elsewhere. Yeah, you ran over the boundary line in the end and got six. It's a lot like in the sports book, in fact, which you and I have recently written James. Oh yeah, what was that? Just remind what else called.
+
+[00:10:55] It's called a load of old balls, actually. That's what the paperback's called, but it's not available yet. This is going to go out before that. So it's called Everything to Play For actually. Oh, okay. Yeah. Actually is not part of the title. It's not a Richard Curtis-esque one.
+
+[00:11:10] No. It's called Everything to Play for Full Stop. And we do mention there that the Carlisle Indians were an American football team at the turn of the 20th century. And they had pictures of football sewn into all of their jerseys so that no one on the opposing team knew which one was the actual ball. And we portrayed that as quite an ingenious move. So I think I'm pro the potato.
+
+[00:11:34] Okay, yeah, yeah. Baseball, they do do this all the time. What you need is for whoever's standing on base. Let's say you're on second base, while the picture is about, to throw... Does that mean you're snugging the pitcher? Yeah. No, it means you're touching him downstairs, but on the surface.
+
+[00:11:48] Okay. So pitch is about to pitch towards the batter. In that time, the person who is on second base can walk forward away from the pad on the ground, right? So the deal is if the ball touches you and you're not with a foot on a pad, then you can be out, right? So that's when they use the tricks. So they sometimes have weird bean bags in baseball. I don't know the specific use, but that's often. been used as a decoy baseball as well.
+
+[00:12:13] So you would do a huddle and then you'd come out of the huddle and the person marking the base would have the ball in their hand but the pitcher would look as if they had the ball but it was this bean bag. I think this is all a bit on sportsman-like. I have to say, it's like playing football but then if you had one giant toe on your foot and then you sort of drew Adidas. Or pentagons and hackspins all over here. Or if we're playing ice hockey and I secretly slice up a black pudding.
+
+[00:12:40] before the match and then at some point I release all the slices Yes You know it's mayhem Does it count If I score with a black pudding slice It does not
+
+[00:12:49] Yeah That's pretty clear isn't it Yeah I don't think anything's clear In this new world of shadow sport That we've been introduced to You know why they use
+
+[00:12:56] Pucks in ice hockey Because they didn't originally Do they start with balls? Yeah because it was based of an old spot That had balls Is it because Oh
+
+[00:13:05] Because they wouldn't snowball They wouldn't If they were rolling They would gather So many avalanches. I'll be honest, if you're playing ice hockey on the snow, that's probably the least of your problem. The ball's going nowhere.
+
+[00:13:18] Yeah. What happens to a ball when you hit it really hard on ice? It goes up. Slides? That's it, isn't it, James? Goes up. So they didn't go up. Make it safer, really, but it meant it stayed down on the ice the whole time.
+
+[00:13:31] Puck slide. And the original way they made one was by taking a rubber ball and cutting off the top and the bottom so that it was a flat disk. Yeah, that's nice. Just the heads. up, I'm pretty sure my description scenario of that whole thing with the beanbag was from the movie Rookie of the Year,
+
+[00:13:45] which is a fantastic movie regardless, but that was a tactic used in that when Henry's arm suddenly doesn't have the force any more than a great movie. Check it out. I think I've seen that. It's awesome. It's about a kid who gets a magic old to play baseball. Yeah, yeah. I can't believe I've seen one of your weird awful films.
+
+[00:14:02] He breaks his arm and they in the cast tightens it too much and it has the greatest movie line where they take the cast off and they discover his big and it slaps the doctor's nose and he goes, funky butt-loving, find a slide. So he says what?
+
+[00:14:15] Funky butt-loving. Wow. Why have you never used that on the show? We use it at home now. We watched it the other day. He does say it, but I always bleep it out because it's spilf. Doesn't he, he throws a ball through someone else's hand.
+
+[00:14:28] It just leaves it, he gets such a powerful throwing on it, it just leaves a sort of comedy cut out hole. And I thought of that years later, I thought of that years later. That's actually incredibly upset. And we don't stay with that character who's just had a ball thrown through his body.
+
+[00:14:44] Does that not happen? No, it doesn't. Maybe it's through his glove. It's through his glove, I think. Wait, but if you go through the middle of the club, you're also going through the middle of that. It looks like he's going to lose at least a couple of fingers. And it just is glossed over.
+
+[00:14:54] I don't know. That might be from the movie Ed, which stars Matt La Blancke, who brings a... There's two separate films about magic baseball throws. Yeah, well, he brings a monkey in, a chimp as a... No, I was not a player of the team. That was at the height of friends. It's gone lowbrow since that physics chat, hasn't it?
+
+[00:15:08] Yeah. Okay, it's time for facts. Facts. Number two, I guess. Lovely. Let's say Anna, what have you got? I've got one from Gwen Wilkie. Oh, yeah. And this is incredible.
+
+[00:15:29] I didn't know about this. She's written in about industrial musicals. Have we ever talked about these? I've not heard of that. I think so. They are big budget musical theatre productions, massively expensive, that were put on entirely in private
+
+[00:15:42] by big capitalist corporations in the middle of the 20th century. And she actually cited a podcast called 20,000 Hertz, which I might listen to, which looks like it's a podcast about really interesting sounds, sorts of interesting sounds. Anyway, between, I think, sort of the 1940s to the 1980s,
+
+[00:15:59] companies like Ford and General Electric and Coca-Cola put on Broadway-style productions but just to their employees as a sort of team-bonding experience. And they were, I was looking into this a bit, more. There was one in 1957, which was the Chevrolet musical, and it cost six times the amount it took to put My Fair Lady onto the stage that same year. What? And this is just a musical that's been shown to Chevrolet employees somewhere in order to make them feel like they're part
+
+[00:16:29] of a big old company. I can see that that's a good thing, but could you not just take them bowling? Take them to see my fair lady at a sixth of the price. Yeah, it would be less expensive, but doesn't make you feel like you're part of such a big operation. Wow. There were shows like The Bathrooms Are Coming, which was a 1969 show put on by American Standard Plumbers. There was diesel dazzle by General Motors in 1966. That one is quite good. It's all right, isn't it? Worth making a big budget musical out of it.
+
+[00:16:57] So it seemed to start, when I look further into it, in the early 20th century, when companies would have these songs that were written and performed in-house, just individual songs for them. So, like, the Larkin Soap Company released its own songbook of songs they'd written. Oh, basically team building exercises. Again, team building and they get together and sing, they'd get a choir in, they'd get a little orchestra. I like this. I think maybe we should write our own musical.
+
+[00:17:20] Shall we? And then drain QI's budget. Only allow our colleagues to listen to it. Yes. Yes. Okay. I think probably no one else would want to. In fact, I'd be surprised if our colleagues sat around until the end.
+
+[00:17:35] Playing all the roles in this musical as well. I guess so. I think we'll have to. Yeah. Yeah, but you can do the old, like, paint half of your face, you know, as Dr. Doolittle and not Dr. Doolittle. Hamletal. Henry Doolittle. Elijah Doolittle.
+
+[00:17:50] Oh, Eliza Doolittle. Sorry. And Henry, whatever it was called, Higgins. Yeah. Unless it was Dr. Doolittle, the musical. We could put that on. Based on the Eddie Murphy movie. I love, and that's crying out for a musical, I think.
+
+[00:18:04] Okay. Yeah. I think there was a Dr. Do Littal movie was. had songs in it. The Rex Harrison one. He talks to the animals. Yes, that was it.
+
+[00:18:13] I think so. That might be one of my favorite facts we've ever done on the show. I think it was yours, Andy. Rex Harrison. The giraffe had the movie. Filming was stopped because it accidentally stood on its penis. That's right. The draft stood on its own penis.
+
+[00:18:25] Yeah, yeah. He was like, I wish I was a bee. Anyway, yeah, amazing fact there from Gwen Wilkie. I have another fact. This is from Michela or Michaela Comperi. And this is that the tuber part for Antonin Vajak's New World Symphony is very bad. That's not the end of the fact. What?
+
+[00:18:48] Is it bad? Well, it's very bad in that it's extremely short. So it's a very long symphony. It's like 40 minute symphony. The tuber part is just 14 notes. It's seven notes at the start of one of the movements, seven notes at the end. Okay. Oh, my God.
+
+[00:19:00] So it. I don't know if you guys have been in orchestras and stuff, but you're basically for the entire rest of the piece just going, one, two, three, four. Oh, two, three, four. 3, 3, 3, 3, 3, 4. 765 to 3, 4. Yeah.
+
+[00:19:14] That's absolutely correct. Why might he have done this? This could be guessable. Who, the composer? Yeah, Dvorzac. Because he was in love with the tuba player and wanted... Exactly the opposite answer.
+
+[00:19:30] He hated the tuba player. You hated the tuber player. Sorry, the clue of the opposite. No, I understand that. But you guided Dan to the rounder. He hated the interpreter. specifically because he thought he was having an affair with his wife. And they were about to go on tour, I think, with this new piece he'd written.
+
+[00:19:46] The tuba player was getting quite close to his wife. And he thought, I'm going to have to take this tuba player away with me. So he quickly shoved in 14 notes of tuba as a lovely punishment for this guy. That's amazing. And dragging him away from his wife. I couldn't find much first-hand evidence of it online, although it is repeated by conductors and the like a lot. It's a great idea.
+
+[00:20:06] It is. But it is a bizarre quote. You get two players the world over talking about it saying, why on earth has he forced us to sit through this 40 minutes for the sake of seven notes at one in and seven notes at the other? And you can't be on your phone, can you, when you're in the orchestra and the audience is all there? You can't just go on and play snake for 40 minutes?
+
+[00:20:26] Can you? I like to think your head there was like, you can't be on your phone, you're like, oh, Dvorzagg wouldn't have had iPhones. Maybe you had a Nokia 3310. I'll say play snake. I genuinely couldn't think of anything more modern to be doing on my phone That New World Symphony is from the Hovis Adverts, isn't it? It's not from the Hovis Adverts.
+
+[00:20:47] That's wordful I got the idea, yeah. He was in love with a lady baker. That little boy who walks up the street with his bike, he was having an affair with his wife. Oh, that one. No, that's Coronation Street. I think he goes, sorry, and that's Puccini. I think it goes, do, do, do do. Oh, yeah.
+
+[00:21:11] Sorry, I'm not. I've got it, yeah, yeah. A lovely piece of music, is right? It is good, it's very nice. I must see what they add. Tuba, controversial, Sebelius refused to write for the tuba after what his tuba player turned up drunk. He just, and completely mangled the part and Sebelius went sod this. Wow.
+
+[00:21:28] So no, he's punishing all tuber players with a loss of income. Yeah. So is it more as well that you travel as a band? Is this like you would have your unit that would do all your tours, all your, you know, it's the same supporting band. So he was like... An orchestra, isn't it, going on tour here? Yeah. But as you know, Dan, why do orchestra players, you know, need music?
+
+[00:21:47] What? I bet the tuba player still has the sheet music up there to know when they've got to play. Like, no memories. There are no Springsteens, are they? Oh, dear. I don't think I got that reference. That's a very deep cut for. Oh, you weren't here. When you're on Matt leave, it was a bassoon gate. Yeah. Dan claimed that... What was the claim you were? You made that it was a joke, which then became serious as I got angrier about the response to it.
+
+[00:22:12] It was basically that if you're in you too, you can learn all the songs easy. You don't need sheet music. So why does a bassoon player in an orchestra need cheese? We were talking about this amazing. No, you were on the show. You brought the fact in you about the first female conductor and she took all the sheet music away from her. Yeah, yeah. And I was just saying, isn't that amazing that you just shut down as an orchestra as soon as the music's gone, the sheet music. Christ, I've blanked that out. You weren't here for the fallout. You weren't here for every episode of Dropers Align for the subsequent year. Right. We had a lot of bassoon player correspondents. I think we've heard from every bassoonist on the planet.
+
+[00:22:50] It was great. That's great. I'm so happy. I miss that. Actually, there is a reference to a show that I did miss. This is from Teo Tamasiro Harris, who said that on the most recent episode, which is no longer the most recent,
+
+[00:23:01] Olga Koch talked about French kissing and Swedish tables. You guys remember her talking about that? I think it'll be about the fact that French kissing is called French kissing. It was called Swedish. She was talking about an Irish goodbye or an English goodbye. That's when you don't say goodbye to anyone, you just walk off. There you go. And this person said they were reminded that in Spanish, the word for roller coaster is Russian Mountain.
+
+[00:23:26] I didn't know that was what it was in Spanish, but I think we probably mentioned because Russian mountains were the original roller coasters, right? Yeah, big ice slides that used to go. Oh, so you would just push people down and that would be the ride. Yeah, it's like a roller coaster, but it's a big sort of like a ski jump. Yeah, right. Wow. And this was 17th century, I think.
+
+[00:23:44] 17th, the 18th century. And then this person said that in the course of researching this, which I like, because they obviously just went quite deep, they found out that the Russian word for roller coaster is American Hill. Which is quite cool. Yeah. That's great. That's cool. How tall would these be, do you know?
+
+[00:24:01] 21 meters is the height that's That's very tall That's high It's high Wow It depends on the gradient of the slope though doesn't it That's true
+
+[00:24:10] Yeah That could be terrifying Or it could be incredibly dull So boring If it's 200 metres long And who cares Yeah yeah Gives another one
+
+[00:24:18] Okay Here's another good one That I didn't know about And should have gone In our sports book That this is from Alan Dimmock What's that cop? Everything to play for
+
+[00:24:27] Alan Dimmock says that The England captain He means the rugby England captain is meant to write a letter every year asking rugby school's permission to wear white. I didn't know this. I didn't know that. It's meant to, so is it still held up?
+
+[00:24:40] Apparently the rule faded in early 2000. In the early 2000s. That's a long time to keep it going. I mean, that's what, 100 years of actually doing that every year. Yeah, quite irresponsible to let it lapse, actually. Yeah, I think Martin Johnson didn't know how to write. Wow. That's such a deep...
+
+[00:24:55] That's such a specific slam that I don't know. You know what? I'm kind of guessing that that was his name. I'm not even sure because I don't really follow. Royal Reubenian. Wow. I think it was. It is Martin Johnson.
+
+[00:25:04] And actually, you might be right because he, Martin Johnson remembered the days when you would call. So he made phone calls to rugby school. I'm really sorry, Martin Johnson. It was like, it was just a natural joke and yours was the first name that came into my head. Because you're a rugby player.
+
+[00:25:18] You were a lot bigger than me. Yeah. I mean, at least Dan had the sense to pick on bassoon players. Oh no. We're going to get email some gigantic bassoon players now. The England rugby team orchestra is going to get in contact. Okay, well, that's great. One more amazing one.
+
+[00:25:38] This is from Robin, who says that the earliest known picture of Jesus depicts him as a donkey. No. Yeah. Wait, but no, he got a donkey to Jerusalem. That's a misconception. It was a donkey. That is a good, that's a great thing.
+
+[00:25:52] It's not quite true, actually. I think it was like, was it like graffiti kind of thing? It absolutely was. A graffito, the Alexa Menon. Graffito in Rome and it was actually an insulting thing. But this is the earliest picture we have and it was scratched onto a wall in Rome in the second century. Graffito, I'm sorry.
+
+[00:26:11] I'm sorry, but like the council, I'm not going to send anyone if you complain about the Grafito. And rightly so. Well, there's a Banksy Grafito quite near my house. There you go. I 100% said to my wife, should we go and see the graffiti? Of course you did. And she refused.
+
+[00:26:29] Yeah, it was scratched into a wall. And underneath it said something like in Latin, obviously, you know, here is the person that Alexa Menas worships and it shows someone worshipping a donkey being crucified. Oh. Oh, I've seen that, yes. You've seen it. Or I've seen someone do a reproduction of it if it doesn't exist anymore. Can I give you a Jesus fact?
+
+[00:26:47] Yeah, which I learned this morning. You know they have the apocrypha. So these are like in the gospels. There's Matthew, Mark, Luke and John. But actually, loads of other gospels were written and they didn't make it into the final Bible. Didn't make the edit. They didn't make the edit. A publisher really hacked.
+
+[00:27:02] In one of them, the Virgin Mary's vagina makes your hand wither if you touch it. Oh. Gosh. Who's touching it? The midwife. Oh. Yeah, Salome, the midwife. But that's very unf...
+
+[00:27:16] Is it a punishment? Yeah, basically because she was a virgin, the Salome, the midwife is like, well, I'm going to check if you're a virgin and did whatever gynaecologists in the first century AD did in those situations. and it was such a bad thing that her arm withered away. And actually it grew back when she touched the baby Jesus. Oh, who did it? Wow. But hang on, that's not fair.
+
+[00:27:39] Isn't it meant to protect the Virgin Mary from people with sort of bad intentions towards her? Oh, you think it was like, oh, I see. Sort of defence mechanism, basically. It's sort of is like, no wonder she's a virgin if that's what happens to you, if you start trying to have sex with her. You'd have to really love her, wouldn't you? No, no, it's not withered, darling.
+
+[00:27:56] It's just cold. Yeah. God. That's crazy. How can we don't see that as part of the birth depiction of Jesus, where they're all happy, there's all the three wise men, and there's just a screaming midwife with a melting
+
+[00:28:11] hand like she's in Raiders of the Lost Ark at the end? Where's that scene? I think you've answered your own question because the primary schools are not going to go for it, are they? Yeah, I guess so. Great news. Mom and dad, I've been cast and the movie play.
+
+[00:28:32] Okay, it's time for our next facts and those come from, or should I say via, Dan Traver. Yep, so the first fact, this was sent in by Sarah Gaffin and her son, Harry Gaffin. And the fact is, the great-grandfather of the actor who plays Spock was literally a son of Vulcan. Wow. It feels like we're in Riddle Corner now. This is awesome. Okay, so Leonard Nimoy?
+
+[00:29:01] Not Leonard Nimoy. Oh, what? I thought I was getting in with it. He just bust out you a bit of Star Trek knowledge. So in the remake movies of Star Trek, Spock was played by Zachary Quinto. Zachary Quinto did in America. I think, I don't know how long it's been there. It feels like it's quite recent, but who do you think you are is now in America?
+
+[00:29:21] And one of the revelations that they found out is that his great grandfather, who's called PJ McGardy, and he was very active in a thing called the Amalgamated Association of Iron and Steelworkers. But they were originally known as the Sons of Vulcan. That's great. Yeah. Because the Volk of the god of the forge and fires. Yeah. Yeah.
+
+[00:29:42] But this is, it gets even better. So this is 1899. So we're talking a long, long time before Star Trek was ever a thing. He also was someone who used to write for the official organ of the amalgamated association of iron steel and tin workers. And one of the pieces that he published ends with the phrase, may it live long and prosper. No. What? No.
+
+[00:30:04] It's not possible. It is possible. Well, then there is a god. Well, there you go. That sounds proof. Isn't that incredible? Is a dork. Wow.
+
+[00:30:14] It's amazing. Do you think Zachary Quintel maybe went to the audition with all this information and said, you've got to give me the pat? Yeah, you'd think so. You would hope so, but it turns out that this was a revelation in the show. There's quotes of him going, that's crazy. That's insane. Now, it's pointed out to him that that connection of May It Live Long and Prosper.
+
+[00:30:31] Yes, that's extraordinary. However, that was a phrase that was in use. at the time. So yeah, so there was a stage play of Rip Van Winkle, which it's possible that old PJ McArdle was able to see. But, you know, like... That doesn't take anything away from it. Exactly. Exactly. That's an extraordinary coincidence. Yeah, so Sarah and Harry, that's awesome. Thank you for sending that in. Yeah. More. More facts. Let's go to another one. This is from Jonas Belfridge. And he says grasshoppers have existed almost 200 million years longer than grass.
+
+[00:31:05] Lovely. Lovely. What were they called? Hoppers. No, we, yeah, so grasshoppers date back to the early Triassic around 250 million years ago. But fossil findings have indicated that grass evolved around 55 million years ago. So, yeah, so they were there for far longer before they started to hop over. That is the absolutely classic QI slash fish.
+
+[00:31:28] Yeah, that's a wonderful. I love the things which existed before the other things. Like the button hole? No, the button existed before the button hole. Yeah, a couple hundred years. Ten up, no, we did a few weeks ago. Yeah. Yeah. Basketball nets. Yeah.
+
+[00:31:41] You name it. They didn't exist before the basket. Yeah, basketball nets existed before basketballs. The train tunnel existed before the train. Oh, yes. Which I cut out of this week's show. What? That's fair enough.
+
+[00:31:56] It was a punishing before. Send in more. I'd love a list of things. those. It's just weird when you find out when bits of earth arrived, right? I remember Ash, who did our theme tune, he used to have a petrified bit of wood that sat in his house. It's hundreds of million years old. And he would say, this was here before flowers. Like, this is older than the concept of flowers. His wife going, I'd prefer that you had flowers in our house. Yeah, Valentine's yeah. Yeah. Yeah. So, yeah, amazing fact. Should we get another? Yeah. All right, this is from
+
+[00:32:29] Paul Baker, who writes the spinning circle slash pinwheel slash loading mouse cursor on computers, is called a throbber. Come on. Oh, that explains so much. That explains why that guy is shouting that in the library when I go in. He's at the computer. Yeah, yeah, great. Get rid of that throbber. Yeah, I didn't know that.
+
+[00:32:51] Now we know. The spinning wheel of death. The spinning wheel of death. It's more commonly known. That's a good insult as well because it's, I like insults that are quite, they're not. actually saying any rude or swear words, but it's very clear what you think of the person. So calling someone a roaster, for example, who's an absolute roaster. I think throbber is a penis, right? I mean, that's what he's calling you.
+
+[00:33:11] You're right. It's less ambiguous, calling someone an absolute throbber. I don't think of those wheels as throbbing. No, worse than name. Yeah. Good question. Let's find out. I don't think it's going to... Are you actually Googling that? Well, no, presumably it's someone has called it that. Maybe they used to throb. Maybe. Maybe it was an insult. to someone they hated, a co-worker. I maybe just Bill Gates, like the word, or Steve Jobs, or, I don't know. The link that was given to me by Paul Baker leads to a paper that's called
+
+[00:33:42] how throbber components affect users' perception of waiting time. So it's clearly a word that is so well known within its industry. How interesting, because that, to me, sounds like another paper that I've read, which is, you know, like the loading bar? It says this is how much of this has loaded that that usually is not true I remember you saying this and they rig it so that it makes you think
+
+[00:34:06] it's going faster than it is or something what do they do? It kind of just makes you less likely to be annoyed basically those things they tend to go quite slowly quite slowly and then speed up and then they'll slow down a bit and then they'll speed up at the end
+
+[00:34:18] and the idea is if they went the actual speed then you'd be like well this is just going to take forever or whatever Oh and it looks quite pedestrian yeah yeah that's a really good idea That's kind of like this show. You know, it actually takes longer than you think to listen to.
+
+[00:34:34] But we, James in the edit, speeds up and slows down bit selectively to make it seem like it's actually passing at an interesting rate. So this bit that Andy's just said is one of those really pedestrian moments. It's a bit like they did a study of people standing at bus stops and they found that when they put lots of trees next to their bus stops, people thought they were waiting for less amount of time. Oh, that's good. Not so why.
+
+[00:34:58] Yeah, because the trees are waiting even longer or by comparison I've been here less long than that tree. I guess because it's less dull and boring, you're like... That's nice. I'll put a telly there. Well, conversely, if you put someone there and get them to play seven notes on a tuber, then it feels like it's ages.
+
+[00:35:16] Yeah. Do you know actually bus stops a good place is to put a graffito. Are they? Yes, they are. And that's because birds fly into them. and they did a study in Scandinavia somewhere, I think, where they looked at bus stops, glass bus stops, with no graffiti, and then one with a graffiti on it,
+
+[00:35:35] and they found that birds didn't crash into the graffito-ized one. Of course they wouldn't, because they could see it. That's brilliant. But wait, don't do a graffito of a bird's nest. No. Or the big worm. Or of some old. So, yeah, I mean, Collins' Dictionary says that it's a throttle, I can't get into OED because you need to sign. into it.
+
+[00:35:55] I can set you in. Okay, cool. I'm not getting the etymology of it. I don't know if it's worth it. I feel like, yeah. Your time is ticking down. My time is ticking down. You gotta, you gotta get in there.
+
+[00:36:05] Okay, all right. Well, let's move on to our next fact. And this has been sent in by Andy Venga or Wenger and... All aboard the Wenger bus. And Andy writes, and this is pretty astonishing. Every possible melody has been copyrighted. Sorry? Every possible melody has been copyrighted and stored on a single hard drive.
+
+[00:36:29] What? Yeah. So, Andy writes, in a unique effort to combat the high volume of dubious lawsuits flying back and forth in the music industry today, a team of musicians has recorded every possible melody onto a single hard drive and then put each melody in the public domain. How have you recorded every possible melody? Well, okay, so music has a set number of notes, right? Yeah, but every possible melody would be like infinitely billions. Yes, exactly right.
+
+[00:36:56] However, Andy Venger sent a link to the Atlantic, which is where he got this fact from. And within that article, it says, most pop melodies run fewer than 12 notes. If you generated every possible melody with just the eight notes of the C scale, that would be eight to the upside down V of 12. What's that? To the power. Is that power? Eight to the power of 12 melodies, which is 68 billion 719,400. 176,736.
+
+[00:37:24] Big number, but achievable when you put it into a computer and you generate all of those melodies. So that's what they did. They wrote every melody, at least within that popular freight. So all I need to do is write my song in D-sharp. Is that all right? Because that's just in the C scale.
+
+[00:37:40] Exactly. That's just in the C? Yeah, I think so, yeah. But melody, I guess, it can apply to different keys. Yeah, yeah. It's the argument that if one was accused of stealing someone's melody, then you could go to that and say no it's not. It's been copyrighted and it's in the public domain.
+
+[00:37:56] Right. It's the idea. So they just wanted to stop. That's a cool idea. Led Zeppelin calling in every band to, not that they do that. In fact, they're the ones who were called in. When you said it, I thought you were going to say
+
+[00:38:07] that this hard drive contains not only the score from Mission Impossible 7, but also the score from the as yet unreleased Mission Impossible 8 because it's just got all music for all time. You know, like somewhere in there. Yeah. There is a perfect, yeah, yeah. Throbber.
+
+[00:38:23] Oh. There's no need to be personal. First meaning, chiefly colloquial, the heart, now rare. That dates from 1828. And then there's only one more meaning, a person or a thing which throbs. Right. Oh.
+
+[00:38:41] And the most recent citation is the DJ and producer has unleashed a hammer of Thor throbber. That'll find favour with their two. Tenaglius and Super Chumboes of the world. I'm always wondering how the Super Chumbo is going to react to each week's episode. So the OED doesn't have anything about the... No, it's too new, I guess. They're still updating it all the time.
+
+[00:39:04] It's nice that it used to me a heart, though. Yes. You could say my throbber burns for you. I don't say it, though. Don't make that your next chat up line. But if there was a really sexy film star, they might be a throbber throb. Yes. Now, yeah, now we're cooking.
+
+[00:39:22] Lovely. Super. So that's the word throbber. I got one more here, which is, this was sent in by Aiden from Neney, New Zealand. And he wrote about a Hawaiian guy who was called Duke Kahanamuku, who broke two world records and equaled a third in his first official swim race. He became the first successful Hollywood actor from Hawaii, taught presidents and royalty how to surf. and during his first 100-meter final at the Olympics,
+
+[00:39:50] he was so far ahead, he was able to look back and survey the field. He also invented a new way to kick. No. Introduced surfing. Kick as in swimming, I think. There's a ball over there and he's like, watch this. What did he do to that ball? I don't know.
+
+[00:40:10] That's a heartwarming 90s Disney movie for all the family, isn't it? Yeah. The new way to kick. Kicked a ball through his chest. He introduced surfing to Australia, where it's become one of their favorite pastime. Has that didn't need to be in that. That was not necessary, Aiden, but thank you for that. And once saved eight people from a capsized boat in heavy surf while on location for a film.
+
+[00:40:35] Oh, and after the first swim race, the authorities didn't believe his time, so they made him travel all the way to the U.S. mainland to prove it where he swam even faster. They should have made him swim there. Yeah. That would have proved it. That's true. But yeah, so yeah. Great. Someone I've never heard of before, Duke Kahanamoku. What a guy.
+
+[00:40:53] Inventor of a new kick. All right, it's time for the final batch of facts, and those are my ones. I'm going to start with another mind-blowing one. This is from Arjun Chauhan, and Arjun says this. A bacteriophage is a virus that infects bacteria, right? It's so tiny, 20 to 200 nanometers in height, but they are so abundant on earth that if you stack them all on top of each other
+
+[00:41:24] it would be 200 million light years of distance that they reached. For reference, the Milky Way is about 90 million light years in diameter. So more than double, the entire width of the Milky Way is just the bacteriophages on earth. And would they look bigger the further they got away? After a certain point, yes. Unfortunately, not at the point we've got to.
+
+[00:41:47] Oh, okay. I still think this is a good fact. No, it's a great fact. Did we ever mention, I think, about bacteriophages, the amount of bacteria as they eat every day? I think we might have done, actually. They eat something like a third of all the bacteria in the ocean every single day. I thought it's a whole fact to me.
+
+[00:42:04] Oh, my goodness. That's right. And then it replenishes at midnight on the dock every night. But yeah, bacteria phages are amazing. I wrote back saying, he wrote back saying, yeah, it's true. That is amazing. His wife learned it in a class.
+
+[00:42:18] They should do it. We should do it. Well, no, but who's going to eat all the bacteria? If we do that, it'll be a disaster, because then there'll be lots of bacteria in the oceans and probably spill over or something. All right, here's another one. This is from Daniel Nosteo, and it's a riddle. Cool.
+
+[00:42:32] I wanted you all to know that in March 2003, Air Algerie Flight 6289 crashed during takeoff, killed 102 on board, leaving just one survivor who survived because he wasn't wearing his seatbelt. What was the year? 2003 quite recent Oh
+
+[00:42:49] Okay well the plane crashed Did he fly out of the window He was flung out While everyone couldn't get out Okay so it's an easier riddle than I Thought it was He was in the back row And yeah he was immediately ejected
+
+[00:43:01] When it landed from the seat Clear of whatever then happened All right fine I've got another plane related riddle for you Oh yeah I just thought in case that one didn't work out as well That's an extraordinary survival story That's insane
+
+[00:43:13] Do you remember the lady we spoke about I don't know if it made into the show Either her parachute failed or she didn't have a parachute. She landed softly around an ant's nest. Yes. And then the ants acted by biting her. They were kind of acted as a defibrillator and brought her back. Do you remember that?
+
+[00:43:31] I think like the adrenaline that course through her. She landed in the Amazon and she survived. I remember the girl who landed in the Amazon and who like spent days kind of crawling through the Amazon's really bad. I think this is a different one. No, I think this is a good Lord. There's also Best Navolovich who fell further than anyone else in history. Oh yeah. She was either Croatian or Serbian, I think, and she was, there was a big explosion on board.
+
+[00:43:54] In fact, she must be Serbian because it was Croatian bomb. And she was kind of pinned to the fuselage with the drinks trolley and fell with the fuselage and somehow. And I think she had very low blood pressure so her heart didn't explode or something. Wow. And she became like a hero of the... That's incredible. Then there's Flight 401. That was an American flight.
+
+[00:44:14] It was the first flight to have dual sides, so you could walk down the aisle in the middle, so it had seats either side. Wide body. Yeah, okay, first commercial flight that did that. And a lot of people managed to survive because it crashed landed into a swamp. So the swamp gave it a bit of a break.
+
+[00:44:30] And then they repurposed quite a lot of the stuff because the plane was actually in good shape, like bits of it. So they took bits and put it into other planes. And then people started reporting ghostly encounters. Because they believed that the pieces that were repulsed. purpose were now cursed. I knew, this sounded familiar as you started saying it. Ghost flight. Ghosts 401.
+
+[00:44:50] Is it a film? It was, yeah. Right. Yeah. With a really big actor and I can't remember who the big actor is. Sorry, is this not true? So how much? No, it's based on a story that was written by a paranormal expert who'd put that angle on it
+
+[00:45:03] and then it was converted into a movie because it was such a big. I'm dragging us back to the realm of facts. Alright. Here's another plane related riddle from Kester Woof. The Labrador. You may have come across this before, but I learned it yesterday. Did you know that Air Force One has taken off more times than it has landed? Oh, I did know this.
+
+[00:45:22] It's currently in the air. That would be true. That would be true. And is it because the president's changed while it's in the air? Yeah. Big-go. And what happened? Which president was it? Was it Kennedy?
+
+[00:45:33] It wasn't Kennedy. Nixon. Nixon was on board Air Force One at the time his resignation took effect. So the plane took off with the call sign, Air Force One, and landed with the call sign, landed with a normal call sign at the other end. Isn't that great? Yeah, that is. Confusing, though. Well, that's the razz riddles for you.
+
+[00:45:52] No, I mean for the air traffic control on that day. Suddenly the plane just disappears and another one just appears on this place. Yep, true. Here's a fact from Meredith McBride. Hi there, a long-time listener whose son shared a fact and wanted me to send it in. So here it is. This is great. You know the Birch Khalifa? Yeah.
+
+[00:46:10] That's the very tall. It's the tallest building? I've been there. Been up it. Well, James, if while there you had laid it on its side... I would have been arrested. You would have... It would be longer than Vatican City.
+
+[00:46:23] Oh, I went to Vatican City in the same year as I went to Burj Khalifa. Well, that does surprise me actually, because I remember crossing the border into Vatican and walking all the way up to wherever the Pope lives, his house. And it's quite a walk. It's quite a walk. Well, it's still not as long as the Burge Kleefer will be tall. Also, a building in Asia, Meredith Wrights, is larger than a European country. That is cool.
+
+[00:46:47] That's a great fact. And it probably seemed shorter because I'm guessing you didn't walk up the verge of the lift. No, so that does seem a lot of shorter. Did you do the sunset thing? No, God did that. Okay. And the Pope told you, didn't he? We made that clear when you were there.
+
+[00:47:04] There's apparently a thing where it's so tall that if you get into the lift at the right moment, you can see a sunset twice by going. by going up it. The song goes down, you go up and you get a second sunset. You know what would be weird? If you were at the top of the Birch Khalifa, those ships would look enormous. Yeah, yeah.
+
+[00:47:24] Huge. They'd be in my face. There's also a thing which is apparently it doesn't have... And you lose. It's so weird. It has toilets and they didn't put them in. So they kicked themselves afterwards. What they did?
+
+[00:47:36] I went to, sorry to say this. I went to a building in, Oh, is it in Copenhagen? It's like a round building and they just had like a drop where you poo into it. So it's like a chair and it's like it's a hollow building
+
+[00:47:51] and you kind of sit with your bum face in the inside of the building and you poo and it just goes into the bottom of the tower. But sorry, like a modern building or an ancient castle. No, no, ancient, old old. Sorry, because it sounded like you were describing as a modern architect's dream,
+
+[00:48:05] like, you know, beautiful glass everywhere, spiral stagos. It's the Danish parliament. It's built around a slowly growing call of poo. According to my memory of this fact, the Birch Khalifa is not 100% dissimilar to that. In that, there's no sewerage underneath it. And so the poo collects at the bottom of the building.
+
+[00:48:25] And every day at the end of the day, trucks have to take the poo and the wee out away from the building and go to a dumping ground and put it there. So like living on a canal boat, you've got to collect it and then deposit it. Wait, are you saying that the tallest building of the world doesn't have foundations? It does have foundations, but it's built on a raft, I think. I thought it was built on sand. Shifting sand, yeah, but that's why they had to put it on a raft, because you can't build foundations that deep in sand because it shifts.
+
+[00:48:55] But you wouldn't want to have your poo to be landing on the raft. No. But I didn't know that thing about that, because like I said, I did go there and I read all of the boards to see if they were interesting facts. and they didn't say anything about poo, are we? Yeah. Wow. I can imagine they wouldn't at the top of the birds would be like,
+
+[00:49:12] we have a bunch of lackeys at the bottom who have to carry your shit away every day. But it's a great building. It's also the location, and this brings two things we were talking about earlier, of graffito that was put there by star of Mission Impossible during a Mission Impossible shoot.
+
+[00:49:27] Oh, did Tom Cruise leave a... Supposedly. So you've seen all the movies. He scales the building at some point, doesn't he? Mission Impossible for. Mission Impossible for. And then is there a big sandstorm that comes in?
+
+[00:49:39] That certainly is. Right. And he turns around and he's like, there's a massive ship in my face. It's a very scary moment. But no, apparently, this is the story. He wrote Katie Holmes' name. He was married to her at the time.
+
+[00:49:51] And then they found out and had to get to the top of the building and scrub it out. No more grafito. Wow. That's good. I didn't know that, boy. Here's another one.
+
+[00:50:01] Roland Pierce, right? It's just listening to your later step. Some good Titanic stuff there. Okay. A fact I heard a few years ago Don't quote me on this Oh, no, sorry Well, we're doing it now
+
+[00:50:12] But there were a couple of ways They could have rescued every single passenger Right, number one engines in full reverse for as long as possible would have brought the ship closer to the Carpathia rescue ship Number two, tie the Titanic to the iceberg Use the onboard cranes or planks or whatever
+
+[00:50:31] to load all the passengers onto the berg Wait there for rescue I think they were quite far past I feel like that would have been hard as well Yeah I don't know if that's realistic Are these facts or are these guys kind of Sort of sort of I've been to
+
+[00:50:44] Mind wandering I think yeah I went to a lake in Iceland that has icebergs on it They're carving from the glacier Okay And then they come into the lake And it's kind of attached to the sea And they flip a lot
+
+[00:50:56] Iceberg Yeah so I reckon if loads of people were on it It might just flip over And then you're all buggered Yeah That's probably why they didn't do it Also, I don't know if it's the Carpathia, or however it's pronounced, it was one of the ships didn't go to rescue the Titanic because it looked bigger than it should have. What are you talking about?
+
+[00:51:18] Because obviously about how cold it was, there was a lot of atmospheric illusions that were going on. And there was one ship that was told it's a thousand meters away and it's this long. But they saw a ship that was much closer and a different size. And they went, it can't be that ship. That must be another ship. So we need to keep looking for the Titanic. I have heard that. I have heard that. Yes.
+
+[00:51:37] Yeah, this is a real thing. It's a real thing. But there's another theory recently that they didn't see the iceberg because of, again, atmospheric mucking about. And that actually, you know, it wasn't just that it was far away and hard to see the iceberg. It was that literally it would have been impossible to see. Yeah, it was a fog. They call it a fog.
+
+[00:51:51] Does this guy got any facts? No. Well, let's have a suggestion from Tony Frost of an invention, because we discuss inventions. Have you heard James of the Euro Club? Have I heard of it? Yeah. Well, is this James specific? It is. So it's golf. It's golf.
+
+[00:52:06] Oh, right, I see. You heard of the Euroclub? I don't think so. Well, let me read out the little brief for you. On the golf course and need some urgent relief in 2010. Oh, yes, I've heard of it. Yeah, yeah, yeah, yeah. We've done this, am we on the show? Have we? Yeah, unless it was cut.
+
+[00:52:19] Disguides as a golf club, but you stick your willie in and take your week. Well, it is a golf club, but it is hollow and it does allow you to discreetly urinate into it. And then it says, a fabric privacy shield will have observers thinking you're just taking a practice swing. I doubt that. Because we were trying to work out when we spoke about it, whether or not you would gain an advantage from a heavier golf club. Oh, yeah. Off the back of urine being inside it.
+
+[00:52:41] Because it would change a lot. And if you're a top pro, you probably can't use this one. No, you wouldn't be able to. And also, my experience is that men, in particular, don't have much trouble finding somewhere to urinate on golf courses. And this sounds quite difficult for a woman to use. Yes. Well, the thing is men pee in jets.
+
+[00:52:58] Well, it depends what age golfer. And women pee in droplets. Yeah, yeah. All right. Here's one last one. From David McLaren. The winner of the 1970 Australian National Sheep Dog trial was Bob Ross, while no relation to the painter.
+
+[00:53:13] What? Oh, Bob Ross. He was a famous painter who was on American TV loads, I think, in the 70s. He was a lot of America, yeah. I know who you mean, I know. While no relation to the painter, Bob Ross, the dog was also known to have a soft, gentle voice. You said that one for last? That's our closer?
+
+[00:53:34] P.S. I went this year and the winning dog gets their portrait painted. That's great. Thank you. What's your name McLaren? David McLaren. Thanks, McLaren. Yeah. That's a... I really like that one.
+
+[00:53:56] Okay, that's it. That's all of your facts. Just a nice little twist on the formula. Thank you very much for listening, everybody. If you'd like to get in contact with each other about the things that you've said, over the course of this show. Violate GDPR rules. You can be found on your Twitter accounts.
+
+[00:54:15] But if you'd like to contact us about the things we've said, we can be found on our Twitter accounts. Dan? I'm on Instagram at Shreiberland. James? My Instagram is no such thing as James Harkin. I'm on Twitter at Andrew Hunter-Rem.
+
+[00:54:26] Anna. You can get in touch with a whole podcast by tweeting at no such thing or going to Instagram, no such thing as a fish or emailing podcast at QI.com. That's right. And do please send us your facts
+
+[00:54:38] for the next time we do this. Podcast at QI.com is the email address. We love hearing from you and we read all of them. You can also go to no such thing as a fish.com where there's an array of different stuff. Previous episodes, the sacred portals to Clubfish, which is where you get ad-free episodes,
+
+[00:54:54] you get bonus content every couple of weeks, and a chance to be part of something greater than yourself. And I think that's the real thing about Clubfish. Yeah, nothing against you in person. No. You might be great. You're probably having a wonderful and fulfilled life, but you could be leading a more fulfilled life
+
+[00:55:07] if you know what I'm saying. So, you know. So anyway, go there for that. No Such Thing as a Fish.com. That's it from us. We'll be back again next week with another normal episode of the podcast. We'll see you then.
+
+[00:55:17] Goodbye.

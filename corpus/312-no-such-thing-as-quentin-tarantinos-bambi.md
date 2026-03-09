@@ -1,0 +1,309 @@
+# No Such Thing As A Fish - 312: No Such Thing As Quentin Tarantino's Bambi
+
+- Episode date: March 13, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/312-no-such-thing-as-quentin-tarantinos-bambi
+- Slug: 312-no-such-thing-as-quentin-tarantinos-bambi
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, I am sitting here with James Harkin, Andrew Hunter Murray and Anna Chazinski, and once again we have gathered round the microphones with our four favorite facts from the last seven days and in no particular order, here we go. Starting with you, Andy. My fact is that Pompey's new drain system is 2,300 years old. Yeah, so this is in Pompey, they have a set of storm drains underneath the city that were
+
+[00:00:52] several meters down so they weren't really affected when Vesuvius hit and- I don't think any storm drain would have been able to drain away the lava from Vesuvius. That's a good point. But yeah, so there's the system which is 450 meters long, they're quite big so if you're a human you can crawl along it without too much discomfort and it turns out they've been looked into, they're so clean and empty and well built that they're going to be used again for modern profit and they're looking into another stretch of 500 meters of drains just to see if we can open those up as well.
+
+[00:01:25] So this kind of system is for taking water that comes out of rivers or comes from the air and taking it down to the sea. It's not so much for sewage, because this is what the Roman sewers were all about. If you had a toilet in your house it would probably go into a cesspit, it wouldn't be attached to the sewage system. Every now and then they could do, but the problem was there was no grating between the sewer and your toilet and so if you had a toilet and you attached it to the sewer everything could come the other way as well as you said.
+
+[00:01:57] Ah, yes, yeah, yeah, yeah. Oh that's great, so that's why we know so much about their eating habits because they were just sitting in these cesspits because they had bizarre menus, like we've discovered things that they ate there that include sea urchin, flamingo and the only example of a giraffe leg in all of ancient Rome is found in Pompeii. I think it's the shops that they found, did they not look at the shops in Pompeii and they found all that stuff? What do you mean they had it in the shop?
+
+[00:02:22] So there's a shop front with a giraffe leg? On the window, in the window. So obviously everything was kind of preserved quite well in Pompeii, right? Because of the old volcano thing. But they did a survey of 20 shops near Pompeii's gates and they looked at what was in the shops that was preserved and they found, like Dan says, the shellfish and the giraffe's bone and also spices that came all the way from Indonesia. Oh wow, because actually if you reflect on it it would have been weird if they'd found
+
+[00:02:50] a full giraffe leg in the sewer that someone had excreted out, wouldn't it? That would have been a painful session. That's a hell of a log, yeah. Oh god, good point. They did used to be terrified of things leaping back up, didn't they? And there used to be rumors that there were demons that would jump up from the sewers. Or giraffes. Or giraffes with only a leg remaining.
+
+[00:03:10] And yeah, I think rats would crawl up quite often. There is one story and this is from, I think, about the first century AD. There was an author called Aelian. Aelian. It's an A-E-L-I-A-N, right? He was not an Aelian, he was a Roman historian. Very serious guy, we're not certain. But basically all of these cesspit toilets that James has just mentioned,
+
+[00:03:30] they were kept in the kitchen quite frequently of the house. So you'd literally have the hob and then next to it you'd just have a little wooden toilet seat and you'd just do your business there. That's convenient. If you're in the middle of cooking a risotto and you can't step away for too long, it's very convenient. And I think a lot of people who have flats in London can really empathise with this. I was going to say in my flat, the flat I used to live in, the toilet is basically in the kitchen. It's at the end of the kitchen and the door's never closed.
+
+[00:03:55] Right, well that's disgusting. Why is the door, that's your decision not to close that door. It actually is quite annoying because when you close the door you can't open the fridge to access the freezer. It's a really silly built system. It's quite a bad design. Sorry, if you've closed the toilet door you can't open your own fridge. The door handle gets in the way, it was a cock up in the construction process that no one'd ever remedy.
+
+[00:04:16] Okay, so, right, it's just stepping away from Anna's horrible, horrible life for a minute. This author, Alien, he wrote about a merchant in a city because they were all suspect, they didn't really have traps, you know, they didn't have any barrier. Yeah. So, there was one merchant, a wealthy Iberian merchant living in a city, and every night there was this giant octopus that would swim up his toilet and it would come out into the kitchen and eat all the pickled fish that he had in the pantry. It sounds like nonsense.
+
+[00:04:45] It's true, it's true. This is the story he wrote, obviously it may not be completely true. And also it's written by Alien. Just in Pompeii, so we're finding out a lot more about it at the moment because archaeologists keep digging up new things. And one thing they've just discovered quite recently is that Pompeii in red, which is the walls are all, if you go there, it's beautiful, stunning red, what turns out that's the wrong color.
+
+[00:05:09] A lot of that was yellow and it was as a result of the gases from the volcano that it changed the color. So, a lot of Pompeii was red, but not as much as it is now. Well, that's like much of the rest of Pompeii doesn't have any color on it anymore. So, I think in the amphitheater, it used to be covered in stunning frescoes and sort of pictures of bull fights and chariot races and gladiators fighting each other. And when it was excavated in 1815, so they excavated it and that had all been perfectly preserved for almost 2,000 years.
+
+[00:05:39] And within a few months, it completely vanished because as soon as it was being eroded and destroyed by frost and stuff, no trace of it was left. So, after 2,000 years, you just lift the lid on it and it goes away. I have a fact about the amphitheater. The Pompeii men were so rowdy fighting the neighbors in their nearby town that their amphitheater got closed down for 10 years as a punishment. Really? Yeah.
+
+[00:06:00] Well, you mean like hooliganism and stuff. Exactly, yeah. Really? Imagine that, a 10-year ban from all sports. Yeah, that's quite a lot. It's your dream, isn't it? Yeah. In the amphitheaters, what would they be watching?
+
+[00:06:12] I see people killing each other, you can't even write. If you're not going to behave, you're not going to watch people murder each other. You're only allowed to murder each other in one place, in the town. Whenever you go and watch a sport, you don't automatically start doing that sport in the terraces, do you? You don't go to the horse race and then you turn around and all the crowd around the horses. Every time I watch Stand Up with Dan, he gets up in the middle of the audience and starts reciting his 8-year-old jokes.
+
+[00:06:38] It's really awkward. When you say 8-year-old jokes, do you mean jokes that an 8-year-old will be proud of? No, they're jokes exclusively about 8-year-olds. That's all about the cereal. So do you know what people did when the volcano first erupted? So there was one day where it was raining small rocks from the sky and it was, you know, clearly something had gone on and they'd been in eruption. Did they go to the volcano and look at it like rubber-neck it?
+
+[00:07:04] Oh, I don't think so. But the main thing that people did to protect themselves was to tie pillows onto their heads. And they just walked around with pillows on their heads all day. How clever. And a lot of people actually got away. Most people who lived in the town escaped. And then the next morning, the pyroplastic flow came, which was thousands of miles an hour, I think, and that just blasted anyone who was still left in there.
+
+[00:07:28] No pillow could do anything. No, the biggest pillow in the world could have protected you from that. You know how we've got the famous plaster casts of people? So you've seen them. You've been, haven't you, Dan? Yes, yes. There's a famous shape. So the ash-covered bodies and then there's a big hole where the body used to be.
+
+[00:07:44] But there's not just plaster casts of the bodies of the people. There's also plaster casts of the plants. So this is just a secondary, very exciting thing that no one talks about. But basically, it's a really good way of finding out what they were growing in their gardens, because as well as covering the people, the ash-covered kind of all the plants and the trees and the herbs and stuff, and it got into their root systems. And then the roots disintegrate and they pulled plaster in when they excavated. And now they've got a perfect plaster cast of the root systems of Pompeii.
+
+[00:08:13] That's so cool. That's really cool. Although I couldn't understand why they went for the humans first. It was so clever just discovering a hole and realising this is a person-shaped hole. Do you think so? Would you not think if you saw a hole that was in the shape of a person, you would know immediately that it was or? No, I guess if I was just digging downwards,
+
+[00:08:33] I wouldn't automatically think this is shaped like a person. I guess it's how quickly you discover it. You're right, actually, because I'm kind of imagining, do you remember that game show hole in the wall where celebrities had to make a shape and the shape of the body would come towards them? It wouldn't be quite as obvious as that, would it? I guess not, because you're excavating a whole plane of rubble and ash. It's not a good game show.
+
+[00:08:57] It's quite a dangerous place to go to, Pompeii, still. Yeah, for one bizarre reason, which is if you walk in the wrong spot, you might be blown up by a World War II bomb. So it's unexploded bombs. So this was in 1943. The Allied forces had rumors come out that there was a lot of Nazis huddling up in Pompeii. No, because actually, I was going to say,
+
+[00:09:17] what's the point of bombing a place which has already been destroyed by a volcano? Yes, it seems a bit like Overkill, doesn't it? So that's what they thought. They thought the Germans were there. So these were rumors. So they went over and they dropped 165 bombs over Pompeii, exploding a lot of stuff. Nazis just had pillows on there. 8% to 10% of bombs that were dropped during the war
+
+[00:09:40] are said to be unexploded when they land in a spot. So they actually have found a few while excavating, looking for humans. They suddenly come across, oh, that's a bit bomb-shaped. What shaped people back then, weren't they? Presumably, there weren't any Nazis hiding there. So did they just drop a bunch of bombs? It was completely wrong. Yeah, it was completely wrong.
+
+[00:09:56] There was a few things like there was artillery and a few tanks, but they definitely weren't people. It wasn't a camp. So yeah, so they found a few, but they expect that there's about 10 in total to find. And so they're finding it in all the spots that are not open to the public. They're sort of the areas that they're now excavating. There is a link between the bombings of Pompeii and the eruption at Pompeii happen on the same day.
+
+[00:10:19] And in the same place. Really? And in the same place. Really, at the same, really. 24th of August. Wow. Yeah, I don't know if that was chosen as a tribute text to the volcano. I suspect not.
+
+[00:10:29] I suppose though, all you can take from that data is don't go to Pompeii on the 24th of August. Absolutely. Yeah. Just because you mentioned bombs and to take it quickly back to latrines, they used to explode sometimes. So people in Pompeii were used to the old explosion. So they could explode up your bottom. You'd be sitting on the opening.
+
+[00:10:49] So you've probably seen the latrines in ancient Rome where you'd have public latrine and you'd sit on this hole and it was that key hole shaped hole. So you had a little bigger opening near the bottom so you could get your sponge brush in so you could wipe your bomb with it. But sometimes there'd be an explosion that would come up through that hole and that was because of the mixture of methane and hydrogen sulfide which caused explosions. Yeah, set fire. You could always wear a pillow on your bottom
+
+[00:11:16] whenever you go to the toilet. Remind me not to come and stay at your place. It's all right. I've left a mint on your pillow. Oh, God. And also these public toilets, it was like 20 at a time, wasn't it? There was loads of people there and there was basically, there was no privacy. It wasn't like cubicles or anything like this.
+
+[00:11:37] But you didn't really need it because you were wearing a toga. So you could hide your shame by covering yourself in a toga. Yeah, because we have this impression that they really didn't care. And I guess I don't think they did care about privacy nearly as much as people did subsequently. But there is one latrine that's been found with the revolving door or what we think was a revolving door that was the entrance to it. You could do with one of those next to your fridge, couldn't you? This is actually based on like a hole in the ground
+
+[00:12:06] which they think they put a pole in and a door would just spin because what people were doing when it was a normal door was just leaving the door wide open because it stank like shit in there and they wanted to air race it. But then people could just look in. And so they included a revolving door so you couldn't leave it open. But revolving doors, we've said before, they keep air in very effectively. So what is my worse?
+
+[00:12:24] Yeah, it probably would have smelled worse, but you couldn't leave it open. You were just stuck with the smell, but at least you had your privacy. Okay, okay. You've got to make a sacrifice. Sure. We're going to have to move on in a sec to our next fact. Have you heard of unblocktober? Or you go around unblocking people's toilets as a charity service?
+
+[00:12:42] Is it that you just don't eat meat so your stools are not quite as heavy? It's not that. Is that why people are vegetarian? They're sick of the heavy stools. Shout out a right, you're arse leg the other time. No, guys, it's to stop fatbergs and to stop whole sewage systems from being blocked up. So they send you a resource pack for your workplace at home and they advise you about how to improve the country's sewers.
+
+[00:13:10] And basically it's all things like not putting oil down the sink. Because when the oil clubs together in the sewers, it creates a fatberg and it creates a nightmare. And they send you a list of things not to throw down the sink or the toilet, like nappies, which I would have thought was quite obvious. But wet wipes and condoms and cotton buds and butter. Whose butter is one of those things? Who's putting butter down the toilet? No one is, are they?
+
+[00:13:37] 00:13:38,520 --> 00:13:41,480 The only reason I could think of that is if you're buttering yourself up because you want to slip down there yourself. To go and retrieve that wet wipe you actually got in. Okay, it's time for fact number two and that is James. Okay, my fact this week is that there is a factory in Iran that makes 2000 US, British and Israeli flags every month specifically for people to burn. Wow.
+
+[00:14:05] This is, how quickly after buying them are you allowed to burn it? Well, I don't think there are any rules in Iran against burning US flags. I think it's positively encouraged. But this was a report last month by AP, Associated Press, which was in all the newspapers afterwards. And basically it's about this factory in a town that looks like it could be called Khamene, but I think it's probably called Khamene or something like that. But it's in Iran and they have workers who work really diligently,
+
+[00:14:34] adding gold to stars and the stripes and everything to all these flags, even though they know that as soon as they've made them, they're just going to be set on fire. And the guy who runs the factory has said, in recent years, the production of US flags has tripled and what eventually happens to my products is on its end user. So he's kind of washing his hands of what happens to it afterwards. But this company is called Dibba Pacham Khamene
+
+[00:14:57] and all I could find about them really is they have a nice Instagram channel. Burning flags. No, it's flags. Oh, okay. It's unburning flags. Okay. But no, I think this is what the owners are saying basically. It's not up to me what people do with it.
+
+[00:15:11] I'm not bothered. I'm just going to give you the flag and if you want to burn it, then that's up to you. He did also say, I hope there is a day that the flags we produce are presented as a gift. Which kind of feels true, although a lot of them are probably given as gifts today. They're just given as gifts saying, hey, I know you want something to burn at the demonstration later.
+
+[00:15:30] But it's yeah, and they make three kinds of flags. One is for display purposes. One is tablecloth flags, which is if you have a conference or something. And then the third is demonstration flags. And that really spikes on days of national holiday, for example, because you want an American flag to burn on a national holiday. So you're not supposed to burn the tablecloth ones, presumably for instance.
+
+[00:15:47] No, no, no. Because that ruins the dinner party. It's the town where Ayatollah Khomani was born. So that's why the town is called Khomani, or maybe why he was called Khomani. Yeah. And his house is now a major tourist site. But it's not the only tourist site there
+
+[00:16:03] because there are some caves nearby with some rock art with cup marks, which may be up to 40,000 years old. What? Yeah. What's a cup mark? I'm not completely sure what a cup mark is. So I'm always getting told off at home for putting my hot cup of tea on the table and leaving a mark.
+
+[00:16:20] And I'm always like, look, it'll erode eventually. It'll disappear. But if you're telling me they're 40,000 years old, Christ, they should have used a coaster. Yeah. It's funny, isn't it, how people burn flags and find it offensive and stuff, considering that really no countries had flags
+
+[00:16:38] until like the late 18th century. And most countries didn't have them until the late 19th and early 20th century. It's really a modern thing, the idea of national flags. Yeah. You would get them on boats and stuff, but as a country. Quite a lot of countries are really into their flags. So there are quite a few where the red stripe signifies
+
+[00:16:54] the blood lost in war and stuff. Yeah. And quite a lot of countries don't allow you to burn them, whereas America is fine. Well, in America they have a day for it, June 14th. Absolutely. It's the day that you retire flags. So the idea is that you are meant to burn flags
+
+[00:17:09] when they're over. And there's an actual day that you can save the flag for. So if you want to burn an American flag, June 14th, that's the day. If you want to be respectful. Absolutely. If you want to offend everyone, do it any other day of the year. Yeah, the day before.
+
+[00:17:22] They do say in the flag code, don't they? The US has a flag code and they say how to dispose of it, which is in a dignified way, preferably by burning. But there are lots of other sites and lots of other companies which advise further on exactly how you should burn it. And so places like the Boy Scouts or Flag Sellers or the newspapers will say, what you've got to do is you've got to fold your flag up very carefully,
+
+[00:17:42] place it in the very middle of a fire, recite the Pledge of Allegiance, and then observe a minute silence as it burns. The flag sellers say, and you must do that on the day after you buy it and then buy another one. Have you heard of flag disposal boxes? These are a thing in America. They are specific boxes for your old flags
+
+[00:18:02] that have become worn or weathered. And you drop them in there and everybody's off and a Boy Scout will come around and he'll open it up, take all the flags out and then burn them. Like a flag, respectively. It's like a flag, and they have these in supermarkets. That's how big the flag is in the USA. So it's basically like recycling.
+
+[00:18:18] You have your clear glass and your brown glass and then your flag. Yeah, exactly. That's so specific a thing to have. Yeah, very weird. You think there could be one collection day, yeah, where someone just goes around saying, how many flags have you got through this year?
+
+[00:18:31] There are so many flags. There are so many flags in America. It's like wine bottles here. We have the huge pile of wine bottles at the end of the week. They've just got, I can't believe we went through so many flags this week. Do you get a bit embarrassed putting out all these flags and all your neighbors seeing, oh, God,
+
+[00:18:45] really went crazy last week. We had a flag party. We had a flag party. You've got a flag problem, mate. It did used to be illegal to burn the American flag, didn't it, for quite a brief time. So it was in 1968 when people were getting quite into it during Vietnam, quite into burning the flag in protest.
+
+[00:19:03] And it was made federal law that you couldn't do it. And then in 1989, there was a guy called Gregory Lee Johnson who burned a flag. It was like an anti-Ragan and anarchist sort of protest. And he said he should be allowed to burn it. It was violating his free speech, his freedom of speech, that he couldn't express himself by doing that. And he won.
+
+[00:19:20] It was quite a famous case, the Texas versus Johnson case. He won. And since 1989, it's been completely fine to burn the flag. And what I found interesting was he's still going. And he's still doing the same thing. He's still flag burning all over America. And in 2016, he, this guy, Gregory Lee Johnson, was arrested during a staged flag burning
+
+[00:19:39] at the Republican National Convention in Cleveland. And the reason he was arrested, because obviously you can't be arrested for burning a flag, is that police said that he lit his pants on fire. And there's another. Is that illegal? No, I didn't. They went, I lie.
+
+[00:19:55] Anyway, I just want to say in Gregory Lee Johnson's defense, and again, it's all the news reports at the time, he didn't like himself or anyone else on fire. This was just like classic US police bullshit. And he actually got compensations of $225,000. Hang on, Anna, did the Boy Scouts burn flags to dispose of them between 1960, whatever it was, 1969 and 1989?
+
+[00:20:17] They must have done. They must have been a loophole. Yeah. So it wasn't for the purposes of this, but that was sort of allowed. It must have been. Unless maybe they had an enormous flag pile up and didn't know what to do. There might be a prison still with thousands of scouts in it.
+
+[00:20:30] We're all put away for life sentences. They would have been able to get out of those scouts. They've been trained. This one, this badge is for escaping Alcatraz. Just a quick thing on flags and protesting. Have you guys heard of the Danish protest pig? No. This is a pig that was basically bred in protest of the fact
+
+[00:20:51] that during the Prussian rule in Denmark, there was bits of Denmark that were told they were not allowed to raise their flags. So they bred a pig that had the exact colors of the flag as a sort of walking flag. Red and white. Yeah. The colors of the flag, right?
+
+[00:21:06] Yeah, exactly. It's probably kind of pinky and white if it's a pig, I imagine. Yeah. It doesn't look like a flag when you see the pig. I've seen pictures, but it obviously was just symbolic about it. But yeah. That's amazing. Yeah.
+
+[00:21:17] It's just a nice little screw you. It's a relatively simple flag to replicate, I guess. Yeah. As opposed to the. If you were the Seychelles flag. Yeah. It would be really difficult. What's the Seychelles flag?
+
+[00:21:28] It's just got lots of colors on it. Right. Got it. Thank you. Everyone laughs if they all knew the Seychelles flag. I know, I was guilty. Guilty as well. I just assumed it would be a why would you pick it?
+
+[00:21:40] You've got to ask that you can't do the knowing laugh. The people at home will be thinking, shit, maybe I should know the Seychelles flag and they'll be hating themselves. And then they'll look it up and laugh their ass off and they realize it's like lots of, it's almost like rays of light coming up from the bottom corner and they're all different colors.
+
+[00:21:55] James, we've got one on the wall right here at the Seychelles flag. Why do you think that's where we're recording from this week? Anna's facing the wrong direction. That's the one we're going to burn after the show. That's right. So another thing which people use for protesting against America is shoes.
+
+[00:22:13] Do you remember this? This kind of started, one of the first people to do this was an Iraqi reporter called Montaze al-Zaidi and he threw both of his shoes at George W. Bush in 2008. And it was quite good for one person and that was the maker of his shoes who could then start selling them
+
+[00:22:31] as special bye-bye Bush models. Amazing. Did they come with grips so you could throw them better if George from W. Bush visited you? They were just the same shoes, but they just renamed them. And in fairness to him, the brother of the guy who threw the shoes said that actually he bought Iraqi made shoes
+
+[00:22:52] and this company who was selling the bye-bye Bush ones was a Turkish company. And apparently there was also a Syrian company who were claiming that they made the shoes. But the Turkish ones was the one that took off and they had to get a whole lot of new workers in to make shoes because they were selling so many. And yeah, he said that he saw it on TV
+
+[00:23:08] and he said, I know that shoe anyway. That's definitely one of mine. I wonder if people retrieve the shoes afterwards because it's not like burning something. Once you've thrown your shoe at someone, do you then go and pick it up and put it back on? Do you know what happened to the shoes? To the ones thrown at George Bush?
+
+[00:23:22] Were they taken by the Secret Service? They were, but what does Secret Service do to them? Put them in Guantanamo Bay? You will talk. You've got a tongue, you will talk. No, they were and it's exactly what we're talking about with flags, they were burned. Oh, gosh.
+
+[00:23:44] So that is one of the reasons why this Turkish company and the Syrian company and the Iraqi company could all say that they made them because they didn't burn, so no one knew exactly what they were. Were they burned respectfully by a Boy Scout who had done up the laces first? Tied them neatly.
+
+[00:23:57] Top or not? Not that yet. There is a record for the biggest flag, which is also a pizza. Of course there is. But was it flappity? It has to flap to be a flag. This was actually just on a table.
+
+[00:24:10] This was a tablecloth. It was the Stars and Stripes pizza, which they made with mozzarella and then dyed mozzarella. That's cheesy. I think you need to find the blue food. They really tried and they just couldn't do it. Blue M&Ms.
+
+[00:24:23] Blue M&Ms. I think for the people who were ending up eating the pizza, they thought they can't put them through that. But that was small. It was quite small. It was nine feet by four feet. It was the size of the overall flag slash pizza. Yeah, okay.
+
+[00:24:35] That doesn't shock me that no one else has thought to make a pizza flag. It's an easily breakable record though if you're looking to break a record. That's what I'm saying. Yeah. And go for a flag, which is quite easy to do. Yeah, not the stay shells.
+
+[00:24:48] And that's a low enough now, because we've all learned. Okay, it is time for fact number three. And that is my fact. My fact this week is that the old word for intestines was arsropes. Are we trying to bring it back? I love it. I think it's, yeah, I think.
+
+[00:25:08] It's evocative, isn't it? Yeah. The only issue is I don't talk about my intestines that much. So it would sort of be a wasted swap. If they were called arsropes, you might. I might bring them into every conversation. So when was this? This was in the 14th century.
+
+[00:25:23] So there's a great instance of it being included in the Wycliffe Bible, which was one of the first modern translated English versions of the Bible by a guy called John Wycliffe, I believe his name was. No, Wycliffe, Sean. I'm pretty sure I've heard that name. Well, you might be right. He's right, I think.
+
+[00:25:40] Yeah, there is a link between John Wycliffe and John. No. Is there? Yeah. Wycliffe, Sean was named after John Wycliffe. Was he? Yeah. Yeah.
+
+[00:25:48] There's a tweet of him online saying, my father named me after John Wycliffe, the biblical scholar. That's amazing. I know. But I don't know why you've reversed the names, John Wycliffe from Wycliffe, Sean. Well, maybe his surname was Sean. His surname happened to be John.
+
+[00:26:01] And they thought this is an opportunity we can't miss. I can't think of any other biblical scholars. So I can open Martin Luther. Was Martin Luther King named after Martin Luther? He must have been. Yeah. Yeah. I think people would have been called that
+
+[00:26:15] because he was such a famous heroic figure. Yeah. Well, so was John Wycliffe. He was great. So Wycliffe, Sean. Arthrope's Wycliffe. Anyway, I think it was used to mean rectum, right? Specifically.
+
+[00:26:27] Or I think I read an encyclopedia from a couple of hundred years ago that was saying it was used to mean rectum. And then they sort of referred to the whole gut as being one continuous thing, which it is in a way. And the end of it, the end of the large intestine, the rectum was what they said for arthropes. And then they called the small intestines a small ropes.
+
+[00:26:45] But it wasn't a rope. I mean, it's not a rope, your bottom. You can see, well, you can see, you know, if you open someone up, you can see the ropes inside them of their intestines. It's just so strange that they used that to mean your backside. Well, it's a, you know, it's still a tube.
+
+[00:26:58] It's a tube, yeah. You're both making really good points. A couple more arse words from the olden days that were obsolete. Arse pos was an obsolete word for a heavy fall on the buttocks. Arse pos. Arse pos. Nice. And arse winning was the money earned by prostitution.
+
+[00:27:17] Got it. Absolute word. Yeah, okay. So I like to bring those back. That's good. So Pratt was also talking about your bum and your hip. And I'd, yeah, I'd never known that. So Pratt fall is off because of that.
+
+[00:27:29] Did not know that. I'd never read them when you call someone a Pratt. You're saying they're an arse. Yeah, or a hip. Yeah, could be, could be. So just quickly, one more thing on John Wycliffe. Yes. So he was kind of a proto reformation person because he was an English scholar of the Bible,
+
+[00:27:47] but he also disagreed with a lot of standard Catholic church practices like selling indulgences and praying to saints instead of just to God or to Christ. And he was really unpopular in Rome for all these reasons. So he died in 1384, really soon after his version of the Bible in English was published. And then there was this church meeting called the Council of Constance, which was 40 odd years later. And they were so annoyed with him still at this church meeting that they declared he should be dug up and his bones should be burned
+
+[00:28:16] and then thrown into the nearest river. No. And it was done. But was it done respectfully? It was done very, very disrespectfully. Wow. And they, that's harsh. I know it is harsh.
+
+[00:28:27] That council of Constance just quickly, they only met because there was a really embarrassing church situation where there were three popes at the same time. That is a bureaucratic cock up, isn't it? It's a sitcom rating. Yeah. Yeah. There were two from 1378 onwards.
+
+[00:28:43] And that was a bit embarrassing. And then in 1409, player three entered the game, pretending to be the pope. So one of them was, at least one of them was a pretender. Yeah. So the council met to resolve this matter. And they did. But they also said, let's dig up Wycliffe while we're about, we're all meeting while we're here.
+
+[00:29:01] As a bonding thing, maybe. On intestines, the quite famous fact, the small intestines, what's the surface area? Oh, it's something like a tennis court or? A tennis court. It's not a tennis court. Wow. I thought you got to get taught at school all the time, right?
+
+[00:29:18] The small intestines has this incredible surface area because it's covered in the little filly lumps and bumps. And it's very windy. And you're always told it's got the surface area of a tennis court or a football pitch. And then a few years ago, scientists realized no one's ever actually properly measured this. So they bothered to measure the surface area of the intestines. And it was a bunch of Swedish scientists and they actually worked out it's only 40 square meters, which is half the size of a badminton court.
+
+[00:29:43] Sorry, guys. Pretty small. Wow, that is small. Yeah. I mean, it's still quite big to squeeze inside, but it's quite a relatively small body. But that's true. They did think for a while, and I've not actually seen this disproven,
+
+[00:29:55] that Russian people and Japanese people had longer intestines than anyone else. Okay. So what it was, they measured some intestines back in the olden days. And they found that the Russian intestines were about five feet longer on average than anyone else in Europe. And we think that probably the reason was, is because they had quite a small sample size. And actually your intestines, different people have different lengths.
+
+[00:30:20] And that is, you know, they're quite different in size. And they think probably they just got lucky that they got some Russians with big intestines. But they blamed it on economic conditions, saying that they lived on a vegetarian diet. And so they needed to grow longer intestines so they could eat all these vegetables. What? Then on the other hand, in Japan, there is a theory
+
+[00:30:41] thought by Japanese people that Japanese people have longer intestines. Okay. And I saw this really good article, shame on me, I can't remember where it was, where this person looked into this and they surveyed a load of Japanese students and 65% of them believed that Japanese people had longer intestines. Wow. And four of the people who they asked said that
+
+[00:31:02] they were exactly 1.5 times anyone else in the world. They had this belief is like a myth there. But then this guy asked an actual doctor, and this doctor said it's kind of known in the field of, you know, cutting people up, that if you get young Asian women, they have extremely long intestines. Okay. And I just can't find any actual evidence of people, other than these people actually measuring them.
+
+[00:31:28] So for all I know, it's true. And the idea is that if you're on a vegetarian diet or that kind of diet, you might for some reason have longer intestines. Now, obviously this does sound like bullshit, but it is widely thought in some parts of the world that that's true. That that's true. So koalas have really long intestines, and they exclusively eucalyptus,
+
+[00:31:48] and they have to break that down a lot because it's quite poisonous eucalyptus, but that's over millions of years. So I don't know how quickly. It doesn't take the millions of years to break down a bit of eucalyptus, that's ridiculous. Hell of a lifespan. No, you are right.
+
+[00:32:00] But it is definitely true that between individuals, like my intestines might be way longer than yours, or way shorter. Could they test it by presumably we could get, you know, some Japanese people, some Russian people, one of us to swallow something indigestible, maybe some chewing gum or something, and then we'll time how long it takes to come out. That's one way.
+
+[00:32:18] Whoever's come on the intestine. You could probably just do it through CT scans or, yeah, you know, just taking dead bodies and cutting them open. Maybe I don't know. Just body-testing dead bodies are coming around. I would struggle to get the wherewithal to cut open a dead body if we all tried it. I thought arranging a CT scan was hard enough.
+
+[00:32:35] You know what, the cool thing. I see what you're saying. You're thinking of a practical way for us to do it, because we know some Russians, we know some Japanese people, we could try it. I thought that might, that could be a first step, and then we'll think about the cadaver exhumation, if that doesn't work.
+
+[00:32:49] Is that a thing, though, where we could race chewing gum? No. It's unlikely to be accepted for the Olympics 24. What do you mean is that a thing? I mean, it's a thing I just made up. I was just wondering if there's a mean average speed of digestion. There must be, well, there must be an average, but people must vary, I suppose.
+
+[00:33:10] Well, because I got five foot longer intestines, yeah. Yeah, or you might have a narrower tunnel, so that might, your food might be pushed along it faster, or take longer to get along it. And like Andy said, it's not a spectator spot, really, is it? It's not much of one. Yeah, let's find a dinner party. If you had a little GPS tracker inside the chewing gum, let's say.
+
+[00:33:28] Andy's making his way down there. A slalom ski route, and you had it up on screens. I can see that being fun. And they actually do that sort of thing now in medicine, don't they? They send trackers down through your system. It's quite a common thing to swallow something, and they've got a new thing, which is, you know how if you need to diagnose stomach issues,
+
+[00:33:46] sometimes they'll have to do an endoscopy, and you'll have to actually swallow something, and it's quite uncomfortable, and then they'll scrape the mucus from your stomach lining, and then it'll get a sample of mucus, and it'll work out what's wrong with you. And now, they've invented, and I think it's gonna be released onto the markets
+
+[00:34:01] in the next year or two, a sort of hoover, which you swallow, and it does that for you. So it's a tiny little capsule, and you swallow it, and it's got this amazing mechanism where it's got an opening at the top, which is clamped shut by a weird blob of wax. But once it gets down to your stomach, there's a magnet placed outside your body
+
+[00:34:21] that triggers an electric current that melts that little wax pellet, so it opens the sac up, and then the sac can hoover up all the mucus in your stomach lining, and then it'll carry it out like a little hoover bag, and then you poo it out, and you return the hoover bag to the doctor.
+
+[00:34:35] You can tell me what's wrong with you. That is fucking clever. It's weird. That's so cool. It is weird. You know bees? Yep. They have expandable rectums.
+
+[00:34:47] Do they? Yeah. Don't we all? Yeah. Very good point. Very good point. Yep. They're nothing special.
+
+[00:34:53] Okay. Bees have extremely expandable rectums. How expandable can they be? Well, bees sometimes go into the hive for the winter, and what they can do is they cannot have a poo for several months. So some bees just stretch out their rectums between November and March.
+
+[00:35:12] They just carry around all their poo inside their bums for the last four months, and then when March comes and it's spring again, they can leave the hive, and then they have a poo outside. They take an enormous copy of War and Peace or something, and they say, I'll be a couple of days.
+
+[00:35:29] Okay, it's time for our final fact of the show, and that is Anna. My fact this week is that researchers have 3D printed sex dolls for turtles. Because this is what they do. This was an article in the conversation about a researcher who was pointing out that we actually know surprisingly little
+
+[00:35:47] about how a lot of turtles mate, and it's quite hard to study how they mate without disturbing them, because you've got to go swim down with your snorkel and mask and watch them. And so what they've done is they've 3D printed decoys, and so they 3D printed these two decoy females,
+
+[00:36:00] and one of the things they were looking at was what's attractive in a female to a male turtle. So they printed one that was your average size, and one that was the very upper end, the maximum size that a female could get to, and they stick cameras on the turtles, sink them to the bottom of a lake or a pond or a river, and see what happens.
+
+[00:36:17] And it turned out the large one, the big decoy, got twice as many visits and five times as many mating attempts. Wow. It's medium sized. That's very cool. These are map turtles, right? Yes, and all the map turtles.
+
+[00:36:29] So they're really cool. The reason that this 3D printing exercise worked quite well is because to mate, they all gather together into a massive orgy spot. So this is every autumn, hundreds and hundreds will get together at the bottom of a lake, and then they'll have sex,
+
+[00:36:43] and then they'll sort of wedge themselves under a rock so they don't float away, and they'll basically go to sleep for five months or hibernate, and it's often under 50 centimetres of ice, so they'll just be on the bottom, and they don't breathe, well, they breathe through their skin,
+
+[00:36:56] they don't breathe through their mouths while they're doing that. And they wake up in spring, first thing they do is mate again. So they just have a long hibernation sandwich where the bread is the mating. But that's why... And the filling is the sleeping.
+
+[00:37:11] Yes, yeah. It's a very big filling compared to the very thin slices of mating bread. I think you stretched this analogy enough. I think it's willing to crack. But anyway, that was why it was quite easy, because you know exactly where to drop the decoys, and there are plenty of them around,
+
+[00:37:27] and it's just really sad to watch. Have you seen the videos of the little guys trying to mate with the females? It's just awful knowing that... What, the 3D printed females? Yeah, it's just not going to get anything out of it. There's so much awesome 3D printing stuff that's going on. So some scientists, again with turtles,
+
+[00:37:45] they've been making fake sea turtle eggs, and then burying them on the beach. Can you guess why? Is it so that... Because humans sometimes go and collect eggs and try and steal them? Bingo. That's it, it's to catch poachers.
+
+[00:38:01] So you bury the fake eggs on the beach, and then the poachers come along and steal the decoys along with the real eggs. But the decoys have GPS trackers in. So then you just map where they're all going to, and if like eggs from two different GPS trackers end up in the same place, you think there's your hub of poaching,
+
+[00:38:15] you go there and make your arrests. And if they accidentally eat the egg, we can then play that game that I really want to do of tracking the intestinal race. Yeah, perfect. I like the way that these people are poaching eggs. Oh yeah, isn't it? So many people wrongly imprisoned.
+
+[00:38:32] Did you poach an egg? Yeah, I did. Did you guys see Spy in the Wild? I actually didn't, but it was a series that made a load of fake animals and then sent them into animal colonies. In the first series of it, they made a fake langa monkey,
+
+[00:38:46] and then they sent it in to, you know, infiltrate a real langa monkey society. And then 120 gathered around it, and they were all really freaked out by this thing. It looked exactly like one of them, but it was not quite right. And then it fell over because they were getting a bit boisterous around it.
+
+[00:39:00] And they all went really quiet because they thought, oh no, we killed it. Terry's dead. And then they all were really silent and started hugging each other. Which I think is a sign of emotion spreading among this group because they thought they'd accidentally offed.
+
+[00:39:14] How did they think they'd killed it just by staring it down? Well, they nudged it and it fell over and then moved. It's so interesting. So this was a guy, he works at the BBC, or four of the BBC with these programs
+
+[00:39:24] called John Downer. And he made a series ages ago where he didn't quite do animals. He'd put cameras in boulders. He had boulder cam basically. And they thought that worked so well. Why don't we try and make animatronic animals? So they did a prairie dog.
+
+[00:39:37] They did a walking crocodile. They did a female orangutan. And with each one, they gave them a very specific trait that would help them survive in the wild. So like the prairie dogs, the animals, they kiss each other a lot. And so they have that ability to do that.
+
+[00:39:51] And there's a thing called the jumpyip, which is a way of bonding. And so they were able to make this do a jumpyip. Yeah, so they took all these traits. Yeah, there was a spy puffer fish that they used. It's incredible. The meerkats smeared in feces. That's right.
+
+[00:40:04] Because they try to make it smell like the other meerkats by collecting their poo and then smearing the animatronic one with it. There was a bee with a pile of poo in its bum. Have you heard of these decoy deer they have? I'm not sure if these are 3D printed. In fact, I think they are kind of made by engineers and by sort of hunting experts.
+
+[00:40:24] But this is another way of leering poachers. So this happens in Washington state and various different bits of the USA. Because finding poachers is unbelievably hard to do. Because what you need is you need a wild animal and a poacher and a law enforcement officer all to be in the same place at the same time. Which is really hard.
+
+[00:40:40] It's a nightmare. So they've started making these dummy deer and then putting them out in fields. And that leers the poachers to them. But you also, whenever you put the deer out, you just have a wildlife officer who sits near it and waits for someone to pop up and shoot it. And they've made them so good
+
+[00:40:55] that they can now turn their heads, these fake animals, or lift their legs. Yeah, and so a deer costs about $3,000 to make, $3,000 to produce, right? Because you need an animal skin and you need some mechanics underneath it. You need to kill a deer first. So you kill the deer and you get the skin off it.
+
+[00:41:13] You hire a poacher to kill you a deer. But once you've got that in place, you can make $30,000 in fines, finding poachers. Yeah, there was one where they put it out and within five minutes a poacher turned up and tried to shoot it. Really? Yeah.
+
+[00:41:27] Because I was thinking, how do you guarantee a poacher's going to find it? You could be sitting there for weeks. If you put it near a road, that's quite helpful because obviously then they'll see it and they'll, you know, they might stop the car and try and have a crack at it if they're not allowed to, if it's off season or something. So yeah.
+
+[00:41:41] And they can be shot a hundred times without breaking some of them. Really? That's going to make the poacher suspicious on the 90th gunshot. That's going to make that version of Bambi very long, isn't it? Such a traumatic scene, that would be. Bambi made by Tarantino.
+
+[00:42:04] I love decoy animals. I like all the ways that scientists use them and I was looking at probably like the most kind of well known, maybe widely used decoys, the duck decoy. The classic hunters would have taken out ducks for hundreds of years because you plant a flock of fake ducks on a pond and then the real ducks flock to it. And so I thought I'd look into this.
+
+[00:42:24] First of all, I didn't realise how many you had to bring out. So when you went on a duck hunt in, you know, 1700s, 1800s, then you wouldn't just take a couple of wooden calf duck decoys. You had to mimic a flock. So on your hunt, you'd take up to 500 calves. 500. No way. You've got to plot this massive flock on your pond.
+
+[00:42:45] To catch one duck. I don't know how they ever made a profit. Doesn't make any sense. To be fair, if I was a duck and I saw a party with 500 prints, I'd immediately want to join it. Exactly. And then you also had to have live decoy ducks with the 500. Well, because they have to make the realistic calls.
+
+[00:43:05] So you'd have 500 quiet ducks made of wood and then you'd have to have a couple of live ones that they keep on a lead sort of in amongst them to make the noise. This all sounds untrue, doesn't it? It's pretty sinister as well for the two ducks in the middle of these 500 dummies. Luring their mates and their deaths. That's incredible.
+
+[00:43:23] It's a rough gig. We should wrap up soon, right? Just a quick thing on turtles, tortoises. You guys read that Diego the Hood Island tortoise has retired from shagging finally. And finally. This is this recent news. This is this year.
+
+[00:43:40] So Diego is a Hood Island tortoise and they were tortoises who in the 1960s, they realized that there were only three males left and only about a dozen females left on a Galapagos Island. And so they started a breeding program. So this is about 50 years ago. And so they had these three tortoises and they tried to make them mate.
+
+[00:43:58] And Diego has mated and he's now produced about 800 offspring. And this other one, even better than him, has produced about 1200 offspring. The third one just didn't do any. It was just really shit. And Diego's just retired and he's hit the headlines. And I find him really interesting because first of all, like, well done him.
+
+[00:44:19] He's shagged all these tortoises. He's repopulated the Galapagos with this type of tortoise. But also, he's super famous and the one who's done more shagging and is still going is not that famous. And I was reading an interview with one of the professors who works on it and he was speculating.
+
+[00:44:34] He was saying, so the other one who's actually sired 60% is called E5. So not as good a name. And the shit one was called E3 and so a bit rubbish. And also apparently is more reserved and less charismatic. Well, Diego is also an exhibitionist, which you probably would expect with a name as well.
+
+[00:44:54] So he shags very loudly and very aggressively and does it in the daytime so you can see him. Whereas E5, sort of, no one's really seen him mating very much. They think maybe he does it at night and he's a bit quiet about it. And so he's just apparently not as big a personality. And we know, the only reason we know is they did a paternity test on every single of the new tortoises.
+
+[00:45:15] 2,000 paternity tests. Amazing episode of the Jeremy Kyle Show. We'll be showing the results for the next four seasons of this show. We'll start moving towards each other really slowly to have a fight. Okay, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us
+
+[00:45:40] about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At James Harkin. Andy. At Andrew Hunter M. And Chazinsky. You can email a podcast at qi.com.
+
+[00:45:52] Yep. You can go to our group account, which is at no such thing, or you can go to no such thing as a fish.com. It's our website. We have all of our previous episodes up there. We'll see you again next week. Goodbye.

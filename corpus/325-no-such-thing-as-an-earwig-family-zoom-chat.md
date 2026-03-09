@@ -1,0 +1,323 @@
+# No Such Thing As A Fish - 325: No Such Thing As An Earwig Family Zoom Chat
+
+- Episode date: June 12, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/325-no-such-thing-as-an-earwig-family-zoom-chat
+- Slug: 325-no-such-thing-as-an-earwig-family-zoom-chat
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Schreiber, I am sitting here with Andrew Hunter Murray, James Harkin and Anna Tijinski and once again, we have gathered round the microphones with our four favourite facts from the last seven days and in no particular order, here we go. Starting with you, Andy. My fact is that Paris' first public transport system failed because wealthy passengers bought all the seats for themselves and then persuaded the government to ban poor people.
+
+[00:00:48] Wow. Incredible. But if they were selling all the tickets, surely that's not a failure? Well, then the rich apparently just lost interest and then stopped using it and then no one was using it, so it was a complete disaster. This is from an article on Lapham's Quarterly, which is an amazing website. It's really brilliant. It's got so many fascinating things on it and it's partly based on this brilliant sounding
+
+[00:01:12] book about buses, which is called Engine of Modernity by Masha Belenki. Andy, have you already moved on from funicular railways then? So, this was called, these were called the Caross and it was set up by Blaise Pascal. So we briefly actually mentioned before that Blaise Pascal set up the first public transport system in Paris, but I didn't know what happened to it. And it was basically a carriage with eight passengers and two staff and there were a few routes. And sorry, when was it?
+
+[00:01:46] Did you say? Oh, I'm sorry. It was in 1662. And who was Blaise Pascal again? He was a thinker, mathematician, probability dude. And what's Paris again? I'm sorry, who are you? Anyway, the point is, wealthy riders didn't like sharing with poor people.
+
+[00:02:06] I think they weren't even, I think really poor people were not even allowed on in the first place. So I think wealthy people didn't like even sharing with the middle classes. And so they would buy up all the seats in the carriage for themselves. And it lasted, I think, a few weeks. It was this really weird attempt to set up public transport, which didn't work because social hierarchy just got in the way. Oh, I think it lasted a bit longer than that because they had quite a few different routes
+
+[00:02:31] by the end. So they started off, it was Blaise Pascal, he put the money in along with a few other people, including the Duke of Roené. And the first route went from Pascal's house to the Duke of Roené's house, just by coincidence. And it went through the central Paris, but it did pick people up on the way. And then they, I think they had three or four other lines. And then they even had a circle line that connected all of them. And it was carrying on going, even after Pascal died, but once he died, it kind of went off.
+
+[00:03:04] And they banned, the government banned soldiers and pages and other kind of livery to people in uniform kind of people. And when they banned those, everyone rioted against it. And that's kind of when it all fell out of favour. So this is what I did, because I read that and I didn't quite understand why people wanted men in uniform banned. Well, they were the middle class, basically, and men in uniform would be not the working class, but not the, not the posh shows.
+
+[00:03:32] They'd be the in-between people that you didn't really want to, want to mix with. So they had, they had a fashion ban on the bus then, right? Did they have people at, was it the conductor's job or the bus driver's job to go, I'm sorry, you don't look good enough for my bus? Or did you have to provide more concrete evidence because you can be quite a good-looking tailor? Surely you had to provide your CV or maybe some written references from former employers or something in order to get on the bus. I don't really know how they managed to police it, to be honest.
+
+[00:04:01] Records are pretty scanty. Yeah, I suppose that the other posh people on the bus would go, that man is a liveried man. Yeah, livery is pretty easy to spot. You could, you know what livery is when you say it. There was actually, I do know one thing about how it was policed, which is that you could be whipped if you interfered with the operations of the bus. Wow, oh, yeah. Quite right too.
+
+[00:04:23] I mean, you can still be arrested. I think if you try to interfere with the operations of a public bus today, if you climb onto the driver's lap and take control at the wheel, you are in trouble. And there probably is still some sort of fashion laws with modern-day London buses. Like if I went on nude, that might be seen as worthy of not allowing me on. True. Yeah. We're still oppressed, we just don't know it.
+
+[00:04:47] And this, it really did sort of fall by the wayside, the idea of public transport for a long time, didn't it? So obviously you could get coaches and you could, you could hire lots, if you could hire a private coach or get on a post-chase or whatever. But the idea that a bus would have a specific route and you knew when it was going to be where and you could wait there and pick it up, then didn't come back until 1828, I think, in Europe and in Nantes. That is a long gap between buses, isn't it?
+
+[00:05:14] If you just missed the last one in the 1690s and you're like, OK, I'll wait for the next one. It's there on the schedule. What? Oh, it's 1828, it's only 1747 now, that's fine, no, it's not the clock. 1828 too, suddenly came at once, it was a classic. But he didn't even want it to be a public transport system, really, did he? This was a guy called Stanislas Baudry and he had a bathhouse and he basically just wanted to get people to his bathhouse.
+
+[00:05:45] And so he put on a public bus in order to transport them there and he realised people were getting on it, but they're not getting in the bath at the end. That would be quite useful for your nude bus drives down because you wouldn't have to know how to get changed when you get to the bathhouse. It would be amazing if you could get a bus which was going to the swimming pool and the bus just ended up in the swimming pool and you could just swim out on a ramp.
+
+[00:06:12] It just goes in and then the bus goes out on the ramp. All the swimmers who finish get off. Like in the Italian job, is it where there's a bus kind of gets to the edge of the cliff at the end and you could kind of jump off the bus and dive into the water? That would be quite cool. Yeah. You need to have people also...
+
+[00:06:28] Have you seen that movie, James? Have I, fuck? You should write a book about films because you are knowledgeable, but you've seen none of them. It's great. The 19th century buses, when they came back, they were the first ones that had an upper deck, which was really cool.
+
+[00:06:49] So the upper deck, you could go there for half price, but only if you were a man. They wouldn't let women go up there. And the reason was because it was deemed unbecoming for a woman to go up there in the big skirts that they were wearing and even actually impossible because it was like a ladder to get to the top deck. And also because it was completely in the open.
+
+[00:07:08] So most of the time you just get drenched by rain or wind or whatever. So it was seen unbecoming for women to get drenched. Is that because if someone's following you up the stairs, they see up your dress to your panties? Well, that might have been some of that in there because actually, when they brought the public transport into France the second time, it kind of became a thing where it was giving women
+
+[00:07:30] more chance to move around and it was associated with like transgression in women. Like a lot of whenever any kind of freedom got given to women in history, like people thought, oh, this must be a terrible thing. Yeah, but as James is saying as well, there's a suggestion, which I think is a very, it's a more jokey suggestion that the skirts,
+
+[00:07:49] the frames of those giant hoop skirts would be so large they physically couldn't fit them. They would get stuck on the way up. But yeah, but as a result, it became quite a social place, the bus. And there was sort of known bus perverts who would sort of just hang out just so that they could be around all these women.
+
+[00:08:07] I'm so worried, Dan, that you've alighted immediately that it became quite a social place and there were these bus perverts. So that's the definition of a social place is if you've got a good pervert there holding court. I mean, what do you mean? I mean, it led to bus pervertism where you would have, yeah, like guys would just spend the whole day on the bus.
+
+[00:08:30] And if another lady came on, they would sit next to her and would be squashed up next to someone. It was the perfect way for the pervert to suddenly have access to a bunch of women, which was a big problem. Not saying it's a good thing, guys. Buses are quite sociable. Now aren't they? The Venger bus, for instance.
+
+[00:08:49] Yeah. The bus is Spice World, the movie. They all had a pervert. I don't have any acquaintance with buses, it's from films. Even though you don't watch films. I just think it is a social thing, a bus, isn't it? It's true. Have you seen Spice World, the movie?
+
+[00:09:05] No, I obviously haven't seen Spice World, the movie. I haven't either, but it's got Richard E. Grant in, isn't it? He's the bus driver. He's the manager. Oh yeah, but does he also drive the bus? I think at what point he does drive the bus, yeah. So does Victoria Beckham, but I don't call her the bus driver in the movie.
+
+[00:09:22] Summer holiday with Cliff Richard, that I had a bus in it. Yep. I think the Spice World one is technically a coach by the definitions we're running by. It's not like anyone could board. It's not that Spice Girls paid their 180 fare, got on. And just lots of other people got on and off.
+
+[00:09:37] Didn't the Spice Girls buy out all the seats in that bus so no one else could get on it? Yeah, that's right. Imagine how long it would take to tour the country of all the buses taking the bans around the public buses. We've got three hours to get there, but we've got 40 stops along the way. Can I tell you guys a personal, something personal?
+
+[00:09:58] Yeah, sure. So I was recently reading an old copy of the Pickwick papers that I found. I think of my parents as ages ago. Well, no, I think I inherited it from my grandma. Anyway, I opened it to one page and there was a bus ticket in there, or a tram ticket, sorry.
+
+[00:10:15] It's just a scrap of tram tickets from London United Tramways. So I looked that up and that ran from 1894 to 1933. And it's punched for a journey in the sort of Wimbledon Kingston area. And it says it cost two pennies, it was 2D. And isn't that cool? And I don't know who owned it.
+
+[00:10:32] And I looked at that one, like looking up the, when the ticket was from, when those stops existed, and also the advert on the other side. So on the other side, there's an advert for Holloway's magic ointment, or Holloway's all-round ointment. I think it's from 1900. Wow, what does this ointment do?
+
+[00:10:50] That's what I'm getting from this story. It cures absolutely everything, James. It's an all-round remedy. It literally said, backache, heart attacks, brain disease, vomiting, it's all there. It actually, then I went down a stupid rabbit hole. It was made by a guy called Thomas Holloway and it made him super rich.
+
+[00:11:06] And so he bought this mansion called Tittenhurst Park. And that, Dan, you do recognize it. Why do you recognize it? The Beatles. Yeah, apparently John Lennon lived there a hundred years after him. Yeah, wow. So that was a convoluted way that I got to John Lennon
+
+[00:11:24] via this fact. But anyway, isn't that cool? I've got a bus ticket from 120 years ago. That is very cool. Judah, can I give a quick personal story? When I went to Zanzibar on Honeymoon, suddenly, coming up next was... Wait a minute, did you find the bus ticket
+
+[00:11:40] that used to belong to Freddie Mercury or something? No, next to me is Anna's grandmother driving a bus. I just couldn't believe it. Next to me is a bus that I used to get, not obviously the exact bus, but a bus that I used to get in Hong Kong as a kid. And I suddenly looked around and all the buses in Zanzibar were the old buses from Hong Kong from my childhood.
+
+[00:12:07] And I think when buses are put out of, when new buses come in to say London or whatever, they shift out all these buses to all these different countries. Yeah, and they're in Zanzibar. That is awesome. All the old London buses went to Macau, I think. So they might not be there anymore. About 10 years ago, if you went on a bus in Macau,
+
+[00:12:23] they were all old London buses. Wow. The Bendy buses, I think we've said before, they went somewhere super inappropriate. I don't mean like they went to a sex club. I mean, they went to a place where there's more than one event. That's another bus you could get naked, isn't it? That's my bus.
+
+[00:12:42] Can I quickly tell you the most desperate ever press release I found about buses? Oh. Okay. This was at the time the James Bond film Spectre was coming out. The press release is by National Express, the bus company. Swarvan sophisticated James Bond is unquestionably one of the most glamorous characters of all time,
+
+[00:13:04] but was the world's most famous spy named after a humble bus? It's a question National Express hopes to answer once and for all. We know where he got his name, James Bond Prime. I know. I know. But the 007 bit, I mean. Oh, right. Okay.
+
+[00:13:21] Sorry. Yeah. The National Express 007 coach service, which was formerly a bus route when it was taken over in 1973, operates nine times daily between DL and Victoria. It has rumoured Bond author Fleming was inspired by the destination blind of his local bus to adopt the number. And they go on and on and on about it.
+
+[00:13:38] And they even got a National Express driver to say, well, James Bond is more likely to be seen behind the wheel of a Bentley. It's a massive honor to drive the 007 and it certainly attracts a lot of attention. It's always a talking point. You see heads turning by as you go by and people pointing. There are definitely more passengers recently, perhaps because of the new film. I would have thought that's definitely the case.
+
+[00:13:59] It turns out that the National Numbering Scheme wasn't actually introduced until the mid-1970s. Jesus Christ. OK, it is time for fact number two, and that is Anna. My fact this week is that Aladdin is Chinese. What? Are you doing your own life for the facts now, Anna? I am.
+
+[00:14:27] Yeah, I feel like that hadn't got enough of a reaction. So I'm going to have to provide it. What? Whoa. Thank you. I know, right? So I decided I wanted to read Aladdin, so I read about this new translation.
+
+[00:14:43] So I bought it recently, opened it, and the very first line of the story. No bus tickets in there. One way to take it on a magic carpet. There's a bus ticket from Shanghai, which is how I knew. The first line is in one of China's vast and wealthy kingdoms. I thought, well, this is a shit translation. They've got this bloody country wrong, first sentence.
+
+[00:15:07] But turns out it's bang on, and he was from China. And so the whole story behind Aladdin and the 1001 Arabian Knights, which is what it's a part of, is kind of an amazing story of tales being passed from one country to the next. So basically it was written down for the first time by a French guy called Antoine Gallant. And this is in the very early 1700s.
+
+[00:15:30] And he'd been told it by a Syrian who he'd met, a guy from Aleppo. And the Syrian had told it as him being a Chinese person. So it was told in Arabia, but Aladdin was Chinese. And it was just this thing where whenever something is kind of exotic or foreign, we go east. We seem to just go east when we're telling a story of something exotic or foreign.
+
+[00:15:49] So if you were in Persia and you wanted to convey that something was like exotic or a bit strange, you put it in China, said it in China. And I don't know what you do in China, you said it in... Japan. Yeah, Japan. Alaska. Is his name Aladdin then?
+
+[00:16:04] Because that's not a very Chinese name. No, this is the weird thing about it. The details are quite Arabic. So they didn't really know much about actual China. But they were just setting it in China. So throughout the story, you'll read, you know, he was in one of these classic Chinese palaces. And then they'll describe the palace
+
+[00:16:21] and it'll be a combination of an Arabian palace with some French influence because it was written down by a French guy. Was there a theory that Gallant had invented it himself as well? Because it took a long time to track down the Syrian who had told him the story. Yeah, this is also amazing.
+
+[00:16:37] No, but I love that this mystery was solved sort of hundreds of years later. So yeah, Gallant said that he wrote down a thousand and one nights the Arabic stories and then people were clamouring for more. And so he wrote down some more stories that weren't in the original Arabic versions he was translating.
+
+[00:16:54] And he said that he'd been told them by the Syrian guy. But everyone sort of assumed he'd just made them up and then given them this origin story from Syria and then they found the autobiography of the Syrian guy who's called Hannah Diab. They found the autobiography in 1993. Isn't that, which I just, it's how incredible is that sort of 280 years later.
+
+[00:17:15] Does he say in his autobiography, met a French guy today and told him this brilliant story about a Chinese guy in the land? He does, he does. He mentions it in his memoirs. And there is a theory now, a new theory, which is that the story of Aladdin might be an autobiography of this guy called Diab.
+
+[00:17:32] And he's talking about when he arrived in Paris because he arrived in Versailles and they had all these wonderful things. And Aladdin is obviously the story of a young boy who kind of gets lots of riches and stuff. And so it might have been him kind of turning his experiences into an Arabic story. Yeah.
+
+[00:17:50] Well definitely influenced by his time in France anyway. Cause yeah, when Aladdin magics his palace out of nothing, it's very much Versailles influenced. It's pretty amazing that this was, this was a very famous text for its time, right? The Arabian Nights. And then this guy comes along, he adds not only probably the most famous story,
+
+[00:18:08] which is Aladdin, but he also adds the story of Alibaba and the 40 thieves. He adds the seven voyages of Simbaad the sailor. The three most famous stories probably had nothing to do with the original. It's fan fiction being added to a book, which has suddenly overtaken the book. It wasn't that famous when he was translating it, was it?
+
+[00:18:29] I don't think. And he was kind of the one who made it famous. And the problem was like... Definitely in Europe. Yeah. Yeah, sorry, in Europe for sure. But like I said, people wanted more. And so his publishers just started going,
+
+[00:18:41] oh, we'll just write some more then and put them in your name. So they started taking other stories from Turkey and from other parts of Eastern Europe and then putting them in as part of the 1001 Nights. And he's like, no, no, wait, no, don't put those shit ones in. Well, I'll give you some more, I'll give you some more.
+
+[00:18:57] And that's where these new ones like Simbaad and Aladdin came from. That's a good way to threaten an author. You're threatened to write the sequel really badly. That's true. They should do that with George R. R. Martin, shouldn't they? They should say, we're just going to write the last Game of Thrones. We're just going to get E. L. James to write it. He's like, no, no.
+
+[00:19:17] He also had his windows in Paris pelted with kind of rotten fruit and hard objects by people who wanted more stories. The reading public was much more demanding in those days. I don't know if I'd done that to Hilary Mantell for the last five years, just kind of attacking her with various missiles. And it wouldn't induce you to want to satisfy your public
+
+[00:19:36] by writing something, but it did, and he did. But the story that we all know, I would say, is as a result of the brilliant animated 1992 movie. I think we've all seen that, haven't we? Have we all seen that? Yeah, of course we have. We've all seen that, so let's take very quiet over there. But yeah, so classic Hollywood
+
+[00:19:58] distorted the facts of the story, bent them to be a different story altogether. So in it, Aladdin's not an orphan in the original story, which he's portrayed as in the movie. He lives with his mum. And in the original story, it's not just one genie granting wishes, it's two genies. There's a genie of the lamp and there's a genie of the ring.
+
+[00:20:18] And then it's not three wishes. He gets as many wishes. He just keeps wishing away. He's the same in a wishing party the whole way through. Did he do that trick that everyone says they're going to do when they're a kid where the first wish is for infinite wishes? Is that how he did that? It's not allowed.
+
+[00:20:33] The genie specifically bans that in the Disney film, which you wouldn't know if you had watched it, James. I thought that was the original part. That's so good that it's infinite, though. I always thought it was a million. How stupid would I have looked with you guys as I got to my millionth wish of you guys? Get to carry on.
+
+[00:20:49] You could just use your millionth wish to ask for another million wishes. Come on, mate. Jesus Christ. Although you could have asked for a thousand and one in Arabic because the reason it's a thousand and one nights is actually because that was like an Arabic word for infinite. Infinite stories.
+
+[00:21:05] It was meant to be. Because if they called it 270 nights, roughly, it's not as impressive or sexy, is it? It's not. But also, no wonder the publishers wanted more stories. This is nowhere near the number you've promised. I hate the most striking thing about the story, which, as I say, I have just read.
+
+[00:21:22] And it is great. Is Aladdin is a complete dickhead. Like, not a likable character at all. So the reason his dad dies at the start is because Aladdin is so lazy and greasy and dissipated and cruel that his dad's just devastated that he won't follow him in his career path. And basically, he just gets really lucky.
+
+[00:21:42] He gets sort of kidnapped by this bloke who reveals all these riches to him. And then he manages to escape the bloke, the wizard, and then just uses all the riches to seduce the princess. He falls in love with the princess because he hears that she's going to be going to the bath. I don't know what number bath she was in at the time. But here she's going to be going to the baths.
+
+[00:22:03] And so he sneaks in to spy on her because he's never seen a woman unveiled before, sees her face from behind the door, really fancies her. And she's going to marry this guy who seems like a really decent bloke. The vizier's son. And Aladdin, just on their wedding night, on the vizier's and her wedding night,
+
+[00:22:21] uses the lamp to magic their marriage bed into his own home. And then he gets the vizier's son out, he sends him out to spend the whole night in a freezing cold toilet outside and then lies with the princess. This is how he seduces her. Well, that's why he's called Aladdin, isn't it? Because he's an absolute lad.
+
+[00:22:36] Yeah. The full name is an absolute lad in. Yeah, an absolute lad get in there. Yeah. So, Anna, you haven't been reading the Richard Burton one, right? No, this is a new translation, which I would recommend because it's by this woman called Yasmin Seal, who is French-Syrian,
+
+[00:22:54] which I just love because obviously it was an amalgamation of French and Syrian when it was first written. But no, not that one. Because Richard Burton was the Victorian explorer and linguist. He did all these amazing adventures. He visited Mecca in disguise once and he would have been killed if he'd been discovered. You know, he was an amazing adventurer.
+
+[00:23:13] But Burton wrote a really erotic translation of the Thousand and One Nights because he also translated the Kalmasutra and he was very sexy. This is the bus pervert of his day. He was. But in his version of Aladdin, Aladdin's father is impotent and so he takes an opium-based medicine to thicken his semen.
+
+[00:23:37] Jesus. That's just a detailed story. Cool. I think that's the Holloway's ointment of its day, isn't it? Yeah, his version had to be privately printed, didn't it? It was because of the sexual content. Yeah, you couldn't buy it. It was through subscription that you had to get it.
+
+[00:23:56] Wow. Yeah. And I haven't seen the Disney film for a while, but I'm pretty sure they didn't leave that element in, did they? It's strongly implied. Yeah, he was a pretty crazy character, which Burton... I'm never sure how I feel about him. But he did like to sex things up.
+
+[00:24:13] I suppose he didn't need to sex up the karmasutra too much. No. He wrote his own... I think most of what we know about him is from his own autobiography and also the biography of his adoring wife. And he claimed that he learned Latin fluently at the age of three and Greek fluently at the age of four. And he could play chess blindfolded.
+
+[00:24:30] And he... But he was amazing. He just sort of travelled everywhere. He ended up speaking 40 languages, got in loads of trouble. I mean, I think he got... He was a soldier in India, and he got kicked out of India, and his life as a soldier failed, when his governor basically asked him to investigate
+
+[00:24:46] some rumours that they'd heard about brothels in the city. And because he had an eye for detail, especially lascivious detail, he just investigated them way too hard. So he spent lots and lots of time in brothels just taking meticulous notes about exactly what was going on. And the authorities were like, This is rank, Richard. Oh, go home.
+
+[00:25:06] You are sick. And killed his career. Did you know that the queen has played Aladdin? Really? It was when she was... It was during the war. During the war, Queen Elizabeth played Aladdin in the royal family's pantomime to raise money for soldiers. I think they invited a small audience of aristocrats.
+
+[00:25:25] And she would have been in her early teens, I guess, at the time. Yeah, pre-queen. Her pre-queens, they call them, in the royal family. And was it where the others in it was like Margaret the Parrot? Yeah, Margaret was in it, but I don't think she was playing the Parrot. It's like when you're at school, like when I was at school in the nativity play,
+
+[00:25:49] when I was in the top year, I played Joseph, which was very nice. The main part, main role. I don't know if you know the nativity story, but it's... He's a pretty big deal in it. He's a pretty big one. My brother, in the same play, played a blade of grass. Wow. Wow.
+
+[00:26:11] A blade of grass. They couldn't find a single bigger role for him than a single blade of grass. Not even a few blades of grass. No, there was a few different... I don't think he was like a head of a blade of grass. And they all cut... He didn't have a speaking role. I'm just kidding.
+
+[00:26:27] You're understanding the blade of grass. There's no sentient grass in the story. But basically, you had a load of... The kids would kind of stand there and kind of wave in the breeze as if they were a blade of grass. I don't remember any grass being mentioned in any version of the nativity I've ever heard. What did the donkey eat?
+
+[00:26:47] I guess straw. What straw if it's not dry grass? Yeah, fair enough. So, was his role to be eaten by the donkey at some point? Oh, my goodness. OK, it is time for fact number three, and that is my fact. My fact this week is that merry-go-rounds were invented in medieval times for knights to ride on.
+
+[00:27:09] So, this is a carousels for any Americans listening. The merry-go-round has a very long history. It sort of originates back in the 12th century. There was a game that was played on horseback. Where a sort of scented ball used to be tossed around to people. And if you dropped it, or if it smashed on you, it would release a kind of perfume, and that perfume would stink you up for the rest of the match.
+
+[00:27:36] And that word was carouselo, which meant little war. Carouselo is the sort of bastardization of it by the Italians who took it on. And then they realized how useful this was in combat training purposes. And so, little war, carouselo, slowly morphed into knights sitting on what were effectively saddles, and they would go around a pole on chains,
+
+[00:28:02] and they would have to try and lance with their lances a little ring. And that was the very beginnings of what eventually turned into what we now have as the modern-day carousel. So, yeah, it was originally for knight training. So, this game where you throw bowls at people, and if you drop them, they make you smell like perfume. What's the point of that then? I think it's really weird, because basically, if you smell like perfume,
+
+[00:28:33] you smell quite nice, and the other people will smell like they've been riding around on a horse all afternoon, and they'll be sweaty and disgusting. And supposedly, there's perfume people are the losers. I say they've won. I agree. I just, because I read about this as well, and that was the one thing that stuck with me. This seems like a pretty stupid...
+
+[00:28:50] A bit like Quidditch being a stupid game. This is kind of a stupid game where it's not really obvious what the point of winning or losing is. I just didn't like it at all. You wouldn't say that James about Quidditch to the people who play Quidditch in the park near my house. I know. And they're not even flying.
+
+[00:29:07] Are they a scary-looking bunch? They've all got sticks. That's true. Although the sticks do have to be clamped between their legs. Otherwise, it's true you do. I think it's the shame of it, right? So, Andy could sit at the stinking of perfume in the dining hall afterwards shrieking,
+
+[00:29:23] I've won in most senses of the word, all he likes. But in the end, everyone knows that you've lost. That's true. I suppose if you play an actual sport and then you go to the pub afterwards, you don't really know who's lost. It's not obvious to everyone else in the pub who's lost,
+
+[00:29:38] but then everyone... As Anna points out, it is obvious because anytime I finish playing sport, I'm the one who's lost. So early carousels, though, they were powered by animals walking in a circle, which I had no idea about. So instead of...
+
+[00:29:54] As well as having a fake horse that you'd be riding on, there would be a real horse. Why don't you just get the real horse? Like, if the whole point is to train how to ride horses and you've got an actual horse there, why are you sitting on the fake one? Yeah. That's true. Very weird.
+
+[00:30:11] Those horses... I mean, that is so demeaning for those horses. Imagine your job being to pull around a fake, much less developed version of yourself. Well, that's basically taking your child for a walk in the park, isn't it? Because they used to put knights on loose horses and sort of push them around.
+
+[00:30:31] They would have squires pulling the horses so that they could practice their jousting. You mean fake horses, like wooden horses? Yeah, wooden horses, exactly. They would try and hit a target called a quintane, wouldn't they? Which we've mentioned on QI, a quintane, but I don't think we've mentioned here. And it basically is a...
+
+[00:30:50] It's a wooden post with a target on and the target is on a bit of a lever. And so when you hit it, it flips around. And that was the way that you would test how to do jousting. It was crucial for jousting training, but jousting wasn't the most crucial thing that knights did in competitions, right? I think we've mentioned this on QI,
+
+[00:31:09] but for most of the Middle Ages, if you went to a tournament as a knight, they did the melee, which was like a very chaotic... It's like the Royal Rumble, wasn't it, the melee? What's the Royal Rumble? Well... It began in medieval times. God, that explains what the Royal Rumble is.
+
+[00:31:28] Nana tells us if this is the same as the melee. Royal Rumble is a WWF now WWE event where you have about 30 wrestlers who will all attack each other at the same time in the ring. They're staggered in, so you would have someone, two people started off, and then, let's say, every two minutes a new person enters the ring. To win the match, you have to flip someone over the top rope
+
+[00:31:49] and they have to make contact with the floor. So it's not exactly the same. So it's the same way that there's loads of... There's loads of them involved all fighting each other, right? Yes, exactly. But also like in the Royal Rumble, in the melee, you could kind of sneak in the corner and hide under some coats or something
+
+[00:32:04] and let everyone else beat each other in the fight and then you could jump out at the last minute and fight them. Classic Shawn Michaels tactic of WWF. Absolutely. Well, he actually got it from the medieval English. They're coats in the corner during a wrestling match. It feels like as you come in, you just, oh, leave your coat on the bed.
+
+[00:32:25] The English used to be famous. The strategy where if there were lots of different groups around, the English would say they weren't going to play. They're not interested in the melee at all. So that all the other teams would play and really, really tie each other out. This is around the time of Henry II and once all the other teams are really, really tied out,
+
+[00:32:42] they've been knocked off their horses, they've run out of steam, the English suddenly would gallop in and say, we've changed our minds, we're playing, we're playing and then they completely vanquish everyone else on the pitch. Wow. That was what we were known for. Well, then probably they wouldn't invite us back to the next melee. Would they?
+
+[00:32:57] They're still doing them in France. We haven't been asked for 800 years. But the reason jousting became popular, do you know why it was switched to jousting from melee? No. This is that knights were so violent. They were massive thugs and it was a serious problem. So the first ever mass peace movement,
+
+[00:33:14] the peace and truce of God movement, was basically to stop knights from killing each other and everyone else. So they used to do things like a knight's tournament, wouldn't just be in one area, until quite near the end of the Middle Ages, the knights tournament would be across the countryside. So you have 20 knights and they're just fighting each other.
+
+[00:33:31] They gallop across the countryside. They used to do things like, they bash down the doors of peasants' homes and be like, you've got to give me shelter, let me hide in your cupboard. And then if another knight came, then they'd burn down the peasants' house to burn the knight down to get rid of him.
+
+[00:33:43] There's nothing you can do. What? As a peasant, you're obliged to give knights bed and board if they ask for it. And they used to ruin people's crops. You know, they'd burn down fences and hedges. It was just chaos. That was amazing.
+
+[00:33:55] It sounds super fun, incredibly fun. And I think mainly the clergy said, this is getting out of control. Let's make it one-on-one, shall we? So if you had a house and the knight came along and they said, we want to stay in your house, you had to let them stay. It was actually if it was your lord,
+
+[00:34:13] but yeah, it would usually be that guy. And you had to feed them for as long as they wanted feeding and give them somewhere to sleep, which was pretty harsh because they obviously had enough to eat and by and large, you didn't. Yeah. They must have come over and said, can I stay with you? And you said, how many knights?
+
+[00:34:26] And they said, well, there's 600 of us. On innovations of how it slowly evolved into the modern day carousel merry-go-round that we have, I was trying to find at what points it sort of turned more and more into what we have. And I discovered, now I'm still on the case with this investigation, I must say. So this might be wrong, but I think that the person
+
+[00:34:50] who invented the device that allowed the horse to go up and down the pole as it's going round, so you know what I'm talking about? So it's a string fellow, yeah. Was a man called Merlin, which is a nice... No. Yeah. I believe that it was a man called John Joseph Merlin.
+
+[00:35:12] Now, he's been mentioned on the podcast before because he was the man who invented roller skates and first displayed them when he played a violin at a party and ended up crashing into a giant mirror. You remember him. This is that very same man. Yeah. And he was an amazing inventor during his lifetime
+
+[00:35:30] of living in London, particularly. He was from Belgium to begin with. And he invented all sorts of things like a self-propelled wheelchair. He had a pedal-operated revolving tea table. He had mechanical chariots that used to go around London. And he had his own museum, which was called the Merlin's Mechanical Museum.
+
+[00:35:49] And in it is the description of this carousel with horses that go up and down. And noble people and rich people of the time used to come and hire it out specifically just to have rides on it at this place. So this is... Wow. He died at the beginning of 1800, 1803.
+
+[00:36:07] So we're talking late 1700s here. It's the first description that I can find of that innovation of the horse going up and down. Invented by Merlin. So is your theory that Merlin first existed in the 1800s? Invented that and then went back in time to King Arthur and Co. and brought with him his training in the night for the night? Well, you've taken the theory further, but I'm on board.
+
+[00:36:26] I absolutely will fold that into the idea. And Merlin, I believe in the Disney Sword and the Stone, which is very close to the original story. It's not. Merlin at the end enters on roller skates. Is he? So this is all coming together. Fairly certain.
+
+[00:36:44] Wow. It's just a shame no one will hear it once James has edited this. Oh, I have a fact about aeroplane rides at a fun fair. Oh, yeah. Okay. So the flight simulating aeroplane ride at a fun fair, where you sit in a little plane and it, you know, moves up and left and right and rolls around a bit.
+
+[00:37:02] That was invented to train pilots. Wow. That is terrifying. Genuinely. This was built in the, um, this was built in the early 30s. I think maybe late 20s by an event called Lee Eiley. He built a small plane called the orientator and it would tilt left and right.
+
+[00:37:21] It was in this huge Y shaped fork. So the plane was stuck in the Y of the fork as it were. And it would turn and roll and twist. And he thought this would be useful for training pilots. And he only sold five of them, all of them to the Cuban government. And that's what it was used for. And then a friend of his saw it and said, have you suggested turning that into a carnival ride?
+
+[00:37:43] Cause that looks really fun. And that's what he did. And he spent the rest of his life inventing the Lupo plane and the Rollo plane and the Rocco plane and all these rides. That is amazing. I mean, like you've got the carousel, which was for training nights and you've got this for training. You know that big boat that kind of goes up and down in a rocking motion.
+
+[00:38:02] Is that to train Vikings or something? Yeah. That's where Admiral Nelson got his train described. Okay. It is time for our final fact of the show. And that is James. Okay. My fact this week is that in some parts of Japan,
+
+[00:38:21] earwigs are known as chimpokiri, literally penis cutters. Are they much more powerful in Japan? I don't think they're literally cutting penises. I think it might be. Well, okay. So let me tell you where I found this. It basically came up on my RSS feed last week,
+
+[00:38:43] but I went to look for evidence and I found a paper from 2013 from a Japanese entomologist called Kenta Takada called vulgar dialect names of earwigs used in the Kansai region of Japan. Okay. So I went on to Google Translate because this paper was in Japanese and it seems like the reason that they're called this
+
+[00:39:05] is when they have pincers in their back earwigs, don't they? On their bones they have these little pincers. And also in Japan, in this particular area, Kansai area, which is round Oskar and wherever, they were found in toilets. They were found around toilets. So it might be that if you see something with pincers on it around the toilets,
+
+[00:39:25] you might call it a penis cutter because it's like there might be a folklore that that would happen. Yeah. Makes sense. So we don't think they actually cut penises, but it's just that it so happens that in this particular part of Japan,
+
+[00:39:39] they give it a rude name. I'm sure you guys have researched earwig penises. Oh, yeah. I'm over it. Because this is another Japanese connection. We searched Japan earwig penis. It brings up a study done by Yoshitaka Kamimura of the Tokyo Metropolitan University
+
+[00:39:57] who deliberately broke earwig penises off while they were mid-sex. That's not very nice. Just out of malice? Not out of malice. So there is a species, lots of species, have two penises. The males do anyway.
+
+[00:40:14] And there was a lot of theorizing about whether they were used this or not. And so Yoshitaka Kamimura, he decided to test it and his colleagues, and they would interrupt mating earwigs by pinching the male and lifting him off. Because they're very, very, very long penises relative to the earwig,
+
+[00:40:32] they're the same length again. They're quite easily broken and they're quite sensitive. So the penises all broke off. But within two days, they found that these males who'd had a penis broken off could inseminate new females they were introduced to. And they collected 663 of these earwigs
+
+[00:40:50] from around Japan just to test whether they had been undergoing similar problems without the scientists interfering in snapping their penises off. And they found that only a few had had sexual accidents like this, but a few had. So three males had lost a penis and two females had a severed penis
+
+[00:41:06] inside them from an earlier. So that's only one penis unaccounted for, from those, which is good. Keep your eyes peeled. The other thing though is the second penis is the wrong way round, right? So they must have to learn a whole new sexual position
+
+[00:41:21] in that two-day period. I assumed it just moved into the position vacated by the first one, but you might well be right. Oh, okay, I don't know. Well, they think they have two because they used to use both at the same time. Well, some species only have one. Some species only have one,
+
+[00:41:38] but of the ones who have two, they think that some females might have had a double vagina. I think they found double-vegined females, right? But they've never witnessed the double penises interacting with the double vaginas. But it does seem like the obvious thing, doesn't it? If you've ever seen a glove and a hand,
+
+[00:41:58] you do automatically assume one's going in the other. But then you do find like men with only one hand and then women with an extra hand found in their glove, don't you? I was just wondering if maybe the Japanese named penis cutters might be because they cut their own penis off sometimes when it falls off accidentally.
+
+[00:42:24] So maybe it's not you're worried about your own penis, you're kind of worried about the... No, I don't think that's true, is it? I really, really don't like earwigs, and I very rarely come across them in my day-to-day life, but I remember as a child thinking they're really scary and they can really nip you, can they? Yeah, when they get their little penises together,
+
+[00:42:43] they can really be strong. I don't know if I've ever seen one. Yeah, I've never seen one. Weirdly. You've never seen an earwig? They're a bit like any movie from before 1993. But I don't recall ever seeing them. Do you get them in the UK? I suppose you must do, but I don't remember.
+
+[00:42:58] Oh, yeah. I cannot believe... This is literally like you've never seen an ant. I've never seen one. You've just never looked at the floor. I just think maybe I've seen them and just thought it was a beetle or something. Yeah.
+
+[00:43:08] They look like little scorpions, really, don't they? Do they? Because of the pincers. And the pincers are... They're very strange, because it's quite weird having this defensive device on your backside, and it has a few purposes,
+
+[00:43:19] but one is for males to spar with each other, and to show who's dominant or whatever. But I was watching a video of two male earwigs sparring with their pincers, and it's so awkward, because imagine having to spar with someone with your butt cheeks, so they have to frame round with their necks
+
+[00:43:37] to try and control their pincers, so they're jabbing at each other. It's so awkward. That is a royal rumble I want to see. You're only allowed to use your butt. Leave your coat on the bed and leave your trousers under it. Also, they don't...
+
+[00:43:57] It's not a fight to the death. It's just a fight to when someone's like, oh, okay, I've had enough, and they declare a winner, and they go off and they burrow themselves in a sort of shameful hiding, don't they? Yeah. Yeah, they get...
+
+[00:44:11] It's sort of like once you've lost, they jump away, and then they dig themselves a hole and stay in there, and the victor sort of is like, yeah, I don't know why. Wow. So they can cry in peace, I think.
+
+[00:44:22] That's amazing. Once Andy had had that scented ball explode all over his face, he spent some time alone in a bathroom cubicle, didn't he? That's amazing. It's amazing that earwigs have shame and honor codes
+
+[00:44:36] like the rest of us. I'm just surprised. And they've got very strong family values. So the siblings stay together much longer than they need to, and Mother Earwig raises her young, and she's very attached and she's very sweet,
+
+[00:44:47] so she sits on her eggs and then on her nymphs, on her baby earwigs. She'll sit on top of them all to nurture them and lick all the mold and fungi off them, and then the earwigs are ready to leave the nest very early on,
+
+[00:44:59] but they all stay together anyway. And they think it might have something to do with the fact that they all eat each other's feces. So when time gets up... It was so nice until then. It was reminding me of how during lockdown I'm seeing a lot of my family
+
+[00:45:12] on Zoom quizzes and stuff. They're like, oh, we're a bit like earwigs, but we don't eat each other's shit. Well, it's one of the main problems with Zoom, isn't it? And they're trying to overcome this problem with the technology. Because these guys are eating each other's poo. And it's only when they don't have much food left.
+
+[00:45:26] Oh, yeah. You wouldn't... Yeah, if you have a pizza in the freezer, you're not going to go straight for that poo, are you? That's pretty much their attitude. But it does seem to help them stay alive for an extra few days in times of one. The mum, though, you say that she's very caring
+
+[00:45:43] and absolutely that's right, but she does do an interesting survival of the fittest thing, whereby the mothers have the ability to smell out who the healthier of their offspring are. It's a chemical smell that comes off the offspring that they can smell. And so once they've identified,
+
+[00:46:00] because they have such a big collection of babies, it's something like up to 60, I think I read, 30 to 60 at a time. So they need to make sure that the healthy ones are the ones that survive. So they smell them out. And once they know which ones they are, they'll give them more shit to eat
+
+[00:46:16] just to make them healthier. And they'll pay less attention to the less healthy ones. Wow. Ouch. So, yeah, survival of the fittest. Good mums, but also very, very disciplined. This fight was about the names of earwigs
+
+[00:46:32] and what people call them. In different countries, they have really weird synonyms. I don't know if synonyms are the right word. So like the Manx word in the Isle of Man, their word for earwig is the same as their word for a dung fork. A dung fork? A dung fork.
+
+[00:46:47] You know, like a pitchfork that you use to pick up dung and then move it from one part of the farm to the other part of the farm. Oh, yeah, yeah. So just a dung fork. Is that what the earwigs use to eat their siblings' feedings as well? In Scotch Gaelic, the word for earwig is the same
+
+[00:47:03] as the word for having your mouth so full that your cheeks puff out. Why? I don't know. It's so weird. The Greek word for earwig is the same as the word for alligator and pruning scissors. The Hungarian word for earwig is the same
+
+[00:47:18] for a catchy song. Like an earworm. In German, it's an earworm, I think, in earwig as well. So that must be a link between those two. Yeah, OK. It makes me think that it must have been very confusing in Greece. If you said to somebody, could you please go and fetch
+
+[00:47:34] my pruning scissors? They're in the second drawer down in my building. They come back with an alligator. You come back with an alligator. It's a dangerous game. In Spanish, the word for earwig is the same as for an overhead kick in football. Oh, cool.
+
+[00:47:47] Wow. So weird. Yeah. Oh, wait. I have a theory about why that one might be. This is a pretty tenuous theory. But when earwigs are mating, they have a really complicated sort of dance they do,
+
+[00:48:00] getting to know each other. And I think they smell each other and the male might do a little bit of flexing to show off. And the female nibbles his forceps. And after about 10 minutes, she will raise up her abdomen at the back, right? And then the male has to twist his abdomen
+
+[00:48:16] 180 degrees left to right. So his bum is upside down, basically. And that means that it's facing upwards. And that means that he can couple with her. And then they spend several hours having sex. But that flexibility of the abdomen might be why the bicycle kick has the same name as the earwig. It could well be.
+
+[00:48:35] It could well be. So can you tell me why the Ukrainian word for earwig is the same as their word for pimp? Well. Again, it's to do with turning your bum 180 degrees. OK, that is it. That is all of our facts. Thank you so much for listening.
+
+[00:48:56] If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter M. James. At James Harkin.
+
+[00:49:07] And Anna. You can email our podcast at qi.com. Yep. Or you can go to our group account, which is at no such thing or our website. No such thing as a fish.com. We have all of our previous episodes up there and links to little bits of merchandise
+
+[00:49:21] that we've released over the years. And thank you for continuing to listen to us. We will be back again next week with another Working From Home episode. We'll see you then. Goodbye.

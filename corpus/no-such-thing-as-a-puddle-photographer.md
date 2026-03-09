@@ -1,0 +1,251 @@
+# No Such Thing As A Fish - No Such Thing As A Puddle Photographer
+
+- Episode date: February 15, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-puddle-photographer
+- Slug: no-such-thing-as-a-puddle-photographer
+
+## Transcript
+
+[00:00:03] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I am sitting here with James Harkin, Andrew Hunter Murray, and Anna Chazinski. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with back number one. And that's you, Anna. My fact this week is that Harvard Business School recommends companies locate their headquarters in rainier places because it makes employees more productive. And that's why our output is so massive here.
+
+[00:00:54] Yes. This actually goes against what people think. So they, as part of the same study or a similar one, they asked people what they thought, what effect they thought bad weather would have on productivity. 80% of people said they thought it would decrease it. Turned out they did this big study in a Tokyo bank. And they found that employees processed loan applications much faster. So that's something that requires a lot of focus and concentration, much faster and more quickly on rainy days than sunny ones.
+
+[00:01:21] And it was because when they investigated it, that nice weather causes more cognitive distractions, i.e. people sit in their offices fantasizing about what else they could be doing. Yeah, they worked out. The effect is so great that if it's a sunny day versus when it's rainy, that $937,000 is what they would have made if it was continuously rainy, basically. This particular... Yeah.
+
+[00:01:42] This depends on the size of the business. It's not like you can have an ice cream van and you'll make a million quid. It's actually not when it rains. I think in actual fact, ice cream vans is one of the few businesses where Sun is better. Well, this doesn't all go well for my Welsh chain of ice cream vans, does it? But weirdly, my sister and brother-in-law had, they've just left Abu Dhabi, but they had an ice cream business out there as a side business, and it was a little ice cream shop by the beach. and they couldn't operate it in summer.
+
+[00:02:11] It's so hot in Abu Dhabi, it can only function in the winter. Wow. Wow. Yeah, it's just too hot outside. It gets up to 50. But sure, is it that people don't really go outside? Yeah, yeah. Oh, right.
+
+[00:02:22] So it's not like... The ice cream melts. Well, that's too. It's not like, if you buy an ice cream, it instantly vaporized. I demand another. Where is this one? One thing I found is... So this was from the same article that this came from,
+
+[00:02:36] which is, I really like this. Campbell Soup. that company, they advertise based on the weather. So when the weather is bad, in particular cities, they buy more advertising space because they know that people will want cozy warming food. That's a great idea. So like a nice, thick country vegetable soup on cold days. Exactly.
+
+[00:02:54] And maybe a light broth on some gaspacho on a hot day. A thin mist of ice cream. That's brilliant. It's weird. It's so cool. When it's cold and everyone has flu, they could have chicken soup because everyone likes it. They have a flu index as well. Do they?
+
+[00:03:08] Yeah, so they made a thing. So the thing Andy's talking about is called the misery index. And for them, it's actually a happiness index because it means more sales. And when the misery index goes up by 5%, then they queue chicken soup advert on the radio. And then that was so successful, they've got a flu index now. So as soon as there's a flu outbreak. That's amazing. That's really incredible.
+
+[00:03:30] They must be praying for Spanish flu to come back on something. They're not evil. No, you're right. They're just selling soup. You know, if it's very rainy, there's what type of business it's actually good for? Umbrellas. Ponchos. Yeah.
+
+[00:03:43] Oh, I've opened up. People who take photographs of puddles. The three main rain-based businesses. I'll bet I run out after two. You make a million more dollars a year if you take photographs of puddles in the rain. Newspaper editors the world over. Get me some puddle photographs. I was actually talking post-rain.
+
+[00:04:08] Oh, yeah. Towers to dry things. To dry things. Tows are good. Yeah, no, helicopter businesses do very well, particularly for orchards. Because when there's huge amount of rainfall, certain things, certain vegetables, certain grapes get so saturated that they need to get the water out immediately. So they hire helicopters in, and cherry orchards will have helicopters just hovering over them and drying off all of the ground. to get it back on the road.
+
+[00:04:37] That's really cool. The helicopter business. Do you know the kind of weather that one study found is the only type of weather that really has an impact on your mood? So I can give you the weather categories, or do you want to make that really clear? When the Earth is hit by a meteorite and this rain of, you know, metal falling from the sky. Firestorms. People don't mind at all. They just go about their day.
+
+[00:04:59] We're very stoic. Okay, give us some options. So this is a study in the 1980s And it found the best predictor of mood Was in a certain type of weather The options are that They looked at sunniness, temperature, Raininess, wind, humidity and
+
+[00:05:15] It's not going to be the last one Can I bet on the last one Can I bet that it is the last one Which I think is mist Because I think mist always affects my mood very much Is it? In a good way or bad way? It sort of just makes me feel spooky
+
+[00:05:28] Does it? Yeah, you know you look along You can't see anything It's a bit spooky That's true. Yes, it's quite exciting. You feel like you're in a Victorian novel. Yeah, so that's the main effect that I think.
+
+[00:05:37] I'm going to say it's wind because it makes me feel more agitated. Because the molecules around me are so agitated, they kind of somehow make me feel a bit of edged. I get that as well. I think it's got to be one of these too. I'm going for sunniness. Sunniness makes me a dickhead. It's why I had to leave Australia. I was a right ass all over there.
+
+[00:05:58] But now I'm sort of a bit more calm. But I get in a horrible mood when it's way too hot. Do you? Yeah. Oh, no, so you're not talking about sunniness. You're talking about temperature. Oh, yeah. Right?
+
+[00:06:08] Because it can be sunny and cold. It's sunny. It's a beautiful sunny day today. That's true. Okay, so he has been a bit of an asshole today. How do you explain that? It's just being a bit of a tricky dick. Okay.
+
+[00:06:16] So, yeah. So, while, you've listed almost all the things except the one that it is. Humidity was found to be the only one that has a significant impact on activity and mood. And it's because people feel very sleepy and they can't concentrate. Which is true, right? When you go to a humid place. you feel really gross. Kind of but I grew up in Hong Kong which was all humid all the time.
+
+[00:06:36] As I established you're always a dicket now. I've never thought how this weather has really molded me. Did you find your concentration improved when you came here? Mate, I'm not the good case study to ask about. The wettest day of the year on earth, whatever day it is, what percentage of the rain from the year do you think falls on that one day? Okay, so if there are 365 days, it would be a, a bit less than 0.3% on an average day.
+
+[00:07:04] So I'll say 1% triple. Yeah. The average. I'm going to say 35%. Love it. Love. Great day for the puddle photographer. He's a billionaire.
+
+[00:07:19] It is 8.3%. Wow. That's a lot. It's about 12th of the Earth's rain falls on a single day. What day is that? We don't know. It's different. We don't know.
+
+[00:07:29] Surely that's the one day we would definitely. The same day every year. I know. Oh yeah, right. I meant when it was the last time that we... No, it's always the third Tuesday after Easter. And 50% of the Earth's precipitation falls on the 12 wettest days of the year. Wow.
+
+[00:07:47] That's amazing. Isn't that amazing? It's incredible. Wow. That's really cool. It'd be so great if it was the same every year. And we could just do a 12... What was it, 12 days?
+
+[00:07:57] 12 day long hibernation or something. I wonder if it happens in a period. of the year, though, because lots of countries have big rainy seasons. So there must be a likelihood of it being... Well, the paper, the article where I read this, it said, one key question the researchers wrote is when during the year these extreme precipitation events are likely to occur. So I think basically they don't really know when it's going to be, but they'll try and work it out. Just on rainy conditions as in preparing for rain, have you heard of the rain shader? This is a new kind of umbrella which has been invented in the last few years, and it is
+
+[00:08:28] designed to solve the problems of, what are the problems of umbrellas? They get in people's eyes. Inside out. Oh yeah, that's the main one actually. That's the main one. Yeah, that's a really good one. And there's one more. You never have one on you when you need it.
+
+[00:08:41] That's not the one I'm looking for. They break the material. People take them if you leave them at the front of the store. That's, they're awful. If it's really windy, you might blow away like Mary Poppins. Yeah, that's, yeah. She doesn't, have you seen the film? She's not trying to help them out.
+
+[00:08:57] Suddenly against her will. blown away into another land. That's why the sequel's only 17 minutes long, very sad. Yeah, opening lines were, sorry about that. Where were we? No, it's that, you know, when you tilt it, all the water can fall off onto someone else. Oh, kind of.
+
+[00:09:14] That's a small problem, by now. I'll hold it upside down. What? So the range shader is this new, it basically looks like a motorbike helmet, but in umbrella form. So it's open at the front and then at the back it's really low. It's like wearing a big helmet that's sort of cut out at the front.
+
+[00:09:35] So that means you can't ever poke someone in the eye with it. That's really good. And I don't think that would turn inside out either. So I think it's solving more problems than it claims to. I think it might. Yeah. In Harvard Business School, there's a paper that they wrote quite recently called toxic workers. And this is about superstar workers who outperform their colleagues by two to one or more,
+
+[00:09:56] but who are awful to be around. And they want to work out whether it's useful to have these kind of amazing workers or whether they do way too much harm than good. What do you think? Interesting. What do we think of James? The question we're being asked. Apparently, according to them, it's better to hire two average employees
+
+[00:10:19] than to keep one superstar on the payroll. Do you guys know about the... This has always been one of my favourite studies. the Harvard Grant study, which is this massive, it's famous longitudinal study, and it's followed 268 people for 80 years. So it started following them when they were at Harvard, and it studies every tiny aspect of their lives.
+
+[00:10:42] And so it's told us so much about the decisions that you make and the personalities that you have, what impact that has on your life. It's like an unbelievable level of detail, so it measures things like the size of moulds on their body and how many teaspoons of sugar they have in their teeth. and the hanging length of your scrotum and then they sort of follow them
+
+[00:11:00] that hanging length guys as opposed to when you've got it pinned back I don't want to trip over it No just me So they measure all this and they find out you know Are they successful Actually JFK was one of the people
+
+[00:11:21] who was originally in it So he was successful But actually quite unlucky And And at the moment, I think there are only about, not many of them left now. Obviously, I think there were 19 left a couple of years ago. But it's all the ones with the longest scrotums, and that's the interesting thing. I imagine if that was true.
+
+[00:11:36] It's the sole predictor of how you do in life. No, because they all tripped over and concussed themselves years ago. What they basically have found, or what the person who's in charge of it now says is the most important discovery, is that your relationships are the most important predictor of health, mental and physical. But literally the most important, more important than cholesterol. more important than diet. It's, you know, the warmth of your relationships. And that dictates how much you'll earn in the end. And it dictates how successful you'll be and how happy you'll be. Very good. There we go. Or it could just be that rich people can buy relationships. Yeah, I think it's that.
+
+[00:12:19] Okay, it is time for fact number two. And that is Andy. My fact is that when they are mating, male cuttlefish can flirt with one side of their body and simultaneously pretend to be a female with the other side of their body. It's a really weird thing they do. So cuttlefish are mollusks in the ocean, are they? They're kind of mollusk. And they're a bit squitty and a bit octopus-y.
+
+[00:12:42] Yes. They change the pattern of the skin all the time for camouflage, but they do it for lots of different reasons. So they might do it to avoid predators or they sometimes do it even to catch prey. But one thing they do is when they're courting, male cuttlefish display you know courtship patterns
+
+[00:12:59] to females on their bodies but they don't want other males to fight them so they simultaneously make the back half of their body display a female pattern so a male who's standing behind the flirting male will think oh that's just two female cuttlefish having a chat with each other and he won't get in the way
+
+[00:13:17] but if it looks like it's a male chatting to a female they might try and break it up but won't is there no chance that the male cuttlefish will start flirting with the back of the female camouflage. That sometimes happens. Yeah. Because that could just be a long queue. Well, basically, yeah, that does happen.
+
+[00:13:35] So some males have harimms of females, which they guard jealously from challenges, and other males disguise themselves to look females, sneak in, have sex with the real females, and then sneak out. But sometimes the disguised males look so good that the alpha male will guard him as part of his harim. So you can have a Harim which has mostly males in it That's amazing Or pretending to be females But they only look good from the back
+
+[00:13:59] So they're just never going around the front They're strictly ass-based They are amazing They're incredible They also have two prehensile tentacles I think on the front Which sometimes they hide They've got pockets under their eyes
+
+[00:14:15] Where they put them when they're not using them And they're not getting them out and grabs up Pockets under their eyes Such a great place to have a pocket They're so weird. It's so weird when you don't, because octopuses, I think we all know, are quite weird. So when you talk about them, it's kind of, but this is all just like, what is this animal? Are we just joking?
+
+[00:14:32] Are we lying? He's got pockets under its side. It turns its butt into a woman. Come on. The most amazing thing about cuttlefish, which people maybe know, and David Atomers is very good at showing, is that their disguises, right? So they disguise themselves even better than, you know, the octopuses that can do it and other things. And they can do it within a few milliseconds.
+
+[00:14:48] They can just change color, and they can give themselves stripes, like you say, kind of courting patterns, it is incredible. They can, as well as changing the colour, they can change from smooth to bumpy, the skin, which is a really cool. Yeah, so they mimic the object that they might be camouflaging themselves on. Not just colour, but also the...
+
+[00:15:07] Yeah, the texture. Like covering yourself in warts. Yeah, exactly. If you want to pretend to be a witch. A lot of those on the bottom of the ocean. I read it as they have the equivalent of hundreds of cocktail umbrellas. under their skin.
+
+[00:15:23] So they can, they have all these structures that they can sort of lock upright to make themselves look knobbly basically if they want to look like coral. Yeah. And that camouflage
+
+[00:15:32] they can freeze it and lock it in place for up to an hour. So they change it all the time but they can just go, okay, I'm going to stay like this for an hour now. Wow!
+
+[00:15:40] They're really weird and really cool. It's crazy. Yeah, and also these changes are to do with their mood and whether they're hungry or scared or whatever. So you can look at the colors on a cuttlefish
+
+[00:15:50] and work out what it's feeling. That would be useful. in humans. They can do a chessboard pattern. They can. They can. They can make themselves look exactly like a chessboard. Why? For when they need a camouflage next to a game of chess going on. Because they can do the bumping stuff as well. Well, so you're saying they can do the pieces?
+
+[00:16:11] They can have an actual game on their own body. That would be amazing. That's very cool. Wait, so can you explain the chessboard thing? Why would they do that? Well, they've been tested by scientists. There's no natural chessboard pattern, but it's just to show how versatile they are. Oh, yeah, yeah. And they can, Richard Hammond, who used to be on Top Gear. He could also do that.
+
+[00:16:36] But terribly sadly, he doesn't know the rules. It's a real shame. No, he, as one of his shows, they put a cuttlefish in an underwater lounge, which they'd mocked up, which had also like a zebra patterned sofa and stuff. They were just putting it through its faces. Hammond's house, did you say? No. Sorry.
+
+[00:16:53] How does he come into this? He was making a show and it was about cool animals or something and it featured an under, they created an underwater lounge with all this stuff. Right. Richard Hammond's lounge is not underwater. And so, okay, so they perfectly mimicked a chessboard. Yeah, that is so cool. It's really bizarre. Yeah.
+
+[00:17:16] I mean, it wouldn't be perfect. Don't get excited. No, but I mean, why? I'm actually more excited by the experiment that we are taking non-underwater-based objects and seeing if they can mimic that because you wouldn't naturally see that. Yeah, I'm interested that they can. I didn't realize they could actually mimic stuff that they'd never seen before. There might be half a dozen cuttlefish in this room now.
+
+[00:17:34] We don't know. This entire building is cuddlerfish from top to bottom. My favourite cuddlfish is the bottom-dwelling flamboyant cuddlfish. We'll say there again. The bottom-dwelling flamboyant cuttal fish. God, if you've got something dwelling in your bottom, you don't want it to be. flamboyant, I think. It's the only mollusk
+
+[00:17:54] with a quadrupedal gait. That's amazing. Yeah, that is incredible. The way they hunt is cool. So they've got, if you look at them, they look exactly like the Oudes from Doctor Who, and I know only Dan will know what I'm talking about, but that's what a lot of them look like.
+
+[00:18:06] And they've got these sort of big long funnels on their nose. And the way they, a lot of them catch prey is by blasting their funnel at the sand, and they'll blow up a prawn that's having a nap. Wow. And just shoots up into the, The prawns nap? I suppose they must do, right?
+
+[00:18:22] Everyone's got a nap. Yeah. They hunt in the day and prawns are nocturnal, so they're often asleep in the day. What a horrible way to wake up, being blasted out of your bed into the mouth of a nude. One thing about cuttlefish that might also be known is they give us sepia. They give us basically the look of Victorian photographs. What? Yeah, sepia ink.
+
+[00:18:42] So they have an ink sack. There are three things that develop when they're in embryo. The first three things to develop, but they're two eyes, weird-shaped eyes, and then the ink sack and that's a defense mechanism so they blast out ink as a last resort if they're being chased
+
+[00:18:54] and that's where we get sepia it's our main source of that colour still to the stay or the original wow that's amazing so cia is like that brownie colour isn't it? Yeah that you put over photographs
+
+[00:19:05] to make them look that sort of Victorian yeah but wait sorry did that get used in the Victorian photo process we needed cuttlefish ink yeah that's incredible
+
+[00:19:17] yeah they're handy handy little guy. You just wouldn't think there would be enough cuttlefish to make enough sepia for the Victorian photo industry. But there's so much cuddfish. And also probably wasn't that bigger industry in those days. It's not like mobile phones where everyone's got a camera these days.
+
+[00:19:32] That's true. Just the rich people. Anyone can be a puddle photographer these days. All the art has been lost from the trade. And it's not like every time you put a sepia filter over your iPhone photo a cuttlefish has to die. We've moved on. There's no like when you go to snappy snapped huge tank full of cuddlfish. Okay, it's time for fact number three, and that is James.
+
+[00:20:02] Okay, my fact this week is that William of Orange's favorite drink was cock ale. Which was? Which was a drink? It's made of ale with a cock in it. Cockerel, a rooster. And it was, they put the rooster in when it was being brewed, And the idea was that it would put something into the mix, which would give you virility. And it was like the Red Bull of its day, almost.
+
+[00:20:30] And actually, the first known recipe for Cockhale was in 1669, and it was written by a guy called Sir Kenelm Digby. Oh, yeah. People who know the podcast might remember his father, Everard Digby. Kidby. Who was one of the gunpowder plotters. Everard Digby makes a return. This is so exciting. Yeah, so Kenel and Digby, he wrote a lot of cookbooks, and he invented bacon and eggs as well, actually. He won't.
+
+[00:21:00] Sorry, I think we give pigs a lot of the credit for bacon and chickens, the credit for eggs. You're right. He just invented putting them together. I don't think so. I think if we cooked and ate me, for example, I wouldn't be able to claim credit for the recipe. No, that's fair enough. Yeah. That's fair enough.
+
+[00:21:15] The recipe of this, take eight gallons of ale, take a cock and boil him well. Then take four pounds of raisins of the sun well. stoneed two or three nutmegs, three or four flakes of mace, half a pound of dates, beat all these with a mortar, and put them in two quarts of the best sack. I don't know what sack is. And then when the ale have done working, put these in and stop it close six or seven days and then bottle it, and after a month you may drink it. Wow.
+
+[00:21:38] So it's a bit like mold cock ale. Yeah. I think sack is kind of wine, isn't it? Maybe fortified wine, I'm not sure. Well, there is a theory, which is a terrible theory. It can't be right, but because... I know what you're going to say. I've read this theory.
+
+[00:21:52] Yeah, because they were adding, you know, this new element ingredient to something that shouldn't be there. Cock ale was effectively the origins of cocktail. It's just not true. I'm saying it's a theory. Where do you think it came from then, cocktail? Oh, there are different. I can't remember. There are other bad theories as well, but that's worse.
+
+[00:22:13] Here's another bad theory. So a cocktail used to be a horse with a docked tail because it looked a bit like a cox comb. and then it became a word for a horse of a mixed pedigree and then it became a drink because it had lots of mixes of different drinks in it that's one theory and H.L. Mencken thought that it came from the French coquettier meaning egg cup because you would drink it out of a very small cup cocktail. Oh, I like that one. That's my favourite so far.
+
+[00:22:40] I think none of them are true. Yeah. I can't believe we know who made bacon and eggs for the first time. We've just kind of danced over that but that's huge. That's a big deal. That's a big deal. Someone else probably would have done it. And actually, he was just writing down recipes, right? So he didn't invent. I don't think he invented cock ale either. I think he just wrote it down. Recipes were simpler then, weren't they?
+
+[00:23:02] You just wrote bacon, eggs. And you went down in history. No, they're really complicated. Lots of them. So there's a 1739 cock ale recipe in a book called The Complete Housewife, which is one of the first big household manuals. And it starts with take 10 gallons of ale and a large cock, the older the better. but then you had to stamp on it in a mortar
+
+[00:23:21] until its bones were broken it said parboil the cock flay it and stamp him in a stone water yeah my mortar's not big enough to be stamping around in god say another weird ingredient for old drinks cider in the 16th century
+
+[00:23:39] used to have sheep's blood added to it cornwall sheep's blood I wonder at what point they realised that it's just nicer without the sheep's blood of it One day they'd run out of sheep's blood And they'd just made cider You were laughed out of the pub if you suggested Do you think we could
+
+[00:23:56] Yeah so the sort of precursors to beer Seemed to all have been mould spice beer I think our kind of beer that doesn't contain any spices and flavours Is the anomaly in history really So you see all these recipes for kind of heating up beer They always were adding cinnamon and cloves And nutmeg and ginger Another thing they added
+
+[00:24:15] almost always if you look back to beer recipes if you look in all old books and stuff or from the 16 1700s toast so they always put toast on top of beer didn't they floated it yeah so they'll say like a croton in a soup basically like giant croutons yeah I'd like a crouton in a pint well I like beer and I like croutons there we go seems likely that I'd like both these things I think you'd love the 1600s it's hard though isn't it to most beer glasses most pints are not quite big enough for a full slice of toast to float on the surface. No. But these beers were fitting entire roosters in them. The vessels were bigger.
+
+[00:24:53] What was the point of the toast? Well, one recipe I read explained why the toast was there. It said it clapsed the white waistcoat on a cup of good drink. Oh, brilliant. That's really clear. Thank you. Yeah. Oh, great. Oh, yeah.
+
+[00:25:07] The white waistcoat. Oh, well. We'll understand that. I was reading about just the consumption of alcohol in the 1600s and I found this thing that Parliament passed it was an act that I'd not heard of it was the act to repress the odious and loathsome sin of drunkenness it was because everyone was just getting so drunk all the time that the wording of that that is just stunning yeah um so um yeah so hops which were medicinal plants um they
+
+[00:25:37] they'd been added to beers and I think that was a way around of um saying that you were doing for medical purposes as opposed to it being yeah just getting drunk. Oh yeah, and they didn't like hops. In Britain, they really didn't like hops. So when we talk about beer from thousands of years ago, it's not beer like we know it. So beer, to be classified as beer now has to be made with hops.
+
+[00:25:55] But they only actually came to England in the 1400s, I think, from the Netherlands. And everyone thought they were a bit poisonous, they were a bit weird. So that's, you know, it's the plant that adds the bitter taste to beer. And actually, the first person to describe hops scientifically and talk about how they were used in beer was a woman. It was a Christian botanist and abbess who is called Hildegard of Bingen. Yeah, I've heard of her actually.
+
+[00:26:21] Yeah, she was a big deal. She was quite revolutionary in the beer industry. Did she see lots of, oh, I can't remember what about her now? I think she saw lots of visions and stuff, didn't she? Is that the same Hildegard? Oh, maybe not. Is there more than one Hildegard? Can't be that many.
+
+[00:26:37] It's a very common name, surely. There was one who saw lots of visions and then wrote one of the first. first books or something, but maybe it was a different one. It might have been her. She was big. She wasn't actually a fan of hops, even though she knew how they were used. She said, they make the soul of man sad and weigh down his inner organs. Whoa.
+
+[00:26:57] That's kind of what it feels like after seven fights. There is a thing, I can't remember exactly what it is, but in Germany you're only allowed three ingredients in beer to this day. Really? I think it's hops, water and what would it be, barley? Barley, yeah. And I think it's really strict. And they've had hundreds and hundreds of years of rules about this. So there was the Brow Ordnung in 16th century Bavaria,
+
+[00:27:20] where you weren't allowed to make beer between the 23rd of April and 29th of September. So no brewing allowed because breweries caught fire very easily because they were all made of wood. And there were lots of coal fires to heat them up. So it was bad for fires. So they banned it. But you had to have cellars to store beer from the winter
+
+[00:27:40] so that you could drink it in the summer. and the breweries stored them in big underground cellars and then above ground they planted trees to keep them shady because they wanted to keep the cool in the cellars and then they started adding tables and gravel to these above ground tree areas and that's the beginning of the beer garden Oh wow!
+
+[00:28:01] So yeah the beer garden comes from this ban on brewing in the summer And it was actually for beer really, the beer garden Not for us Yeah, we're in someone else's business. garden. Yeah. I'm going to look at the beer. So just speaking
+
+[00:28:18] of German beer, you know Pilsner? Yes. So where that name comes from. I thought it's a place or something, is it? So it is a place. It's from, it's from Pilsson, yeah?
+
+[00:28:30] Which was one of Europe's first beer brewing capitals. And Pilsen, so it was called Pilsen when it became this beer brewing capital. And that is because that was the German word for Henbane, which is like a really deadly poisonous plant. but they used to put that in beer all the time. So they were brew beer with Henbane.
+
+[00:28:46] Does that not make it really, I mean, that is really probably poisonous? Yeah, it's very dangerous. What were they doing with beer for hundreds of years? Let's put cockerel in it. Let's put sheep's blood in it and poison. There was no, no, when they went? Three ingredients, that's it for that one. But a little bit of poison, no, no.
+
+[00:29:04] It gave you hallucinations. If you managed to escape death, it was quite fun. So that's where Pilsner comes from is after Henbane, because that was a crucial ingredient. didn't have deadly beer. Whoa. Very cool. Just one last weird origin thing.
+
+[00:29:18] So you mentioned that that beer brewing book, you mentioned earlier, a beer brewing book was for a housewife. Beer brewing was like sort of solely a women's thing across the world, wherever beer was brewed. Until pretty recently, until basically the 15, 1600s when hops actually came in. So the ale wife is a thing because it was always the woman who would do the cooking beer in the house,
+
+[00:29:38] brewing the beer. Women would control the breweries, for instance, in ancient Egypt. They all had their own breweries. Women would be in charge. And so they became the main beer sellers and barmaid still in sort of Dekensian novels. And women, so women would start making surplus beer because they'd been making it for the home. And then they would go and sell it.
+
+[00:29:57] So they'd put greenery over their doors. And in some cases they'd put a broom up against their door, which signified that you were selling beer. And they would stand on the corner and they'd advertise their beer by wearing a tall hat. And they would often... have a pet cat who would chase the pests away. I'm just a cuttlefish. Well, there is a theory. This is where the witch image comes from.
+
+[00:30:24] Yeah, so they were tall hats, said, I'm the beer selling lady. I'm the ale wife. And they all had cats as well. They had a cat to chase away pest because otherwise they ate the grain with which they made the beer. They were all testing out crazy ingredients like Eye of Newt and stuff. Yeah. Well, the health thing was hallucinogenic.
+
+[00:30:40] There you go, stirring it around in their. cauldrons. All their massive mortars. Yes. Yeah. Oh my goodness. And thence came the witch. Really?
+
+[00:30:50] Wow. Yeah. So I thought that I haven't made up. Okay. It is time for our final fact of the show and that is my fact. My fact this week is that after five months of forensically analyzing the indent made by a pen on paper, Dorset Police managed to recover 26 pages of lost words by a blind novelist who hadn't realized that her pen had run out of ink.
+
+[00:31:19] That is amazing. Quite remarkable. Yeah, it's pretty extraordinary. This was an author called Trish Vickers. It was her first book that she was writing. She had gone blind through diabetes, and she decided that she wanted to pass her time by writing a book. So she created a system, and she did it longhand with pen, created a system where she had
+
+[00:31:37] elastic bands along the paper. She would write out the pages, and then her son would come at the end of the week, and he would transcribe them onto a word document or whatever he chose. So he came one week after she'd had this burst of inspiration. She wrote 26 pages, but he discovered these blank pages sitting there. Turns out the pen had run out. She was devastated. He was devastated because she'd ridden such great stuff.
+
+[00:31:59] And it is quite funny. And it's incredibly funny. Thank you, James, for pointing that out. Yeah, so she was very upset. And they're going in touch with the police to say, can you do anything about this? And, yeah. And they arrested the pen manufacturer. Yeah, so actually it's very sweet at Dorset Police Station.
+
+[00:32:20] Someone said they would look through the pages with the special light that they used for forensics to see the little markings that the pen would have left on the page, the little dents. And they spent five months. Now, it wasn't five months of intense analysis. The burglars in Dorset at the time, we're just having a field day. It was, I believe it was one person who did it on her lunch break for, five months. Although if you are a burglar, having a field day, it's probably a very bad day for you. Burglars call it having a house full of electronic equipment day.
+
+[00:32:52] Yes. But so she managed to get the book done. It was called Granifer's Legacy. Sadly, she actually passed away before she could hold a physical copy in her hands, but it was published two hours prior to her passing away the physical copies. Yeah, so she just missed out by two hours. She knew it was being published. And I think she held a proof in her hand. So, yeah.
+
+[00:33:15] So I thought that the only method, you know, when you make indentations on paper, you can kind of read it, or you can shade over it with a pencil and that kind of shows up because the pencil shading doesn't fill the indentations. Do you know how the police do it? They have a special wand? So first of all, they don't do the pencil thing, do they? Because that could damage the evidence. Right.
+
+[00:33:37] But they have this device they've invented called an electrostatic detection apparatus. us and they basically documents which are charged with static, a piece of paper charged with static, builds up more charge in the furrows where the pencil is indented or the pen is indented than on the flat. And even really microscopic, non-visible to the naked eye furrows exist. So they put the document on this plate and then they pass a wand charged with electricity over it and then they applied this mist of toner and the toner just gravitates towards the furrows and you fill in a page of writing that way. Wow. It's basically a magic wand. So they sort of charge up the indent that have got all the static. That's insane. Yeah, that's cool.
+
+[00:34:19] Yeah, super cool. It's quite similar to fingerprinting, right? That kind of process. With fingerprinting, you can kind of do it yourself. So apparently a really good substance for putting over fingerprints so you can see them is raw cocoa powder. If you want to do it, you can use raw cocoa powder or talcum powder.
+
+[00:34:36] But you're not going to have the database of the entire country at home, are you? All you're just going to see is a fingerprint that you can't really recognize. Yeah, but you can definitely, if it's like who took my chocolate bar, you can definitely get your family's fingerprints, I reckon, and in your room, and then compare them. It's a real insight into others' child. Yeah, definitely would have done that.
+
+[00:34:58] The system, the Magic One system that you talked about is called the electrostatic detection apparatus, ESDA, and it was invented by two DJs. Wow, cool. They were called DJ Foster and DJ Morants. They weren't disc jockeys. It was just their names. Oh, okay. I was thinking they were bored in the booth one day.
+
+[00:35:21] No, it's just a coincidence that they had the same two initials and I thought it was quite funny. That is very funny. It was a good setup. You had us going in the first half. We did not see it coming. And I was thinking, that was pretty boring names for DJs, aren't they? DJ Foster.
+
+[00:35:37] Can I just say one more thing on E. SDA. So ESDA is kind of famous because it's what, do you remember the West Midlands serious crime squad got into a lot of trouble for faking people's confessions? The Birmingham bombings. Oh yeah. They got, um, the Birmingham 6? Yeah, they got released because of that. And it was using ESDA that they found that the police were making these fake confessions. Oh, really? Very cool. Not funny, but true. Val McDermid actually has written a book on forensics which sounds really good
+
+[00:36:12] I was reading a summary of it so she's the she's a sort of crime writer isn't she Of fiction Yeah of fiction But this is a factual book And so there's loads of good facts in there But there's a story of the arsonist
+
+[00:36:23] called John Orr Which I didn't know about He was quite a big criminal in the 1980s He was basically a fireman And who ended up being done For burning down loads and loads of houses Because if you're a fireman you know how So I think he was suspected in more than a thousand fires in California.
+
+[00:36:41] And he was eventually caught. He was caught partly because of forensics. So they matched a fingerprint on one bit of sort of half-burned match that he'd used. Wow. But he was also caught because. Did you think they went, we've got a match? And they went, yeah, we can see that. So good.
+
+[00:36:58] There was two hours of confusion there. Between Laurel and Hardy, the fire. So another thing that tipped. the more of that he might be responsible was that he'd written a novel called points of origin that contained a highly detailed description of the same fire that they were investigating for several striking similarities. And also the fire that he was done for in 1984, everyone who investigated it said, this is an accidental fire and he kept insisting that no, it was arson. So it's like he really had this desire for people to know. Do you think he was one of
+
+[00:37:31] these people who deliberately set fires so they can go and put them out? Because that does happen, We did that. It's called something like Hero Syndrome. Maybe. Oh, yeah. Well, he's not a hero now. He is serving a long jail sentence. Very much a zero. Nice.
+
+[00:37:48] That's what the judge said when he passed a sentence. I would love to be one of those comedy judges. That just said something funny just as is sending them down. I didn't know that comedy judge was a career, actually. Is that a thing? Yeah. Well, it's not, no, you don't apply. to be the comedy judge.
+
+[00:38:08] It was a regular judge who happens to have a bit of fun. There was that guy who got done for, he got done for something, but he loved the Beatles, and the judge sentenced him using as many Beatles. Oh, no, that's so naff. What did he do? I can't remember.
+
+[00:38:23] Maybe he stole from the tax man. Yeah. Brilliant. Yeah, you probably were, it was probably a cry for help. You may have had a hard day's night in your yellow submarine. Yes.
+
+[00:38:35] Wait, was the criminal fan of the Beatles? Yeah. Okay, got it, got it. So it was kind of like the Beatles were sending him down. That is really hard. You shouldn't have used your revolver. Yeah, yeah. That's good.
+
+[00:38:47] The big albums. Getting dark, yeah. Yeah. You've got a rubber soul. Yeah, because, you know, it's like a bad soul. A robber's soul? A rubber soul. A robber's soul is better.
+
+[00:38:57] A robbers soul is better. I mean, none of these are good, are they? Well, the comedy judge has spoken. Yeah. Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast,
+
+[00:39:18] we can be found on our Twitter accounts. I'm on at Schreiberland, Andy, at Andrew Hunter, James. At James Harkin. And Jasinski. You can email podcast at QI.com. Yep. You can go to our group account at no such thing or our website. No Such Thing isafish.com.
+
+[00:39:32] We have links up there for our upcoming tour. You can also find all of our previous episodes there. We will be back again next week. with another episode. Thank you so much for listening. Goodbye.

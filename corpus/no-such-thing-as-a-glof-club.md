@@ -1,0 +1,281 @@
+# No Such Thing As A Fish - No Such Thing As A Glof Club
+
+- Episode date: January 30, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-glof-club
+- Slug: no-such-thing-as-a-glof-club
+
+## Transcript
+
+[00:00:03] Hi everyone, welcome to this week's episode of Fish. Well, what do we have for you today? Well, it is the last of our little compilations. We put together all of the bits from the Australia and New Zealand parts of our tour, things that couldn't quite fit into the show, things where things went a little bit wrong, things were some naughty people in the audience might have shouted things out, and I put them all in this little compilation which I really, really hope you enjoy. I should just say that there will be one or two unfamiliar, voices in this show. Well, not that unfamiliar really, because if you've listened to the last
+
+[00:00:37] couple of episodes, you will know them. But Josh Thompson and Leon Buttons Kirkbeck, who both came in and saved the day when Andrew Hunter-Murray unexpectedly had to go home for personal reasons. They are both in these compilations at various points, so don't be surprised when you hear their voices. If you have been missing the compilations, we used to put them out quite often, but they don't come here anymore. They go on our Clubfish channel. And if you want to get those and all sorts of extra material that we do, then go to no such things of fish.com forward slash apple or no such things of fish.com forward slash patron and you'll find all the information of how to get all that extra stuff there. Anyway, really hope you enjoy this show. We will be back with an office episode
+
+[00:01:18] for those of you who listen to this show to try and get to sleep and get quite annoyed when we do live ones because they're too loud. Don't worry. We're back in the office next week. So really hope you will enjoy those. But in the meantime, sit back, relax, enjoy our compilation special On with the podcast. Starting with fact number one, and that is James. Okay, my fact this week is that during World War I, a popular conspiracy theory was that German blackmailers had drawn up a list of 47,000 highly placed English perverts.
+
+[00:02:09] I spoke... What was... What's so funny about that? It's just a funny photo. Sorry about that. I don't know what happened there, but I'm sure you're going to the Tower of London. I think I've been serious shit, actually, for what I just did, yeah. So this started back in 1965, and there was a journalist...
+
+[00:02:38] Sorry? Did it, though? Did it, though? Come on, I get enough shit from the history. I don't need... Fucking Melbourne doing this. If we do that after every dubious thing Dan says, it's going to be a long night.
+
+[00:02:50] It's your own time you're wasting. It's like the weirdest Panto edition. Did it, though? He's behind you, is he though? You can simulate ants fighting by using other video games. So there's a video game called Age of Empire, where you get your army and you fight, against another army, right? And you might have 10,000 of your...
+
+[00:03:23] It's so much more complicated than that. There's a lot of strategy that goes into... Sorry. It's a civilisation game. It's not a war game. Go on. Sorry. I was going to say, I didn't realize I was sat next to an expert.
+
+[00:03:39] You should have guessed. I should have guessed, yeah. So let's say, for instance, you're in Australia. You've got some Argentinian ants there, and you don't want them there. You want good old Australian ants. Okay. in your Australian thing. But the only way you're going to get rid of the Argentinian ones
+
+[00:03:53] is to get a load of Australian ants to attack them. And the Australian ones are weedy and useless. And the Argentinian ones are strong, right? So you need to know how many you're going to need, and you can use Age of Empire by giving them all different attributes and firing them at each other. And that gives you a really good simulation of how that will work in real life.
+
+[00:04:11] Yeah, and they do this all the time. Do they plan it? Do they build the game around ants? Is it like, is it so like ants because it's based on... Well, like, I only know these, this, this video game from seeing adverts on my Facebook. Right.
+
+[00:04:27] But I think it's like, it's like you've got like loads and loads of your little characters and they're all fighting the other characters, right? Wow. But if you can make your, you can imagine that your characters are slightly weaker, but you've got twice as many. You can see how many you're going to need to attack them. Right. Okay, so ants make those calculations as well
+
+[00:04:42] and work out how strong the opponent is. I'm not sure ants do, but the people who are putting ants into the situation, I'm sorry. Battle Royale. I feel like I'm either really jet-lagged and not explaining this very well or possibly asleep and dreaming that I'm not doing this very well. You're just talking to me who's never played a video game since actually playing the game ants age 10, which is fucking fantastic.
+
+[00:05:06] And you should have used this analogy. No, I'm thinking of worms. Sorry. Unbelievable. What a guy? What a guy? Record. He was, like a lot of those kind of mathsy people, he was in charge of the mint in England.
+
+[00:05:24] The money thing, not the edible flavour. Absolutely. And then he was accused of siphoning money off the profits made by the mint. But it was basically because he was enemies of this other guy called the Earl of Pembroke. And the Earl of Pembroke was an ear, and Robert Record wasn't. He was just a Welsh guy. And so the Earl of Pembroke basically said, well, I'm going to accuse you with this and send you to prison. sent him to prison and he died in prison.
+
+[00:05:50] Yeah. Really? It's really bad. Yeah, debtors prison he was put into. I think it was around the time of Queen Mary slash Elizabeth and so lots of Catholic Protestant, Arjubagi. And he was one of the victims of that basically. Debtor's prison was sometimes, I'm not saying it's the way you'd want to go,
+
+[00:06:04] but it sometimes wasn't terrible depending who you were. But you could have your own suite. There were bars and restaurants in Debtor's prisons, which if you could afford to use them, it's not bad, is it? Who could afford to use them? You're in Debtor's prison. I promise I'm good for the money. Just let me sign for it.
+
+[00:06:20] Put it on the tab. It's fine. That's surely how they bust you when you pay for your drink. Aha, you do have money. Dickens' dad was in debt prison. Dickens used to visit and stay, basically. He decided he worked in a workhouse, but the option was he could have stayed there. Yeah, your family often live with you.
+
+[00:06:37] You were allowed to work, I think, to work off your debts from the prison. I read about a guy who gave trumpet lessons from debtors prison, which must have been incredibly annoying if you were sharing his cell. I imagine not just a professional trumpeter playing all day, that would be fine, but someone giving trumpet lessons in yourself. Some 10-year-old who's, you know. Well, you shouldn't have fucked up your finances, should you? You didn't want to listen to an 8-year-old play trumpet all day.
+
+[00:07:00] This one's interesting. This was a 21-year-old man who, according to the database, was riding on a TV when he ran into a turkey and lost control and then ran into a tree. No more information supplied. No, needed. Did TVs, did they have wheels on them in the old days? But you don't take it outdoors, do you? You're very ready to take a TV out, no.
+
+[00:07:26] But Chris... Was it an ATV? No, no, it's on it. We're getting a note from the audience saying it was an ATV, potentially an all-terrain vehicle. Yeah, no. There's a slight problem in... So thank you.
+
+[00:07:41] It says... Well, okay, so two points. Thank you for... Thank you for... We're going over to Dan for a rebuttal. Yeah, so, firstly, it is spelled A, space, and then capital TV, and then B, shut the fuck up, mate. Either that or we're going to need about 2,200 microphones for this podcast. I'm joking, obviously.
+
+[00:08:09] There's a lot of the kids' movies are very different than the original stories. The Little Mermaid is one. In the movie, she wants to become a human because she wants to get married to the prince or whatever. in the book she wants to become a human because she wants to get to heaven. In the movie, she kind of gets her voice magiced out of her so she can't speak. And in the book, she has her tongue physically cut out.
+
+[00:08:35] Wow. And then in the end, she is given a dagger to kill Eric the human and she refuses to do that and so commits suicide and drowns into the water becoming seafoom. Wow.
+
+[00:08:48] So why didn't Disney do that full story? Do we know? I don't know, because I also at home have a version of the original Pinocchio where he kills Jiminy Cricket and has his feet burned off and is hanged by villagers. And they don't mention that in the Disney one either.
+
+[00:09:04] Can you imagine where you're sitting down the Little Mermaid author to say, we're very excited, we've bought the book, we've got a few changes to make to your plot. And he's like, okay. You've kept the cutting the tongue out. No, we haven't. We have kept the Jamaican crab.
+
+[00:09:20] Well, that's fine. Go ahead. They found that all these people who are returning stuff, there's just obvious patterns. So people who buy portable generators during weather emergencies, they'll use them right until the emergency is ended, and then all of those go back,
+
+[00:09:38] just this huge amount goes back. Large TVs, surge returns. So when you say a TV... Yeah. Well, I've now finished driving on all the days. terrains? I can send this back. There was a survey of children in 1942 that found lots of them didn't think bananas were real.
+
+[00:10:00] Oh, that makes sense. Yeah, that makes sense. And in the same year, a single banana was auctioned off in Russell Square in London, and it sold for over 500 Australian dollars in today's money. No. For one banana. Idiots.
+
+[00:10:16] I can't believe these guys won the war. I need to move us on in a sec. Can I tell you very quickly, sort of journalese, is this shorthand term for terms that get chucked into newspapers all the time? And there is a book about them called Romp's Tots and Boffins, which is by a writer called Robert Hutton, which is all about specifically British, but I'm sure a lot of them apply around the world.
+
+[00:10:38] Basically, just a few of the best terms. Boo's fuelled rampage is what vile thugs go on to the dismay of revellers. Budding is someone under 20 who's good at something. Rushed is the only way anyone gets to hospital, typically after ambulances raced to the scene. And the best one, a sex session is one or more bonks. Very good. I really enjoyed a news article I read from 1891
+
+[00:11:07] about a Christmas party accident that happened, where it was in Michigan and there was a man who was dressed as Santa Claus, but he made his outfit entirely out of cotton wool. He went to a costume party, he bonged into a boy who was dressed as, we really winky or a ghoul who was carrying a candle. So naturally, Father Christmas went up in flames,
+
+[00:11:26] ran around in a total panic. As the article said, he ran frantically about the saloon, setting fire to the costumes of all with whom he came into contact. All of whom then went on to rush wildly about the room, setting fire to other people they crashed into. Many of the guests are severely burned. The guy dressed as Santa and a couple of others may have succumb to their injuries.
+
+[00:11:46] So quite a mad catastrophe. But I just really like the understatement of 80s. where it said, for a short time, it seemed likely to end in catastrophe. Wow. That's a shame because what you should have done, that Santa, because there's a stat that came out in 2006, which is that they surveyed hundreds of Santas that were in malls and found that 34% of them regularly were being urinated on by children.
+
+[00:12:12] That's what they've said. So what he should have done was just found any kid, pick them up, put himself out. So right. Toddlers make quite good football coaches. soccer coaches. It turns out. For what reason? Oh, I didn't read into that. No, it's they try to teach robot footballers how to play football, and they use the normal
+
+[00:12:32] way of doing it by, they, you know, they use geometric figures to tell them which way to go and which way to run. And then they found another lot where they showed them videos of toddlers sort of wobbling around and trying to walk themselves, and when they taught them how to walk like toddlers, they were way, way better at football. Oh. Sorry, who was way, way better? The robots.
+
+[00:12:55] It's specifically for robots learning to play football. Yeah. You did sex that up a bit. I was imagining a toddler on the sidelines at a football match saying, get him, you blind bastards! Can we mention a bit about Raygun quickly? Because there's been news recently that she's... Oh, what?
+
+[00:13:12] Well, she's stepped down, right? She's retired. And I'm not into the bullying that she's got. And I have to say it's because I think, particularly Australia is brilliant when they create moments at the Olympics that are different to any other country. I mean, this country is so good at embracing those moments. Stephen Bradbury, right?
+
+[00:13:30] Come on. Stephen Bradbury, for listeners who don't know him, is the guy who was ice skating in a race. Everyone fell down and he won the semi-final. And then he made it to the final. And once again, everyone in front of him fell down. So basically all Ray Gunn really needed was for everyone to fall down apart from her. They needed to, yeah, hit their neck.
+
+[00:13:49] But you're meant to fall down in break dancing. That's why she went wrong. Everyone failed to fall down, apart from Reagan. But Stephen Bradbury, he embraced it. He goes around the country giving talks. I saw this today. He even has a line of beer called Last Man Standing. Like, the guy has stepped into it.
+
+[00:14:08] Not Olympics, but another sport star. John Hopoate, right? John Hapuarte. Who's that? He got caught putting his finger up people's anuses three times. He's a rugby player. He's a rugby player. There's the context, Dan, that I need is.
+
+[00:14:23] He's not a 10-pin bowler. Yeah, he played for the West Tigers, and it was three North Queensland Cowboye players that he individually put his finger up at different times. Now, here's the thing. Big Storm, he goes off. It's meant to be very embarrassing. A mutual friend who will rename Nameless
+
+[00:14:44] had a drink with him recently, and they said, are you embarrassed about it? And he said, embarrassed. and he picked up his phone, and the shot on his phone, that is the screensaver, was his finger up someone's ass. Australians fucking embrace this stuff.
+
+[00:14:59] And so, I think Raygun needs to get back on the horse. You're not allowed horses. But what... Well, that's what's called dressage, isn't it? What is dressage if not horse break dancing? Thank you, Andy. Yeah. Welcome back.
+
+[00:15:22] Wow, Anna. Fuck. It just wasn't enough to quite get me through. Not that this hasn't a delight, and I don't need wine to get through it. It's just there was some pretty big political newsday, and she's celebrating. James went to Australia Zoo today. You went to Steve Irwin's Zoo. Why is that funny?
+
+[00:15:49] Open mockery. Is that funny going to that zoo? Oh, it's a classic. It's Steve Owens. Yeah. Yeah. But it was bold going when we had a show tonight. And you woke up, you know.
+
+[00:16:02] There was a non-zero chance that I was going to be stuck an hour and a half away. Yeah. In a crocodile's mouth. I've actually got, James bought me a present from Australia Zoo. And this is so special because I think it's quite possibly the ugliest thing I've ever seen in my life. I wanted to buy him something that he would love and his wife would hate. It's a commemorative plate of Steve Irwin and someone else. If you can't see it at the back, lucky you.
+
+[00:16:35] But it is crockery. Oh, come on. Yeah, that's true. All right. And he also got me some socks. Oh, socker diles. It's not as good as crockery, is it? I should have left that in the bag.
+
+[00:16:57] All right, well, let's press on before... before that one joke stinks up this whole room. Do you know what the Spanish word trampoline means? Yeah. It's the, it's the eardrum? No. No? Okay. Is it not trampoline? It's not trampoline.
+
+[00:17:13] Oh my goodness, okay, okay. It's a Spanish word for diving board. I'll get it, I'll get it. Spanish word for driving board. I can edit this, right? So something springy. Yeah. So you jump up and down.
+
+[00:17:29] What about a diving board? Oh, someone in the audience got it. Bullocks! Yeah, yeah, yeah. And the reason being that the people who invented the trampolines, we would know it, were inspired by the diving board, and they used the Spanish word for diving board. So that's the original, if you say,
+
+[00:17:46] that a proper trampoline, is it actually a diving board? Really should be. Right. Yeah. That's very cool. So they think it's fucking weird that none of our trampolines have water. And they all break their legs when they try and jump off them. Can I say, and I apologize in advance to Andy,
+
+[00:18:01] because this is a fact of yours that we've never mentioned on the show, but I love it so much. Rivalries are often between siblings as well, right? And sometimes siblings we see like Serena and Venus, they make it into sports, and they're always paired off against each other, who is the more popular one.
+
+[00:18:15] But there's a really great fact that Andy told us, which is that in NHL, in ice hockey, there is a record for the most points combined, scored by two brothers ever in NHL history, and that is by the Gretzky brothers, Wayne Gretzky and Brett Grenski, that combined, they have had 2,861
+
+[00:18:39] points, goals between them. Huge, massive. 2857M. Say it again. 280... 2,000. Sorry. This is why I should let Andy do his own facts.
+
+[00:18:56] 2861 is the total. Is the total between them? 2,857 of those were scored by Wayne, and four were scored by Brent. It's a horrible thing. But Brent's such a nice guy. He's a dude. He's a dude.
+
+[00:19:15] He's a dude. Oh my god, guys, I've just had a vision of something. Has anyone ever made this connection? The word golf, the O is the ball, the L is the putter, the F is the flag, and the G looks like someone bent over who's about to hit a golf ball. That's actually quite good.
+
+[00:19:34] What the fuck? That's actually the first thing you've ever genuinely blown wide open. That just came to me. I think like you need, the golf needs to be holding the club and then hitting the ball, so it needs to be gloff. We should petition to rename setting up your glove club.
+
+[00:19:59] Hey, can you guys think if there's a job that a banana would cause huge problems for you put you in danger what is that job what let's imagine you're going to work
+
+[00:20:13] you're going to work you slip over so you work I've got one they are very very very very slightly radioactive so maybe if you are someone who's looking for bombs and someone you've got
+
+[00:20:26] I don't know where I'm going with this your market counter is always going off and you're like guys guys I've got another one I've got oh no I haven't got another one No, I've just got my lunch. Banana Bob again, the false alarms. And then it's like cry wolf, because when you do find the bomb, no one believes you.
+
+[00:20:39] Yeah, yeah. And the terrorists have worked out to paint the bomb to look like a banana and put it in Bob's pocket. Is that the answer to them? Yeah, you got it in one. That's amazing. No, the answer is if you're a beekeeper. It sends them nuts.
+
+[00:20:54] The smell of it releases this pheromone that makes them want to attack. So beekeepers are always advised if you're about to go to work, don't have a banana for breakfast because if you're near the hive and you breathe and they smell your banana breath, they're going to come and attack you.
+
+[00:21:08] There's reports of beekeepers who are sort of like, you know, 10, 15 meters away who decide to have a cheeky banana before doing their job and suddenly they're being chased by all the bees from the hive who believe that they're being attacked
+
+[00:21:21] so they're attacking back. You know what? I was in Australia Zoo this afternoon. Yep. That's not funny, guys. and it said there that the Komodo dragon can smell its dinner from 11 kilometres away. No.
+
+[00:21:38] What? It must be true. It said it in Australia Zoo. Really? Yeah. It's because they like, they use the tongues, they kind of stick their tongues out and they can taste some food from 11 kilometres.
+
+[00:21:49] What the hell is the point in that? They're very slow walkers. That's going to take them two days to walk. Yeah, that's right. They stick their forked tongues out and they, I think we mentioned this on the show. They eat things that are so large, but they digest so slowly
+
+[00:22:03] that they need to get the full thing in their mouth quite quickly to start that whole process. So what they'll often do is if half an animal is sticking outside of their mouth, they will ram themselves into a tree so to knock it further down their throat and just be like trying to get a nail in the other way.
+
+[00:22:20] I know people who eat like that. It's not doing. No one's pointing. fingers. Can I tell you about one rivalry that happened this year? A very, very bad rivalry. The annual Fat Bear Week. Oh, yeah. Different bears are pitted against each other and they're sort of assessed to see how much weight they can gain over the feeding up season. It was delayed this year after one of the contestants killed another bear. Oh. Bear 469 killed and, I don't know,
+
+[00:22:50] may have eaten Bear 402. That is cheating. That is cheating. Eventually the winner is just one in enormous, but. Yeah, there you go. Do you know that when he died, so he was stuffed, wasn't he? He was taxidermied to be laid in state. I think probably preserved rather than stuff. They didn't... I don't know.
+
+[00:23:11] I'm guessing. I think he was pretty stuffed at the end. He was, okay, yeah, maybe there's other terms. Tomato, embalmed? Embalmed? He was embalmed? Yeah. He was embalmed?
+
+[00:23:24] I just... He was stuffed by the exact same guy. I mean, the taxidermist looking out of the window halfway through working on a particularly tricky squirrel, oh my God. Clear the next. Anyway, the same guy who did Chairman Mao did him. No, yeah.
+
+[00:23:40] Should we talk about the history of minigolf? Yeah. Slash crazy golf, which I'm going to call it, because as discussed, it's more fun. But Garnet Carter seems to be the king of crazy golf. So some people made some little mini golf courses in their back gardens beforehand with fun stuff in it, but Garnet Carter, 1926,
+
+[00:23:56] made a Tom Thumb golf course and he put lots of elaborate obstacles in it. It was in a hotel that I think he owned in America and he patented it within three years of him making that one course there were 25,000 Tom Thumb courses in the US. There was a song about him. It was so famous.
+
+[00:24:12] There was a national tournament with a $2,000 prize which was like a billion dollars back then. And he, so he did very, very well. 1926 and 1929, 9029, bad year for America. His fortune wiped out, along with everyone else.
+
+[00:24:26] and he rebuilt it because his wife had a little garden or a little rock garden that she'd made and he basically employed someone called Clark Byers to spend 30 years painting the words see rock city in massive letters on all the sheds of America so that when you were flying over it you saw it and you went and visited his wife's little rock garden and it became one of the biggest tourist attractions in America
+
+[00:24:52] like tens of thousands of people went to his poor wife who was just hoping for some quiet time in her rock garden was descended on. And there are still these barn roofs all over America. Oh, there were like 20 years ago. They might have been rubbed off. Just saying, see, Rock City. That's amazing.
+
+[00:25:07] Isn't that incredible? I love it. So, you know, you can make something out of nothing. As we are, living evidence of, of course. Okay, so what about food waste? That's a big problem, isn't it? Yep, yeah. In Australia, you discard 3.1 million tons of food every year.
+
+[00:25:25] that includes 5 million bananas, which if laid end to end would go from Sydney to Melbourne. Okay. Shame on you. Is that a better use for them, do you think? It would be quite funny, but anyone walking and slipping all the way. Can I say something about modern photographs? Yeah.
+
+[00:25:48] Which I just think is very interesting. It's about photographs on Facebook, which is a form of social media. And there was... In 2011, 2011, Facebook became a big vehicle for people posting up their photos. In 2011, it became that, did it? It suddenly...
+
+[00:26:09] A lot of people had it even before that. Wow, God, yeah, but they were freaky early adopters, weren't they? Exactly. Not just any child at the time. Yeah, go on. Facebook gave people the ability to flag photos as offensive or whatever. Loads of people flag photos that seemed innocuous saying they were offensive.
+
+[00:26:26] So Facebook did a little survey, some questionnaires, and said, why did you people find these particular photos offensive? And realized they were all photos where the person thought they looked too drunk or stupid or ugly or fat or whatever. So they added an option that you can check. And obviously, as someone who's never on Facebook, I actually don't know if this is incredibly well known that it's there. But you could check an option when you flagged it, saying it makes me feel embarrassed as your reason for flagging it. And when they added that option, one third of people still chose other, and most of them wrote underneath, it's embarrassing. Because it makes me feel embarrassed.
+
+[00:27:03] Well, we don't know why, but they obviously mean the same thing, but it makes me feel embarrassed is like the problem is you. Whereas saying it's embarrassing. It's objectively embarrassing. This isn't to do with me. It's to do with this photo of me drinking from a hat.
+
+[00:27:18] I'm not the problem. Whoever looks like this is the problem. That's very funny. I was looking at concealing messages within text, which is what this is. Which is called stegonography. And, A, I found the etymology of that quite interesting. So steganography is the idea of, rather than other forms of code,
+
+[00:27:38] which, you know, is like when you've written in code that no one can unscramble, it's basically sending a message that you can't even tell his code, unless you're the recipient and you know what to look for, like, you know, an acrostic. So it comes from the Greek stege, meaning a covering or roof. And I just like that, because it's the same as stegosaurus. from when we initially thought, do you remember that you know the triangles that stick up on... The plates?
+
+[00:28:03] Thank you. That's what you should call them. The plates that stick up on a stegosaurus's back. They used to think that they were lying down and interlocking like a ceiling, which is why they called it the stegosaurus. Anyway, that's where steganography comes from. Okay, cool.
+
+[00:28:16] And one, a steganography technique, is that in ancient China, people would write secret messages on fine silk and all we know from the sources, and there are multiple sources that reported it, which was then scrunched up into a tiny ball and covered in wax, and then the messenger would swallow the ball of wax, and then the paper I was reading about this in and says, there are quite a few sources that mention this technique,
+
+[00:28:41] but no one mentions how the ball of wax was recovered from the messenger. So that is to be left to the imagination. I can't think of any good way that it comes back out. In 2010, a New York man had his girlfriend's name, tattooed onto his lip. And then in 2013, they split up. A bit of a shame. And then in 2014, he was fired
+
+[00:29:05] because his ex-girlfriend was called ISIS. Oh, no. Okay. I think that's not fair. I actually think that's really unfair. I think you should be able to have a name badge that explains the situation. Well, he could have tattooed on his upper lip, maybe, just saying.
+
+[00:29:23] Here's what happened. There wasn't a count by a tattooer. advice who said, this guy came in and got a collar rocker of the name Vanessa across his chest. Oh yeah? A what, sorry? Collar rocker? I don't know either. I like the way you confidently said it as if, yeah.
+
+[00:29:39] Bluff, then retreat. About midway through, I asked if Vanessa was his girlfriend or his mum, to which he replied, it was his ex's name, and he was getting it inked in an effort to woo her back. If I had known, I wouldn't have started, and suffice to say, when I saw the guy about six months, later, he was still single. What doesn't exist in the Corridation Street universe? The most famous moment in his career was when he went electric. He was a folk guitarist.
+
+[00:30:06] He'd put in some amps and he'd got an electric guitar. It happened at a very famous Newport Folk Festival, 1965. Huge controversy. No longer seems very controversial, but fine, whatever. You were expecting the ooh from the audience that one year. That news is broken. But in Coronation Street, this is very interesting. Ken Barlow, canonically, was present.
+
+[00:30:26] at the 1965 gig of Bob Dylan's in Manchester and heckled Bob Dylan. He's the guy who yells Judas? That's not Ken Balo from Coronation Street. The guy who shouted Judas was a real person. Ken Barlow is a character in Coronation Street of which Bob Dylan is a fan. So what I'm saying is Bob watches a show in which he exists.
+
+[00:30:45] Bob Dylan exists in the Coronation Street universe. I understood everything. But it could have been that Corrie had written into their plot that Ken Barlow was the famous guy who shouted to you like that. I'm so sorry. No, but thank you for. that absolutely patronising breakdown. I didn't understand.
+
+[00:31:01] You've got to know when to patronise Dan and when not to Andy. Not glue, man. Oh no. Do you guys know, do you eat Gropa a lot? Not many. But it's really popular and it was very popular in Maori culture and in Maori is called hapuku
+
+[00:31:17] and it's so common amongst Maori. Go on. Thank you very much. That'll be great for the edit. But just in case, why don't you say hapukkah. Yeah, no, I'm not going to leave it to this person. They're not on, Mike.
+
+[00:31:32] And Mary is called hapuka. It's not going to work with the noise, is it? Right. So I was sitting in a room today in New Zealand and a guy randomly overheard me talking about this called Wade and he came over and he said, my grandfather is an example of nominative determinism.
+
+[00:31:51] And so as a result, he then pulled out two unpublished books that he's written, which are all about characters that have names that are relevant to what they do. So one story was about someone called Robin Banks, who was Robin Banks, who had to get in the car for a getaway driver who's called Joyrider, and they bump into a man and bounce off him on the way to get away who's called Rick O'Shea.
+
+[00:32:12] And it sounds incredible. He hasn't published it yet. He's got a working title on it, so I think he's working on an actual title. But at the moment, it's called The Place Where the Names of the People Are the Things They Do. And that's Wade Beebe, if any publishers are at least. listening in. My wife publishes kids' books, but no, she's busy, Wade. This is such bullshit. This kind of thing just happens to you. The three of us slave away for days on end staring at computer screens. You loiter in a pub for a while and someone
+
+[00:32:44] comes up to you and tells you this stuff. It is time for fact number three, and that is my fact. My fact this week is that Ray Bradbury's 451 Fahrenheit has been translated into over 30 languages under the same title, except in Denmark, where it was published as 233 Celsius. I should have said 451 Fahrenheit. Do you know, I think you should have said Fahrenheit 451, which is what I...
+
+[00:33:19] Because that's the title. That's the actual title. I'm really kind of hoping that you say it clean in the next 15 minutes so that I can edit it in. Wow. So here's a picture of Ray Bradbury's Fahrenheit 451. Frisk. Nice.
+
+[00:33:36] Hopefully that works. There was a time in Soviet Russia where they did away with the conductors in a non-hierarchical communist society where everyone's equal, you don't need one person at the front who's like lauding it over everyone else. Is it the same time
+
+[00:33:53] that there were all of the airplane crashes on the tarmac at the airports in Soviet Russia because they decide to do away with the guy? Because they're like, no. We don't know. That's...
+
+[00:34:05] Buttons. This is a podcast. So when your punchline involves no words and movement, if you could help the audience at home. If only you did another podcast to give you the sort of professional experience you need. Hey, actually, speaking of that, there is another podcast. I mean, we don't usually like people bringing out their phones in a performance like this, but I encourage you to bring out your phone, go to Spotify.
+
+[00:34:29] What? There's a little podcast you should look up called The Cryptid Factor. What are you talking about? Never heard of it. I'm just, you mentioned it. I wasn't going to. I think you guys have talked before about how a sauerkraut was renamed Liberty Cabbage. Oh yeah.
+
+[00:34:45] And German measles became Liberty Measles. But we had a case in New Zealand as well. You got, like, I think you call it luncheon sausage. What? Do you know what luncheon sausage is? Yeah. Okay, like a processed roll of meat. Sort of like dog roll, but you might eat it.
+
+[00:35:01] Like a hot dog thing. No, no. No, no. Like a big old roll of hot dog meat that is sliced. Oh, okay. We just don't eat that. Yeah, well, look, you're missing out, mate. In Australia it's called Devon Meat.
+
+[00:35:14] But in New Zealand, it used to be called German sausage, but we renamed it to Belgium. But only in the South Island. Do you guys know what Belgium is? Yes. No one else in the world will understand this. Was I in the war? Or just recently you went?
+
+[00:35:31] We're not insane. Like, it was recent. And a rare, and I mean, it was, I mean. Aliens. Oh, God. No, stay with me here, stay with me. Aliens are more likely to be us time traveling back from the distant future than they are to be little creatures from another planet.
+
+[00:36:02] Okay. Are they not? Buttans, can I just quickly ask? You have had this theory for a long time. and I know for a fact that you've said it as a bunch of shows, but you did get one amazing opportunity to tell Neil de Gruss, Tyson, recently, your theory. How did he take it?
+
+[00:36:20] Did he... Were security called quite quickly? I believe the exact words were, get the fuck out of my face. Okay, audience. One, two, three. Get the fuck up. Again, obviously there's always going to be paranoia about whoever is the enemy. And the Germans in World War I were very paranoid about the countries they invaded,
+
+[00:36:48] the people in those countries, what were they plotting? And when they went into Belgium, there were lots of stories that Belgian children were going to do bad things to them. So there were all these rumours that little Belgian girls were coming and cutting off the earlobes in the upper parts of the ears of injured Germans, stashing them. And the little Belgian boys were coming and gouging out their eyes. putting them in churches, so there were churches in Belgium filled with soldiers, removed eyes. None of it was true. There weren't 12-year-old girls.
+
+[00:37:17] Might want to rethink your sausage, man. Well, I think that's what it was made from, just ears and eyeballs. This is a study that was done by metropolin, metropolitan, life insurance. Metropolitan. Metropolitan. want to have a guy, Anna? What's it like when you two are just doing it? Is this what your other podcast like?
+
+[00:37:45] Well, after, I just turned to chicken noises. Patrol? Patrol? I do have to say, after 10 years, how many podcasts is no such thing as a fish done? 500. 500 plus apps. The Cryptid Factor, 15 years, we just celebrated the other day, our 100th episode. Because it's.
+
+[00:38:08] because it takes us really long to form sentences. Hey, buttons, buttons. I remember that study, wasn't it from Metropolitan University? Oh, yes. Oh, this... Would you like to remind us about this study? Oh, fuck it. The person who cans the beer from Lerwick Brewery in Scotland
+
+[00:38:30] is called Phil McCann. No. Beautiful. That was sent to me on Twitter by someone called ASL Peterson. and there's a novel called An Office Romance by Iona Rose. That's lovely. You know, when she was Princess Juliana, she had a town that was named after her called Juliana Drop.
+
+[00:38:53] I was actually named after the birthing process, wasn't it? So this is a municipality in Den Helder. It's south of this Juliana Drop, south of the town of Den Helder, which is north of Sharpton. and west of Helen's Kroon. Okay. Is that in the Netherlands?
+
+[00:39:12] I actually didn't look that bit up. Yes, it is. Yeah, North Holland. So Holland's Kroon is next to that. Yeah, and so they named it after her, except it changed during World War II because there was some beefmen. They didn't want to name it that anymore.
+
+[00:39:25] So they changed it to Lop Yat Dorp, and then it reverted back to Juliana Drop again once all the beef got sorted out. So she's twice been named after a place, but the same place. Oh, wow. Lopiardorp. What was that?
+
+[00:39:38] It was a guy who founded the town called Pieter Lopiot. Completely different word the second time around. Cool. Oh, have you guys come across the German conductor? She's called Maira.
+
+[00:39:53] She's got three arms. What? Which makes her a way better conductor than anyone else. She actually has... Come on. So what happens is you can have... Like, normally a conductor
+
+[00:40:05] would have to be like you know, this side of the orchestra does this, this side does this, but you can only do two, but she can do three. This just sounds like a sit-up to a really great dad joke. I fear it might be. She's a robot. I see.
+
+[00:40:22] And she does it, instead of with baton, she does it with lightsabers. Oh. And there is a special piece called the Semiconductor's masterpiece, which uses this kind of technique of three different parts of the orchestra all doing different things.
+
+[00:40:36] Wow. semiconductor. I love it. One fact, which is not actually about World War I, but it is about sort of being paranoid about what the enemy is plotting. And it was 1870 in the Franco-Prussian War, which was, you know, a huge deal led to the
+
+[00:40:50] you know, Germany being a thing. And the Germans had lots of French prisoners of war and it was all over the German papers and all in a German rumemonger mills that the French prisoners were planning this huge mutiny and it was going to be a
+
+[00:41:06] Christmas mutiny, and it was based in the fact that they'd overheard them, these French prisoners of war, whispering the word rebellion over and over again. And so everyone was terrified about this, and people were put on hand, help out, and it turned out, it was investigated, it turned out that in France, the Christmas meal they have is called the Revayon, which I think we've talked about before. And it was just coming up to Christmas and all the French prisoners were going, what should we do for the Revayon? We're in prison, so it's going to be harder than usual, but maybe we can make it work. And all the Germans are going, they're going to rebel, there's a That's so funny.
+
+[00:41:38] It's not so cool. That's incredible. Well, that was, we spoke about a guy who's a local New Zealander who's up in, I think, Dunedin, who, when you were having problems with cacopos having sex, he was a saxophonist who came in and he played, they had a sexy room for the cacopos and he was there with a saxophone just like Kenny Ging it up. I've dealt with these allegations before, mate. It's time to move on. I, there's a story that I think it's quite heartwarming story, but about don't suspect your enemy of too many wrongs. And it's in World War II, there was an opera singer
+
+[00:42:15] called Viktor Ivanovich Nikitin, who was a Russian opera singer. And when the Germans were fighting on the Russian front, whenever he started singing, everyone stopped fighting. Really? Yeah, to listen to him. So he was, and he has an amazing voice friend. He was a very famous singer at the time. I think there were recordings of him.
+
+[00:42:32] So whenever he started singing, the Germans would pause their fighting until he was finished, and then start fighting again, and I don't know why. There must have been a lot of pressure to just keep on singing. But there was one night that the Russians thought, suddenly, hang on, the Germans have started contravening this rule whereby we stop fighting whenever this bloke sings, because something landed in their sort of trenches, and they immediately rushed to it screaming, it's grenade, it's a grenade,
+
+[00:42:55] they've thrown a grenade, and they picked it up, and it was a harmonica for them to accompany the opera singer. What an amazing way for war to be, like, maybe they should, have people in the trenches reading really gripping audio books out loud and just pausing on cliffhangers and just, all right, see you tomorrow. Let's all get some rest. There was a guy called William Howitt, who was one of the first people to write about travels in Australia. This was during the gold rush of the 1850s. He was in his carriage going down the road, and he saw a cricket game taking place in the middle of the road. He said,
+
+[00:43:32] this is not a very safe place to play cricket. And the reply was, get along with you. We do as we like here. You are not in England, remember? Oh, come on. That is such a lame put down. I can't even applauding that. Well, one of the first English players
+
+[00:43:50] to ever play in Australia, this guy called Roger Iderson in 1862. He wrote of the Aussie team. He said, I don't think mooch of their play, but there are a wonderful, good lot of drinking men. That's all you can hope for, guys.
+
+[00:44:05] So practice that. Just a big thank you. Something very special happened for us today. This is actually our second podcast recording of the day. The first one happened by a toilet down the road in a bar called Mean Doses. Really cool. We found out that Mean Doses have been playing us in their toilet on loop non-stop.
+
+[00:44:29] Thanks to Dave, who works there. And so we went over and we have recorded. Are you all Dave's mate? I wondered how we sold this out so quickly. So we went over there and we recorded what is effectively an exclusive episode that will only ever be played inside the toilets of mean doses.
+
+[00:44:52] Very cool. So if you want to be a completest of all the episodes, you need to go to mean doses. And if you go there tomorrow or in the next few days, they've actually made a no such thing as a fish chocolate stout, which is what I'm drinking here on. stage. So you can get some of that. And by the way, cool fact, mean doses is called mean doses because the owner of it is called Dean Moses. It's brilliant. Tourism, New Zealand have been
+
+[00:45:19] in touch and they're really excited that there's going to be a whole influx of tourists now coming to New Zealand for the Hobbit Caves and to sit in the toilet for 20 minutes. Listen to an episode to complete their listening. The good thing is after drinking that beer, you will be sitting in the toilet for 20 minutes. I'm choking. I'm choking. It's delicious. Okay, that's it. That's all of our facts. And indeed, that is all of our tour. We'll be back next week with a regular office-based episode, which I know some of you will be glad to hear. But I really hope you enjoyed that show. If you do want to come and see our live shows in the future,
+
+[00:46:03] I'm sure we will book a few later this year. If you go to no such things of fish.com forward slash live, you will see information about that. or you could go and look for our social media stuff. I'm not going to tell you what they are today. You can go to any other episode from our last 560 episodes, listen to the end, and you will see all of our social media information there. Not much more to say. Really hope you enjoyed the show. We'll be back next week.
+
+[00:46:28] As the great man, Andrew Hunter Murray, once said, bye.

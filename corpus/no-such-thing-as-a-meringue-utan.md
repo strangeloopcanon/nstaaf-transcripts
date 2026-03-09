@@ -1,0 +1,189 @@
+# No Such Thing As A Fish - No Such Thing As A Meringue-Utan
+
+- Episode date: November 1, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-meringue-utan
+- Slug: no-such-thing-as-a-meringue-utan
+
+## Transcript
+
+[00:00:00] So the episode you're about to hear was recorded at the Cheltenham Literature Festival, and every single fact in it is from the book. So it will give you a good idea about what you're going to be buying. It was an awesome gig. Hope you enjoy. And welcome to another episode of No Such Thing as a Fish, a weekly podcast this week, coming to you from the Cheltenham Literature Festival. My name is Dan Shriver.
+
+[00:00:38] I'm sitting here with Anna Chisinski, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Chisinski. My fact this week is that this year, the phrase, make America great again, adorned half a million hats and one anus.
+
+[00:01:03] I don't... That we know of. I think that is legally contentious as a way of describing the president. So this is, of course, the Maguck. caps. If you weren't living in a cave, the MAGA appeared on lots of caps that were sold throughout America.
+
+[00:01:22] But also, LGBTQ performance artist, Able as Kona, had himself tattooed, stenciled on the bottom with Make America Great again, with the Maga. And he said it was a subversive
+
+[00:01:38] action, so he said, The anus is a land of pleasure and a terrarium of empowerment for many. I don't know. A terrarium, terrarium. I thought a terrarium was where you kept ants. Oh, that's a formicarium. A terrarium is where you keep like snakes and things like that.
+
+[00:01:55] Oh, right, okay. So that's much better, right? Is it where you keep... Surely it's just a place that's full of earth? Yeah. I mean, already it's vexed, is the point I'm trying to make. So he concluded that writing a fascist political motto like that, his words, not mine, in my anus,
+
+[00:02:14] is a clearly critical and subversive action. So was it in the anus, is what you're saying? Oh, God. I think it was... Isn't wanted to know this, Andy? It was on the cast. It'd be surrounding. Yeah, that's what I would work as well.
+
+[00:02:27] He did say in, but I think it's on the edge. Inside, no, come on. You don't write the word polo inside the mint. You write it around the... So what's interesting about this guy is that he's done it, but he doesn't regret it. And we read a story last year about a guy called Joshua, who'd done a similar thing.
+
+[00:02:46] He was a big fan of Bernie Sanders, but he did regret his tattoo, which was a tattoo on his penis, which said, feel the burn. And then he did that in the primaries, and then Hillary got it, and he was like, oh, oh, I have made a terrible mistake. There's still 2020, isn't there? That's true. So do you know Make America Great Again
+
+[00:03:06] was actually Ronald Reagan's campaign slogan? Or his was not exactly the same. His was, let's make America. Great again. And also his next phrase, he's already worked out what it'll be in 2020. Really? Yeah, he's going to go for Keep America Great exclamation point. That's what he says. But unfortunately, that's already taken by a horror movie. It's in Purge Election Year, which is a movie that came out last year. Wow. So he's not allowed to use it? Well, I think he will anyway. Could he put maybe a question mark on the end instead or something?
+
+[00:03:42] Yeah. He did really specifically say the exclamation point when they asked him about it. Did he? Well, he said the words exclamation point, or he just said it like he says stuff. I mean, it's such, three years is such a long time in politics, isn't it? I think we can, you know, we don't know if that'll be the slogan. He might change it to something realistic, like, let us fight the cockroaches among the radio act of druids. He did get, he got in another legal copyright dispute. I mean, he has a lot of lawsuits all the time, but there was one lawsuit that Trump got involved in,
+
+[00:04:18] which was over an app for the iPhone, and the app was called I-Trump. Okay, so it was, and it was against a trumpet teacher, an amateur musician. He's a 40-year-old guy called Thomas Schaafeld, and they had this, I think, a six-year legal battle where Sharfeld represented himself in court against all of Trump's lawyers, and he won.
+
+[00:04:40] So the I-Trump now belongs to this trumpet guy. Awesome. Have you ever heard of Eddie Trump? No. I don't know of this guy, but so there's this pair of brothers, real estate developers, called the Trump brothers. One of them's Eddie Trump, in 2013 ABC News, had a list of the top 50 most influential ultra-high net worth individuals. There was one Trump on it. It was Eddie Trump, bizarrely.
+
+[00:05:04] But in the 1980s, they had this real estate company, and Donald Trump found out about it when he received a letter accidentally sent to him, which was meant for Eddie Trump. Trump. And so he spent the next many years trying to sue them for using the Trump name, his own name on their business, despite them and called the Trumps. And he lost that case. That's amazing. Similar. One of my favorite Trump stories from this year, and it's made it into the book under the title, protests, non-dirty, because we have a dirty protests section, is that a U.S. Cabinet member, who's Wilbur Ross, praised Donald Trump's trip to Saudi Arabia saying it was so successful that there wasn't a single protester, failing to recognize that protesting is illegal
+
+[00:05:49] in Saudi Arabia. And he was on a TV show talking about it, saying it was fascinating. There was not one bad guy with a bad placard standing there doing anything. And when the reporter said, yeah, but that's because he would go to jail for up to 15 years if he was standing doing that. He went, in theory, that could be true. Yeah, yeah. But really, it was amazing. Just no one was there. Well, he's not had the best time abroad, has he, Trump. He went to the G20, and he was sat next to at one of the dinners, the first lady of Japan. And he said it was quite tough to sit next to her because she didn't speak any English.
+
+[00:06:22] The problem is, if you go on the internet, you can look at videos of her, and she speaks perfect English. So she's completely faked it. Amazing. There was one line of his, which I think encapsulated a lot of the whole, presidency so far. This was something at Dan found. He was interviewed
+
+[00:06:44] and he said, I think we've had the most successful 13 weeks in the history of the presidency. Unfortunately, he said that only 11 weeks into his presidency. Actually, we wrote an article in the book on the inauguration, and we did
+
+[00:07:00] it in numbers, because that was obviously the big thing where he said, biggest inauguration ever, period. And Andy did this whole article about the the many little numbers that didn't get reported. Do you have any examples? Yes. Oh, what was there?
+
+[00:07:13] So the crowd was meant to be 1.5 million, and actually it was worked out at 3 to 600,000, which are still a lot of people. You mean 300,000 to 600,000? Sorry, I don't mean minimum three, maximum 600,000. No, you're right. What else was there? There were things, the number of cans of ravioli.
+
+[00:07:34] Ravioli that were confiscated by security for being a potential risk. to presidential security, which that was two. What was the thing about Don's Johns? Oh, yeah. All the all the Portaloo's for the crowds, who turned up, were brought by a company which is genuinely called Don's Johns. And
+
+[00:07:52] they feared that people might make jokes about this, so they covered all the labels up with blue tape on the day. So it's quite a thin skin direction. And they also confiscated from people coming into the inauguration bananas. So if you had a banana, it wasn't allowed in unless it was sliced. So they would say, may I see your lunchbox?
+
+[00:08:10] I'm sorry, that banana's in full form. We're going to have to take that from here. So another thing that Trump said that people called into question this year was that he invented the phrase priming the pump. To people remember that? So he used the phrase prime the pump. And then he said, have you heard that expression before? Because I haven't heard it.
+
+[00:08:28] I mean, I just made it up a couple of days ago. That's just the kind of thing I have to do. And, of course, he didn't make it up. It dates back to 1819, I think, in a Walter Scott story, which then I ended up reading in preparation for this. It's great. But Walter Scott's actually talking about a woman
+
+[00:08:44] who comes up to him at a party and says to him, I really loved your latest book, but he'd written it under a pseudonym. So she was actually bragging to him and saying, ha ha, I've got you, I know it's you. And so he's talking about how annoyed he is that she's trying to prime the pump with flattery.
+
+[00:08:59] But yeah, he also claimed this week, I think, or last week, to have invented fake news. Didn't you? I'd give him that. No, it was even just the word fake, because he didn't get to news. So I think he did mean fake news. But he's sitting next to Pence in it. And that's the best bit because he says,
+
+[00:09:17] not many people know, I invented the word fake. And Pence is like, yep, he did. He's such a good best friend. He's so good. It's not done him too much harm. So, for example, since the election, at least two babies in Iraq have been named Trump. So he's got that.
+
+[00:09:34] That's a takeaway. they're going to go through life answering questions about that. Well, here's an interesting thing. I went to Kosovo quite a few years ago, and I was told while I was out there that a popular name that was happening amongst boys in Kosovo, new names, was Tonnebler, T-O-N-B-L-R. And it's a tribute to Tony Blair because of the...
+
+[00:09:56] I think there's a Bill Clinton Boulevard in Pristina, isn't it? Clinton in Pristina. There's Clinton up on buildings. Everywhere you went, there was pictures of Clinton, and Tonnebler is a name in Kosovo now. But the problem is with Donald is no one's being called Donald anymore, are they? Oh, that's true. I think there are only something like two babies called Donald in Scotland even last year.
+
+[00:10:17] Wow. Even in Scotland. It's the home of Donald. It's the home of the Donald. If you're only a Donald in Scotland, where can you? And apparently they did an interview with a guy who was called Donald, and he said he had to apologize every time he went to Starbucks. But that's because he took a poo on their counter.
+
+[00:10:34] Why did he apologize? Because they say, what's your name? And he goes, Donald, sorry. So we're saying about Scotland. Donald Trump has some golf courses in Scotland, and for one of those, he wanted to have a crest for his family. So what he did was he took an English crest and stole it and put the word Trump at the bottom
+
+[00:10:56] in place of the word that was there before that, which was integrity. That's incredible. We're going to have to move on. second fact because we're running on a tighter podcast schedule tonight. So we're going to move on to our second fact now, and that is James. Okay, my fact this week is that East Ender's star Adam Woodyat was beaten in the London marathon this year by a man in a sleeping bag, a woman in a full-body dinosaur suit, and a man
+
+[00:11:25] carrying a tumble dryer. So he did the course in seven hours and four minutes, which is... Is that slow? It's quite slow, yeah. Okay. They reckon one of the reasons might have been because he was doing so many selfies on the way. Okay.
+
+[00:11:41] But, yeah, there were 73 world records attempted at this year's London Marathon, and 39 were broken. So this sleeping bag was broken, the dinosaur was broken. The fastest marathon ever run by someone dressed as a witch was broken. That was by Nicola Nuttall from Pendle. And she thought she'd broken the record last year, but they nullified her results because her skirt was too short.
+
+[00:12:07] Oh. Yeah, apparently witches have to have a certain length of skirt. Did not know that. How sure was Adam Woodyat's skirt? He's, I bet, I mean, are there any EastEnders fans in here except me? No, wow, not a single one. No overlap between Charlton Literary Festival in EastEnders. They all look like Hemadale fans to me.
+
+[00:12:27] Yeah, you're right. Well, he's always doing embarrassing stuff in EastEnders, so this just fits with his character. Maybe it was a bit of method acting. No, I'd never really heard of Adam Wood yet before this. Phil Mitchell once flushed his head down a toilet, okay? Did he? Yeah, he did.
+
+[00:12:40] Oh, my God. I have a question about the sleeping bag person. Yes. Did the sleeping bag person run it with the sleeping bag on this way or this way? Sorry, I should clarify for people listening to this because it's an audio thing. The thing is, how many ways are, though? You said this way or this way? Yeah, no one's at home going, well, there's at least six ways.
+
+[00:13:02] Sorry, okay. I reckon, and I don't know this, but I reckon it must have been like this way. Oh, I see. Yeah, thinking about it, that makes most sense. You're right, yeah. I think like one of those sack races. Yeah, but I think I would run faster
+
+[00:13:16] if I unzipped it a bit of the legs and had it on over my head with some eye holes. Eye holes, but you can't have eye holes. It's a world record. It's cheating, come on. Is that cheating? I think so. It compromised the sleeping bag, I guess.
+
+[00:13:28] Yeah, and some other records beaten. The fastest marathon, as someone dressed as a... swimmer, a star, a crustacean, an elf, a fast food item and a toilet roll. Dressed as a swimmer? That's the least effort I've ever heard anyone put into a costume. It'd be great when he passed the starfish and the crustacean, because he could just make it look like you're singing on the water sitting. Yeah, did he have to act out like he was swimming? No, he just wore trunks.
+
+[00:13:54] Right, yeah. That's not, if anything, that should be faster than the runners, because he's got less air resistance. He should have won the actual marathon, shouldn't he? Yeah. What's amazing as well is, none of these are set new records. These are all broke existing records. So there must be a massive list somewhere where people are going, I really want a record, what do I need to do?
+
+[00:14:12] I can dress as a giant hot dog. Okay, I'll go and I'll try and smash that one this year. So that's all they've done, right? Yeah, I guess you're right. What about this tumble dryer guy? Oh, well, he was, I can't remember his name. It's in the book. He basically decided he wanted to carry an item of kitchen equipment,
+
+[00:14:30] and it was allowed to be any of them. But he tried originally with a fridge, I think. See, I would have gone spatula. I would have immediately... He tried with a fridge and then decided it wasn't really working because it was too big and then went with the tumble dryer. And apparently in his hometown, he was practicing and he kept being stopped by the police.
+
+[00:14:50] He thought he was the world's most brazen thief. The great one is the gorilla. I'm sure. Did you guys see the guy who did the marathon as a gorilla? He was a policeman, was. Yeah, yeah, that's right. So he completed it by walking as a gorilla, and it took him. He didn't walk as a gorilla, did he? He was like on his hands and knees. He was on his hands and knees. He was quoted because he was stopped halfway through the race or along the race asking
+
+[00:15:16] any advice for anyone who wants to travel as a gorilla in a marathon and future. And his quotes is, get a bit more training in. We only did about four crawling sessions beforehand. I'd also recommend painkillers and bloody-mindedness. Anyway, I better get crawling. Even worse for him, they confiscated his bananas at the entrance, didn't they? So unfair. But he was even slower than Adam Wood yet, wasn't he? He was like, was it six days? Six days and eight, six and a half days?
+
+[00:15:45] Yeah. That's a lot slower than Adam Woodyard yet. In Adam Woodyard's defense, he wasn't there for a week. No, you're right. But I think in order to get a medal, you need to do it in something like six hours. So he was only six days out. But there is a lot of sport in this book, isn't it? There is. I was going to say, can I quickly read out my favorite sport fact from this book?
+
+[00:16:06] Now, this is a fact that was found from James, found by James. And that is a non-league footballer in Aberdeen missed the goal so badly that they found the ball 1,800 kilometers away in Norway. So his shot went past the goal. It went into the River D, and it just went into the North Sea, and it just floated away. And then ages later, because for the fact that they had the name of their team on the ball, they got an email from a small island off the coast of Norway called Vana,
+
+[00:16:39] who said, we've got you're a ball. And so they returned it, and they have the ball back again. That's so sweet. This week there was a fifth league football match in Romania that had to be called off before it finished because all of the spare balls ended up in the river. So they had like a dozen spare balls, and then they had to finish.
+
+[00:16:59] It was something like the 58th minute. or something, they had to end the match because they didn't have any balls left. So these things happened. Stop playing by rivers and seas. We should move on to our next fact again. Tightish. So we're going to move on to fact number three and that is Andy.
+
+[00:17:17] My fact is that the Queen's nickname is Gary. Is that your personal nickname for her? No, it's even better. It's a family nickname for the Queen. So this was something we found out this year. and it's something that Prince William called her when he was a child
+
+[00:17:35] because he was unable to pronounce Grammy so he would call her Gary instead. I just think that's very sweet. Apparently Prince Philip calls her cabbage. Oh, okay. Do we know why? He can't pronounce Elizabeth. She comes out like that. He retired this year, didn't he? That's in the book.
+
+[00:17:57] Oh, yeah, we wrote about that. So he retired this year, it's been a huge disappointment to this one small island at Vanuatu, an island called Tanner, because the people who revere him as a god have been waiting five decades for him to come, and he's now no longer coming. So they're devastated. It's really, really bad news over there for them. They must have seen it coming when the clock ticked over on the fourth decade. He's a god. He's a god, yeah. He's a god. He's still retired, are they? I guess not.
+
+[00:18:26] No. Apparently, one of the things about that is if he and the queen ever, went to this island and the queen ever witnessed him publicly drinking Carver, the local drink, then local etiquette dictates that she would have to be instantly executed by a single blow to the head with a vegetable. We found out another nickname, whose nickname was it? Oh, Camilla, Parker Bowles, who's the Duchess of Cornwall. The Duchess of Cornwall. She said that her nickname at school was the growler.
+
+[00:19:01] Because I expected more from you. Because she was so bad at singing is the reason. Sean Spicer was once called Sean Sphinctor. I think he was called that in a... Was it when he was at uni? And one of the university magazine called him Sean Sphincter. And then he got very, very upset. And they said it was just a totally innocent autocorrect.
+
+[00:19:28] But it's hard to believe. I don't think autocrite can have existed when Spicer was at university. No, and also Spicer is a word, isn't it? This is a great one. This was a scientific paper published this year. This is just to do with names. There was a paper published about the evolution of the horse hoof, talking about the number of toes it used to have,
+
+[00:19:51] because it now has one toe, and it used to have more. The lead writer of that paper is called Brianna McHorse. McHorse is a surname. She sounds like she was named by the internet, doesn't she? Yes, she does. She's a Bodie McBoat Horse. Yeah. Yeah, it's true.
+
+[00:20:08] This is like, so Canada got a new national bird. This is in the books, I think it was last year. So Canada's new national bird is the grey J, but the person who set up the campaign for them to get a new national bird was called Professor David Bird. Oh. That's good. That reminds me, there's a tennis player who's currently playing.
+
+[00:20:26] He's a tennis player from Tennessee, and he's called tennis. No. He's called tennis sandgrum, okay? and on Wikipedia it says although tennis sandgrun is a tennis player from Tennessee he is actually named after his great grandfather who did not play tennis and was not from Tennessee James you found out about the names of the year
+
+[00:20:53] oh I love those guys yeah there's an online competition every year to find the best named person and it's all real people from all over the world and it's done by an online vote and I'm sure you have some of them. Well, I know that the winner was Boats Boats. Yep. Have you just said to James you found out about the names of the year
+
+[00:21:12] and then relied on him? No, I've got them here, but I don't want to take credit for them. Well, let me say the people who boats, boats beat to get to the final. He beat Eliza Fox Teets, Bird Love God, Aphrodite Bodycomb, Quindarius Monday, and Andy Brandy, Casa Grande. But we've actually, as we were writing this book, we've come across loads of better names even than those, haven't we?
+
+[00:21:42] Yeah, yeah. I really like, this is one that's under the entry, Kinky. This is further down, but just for the sake of knowing, Europe opened its first sex doll brothel this year. And it has a staff of four dolls and stuff. Just letting you know, it's in the book. But in that article, in the Kinky article, I found this year that there is a cop in America
+
+[00:22:05] who was suspended from the force after it was discovered that her previous occupation was a dominatrix and that's what she did and her name is Officer Hyman that's her name and she was told she could stay on on the condition that she passed a psychiatric exam
+
+[00:22:20] to prove she wasn't prone to using excessive force did you guys see Tatella released a list of poshous baby names in the last couple of weeks it was bizarre So, anyway, it shows weird self-awareness of Tatler to say, these are the poshist names. We know about this. If we know about anything.
+
+[00:22:39] And it said, for girls, it said, these are real names, we promise, with no evidence to back that up. But it said, for girls, best names you can name your kid are Scar, Zaza, Figgie, or Monovene. And then for boys, you could call your son Barclay, Mao, which, presumably, ironically. Aftly chairman. I guess so. Well, you wouldn't call him chairman, would you? Other names they recommend for a boy, wigbutt. Whigbutt?
+
+[00:23:08] Yeah, so maybe rethink your exorious, quail, and Peter, but starting with an N, but the N is silent. Oh, cool. I've got another one, which is that this is under the entry Northern Lights in the book, and we found this amazing thing. It was found in the middle of last year, but it's been debated about since last year, up until this year, and they finally announced that they finally know what it is.
+
+[00:23:35] So they thought that this was a part of the Aurora Borealis for years. It was a light phenomenon that was happening in the sky, thought it was just a part of the Northern Light. And there's a Facebook group of Aurora Spotters who kept looking at it going, I'm not sure that this is the Aurora Borealis. And it turns out they were right that it was this amazing new light phenomenon that's been there since, you know, since we've had eyes and seen things. Maybe even before that.
+
+[00:23:58] Maybe even before. Well, actually, that's a good point. Yeah. So just like two days before we had eyes, that started. And so that's incredible. Unfortunately, it has been named by the public, so it's now called Steve. You've got some beautiful steves. Yeah.
+
+[00:24:19] And they tried to backtrack it to say, oh, that it has a real scientific name. So what they said that it might stand for is strong thermal emission velocity enhancement. But actually, it's named after a cartoon. called Over the Hedge, which is a sort of animation for kids, and it's a talking squirrel who names a hedge, Steve, and that's why it's got its name. I think just don't ask the public to name things. Don't ask the public, yeah. There was an orangutan with white fur it was that was found this year in Borneo, and they
+
+[00:24:51] asked the public to name that. It's the first albino orangutan that these guys have ever found, and the public actually came up with a decent name, which was Alba, meaning white, which is quite good. They sensibly ignored other suggestions, such as meringue utam. I stand by my decision to submit that. And orang-no-tam. Which is really good. You didn't have to move on to our final fact of the show.
+
+[00:25:28] This is my fact, and this is under Queensland. Australian Queensland Police successfully lowered crime rates this year by asking victims to stop reporting crimes. So this was discovered in a report that's been carried out, I believe, from 2011 to 2016. They noticed that the crime rates have gone down, they thought this is going great, but then they noticed that there were all these things
+
+[00:25:52] that were leading to the fact that no crimes were being reported, amongst them were things like they didn't say that something was a crime, they would say it was an unfounded thing, they would write to the people who had reported crimes and say, just want to check that you actually did want to report that crime. Let us know in the next seven days. If we don't hear back from you, we'll just assume you didn't want to report that crime. And so as a result, they lowered it by a huge amount.
+
+[00:26:15] They discovered 22% of all the cases that were logged in the police force were using this method to stop it from being reported as a crime. And the reason being is they were getting mounting pressure from the government saying, your crime rates are so high, we need you to get them down. And they went, well, there's a very quick way that we think. But did you see the other way they tried to... Brisbane's in Queensland, right? Yeah.
+
+[00:26:36] Okay, so this is another way they tried to cut down on anti-social behavior. Brisbane launched a don't be a dickhead campaign. Oh, yes. Yeah? Apparently, Queensland Fortitude Valley's police guy, Simon Turner, said, Dickhead is a term that means your behavior is unacceptable. Oh, what? You're either a decent bloke or a dickhead.
+
+[00:26:58] Well, this casts a very new light on my school days, I must say. Yeah. And while this was happening, there was a Queensland banana farm worker called Lee DePal, and he tried to impress a girl by jumping into a river after drinking about 10 cups of Goun, which is like wine. Goon is boxed wine that comes in a, what looks like, alien tinfoil. Okay. With a little thing.
+
+[00:27:25] It comes with a box outside it. Yeah. But then you can, yeah, fit it in your bag if you squeeze it in. That's not the important part of the story, guys. We all know about boxed wine. I'm selling goon today. What you can do is when you finish it,
+
+[00:27:37] if you're very drunk, which I've done, as I'm Australian, you'll be out in a park on your own and you'll be like, I'm really tired and I've just finished my goon. You can actually blow into the goon and blow it up like a pillow and then fall asleep on the... So it's a really practical drink, actually. You can't do that on an empty bottle, for example. And they've never thought of that in their marketing.
+
+[00:27:58] And I think they definitely should. Very good point. Well, he could have blown it up and used it as like water wings or something because he jumped into this river to impress a girl and was immediately mulled by a three-meter-long crocodile. I don't think water wings stop crocodiles. Well, he managed to fight it off, but the lady who was trying to impress Sophie Patterson said,
+
+[00:28:19] being attacked by animals doesn't really do it for me. She's a weird one. Well, she did say I'd have to be quite twisted to be impressed. by that. One of my favorite criminals of the year was he was in the balloon section and he was a man who was fined this year
+
+[00:28:38] by a court in Canada for flying up in a chair with lots of helium balloons attached to it. Surreal thing, he was inspired by the film Up and he did it to promote his cleaning company. Another cartoon. Another cartoon. He was trying to fly high enough to see Steve. And he
+
+[00:28:55] flew up. He flew up 4,000 feet? He flew out 4 kilometres. So 4,000 metres. Two commercial airliners flew underneath him while he was up in his chair. He landed safely. He injured his ankle slightly on landing, but he was otherwise fine.
+
+[00:29:11] And the court fined him. They said he had been, what was it? Unconscionably stupid. But you can't agree with the court. I mean, you just read that story and you go, what an absolute hero. Look, I know I should disapprove, but my God, that's cool. This was my favorite crime story from the year.
+
+[00:29:28] A used car dealership in Fort Worth and Dallas was being robbed so many times, just constantly getting robbed, the police weren't able to stop it, that the guy who ran it, the owner, bought a guard dog. So he was like, great, guard dog here, stopped the robbers. Did not stop the robbers. Robbers came back, robbed the place again, then, as they were leaving, stole the guard dog with them.
+
+[00:29:48] Poor guy. There was also a good similarly fitting crime. It was a news crew had gone to cover the problem of urban, urban crime in Albuquerque and the, as they left their van where they had all their filming equipment and they went to film about urban crime and they came back and they were found with all their stuff and it had been stolen. And so Michelle Donaldson, who was the news director, said, I have one rule that you should never be the lead story in your own newscast.
+
+[00:30:14] This has violated that rule. Andy, you went on a trek on the internet to find as many bandits as you could, didn't you? Oh yeah. So you get people nicknamed the such and such bandit because. they robbed, you know, a particular kind of place. So one example is the coast-to-coast bandit who only robbed banks in New York and Los Angeles. Yes. And there was, what was there?
+
+[00:30:35] There was the lunchtime bandit who only robbed banks between noon and 1pm. And the bag trick bandit who kept putting his hand in his pocket and pretending to have a gun, but he didn't have a gun, that was his clever trick. The Spelling Bee Bandit? Spelling Bee Bandit. Oh, the Spelling Bee Bandit, he would pass a note to the cashier in the bank
+
+[00:30:54] saying, this is a wrong. robery. And this one probably doesn't need explaining, but it's the Texas butthole tickling bandit. He was from Texas, I think that's why he got that name. I knew you were going to read that one. I liked one of my favorite criminals was in North Carolina, and so this was this year when a $500 million opium growing operation was busted,
+
+[00:31:22] and it was when an investigator visited someone on a complete, unrelated matter, knocked on this guy's door, he was a farmer, knocked on his door, and he opened the door and said, I guess you're here about the opium. Well, now. I really like this one. So when we decided that we were going to write this book, we started this document between us, and every week we started putting in sort of our favorite headlines or little facts that we found. And to begin, we didn't know if this would work as a book, because we'd never done it before, we'd never tried. and I saw this one fact which was sent by James. You put this into the document and I thought, oh, this might actually work. And it was an arrest, and it's under in the book, arrest, comma, human.
+
+[00:32:06] Surprisingly, we have an entry which is arrest comma, non-human. A man in India this year was arrested for trying to create a fake ID card using the name, Osama bin Laden. So he thought, this will work. I'll just put Osama bin Laden's name on this. Not only that, he uploaded a blurred picture of Osama bin Laden as the picture of his ID card.
+
+[00:32:26] So the police investigated and they arrested the man. The man, it turns out, his real name is Saddam Hussein. Just extraordinary. Okay, that's it. That's all of our facts. Thank you so much for listening.
+
+[00:32:45] If you would like to get in contact with us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland, James. James Harkin. Andy. At Andrew Hunter M.
+
+[00:32:57] And Chisinski. You can email a podcast at QI.com. Yep. Or you can go to our website. No Such Thing as a Fish.com. We have all of our previous episodes up there. Our book is now out. It's November the 2nd.
+
+[00:33:10] It's in shops. Please buy it. Thank you so much for listening at home. Everyone in the room here at Cheltenham. Thank you so much for being here with us tonight. We'll see you again. Goodbye.

@@ -1,0 +1,329 @@
+# No Such Thing As A Fish - No Such Thing As Swimming In The Sky
+
+- Episode date: December 20, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-swimming-in-the-sky
+- Slug: no-such-thing-as-swimming-in-the-sky
+
+## Transcript
+
+[00:00:00] Hi everybody. Just before we start this week's show, we have a bit of special news. If you look at the episode number, we have done 300 podcasts. It is quite astounding, isn't it? Who would have thought it when we put that first episode out and we accidentally said it was a weekly episode that 300 weeks down the line, we would still be doing it? Thank you so much for continuing to listen if you have done. If you stopped listening some time ago, you probably won't hear this bit, so don't worry about it. Another really exciting thing about the 300th episode is it was recorded live in Vienna, of all places, because we got given an award. Yes, this is the Heinz Oberheimer Award for Scientific Communication. Heinz Oberhomer was a physicist, he was a great Austrian scientist communicator and, you know, just scientist as well as anything else, and comedian. He very sadly died several years ago, but his colleagues have set up this award in his name and we were honoured. we were so honoured to receive it
+
+[00:00:57] I really hope you enjoy the show because we had a great time making it as well we had a right good laugh on this episode are we going to say buy the book this week do you mean are we going to say this is your last chance to buy the book of the year 2019 an incredible book full of the most interesting stuff that's happened across the entire planet this year I wasn't going to say that no I don't think we should say that no no and I probably wouldn't explain the things that are in the book
+
+[00:01:20] oh what like the lawnmower records and the British government hunting down a single bee and the women Rob Cap and all the amazing stuff. No, absolutely won't mention that at all. Great. Probably won't mention where you can buy the book. Just bookshops, isn't it? And online.
+
+[00:01:33] Yeah. And we've already not mentioned the name of the book, but should we not mention it one more time? Oh, yeah. Let's not mention that it is called the Book of the Year 2019. Okay. But let's definitely mention that this is our 300th episode. Okay, on with the podcast.
+
+[00:01:46] And Merry Christmas! thing as a fish, a weekly podcast this week coming to you live from the Heinz Obahuma Award ceremony in Vienna, Austria. Dan Schreiber, I am sitting here with Anna Tazinsky, James Harkin, Andrew Hunter Murray, and once again we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with my fact, my fact this week is that the last TV show that the award-winning M.E. prominent physicist, Heinz Oberhum, made before he passed away, was called, The Universe is a Shithole.
+
+[00:02:55] The whole universe? The whole universe is a shithole, according to a man who studied it his entire life. This is, I suppose some people in the audience will be aware of this show. It was also transformed into a book. This is the actual book here. Das universeum is an schisegagent. From the audience's reaction, I'm not sure you quite caught that. This was given to me by Heinz's wife, Doris.
+
+[00:03:25] Thank you so much for this book. And yeah, so the reason we're mentioning this fact tonight is because we are actually the recipients of the award this year. We are the 2019 Oberhumor recipients. It's very exciting for us. But he'd lost his faith in the universe by the end, apparently. Why did he think it was such a shithole? Okay, he was an amazing physicist.
+
+[00:03:49] He was an astrophysicist, he was a nuclear physicist. This is a guy who had a whole career behind him of sort of doing proper amazing science. But he also had a fantastic sense of humor. And in the sort of later half of his career, he met a group who have given us this award tonight, the science busters, who are a big Austrian collective of comedy geeks like us. And the whole thing was they would present ideas that were funny as well as being really interesting. And this idea was to do with the fact that the universe, it's such an inhospitable place. Everywhere you go in it is horrible.
+
+[00:04:25] There's only a tiny little bit of it that is quite nice, Earth being one. The rest of it, shithole. Yeah, if you got dropped anywhere in the universe, the chances are you would die almost immediately. Right. So you're probably not going to end up on a planet. You might be in the middle of space. You might be in the middle of a star, in which case you're almost certainly going to. to die.
+
+[00:04:47] Almost, almost certainly. You are confident sometimes about your own chances. People from the north of England are very confident. No, because Carl Sagan, the famous Carl Sagan, the scientist, he wrote that space is so empty
+
+[00:05:03] that if you were randomly inserted into the universe, your chance of being on or near a planet is 10 to the power of 33 or one against that, which is 10, followed by 32,0. And to put that into perspective, if you were to take every bacteria on Earth and put it in a random place in the universe, and you did it every single day for a year, only one of them would
+
+[00:05:28] end up on a planet. Whoa. And that's even on a planet, not even on Earth. No, it's very unlikely to be Earth. I mean, it's so annoying for the bacteria, because they're on Earth to start with. What kind of a weird prank was this? It's kind of a terrible package holiday company for bacteria. And it's not just planets, is it? It's anything as well. So the chances are you would have nothing
+
+[00:05:51] around you. The universe is almost entirely made up of what are called voids, which is just a fancy word for nothing. And so I didn't really realise this, but if you really zoom out on the universe, which is hard to do, then it basically looks like a cobweb. It's connected by sort of threads of galaxies where all the stuff is. So, you know, the stars, the planets, the moons, the nebulae, and the rest of it is literally nothing. The occasional blob of helium may be, if you're really lucky, on an exciting day. So I was looking at ways of improving the universe,
+
+[00:06:24] and some people have done some calculations on what would happen. So if you filled the whole universe with breathable air, you would think this is a good move. It would collapse within 24 hours. Oh, nightmare. Nightmare. Also, let's just shrink it down. If you filled up the solar system with air,
+
+[00:06:42] what we think would happen is that because there would be air in the 93 million miles between Earth and the Sun the Sun would be loud enough because there are all these air molecules to pass on the sound it would be loud enough to cause you physical injury
+
+[00:06:56] it would be like having a train horn one metre from your head all the time all the time right but you wouldn't be able to see it because the air would be so thick for 93 million miles that you wouldn't see what was making the noise. Right.
+
+[00:07:14] But does it matter if you can see it? What are you going to turn that? What do you... I think it is quite important that the light from the sun reaches our planet. I'm really happy about that. That defeats the whole object of the sun, right?
+
+[00:07:28] We don't want it for its noise. But it would still be very hot. It would be very, very hot. And loud and dark. Yeah. It's like being in a nightclub forever. So we've got it good. We've got it good.
+
+[00:07:40] Because light candy was so... saying if you ended up on a planet, the likelihood is it won't be as nice a planet as Earth. So for instance, there is a planet called Corot 7B, where it's always raining, but it's always raining rocks. And the temperature is around 2,800 Kelvin, which is almost 5,000 degrees Fahrenheit. But the one good thing about it is it's so close to its star that the year lasts only 20 hours. and so that means it's your birthday every day. Oh, that's cool.
+
+[00:08:16] But it's also New Year's Day every day, and you're so hung over every day from New Year's Eve the night before. I found a planet that would be horrible to land on as well if you got there by chance. It's called HD 189773B. Very catchy name. It's 63 light years away from us, and one of the main issues with it is that it's raining a lot. but the rain isn't, it doesn't go vertically down,
+
+[00:08:44] it goes horizontally across the planet. That's not so bad. We get that in England sometimes. We do get that. The problem is, is that the surface temperatures is such that the particles condensed to form glass, so it rains shards of glass at 4,000 miles an hour, constantly around the planet.
+
+[00:09:00] We birthed out. Two, ow. Let's go back to rock planet. Wow. I was looking at other things that could happen that would be a bit catastrophic in the universe. and do you know what would happen if the moon turned into a black hole with the exact mass of the moon? Okay, I'm going to say bad.
+
+[00:09:22] Just bad things would happen. That's fair? It's a fair point. So black holes, usually quite big remnants of like massive, massive stars that have had this huge exotic death and then collapsed it on themselves. So that's a black hole usually. But then they've got this like enormous mass. So if there's a black hole with the same mass as a moon, they've got this enormous density, sorry. That would be extremely, extremely small,
+
+[00:09:49] but it would pull everything that came quite near it towards it. But other than that, nothing would happen. So Randall Monroe did this. The moon would disappear. We wouldn't see the moon because it's got the same mass as the moon had. It's just a little black hole. The only thing that would happen is there'd be a tiny little black hole, and if a little bit of dust was drifting past it,
+
+[00:10:08] it would get sucked in. Okay. Or a little flower. or something. The world would be less romantic without the moon. The world would be less romantic, yes. And we do get a bit of heating from the moon, so that would go, and so that would put off
+
+[00:10:20] global warming by about two weeks. Great. Great. So this is really a last plan to deal with global warming. The emergency. Extinction rebellion, if this was their plan that they revealed after all these protests,
+
+[00:10:37] turn the moon into a black hole. Two more weeks. One bad thing that could happen in the universe is the entire universe could die due to a massive bubble. Okay, this is the thing that astronomers have looked into is called death by bubble. That's what it says on the tin.
+
+[00:10:56] And the idea is quite complicated, but the idea is that the universe is at a certain energy level, and that is not the lowest energy level it could possibly be in. And due to quantum physics, it might go down one level, and then there would be a massive bubble
+
+[00:11:10] and it would just eat up everything in the universe. And there was a new paper published in the journal Physical Review D, and they said they've worked out when this is going to happen. So the universe may be killed by a death bubble somewhere between 10 octodacillion years, which is a one with 58 zeros after it, and 10 quid quadradiolian years, which is one with 139 zeros after it.
+
+[00:11:39] Okay, and according to the lead, lead author, that is a very, very, very, very, very, very, very, very, very, very, very, very, very, very, very, very, very long time. So is that just the range of when it's going to happen? Yeah. It's like a delivery slot from a supermarket. So this is, the thing we're talking about, this is Heinz-Oberhumor's sort of big work, wasn't it, when he was, when he was sort of in his proper science stage?
+
+[00:12:09] Yeah, so a lot of... of his works were more about the fine-tuning of the universe. So, for instance, the fact that you have certain particles in stars, and if the forces between them was changed, even by something like 0.4 percent, complete
+
+[00:12:24] life would be completely impossible. The stars, which currently make carbon and oxygen, they'd either make just carbon or just oxygen, so we wouldn't be able to have any life whatsoever. And it's all about the unlikely of life and the likelihood of all this. Yeah. But then,
+
+[00:12:40] I mean, there is also a likelihood of life given the size of the universe, right? According to a lot of scientists. But then the bad news about that is, if we ever bump into it, it'll probably want to kill us. So it seems like Stephen Hawking's final warning before he died was that if we meet aliens, they're going to want to destroy us all because the chances are if an alien gets to us, they're a nomadic alien. They're looking for land. Otherwise, why have they left?
+
+[00:13:05] And if they're looking for land, they're going to wipe us off their land. It's basically, we've set an example, constantly throughout history by going to different countries and then, you know, conquering those, they're going to do the same to us. So we need to be advertising to the aliens that it's all a shithole and then they won't want to come here.
+
+[00:13:22] Exactly. Heinz's master plan. Could I tell you quickly my favourite fact about Heinz? Yes, please. Oberheimer was a word when he was doing speeches in English that he would say to the audience, this might be a word that you find hard to pronounce. So why don't you call it?
+
+[00:13:39] call me by my other name, which is the translation of that, I go by Chief Lobster. Wow. Chief Lobster. Homer Lobster and Oba being a sort of chief character. So, yeah, so he wanted to be known as Chief Lobster. And apparently he used to do gigs like the gig we're doing right now, you know, in front of an audience. And he always used to get really hungry.
+
+[00:14:04] And after getting really hungry, after a gig, he'd go and find a sausage stand, which was out after the gig. and one night it was too late and a sausage stand was shut and he had no choice but to go to a Burger King and he was like I don't want to go to a Burger King
+
+[00:14:17] Is this when he realised the universe is a shithole? No, apparently he went into this Burger King and suddenly, because in Austria he's such a famous name but kids love him he's such a great communicator everyone in the Burger King queue
+
+[00:14:29] was like, Hyde oh my God it's Hydez Omaha oh my God this is amazing so from then on after every gig he found the local Burger King and made sure that he was was recognized by everyone inside. And I think my favorite thing from this award is that we've been given,
+
+[00:14:45] the actual award itself, is from a farm that his family runs, which is alpacas. And these alpacas, obviously, have poos. And our trophy tonight is a collection of their poo. That is the award, which is unbelievable. And we saw it being made. We saw our trophies being made. Well, we saw an alpaca having a poo.
+
+[00:15:11] Who knows? In fact, I think we helped next year's trophy be made because we were invited to see these alpacas and meet them and they're amazing and we fed them. So actually, next year's winner, hopefully will thank us for contributing to the making of their trophy. Yeah. Because that's only going to come out the other end.
+
+[00:15:29] You'd assume. Amazing creatures, though. I've never seen an alpaca before. They're very cool. I was reading a little about their their habits and their lifestyle. And one thing they do, so there's a way you can tell if a female alpaca is pregnant.
+
+[00:15:47] And there are some scientific ways you can tell obviously with an ultrasound, but you can also tell with a behavioral test. And all you have to do is introduce a male alpaca into the same space. And when the male approaches the female, if the female is pregnant, she will spit in his face
+
+[00:16:06] that is how you know that the female is pregnant and they can do it consistently they can do it with accuracy they get it exactly right it's incredible yeah but then they get sour mouth right this is an alpaca piece of terminology because their spit is actually
+
+[00:16:24] it tastes very sour and disgusting but they do need to spit sometimes and so then they get this like loose floppy lower lip so you know when you see them sort of exposing their lower teeth they look a bit gormless that's because the taste in their mouth is so fast that it's too bitter for them, but that'll teach them not to spit in the first place, really. Another bit of alpaca terminology is the orgle,
+
+[00:16:48] and this is a sound that alpacas make when they're ready to mate, and it's really, you've got to listen to it on the internet. It's absolutely amazing. It's been described as like a rusty jazz trumpeter attempting to play a solo inside a swimming pool. James, I don't have a very good imaginative. I just wonder, as you've heard this sound, could you just give us something close to it?
+
+[00:17:15] Go on. Okay, if there's any alpacas in the audience, you're about to get very excited. It's something like, that's really good. You, very impressive. That's fantastic. I think my favorite terminology...
+
+[00:17:43] How is your career going, James? Well, I was on stage in Vienna doing an impression of a horny alpaca. My favorite terminology, we're just talking terminology, is that when an alpaca gives birth, that's called unpacking. I hope that's true.
+
+[00:18:05] And what might that sound... Yeah, they're incredible. Am I right in saying that they can kind of... the females can ovulate on command. I think they have to be stimulated by a male. So, yeah, when they're contacted by the male member. But it can't be that you go up to a female alpaca and just say ovulate and she just does it.
+
+[00:18:29] When Guardian ovios. Yeah, I can't. And that was actually why Oberhumor's family kicked us off the farm yesterday. Yeah, sorry to the family for that. There is one alpaca in the world which can surf. Cool. Are you talking about surfing on water or on the internet? On water.
+
+[00:18:49] On water. There is a Peruvian surfer, Domingo Pianese, and he has taken his alpaca to the Pacific Ocean, and he put it in a flotation vest. It's called Pisco. And it's not great at surfing, but it is able to kneel on the board for a little while. Well, I think, yeah, Pian, as he said about it, he was asked about it.
+
+[00:19:14] He said, I've surfed with a dog, a parrot, a hamster, and a cat. But I was at a competition in Australia, and I saw people surfing with kangaroos and koalas. So I thought it would be interesting to surf with an animal that represents Peru. Cool. Yeah. Poor alpaca. We're going to have to move on to our next fact in a second. I was just reading a little bit about, because they're Peruvian and they're related to llamas,
+
+[00:19:39] their camelids, closely related to their larger cousin. And the Imura people of Bolivia and Peru have interacted very closely with alpacas and al-Lamas for a while. And I stumbled upon a book in this research describing how they would use them. And this book said that the alpacas actually had very often had a disease that was very similar to syphilis in symptoms, which I thought was weird. And then it said, whether this was communicated from alpaca to man or vice versa is an open. one. And then I checked and it was written in 1870 when I think they had different ideas.
+
+[00:20:17] But the other thing in this book also said, apparently, llamas, if offended, will stamp their foot with rage like a woman. Okay, it is time for fact number two, and that is Chazinski. My fact this week is that early laser eye surgery was performed
+
+[00:20:40] in a trailer next to a trash compactor that, whenever it was switched on would vibrate the trailer as the doctors were trying to operate. Now, I don't know if you're familiar with how laser eye surgery works, but it's quite a particular process that requires a steady hand and a lack of serious vibrations of the room that you're standing in. I think anything that has a laser and an eye involved, probably you don't want it to be vibrating. Yeah, was that wobbling? I don't worry about it. So this is in 1988 and this was straight after the first ever,
+
+[00:21:14] a successful laser eye surgery on a human. A lab was created in Louisiana State University School of Medicine, but they were scared about sort of radiation from the laser going into the main building, so they made them have it in this caravan, basically, next to this massive vibrating machine. And, you know, a rubbish compactor is just a huge machine which crushes down shedloads of rubbish. And so it would turn on every 10 minutes, vibrate the trailer,
+
+[00:21:41] and the doctor doing the surgery got really annoyed and said, is screwing up my surgery and the company, the trash company refused to close the compactor and so the doctor Marguerite McDonald did a study to prove that it was damaging the medical outcomes, these vibrations.
+
+[00:21:58] What was the study? She didn't operate on 100 people and then ruined 10 operations. You really want to be part of the control group in that. She used the evidence from the people who'd been in the vibrating room and saw if their eyes had accidentally been gouged out in the process or anything.
+
+[00:22:19] And to her astonishment, she found out that the people who'd been operated on when the room was vibrating had actually done better. The surgery had been more successful than when it wasn't vibrating. What? And this was a crucial part of laser eye surgery science. They realized that basically when the laser is sort of scraping the top of your cornea off, then it had to go up and down to make the incision.
+
+[00:22:43] and it was going up and down about 40 times a minute. And that was actually turned out it was a bit too jerky. But when you added in the vibrations of the big rubbish dump next door, it sort of smoothed it out a bit. No. I can't believe that. Because these days, when you have laser eye surgery, they're not doing it when there's an earthquake going on.
+
+[00:23:03] So what they did was they sped up the laser vibrations. So they said, well, obviously, it's working. And we can't guarantee we'll always have this rubbish thing here. so they made the laser go up and down a bit faster. That's extraordinary. Is there a thing do we know whereby if it was a bit faster, the compactor a bit slow? Like, was it the Goldilocks kind of amount of vibration? Oh, I don't know if it was just the right amount of porridge.
+
+[00:23:27] I think it was just important that it vibrated a bit more to make it less jerky. It's so mad. She was amazing. Oh, she is amazing. She's still alive, isn't she, Marguerite McDonald? Yeah. And I think she was the first person to do laser ice, sir. Is that right?
+
+[00:23:43] Yes. I think she might have operated on the first lady as well. Yeah. So the first lady was a patient called Alberta Cassidy who'd been just diagnosed with a melanoma of her eye
+
+[00:23:52] and they were going to have to remove it but before they did so, she was so amazing. She just basically said if anyone wants to do any experiments on this eye while it's here then you can do it. And they rushed her in
+
+[00:24:04] and they did the operation. Wow. She was very cool and Alberta Cassidy knew, sort of had had what they called a diet prognosis and she did in fact die a few months later but she volunteered herself yeah so they rushed her into a primate centre because that was the only place they were doing laser eye surgery at the time
+
+[00:24:21] and so she lay down on a bed and had her eyes laced alongside the sort of shrieking and crying out monkeys and primates presumably quite off-putting but yeah and it worked yeah maybe the vibrations of the shrieking might have helped yeah now every laser eye operation you have a chimpanzee next to you. Some of the first surgery, laser eye surgery, was done on turkey dinners. So this was, they were trying to test
+
+[00:24:51] the lasers in the first place. This is before they even got to operating on any humans or any animals. There was a doctor called Rangaswamy's Srinivasan, and he was one of the pioneers because the lasers they were using were normally for carving computer chips in the right shape.
+
+[00:25:07] Oh really? And they thought maybe we can use this for a medicinal purpose somehow. And so this doctor, Srinivasan, he brought his leftovers from his Thanksgiving dinner in, just a leftover turkey dinner, and they practiced etching patterns in
+
+[00:25:23] the cartilage and on the bones and on the skin and all of this. Yeah, yeah, this was how they developed it in the early days. Wow. There was another part of development of laser eye surgery was a boy smashed his glasses into his face, so he fell over
+
+[00:25:39] and the glass went all over his eyes, and it made his eyes better. What? I mean, this is a thing. So this was a Russian surgeon who dealt with him called Dr. Oh, dear, okay. Dr. F. And he...
+
+[00:25:58] I think it was Dr. Fyodorov, maybe. Yes, he was. Dr. Fyodorov. Yes, that's what I said. Fyodorov. So he was treating a near-sided boy. who'd fallen over. These glass shards had gone into his eye,
+
+[00:26:15] and the damage was minimal, but what it did was a sliver of the glass had shaved off a bit of the top layer of his eye. No. Yeah, which largely what laser eye surgery is now is to sort of reshape the eye. It reshaped the eye. So while they were studying him,
+
+[00:26:29] he was like, I can see everything now. And that's what made them realize, okay, this is where we have to get, we just got to start shaving eyes. So if you can't afford laser eye surgery. No, no, Anna, no, no, no. We can't recommend that. We can't recommend anything.
+
+[00:26:44] Because actually, I don't know if you guys saw in the news this year. Do you know the pop star or the singer Grimes? Yeah, Grimes. Who was a partner of Elon Musk. Well, she apparently has had laser eye surgery that blocks out the color blue whenever she's looking at things. And the idea is that she suffers from seasonal affective disorder. And by getting rid of the blue light, it'll make her feel better and feel less sad. Okay. Now, I went on the website,
+
+[00:27:14] look after your eyes.org, and they said, this surgery is not supported by scientific evidence. So whatever you do, don't do that. Well, how does she know where the sky is anymore? It's in the same place as where she left it. Well, when she goes swimming, how does she know which bit is the sea and which bit is the sky?
+
+[00:27:36] Andy did the FAQs for why you shouldn't have this surgery. Do you think that when you're swimming towards the horizon, if you keep going, eventually you start swimming into the sky? And anyway, both those things are blue. So if you can't see blue, you can't tell the difference, but you can't tell the difference anyway, because they're both blue. That's true. I can't believe I said that, is what I'm thinking.
+
+[00:28:04] Well, at least we're not recording it, so you're fine. This is supposed to be about science communication Is that? They're going to take our shit away from us, Andy. Monet couldn't see the colour blue, you know? Couldn't he? Well, I've got a question about Monet. And that's why he drowned, trying to swim in the sky.
+
+[00:28:27] No, he had cataracts. He had cataracts. And actually, a lot of people say this is why his paintings were so bluish. blurry because his vision was quite blurry. Because when he went into a really blurry phase, it was because he had eye problems, which when they were fixed meant that he looked at all the paintings he'd done and sort of tore most of them up and chucked them away,
+
+[00:28:48] saying, well, these were blurry, they're shit. Oh, no. Why have you been saying they're good? But he was so annoyed at having to wear an eye patch for one eye that in the other eye he refused surgery, and the cataracts, they meant that he could never see blue or purple again. Gosh. Yeah.
+
+[00:29:03] You know, there's a Guinness World Record. it's the latest that I'd read possibly it's changed but for the longest eyesight for longest human being able to spot something the biggest distance but wait a minute I can see stars which are billions of light years away
+
+[00:29:19] and it's you James who holds the I'm here to present you with your second award of the evening so yeah is she able to read an eye test chart from a long way away is that the idea So the test that they did on her was to put humans very far away
+
+[00:29:37] and for her to go, oh, it's Bob. And that was it. And she could identify someone as far more than 1.6 kilometers away. Oh, wow. What? Her name was Veronica Cedar and she was tested because everyone at school was like, gosh, she can see, you know, how did she know the bus was coming?
+
+[00:29:56] It's miles away. And she can actually tell, she could actually say, it's about 1.2 miles away. She could judge distances as well. Presumably they did not just test her with people she knew who wore very interestingly shaped clothing. Well, so that if you wore your special hat. Yes, good point. Good point. If you dressed as a star, James would be all over it. No, she, the fascinating thing was not only was she able to spot the person, but she could spot.
+
+[00:30:26] She could make differentiation in the colors of clothing that they were wearing as well, which apparently at that distance is even harder to do because they all kind of blur into one. Right. That is amazing. She'd be a horrible person to try and hide from, wouldn't she? Or to run away from. Why run away from? Well, just because if you're trying to run away, you know, she can still see you, even though you think you've got a distance between you guys.
+
+[00:30:47] Well, you should just go into a building, shouldn't you? Yeah, exactly. This is only a problem if you're trying to run away from Veronica Cedar on a featureless desert plane. You're very rarely playing hide-and-seek on a featureless desert plane, are you? Imagine that's hide and seek. It's just about being so fucking far away. Guys, you obviously haven't got to the advanced level hide and sink that I've graduated to.
+
+[00:31:11] The Gobie Desert Chisinski Challenge. I've got a fact about the lenses in the eyes of nutes. Wow. Yeah. So, newts, this is a similar word in German, maybe? Nutes. Like a little lizard? Roy.
+
+[00:31:32] Roy. We're never going to... We all know it's never going to... We all know it, the nudes. The nudes. Moich, we think. Moich. Mike.
+
+[00:31:40] Mike. Right. Mike the newt. Okay. It does sound like an Irish person called Mike, doesn't it? I told Mike the newt. Sorry, go on. No, no.
+
+[00:31:54] Well, Mike the nude. He is very lucky because he can regenerate the lenses of his eyes indefinitely. Wow. So a group of scientists tested this because I think it was known that this could be done
+
+[00:32:09] so they removed the lenses it doesn't have a cruel ending this story, okay, that's the important thing to say. I mean, this bit is arguably very cruel, but they remove the lenses from a group of newts eyes
+
+[00:32:19] and the newts grew back perfect lenses. So the scientists did it again and they grew them back again. Scientists removed them again. They grew them back 18 times. in a row and
+
+[00:32:34] perfectly. The lenses that were grown back were indistinguishable from the lenses of a 14-year-old adult new that had never had a lens removed in the first place. That is. Amazing. That's incredible. And then on the 19th time, did it screw it up?
+
+[00:32:49] Yeah, screwed it up. That was it. It's 18 max. I think they stopped at 18, probably because their ethics committee had started asking questions. But actually, because I read a story in the news this year, about a 67-year-old woman who had 27 contact lenses removed from her eyes.
+
+[00:33:09] Whoa. And I thought that she'd been putting them in and then kept forgetting to take them out. But now I'm thinking she might be a newt. It's Mike's wife. We're going to have to move on in a second. I've got one last thing. I was just looking into eyes generally. And it was very romantic, that.
+
+[00:33:36] A number of women in Vienna have issued restraining orders now. Yeah. Yeah. My wife is not happy. Honey, it's research. No, I, um, so sometimes research takes you down a rabbit hole and you go to different places. And I was looking into eyes and movies because we had 3D and how you have eyes. But my favorite fact that I discovered is that there was a movie that was made called Blade Trinity.
+
+[00:33:59] Oh, yeah. With Wesley Snipes as Blade. It was a disastrous production and he hated being on it and he refused to do so many. things, called himself Blade on set, not Wesley on Blade. But the most, the head to head came between the director and Wesley Snipes for one scene where they
+
+[00:34:16] were filming his face, just his face, and Wesley Snipes refused to open his eyes in the scene. And he refused for so long that the director went, screw it, we've done, we got it, and they CGI'd his eyes opening. CGI'd.
+
+[00:34:31] CGI'd. So if you watch it, you can see it online, it's amazing. these weird cartoon eyes suddenly appear because he refused to open them on set. That's amazing. There's one other movie, I fact, just is so relevant.
+
+[00:34:47] And it's about contact lenses and eye correction. The first use of contact lenses to change an actor's eye color was in a film called Miracles for Sale and they used a blue ceramic lens. This is really early. To change an actor's eye color,
+
+[00:35:02] I think, from brown to blue. The weird thing is, this happened in the film Miracles for Sale, which was released in 1939, and is, in fact, a black and white film. Incredible. Okay, it is time for fact number three, and that is Andy.
+
+[00:35:25] My fact is that some Inuits, if they got extremely hungry, would have been able to eat their own sleds. Someone in the audience said, what? Fair enough. So some Inuites, In the Inuit sleds were partially made of fish.
+
+[00:35:42] This was a thing you could do if you were in, frankly, if your normal sled had broken or been lost. Or, for instance, if you lived so far north that there were no trees. Exactly. And you wouldn't have much driftwood, and so you needed something, you couldn't make it out of wood. Yeah. So what you would do is you would take three fish.
+
+[00:36:01] There's a particular kind of fish that the Inuit hunt a great deal. They're called Arctic Char. You cut them in two. lengthways, and you put them in a row, and then you wrap those up in seal skin with leather strips, so it's made of fish and seal now. Overnight, bang, they freeze, you have an instant runner for a sled. Then you need crossbars, and those are sometimes made of caribou leg bones or walrus skin. Some sources say walrus meat, so this is a very edible sled we're putting together.
+
+[00:36:33] You tie it all together with more strips of seal, and you've got a sled, basically. the main thing you have to do is stop your dogs from eating it. That's amazing. It's like the extension of, you know, one of those necklaces you can wear that has sweets around it that you can eat if you get hungry. Yeah. They've taken that one step further. Well, they had a lot of fish. They like fish. They liked fish back in the day. They liked fish a bit less now since I think Inuit's largely
+
+[00:37:00] have been, I suppose, invaded by Western culture a bit. So they now like fish and McDonald's. but they would eat seal a lot but have a huge respect for seals, right? So they thought that seals would be offended if they stopped eating them. And so, and they would treat them with huge reverence.
+
+[00:37:19] So as they killed a seal, they would give it a drink of water to quench its thirst as it died. So it would be like, well, what a nice guy. They did that. And the UPIC people, actually, who are related culturally to the Inuits and who are slightly further south,
+
+[00:37:33] they would return a preserved seal bladder to the sea every year hoping that the sealed bladder would swim back to its seal friends and say, I was treated really well by the UPIC people, don't worry about them, they're good guys. And yeah, that would encourage them to go and give themselves up to hunters. That is amazing. It's a complex morality. This fish sled, I think, was first described by an explorer called Peter Freikens.
+
+[00:38:03] and he found some people in a town called Iglu-Lick who were doing this. And the name Iglu-Lick, this is a town, it's absolutely in the middle of nowhere, no trees, it's a tiny little island. The name Iglu-Lick means,
+
+[00:38:18] there is a house here. But also, it is the home of the world's only Inuit Circus. They're called the Arts Cirque. But they actually were invited to do a show in Mali in Timbuktu. And so they've gone from a town where it's usually around minus 50 degrees centigrade and they've gone to Mali where it's normally
+
+[00:38:43] plus 40 degrees centigrade. And they turned up and they basically couldn't do it. And so their only shows they could do were at midnight. And so they would do shows at midnight and the whole rest of the day they were just sleep. Wow. Because it was so hot. But did they have the same animals like warruses and seals presumably?
+
+[00:39:02] There is a balloon guy, but he only uses the bladder removed from a seal. It was a non-animal circus. It was more like trapeze and juggling and things like that. So cool. The uses of seals by Inuit people are very, very broad, because if you have only a few resources, then you have to use the ones you can as well as possible. So raw seal liver was a childhood treat food for some Inuit groups.
+
+[00:39:29] There was chewing gum, which was made of seal, blubber. seal blood soup was a good thing for new mothers and it was seal blubber oil was used as a body lotion and as a fuel and as a laxative yeah okay dry skin too cold constipated have we got the thing for you you know you can be proposed to for marriage
+
+[00:39:55] buy a seal in an igloo um you're gonna have to explain further so the singer seal proposed to his model girlfriend, Heidi Klum, in an igloo. Is that right? Yeah. In the Canadian Rockies. You're so...
+
+[00:40:10] I have never been more disappointed with a fact in my life. That's the best fact I've ever said in my life. That was low. That was for you guys, because there's no way James is going to leave that in the edit. So, I hope you enjoyed. Here's a really, really interesting thing. This is quite sciencey. is to do with the Inuit people.
+
+[00:40:34] So the Inuit elders at the moment think that the Earth's tilt has changed. And the reason they think that is because they often tell the time by looking at the moon and the stars and where the sun comes up. And they found that over the last few years that the sun is coming up in a different place and that the stars are in a different place and the moon's in a different place when compared to the mountains. And the reason is that global warming has caused the atmosphere to get warmer. and so when you see light coming from space, it refracts.
+
+[00:41:06] And so actually, where the sun you thought it was is not there anymore. And it's in a completely different place. And their explanation was that the Earth's tilt had changed. Wow. And we're just all too scared to tell them about global warming because they are going to be pissed off. Wow, that's very cool. They must have such a specific, because it hasn't changed that much the position of the sun. I would have noticed.
+
+[00:41:29] Yes. So even in Viking times, you would tell, if you live in, say, Babylonian places, you live near the equator, and you would tell the time because the sun rises in the east and sets in the west. But if you live in the north, if you're a Viking or something like that, or you live in the polar circle, then the sun is always rising and setting in different places. And so the way that they tell the time is they would take specific things on the horizon, like, for instance, a mountain or a gate, not a goat. goat. There's old Veronica Cedar 1.6 kilometers away. I know that goat. That was going so well. Yes, anyway, they would take something on the horizon and they would use that to tell exactly what time of day it was. Very cool. But not a goat.
+
+[00:42:21] Not a goat. Unless you cemented into the ground. So there was a woman called Gene Briggs. who was an anthropologist in the 1960s who lived with the Inuits in Alaska and wrote down a lot of what they were like and followed them for many years
+
+[00:42:39] and discovered that they never got angry. So this was and it was extraordinary. If anything went wrong they would stay totally calm. So there was a fishing line that took days and days to braid and it broke on first use and no one flinches. They just say, we had better make a new one now.
+
+[00:42:56] But not like a creepy zombie like a normal person. Wow. Do they do it through gritted? Like, is it gritted teeth? No gritted teeth? Wow. Totally calm.
+
+[00:43:05] Okay. And then one day she was walking home. And she saw a mother and her young son saying, and the son had a rock in his hand. And the mother was saying, throw it at me, throw that rock at me, go on, throw that rock at me harder. And the son was throwing rocks at her. And she realized that they act out plays where they show children how to express their anger. So, and they show children exactly what the consequences of their anger are. So in that situation,
+
+[00:43:29] she was acting out of play. The kid has thrown a rock really hard at his mum, and his mum went, ow, that hurt. And then the child learns, it hurts if I throw a rock at my mum. That wasn't a very good consequence. She's upset now. And this is how they did it. And they act out these plays constantly.
+
+[00:43:45] And that's how they... So they would never, ever shout at their children, ever. They find it bizarre that we would. That requires a lot of knowledge of self and others for the child. Because you don't develop a clear idea that other people have feelings too for some years. So a more effective way...
+
+[00:44:04] Some of us are still struggling. Right. So wouldn't it be more effective to throw a rock at... Yeah. To throw a rock at the child. Yes, yeah, yeah. And then...
+
+[00:44:17] Good point. You don't have children, do you? I don't, no. I thought that was where you were going and I didn't know how to get you out of it any more than you did. Could it be that they were just training themselves for an event?
+
+[00:44:29] where we all end up living on that planet that rains rocks all the time. We're going to have to move on in a second to our final fact. One thing they used to do with these sleds we were talking about is they would tie all the bits together with something called walrus thong. And walrus thong is a really, really thin piece of rope made from walrus skin. And according to anthropologist Freelikorani, it was the strongest line known before the invention of the steel cable. Wow.
+
+[00:45:00] How amazing is that. They had such incredible technology in the Inuit world. They made armour out of walrus teeth. And so if they were attacked by animals, they wouldn't be able to get through these walrus teeth armor. Or if you're bastard kid, throw the rock at you one day. I have another thong fact, actually. But it is the other kind of thong.
+
+[00:45:24] So the Greenland Inuit, they had a G-string, a piece of clothing, which is called a NAP. It's made of seal fur. Okay. And it's pretty, you know, it's pretty sexy. It's strips of seal pelt, but it's very furry, and it's threaded together with whale sinews, and you would wear them under your seal skin trousers. But it's not for romantic moments, if you've been looking in someone's eyes for ages and ages.
+
+[00:45:51] It's actually not for those moments. It's to wear if you had guests, or if you were going visiting other people, you would just turn up in your, for G string. And Danish missionaries got quite stressed about this when they visited and made contact with the Inuit here and they tried to persuade them to wear longer undergarments. That's amazing. Without success.
+
+[00:46:15] I'd like to think that in the end, the Danish missionaries adapted and they all ended up wearing... There's a really good reason for it is because if you sweat, it's very dangerous actually to sweat. So your clothing needs to be able to expel heat and not let cold in, because if you sweat, it will freeze.
+
+[00:46:32] So the point of the seal fur G-string is that you don't end up with frozen sweat trapped between your buttocks. Well, I'm sold. I got one last thing. We were just talking about how armor was made out of teeth, and I was thinking about how the fact that the sleds, you could eat a sled, that sounds really badass,
+
+[00:46:53] and I started looking into that territory. Found a guy from Canada called Francis Wharton, and he lived away out in the wilderness and in the 50s and 60s they're not sure of the exact year but he shot a deer and he basically shot it because he needed new dentures his teeth had completely rotted
+
+[00:47:09] and fallen out but rather than to go get new dentures he shot a deer and he took its teeth out and he shaved the teeth down and he wore them as dentures and then he ate that deer that he shot with its own teeth that's such a threat isn't it? I'm going to
+
+[00:47:28] eat you with your teeth. That's amazing. Yeah, so that's the way to scare a deer. It is time for our final fact of the show, and that is James. Okay, my fact this week is that some bottled water in Vienna costs 9,000 euros per liter. And this audience does not believe me. And yet it is true. And I think the reason the audience doesn't believe me is because
+
+[00:48:00] the water in Vienna is famously amazing. And so... Wow, okay, guys, it's not that good. And so, why would anyone buy bottled water in Vienna? Because the tap water is so good. But actually, the reason is that there is a thing called Vienna standard mean ocean water, and it's used for calibrating instruments, and it has a very specific mix of isotopes inside it.
+
+[00:48:26] So you know if you buy it, it will be exactly the same every single time, and you can use it for all sorts of scientific reasons. And it is actually 20 times more expensive than inkjet printer ink. Wow. And the reason it has the word Vienna in it is because it was due to the International Atomic Energy Agency, which is based in Vienna. And that's why it was called that. And you have these things that scientists use all the time.
+
+[00:48:53] They're called standard reference materials. And if you're trying to measure anything, you really need a control. need a standard to put them against. And this could be literally anything. So for instance, you can buy a jar of peanut butter for $761 in America. And the reason you're going to buy that one is because it's a very specific type of peanut butter, which is always going to be exactly the same. And if you want to measure how many peanuts are in your peanut butter, you have to measure it against this one. Wow. You can buy 15 grams of specific turmeric for $420. Your grocery bill, James, must be enormous.
+
+[00:49:35] But the lucky thing is they always arrive between 400 octillion years. You could buy 40 grams of domestic sludge for $715. So that's exactly what it sounds like, Andy. It's stuff that's come out of your waist of your toilet or your bathroom or whatever. But it's very specific. So it has exactly that pretty much the average amount of, everything that a human waste would have. Well, it's like ratio number two to number one, basically.
+
+[00:50:07] Yeah, kind of. It's got exactly the right number of sweet corn kernels. Yeah. You can buy freeze-dried typical diet for $912. And this is basically they get the average American diet of what Americans eat in a week. And they squish it all down and they freeze dry it. and you're getting in a little package and you might want to use it to measure that
+
+[00:50:34] against someone else's diet, for instance. Right. And it's mostly for instruments and things like that. I was looking for other expensive waters. Okay, yeah. Other expensive kinds of water. So there's a Hawaiian brand called Kona Nigari and it comes from 2,000 feet under the ocean.
+
+[00:50:53] Wow. Under the ocean. All right, under 2,000 feet of ocean. It's 2,000 feet deep in the ocean. Oh boy I've really got this wrong It's from 2,000 feet down It's a specific sort of river flowing
+
+[00:51:07] Within the ocean I think So it's not salty I am not sure whether or not it's salty It may be treated once it's brought up But it is it was discovered a while ago Because scientists wanted to use very very cold water From the bottom And use the temperature difference
+
+[00:51:22] With surface water They thought they could generate electricity From this and power homes They couldn't generate enough of that But they had a source of this Extra deep water now So they started just selling it as magic bottled water And you know it's supposedly free from all pollution and contamination
+
+[00:51:37] It's got lots of seaweed minerals in it It costs $400 for 750 mils It's expensive They sell it to athletes on the promise that it helps you rehydrate Twice as First after exercise Okay does it Well The main study I think that it's based on
+
+[00:51:57] Is a study which shows that Jirbils do better on treadmills when fed this water. And hamsters on surfboards? So some scientists are a bit skeptical because it appears that the gerbils run better and rehydrate faster. It sounds like nonsense, doesn't it?
+
+[00:52:17] But maybe it's true. Because if you eat super pure water or if you drink it, like ultra pure water, then that really is bad. So there are four types of water classification, I think, in science. and we drink the really gross one, which is the only one that we can actually stomach,
+
+[00:52:33] which I think is called feeder water. And then the top one is ultra-pure water. And that's when it's gone through a series of processes, which basically means it has absolutely nothing in it, no minerals, nothing, except hydrogen and oxygen. And if you drank ultra-pure water, then it would start leaching all of the minerals out of your body and sort of dissolve everything.
+
+[00:52:56] Of course. It's because water's the universal solvent. you learn at school. And so it literally dissolves everything. And so if that goes through your system, you're just a big, you know, well, you're a big solution. Right.
+
+[00:53:11] I found a really expensive bottle of water, which is the water that goes up to the International Space Station, which is approximately $10,000 American per bottle of water. When you have to consider the fuel costs to get it to space. But that's roughly, they broke it down. Someone did a calculation. That's roughly what it costs. And which is why it's such a thing where they're trying to work out how you can turn water or urine and so on.
+
+[00:53:40] That's being, water being drunk and then the urine coming out back into water and create that cycle. So they use everything on the ISS that emits any kind of moisture feeding it back into trying to turn it into water. Do they drink their own urine on the ISS? They do. They drink rat urine as well. There's rats in the ISS that they recently converted some of the urine. I think it's 74 rats having a P that is equivalent to one human P. So they need to really be going for it.
+
+[00:54:08] But yeah, that's a problem up there. But that's how much it costs to get up there. That's very expensive. There's a type of water you can buy in Japan, which is very specifically intended to be used in an emergency. So obviously they have a lot of earthquakes and things and tsunamis and things in Japan compared to the rest of the world. And so they sell this specific water for an emergency.
+
+[00:54:29] emergency and it's called Zaiho's emergency supply of water and it says on the bottle that it's safe to drink even after five years and it has one more slogan which is this is water from 30,000 years ago wow so they've taken it out 30,000 after 30,000 years just before it goes bad that's the expiry day to water amazing we're going to have to wrap up soon I got a thing on a weird measurement. So this is this was about scientific. What would the word be the like standards? Yeah standards exactly. I found a standard which is not used in everyday life but it certainly is used near Boston. There was a guy called Oliver R. Smoot and he was the chairman of the American National Standards Institute and the
+
+[00:55:20] president of the international organization for standardization. This was his whole world and there's a unit of measurement that is named after him called the Smoot. And the Smoot is the length of him, which is five feet seven inches. And it's to measure a specific bridge, the Harvard Bridge. So we know that it is 364.4 smutes.
+
+[00:55:42] And that is how they know. And when you go across this bridge, it has how many smootz you've walked across. And in order to do it, they laid him down. No, they didn't. Yeah, they did. So he laid down, he laid down, he laid down, and then he got tired.
+
+[00:55:57] So they started picking him up and moving. him to where the edge of his head is. But the police over there use smootz when an accident happens on the bridge. They'll say it's 160 smootz in on the bridge. So it's an official standard. You know what they should have done? They should have got a tape measure, measured him once,
+
+[00:56:12] and then he could have gone home for the rest of the day. Moron. I got one more measurement. So you can measure what is the most livable city on the planet. That is the city of Graz. No, of course. Well, I've lost the entire audience.
+
+[00:56:37] Apart from one man in the front road. No, of course, Vienna has the world record, the Guinness World Record, as the most livable city on the planet. And the way that they measure it is there's loads of different subjects, and each one is out of 100%. And Vienna got 100% in every single category, apart from culture. Okay.
+
+[00:57:05] Now, this didn't make... I've been walking around. Absolute desert out there. I thought... To be fair, they got like 95% in culture, or 96%. But I thought I would look into some culture in Vienna in the Guinness World Records website, and I found the only other record I could find
+
+[00:57:24] is that Vienna holds a world record for the world's longest twerk. And that was two hours and one minute. Wow. That's the bum dance thing. That's where you're wobbling your bum. And I like to think that Elena Sterlini, I like to think she was aiming for two hours and it took an extra minute for it to stop wobbling. Okay, that's it. That's it. Let's wrap up. Okay, that is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland. Andy. At Andrew Hunter. James. at James Harkin.
+
+[00:58:06] And Chisinski. You can email podcast at QI.com. Yep. Or you can go to our group account, which is at No Such Thing, or our website, No Such Thing as a Fish.com. We have everything up there from previous episodes to upcoming tour dates and our new book, which is very exciting. You can buy that through a link there.
+
+[00:58:23] That is it from us for this episode, our 300th episode. Thank you so much to the Chief Lobster Awards for giving us this wonderful prize. Thank you Vienna. That was so much fun. We'll see you again. Goodbye.

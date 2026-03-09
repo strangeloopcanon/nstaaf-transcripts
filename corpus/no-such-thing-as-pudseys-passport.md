@@ -1,0 +1,361 @@
+# No Such Thing As A Fish - No Such Thing As Pudsey's Passport
+
+- Episode date: January 1, 2026
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-pudseys-passport
+- Slug: no-such-thing-as-pudseys-passport
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this episode of No Such Things a Fish, which we recorded live at the Royal Institution in London, the venerable, venerable place where so many great scientists have been over the years, and now us. Although there was a great scientist there with us, we had a guest, and that was Professor Alice Roberts. Now, if you follow science in Britain, if you follow science communication, if you follow science on TV, you'll know all about, Alice Roberts. She's absolutely brilliant. We had such a good time doing the show with her. And she does have a new book out, actually. It's called Domination, and it's all about the fall of the Roman Empire and the growth of Christianity. Absolutely brilliant book, as all of Alice's books are. And if you want to learn more about her, then you can go to alice-roberts.com dot UK and everything about her will be there.
+
+[00:00:54] I should just quickly add that we do have a special secret members club called Club Fish where there's lots of extra stuff if you feel like you haven't got your fix of fish at the moment. Loads of extra stuff on tiers there. There's an Excel version of this show and every show if you think that I do a terrible job editing the show and I need to be making it much, much longer than there is the place to go for that. But yeah, there's loads of stuff there.
+
+[00:01:19] So go to patreon.com slash no. Sixers a Fish if you would like to join. But really hope you enjoy this. We had such a great time at the Royal Institution. I can't tell you how exciting all us to be there. I think it does come through in the show itself. Anyway, happy new year, and on with the podcast. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast.
+
+[00:01:59] This week coming to you live from the Royal Institution. My name is Dan Schreiber. I am sitting here with Jane Tarkin, Andrew Hunter Murray, and Professor Alice Roberts. And once again, we have gathered around the microphones with our four favorite facts. from the last seven days, and in no particular order, here we go. Starting with fact number one, and that is James. Okay, my fact this week is that the first person to travel into the stratosphere did so with a pillow on his head.
+
+[00:02:37] Yeah. So for people at home who can't see the image, this is two gentlemen, and they have like a basket, a wicker basket, and underneath is the pillow. and this was a trip by August Picard and he wanted to work out some things about Cosmic Rays which you might go into later but the Germans where he was setting off from didn't want him to go up there
+
+[00:03:03] they tried to ban his assent but he was Swiss so he managed to get someone in Switzerland to say no you're allowed to do it but the Germans wouldn't have it and they said well okay you can go up but you must wear helmets and they didn't have any helmets to hand so they cobbled some together
+
+[00:03:19] and he like it's important to wear a helmet oh yeah completely but also he was going eight or nine miles up and if it didn't work out a helmet is not going to be the thing that does or doesn't make the difference no I would think not again if there are any astronauts listening do keep your helmet on yeah take my word for it you know it's not like he wasn't wearing a helmet with like an oxygen mask in there or anything like that right it was literally just to cover his bans
+
+[00:03:46] yeah did he have a parachute I do not think they did. That might have been more useful. Yeah, no, absolutely. When did we invent the parachute? Was it invented in 1931? The guy who invented the modern parachute, because like Leonardo da Vinci had
+
+[00:04:01] pictures of parachutes in his drawings, right? But the modern parachute was invented in 1913 by a guy called Everard Calthrop and he offered it to the Royal Flying Corps because this was during the or was it during the war just before the war?
+
+[00:04:16] So in 1915, he offered it to the flying car, and they said they didn't want to give them to their pilots because it might impair the fighting spirit of the pilots. And they thought, if they've got parachutes, then they'll just jump out and they won't fight till the death. Yes. I always say if I'm going to be a racer, just get rid of the brakes. That will only encourage me to slow down my motor car.
+
+[00:04:41] Do you know, this has to be the most accident Mr. Bean-prone experiment I think I've ever read about? It's remarkable, isn't it? It is. Have you ever heard about this trip, this first trip to the stratosphere, Alice, with August Picard? No. What happened? Well, basically, we'll get into what they were kind of trying to do, which is where they were trying to help Albert Einstein prove the theory of relativity, and they thought we
+
+[00:05:03] can do that by heading up to the highest spot on Earth. So Picard, who everyone, if you want to picture what he's looking, what he looks like at home, picture Professor Calculus from the Tin Tin Books, because that's who it was based on. Yeah. Calculus was based on August Picard. He was this eccentric but brilliant scientist, and he's actually taller than Calculus is in the Tintin books. He's six foot six, and Herge had to make him smaller
+
+[00:05:30] so he'd fit in the frames. Come on. Yeah. He was just drawn him further away. Yeah. He's wonderful, Picard. Everything about him sounds wonderful. He never went anywhere without a slide rule and two wristwatches.
+
+[00:05:46] He decorated his home with prisms Why did he wear two watches? Well, one for Well, I don't need to You know, I mean one for You know, one for the time here And one for the time up there You know what?
+
+[00:06:01] The reason I asked you is because I knew the answer And I thought you might do as well No, absolutely not But the reason he did is because He knew that if they didn't match Then at least one of them was wrong Clever Very clever
+
+[00:06:14] Clever. But this trip they made up. A couple of people had tried to get into the stratosphere before. I think in planes. How high do you have to go? I think it's at least seven and a half miles. So the air is pretty thin and pretty cold. And a couple of people had tried in planes and not done terribly well.
+
+[00:06:35] Picard's innovation was a sealed, what he called a sealed gondola with walls of aluminium that were, I think, three and a half millimeters thick. So it's quite fragile this thing carrying them up. And above him and his assistant, Kipfer, Paul Kipfer, I believe, a huge balloon filled with hydrogen. And that expands and it carries him up and it expands in the light of the sun. And it carried them up and up and up and up and up.
+
+[00:07:04] And as you said, Dan, one thing after another started going wrong. It's a nightmare. But even before the mission started, it started going wrong. So Kipfer said he knew that the whole thing had got off to a rough start when they were doing their final checks and he looked out the window and he saw chimneys passing them from the top of houses Oh yeah, yeah, yeah, yeah. They're like, oh, so we've left
+
+[00:07:22] like they just didn't even know. They had no idea that they'd taken off, so immediately that was an issue. Yep. And they had this sort of half an hour crisis of there was a hole in the side of the gondola which had to be pasted shut and they were very ingenious in the way
+
+[00:07:38] they did it. Oh yeah. The other thing it might get extremely hot up there because you've got less protection against the sun's rays. So they had this little propeller on the side of the gondola, their capsule. So what that meant was, one side of the capsule was painted white and one was painted black.
+
+[00:07:54] And they thought, well, look, if we can turn it, if we can turn the white side towards the sun, that'll reflect the sun's light, keep us nice and cool. And that's ingenious. Unfortunately, the propeller broke. And so they were then unable to control the temperature. It got up to 40 degrees Celsius in there,
+
+[00:08:13] 104 Fahrenheit, the water evaporated, they had to lick the walls for moisture. It's just a matter. How long were they up there? For hours, and the problem was, they couldn't come down because the machine that was going to allow them to come down froze. So they were like, well, we're just here now and we just have to wait for it to take us back down.
+
+[00:08:31] Nightfall, when the sun goes down, hydrogen cools and shrinks and allows them to descend. Definitely. They don't pop the balloon. No, they don't think they had a way of getting to the balloon. No, they couldn't because they were closed inside. Meanwhile, the barometer explodes, the mercury within it falls to the ground,
+
+[00:08:48] and because the material is made of this metal, it starts eating the actual thing that they're in on the floor. I mean, can you imagine? You're in this, just two of you, one six foot six. Looks like Professor Calculus. It doesn't know what time it is. No. The press said that they died, didn't they?
+
+[00:09:08] They've been up for so long. They were expected to come back quicker than that. So in the newspapers that afternoon, they said, yeah, they've gone. That's it. So, like, I've never been in a hot air balloon. I think you have. Have you done that before? I have been up a couple of times in a hot air balloon.
+
+[00:09:21] Is it petrifying? It's really lovely until you land. Right. Why? No, I love it. I mean, I love that kind of taking off, and it's so quiet when you're up, and you can just hear dogs barking. See, that's what I find scary.
+
+[00:09:34] Yeah. It's how quiet. It's amazing. Because if you're the way you might go in the air, like, in a plane or a helicopter. It's noisy as hell, isn't it? But it's just so peaceful. But the thing is you just can't steer them, can you? No.
+
+[00:09:45] You go to where the wind takes you. Yeah, you're kind of just relying on that and then trying to find so much land that doesn't involve a lot of cows, usually. Right. Why were you doing it, by the way, for the show? Was that like a BBC budget thing, or were you? No, I don't think I've done it for television.
+
+[00:10:00] Oh, you've not? I think I've just done it for fun. Right, okay. And it was fun until we landed. Okay. There isn't a thing in the BBC budget that says we haven't spent all of this year's money yet get Roberts in a hot air balloon now.
+
+[00:10:13] Do you know, there was an experiment that we tried to do years and years ago when I did Coast back in 2005 when they were trying to work out how many weather balloons they'd have to attach to me to lift me off the ground and then it became obvious that actually it was too windy to do it
+
+[00:10:26] and I was likely to be kind of dragged off this key which we would do honestly the whole thing and there's this picture of me standing there looking utterly terrified and I think I've got about 14 weather balloons attached me and I'm just my toes just like to lift off but we never actually
+
+[00:10:40] At that point, you went, no, no, I think actually this is a bad idea. You got scared at 14 balloons being attached. How would they have got you back down? Well, this is the question, isn't it? I don't think they thought that far. So when they put these 14 on, did you start to feel a little bit wakness? Yeah, definitely. Yeah.
+
+[00:10:59] Yeah, they landed Picard and Kipfer. They landed on a glacier. And they weren't out of the woods even when they landed, you know. They had to have... Yes, they were. They were on a glacial. Sorry, yeah. I love the tree line.
+
+[00:11:11] I love the tree line, yeah. But they had to, I think, hike down the glacier. This was 1931, we should say. Did they get their data, though? They were up there to get some data. They got the data. They were studying cosmic rays because they were trying to support Einstein's theories of relativity. They did.
+
+[00:11:29] I think, but by accident, because they largely were just trying to survive, because from the get-go, they should have died. And they didn't. Like, the mercury, there was a statement that Picard. just said out loud he was like if only i had a vacuum cleaner and they realized that the whole of the of the actual ship if we can call it though the gondola he called it was there was a hole in it where they opened it and it acted like a vacuum and sucked all the mercury out and then they stuffed some clothes into it and then it's like it's genius it's Apollo 13 it's the original Apollo 13 basically yeah it is yeah yeah it sounds like there were a lot of risks that
+
+[00:12:04] they hadn't thought i would have liked to have seen a risk assessment it sounds like there's a lot of things they hadn't thought about but they had thought about the possibility of things falling on their head. I know. While all this has happened, they're like, and we've got these baskets on our head. We found dead looking like idiots. So in the vein of like, you know, risk assessments
+
+[00:12:23] and thinking about what you might need to go up into the stratosphere, you would have thought that there need to be, you know, there needed to be a better set of instructions for getting in that thing and going up there and, you know, not smashing your mercury and that kind of thing and not making holes in the vessel that you're in. So I had a look at it. some safety instructions
+
+[00:12:41] for various more everyday items and these are some real bits of safety advice so one is on a buggy where it says remove child before folding these are real there's one on a hairdry
+
+[00:12:58] that said do not use while sleeping on items of clothing do not iron clothes whilst wearing them now oh oh oh because Is everybody pointing it down? Have you done it?
+
+[00:13:14] Have you done it? All the time. Oh, no. I'll notice a crease and I will just, I'll lay down on the bit of the iron board and I'll just separate it from where I need to be. Dan, you're not the same shape as an ironing board, but you are the same shape as your own body. So it's much better to do it on yourself. I can't encourage people to do that. Chainsaws don't hold the wrong end.
+
+[00:13:36] And a microwave, and this was apparently fullering. a very sad experiment where this had happened and then after that they had to put the label on because there was some litigation which said you should have had the label on there to begin with otherwise and then this woman would have known not to do it do not dry your pets in the microwave Wow
+
+[00:13:53] Is it true that there are some animals that are small enough That they can dodge the microwaves though If you have a pet ant If you have a pet aunt Listen to this guy Really? Your poor kid I know you want a pet I know you've asked for a pet for a pet
+
+[00:14:09] Christmas for years now. Well, great news. I've finally decided... It's got more legs than a cat. Yeah, the idea... I think in a microwave, the microwaves go in a certain pattern. Yeah. And the wavelength is long enough that if you put an ant in there, it'll find a bit that isn't going to cook it. Is it... I think you have to take this... Yeah. Otherwise, it's like, Takeshi's Castle. They're just going around. It's like... It's just like one extra level of unfair on the answer, isn't it? I will say as well, like, don't try that at Oh, my dear.
+
+[00:14:39] I'm trying at home, yeah. Okay, hey, guys, we need to move on very soon. Oh, when Apollo 11 took off, NASA worked out that if the rocket exploded, it would fire shrapnel three miles away, so they sat all the VIPs 3.5 miles away to watch the... Very nice. That's amazing. But you're relying on their maths, aren't you? Yeah.
+
+[00:15:02] Was it just the VIPs? I mean, they allowed other people to go games. Yeah, everyone else is... Great news. We've got you front row seats. Stop the podcast. Stop the podcast. Hey, everyone.
+
+[00:15:19] This week's episode of Fish is sponsored by FRIVE. That's right. Now, Dan, I don't know about you, but I'm busy. I know you're busy. Too busy. Way too busy. All of us, now we're here in 2026, feel like there are a lot of demands on our time, whether you're trying to go to the gym, spend time with your family,
+
+[00:15:35] to take up carpentry as a hobby. Okay. don't smirk don't laugh I've wanted to do this for about 20 years there just isn't the time there isn't the time
+
+[00:15:44] well it's the start of a new year it's time to change that and one of the ways you can get changing that is to use frive yes frive deliver delicious nutritious nutritious meals to your door
+
+[00:15:55] they are ready to heat and eat in minutes and that will give me time back to begin whittling or whatever it may be they're really good meals we've been trying them recently they use 100% natural ingredients
+
+[00:16:06] the food is prepared fresh and in-house by chefs. I had a delicious Asian sea bass the other night. Amazing. Num, num, num. Yes, please. Yeah.
+
+[00:16:16] There are, I think, a hundred meals to choose from each month, so you will never run out. Yeah, it's a wonderful option. Andy and I've been doing it. And if you want to get involved, go to frive, that's f-r-I-V-E-D-C-U-K-slash-Fish, and you're going to get 40% off your first box.
+
+[00:16:35] That is right. All you need to do is make sure the promo code Fish is entered at the summary page. You'll get 40% off your first week and 20% off the following two weeks. This is so much percent off. It has been a lifesaver on a few separate occasions recently where suddenly you gain back this chunk of time that's very pleasing indeed. Okay. On with the show.
+
+[00:16:55] On with the podcast. Okay. It is time for fact number two. And that is Alice. Thank you very much. So my fact is basically an X-fact, so it is that people used to think that arteries carried air, not blood, and that the airways themselves were full of fluid. So for a very, very long time, people thought that actually blood vessels were full of just air. And in fact, that's what artery means.
+
+[00:17:25] So artery means air carrier. It comes from air, terrain in Greek. And I find this just astonishing as an anatomist, because you don't have to do much digging around in the body to. work out that there's blood in the blood vessels and air in the airways. But this just went on and on and on. Do we know why people thought it? I think because sometimes if you are, if you're dissecting a body and you've waited a while to dissect it,
+
+[00:17:51] then maybe the arteries could be empty. But, I mean, it just seems really, really odd that they didn't realize. And obviously it took a long time to work out that the heart was pumping blood around the body and that it was circulating. So it's kind of, there's just, there's just, misunderstanding upon misunderstanding. And what's interesting is that it's still in the words, so the fact that artery means air carrier.
+
+[00:18:15] And then they're confused about the airways as well. So they call the trachea. The original word is actually arteria trachea. So they're calling it an artery, but in order to differentiate it from other what they think are air-carrying vessels, they call it the rough artery, so arteria trachea. So we still call it trachea. we just missed the artery bit of it.
+
+[00:18:38] But they were totally confused about the whole thing. I mean, a lot of it goes back to Aristotle. He did a lot of great work, and he knew quite a bit about how bodies were put together, and then he kind of made it up. So he reckoned that the heart was making blood, and they could see that blood was moving through some vessels and going to the periphery,
+
+[00:18:58] but then they thought that the body was just consuming it. So they thought blood was constantly being made and consumed by the body. And then, as far as he was concerned, and the lungs, just to cool the heart down. So the heart's working so hard, it's getting really hot. So it needs the lungs to cool it down. Also, the brain is another radiator to help cool the heart as well. Right.
+
+[00:19:15] And that's all the brain is doing. It's just a cooling mechanism. Yeah. And you're thinking from your heart too. So your heart is the seat of your emotions and your intellect. Yes. It's doing a lot. It's doing a lot, yeah.
+
+[00:19:27] If today I went to see a doctor who still believe this, how much of a difference would that make on my survival? Bible. Like, because they knew there was still blood in there. Yeah, actually, like, it was William Harvey who found out that the heart was pumping blood around the body. And a lot of people didn't really like that idea, a lot of physicians, because their theory kind of worked.
+
+[00:19:52] Like, it worked for them, do you know what I mean? So him coming up with this new way that their heart works, they kind of resisted it quite a lot of the time. And he put it in his book, which is in Latin, so I'm not going to read it. But it was, he put it right. I've seen it recently. I went into the Royal College of Physicians, and they got out the first edition of DeMoto Cordes
+
+[00:20:11] on the motion of the heart and the way that the blood is moved around the body. And it's just incredible. And what he's worked out that nobody else had worked out before is that veins carried blood back to the heart. So that he was going, right, yes, blood is being pushed out, but it's also coming back again. And he said, there's a closed loop, actually.
+
+[00:20:31] But he still didn't know why. He still didn't know why blood was being. pumped off to the lungs and then coming back to the heart again. They could see some connections between arteries and veins in the gut. So they could see that happening at some levels, but they couldn't see capillaries. And then it was a Cornish doctor called John Mayo, who's a hero of mine. I think he's fantastic. And he basically went, well, I think something's going on in the lungs. I think the blood's getting something out of the air. I think tiny particles are coming out of the air into the blood in the lungs. And that's what's going on.
+
+[00:21:00] And that was 100 years before anybody knew about it. And then in the end, it is air going through, but it's just inside the blood. Yeah. Count one for Aristotle, I think. Well, he knew what he was talking about. He put it in shorthand, but you know. William Harvey was friends with Charles I. And Charles I used to get him deer
+
+[00:21:19] to use in his experiments. Because obviously kings have lots of deer at their disposal. And Harvey was there when Charles was, people had this thing called scrofula and it was thought that the king could touch you in it would make you better and William Harvey was one of the people
+
+[00:21:38] who was there sort of like with a notepad going yep they got better they got better they got better and also Charles Wait what did he definitely did that and also Charles I first sent him to Burnley in Lancashire because there was a report of some witches there
+
+[00:21:53] and he had to go to Burnley and count their nipples now was that was he volunteering for this job or was he just send the king asked him to do it because actually charles wasn't massively into sort of burning witches and killing witches like his predecessors had been so he wanted to do an actual you know just check it out whether it was happening harvey went over said these people are all completely normal we shouldn't be killing them and they all got pardoned by charles the first oh why would they
+
+[00:22:22] have had more nipples like were they supernumering nipples was the idea if you were in which you needed extra nipples to feed your like black cats and the devil I'm afraid there's a known fact that witches do have a nipple on their tailbone which is where the devil feeds I'm sorry it's a bit well it's just science guys
+
+[00:22:43] It's worse than Aristotle It'd be a bit grown up about it No no That was the belief in the 17th century It was all a bit sort of like fruity stuff You know Basically they'll find something If you think you're a witch
+
+[00:22:55] They'll find something Especially if you go to Burnley I just hear the ghost to Faraday in this room going, what's happened to my institution? So when was it? At what point did we realize blood was where it is? Who was that? Who was that person? It's just, it's gradual. It's a really gradual process. So Galen saw that arteries did contain blood.
+
+[00:23:18] So he was a physician in the first century. He was physician to Marcus Aurelius and he was a surgeon for the gladiators as well. So he worked out, yeah, he worked out that these arteries didn't have air in them, that they had blood in them. But he still didn't understand the circulation. So that comes along much later. Then there's an Arabic physician called Ibn al-Nafis in the 13th century
+
+[00:23:41] who works out that there's a pulmonary loop, but he doesn't link it up with the rest of the circulation. So it's pulmonary lung. Yeah, absolutely. So it's just gradual step. So we often kind of put Harvey up there, but he's standing on the shoulders of giants. I mean, you always are in science, aren't you?
+
+[00:23:59] like gradual increments. There was a thing, wasn't there, where people thought the blood went out, let's say the blood goes out to my hand and then back to the heart and the same blood goes out to my hand and then back to that. It's kind of like a big hokey-coki-cokey action
+
+[00:24:13] of, like all the blood is going out and then back in. Well, yeah, I mean this is one of the things so in Harvey's time there was this idea that the blood was being made constantly and not that it was coming back actually but it was being made in the heart
+
+[00:24:26] and then pushed out. And he was working out the volume of blood that was being pushed out by the heart and one of his arguments is actually there's too much blood being pushed out for the body to actually potentially possibly absorb this much so it must be coming back it can't be that it's all being pushed out
+
+[00:24:41] and then other people thought that the liver made it they thought because if you kind of look at what the liver's doing it's it's receiving all these nutrients from the gut and that is what it does so it receives all the nutrients come from the veins from the gut go to the liver and then it does a lot of processing of that And then the idea was that that then goes to the heart, gets turned into blood somehow, and then it's all about nutrients. So they just had no idea about oxygen.
+
+[00:25:07] And that being, you know, one of the primary reasons of blood circulating. Obviously, it does take nutrients around as well, but the oxygen is pretty important. Well, yeah, but also, like, there was steps, but people made mistakes as well. And when they realized that there was nutrients as well as oxygen going around the body, there was a guy called Richard Lauer from Carmel. who thought that he could inject soup into the veins of dogs, and that would nourish them. Interesting, yeah. What flavor?
+
+[00:25:39] Not recorded, but I'm afraid it wouldn't matter either way, and it doesn't work. So, again, do not try that at home. Bad for you. Bad for the dog. Soup in the microwave, pets out of the microwave. But that would have been before soup was differentiated into flavors. That was...
+
+[00:25:57] There was only, there was just like some soup and then gruel, I think it was, it was, it was the 18, oh, I want to say 1860s when we got the first. I feel like you're fixating on the wrong part of this stuff. Can I, just while we're on heart, sort of innovations around the heart as well, can I tell you, have you guys heard of Werner Forkman? No, hell. Such an interesting scientist. So he was a young German doctor who, he theorized that you could study the heart. by inserting a catheter into either an artery or a vein, and pushing it towards the heart,
+
+[00:26:34] and then taking an x-ray of yourself and sort of seeing the heart in more detail, basically. That was his premise. And he was a very young doctor. He was about 25 when he came up with this idea. He asked his bosses, can I do this to a patient? No, no, you can't. So he says, well, can I do it to myself?
+
+[00:26:52] His bosses say, no. So at this point he goes a bit rogue, and he just asks a nurse working in this hospital I need to do this to you so to put a catheter in and all the way to the heart he tells her he's going to do it to her she's sort of strapped to a trolley
+
+[00:27:09] but this is the thing he's not going to do it to her he only needs the nurse because he is so junior as a doctor he doesn't have access to catheters so she has opened the catheter cabinet for him he sort of straps it to the table and then while she's strapped to the table she looks over and he's doing it to himself
+
+[00:27:27] he's pushed a catheter all the way into touching his own heart it's stunning he's done it in completely the wrong room to take a picture of so he then has to unstrap her and she has to help him carry all of his clobber and all the attached
+
+[00:27:44] stuff like down two flights of stairs everyone's furious everyone's shouting at him what are you doing wow sorry what year is this 20s I think yes roughly the roughly the 20s maybe 1920s. 1920s.
+
+[00:27:57] So we're still on those old. It was last week. And like, Eve, as a colleague is trying to wrestle this thing out of him, say, no, you can't do this. This is insane. He goes, ta-da! And there it is. Photo is taken, x-ray image of his own heart. Amazing.
+
+[00:28:16] Right. It doesn't really go anywhere, right? His career doesn't go especially well. He's a German doctor. He goes through World War II as a German army doctor. Nothing he thinks has really come of his. his sort of idea all those years ago. And then he gets these weird phone calls in 1956
+
+[00:28:30] from foreign-accented people saying, and... Yeah. He's won a Nobel Prize. He's won a Nobel Prize for this, because it turns out other doctors carried on his innovations
+
+[00:28:45] and went further with it. I'm sorry for Carrie. I'm just laughing about the fact that we have mentioned the Nobel Prize recently in a couple of episodes, and any time we talk about the phone call... This is like the body of science excellence. And every time one of the three of us go,
+
+[00:29:00] oh, the board, do you all the board. So rude. It's terrible. Yeah. It's the Swedish chef from the Muppets, isn't it? The Swedish chef from the Muppets. Yeah. So he won the Nobel Prize.
+
+[00:29:14] He won a Nobel Prize for it. Yeah. That is amazing. I didn't know that story. And I've just been making a series on the history of Bart's Hospital and looking at all the history there because it's 900 years old, just over 900 years old
+
+[00:29:26] but also looking at it as a modern hospital and it's obviously a big cardiac centre here in London and it is there's so much of what's done with people's hearts now is using catheters so advancing catheters through arteries sticking little stents into coronary arteries to open
+
+[00:29:42] them up again if people are you know if people have got angina and they're not getting a good enough blood supply to their hearts so he did the groundwork for that you know his that was that was you know his bravery sticking that catheter into a blood vessel and working out that you could actually get that all the way to the heart.
+
+[00:29:59] That's incredible. It's saving people's lives today. Yeah. Yeah. We should move on in a second. I just want to give a quick shout out. We mentioned Galen. What an incredible character.
+
+[00:30:07] He is the writer of his period, right? Like that's virtually the only medical writing that has survived to our day. He was a doctor as well, as you mentioned before. But he also had these amazing inventions talking about the basket hat earlier that we were talking about with Picard. he invented the helmet hangover cure. So it was, he said if you had a hangover, just put cabbage on your head and wear the cabbage on your head
+
+[00:30:31] and that would cure your hangover. And he didn't get the Nobel Prize. He was overlooked, unbelievable. That was to cool it down, I guess. Yeah. Because I think Babe Ruth always wore a cabbage leaf underneath his hat to cool his head down. Did he?
+
+[00:30:45] He'd been reading Galen. I mean, it's amazing, isn't it? Yeah. It is time for fact number three, and that is Andy. My fact is that theoretically, electric cars could run on kryptonite. So this is a very exciting discovery of this century. The 20s? The early 2000s.
+
+[00:31:15] There's a mine in Serbia, and a chemical was discovered in there called Jadarite. and its scientific name is sodium lithium boron silicate hydroxide with fluorine and a scientist, Dr. Chris Stanley, he's a mineralogist he looked on the web for that formula after this huge deposit of this stuff
+
+[00:31:35] was found. He could only find that formula in one other place and it's in Superman Returns and Lex Luthor steals a case of it from a museum to try and beat Superman, whatever. But basically this stuff, Jadarite, is a building block of lithium. You can refine lithium
+
+[00:31:51] from it. And this quantity of it in this mine in Serbia is so big that it could produce, I think, 90% of the entirety of Europe's target of electric car batteries. It's a huge quantity. And yet the really weird thing is, this stuff, Jeterite, is only found in this one mine in Serbia. Yes. It's never been found anywhere else in the world. And it's basically the chemical recipe to produce it is very precise. It's absolutely crazy. So you need to find an alkaline-rich terminal lake and some lithium-rich volcanic glass and while those two things are together they have to transform clay materials
+
+[00:32:28] into very specific rare crystalline structures I don't understand any of that but this has been found out quite recently I think this year actually by two scientists called Chris Stanley and Mike Rumsey but what that means now that they've worked that out we don't necessarily have to go to Yadar in Serbia to get it we can make it ourselves
+
+[00:32:48] so Superman returns I don't know if you've seen it. Oh, here you go. It's, what's remarkable is that is where kryptonite was given the chemical description. The makers of the film brought someone in to come up with what it would be made up of. And that happened and was released only, I think, a few months before then the people who released what Jardinite was made up of, released it. So it was right. It was like when Deep Impact in Armageddon came out at the same time.
+
+[00:33:15] It was like, no one had planned that. That's amazing. Yeah, it's pretty crazy. and also in Superman Returns. It's the first Superman movie since the fourth Superman movie and the final words in Superman 4 are, I'll see you in 20.
+
+[00:33:30] And then Superman Returns was made 20 years later and not on purpose. Alice, you're giving me a look like you're saying, keep talking about Superman Returns, Dan. It's got to be on purpose, surely. You would think, right?
+
+[00:33:44] But no, apparently it was a... It's so nice to see you on home territory. Finally, Dan. And none of this is anything to do with Krypton, which is a completely innocuous noble gas. Which is an actual gas. That's an actual element. And that was found in 1898. It's very unreactive with almost everything.
+
+[00:34:02] But you do occasionally get it between the glass in double-paned windows. Do you? Yeah, that's a use for Krypton. I mean, don't go, don't rush home. Just a warning, Alice, if you ever have a dinner at Andy's house, this is the kind of chat. He takes you to his windows. You know, it's a bit of Krypton. Yes, what's in here.
+
+[00:34:21] It's really interesting how it was found. It's so cool. So William Ramsey and Morris Travers. Ramsey found Argon. Then he went on a bit of a streak. Identified helium and Krypton and neon and xenon and radon. It's just working with the name you don't. The whole family of noble gases, he found.
+
+[00:34:39] That only feels like he's learned how to do one thing, though. Oh. You know, like in the Olympics, when someone's really good at swimming and win like 10 gold medals. And it's like, you're only good at swimming. this is why James was fired from the commentating job for the another medal, what was it for? Oh, swimming again. Swimming in a slightly different way. Brilliant, well done. Well done.
+
+[00:35:10] So apparently, Batman keeps a bit of kryptonite in his belt at all times. Get out. Yep. In case Superman goes evil again. In case he goes evil again. Now, there are theories that Superman gave him the kryptonite as a sort of insurance policy to say you can trust me. You're okay, Alice? I've never made a guest look like they want to leave the show
+
+[00:35:33] as much as you in 11 years of doing this. Quick, someone else. Electric vehicles. Thank you. Yeah, go on them. Do you reckon they set on fire more or less than normal petrol cars?
+
+[00:35:46] Catch fire? Yeah. oh well they catch fire every 15 minutes I think I have read that you know yeah well actually like if you look in the news there's always like another car set on fire electric car but there was a study done this year that found
+
+[00:36:00] they sat on fire much less it's about 20 times less than a petrol car they set on fire but the problem is that the fires are much more spectacular when they go up because lithium batteries burn very very very hot and also once you put them out they can just
+
+[00:36:17] set on fire again later really Let's say they go into some water as well, like the water and lithium reacts very badly together. And so what they do is when you, if your car has been on fire, in some departments in America, they'll submerge them in fresh water for 24 hours before they're certain that they definitely won't catch fire again. I am always a bit worried about this because at home, we've got an electric car and we've also got little RC cars as well. What are they, sorry? Little radio control cars. Oh, nice. Yeah, yeah.
+
+[00:36:46] And they've got these batteries that you have to charge in a metal box. So when I'm charging out the batteries from my radio control car, it's in a metal box. When I'm charging up my other car, the actual car, I just plug it in. Oh, yeah. I don't put it in a metal box. The microwave? I think that's fine. Get all those ants out of there.
+
+[00:37:09] Can I tell you my favorite electric vehicle of the year? Okay. All right, he's going for the top gear job. It's a really cool one. Okay, no, it's really cool. There's a big Australian mining company called Fortescue, and they're on a huge sort of net zero drive at the moment because, you know, mining is pretty bad for the environment.
+
+[00:37:25] In general, a lot of big vehicles burning lots of diesel, blah, blah, blah. Fortescue are testing out loads of electric stuff at the moment and trying to get it all into their fleet. One of the things they're testing is an infinite train. Is it the circle line? It's the circle line. It's a battery-powered electric train, right? It loads up with a load of iron ore, I think, whatever they're getting out of the ground, right?
+
+[00:37:51] It carries it to where it needs to be next, you know, loaded onto the next bit of the journey, right? But it's on a slight downhill gradient because it's come to the sort of the top of a big open-cast mine. So it goes downhill. It breaks and it does regenerative braking to recharge the battery as it descends. And then by the time it's got to the bottom and unloaded all the stuff it was carrying, it has gained enough charge to go all the way back around to the top and get filled up again.
+
+[00:38:19] Can you explain entropy to Andrew, please? At some point, you're going to lose some energy in terms of friction. Oh, you'll top it up, you'll top it up. No, no, no, but it's because it's so much heavier on the way down, the regenerative braking on the way down, it does charge the battery up more than, maybe not more than enough.
+
+[00:38:38] You'll need to charge it occasionally, okay. I guess the laws of physics, aka Alice, are giving me a bit of a look, and that's fine, and I respect those laws. What a cool alias for you, Alice, the laws of physics.
+
+[00:38:51] It's still pretty good. We need to move on to our final. I haven't even told you about my second favorite electric car of the year. It's a car that can... Thank you, guys. Scattered, scattered, but I'll take it.
+
+[00:39:07] McMurtry, this is a car, it is an electric car as well, that's kind of incidental to why it's so cool. It can go upside down. Okay. It genuinely can, and the laws of physics don't have anything to say about it, unless I promise. I think all cars can go upside down.
+
+[00:39:25] Like, if you drive them particularly badly. Great point. Don't they say that about F1 cars as well, that when they're in tunnels, they go so fast that you can, in theory, drive on. This is part of the thing. So really good cars, and especially Formula One cars, they have a lot of downforce, right?
+
+[00:39:39] And the reason that's good is more grip on the road. This particular one is a fan car, right? It sucks air out from beneath it. It's basically got a skirt all the way around it, but a very, very efficient skirt. It's a hovercraft. It's a hovercraft. It's a hot...
+
+[00:39:57] Yeah. Yes. So the car weighs a thousand kilos, and it can generate 2,000 kilos of downforce. And I've watched the training, the sort of video where they tested out this year, it drives onto this platform the platform just revolves
+
+[00:40:13] upside down and the car stays. Okay, and what is the use? Well, double capacity on the black wall tunnel. Easy. Yes. I drove a hovercraft once as well. This is on Coast, too, so they found all these
+
+[00:40:31] kind of weird experiments for me to do. So there was the one where they attached all the balloons to me and tried to float me into air. And then there's another one where they gave me a hovercraft to drive myself. and I was just on my own and this hovercraft and it was fantastic and I was driving it
+
+[00:40:43] and obviously the nice thing about hovercraft is that you don't have to be on the ground you can be on the water so I was on a beach obviously it was the coast it was everything
+
+[00:40:50] had to be at the seaside and I just went off the beach and went over the waves and went out to see and then realised I didn't know how to turn around and I was just disappearing off into the distance as they film me
+
+[00:41:02] it's the old goose pickard of BBC too they thought it was quite amusing and then there was a bit of a panic What happened in the end? Well, eventually I did realize, I did work it out, but it took me a while. And I had to kind of overcome that moment to panic and go, right, I must actually be able to do this. You didn't just go right around the world and come back in the other side.
+
+[00:41:22] How small to Hofcroft? I thought they were only gigantic things with, you know, like Carfeathers. One person hovercraft. You get one person of craft. Yeah. Amazing. We used to, in Hong Kong, where I grew up, to get from Kowloon side and various other islands, you'd go by Hovercraft. and when I was born, my dad went back to Discovery Bay, which is where we lived,
+
+[00:41:42] and he went to get back stuff that we needed because it was a sort of emergency birth. And so he went back home, and he was so tired that he had an hour sleep, got his stuff, and came back to Hong Kong Island. Sitting on the hovercraft, he suddenly was really ill because he was so tired. So he said, can I just step outside? And they said, yes. So he went outside the back, and he was breathing, and he noticed that the hovercraft lifted and started slowly moving.
+
+[00:42:05] So he went to go back inside and the door was locked. And he traveled the journey of Discovery Bay to Hong Kong, which is about 20, 30 minutes, on the back of a hovercraft holding on. Oh, my God. No one knew to let him back in. The person forgot that they let him out. He did the entire journey on the back of the hovercraft.
+
+[00:42:25] And then when he landed there, he fell down onto the dock. An ambulance was called. They were bringing him to a local hospital. He said, take me to Adventist. That's where my wife is. We've just had a baby. Took him there. He got into the room
+
+[00:42:38] because he was like, I know which room I'm going to. So suddenly they're looking for an escape patient because he just wandered off. Went into the room, kicked my mum out of the bed, and fell asleep.
+
+[00:42:50] That's an origin story that Superman could be proud of. Don't stop. It is time for our final fact of the show and that is my fact. My fact this week is that Pokemon was invented so that others could experience the joy of insect hunting.
+
+[00:43:11] This is really cool. So, Pokemon was created by a man called Satoshi Tajiri. And as a kid, he was an insect collector. He was known as Dr. Bug. And all the students would look at his collections. And they would trade bugs. Anyone else who was an entomologist, an amateur entomologist, they would trade bugs with each other.
+
+[00:43:31] And he then was also very much into video games. He found a mentor who was the man who created Mario and created the legends of Zelda. So, like, what a team. This guy then goes, do you know what, I would love because all the areas that he grew up in as a kid in Japan were being paved over. All the bits where you could find insects were now no longer with any nature around them. And he thought, I want to teach that experience of what it's like to be a collector, to understand the joy. And so that was Pokemon. It was him trying to teach kids the joy of collecting.
+
+[00:44:03] Pretty cool. I love that. It's amazing. Yeah. Very cool. When was that, Dan, do you say? It was... I think 96.
+
+[00:44:10] 96 it came out. Ninety-six, right. Yeah, because actually the number of people collecting insects has plunged since the 1990s. Really? And the articles I've read about it don't mention that people are doing Pokemon instead. But I guess it's possible. But the problem is that, like, people are collect... I mean, maybe it's not great to go around collecting insects.
+
+[00:44:30] I'm not judging on that. But the decline of collecting... insects as a hobby is making conservation much more difficult because entomologists they used to be given like hundreds of butterflies by people when they died they're like, what are we going to do with this? We'll give them to the
+
+[00:44:45] Natural History Museum or whatever. But now they're having fewer and fewer collections given to them. Right. And it's citizen science as well and that's probably useful records that's like that. I think there was another co-founder of Pokemon. Unichi Masuda also spent much of his time as a child collecting insects.
+
+[00:45:01] Yeah. So both of them did. Yeah, and so clearly in, what was that, in 1970s, Osaka and Tokyo, it was just a huge hobby. Yeah, and but like Miyamoto, who was the guy who invented Mario and Zelda, Zelda basically came about because he used to go, he loved finding caves and going into caves, and that gave him the idea of a fantasy adventure. So, weirdly, nature has informed the biggest video games there,
+
+[00:45:25] and I'm pretty sure I'm right in saying that Pokemon is the biggest entertainment franchise of all time. Nothing comes close. Is it really? Yeah. Avengers and that whole Marvel franchise doesn't come close. Mario doesn't even come close. It's Pokemon. Superman returns?
+
+[00:45:40] Not. Insect collecting has given us a lot. It has. It has given us a great deal. The idea of daylight saving? This was first coined by a young boy called George Hudson, who was an avid kiwi insect collector. And he worked in the post office,
+
+[00:45:57] and there wasn't much time in his day to collect insects because he had a job, and he hated it. and so he wrote to the Wellington Philosophical Society this is in the 1880s I believe hey during summer why don't we just shift the clocks back two hours so we've all got more time to go out and collect insects which we all love doing right and I don't think it took off sadly
+
+[00:46:19] but I think he was the first to propose it as a notion and specifically I mean I'm interested in this kind of insect collection thing and the fact that that's dropped off because if that means killing insects that's probably a good idea I wonder if more people are photographing them because obviously we've got these amazing apps now where you can photograph insects and they'll identify
+
+[00:46:37] them for you. So I wonder if there's been a kind of rise in that and that's a better way of collecting. Yes. It's like bird spotting, isn't it? It's just seeing it and writing down and trusting that that's a true account of what you're saying. I think that's probably right. But yeah, I really like Pokemon and the thing
+
+[00:46:53] as a, well, I've been asking my son about it because he was madly into Pokemon but he said I'm not allowed to mention that now because he's almost a teenager and it's not cool. anymore. But the other cool thing that he is into is no such thing as a fish. He's an enormous fan of no such things of him. Yes. Yeah. But he told me that there were 1,025 species. And I did know this actually because I didn't know how many species there were, but I did know that they evolved. And I thought that was really cool about it as well. I didn't know it was inspired by
+
+[00:47:21] biology and insect collecting. But I really liked the fact it had this kind of biological idea woven into it that over time those species could change into other different forms. there's a cancer gene called Pokemon, or have there was. It was called P-O-K-Erythroid, myeloid, ontogenic gene. So it's P-O-K-E-M-O-N. But then Pokemon USA threatened a lawsuit, and they had to rename it. It's now called... Against who? Against the cancer gene? No, against both. I guess against the scientists? There's a trend for naming genes after... Yeah, like Sonic the Hedgehog. Sonic Hedgehog jeans, yeah.
+
+[00:48:01] Yeah. But Pokemon USA, we're not happy about this. And so it's now called Z-B-T-B-7. Oh. B-Ring. In Japan, you can sign legal document with your favorite Pokemon. What do you mean? So they have this thing where you can sign your name,
+
+[00:48:18] or you can have a thing called a Hanco, which is a personal seal. So it's like, what would you call that? Wax seal? Not a wax seal, but like an ink block kind of thing. Oh, yeah. So... Like a stamp? A stamp.
+
+[00:48:31] That was the word I was looking for. So, yeah, an ink stamp. They're called Hanko, and they have only certain ones that you're allowed to use. You can't just use any old thing. But very recently, in the last 10 years, they changed it, so Pokemon's allowed as well. So if you have a favorite Pokemon and you have one of these stamps, you can sign your, probably if I was playing Pokemon too much,
+
+[00:48:52] my divorce papers. Right. With a Hanko. You know that if you depole your name to something else, but then you get a criminal record, you have to stick with that name. If you get a criminal record, are you not allowed to evolve in your Pokemon with your stamp? You stuck as Charmander your whole time? That would be...
+
+[00:49:10] Are they criminals? I'm sorry, I'm really lost. Oh, no. Some of them evolve evil? No. I don't know what's going on. It's okay. That's okay.
+
+[00:49:21] It's okay sometimes to not know. I'm going to have some questions afterwards, Alice's son. If that's all right. Yeah. There was a woman recently who changed her name to... Pudsy bear and then she's sorry we're just on name changes now and she's um she's been turned down for a passport and she's really annoyed about it yeah but you're not allowed to have something covering your face like an eye patch
+
+[00:49:43] lovely um on insect collecting i was reading about someone called liz fowler um in 2016 she went to st helena to look for something called bazalewski's crane fly and they weren't sure if it was extinct or not no had seen one for 45 years and while she was driving down the highway one of them flew through the window and landed on her hand. So cool.
+
+[00:50:10] And in 2014 there was a guy called Javier. He was called Javier. He was called Javier. His surname was Hwanka. Now in... That's how you say it.
+
+[00:50:27] Oh, that's pronounced Wanker, no doubt. There's a group of people in Peru called the Huanka people. And there's a football team called Departivo Wenka. Oh, is that the same? It's named after the same people. Anyway. Yeah, yeah, yeah. Again, we're fixated on the wrong point of this fact,
+
+[00:50:47] which is that while Javier was waiting for a bus. Hands in his pockets. He looked to the tree on his right and found the new species of spider mite, which is what he was studying. So he was literally just waiting for a bus And there it was So I think that's one of the cool things About insect collecting is sometimes
+
+[00:51:06] They just literally land in your lap Yeah, it is amazing But fortune favours the prepared mind Yeah If he hadn't been studying Spider-Myth there's no way he would So what I find very interesting about insect discovery Yeah It's another of these things
+
+[00:51:18] Kind of related to your fact Alice About what we knew when And the misconceptions So there's a very cool early entomologist Her name was Maria Sibilla Merrienne She was born in Frankfurt in 1647 and she's the woman who absolutely nailed the evidence that butterflies used to be caterpillars
+
+[00:51:36] and vice versa. Ah, right. Yeah. Before that, I think it was quite open to debate because... Because it's mental. Because it's mental. The idea that there's a caterpillar
+
+[00:51:47] and then it goes in a little cocoon and then it mushes its whole body up and comes out like a beautiful butterfly. Yeah. It's crazy. It is crazy because they didn't have Pokemon to sort of explain that science to them at the time. But again, it's one of these things it seems crazy
+
+[00:52:01] but also it seems really, really easy to work it out. I mean, it's like the whole thing about Archery's carrying air. You just go, well, you know, you can just keep it in a box. And then one day, there's a butterfly. But that's what she did. She did it for several generations in a row. I don't know why several generations in a row. As you say, you think one would do it.
+
+[00:52:17] But no, no, no. Butterflies from egg to adult. Yeah. Does it else, does it blow your mind in the way that I think it blows ours and possibly everyone else that that can happen with a butterfly, that it can go from this one state to this kind of soupy goop and then become the other thing? Or does that just make sense to you?
+
+[00:52:33] No, it is amazing. But I also think, I mean, I'm absolutely obsessed with embryology. And I've written books about embryology. I teach embryology. And just this idea that we've gone, each of us have gone from being a single cell. You know, that we're all sitting here being trillions of cells. It's not metamorphosis. It's not the same as insects.
+
+[00:52:51] But we've gone to this amazing transformation where you turn into something which looks like a ball of cells. And then it looks like a fluid filled ball of cells. it looks a bit like a sausage and then it graze these little stumpy arms and legs and then its heart starts beat and it's just amazing it's this incredible transformation and it involves a lot of origami-like folding
+
+[00:53:10] and cells moving around say migration of cells inside the body as well it's just incredible yeah it blaze my mind cool I mean you could just say that but that is this how you do you do this how you treat all your guests out. Such a dick. Such a dick. Oh my god. Do you know what? You get to do
+
+[00:53:38] the coolest job in the world, by the way, which is you get to go and see things that have been in the ground that no one has seen for sometimes hundreds of thousands of years, millions of years. I mean, it's an astonishing thing. Finding fossils, finding old bones. I know you've written a bunch of books about that. There was one, because you probably can't collect them in the way that insect collectors keep them because there's you got to they belong to the country right and they have to go to a museum and so when you can't again it's the experiences and the and the photographs and I came across a photograph myself the other day holding lb1 the skull of the of homophrosiensis from lyrangbura cave in indonesia and you know things like that and i was i remember doing that i was film
+
+[00:54:19] incredible human journey for the BBC back in 2008 and turned up in jacarta and it was talking to the curators of the museum there and they said you know who are you what do you do and I said I'm a biological anthropologist and they said okay here's the cupboard with lb1 in you can lay out the fossils and it was just incredible yeah real privilege I read there's a thing that's in your latest book it's in the prolog and it's just so cool this is 20 years ago you were hanging on the side of a cliff and it's because this cliff kept dropping bones down onto the beach below because it was cemetery built on the edge of a cliff and the cliff has been eroding so as it erodes the bones slowly emerge and drop down and you were i mean i just love where the extra stories to where collections
+
+[00:55:09] are being made from that would be a collection of you know cliff drop bones and it was an unnamed cemetery and that all relied on just ordinary people you know walking on the beach and you know noticing that among the seaweed and bits of seaglass and whatever else they were the occasional human bone good grief would you get like half a coffin poking out And it was kind of a sort of... Yeah, it was weird. It was a very ancient cemetery. It was kind of seventh century.
+
+[00:55:32] So there weren't coffins. It was a type of grave called a kissed grave where you almost build the coffin in the ground. So you dig the shaft down and then you put slabs of stone and then you lay the body in. So what we saw when we cleared all the undergrace or overgrowth over the cliff edge away
+
+[00:55:47] were these kind of perpendicular slabs of rock sticking out of a sandy rock face. So it was kind of like red sandstone. So they shouldn't have been there, Well, they weren't naturally there. They were part of these kiss graves. Wow. Yeah.
+
+[00:56:00] So we rescued the bits of bone that were just dropping out and then left it there. But we did usefully map the extent of the cemetery above ground as well using geophysical equipment to scan the ground. Very cool. It's just so cool. It is amazing. And we've just made another series of digging for Britain.
+
+[00:56:15] And, you know, that's just such a joy because it's current archaeology and it's what's just come out of the ground. And there are some, oh, my God, I don't think I'm allowed to talk about it yet. Maybe I can. There's this absolutely amazing. which is an Iron Age find and it is a type of trumpet from the Iron Age where
+
+[00:56:32] nobody's ever found a complete one and we have a complete one from Britain and it is artily astonishing honestly it's amazing amazing that's very cool and the archaeologists when they started excavating it were like oh we think we've got a bit of
+
+[00:56:46] this thing called a Carnix and then they were executing a bit more going we think maybe there's a bit more of it and they lifted it in a block because it's very fragile really fragile ancient bronze work and they took it to your hospital to x-ray it and then MRI scan it. And of course, you know, that was an incredibly exciting day because they're putting it through this MRI scanner and suddenly they realized they've got the whole thing in that block. Wow. It's just amazing.
+
+[00:57:10] Brilliant. Okay, that's it. That is all of our facts. Thank you so much for listening. We're going to be back again next week with another episode. But thank you to the Royal Institution. Thank you so much to Alice Roberts. Alice Domination is out now. It's out in paperback. Yes, very exciting. So go online or into bookshops, get her book. And otherwise, just come back next week because we're going to be back with another episode. We'll see you all. Thank you everyone here so much. Goodbye.

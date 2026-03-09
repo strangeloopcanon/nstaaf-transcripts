@@ -1,0 +1,351 @@
+# No Such Thing As A Fish - 292: No Such Thing as a Blatant Plug for the Book of the Year 2019
+
+- Episode date: October 24, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/292-no-such-thing-as-a-blatant-plug-for-the-book-of-the-year-2019
+- Slug: 292-no-such-thing-as-a-blatant-plug-for-the-book-of-the-year-2019
+
+## Transcript
+
+[00:00:00] Hello, and welcome to an extra special edition of No Such Thing as a Fish, this time we are celebrating the release of our new book, the book of the year 2019, The World's Weirdest News. My name is Dan Schreiber, I am sitting here with Andrew Hunter Murray, Anna Chazinski, and James Harkin, and once again we have gathered around the table with our four favorite facts from our new book, which is out now, and in no particular order, here we go, starting with you, James. Okay, my fact from the book of the year 2019, The World's Weirdest News, is that Greta Thunberg's middle name is Tintin. Amazing. Isn't that great? Now, you can argue this isn't technically true, because... Glad we opened on this one.
+
+[00:00:56] Immediate climb down. Well, she has five names in total, and Tintin is the second one, I call it middle name, so she is called Greta, Tintin, Eleonora, Ernman, Thunberg. Middle name Tintin. That's an incredibly professional way of a view to caveat that fact, James, because any other person would have just said her middle name is Tintin, that's fine, but you said, well, technically it's one outside her middle name, but it's not a first or a surname. We kept editing that sentence out of the actual book, though, in the end. I reckon that any name, which is not your first name or your surname, is technically a middle name. Definitely. Yeah, absolutely. Agreed. Like, if you're in a family of 10 people,
+
+[00:01:35] and you're the ninth child, you say you're one of the middle siblings, don't you? Yeah, sure. I think you only get to single yourself out if you're the first name or the surname. I would tell us the penultimate child. You do, don't you? And you're an only child, which is bizarre. She's not the only person with a fun middle name to appear in our book. Okay. Just very quickly, Lucy Bronze, the footballer for the England football team. Her middle name is Tuff. Yeah, very cool. That's a great middle name. Tuff Bronze. That's good. Yeah.
+
+[00:02:06] But why is Gretta Thunberg's middle name Tintin? Do we know? I don't know, actually. I can only assume her parents were fans. Yeah. Or she has a white dog? She could, although she wouldn't have had it when she was born. No, you're right. I have no other Tintin references, so I can't think of any other reason. She's a sort of young adventurer going around the world having adventures. That's true. That's true. But she wasn't when she was born. No, again. No, you're right.
+
+[00:02:30] She is still very young to be adventuring, though, isn't she? I'm always surprised that she's 16 still, I think. She's amazing. And she's currently, so she took this trip to the U.S. and then going on to Chile to attend these conferences. And she's still, as we speak, traveling down through the U.S. on her way to Chile. And I don't know who she's with. Does she have any parental guidance there? I think is it not true that if you're traveling under the age of 18, your parents can drop you off and then someone can pick you up at the airport and actually, you're fine. I think that's probably what she's doing.
+
+[00:03:03] Yes. Should we just quickly say... She is doing that, by the way. She's definitely would never go by airplane anywhere. No. No, absolutely. I was just going to say, we should say there might be a few people out there who genuinely don't know who Greta Thunberg is. She's one of the biggest names of the year, but the way we've been talking about her, it sounds like she's an adventurer. So she's the environmentalist campaigner who has been causing huge storms of the good kind. It's climate change, which is causing the huge storms. Oh, I keep mixing this up.
+
+[00:03:31] She's trying to fight storms wherever she goes. She started off sitting outside. Was it her Swedish parliament building? Swedish Reichstag, yeah. And she was skipping school to do that, and that turned into the huge school strike movement. But her initial leaflets that she handed out said, I'm doing this because you adults are shitting on my future. Which is a great phrase. It is. Terrible misbehaviour. So she's skived school and then used foul language to abuse strangers. Okay, you have to stop reading the telegraph.
+
+[00:04:02] No, she is great. And she led what were the biggest climate protests in all history. So I think in the space of one month, she led two, which were attended by four million people. She's just extraordinary, isn't it? Amazing. Do you think they'll look back? Like we look back now at Joan of Arc, who was what, 14 years old or something, and can't believe that she managed to have the whole of the French army behind her. But now there's this 16 year old who's got four million, and more than that, let's be honest, people behind her. It's just insane.
+
+[00:04:29] But Greta Thunberg isn't using those people to throw the English out of France. We should say that. There's been a lot of stuff thrown around about her. There is one conspiracy. This is a very mad conspiracy theory about her that says she's actually an Australian actress called Estella Rene, who was working for the deep state. And it's not clear why the deep state would be amazing if you looked back at old episodes of neighbors and she just pops up. Do you know the foundation for this rumor? No. It's just incredibly weird people on the internet. It's really, really local because we know who her parents are,
+
+[00:05:05] we know where she was born. There are records of her all the way through. I wasn't suggesting it might be true. I just wondered if there was any logic to it. Like maybe someone thought she had a tan that maybe she'd got from Australia or... I believe you, Andy. Don't worry. Well, there is another one which is, it's slightly less mad, but it's still completely mad, if you know what I mean, which is that she's got an IMDB page and she's listed as an actress because she once did a voiceover. So that's the evidence for some people saying that she's therefore not real. Okay. Well, her mum was in the arts, wasn't she? She was a performer of some
+
+[00:05:36] sorts. Yeah, opera singer. Yeah. So, okay, that makes sense. You might have your child appear in something at a young age without their consent. I think it's a climate thing that she did a voiceover for, actually. I mean, Donald Trump is listed as an actor on IMDB. So being on IMDB does not mean that you're not a person. Well, he is. No, he is though. He was in Home Alone 2. Yeah. Oh, yeah. Classic scene. He's an actor. He's an actor. He was brilliant in that, I thought. No, I haven't seen it. Yeah, her mother. It's quite interesting. Her mother is a woman called Milena Ernman and she was a famous opera singer, a really famous opera singer in Sweden. And she gave it up because of Greta. So Greta convinced
+
+[00:06:12] her to cancel her entire career because all the international travel is so bad for the environment. Oh, the travel. I was thinking like, because you do so much singing and you're kind of breathing a lot. All the carbon dioxide that comes out. I read this is a bit of a, it must be very hard trying to get everything right when you're trying to do your best to stop a carbon footprint. So her going across to America in a boat, I read that, unfortunately, in order to get the boat back, they had to fly out to the boat pilots to America in order to bring it back. What? They could have just sent them off in another boat. Exactly. Well, why weren't they in the boat? What's going on? Where were they?
+
+[00:06:50] They did, but they did, they said in response to that, that their whole flight was carbon neutral. So they, you know, what's it called when you count, they offset the carbon of that. It's tricky though, because offsetting is a thing which some people say doesn't really work. You can't really suck up carbon in the same way that. I think the argument mostly is that by doing it, people think that it's okay to fly. Right. And so if you think, oh, I'm going to offset it, then you might be more inclined to do more short-haul flying. The protests, the environmental protests have been pretty interesting. There was a really good fact that one of you guys found, I think, which is that the levels of pollution on Oxford Street fell by 45% due to the extinction
+
+[00:07:26] rebellion protests, because they stopped all of the cars going there, which is really cool. That's very cool. That's like immediate action. And also, I found this protest in Australia, which was pretty cool. It was on Manly Beach near Sydney, and 150 protesters buried their heads in the sand. That's a great protest. Isn't that cool? The pictures are amazing. They look like they're praying, you know, they're right on their knees with their heads down and stuff like that. That's very funny. Did they have guards to stop people just running around kicking them all up the ass one after the other? I didn't see any guards. I support the protests. I just want to make it clear, but we didn't assume you didn't. We did when he implied that he was going to rod along the
+
+[00:08:09] beach of protesters kicking them all in the ass. I think the implication was you support the protest, but if you see a big row of asses in the air, you have to kick them. You could play them like bongos. It's not quite as violent, but it's still funny. One of the first things extinction rebellion did was to occupy the offices of, guess where? So was it in Sweden? No, I think it was here actually. London, okay, the offices of Shell. It was Greenpeace. Was it? Yeah. They handed out flowers, but they also gave out leaflets saying we're going to be much more assertive about this than you guys have been. Greenpeace do their share of stunt protests and things, but extinction rebellion, we're just marking their territory. God, I think of Greenpeace as quite assertive.
+
+[00:08:58] They also had this thing in July where hundreds of environmental climate demonstrators picketed the headquarters of Drax, and that's Drax is a big energy and gas giant, and they were picketing them over a new gas-powered plant that they were planning in Yorkshire, I think. Anyway, they hadn't done the research. Drax moved out of that building over a year ago, and they instead chained themselves to this block in Moorgate, which is now occupied by Europe's leading renewables generator. You can't win them all. I love the headline that we actually have for the extinction rebellion article in our book is a woman glued her breast to the road to protest against climate change, and this was just the most wonderful. The glue was just fantastic.
+
+[00:09:37] They were gluing their bums to the windows in Westminster. They were gluing themselves on streets. A guy did it on top of a plane the other day. Did you see that? What? Glued himself on top of a plane? It was part of this new extinction rebellion sort of revival. He was getting on a plane from the steps on the outside, and he climbed on top, and he glued himself to the top. So, yeah, disrupted this flight. That is amazing. I know. There's a bit of me that wish that they just pranked him, just closed the door and started heading down. Andy really behind the plane trying to kick him in the ass.
+
+[00:10:11] Just want to say I do support the whole thing. Thank you. There were the people who glued themselves to Corbyn's house, weren't there? I think it was four protesters. Glued themselves outside Jeremy Corbyn's home, but a lot of these people are very nice people, the climate protesters, so they admitted they felt absolutely terrible about upsetting his wife, who was indoors at the time, and they had flowers and Easter eggs delivered to the house to apologize for the inconvenience. I think sort of while they were still glued, I think maybe one of them with their toes dialed the flower delivery service or something.
+
+[00:10:40] One protestor was arrested while dressed as some broccoli. That was a great shot. He looks very, very good because they've been very creative with the costumes and everything, and as he was arrested, he was heard to be shouting, either give peace a chance or give peace a chance, not clear which he was shouting. Why was he a broccoli then? Because broccoli is good for you, you should eat less meat, you know, this kind of stuff. It's green. I get that, but dressed as a pea, if that's going to be your line. What about broccoli fossil fuels in the ground?
+
+[00:11:11] Very nice. He could have done with you. I do support what he did. Just can I just say my favorite group of people who are protesting climate change is drug users and drug dealers with them. So this was the news this year. This is in our book that cocaine is now being sold in environmentally friendly pods. This was an interview that was done, I think, in the Birmingham Mail, the Birmingham Post, and they interviewed a drug user who said that he thought this dealer was joking when he gave him a reusable container with this cocaine in it. He was like, what on earth is that, mate? And the dealer said, basically,
+
+[00:11:44] we're not using the plastic Ziploc bags anymore. We are using these reusable ones. And if you want a refill of cocaine, you're going to have to bring back your reusable container. You know what? I'm going to take it up again. That was always a deal breaker for me. And finally, they could have just introduced a 5p charge for a small plastic container of drugs. I would have been amazed. Okay, it is time for fact number two, and that is Andy. My fact is that you can now be pulled over for drink driving by your own car. Where did you read this fact, Andy? Did you read it in a book?
+
+[00:12:25] Oh, yes, sir. I read it in the book. No, I wrote it in the book of the year. The world's weirdest news. You've read it since, though, right? Of course. It's my bedside reading, but... Sorry, just check. I just wanted the citation in there. What an aggressive and unhelpful start to a fact. I'm so sorry. I read it on a newspaper website, probably,
+
+[00:12:44] and then I wrote it down in the book that we've all just written between us. Sorry, what's that book? It's called The Book of the Year 2019, the world's weirdest news. All right. Title. When's it out? I don't know. Now, Andy, now. It's out now.
+
+[00:12:56] How do you miss the point of this podcast? We're just trying to get you to say the name of the book. Got it. It's out now. Okay, so anyway. As you are. Volvo have developed this car, or they have announced they are developing a car, which can tell you off for drink driving if it detects that you're drunk. I'm sorry, it just tells you off.
+
+[00:13:18] It doesn't let you stop or anything. It just says you naughty boy. I think it actually can pull over to the side of the road. It's still in development, so this is not a standard in new Volvo's that you buy. But I think it detects from the way you're driving, if you're driving very, very drunkenly. What if, for instance, not saying I'm like this, but what if you're just a very bad driver?
+
+[00:13:39] You'll never drive again, I'm afraid. Even if I'm sober. I'm afraid not, no. Actually, a bit better after a few drinks, so I don't see why. Can I just say that is not true? You don't support the drink drivers. That's very clever. So it was a car that detects if you've driven through your own kitchen window or something.
+
+[00:13:56] Basically. Yeah. Volvo also had some other interesting technology that it announced this year, didn't it? And that was that its cars will warn each other if you're driving on icy roads. So cool. So cool.
+
+[00:14:10] So I believe this is still in development, but yeah, it'll be automatic detection. If you're on an icy road and your car detects a lack of friction, it will tell all the other Volvo's nearby, so the people driving them will get warnings. And if you don't drive a Volvo, then I guess you're buggered. That's very cool. Well, we're doing an advert for Volvo.
+
+[00:14:27] The great thing about Volvo, I always thought, was the fact that they invented the seatbelt, right? The modern seatbelt that we have, which is kind of a 3.1, it kind of comes across your chest and your waist. They invented it and they never patented it, so it meant that everyone could use it for free because they realized that it was so good for safety that it would be better to be in every car
+
+[00:14:48] and they didn't want the money for it. But one thing that they are working on at the moment is a self-driving car seatbelt. Okay, because when you're in your self-driving car, you're probably not going to want to sit there at the front looking out of the windscreen. You might want to be having a lie down or you might want to be kind of playing video games
+
+[00:15:07] or something like that. Yeah. And so they have come up with a seatbelt blanket. So you kind of lie down or kind of lounge a little bit and then the strap goes across your whole body, about across your legs, across your chest and everything like that, but it's not like you're being strapped down
+
+[00:15:24] because you're in a hospital or something like that. Yeah, because you're making it sound like you're sort of mummified into the car. It's not quite that. It's supposed to not feel restrictive, but it does kind of cocoon you. That's brilliant. And that's a new thing that they're working on.
+
+[00:15:36] That's very cool. Yeah. When you set a self-driving seatbelt, I thought it was if you'd driven off without your seatbelt, your seatbelt at home would remember and it would drive out to the car and catch up with you and then get into the car. I've got another car development thing here.
+
+[00:15:52] It's not Volvo. Well, I'm not interested then. I stupidly took a sponsorship from Ford, which are fantastic cars. And but this year, and this is in our robots article, Ford have developed a robotic bottom which they test on their car seats.
+
+[00:16:09] So this is the idea of testing for wear and tear in your car seats. They've had that for a while, haven't they? Yes, they have. But what they've added to it this year, this is the 2019 edition, it now has sweat glands, so it can mimic the behavior of someone
+
+[00:16:21] with a very sweaty bottom. You know, you're driving on a hot day and you've taken your trousers off to drive, as I always do. See, but the self-driving trousers are on the way. They'll get there eventually. That's, I think that's a real shame because you're putting a lot of real life
+
+[00:16:36] human bottom testers out of work, aren't you? That's very true. It's a thing that's dealing with a real issue. Why don't they just find people with sweaty bottoms? That's what I'm saying. Oh, gotcha. I remember when I was at school and they were telling me what kind of job
+
+[00:16:50] I might have in the future and they did check how sweaty my bottom was. And they did think I would be able to do this as a job. I think that guy's been reported to the authorities, actually. Just because this is about sort of new robotics technology, so it's a new robotics. One of my favorite stories in the book was the extreme advance in shoes,
+
+[00:17:09] which is that Nike has invented self-lacing trainers. Yes, wow. Look at that. So these trainers are $300. They fit your foot shape automatically. So you try them on, they fit any foot shape. They're self-lacing, so they don't actually have laces because the robots don't need laces.
+
+[00:17:25] They just tighten and loosen automatically. And the idea is that it would be good in something like basketball, where sometimes you need some looseness for flexibility to increase blood flow. Then sometimes you need it to tighten up when you need more grip. And the problem is it's a total failure on Android phones.
+
+[00:17:43] So people tried it on Android and it often broke after a few days. There were complaints that it only worked on the right shoe. So for some reason, the left shoes just constantly weren't responding. And often the app would also say it's already connected to another pair of trainers.
+
+[00:18:01] So can you just make people fall over as they're walking by you? I guess so. Because you connect your app to their shoes. That's like the modern equivalent of tying someone's shoelaces together. Yes. Speaking of, as we were, self-driving things,
+
+[00:18:15] there is a self-driving wheelie bin that has been developed this year. It's called Smart Can. And the Smart Can creator, who is called Andrew Murray. No. Yes. He said we want to help people eliminate unnecessary chores from their daily lives.
+
+[00:18:32] And what happens is basically when it's bin day, the bins take themselves out. Isn't that great? That's amazing. That's really amazing. So it's not a thing where if you can't afford a self-driving car, but you can afford a self-driving bin, just get in the bin and go to work.
+
+[00:18:47] Not like, chill a pair of eye holes in it. My other car is a Smart Can. There's other car technology. So there's a great company, Ford, who have designed. Give it a rest, mate. The car in front is a Toyota. They've developed something not for cars, but for the bedroom.
+
+[00:19:09] And this is in our book. It's a mattress that nudges you away from your partner if you start getting too near to them in bed. Yeah, it's a mattress. Like a chaperone mattress. It's exactly if you've got... The mother-in-law mattress. You keep your hands off her.
+
+[00:19:25] God, I hope your mother-in-law is not going to be saying that to you. She's coming to your bedroom every evening. You keep her in the cupboard, don't you? Yeah, you've got to sort that relationship out. But back to the fact. So it's a mattress. So the idea is the reason that Ford have been able to make it is they've been using the lane keeping technology
+
+[00:19:46] that they have in their cars, which is it nudges the car away from a lane by taking the steering wheel and moving it. And they've applied it to the bed. And it's only a prototype stage at this point. But yeah. I mean, I'm not familiar with whenever I'm driving a car and slightly go off course,
+
+[00:20:02] then my car gets tipped off the road. But do they do that for all the cars? No, they tip the... Oh, right. Do they have... Self-driving cars. Self-driving cars in the future will have things that keep you in the lane. Got it. So this isn't technology
+
+[00:20:15] that they have in existing Ford cars. Because that's one of the two main struggles when driving, I found, is the left and right of the lane. Staying on the road. Staying on the main one. Yeah, it's the main one. And then you've got the forward and backwards one of how close you are to the car in front.
+
+[00:20:28] And you've got the left or right one of, you know... It's very much a two-dimensional project, isn't it? You're not going up in the... The other one takes care of itself. It doesn't help that your mother-in-law's in the back going, Andy, for Christ's sake. I just have one more bot of the year that I quite liked. So that's trying to help humans out in the future.
+
+[00:20:45] This is Irony Man. Based on Iron Man, name-wise, but in nothing else, this is a sarcastic robot. And it has a useful purpose, which is that, apparently, people trust robots more when... And they seem more natural and trustworthy when they're being a bit sarcastic, because humans are sarcastic or ironic.
+
+[00:21:02] And so when robots are just giving you direct answers all the time, people don't trust them. So they've invented Irony Man, and it does things like it will pair a really deadpan expression with a humorous facial expression, a deadpan words with humorous facial expressions, or it will add sarcastic emphasis. So it will say something like,
+
+[00:21:22] I'm delighted you spilled your pint of beer on me. And then, you know, give a wink. As much as you're in the face for the... Exactly. Violent Irony. It has a slight problem, so it's sort of to help vulnerable people or older people who...
+
+[00:21:37] People get robots to care for them around the house, but it can't tell when's the appropriate time to deploy Irony. So in really sensitive situations, it is currently saying things like... Which you might get with older people. Indeed. Oh, good. You've fallen over. That sort of thing.
+
+[00:21:53] Well, we got just while we're on robots, we've got a fact in the book about the Robot Hotel in Japan, where they fired all of their robot staff and replaced them with humans. And James, you've just went there. I did. I stayed there deliberately, as people would know from our last podcast, but I deliberately went to this town in the Netherlands
+
+[00:22:09] just because I read about it. I deliberately booked into this hotel. Instead of going to a nice hotel, dragged my wife along to this place. And yeah, they have robots at the reception, but I didn't see any other robots in the whole building. Really? I'm afraid.
+
+[00:22:24] Because they used to have them, didn't they? I believe so, but we left quite early that day and the cleaners were there, and they were either extremely realistic robots or they were humans. Oh, really? Because there was one problem was that
+
+[00:22:39] they could only reach a quarter of the rooms, I think. Was that right in the hotel? They couldn't get up certain stairs. And also, whenever a robot met another robot in the corridor, they didn't know how to pass each other. I have that problem a lot as well. Well, you go left and they go left and yeah. It's a nightmare.
+
+[00:22:54] Actually, the only other thing that I did see was they had these amazing cupboards. I don't know if you guys have seen these before, but it's like a cupboard and you put your clothes in. And it's like a washing machine, but I don't think there's any water. And you leave it on for 45 minutes and it freshens up your clothes.
+
+[00:23:08] Wow. So it doesn't wash them, which I learned at this stage. I'd been on the road for two weeks and didn't have many clean clothes. And I thought, maybe it'll wash them. But it does make them a lot fresher. And I think maybe business people use them because obviously in Japan,
+
+[00:23:22] you work long hours and stuff like that. And so it just freshens up the suit up. Do you know how it freshens them? I think it's through air and maybe it's damp air, I think. But you basically hang something up and then close the door and some magic happens and you open it up and it smells quite nice. Wow.
+
+[00:23:39] But it's not clean. That is very cool. I just have one last thing. This is a technology bit of news from the book. And it's that the bass player from Blur, who's also a cheese maker, Alex James, has been this year turned into cheese. It's going to affect the reunion tour pretty badly, isn't it?
+
+[00:23:59] This is quite exciting. This is done as part of the V&A Museum Exhibition in London. And what they did was they took celebrities and they turned them into cheese. So they took bits of bacteria off of them and made them. So Alex James was turned into a block of Cheshire. Professor Green, the musician, was turned into a sort of form of mozzarella.
+
+[00:24:17] The madness singer Suggs was turned into a block of cheddar. You can go visit all these celebs as cheeses. It's like the weird madam to swords. Do you know where on their body they got the bacteria from to make the cheese? Because I think it would affect whether I was going to eat the cheese or not. I don't think you should eat the exhibits.
+
+[00:24:35] Oh, no. So it's not cheese that's being sold. They didn't do it en masse. No, no, it's just it's part of a museum. A lot of waste. That's break in. Well, the thing is with cheese, as it gets better the longer you leave it,
+
+[00:24:50] some cheeses anyway. So maybe once the exhibition is finished, we can all go with a few crackers and eat Alex James. Okay, it is time for fact number three. And that is Chesinsky. My fact this week, taken straight from the book of the year 2019, available from all good bookstores and online.
+
+[00:25:12] That was really professionally done Anna, I must say. That is how you do it. That is really good. Thank you very much, guys. My fact is that in a country of 1.3 billion people, a polling station was set up in the middle of the jungle for one single man. So that can only be India or China.
+
+[00:25:30] And it's one of them. Take a pun. Well, which one has elections? And you've narrowed it down. Yeah, this was an India, Indian election this year, of course a mammoth election. And there was a priest,
+
+[00:25:46] a holy man called Dar Shandas, who he takes care of a temple which is in a wildlife sanctuary very deep in the jungle. It's 70 kilometers into the jungle in Gujarat. And he wanted to vote. And so five election officials traveled the 70 kilometers into the jungle, set up a polling station specifically for this guy.
+
+[00:26:04] And he could vote. Although weirdly, and I couldn't find out why this was, they set it up a kilometer from his house. So they went all that way and they couldn't quite have got the duty of the last kilometer to his front door. I think you've got to make the effort to vote, don't you?
+
+[00:26:15] Yeah, yeah. Like you've got to go, he might want to think about who he's going to vote for during that one kilometer walk. They've probably put placards on the trees all the way, sort of trying to convince him to sway the vote. Yeah, you're right. But this wasn't the only polling station for just one person.
+
+[00:26:28] Was it not? Amazingly. So there was another one in a place called Malagam and the team traveled 300 miles with the polling booth. That must be cumulatively. It must be. And there was a big interview with them and I think a Washington Post it was went along.
+
+[00:26:43] And as they were setting up the voting machines, one of them said, there is both excitement and nervousness. If the one voter turns up, there will be 100% voting. But if she doesn't, it will be 0%. And they got there and the locals nearby said, oh yeah, she's left, she's left the area.
+
+[00:26:59] Oh, wow. And they thought, no, we hope she turns up. But they still have to have it there just in case, I assume, right? Right. And but it's so demanding. So they had to at 5 a.m. wake up and carry out a mock poll with 50 mock votes, even though there's only one voter coming to the polling station.
+
+[00:27:15] And then, thankfully, the woman in question was called Ta'ang and she turned up. She had been 125 miles away looking after her ill mother. She came all the way back to vote here. She arrived at 8.30. She still had to queue up because there was a problem with the machine. No way.
+
+[00:27:30] She voted. And then they had to stay open until 5 p.m. Oh, my God. So if you've ever overslept and missed a council election or something, you should feel incredibly guilty about that story. Considering the polls usually close at 10 o'clock, I think if you've overslept. Come on, James, we've all been students.
+
+[00:27:50] Do we know if the original person that we're talking about with this fact voted? Dutch Hunters did vote. We are not sure who he voted for. Because there's a lot of people to vote for because there are thousands and thousands of thousands of people who take part in this election. Because there's 1.3 billion people, as we said in India,
+
+[00:28:08] and anyone who doesn't have a criminal conviction can stand in the election. So you have so many thousands of people. There's only 543 seats. And in the last election in 2014, we didn't have the figures for this year yet, but 90% of the 8,200 people who were going for election forfeited their deposits.
+
+[00:28:30] I know. So everyone's getting 0% and 0.1% and stuff like that. There's a guy from Tamil Nadu who has contested and lost 201 elections. Oh, wow. How old is he? He must be pretty old. But maybe, like you say, council elections,
+
+[00:28:48] local elections, stuff like that. And there's another guy called Fakad Baba, who is currently on his 17th time running for the national election. And his guru has predicted that his victory will come on the 20th attempt. So he's got so much. That's so annoying having to go through all 20.
+
+[00:29:07] Yeah, only to not win on the 20th attempt. Did you say it's if you're not convicted of something? If you've not been convicted of a criminal offense. But I know there are a lot of people who have been charged. Yeah. So we found out something about this in our research for the book, which is that of the MPs elected, actually elected, 43% are facing criminal charges of some kind.
+
+[00:29:28] And of those, 18% are either charged with murder or attempted murder. So it's about 8% of all elected MPs in India are charged with either murder or attempted murder. And the reason is, of course, because in India they have an unbelievable backlog of cases, which I think we might have mentioned before. Like there are millions.
+
+[00:29:45] If they did one every day or 100 every day, they won't clear it up for something like 1,000 years or something like that. Yeah. Yeah, I think we have discussed. And in fact, there is one story in the book. I think an Indian man was imprisoned this year for, he stole something like 20 rupees in 1979.
+
+[00:30:03] That's right. So it's been 40 years waiting to get through and he pled not guilty. And then he sort of disappeared in 2004. They finally caught up with him, arrested him, put him in jail. And then I think they exonerated him. He spent three months in jail and then they were like, actually, you're not guilty.
+
+[00:30:16] Yeah. I wonder how much evidence you can collect for this theft of 20 rupees. They released him and then they said, don't do it again. I think. They did, but they found him not guilty. You're not guilty, but also don't do the thing
+
+[00:30:28] you're not guilty of again. That's very lucky. It was only three months, because presumably the waiting list to revisit cases must be equally long. Right. Yeah. Yeah.
+
+[00:30:36] Yeah. That's the thing in the Scottish courts, isn't it? They used to have that. I don't know if they've still got that verdict. Not prove it is guilty, not guilty and not proven, which means not guilty, but don't do it again. It's the old line. Yeah.
+
+[00:30:47] Just we should say how amazing and undertaking the Indian election is. So it's held in seven different phases, because India is so vast. As you say, it just shows how swollen our parliamentary system is, because they have about 100 fewer seats than us in parliament, and they managed to rule this massive country. But it lasted this year from 11th of April to 19th of May.
+
+[00:31:06] What, voting? Yeah, voting. So they do it in seven different sections, and it's across 20 states. And of course, Narendra Modi won in the end. Just in sort of political news that we have in the book, one of my favorite stories was about the Prime Minister of Bhutan. We found out this year that he likes to unwind
+
+[00:31:25] from his very stressful job by going to a hospital every Friday and operating on someone. That's what he said. There's a quote. He said, some people play golf, some do archery. I like to operate. Which he is qualified to do, isn't he? Well, no, but he doesn't do operations.
+
+[00:31:37] He's qualified for. That's the amazing thing. He takes a random patient, and he picks a random procedure, and he just does it. It's very impressive. The things you can get away with in public office. For a long time, so before he was Prime Minister, he was the only urological surgeon in Bhutan.
+
+[00:31:51] And he used to have a TV show. He used to go on on the BBS, which is Bhutan Broadcasting Service, and the public would call in and he would give advice over the TV. Oh, like embarrassing bodies, basically. Yeah, but live, I guess. Okay, embarrassing bodies live. What do you want? I've actually seen it.
+
+[00:32:05] I don't know what that show does. That's really interesting. They didn't have TV in Bhutan until the 80s or 90s as well. So he must be like one of the biggest TV stars in history. Yeah, actually, do you know what? It's possible this is radio. I just realized that I can actually put that detail down. Oh, so like any questions on Radio 4?
+
+[00:32:23] But live. Oh, sorry, any answers on Radio 4. That's the one where you ring in. But it's normally ringing in saying what you think about Brexit. It's like Gardner's Question Time, but not about gardening. But about. Urological problems. Please don't call up either Gardner's Question Time
+
+[00:32:37] or any questions with your weird bodily problems, okay? Jonathan Dimbleby will not appreciate it. Who watches that? Hello, is that embarrassing bodies? No, this is Gardner's Question Time. Oh, can I tell you about my problem anyway? I'll go into the garden. Hang on.
+
+[00:32:53] The rash on my penis is still there. Now the neighbors are shouting something. Other political news from the year? Yeah. So there was the election of Zelensky, President of Ukraine, who's recently come into his own by getting involved in American politics. But this, he was a film star. So much like the Putinese guy,
+
+[00:33:19] he was famous before he became President for other reasons. Or Greta Thunberg. Or Greta Thunberg. So he starred in a series called Servant of the People. And it was an extremely popular series where he plays a man, the lead role, where he plays a man who accidentally becomes leader of the country. And so he thought, I'm going to try that for real.
+
+[00:33:40] And so he set up a party called Servant of the People, because why waste that name? And yeah, he smashed it. It's insane. It's so bizarre. I mean, I can't think of a, I guess it's like the stars of the thick of it, isn't it? Actually becoming Prime Minister.
+
+[00:33:54] Or, you know, like the star of the apprentice, becoming President of the United States. Yeah, I guess the thick of it. Yeah, because they are exactly leaders. Did you see the recent news about Zelensky, which is too recent for the book, actually, aside from the fact that Trump's obviously in a small bit of trouble for asking him to look into his rival.
+
+[00:34:14] But Zelensky also just broke the world record for the longest ever press conference. So this is a few days ago. It lasted from 10 in the morning until just after midnight. It's a long press conference. My goodness. And what was that? Questions and answers.
+
+[00:34:31] It was questions and answers. And apparently he largely did it to try and deflect attention, because he's getting in trouble in Ukraine for having got involved with Donald Trump in this questionable way. But at eight hours, so I guess at 6 p.m., someone came up and announced that he'd broken the existing record,
+
+[00:34:44] which was set by Belarus. So presumably everyone thought, oh, thank God we can go away now. He went on for another six hours. That is amazing. It's impressive, isn't it? Wow. And he also said that he had special surgery done,
+
+[00:34:55] or a special treatment done on his vocal cords to make them stronger, had injections to strengthen his vocal cords. Oh yeah, you can get Botox in your vocal cords, can't you, to make them stronger? Oh, that must have been that. But wouldn't that seize them up like it does with your face muscles?
+
+[00:35:08] It would seize them up, but then the amount that you put in depends on how much they're seized up, right? And actually, looking at it now, some of the questions were why your vocal cords looking so sexy. So I think it was the Botox thing. Well, there was who I would have liked
+
+[00:35:26] with when the Ukrainian election, because then they would have been speaking to Trump on the phone and discussing Joe Biden, is the person who was called Darth Vader, who ran for a seat in that election. Right. Darth Victorovich Vader. Wow.
+
+[00:35:41] So you just want to hear his heavy breathing voice on the phone, you're saying? Look, you take it where you can get it. But no, I just like, I just love the idea of instead of Trump being in trouble with Zelensky, being in trouble with Darth Vader. That would have been hilarious.
+
+[00:35:59] Trump turns out to be his son after his fifth term in office. One of my favorite facts of this book. So there was a kid who became quite famous, globally known as Egg Boy. Egg Boy became famous in Australia because he threw an egg, well, smashed an egg, rather,
+
+[00:36:16] on a far-right politician called Fraser Anning during a live TV interview, and Anning punched him, and so he became famous. But it's just a tiny detail that I think James, you found out, that Egg Boy, who got given the nickname Egg Boy
+
+[00:36:30] for the thing that he did, in later interviews, he revealed that at school, he is already known as Egg Boy, because he used to bring hard-boiled eggs to school, and classmates complain that they smell. So he used to be Egg Boy in a bad way. And now he's Egg Boy the hero.
+
+[00:36:47] That's good, though. He's taking back control of the name Egg Boy, really, is what you're saying. Yeah, exactly. His two things have happened in his life. Taking back control. Anna, you have to stop reading the telegram. Seriously.
+
+[00:36:58] There was one more Aussie politician. He got caught replying to his own Facebook post, but under another name. This is Angus Taylor MP. He was a liberal MP, and he posted a video announcing extra parking spaces at train stations. Fine, fair enough.
+
+[00:37:11] And then he immediately replied to it, but under his own account name, saying, Fantastic. Great move. Well done, Angus. And everyone spotted this, and they immediately also started replying,
+
+[00:37:22] Fantastic. Great move. Well done, Angus. So actually, you got what you wanted. Lots of supportive responses. Lots of surprise. That's the Egg Balls. It's the Ed Balls.
+
+[00:37:34] Egg Balls is something you need to see that urologist about. OK, it is time for our final fact of the show, and that is my fact. My fact this week, taken from the book of the year 2019, is that a Canadian man who threw his speeding ticket out of his car window was then given a ticket for littering.
+
+[00:37:58] So he lost twice. That will teach you. He's the opposite of Egg Boy, basically. And two wrongs don't make a right, do they? The speeding ticket didn't undo his... Not in law, definitely. Littering. No.
+
+[00:38:10] Two wrongs and murders. Two murders. That's fine. Did an even number of murders. Yeah. So many people have been ruined by that misconception. It's such a shame. Yeah, there was a lot of funny, weird crime stories this year,
+
+[00:38:23] wasn't there? A lot of kind of fitting ones, a bit like that. So one of the stories in the book is that five guys were arrested at a branch of five guys. The Burger Chain. This was in Florida, and they got into a fistfight.
+
+[00:38:37] It was an out-and-out brawl. And I think we like to think that there were only four guys involved and the police just asked the fifth guy, do you mind if we arrest you as well? We've got to make this work. There was a British fugitive who got arrested. He fled Australia on a jet ski.
+
+[00:38:55] I really like this guy. Where was he going? He was going to Papua New Guinea, which is 120 miles. I think he stopped the fuel at Nyland on the way. However, he ran out of fuel three miles short of Papua New Guinea. And he was wanted, I think, for some pretty bad stuff.
+
+[00:39:12] He was armed with a crossbow as well. And when he arrived at this remote peninsula to refuel with his jet ski, a witness told the Brisbane paper, The Courier Mail, that he stuck out like dogs balls. That just reminds me of the Australian jet ski guy of a story that we had in, I think it was the first book of the year,
+
+[00:39:32] still available, still very readable. Remember the guy who was, I think, he was the musician who had eaten way too much at a restaurant, a seafood restaurant. He jumped into the ocean to escape the police. And his tactic for escaping the water jet, the water ski riding police, was to hide under water.
+
+[00:39:49] I can't remember his name. He had an amazing name. He was a rapper. Yeah, I want to say self-made cash, but he's from this year's budget. Yeah, he is, yeah. Because self-made cash is the rapper who has got done for credit card fraud, right?
+
+[00:40:01] That's right. What was it? I think the judges, when they condemned him this year, said self-made cash, because he's actually written all these songs where the lyrics kind of talk about how you can do a good fraud, or do a decent fraud, mate.
+
+[00:40:18] And so I think when he was sentenced, the judge was like, self-made cash thinks that he is really adept at credit card fraud. He is not. If a judge is saying that to you, you probably know that you're not very good at credit card fraud already, don't you?
+
+[00:40:29] Can I give you a crime story, which wasn't in the book this year? Yeah. This is kind of serious, but also quite amazing. So there was a man who was arrested on suspicion of stalking a female pop idol in Japan. But the way that he stalked her,
+
+[00:40:44] this is incredible, she took photos and selfies and stuff and put them on social media, and he looked at her pupils and looked at the reflection in her pupils of what she was looking at, and then he used Google Street View to find out where she lived.
+
+[00:40:59] From that, isn't that unbelievable? Oh, my God. I mean, that is terrifying. It's terrifying. It's not a fun story, but it's an amazing story. But it's useful, because it means that we should all
+
+[00:41:12] start walking around with our eyes closed, I suppose, from now on. I think just whenever you take a selfie, have your eyes closed. Yeah. But if you really want to be safety-conscious, Anna, just go around with your eyes closed constantly. I think so.
+
+[00:41:22] There was a similar story, though, that is in the book, which was about Alexandria Ocasio-Cortez. Do you remember the thing about the fact that she was in a bath and it was a nude photo of her in the bath, and you could see in the the faucet at the end,
+
+[00:41:36] you could see a reflection that looked like her, and she was insisting that this wasn't her, and they couldn't really prove it. But someone eventually got to the bottom of it, and it was someone who uses the website Wickeyfeet, which is where feet are posted up of celebrity women all over the world, and you rank them,
+
+[00:41:51] and you look at pictures of their feet. Do you? Only sometimes. But this guy is the person who exonerated her for the fact it wasn't her, because he was able to show that it wasn't her feet, and he said, I've sucked enough toes in my life
+
+[00:42:05] to recognize when something doesn't look right. Yeah. I mean... He becomes a hero for doing that, and then immediately in the same sentence becomes a creepiest person alive. There was another, weirdly, another story related to that as well,
+
+[00:42:22] which was about Taylor Swift using facial recognition at her gigs. So, what is it? When you arrived, I think there are lots of booths around, and if you look into the booth, you can get snapped, or your photo is taken,
+
+[00:42:34] or there are cameras all around at her gigs, and then those images are uploaded to a central command post, and then they're cross-referenced with images of people who are known to have been stalkers of Taylor Swift, or have been too creepy, and then... Is that a crime?
+
+[00:42:54] I think being too creepy is a crime. Oh, yeah. Too creepy, sorry. Too creepy. And so then the people can be slung out of the gigs. Yeah. I read, just on the facial recognition thing, that in China,
+
+[00:43:06] they've literally just come up with this new technology which can facially recognize an entire stadium of people. It's... That's what it is. It's a really, really high megapixel camera. So, this is one of the most clear cameras that exist in the world, and you can get an image of 10,
+
+[00:43:22] 20,000 people, and it can facially recognize all of them. Wait, so if those exact 80,000 people are together again somewhere, it'll know that they're the same ones who all attended the Sholton game. That's not the reason... Sorry, did you say 80,000 people in a Bolton game?
+
+[00:43:38] That's my takeaway from that story. That was where that fell down, sorry. No, it's like to look for stalkers or criminals or whatever. Yeah. The purpose is not to have a comeback gig for an audience. I just like the phrase, it could recognize an entire stadium of people. Like, it needs to see that one stadium
+
+[00:43:56] exactly composed that way. It would be an amazing game of spot the difference or worse, Wally, for an AI machine, wouldn't it? That would be fantastic. If you could cajole the 20,000 people to come back again... Apart from one person who can't make it, and they just replace them with someone in a red stripey jumper.
+
+[00:44:12] Amazing. I mean, if you want really good facial recognition, it helps to be an authoritarian state like China because they are way out in front with it. They know what they're doing. That's good advice, I think that. Put on facial recognition, we should also talk about bodily recognition,
+
+[00:44:29] which has a big feature in our book. And this is specifically the story that a Swedish police officer recognized the naked body of a criminal when he was sharing a sauna with him. Wait, did you... I thought he recognized the face. I see your face.
+
+[00:44:44] He doesn't say. He said, we recognized each other. We don't know which part. Wow. I know that rash. What a hero, though. That is amazing.
+
+[00:44:55] Because obviously, saunas, bigger thing in Sweden than they are here. And so he arrested him. He made a naked arrest. They were both naked in the sauna together. And I hadn't realized that they did recognize each other. So it sounds like their eyes met across the steam room. Do you think I reckon if I was the criminal,
+
+[00:45:09] I'd quickly put a shitload of water on the coals. So it got really, really steamy. And then you could make your escape. That's brilliant. That's why I'd be such a great super criminal. We had just a bit of behind the scenes on the writing of this book. Obviously, for all the articles,
+
+[00:45:25] there was a lot of sort of back and forth about what we thought was a funnier way to put things or a better way to write things. Massive arguments. Just put it as it is. Massive, just absolutely life-shattering arguments. We're not yet talking to each other fully again. No, but one of my favorite moment
+
+[00:45:39] was actually an argument that I had with Andy about the drawing for this article, which was of a man that Adam Daughey drew for us, sitting in a sauna with handcuffs around. Adam Daughey is our cartoonist, by the way. For all three books. Our illustrator, yeah. And he drew the criminal in the sauna
+
+[00:45:56] with a towel on sitting on a towel and handcuffs on. Andy wanted the towel removed because he wanted to see the man's bottom. Yeah, but probably because in Scandinavia, they don't use towels. Thank you, James. I wish you'd been in the room for this argument. Yes, but we...
+
+[00:46:09] Oh, no, I would have still come down on that. But he was in handcuffs. So obviously something had happened whereby handcuffs were grabbed. Most likely a towel was grabbed as well. That was your internal logic of the way that... Scene played out. Played out, yeah, yeah.
+
+[00:46:23] Please write in with your votes. Who do you want to leave the show forever? Andy or Dan? Or both. Hit an option C. I've got one fact which didn't, sadly, make it into the book because again, it happened too late.
+
+[00:46:36] But this is another arrest and it's a man in a place called Mould in North Wales. Oh, yeah, I know it really well. Yeah, so he was arrested after he tried on some jeans in a shop, okay? But he then left behind 31 wraps of heroin in the pockets of the jeans that he tried on. I don't say really well.
+
+[00:46:54] I just want to say. Wow, that is amazing. And then, absolutely ballsy as, he went back into the shop to say, oh, I've left my medication behind. It was these 31 little wraps of white powder or whatever. Wow, oh my God. I think I would do that as well
+
+[00:47:09] because they are probably going to track you down at that point anyway. How will they track you down? Oh, CCTV, I suppose. If you've gone in and paid for your dry cleaning, they're going to have your details. Well, it's a clothes shop. He was, he did try, he tried on some.
+
+[00:47:23] Wait a minute. He's taken his trousers off and left them in the clothes shop. I've missed this, so. It wasn't entirely clear to me. I think he's left the clothes shop. He tried the trousers on, but then he was holding the heroin
+
+[00:47:33] and then he put them in the trousers pocket so he could amy himself. Why would he put the, is it? I bet I know. Maybe he was testing the trousers to see how they fit with 31 wraps of heroin and to see if they made the pockets look bulky. I think I have done that in clothes shops,
+
+[00:47:47] not specifically with that substance, but with other class A drugs. 00:47:51,200 --> 00:47:51,920 Yeah, because you do. Well, you put things in the pockets. You need to check the pockets aren't too tight. I think if you're wearing... Crafty, yeah.
+
+[00:47:59] This is, there's an example actually in the book. So we have an article which is called Unusual Suspects, where this actually happened where a drug dealer, a suspected drug dealer in Manchester, left a rucksack stuffed with drugs on a tram and they found him because he had his full name and address on the bag.
+
+[00:48:14] So it does happen that you can. Yeah, criminals are idiots. Another good weird idiot criminal story was, I think this is my top five stories in the book. It's that the owner of the smugglers in hotel was charged with people smuggling. And this is a place in Washington state, it's near the Canadian border.
+
+[00:48:31] And its owner, Robert Boulet, really embraces the smugglers theme. So, you know, he's not trying to hide, he hasn't tried to hide the fact before that he's into the smuggling theme. Every room is named after a famous criminal, you know, or the date or a smuggler theme. Next star is the heroin dealers in.
+
+[00:48:49] And yeah, he just went one step too far and has been charged with 21 counts of inducing, aiding or abetting seven people who are entering Canada illegally. Wow, that's amazing. But the thing I love about this place is I think this is the thing that you've found, Dan, but that in a more unbelievable coincidence,
+
+[00:49:05] in 2012 the smugglers in was a scene of a crime when police arrested three people there for smuggling drugs in a car, coincidence one, and the license plate was smuggler. Yeah, well, this was the thing we mentioned on the podcast years ago. Yeah.
+
+[00:49:20] It just, when we were writing this, I don't think it was my fact, but I recalled that we'd mentioned it. I thought, can't be the same place. And it is, what's the guy doing? Same place. Smuggling, yeah. We should wrap up soon.
+
+[00:49:31] Anyone got anything before we do? Just one other nice little crime story. This is that a man in Salisbury had to excuse himself from jury duty. Do you remember this? He was excusing himself on the grounds that he was scheduled to be the judge in the case in question.
+
+[00:49:46] This was Judge Keith Cutler, and he said, you know, I can't really be on the jury because I'm judging this case. He's resident judge of Winchester and Salisbury, and so he wrote to ask for an exemption, and he was rejected. He was told by the authorities that he had to apply to the resident judge
+
+[00:50:02] if he wanted an exemption, and he wrote back and said, I am the resident judge. All he needs to be is also the executioner. He's an idiot in himself. Okay, that's it. That is all of our facts from our new book, The Book of the Year 2019.
+
+[00:50:23] It is out now. We would so appreciate it if you guys would buy a copy. We're incredibly proud of it. It's very funny. It's so interesting. Sorry, can I just say, like you might think having heard this,
+
+[00:50:34] you've heard everything in the book because we've done so many facts from it, but honestly, there are 1,000 more facts, 2,000 more facts. Yeah, and it's really, this one's really fun. We've all written individual articles about things that we're passionate about.
+
+[00:50:46] James has written about how to make the ultimate betting move to win a lot of money. You've written about the Mueller report, Ann. Yeah, my main passion. Andy got a Sausages article in, finally, finally. Genuinely my main passion. Yeah, I interviewed the mayor of Uranus in America.
+
+[00:51:04] There's a lot of us in the book this time. And it's a great book. It is out now, and it would mean the world to us if you would buy it. If you'd like to get in contact with us to ask us about the book and anything that you've read in it, we can be found on Twitter.
+
+[00:51:17] I'm on at Shriverland. Andy. At Andrew Hunter M. James. I can be found at amazon.com if you search for the book of the year 2019 or in Waterstones or at James Harkin. And Chazitzky.
+
+[00:51:30] You can email podcast at qi.com. Yep, or you can go to our group account at no such thing or our website. No such thing as a fish.com. We have lots up there. All of our previous episodes. Upcoming tickets to tour dates. And you can also find a really exciting
+
+[00:51:42] behind the scenes documentary that we made on our last tour called Behind the Gills. Okay, we'll see you again next week. Goodbye.

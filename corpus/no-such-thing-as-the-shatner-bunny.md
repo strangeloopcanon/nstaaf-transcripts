@@ -1,0 +1,267 @@
+# No Such Thing As A Fish - No Such Thing As The Shatner Bunny
+
+- Episode date: December 21, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-shatner-bunny
+- Slug: no-such-thing-as-the-shatner-bunny
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from our Book of the Year 2018 tour, live from the Union Chapel in London. And Shriver, I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin, and once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that's my fact this week. My fact is, the world's oldest krill was nine years old and was called Alan. He was called Alan. He was called Alan. He was a nine-year-old krill, and Alan would have lived to have been older, but unfortunately, during a routine cleaning of his tank, he escaped and fell down a drain.
+
+[00:01:13] So, yeah, it's a shame because he possibly had many more years. Maybe he survived the drainfall as well, maybe like finding Nemo. He might still be out there. Finding Alan is a less good. That's a good title. He might have been more than nine as well because when they caught him he was an adult so he probably at least two more years on top of that.
+
+[00:01:32] How do you escape as a krill? Because mostly are water-based, aren't you? But presumably he had to sort of struggle out along some surfaces. They were changing the tanks, so they were cleaning the water out. So it was in the process of taking the lid off and exchanging waters
+
+[00:01:46] that Alan thought finally after nine years. It's my chance. Yeah. But unfortunately there was a drain right next to it. Well, he was kept in his own jar for all those nine years by a guy called Tom Ikeeda, who is like one of the best krill scientists in the world. I mean, you all know him.
+
+[00:02:04] I mean, we are actually going to do 20 minutes about krill. But they found out that he was this age, probably about 11, and that is about five times longer than any krill had been known to be alive in the past. It was the first time we found out that they might be this old. And actually, that had huge repercussions for the krill farming industry. and the world at large. So there's an interesting thing about krill.
+
+[00:02:28] So they are the biggest species on earth by biomass, biggest wild species on earth. So humans, all of us all together, weigh about 350 million tons. Cows beat us, they win. They're 650 million tons by, you know, all of them. But they're kind of domesticated. But krill, which are not domesticated, just you try,
+
+[00:02:50] can't be done. Well, for nine years you can keep one in a jar. You can imprison it, but you can never tame his soul. Good old Alan. Always free at heart, wasn't it? Krill, all the krill in the world weigh 379 million tons. So they beat humans. In a fight, they would... Yeah, it would be a weird old fight.
+
+[00:03:13] I think we can all agree that. And that's just one type of krill, right? That's just the Antarctic krill species. So they're the ones, often when people say krill, they're actually talking about Antarctic krill, bear that in mind. They're actually about 85 species, but yeah, Antarctic krill are outweighing us. It's incredible.
+
+[00:03:31] And also, they swim in these big swarms, right, so they can be up to 20 kilometres, these swarms that you see in the ocean, and some are so big that they've been spotted from space. We see... Wait, some of the swarms, not some of the krill, okay? No krill is bigger than about two and a half inches. Oh, so it's the swarms, okay, right.
+
+[00:03:51] Yeah, no, obviously the swarms. Yeah, they're tiny, but they swim in these huge lumps. And, yeah. And most of them are doing that, aren't they? So I think basically the vast majority of your Antarctic krill are in five or six swarms around the Antarctic at any one time. About 70% of the biomass in the whole Antarctic region will be in these four or five or six big swarms of krill.
+
+[00:04:18] They love flocking together. And we don't really know why they swarm together. We can't tell why it's particularly useful. In fact, it's actively almost sometimes not useful, right? Because they're eaten by almost everything else that lives around them. And once they get together, that just gives them a bigger meal on their plate. I don't get it. It's an exciting few decades for krill discoveries,
+
+[00:04:38] because we've just absolutely just blown our minds with new information as the years have gone by. The age of Alan was one thing. It was also... I call it the age of Alan, actually. In the krill world, that's one of the years. known us. Yes, you're right. Yeah, it's that period. And so Tom, Akado, he was the person who also discovered that they could survive for over 200 days of starvation. Yeah, I don't know if, like, if that was, he forgot to... There's an amazing thing about what krill do when they're hungry.
+
+[00:05:07] Okay, this is so weird. So, they repeatedly molt throughout their life. They malt, and then they grow a bit, and then they molt again. But when they're not fed, they shrink after they molt. And this is really rare. And animals that size, basically, nothing else does it. But, but... But the way you can tell how old acrylic is, but after it's molted, is because their eyes stay the same size. So you can tell how hungry a krill is by the ratio of its eye size
+
+[00:05:32] to the length of the rest of the krill. So its eyes are literally bigger than its stomach. Yes. Oh. And the molting thing that you just mentioned, they can molt when they're being attacked. It's a defense mechanism of there. So if you're a predator coming up to a krill
+
+[00:05:50] and you think you've got it, He's gone, and he's just shedded his exterior, and you're holding onto it, thinking, yes, this is going to be yummy. And then you've just, it's like I've got just the skin of you. Imagine being able to do that. Imagine being able to do that. It's useful.
+
+[00:06:04] But also, is it yummy? Because actually, it's... I don't think you imagine being able to do that. Someone has grabbed you in a pub fight. Yeah. It's just like taking a jacket off. I reckon the game of rugby would be very bad in the krill world, wouldn't it?
+
+[00:06:20] Yeah. You'd never be able to be tackled. All the players would end up about one foot high because they repeatedly shed themselves. Imagine going on a first date and finding out two hours later that she left in the first course. This has been a great night. Hello?
+
+[00:06:38] Sorry, Anna. I feel like... No, it's okay. I didn't take your question seriously enough. And I apologize for that. And don't you feel better now that we've sufficiently imagined it? Yeah. I think we're done now. So another way...
+
+[00:06:51] You know, another superpower that Krill have is that they can go through reverse puberty. Reverse puberty. Oh, cool, okay. They can downsize and use their protein from their body as fuel, so adults just molt repeatedly until they look like juveniles again and they lose all their sexual characteristics.
+
+[00:07:11] Really? Yeah. That's a bit traumatic for your partner, isn't it? When they wake up the next day. But if we're on krill superpowers, they have bioluminescence and really advanced bioluminescence. So you can basically use acrylic as a torch. And so bioluminescence is when you can create your own light
+
+[00:07:30] using the bacteria that basically live in you. And in krill, these bacteria live on their eye stalks and on their hips and in their genitals. And they can control the light that these bacteria give off. So they literally have kind of a light switch. And the way this works is that basically they control the amount of oxygen that gets to them. So they have a switch in their sphincters,
+
+[00:07:53] which if they tighten it up, it releases. It's not a very convenient place to put a switch. You certainly don't want other people using it. But when they turn the switch on, they send a flood of oxygen to these bacteria, and then they light up like a torch, like a blue torch. And you can.
+
+[00:08:07] Like, it's amazing. Can you? I don't think you could. You probably didn't have small enough fingers, but they can turn on their own light switches. I also read that in. the 1960s, scientists figured out
+
+[00:08:21] that you could make them permanently glow by giving them LSD. Whoa. What a decade it was for just giving LSD to different things. We need to move on soon.
+
+[00:08:35] But no. More krill. More krill. So the krill. So Krill had this enzyme right that no one else in the animal kingdom has. And also it's really hard
+
+[00:08:47] for us to make in the lab and no one's managed to do it and it seems like it might become really useful in the future if we can farm krill we might be able to use it and there's a load of patents in the US for things that it might be used for and one of them in particular, I think it's a bit dubious but they claim that they've patented krill enzymes
+
+[00:09:04] and that they can cure athletes' foot for skin infections pop a krill under there she'll be right no worries eye infections gum infections, herpes, acne, exma, cancer, HIV, hemorrhoids, wrinkles, warts, diarrhea, boldness and leprosy. I must stress that this is all unproven at the moment. Well, also something you shouldn't believe about them that we've been told over the last year
+
+[00:09:36] is that they can save us from the plastic disaster. So it was quite well covered in a lot of newspapers at the start of this year that there's a cruel species that can digest plastic. So everyone, like, headlines said, could krill be the secret saviors of our plastic polluted seas? The answer is emphatically no. They make it worse. So basically, they digest microplastics. And all they're doing is turning them into little nanoplastics, which is just even smaller, even more likely to be swallowed by other fish, and even more likely to get into our own human tissue.
+
+[00:10:04] But surely, if we make them small enough, the problem goes away. It will never disappear. The answer is never the magic krill, is it? It's always using less plastic, which is... I'm afraid so. we need to move on. If you guys didn't get a full fix of krill from that, just then, there is an amazing book,
+
+[00:10:22] which is where we know about this fact from. Our boss of QI, John Lloyd, actually found this fact, so we should acknowledge his brilliant find. And it's called The Curious Life of Krill. It's a brilliant book. And so, yeah. Okay, it is time for fact number two, and that is Chazinski.
+
+[00:10:40] Yes, my fact is that FDR used to hold cocktail parties during the war where the only rule was don't mention the war. An FDR. FDR, so President Roosevelt, the second, President Franklin Roosevelt, held these parties. He was the original Basil Fulte, basically. And I learned this, this is in a book called Leadership in Turbulent Times. It's by a woman called Doris Goodwin, who I think is basically the presidential biographer and, you know, the leading White House historian of all time. And she wrote a book about how presidents unwind and how important it is as the president
+
+[00:11:17] to do that. And yeah, apparently he was very good at it. He used to host these parties every week and they were a happy hour. He used to actually call them a children's hour, weirdly, and he loved mixing martinis. Roosevelt was a huge martini fan, so he mixed the martinis himself and the one proviso was, you can't talk about
+
+[00:11:33] the war. And the only exception to that was Eleanor, his wife, because she was so serious minded and sincere that she had to talk about the war all the bloody time. But who did she talk to? The wall. He just put her in a corner facing the wall. You say that he was good at mixing and throwing these things,
+
+[00:11:51] but I've read a lot of reports saying that he was terrible at making cocktails. Who was he? Yeah, people didn't like the milk. He got experimental on them. He would throw just ingredients that he thought were interesting, so he would combine garnish of olives with lemon peels. He'd be like, this is going to be great. Sounds good.
+
+[00:12:07] It sounds good, but he would just overdo it with too many ingredients. So they famously know that there was a big superiors. Court Justice, who used to just walk over to a potted plant and pour his cocktail in every time. Because they couldn't stand drinking these cocktails. Really? Yeah, but you're going to... Obviously, not going to just say to the President of the United States
+
+[00:12:25] of America. This is a crap cocktail. The other thing he used to do was he used to get people quite tipsy, so he would get people maybe onto their third or fourth drink while he was still slowly nursing his first one. So I think some people thought that wasn't really fair. Yeah, everyone hates that guy. Was he that guy? I think he might have been. He tried to do that.
+
+[00:12:43] to the entire nation. Yeah, but, Alan, not all of us can drink as quickly as you. It's not really bad. Next to you, Anna, we're all that guy. It's very annoying when people fall behind. But yeah, he was responsible for prohibition, wasn't he? Sorry, for stopping prohibition because he was quite pro-alcohol.
+
+[00:13:01] And I was reading quite a funny thing about that. So April the 6th, apparently, in America, is New Beer's Eve. Are there any Americans here? Have you heard of that? right well you should be celebrating so this is the night when at midnight in 1933 I want to say
+
+[00:13:22] 34 prohibition was stopped there's no way I can edit that to make this should have written that down in 1933 in 1934 basically he said the prohibition ends at midnight
+
+[00:13:42] at 1201 you can all start getting boosted up again and in Chicago they realised that people on the East Coast were going to be allowed to drink before they were because they were a couple of hours behind and so an Illinois House representative launched this whole massive campaign saying Chicago's clocks need to be moved
+
+[00:13:59] permanently forward two hours to make sure that we can start drinking at what would otherwise be 10pm and he kept on petitioning you know the local parliament the local politicians saying we need to move the clocks forward and they didn't Chicago did not agree to move its clocks forward
+
+[00:14:14] just so they could get another two hours of boozing. That's a shame. Roosevelt, on just things he did for fun, because he had a load of hobbies, and he was a really interesting guy. So he loved detective stories, and he thought up a plot for a detective story, but he wanted to involve other people in it.
+
+[00:14:29] So he came up with this plan. He would get a lot of the best detective authors of the day. He would give them all the plot, but the book was written as a round-robin. So he wrote the first chapter, and all the chapters ended on a cliffhanger. And then the next author would write the next chapter, getting the hero out of trouble,
+
+[00:14:46] but then by the end of the chapter, he'd be in trouble again, and then that went on. The whole book was like that. And then the book ended on a cliffhanger. Yeah. It was finally finished about 30 years later. Really?
+
+[00:14:57] Yeah. That's like a huge game of consequences. Yeah, exactly. And it was turned into a film, right? The President's Mystery Story. It was turned into a film the year after. Wow. Which apparently was a terrible film.
+
+[00:15:09] He liked collecting stamps. He did that before he was president, and then when he was president, he invented 200 new stamps so he could collect those as well. That's so clever. No, it's cheating. He also, he is said to have coined, so someone's been looking into the phrase off the record,
+
+[00:15:31] and the earliest citation that this person was looking for found it to be from him. He was the first person to use it, and the citation was made in a newspaper that was published... It's actually very hard to find citations of the phrase, off the record, isn't it? Exactly. I think it's because he really drilled it home on his opening encounter with it. So North Carolina
+
+[00:15:52] newspaper, The Daily Times, this is from November in 1932. It says he, Roosevelt, said that he was going to talk off the record and that it was mighty nice to be able to talk off the record for a change. They hoped to be able to talk off the record often in the future. and he told a couple of funny stories
+
+[00:16:16] and everyone laughed and cheered. That's the news report, but that's supposedly the first time it's ever been used. But then they put that on the record. Yeah. There's a website called Thrillist, which ranked 43 presidents by how much fun they were.
+
+[00:16:32] So this was a couple of years ago, so it was everyone before Trump. Yeah, and yeah, anyway. So just interesting where people came on this. It's pretty arbitrary, but, you know, Rutherford B. Hayes was the least fun president of all time, because not only did he not drink himself, but he banned alcohol from the White House. His wife was known as Lemonade Lucy. Ugh.
+
+[00:16:56] Then 42, 42 was James Polk, whose wife banned any dancing in the White House. So you couldn't polka under Polk. She was probably so sick of hearing that joke. Yeah. Within a week. The old ones are the best ones. and then you've got various other presidents Harry Truman sounds fun
+
+[00:17:17] he had a shot of bourbon at 5am every single day 5 a.m. Yeah, frequently followed by a massage. Do you see... It sounds less sweet now than when I wrote it down. It makes him sound, when we discuss it here in this context, he sounds like a real character,
+
+[00:17:39] but if you actually did that in life, people would think you were a problem. Yeah. Yes. And had one. How do you know that people would think that, Anna? My friends have said that it's an issue for other friends of theirs. Someone who was the opposite of Lemonade Lucy, actually,
+
+[00:17:55] was, I think, the best First Lady of all time. And the person for whom the phrase First Lady was first used. So this was Dolly Madison, so James Madison's wife. So this is between 1809 and 1817. She was First Lady. And she threw a massive house party in the White House every week, every Wednesday. She called them a squeeze, and she'd have between 3 and 500 guests every single week, this House party. And the whole purpose was to destroy the rancorous feeling between the politicians on different sides,
+
+[00:18:27] between at that time the Federalists and the Republicans. And it worked really well. So there were various things that kind of got done because she had these big cocktail parties where they started chatting. In fact, there was a plan to move the capital back to Philadelphia, and then she threw a cocktail party, and then everyone agreed not to do it. and that's why it's not. Lyndon B. Johnson used to love drinking a lot and he used to cause lots of nightmares
+
+[00:18:52] for the Secret Services who were looking after him. He used to drink drive a lot but on his own property so not at the White House property but his other place and he used to drive and he would have a whiskey in his hand and what he would do is he would run out of the whiskey and he would slow the car down, wind down the window and just hold his hand out while a son. Secret Service member had to run up behind the car,
+
+[00:19:16] grab the glass, head back, refill it, and come back while his hand is still just waiting. Still driving? He's still going along, just a bit slower, take it and then zoom off again. You know your car's a crap, don't you, when you can get your member of staff to run alongside it. Yeah. Have you heard about how little fun Benjamin Harrison was?
+
+[00:19:34] No. How little fun? So is he at the bottom of the list? He's not at the bottom of the list. This is a separate list entirely to the fun list, but he was president around the 1890s. Let's not make it a thing. All right. No, he was president in 1891, and for some years I presume on either side of that.
+
+[00:19:59] And he was the first president to live in the White House when it had electricity. So this was a huge innovation at the time, and it was obviously one of the first buildings in America to have electric lighting throughout it. But he and his wife were so, scared of being electrocuted that they never even dared to
+
+[00:20:17] touch the light switches that have been lavishly installed. And to be fair, there was probably a much bigger risk then of being electrocuted. But there are stories that he and his wife sometimes went to sleep with the lights on because they were so scared of turning the lights off of being electrocuted. Wasn't there something about the new Trump
+
+[00:20:33] administration, they couldn't find the light switches or something? It was Steve Bannon when he had, it was the cabinet room where they spoke, which was just off somewhere in the White House. And no one could find the light switch and it was a very dark room so they just had all the initial meetings in the dark because they didn't want to buckle and ask the Obama administration where the light switch was and actually the longer you leave it the more embarrassing it gets
+
+[00:20:56] done out they were all in krill sphincters didn't it um we need to move on shortly to our next amy just speaking of presidents who knew how to party do you guys know about george washington's farewell party from the military in 1788 so we've got a record of his bar tab and this was a party that 55 people attended including him so it was him and a bunch of soldiers and so 55 people they drunk between them 54 bottles of Madeira
+
+[00:21:26] 60 bottles of claret 8 bottles of whiskey 22 bottles of porter 8 of hard cider 12 of beer and 7 bowls of alcoholic punch Wow we've got the tab what were they doing with it that's like they each had a full bottle of
+
+[00:21:43] wine and then all the rest of it afterwards. And a full bottle of Madeira. Yeah, exactly. Mad. There was, um, President Andrew Jackson had to escape the White House when he threw a party after his inauguration because that got too wild with this kind of, let's get everyone, they got 20,000 citizens
+
+[00:21:59] into the White House. Because it used to be that anyone who turned up to the inauguration was allowed into the White House. Of course, in the Trump one, they would all fit. Okay, it is time for fact number three. And that is, Andy. My fact is that the prop bed in the classic British comedy film Carry On Dick is worth 20 million pounds. And that's not just by people who like movie props and ones and
+
+[00:22:27] buy... No, and the Carry On Films. This is such a weird story. Okay, so there's a bed that was used for a number of decades as a film prop and it was bought a few years ago at auction as a Victorian bed and it was bought for about 2,000 pounds. And the guy who bought it, looked at it, and he thought, after he bought it, he thought, actually, I don't think it is a Victorian bed. It looks older. So he called in a historian, historian called Jonathan Foyle, who's been investigating for some years now. Foyle has aged it, and it turns out that the bed dates back to 1486
+
+[00:23:01] and was the marriage bed of King Henry the 7th. We think it's the bed that Henry the 8th was conceived in. This is one of the most... It's the only bit of Royal Tudor furniture left in the world. Wow. And it was used as a prop company in Carry on Dick. It's been in all of them. It's been in Poirot.
+
+[00:23:28] It was in the 1995 Pride and Prejudice. It's got its own IMDB in China. Can you imagine how low it must think it's sunk since being the conception bed of every the eight? with Kenneth Williams lying in there. It's like, I used to have Henry the seventh in me. Peggy from Eastenders making lewd jokes with fake breasts of you.
+
+[00:23:52] I mean, that's horrible. But do we need to start raiding the sets of sort of classic comedies and EastEnders for cabinets that... Mrs. Brown's boys is home to priceless Ming Porcelain. And actually, the story of this bed goes even further because it was almost thrown away, wasn't it? It was part of a hotel.
+
+[00:24:13] And they were selling it off to this auction house, but the builders that removed it from the hotel just left it on the side for trash. Yeah, they left it in the car park, didn't they? In the car park, yeah. Which is quite cool because it means that that was found, that was Henry the 7th bed, which was found in a car park. And of course, Richard III was found in a car park as well.
+
+[00:24:30] Oh, yeah. And those guys, they didn't like each other much. No. They took it to, yeah. But they've got one thing in common at least. Do you think they're bonding over that now? The car park kids in the court. in heaven.
+
+[00:24:45] Yeah. So it's... That's incredible. It's very, very weird. It has this whole history. This historian, Jonathan Foil, who's been investigating it. He's made a film about it.
+
+[00:24:53] If you look at his Twitter feed, there's a really good 40-minute documentary about this bed, and I swear to goodness... When you finish the krill book. It's really good. It's riveting. So it ended up in this house, the house of Thomas Stanley,
+
+[00:25:09] who was the Earl of Derby. And this was just after Hemmy the 7th, because if you were royal, you just had your bed sent ahead of you if you were going to stay somewhere. The bed will be disassembled and transported. But anyway, in 1842, this guy called George Shaw bought it,
+
+[00:25:25] and he didn't know what he had either because he was a fraudster, and he ran a woodworking shop which made fake Tudor furniture. And he made fake beds based on Henry the 7th bed that was nearly identical, but knockoffs, basically,
+
+[00:25:40] and not quite as good. He made copies of it, and then he would have approach local aristocrats and he would say, I found your family's ancestral bed and he would slap on that family's coat of arms. He would put some polish on it to make it look old and he passed it off as for them.
+
+[00:25:56] But he could only do it so many times because obviously aristocrats talk to each other and after a while one of them would say, oh my family's ancestral bed was found recently and I bought it. And then someone else would say, oh, that's weird, so was mine. Yeah. So moving to the modern day of this bed, quite recently they found out
+
+[00:26:13] that it was definitely chewed it through DNA. And so they DNA tested this bed. I didn't think you could even do that. No, wow. It's the thing. So a lot of people saw it and they thought maybe, they looked at the grain of it and thought maybe this has come from some more modern trees in America. But they said, no, no, it's from European oak.
+
+[00:26:33] And they could do a DNA test on it that could show that it was a European oak. Wow. That's really cool. What a Jeremy Kyle show that would be. You've just got two beds next to each other. that's a relief because I thought you were going to say they DNA tested the Henry
+
+[00:26:48] the 7th ejaculate or something and traced it all the way took one off the royal family and checked it matched. I don't know how they do these things. Wow. This bed is very lucky though because most beds for royal families
+
+[00:27:01] did not get used. So monarchs in the, especially in kind of the 16th 17th, 18th centuries had dozens and dozens of beds and never slept in most of them and this is because basically every member of the nobility thought and hoped
+
+[00:27:13] and wished and prayed that the monarch would visit them. Because when, as a monarch, you went on a big tour of Britain, then you stay with your noble friends. And they always made sure they had a room for the king or queen, should they visit, with a bed for the king or queen. And it's the best room in the house. Nobody goes near it until the king visits. And yet, most of them didn't.
+
+[00:27:31] So people spent enormous amounts of money. There was Lord Scarsdale built an entire wing, I think, at Kettleston Hall, which no monarch ever visited, just in case the monarch came to stay. there was one really sad story this is at a place called Wilton House and a really elaborate state bed was bought and built there for King George III just in case he visited and he did
+
+[00:27:54] which was brilliant this was in 1778 and he visited and they showed him to his room and he said that's great I've actually brought my own sort of tent bed if that's all right so I'll just erect that on the floor next to this lovely priceless bed that you've spent years building and he got his little Zed bed out and slept on that Hey, just a bit of modern royal bed etiquette.
+
+[00:28:17] This is an interesting thing. There is a modern royal bed habit. It's about the queen these days in the royal family. This is from various newspaper websites, which I'm not sure are accurate. But supposedly, it's considered rude to go to bed before the queen does. So she can keep everybody up all night
+
+[00:28:38] because it's a breach of protocol, even in the family, to say, oh, I'm quite tired, I'm going to turn in now, Granny. Can't do it. Wow, what time does she go to bed, do we know? She got, yeah. This is actually from William Heseltine, who was her private secretary,
+
+[00:28:49] although I do honestly think as soon as you work for the royal family, you go and just make up a load of crap for the press for fun. But he said this, and he said she goes to bed at midnight, although I do like to think some nights she just forces herself to stay away for three days running, just eyeing them all up round the table. Just to make Megan look tired. Yeah.
+
+[00:29:10] Apparently Diana couldn't hack it. Apparently Diana used to be a bit of an early nighter and used to make her excuses, and that really got her in the bad books. Wow. We should move on shortly to our next fact. Just on Royal Tudor beds. Yeah.
+
+[00:29:26] They saw a lot of action, but they also saw a lot of kind of fake royal action, didn't they? So I'm not sure we've talked about very much about the bedding ceremony, which was basically if you were a royal person and you married another royal, often from another country to forge an alliance, you had to consummate that,
+
+[00:29:44] and everyone had to see it to make sure it happened. And often it was children, so then you couldn't really consummate. They just sat in the bed together. So it actually sounds kind of weirdly sweet. William and Mary, they got betrothed, and I think Mary was 10, and he was 14, and they had to, like, officially consummate
+
+[00:30:02] because then, you know, the two forces are allied. But so all these spectators, dozens of people thronged into the best, bedroom and then they just sat in bed together for 45 minutes while everyone hung out with them and then they went okay well that's done you're married now and actually sometimes what would happen is that the one of the people wasn't there or wasn't in the country and they could nominate someone else to consummate the marriage yeah with their partner and then they would have to i think they had to have one leg unclothed or something like that
+
+[00:30:33] i think that happened with henry the seventh's wife in fact didn't it she is it had on her wedding night because he was absent, I think it was Henry the 7th wife. So maybe that wasn't his ejacula on the bed, she's off the front of his. Do you want to do some something on props? Oh yeah, yeah, yeah, some prop stuff.
+
+[00:30:52] You go for it. Oh, so I got sent this by Alex Bell, our colleague today. And he sent me an article about how they use very random things in sci-fi movies to make them look kind of futuristic. So in the corridors of the recent Star Trek film
+
+[00:31:07] and you can see the stills of this. It's quite obvious when you know to look for it. The corridors are lined with dice and air blades. The most futuristic technology on the planet. The medical officers diagnose patients using potato peelers in the old Star Trek, and in Star Wars, Quigong Gin, I don't know who that is.
+
+[00:31:30] It's Quigong Jin. Okay. As soon as I saw that round down, I thought, I don't know how to do. pronounce that and everyone listening to this does know how to pronounce that. Anyway, his communicator, his? Yeah. His communicator is actually a Gillette Sensor-Excel,
+
+[00:31:50] Women's Razor. Oh, cool. Well, here's, in that sort of vein of things that you're not expecting to be props. Diehard, in the movie Die Hard, Bruce Willis, he goes barefooted for a lot of scenes. He's not barefooted. he's wearing fake feet no
+
+[00:32:09] he's wearing fake feet boots that are shaped to his skin color with five four toes and a big toe that's right the foot thumb as we sometimes call it
+
+[00:32:24] not foot thumb he's lost him he lost him he's gone do you need us to recite this little piggy are you ready So he was wearing these fake feet.
+
+[00:32:46] That's amazing. Yes. Why? Was he embarrassed about his feet? No, it was in case an enemy grabbed him. He could just... He would leave the feet behind. That's actually the end of the movie, isn't it?
+
+[00:33:01] And Hans Gruber falls from the side. It's with a fake foot in his hand as he drops. Okay, it is time for our final fact of the show, and that is James. Okay, my fact this week is that shops in the Philippines put their Christmas decorations up on the 1st of September. In total, they stay up for more than 35% of the year. So cool.
+
+[00:33:28] And do they all, even though they do this all the time, do they all whine about it every time they go up? It's too fucking early. They really don't, because they love it. And actually, just to go a bit further on that, In the older traditions in the Philippines, Christmas would last until candlemas, which is February the 2nd.
+
+[00:33:44] And so in some places, they'll keep it up from the 1st of September to the 2nd of February, which means it's up of 44.4% of the year. Wow. That is a good reason not to move to the Philippines. Oh, with the insipient fascism. Slightly behind the insipient fascism.
+
+[00:34:05] But yeah, so basically people in the Philippines love Christmas. it's one of the few Catholic countries in that part of the world and they start their countdown 100 days before Christmas so they count it down from 100 and that would be in the middle of September but they've kind of evolved it into being about the BER months the Berm months so September October November December and now that now the way it does it is basically the first of September that's when they all go up and they all stay up the whole time so on Christmas getting earlier this is a thing that a lot of people debate don't they some people say it
+
+[00:34:38] earlier every year and some people say, no, it's, it can't get earlier every year because then it would be going way, way back. But there is a way of tracking how early Christmas is, and this is by, this was done this year by the Washington Post, which is the Mariah Carey song, All I Want for Christmas is You. Okay, so it came out in 1994, and the Washington Post analyzed when it enters the charts each year, because it does, it reenters the charts every year, and they found it's been getting popular slightly earlier in the holiday season. So Christmas music is definitely getting earlier each year. Yeah.
+
+[00:35:12] Well, people are just appreciating how great Mariah Carey is more. Yeah, we can all do that all year round, can we? The other way of doing that, of course, is by looking at internet searches. So they did a study of looking about searches for things like Santa Claus or Elf or Presents. And they found that in 2008, people started searching for these things around October the 12th. In 2009, it was on August the 30th. Oh, God. Wow.
+
+[00:35:38] And in 2012, it was August the 19th. People were looking for things like that. But then on the other hand, the other argument is that basically people have been saying this forever. And there have been examples of people saying, as earlier in 1901, the Philadelphia Inquirer complained that it seemed to get earlier every year.
+
+[00:35:56] So that was happening way, way back that people had been complaining about this. But was it just that in 1901, it was, you know, noon on the 24th of December. It was 1pm last year. In 1914, adverts were appearing, advertising to women to buy stuff for Christmas in August.
+
+[00:36:15] So it did go back, and it was actually a really patriotic thing to do back in the day. So there was a campaign led by Florence Kelly, who people might have heard of. She was a big deal, a big campaigner at the turn of the century in America. She founded the NAACP, so like an association to help African Americans. She was very big on workers' rights,
+
+[00:36:36] and she said quite rightly that the Christmas rush in the two weeks leading up to Christmas, was very unfair on these poor, you know, enslaved workers in these big malls, so said, do your Christmas shopping early. And these posters went up all over all the big cities of America, and people were told, you know, you've got to start Christmas shopping. And in fact, and that carried on after World War I, because then ironically, all the big malls picked up on it,
+
+[00:36:59] and we're like, yeah, we'd love it if people started shopping for Christmas in July. Great. But I like this advert that was in the Washington Times in the 1920s, which said the headline was, there was a little essay, and the headline was, if Christmas came tomorrow, would you be ready? It is one of the few things that isn't just going to sneak up on you. It's going to be the same time every time.
+
+[00:37:25] Do you guys like holiday music, Christmas music? Yes. I like Mariah Carey's song, I must say. Yeah, your flesh and blood, James. Of course you like Mariah Carey's song. But, um, So you gov did some polling about whether people like Christmas music. Oh no, does it turn out they're all fascists if they do or something?
+
+[00:37:43] No, no, no. No, no. It doesn't, no. Okay. I think it's whether people like it in shops leading up to Christmas. So 31% of respondents said they look forward to it a lot. An roughly equal number said they like it some. And 34% said not much or not at all. And then in 2011 there was a survey set finding that 23% of Americans dread holiday music,
+
+[00:38:10] and 36% of respondents in one poll admitted to leaving a shop sooner because there was music playing. And I've found my people. We've actually got an exciting number of Christmas albums coming out this year. I was looking into it. I'm excited. Yeah, well, so since we talk Mariah Carey,
+
+[00:38:29] it's the benchmark. It's what every artist wants. They want that big Christmas song that's just going to be played throughout the years. So in the past, Kylie Minow and everyone have done Christmas albums. obviously Michael Bublay. This year, Jesse Jay is releasing a Christmas album. Gwen Stefani is releasing a Christmas album. And William Shatner is releasing a Christmas album.
+
+[00:38:46] Great. And his one looks extraordinary. Great list of songs. He's calling it Shatner Clause. It doesn't sound quite close enough to Santa, does it? They gave up on that title, didn't they? Yeah. I've never thought about the sound of Shatner
+
+[00:39:04] until you said Shatner Claus. Shatner only reminds you of one other word and it's not Santa. Have you heard James Brown? Has he been? Don't forget to leave out a mince pie and some emonium. I was just reading about this. Everyone might know this, but I didn't know it.
+
+[00:39:32] There's a lot of shops in the last couple of years that have started stocking Easter trees and Easter barbels apparently that's a thing now I'm not happy Oh no I've seen Easter crackers in the shops Yeah they're not playing Easter songs They've not got the Shatner bunny coming along
+
+[00:39:49] Merry Shatmer's That's very good On Christmas decorations So they've always been a big thing A big demonstration often is turning on the Christmas lights. In America, it's a big deal, apparently turning on the Christmas lights. And the president traditionally turned them on. So Ronald Reagan, for instance, in 1983, thought he turned on the Christmas lights, this big symbolic move. But he didn't. He was tricked.
+
+[00:40:28] So he, basically, they always do it from the Ellipse Park, which is apparently near the White House. It's about a kilometer away or something, or half a kilometer. And the big tree is there, and all the lights go on from there. There's this switch. And in 1983, they're just been this assassination attempt on Ronald Reagan. So the Secret Service were a little bit antsy about having him exposed in public. And so they said to him, we'll put you on the White House steps and we'll rig it up so that there's this massive switch and there was a giant switch on the steps and you press it and then it'll turn on all the lights and it'll be amazing. And he did that. And I was reading this in a book by someone who worked at the White House quite low down who
+
+[00:41:04] looked at this massive switch he was going to press and said to one of the other people working there. I can't see the wire where it connects up to the lights. And the other guy said, yeah, yeah, there isn't one. Yeah. It's just a big prop switch that Reagan's going to press and he'll think he's turned on the Christmas
+
+[00:41:22] lights. And actually, I then immediately have to radio or phone my mate who's in the park who will then plug in the Christmas lights. Can we do that with the nuclear button for Trump, man? If we just swap the nuclear switch for a Krills Sphincter.
+
+[00:41:43] All he'll do is light up a tiny crustacean. And his hands are small enough. Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland.
+
+[00:42:12] Andy. At Andrew Hunter M. James. At James Harkin. And Chisinski. You can email podcast at QI.com. Yep. Or you can go to our group account,
+
+[00:42:19] which is at No Such Thing. We have a website as well. No Such Thing as a Fish.com. It's got everything. It's got our previous episodes. It has a link to our new book, not relevant to you guys here. And it has all of our previous episodes.
+
+[00:42:32] And we are about to give away the prequel to the latest book to the best fact that has been sent to us by one of the audience members here at the Union Chapel tonight. Anna, have you got the winner? Yes. I've written down your name
+
+[00:42:44] and I can't read my own writing. I think it's Daniel Asphusion. A fusion? Are you in? Are you in, Dan? Maybe. Is that a no? Left at the interval.
+
+[00:42:56] And there wasn't even an interval. All right, so if anyone wants to pretend to be Daniel, this is the fact, and please come and claim your book at the end from us, so just come up to the front of the queue and grab it. The fact is that the composer Rossini, so the composer of the Barber of Seville, was bald, but he didn't want to admit it.
+
+[00:43:16] So what he did was he had 10 wigs made of different lengths, which he'd changed every week. And then after 10 weeks, he'd announced he was booking a hair appointment and going back to the first week. So, Daniel... Atkinson.
+
+[00:43:40] Atkinson. That's a much more normal name than Athusian. It's so obviously Atkinson. Now I look at it. That's Atkinson. Okay, that's it. That is all of our facts. We'll see you again.
+
+[00:43:54] Goodbye.

@@ -1,0 +1,329 @@
+# No Such Thing As A Fish - 606: No Such Thing As A Litter Box In The Sahara
+
+- Episode date: October 23, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/606-no-such-thing-as-a-litter-box-in-the-sahara
+- Slug: 606-no-such-thing-as-a-litter-box-in-the-sahara
+
+## Transcript
+
+[00:00:00] News, news, news. Stop the presses. If you're driving, pull over the car. If you're in space, just park the space station temporarily. We have big news. We've got two bits of news. First bit of news, brand new show. Every week, on a Monday, we are going to be doing an audience facts special.
+
+[00:00:22] It's the amazing facts that you guys send in to podcast at QI.com. And that is a slightly short of the normal episode. It's called Little Fish. Yeah, we're so excited about this. You guys have been sending in amazing facts for 11 years. We've been using maybe, I'd say, 0.5% of the stuff you guys have been sending in. There is such good stuff in the fishing box, and we're going to be turning it into a brand new show. We're very excited.
+
+[00:00:42] But Andy, you said there were two bits of news. What's the second bit? We have a thing. Some of you will know about it already. It's called Clubfish. It's like our private members club where you can get extra bits of content. You can get ad-free episodes of the show. And we have decided to up the ante there, and we've decided to launch mega new amounts of stuff
+
+[00:00:59] on Clubfish So those of you who are already on Clubfish Don't worry, everything's going to say the same for you But there is an opportunity to get more More, more, more. So there will be full unedited episodes of fish. There's going to be merch. There's going to be Chances to Sponsor Facts.
+
+[00:01:15] Yes, you can get a shout out on the main show. They're going to be video versions of things. It's just, there's so much stuff we can't even go into it all now. But if you want to check out Clubfish, it's so much fun. Just go to patreon.com slash no such thing as a fish. Brilliant.
+
+[00:01:30] Anything else to do? Let's just do an episode of the show with our good friend Jamie Morton, host of My Dad Rota Borno. Let's do it now. On with the podcast. On with the show. Hello and welcome to another episode of No Such Thing as a Fish.
+
+[00:01:58] weekly podcast this week coming to you live from the london podcast festival my name is dan schreiber i am sitting here with andrew hunter murray james harkin and jamy morton and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order here we go starting with fact number one and that is jamie Iconic Thespian Beerbome had a walk on part in every single production at the Geelgood
+
+[00:02:32] Theatre in London's West End for 20 years and fittingly had a front page obituary in the stage newspaper he was also a cat I know what a hag
+
+[00:02:49] I'm sorry that is a Thespian cat that is Yeah. For people listening on the podcast next week or whenever it goes out, can you describe the cat to us, Jamie? We've got a tabby cat. He's male, and he's lounging on stage at the Gilgud,
+
+[00:03:05] looking very happy with himself, beautifully lit. It's black and white. It's very, it sounds like a headshot, but it's a full body. Yeah. Shays-long kind of look. That little, is that a foot or a tail? He's like saying, paint me like one of your French cats. It's giving that energy, isn't it?
+
+[00:03:19] Oh, yeah, yeah. Same opulence as well around it in terms of. of the architecture. Yeah, I mean, I love this cat. I'm not going to lie. I've fallen in love with him this week. Never heard him before, but now I love him. So when you say walk on roll in all the plays, was that official? Was he written into... No. No. He was the resident... Is it like mouser? Is that like... Yeah, mouser. The name that they caught the mice. And he just would like randomly walk on stage during productions, which being a theatre director, I find chilling. because you work so hard to kind of make a show good,
+
+[00:03:55] then some fucking cats just, like, wandering in front of everyone. And what did the actors think of it? Were they? Well, the actors, like, loved this cat, like, almost uniformly. I think there wasn't a single actor who didn't love Beerbone, because he is, as I said, a total hag. I mean, look at him. But, yeah, he was loved.
+
+[00:04:17] And people got very attached to him. So much, though, that he had this obituary on the front page, of the stage newspaper and people like Penelope Keith wrote obituaries for him like loads of actors kind of got involved the stage I hadn't heard of the stage is that like the main main thing that you can get on the Bible Dan honestly come on no I had actually heard of it I was just being them for a second yeah then they've heard of it too oh so it is just being it's a great it's a great newspaper yeah no it is great newspaper it's behind a paywall but it's great okay a lot of a lot of people did love beer bomb but beer bomb would would arrive on stage a moment
+
+[00:04:53] that weren't necessarily good for a scene, you know. There was one play that was on which was called The House of Bernard Alba, which had a lot of sand all over the stage. Oh, no. Which to Beirbon was the ultimate pooing ground. It was... So that was not good, right, those moments?
+
+[00:05:12] Not good for who? He loved it. It adds realism to the play. Oh, yeah. Depends where it's set. If it's set in the pitiless desert of the Sahara, it actually, I would say, kills the mood a bit. to have a house cat.
+
+[00:05:24] Fair enough. Some people think it's good luck for a cat to be on stage and in America at least there was a superstition that if a black cat came into the theatre
+
+[00:05:34] that was really good luck and if it came on the first night that was really, really good luck and the whole show was going to be amazing. And so the Fifth Avenue Theatre in New York used to keep a black cat backstage and then on the first show
+
+[00:05:47] of every run they would throw it out there so that it was on stage and that was good luck. And the reason you said mousser a second ago, Jamie, the reason that cats used to be very, very important in theatre is because back in the day, food being thrown on stage to show your displeasure or pleasure in a play was a massive thing. So at the end of every night, food was just everywhere, all over the stage, which brought in the mice, and mice were a huge, huge problem. So theaters would have sometimes up to 20 cats roaming around catching mice if they had problems. But a lot of those cats will lie on their CVs, you know. You've put down here you also do birds. Is this? Is that true? Oh, yeah, yeah, yeah. Yeah, because actually, Beerbone was on the payroll, I read.
+
+[00:06:28] He was officially listed on the Gilgood payroll, which, as a former accountant, I think, brings up a whole host of problems. Like, who pays the national insurance on that? Yep. I wonder who his agent was. I don't know, someone bloody good. 15% of a cat. And apparently, he would disappear from time to time.
+
+[00:06:45] According to Dame Hilde Brackett, he would dash off to see a particular friend at the Lyric Theatre. His girlfriend? Yeah, she said, we used. used to hear lots of meows. This was Soho after all. I love it. Do you think all, because most West End theaters have cats, as you said. I think they're all mates.
+
+[00:07:03] Do they just like all meet up at like... Oh, that's a cute... After each show, they're like, God, you should have seen the performance. Oh, shit. Well, lots of theaters did have cats, didn't they? So the Noel Cowan Theatre had two cats. Imagine they had to call Girl Cat and Boy Cat. And I think Boy Cat only ever distinguished himself once when he ate Princess
+
+[00:07:22] Margaret's bouquet. Is that a euphemism? No, it's not. It's a bloody good one, isn't it? Yeah, apparently he also escaped off stage during a performance of a musical five guys named Moe, and he would go under the stage
+
+[00:07:38] and he would only come out when someone tap danced over him. Right. There was a cat called Ambrose at the Theatre Royal Jury Lane, which you think you've performed at. Oh, yeah. We have, yeah. And this cat got into a beef with Michael Crawford.
+
+[00:07:54] He kept upstaging Michael Crawford, and Michael Crawford had no sense of humor about this, allegedly. Is Michael Crawford the original Phantom? Yes. But was he also Frank Spencer? Yeah, Frank Spencer. Yeah. Yeah, okay, yeah, yeah, yeah.
+
+[00:08:07] A varied career, I think we'll agree. But then, and so Michael Crawford was like kicking off about this cat, but every single person in the theatre took the cat's side. What does that say? Wow, yeah. I read about one that was at the Sadler's, Wells. It was called Sadler, the cat. And Sadler in 1956 just suddenly disappeared. But unlike the other cats who would come on unprompted, Sadler actually had a role in a play. So in the stage
+
+[00:08:34] magazine, they had an advert to audition for a new cat for the show. And I found the advert. It said, owing to the dramatic disappearance of Sadler, official theater cat at the Wells, the important feline role in the forthcoming production of School of Fathers falls vacant. Auditions will be held. Applicants must be fully grown and capable of maintaining dignity and poise atop a 10-foot high wall, despite the distractions of a full operatic orchestra and audience laughter and applause. The chosen artiste will receive, for her service, one sardine and two complimentary tickets per performance. Wow. And did you see who got the part? No. It was a cat called Keats. And according to the Daily Telegraph, he beat off tough composition from cats called Fantasia Nimbus.
+
+[00:09:19] plot and Mr. Woodbury Bentley. And they had two auditions. In the second audition, he jumped off the wall that he was sitting on, and then walked over to the bar and started knocking down bottles, and they decided this was a perfect cat for the theatre. You know, this is exactly what the old actors would do. Lovey. Yeah. So good.
+
+[00:09:39] How can you cast a cat in a play? They famously don't play ball. Well, they play with balls, but you know what I mean? Yeah, I know. They're hard to direct, I would imagine. Yeah. Dogs, I think, do get a look in sometimes on the West End. I was trying to find other animals that have been in West End productions.
+
+[00:09:54] So there was a Guardian report in 2001 that there was a production of The Taming of the True, which had an entire cast of chickens. And I cannot find out whether it was like a whole flock of chickens and a human cast, or whether it was an entire cast of chickens. But weren't they all fired, I think? They were sacked, yes, apparently for being too hysterical. Again, I don't know what the... Hysterical chickens.
+
+[00:10:17] I can't imagine how... hysterical they got when they were told they were fired. It was big in the room. Guys were going to have to let you go. By the way, Beerbom, the cat, do we know, do you guys know why it's called Beerbom? There was a famous actor called Beerbom, but I don't know anything about it. Yeah, he was a theatre manager. He was an actor as well.
+
+[00:10:33] His name was Sir Herbert Beerbomb Tree. And he founded Rada, the Royal Academy of Dramatic Art. Yeah. And he's a pretty amazing character. He released a few records. He did Hamlets to be or not to be on vinyl. That's pretty cool. which is release in his own stuff.
+
+[00:10:50] And also, randomly, in the play Cats, there is a reference which is said to Gus from Jelliarum. Is that the name of the cat in it? The line is he's acted with Irving. He's acted with tree. Cats, I'm so glad we're on cats. So thing one, when you think about it, cats is an anagram of cast.
+
+[00:11:08] Okay. And? Why, it just makes you think, doesn't it? Yeah. It's also an anagram of acts. Oh, my God. I was so pleased with myself. Cast, and they got to stack, but without the cake?
+
+[00:11:26] Nah. End the thought there. Oh, that's brilliant. Is that it? That was the fact. That was the fact. He messaged us saying, I've got some amazing stuff on cats that I need to say on stage. I spent six hours reading about the musical cats because I knew you had a cat's fact, and that was it.
+
+[00:11:43] Well, I just wanted to introduce yours. Yeah, go on. Okay, well, I have quite a good one about it. Cats, the musical. Do you? Okay. Yeah. For its Broadway run, they used over 49,000 condoms. Oh, sorry. Yeah. Can we guess why? Densch. Sadly, Dench ruptured her Achilles, so couldn't perform in Cats, although she was originally cast. She was meant to be. She was originally cast in Cats. Yeah, why do you think they use so many condoms? To stop things from getting wet, is my first thought.
+
+[00:12:17] Well, what sort of thing is? Who smuggle drugs for the cast? No, you're on the right lines, James. Yeah, to protect something. Okay. Oh, is it for, so a lot of preppers will use condoms to store water because a condom, like a water balloon,
+
+[00:12:36] can hold gallons of water. Absolutely not. If you ever go to dance for dinner, he offers still sparkling or tasting of spermicide. Sorry, Andy. Cats have claws, don't they? Yes. So it's to protect the claws in transit
+
+[00:12:55] and they had 49,000. Well, real cats have claws. This is a show with people. All right, you were right, James. It was to protect their microphone packs because they were sweating so much because it's a dance show, right? They're dancing so much
+
+[00:13:10] they would put their mic packs in condoms. 49,000. Yeah. So after each show, they were just like tip loads of condoms in the bin outside. Lord. A sweary show.
+
+[00:13:20] While we're on Andrew Lloyd Weber, there's another cat connection, which is the fact that Phantom of the Opera now has a sequel. Many, many years ago, Lloyd Weber was working on that sequel, and he was writing it with Frederick Forsyth, the author. Day of the Jackal, that kind of thing. Yeah, exactly. So they were writing it. He'd written all the music, and he had it on his electric piano.
+
+[00:13:39] And then one day he sat down to write a new song, and his kitten, called Otto, stepped on the keyboard and erased the entire score. And so we never got it. The main thing about cats, surely, is the movie, the amazing movie that came out a few years ago. Oh, yeah. That was really the start of the pandemic, I think. It was right at the start of the pandemic, doesn't it? I don't think we're claiming it caused the pandemic.
+
+[00:14:01] I don't know. No, but it made it seem a lot longer. We knew something bad was in the air when cats came out. And the big thing about that is the CGI bumholes that all the cats had. Oh, what's that? Well, there is, is it? true or not? Because that is urban myth. Is it true? It's urban myth. So someone tweeted a guy
+
+[00:14:21] called Jack Was. And I think I mean that sounds like an honest man doesn't it? Jack Was. The thing is, James, you go to such impeccable lengths to source all of your facts. Like James goes deep into newspaper archives from 200 years ago. But he will also sometimes throw in like at Jack Was
+
+[00:14:36] as a source. At Jack Was is the New York Times of our day. He said that a VFX producer friend of a friend was hired to get rid of the bumholes right? But then the Daily Beast online magazine found a VFX person and they said it was true
+
+[00:14:53] and they were definitely someone who worked on the show and they said what had happened was actually the way the visual effects works is they had a very special way of the fur being made and the fur would go in little like holes like your hair does you know you have walls in your hair
+
+[00:15:09] and so they had them on all the cats and it just so happened that if you got them any of them from a certain angle it looked like they had female genitalia or an anus and they had to imply one person who basically
+
+[00:15:22] it was their job to go through looking for the bumholes and then getting rid of them right that's insane that's such a high pressure job as well you've got to catch
+
+[00:15:31] every single one you know it's true yeah yeah like Pokemon yeah I love it
+
+[00:15:36] they could catch all of the bumholes but not Judy Dench's wedding ring which is on throughout the fucking first as like an old cat so he got all of the rings but one and the other
+
+[00:15:46] This episode of No Switch Things of Fish is brought to you by Airbnb. James, summer holidays. Oh yeah. I haven't seen you for so long. I know, I've been away. How do you? I went to all sorts of different places. Went to Herefordshire.
+
+[00:16:05] Went to Somerset. Going to Montenegro soon. I just love to get away. Most interesting thing you saw while you were away? I saw a street which was an illusion. So from one side of the street, it looked really short, and the other side it looked really long. Oh, no. If you followed me on social media, you would have seen that.
+
+[00:16:24] And what a great site you have on Instagram. Yeah, I absolutely love it. It was on TikTok. Okay. Well, I went away as well. Thank you for asking. And stayed in numerous places. But one thing I failed to do was do something that I've done in the past, which was put my house up on Airbnb.
+
+[00:16:44] Oh, yeah. How's that going in the past? So in the past, surprisingly, for someone as incompetent as myself, it does actually work. So it's a great way to earn a little extra money and it's also flexible. So I can fit around when it works for me and my family. I mean, I've got to say, I must be the best poster boy for Airbnb. If I can make Airbnb work, you can too. I've always loved it.
+
+[00:17:04] It's always made so much sense. Absolutely. And while you're away, listener, your home could be an Airbnb too. And it might be worth more than you think. Find out how much at Airbnb.com.com.uk forward slash host. Okay. On with the show. On with the podcast. Stop the podcast. Stop the podcast.
+
+[00:17:22] Hey, everyone. This week's episode of Fish is sponsored by Babel. Babel. Yes, Babel is the app that lets you learn a new language or even better pick up a language you learned years and years ago and have forgotten. I have done this with Babel with two different languages and I love it. Yeah, it's a really amazing app. Here's the thing. According to studies, 70 to 90% of people who are trying to learn a new language, give up. They find it too hard, they find it too stressful. So Babel have basically designed an app to get past that, to make it fun, to make it interesting. They've had over 200 language experts around the world, real humans, actively come together to help build programs, ideas, games, all this stuff is in there, and you've got lots of languages to pick from,
+
+[00:18:01] and you should do it. It's really fun. So I've done it with French and German, which are two languages I learned ages ago, and then forgot because I stopped doing them at school. And it is really easy. It's bite size. So I was trying to do it every day. Okay. And I ended up doing a French lesson every day for months and months, and it was just so satisfying. Give me some French. Let's hear it. Look. Wow.
+
+[00:18:21] Stop that. But it's really satisfying because I went on holiday recently, admittedly to Portugal, but I turned out went to a place where almost everyone was speaking French. And I was able to just engage, tune into conversations around me, eavesdrop on my neighbors at dinner. And it was so satisfying to do. It's just, yeah. And Babel does make it very easy. They are incredible. And despite Andy's French you heard just now, it actually works. So, if you would like to try it out, head over to babble.com, that's B-A-B-B-B-B-B-B-E-L-L-com,
+
+[00:18:51] forward-slash-Fish, and for a special limited time only, you're going to get 60% off your Babel subscription. 60%. 60%. That's 60%. Yes, go to babel.com forward-slash-fish. Get 60% off your subscription. It's so much fun. they make language learning easy and enjoyable.
+
+[00:19:12] Do it now. Okay, on with the show. On with the podcast. So it's time for fact number two. And that is my fact. My fact this week is that at one of the oldest bathhouses in Japan, visitors have the option of soaking in hot water, cold water, electric water, or condom water.
+
+[00:19:40] We need to call them and suggest that. No, the final one, there are many others, but the other one is radioactive water. Ooh. Yeah. People also drink this water. So it turns out, I thought this was going to be unique to this one place in Japan, which is radium onsen, and onsen is a word that means bathhouses in Japan that use hot spring water, and they take natural source water, and they use that.
+
+[00:20:07] There's something like 25,000 hot spring sources in Japan. they're used. They're everywhere. Yeah, and 3,000 ensign establishments all over Japan. So it's a real big thing there. And so like the electric water that you would sit in, that actually sends mild electric currents through the water as you're sitting in it. And people describe it as like being tickled by lightning as you're trying to relax.
+
+[00:20:29] So you just... How relaxing. Yeah. Well, they see these baths not as necessarily completely relaxing. It's all about rejuvenation. It's all about health and so on. And so radioactive water, radium water. is a thing. It's not, it's not bad for you, is it? Like, the quantities are really, really small.
+
+[00:20:46] The quantities are less than you would get if you were on a flight, for example. But that's... A flight. You know, if we get hit by radioactive, you know, flares from space as you're on a flight. So, James, quick, jump in. There is radiation that comes from space, and if the closer you are to it, the less. Space, space. It's a flight. I'm not Katie Perry, but it means to me. There's less of the atmosphere to block it out but when you're further up, it's the basics. But if you're on a plane all the time,
+
+[00:21:19] it'd be bad for you. Like an air hostess or a pilot, for example. Yeah, yeah, and it's bad for you. They do get a bit more. What the hell are you talking about? They said that, like, it's safest way to travel. No? But if you live in Cornwall, there's radiation there too.
+
+[00:21:33] Oh, my God. Is that? But here's some good news. She'll get in a lead box at the end of this. So there is radiation in Cornwall. like Cornwall has more background radiation than anywhere else, but we all have a little bit. And a normal person would get two to three mili-sieverts of radiation in a year. But there's a place called Ramsa in Iran that has the highest radiation anywhere in the world.
+
+[00:21:54] It's because they have hot springs and radiation underground than it comes up. And they get 260 mili-severts per year, which is more than a hundred times what a normal person would get. But actually, the cancer incidence there is lower than any of their neighbours. And what people think is the people who live there, they have a higher proportion of what's called T cells. Do you remember in COVID? They said T cells. It's like helped your immune system. Well, it turns out that people there have got a higher proportion of T cells.
+
+[00:22:22] And it's a thing called haremesis, which is the idea that very small, low doses of something that would otherwise be harmful can actually make you stronger. And it is really, I mean, I'm not saying everyone should go out now and get as much radiation as possible. But it is genuine science. That's amazing. Yeah. That really is amazing. It's very cool. So as I was saying a second ago, these are massive in Japan.
+
+[00:22:46] And I was trying to find more information about this very specific one in Osaka. And the best place I could find out about it was a website called tattoo friendly onsen.com. And this is so interesting because in Japan, when you go to an onsen, largely it's separated. So men will go into one place. You have to be naked. You've got to be completely naked. And the problem is in Japan. in Japan, if you have tattoos, you're not allowed to go and show your tattoos in these places
+
+[00:23:13] because of the Yakuza. So a lot of foreigners arrive. And the Yakuza are the gangsters. Yeah, the mafia, basically. Yeah, who are tattooed typically. Yeah, exactly. And so if you arrive and you've got like, you know, like, eternity, I love chariot, you know, whatever on your face. I love... It's so revealing knowing what you would have gone for, then. I don't want to talk about my actual tattoos. Okay, I will. So thug life across your... your tummy, they won't let you in because of the Yakuza thing. So this website basically lists all of the onsons that you can go to and that will allow you in. Do you think the pork broth onsen would be one of those tattoo-friendly ones?
+
+[00:23:53] I think it might be. Yeah, this is amazing. This is... There's a place. Well, it's the pork broth hot tub. It's the Unisans spa. And they have a massive ramen bath, basically. And it's just slightly porky hot water. It sounds amazing. It's a noodle. in there. Well, they dangle above you a huge sculpture that looks like a pair of chopsticks holding noodles. So it looks
+
+[00:24:14] like you're about to be, ooh-oh! It's like you're a soft-boiled egg. It's like you're a and if you've seen my physique that I am like a soft-boiled egg, basically. But they've got a green tea bath, they've got a sake bath, which is like very slightly sake. It's obviously not all sake because that'd be hugely expensive. They've got
+
+[00:24:30] a coffee bath which does not look appetising. It looks really gross. It's an enema. It's safe if you have the runs, isn't it? Oh, yes. I'd love to go there. It does so cool.
+
+[00:24:45] That sounds awesome. I have been to an onsen, a few in fact, in Japan. There's a thing in Japan called Hadaka no Tsukiai, which means naked camaraderie. And the idea is everyone gets naked. You're all together in a big sort of jacuzzi with no bubbles, and it means you're all emotionally together, open, honest. That's the idea behind it. And I must admit, I went in, ran in, had a bath, came out, and went back to my room as quickly as I could.
+
+[00:25:13] Oh, you didn't have any... Not very communal for you then. I don't speak Japanese. But there's that there are other ways of communicating then. Yeah, but naked charades at the best of times is difficult. Just to hark us back to the last fact, do you know that Andrew Lloyd Webber has a 30-person hot tub? That's disgusting. Does he?
+
+[00:25:32] So is a 30-person hot tub meaning everyone gets a slot on the outer wall? What's the alternative? like school bus format where it's like six by four like what's the yeah there's an aisle down the middle
+
+[00:25:46] tickets please chicken a fish nuts no we don't have any I can just can see yours no I don't know what yeah I don't know I think it must be everyone gets a bit of wall
+
+[00:26:00] otherwise you're just bobbing about in the middle feeling like a like a lemon yeah I hate that bit yeah oh yeah bobbing there is a spot in the southern island of Japan, Kyushu, and it opened up I think in 2017. They'd announced
+
+[00:26:13] it with big fanfare the year before. They said this is going to be a, actually, it wasn't a spa-themed amusement park, and they had released some images of basically a roller coaster that's full of a bath roller coaster. Okay. And you're in a little bath
+
+[00:26:29] and that's your... Yeah, you know you get in the carriage and it's a bath. Wow. And you're in a spa. That sounds fun? They were not sure at the if it could be done if it was like beyond the can of humanity but they they did it so you're in a compartment that is a jacuzzi basically i think they didn't quite crack the full roller coaster bar yeah because that would have been very heavy obviously it would spill a lot it would spill a lot it's like an opposite log flume the water's in if you're really unlucky you'll be dry at the end of it
+
+[00:27:00] yeah yeah all the people waiting on this i go oh yeah um that's very interesting there's another one which I wonder if that's there as well where you have an option of arriving and they bury you up to your neck and sand and it's quite hot sand so that you can get whatever you know holistic therapies have you ever done any sort of odd pampering things like this um that you're willing to admit to yeah I was quite intrigued by the beer baths that you can do you know in Europe and like the Czech Republic like they're quite popular now um you just like bathe in like hoppy water a bit like your Raman. Right, right, right. I wonder if you'd be interested in this. This is a thing in Japan. It's the nightingale feces facial. Now, it's not what it sounds like.
+
+[00:27:47] It's feces from the Japanese bushwobler, which is not a true nightingale. Oh. Thank God. In Japanese, it's brilliantly called Ugoisu, no fun. Right. And apparently... Anyone around you because you stink of shit. Yeah.
+
+[00:28:05] Apparently, Victoria Beckham is a proponent. of it. Oh, really? Wow. Okay. That's extreme. I read about the crying therapy rooms, which seems really nice. The whole idea is to make you as sad as you could possibly be. So you go in and you sit down and there's just sad movies playing on the screen and someone sits next to you just going, oh, it's really sad, isn't it? And then they hand you tissues as you're crying. Just me. Okay. That one sounds crazy. What else have I got? No, that sounds nice. So we've got, have a good cry. Yeah. Yeah. Yeah, I'd buy that. Just going back to onsen, so these baths, would you eat an onsen tamago, which is a traditional
+
+[00:28:45] Japanese egg, which is cooked in a onsen? You put your egg in a rope net, you put it in the onsen, and the water is about 70 degrees, and you leave it in for 30 to 40 minutes, and then it's done. Question? Yeah. Because there are two ways of cooking eggs in water, shell on and shell off. so are we poaching this bad boy no this is I believe it's shell on I think oh then fine shell on wow the audience has spoken
+
+[00:29:16] but people in it it can be in a bath it's not just a water bath like a Ban Marie it's an actual answer and also the eggs have a unique silky custard texture I bet they do yeah I would eat I would absolutely eat that I'm sorry can I just ask the person
+
+[00:29:31] was it a lady in the audience who said chelon have you had one of these they're really good they're really good They're really good. There you go. Can't you? Like a poached egg, there's that like bit of white that never gets cooked. And it's like someone's like flamed on your plate. Oh, yeah, yeah, yeah. Looks like a demented in the water as it's boiling. I've like never seen a poach egg that hasn't got it. And why do you put order this? It's foul. Oh, I love a I love a poach day. You do. Yeah. Okay. But they're just like, if it's in its wrapper, I don't mind. Like I'd have a, I'd have a, I'd have a, if there was a banana, a banana in at the same time, pop that in the net. I don't mind. Yeah. Because it's been up a, a. I. It's been up a. I. I. I. It's been up a. I. I. I. I. I. It's. I. It's. It's. It upper chicken's bum, hasn't it? Right, let's not get fussy, you know. I wish I hadn't brought it up, I'll be honest. No, it's good.
+
+[00:30:13] But just one other weird sparr thing, there was that bull seaman hair treatment, right? Did you hear it read about this? In Chelsea? No? In Chelsea? Yeah. Okay. It was a hair mask, basically,
+
+[00:30:26] in like 2008, 2009. A hair mask? Yeah, it was this place called Harry's Salon in Chelsea. And it offered a 45 minute, Aberdeen Organic Hair Treatment, which was Aberdeen Angus, like good quality,
+
+[00:30:43] Bull come. Stuff. Which women would like, and men, I guess, would pay like a lot of money to have like lathered over their hair. Yep. And would just like sit with it for 45 minutes. And apparently it was amazing. Really? And it made the hair silky
+
+[00:30:58] and smooth. But I have made head and shoulders two in one shampoo and condition. And that makes my hair silky and smooth. Andy. I don't. I don't. I There are levels of silkeness and smoothness that I've not matched yet. You haven't lived. I can imagine one of these women from Chelsea going into the countryside afterwards and walking through a field and all the female cows are like, do you smell something? Well, it's funny you say that because the people that ran this salon told the Metro,
+
+[00:31:25] sorry, these pervert fraudsters, yes, go on. These quacks said to the Metro that the semen is refrigerated before use and doesn't smell. I mean, it is come, but it's not, you know... It's not going to stay refrigerated, that's the problem. The body heat is going to cause that to warm up. Yeah, but it's 45 minutes of it. Like, you were going to, like, eat an egg from a buffet? A pond of people.
+
+[00:31:46] Like, what do you mean? Like, don't get all... We do need to move on to our next fact. Oh, no. Oh. We didn't even touch... I've got to screams of engineering stuff about how the Fukushima reactor
+
+[00:31:57] dealt with its water after the terrible incident there. But I'll save it. I'll save it. It's fascinating. They built an underground wall of ice. We're going for it. Fuck's sake. We're moving on.
+
+[00:32:08] Okay, we do need to move on. So it is time for fact number three, and that is... Oh, it's Andy. So, after the terrible incident at Fukushima, the engineers there pulled off a miracle, a miracle of preventing the radio actor. So they've got, imagine of 1.5 kilometre radius circle, 30 meters up. underground filled with frozen brine. Get off your phone. Come on.
+
+[00:32:39] Get off your phone. Al Kras is about to start against Djokovic, two seconds. Okay. Anyway, sorry. My fact is, the first named man who sent a letter bomb only invented it to get back at people who had rejected all his other ideas for
+
+[00:32:53] inventions. So this is... Very funny. I love this guy. He's a very interesting historical figure. His name was Martin Echenberg. And I was on website of the Clapham Society, which is a great website all about Clapham, which is a part of South London where I used to live. And he was a Swedish scientist, Martin Eckenberg, born in 1870. He was kind of, he was a gifted inventor in some ways. His ideas were decent, but the other problem that he had, personally, was that he was a liar, he was a cheat, he claimed qualifications he didn't have, he'd been kicked out of Sweden's Royal Institute of Technology specifically for cheating. He was a badden. He was a badden. he was a bad fucking legend
+
+[00:33:35] free thinker outside the box kind of guy but still this didn't hold him back that much because he moved to one of the nicest houses in Clapham it was this really beautiful mansion he moved to that's not the point of the fact it's been replaced by flats
+
+[00:33:52] now so you can't go and visit it but if you would that's weird and you should be on a terror list and then in 1905 he thought right I'm going to get revenge on everyone who's turned down my ideas along the way who turn me down for finance I am going to get back at you and he's so he basically
+
+[00:34:05] create started making his own letter bonds and like there were packages sent through the post to harm people before but I think he's the first named sort of you know I thought I think it was a bit unfair so like the first person that he really sent it to was a guy called London who ran this company it was like an engineering company and Eckenberg had invented
+
+[00:34:24] something that could turn fish oil into engine oil and he thought it was going to make his millions but it failed and so he thought well I'm going to get this guy London But the reason it failed is because the oil still smelled a fish So like if people put it in their cars The cars smell the fish
+
+[00:34:40] Right Yeah I suppose the people that Harry isn't get that sent removed Like the bull's seaman Well no And ships that was going to be used on ships Which have fish obviously That's true
+
+[00:34:49] Hence the phrase fish and chips But yeah And then this guy London opens the packet And it said I read an article in the newspaper That said it rumbled and shook like thunder the director felt as if he had been hit by lightning
+
+[00:35:05] or tickled by lightning an intense flame burst out the box and burned his hands, arms, chest and face terribly and his clothes went on fire and the next day he got a postcard saying a former employee has decided that you're ripe for the picking.
+
+[00:35:19] Yes. What's interesting is that it's not as if he sent it from the post in the UK which would be more traceable. He went by boat back to Sweden he assembled it there, sent it there and then went back home. So he really covered up his track But then he still set a postcard with his writing identifiable on it to the person he'd just... Yeah.
+
+[00:35:37] I mean, he was caught for various quite stupid things like that. Yeah. Can I just rescind that I thought he was good? No, no. Here's another thing as well, Jamie, to see if you still think he's good. So when he was arrested, he claimed innocence. And then he, according to the New York Times, he lost his reason and was taken to an asylum. He died two months later after his arrest of what they said was,
+
+[00:36:02] apoplexy. But the head of the Swedish detective service said that if he'd been sent back to Sweden, he would have also been tried for murdering his two wives. Oh. Oh. Right. Yeah. Yeah, no. How you feel? Sorry about that. Let's get a live reaction from Jamie Morton sitting right here. Sounds fine. Yeah. Not too shabby. So apparently he, what appears to have happened is he poisoned his first two wives and then he bribed the prison guards to get him the same poison, which he then took himself. Yeah. Yeah. Yeah. thinker. And interestingly today, if you go to the police museum in Stockholm, there's a giant waxwork, like a replica, human size wax replica of him standing there. And not only that, they have a
+
+[00:36:44] bunch of things that were to do with the case. So one of the bombings, which was sent to the Swedish Export Society, was opened up by a man called John Hammer. And John Hammer's thumb was blown off as part of opening the thing. And if you go to the police museum in Stockholm, you can see the wax work of Martin Echenberg. And then you can see the actual thumb of John Hammer. Thumbs up or thumbs down. Yeah, he wasn't happy. It's a definite thumbs down. Yeah, yeah.
+
+[00:37:07] So it's a very grim guy, but he was an innovator of sorts. And as I say, people had been sending devices designed to hurt other people through the post for ages, you know. So the very first one was a thing called the bandbox plot. People were very worried about the Whig party in the 18th century, and supposedly that party were involved in some attempts to assassinate people. Get this. The very first ever thing sent through the,
+
+[00:37:32] the post designed to harm someone, this bandbox plot, was a box full of, I think, was three pistols that when you open it, they all go off at you. Wow. I know. And it was... Oh, my God. This is the story that it was thwarted by Jonathan Swift. What, the author? Of Gulliver's
+
+[00:37:47] travels. Yeah. Because he was a political figure as well, and he supposedly noticed a thread on the box and cut it before opening it. So he's the first red wire, blue wire cut moment that we've ever had for a bomb. Yeah. Pretty cool. And we talk about his books instead.
+
+[00:38:03] I know, yeah. But Eckenberg was the first of a kind of new wave where gunpowder had been invented, the post had improved, things like that. And so there were, and there were anarchists. People were very, very worried about anarchists with their kind of cartoon-style bombs that they'd be throwing, so yeah.
+
+[00:38:17] Yeah, and he also invented a way to freeze dry milk, which is kind of similar to what we have today. So like, you know, instant custard, we wouldn't have it without him. Really? Well, Eckenberg? Yeah. Wow.
+
+[00:38:28] Jamie, you want to change your, because you've gone off him, but I don't, I know you don't, I don't mind custard, you know. I love a bit of custard. I mean, I'm 50-50. I think the guy's pretty cool. I'll tell you why I think he's not a complete villain.
+
+[00:38:43] Yeah. So interesting, it's so interesting which hills people choose to die on. I find that really fascinating. I just kind of love the fact that, like, through revenge, he invented something that was actually, I mean, not a good thing, but was like a thing. This silver lining is slimming down all the time. I've got to say. So it was for revenge, but he did event something really bad.
+
+[00:39:06] Well, maybe this is how my mind worked. I mean, I got quite heavily into revenge during my researching of this. So I was like, what else has revenge kind of created? And the rotary telephone is one thing that revenge has created. Yeah. Because there was a guy called Alman Stroudger, and he was an undertaker in the late 19th century in Kansas City. They were all manual switchboards at that point, obviously.
+
+[00:39:31] And he thought that the switchboard operators were deliberately fiddling with his connections because... Wait, so you would call up and say, patch me through to this person, right? And he was convinced that this was being meddled with because the other undertakers across the town, I think their wife worked at the phone company. So like if someone dies, you put them through to the rival? Yeah, exactly. So they were getting all the work. He was like, you know, what's going on here?
+
+[00:40:02] And so he invented the rotary telephone to cut out these. The one where you dial with the ring. Yeah, so you could dial it yourself. That is amazing. Isn't that amazing? Right. Revenge, but not all bad.
+
+[00:40:13] Okay. It's like those spite houses, you know, spite houses. And it's like, it's just so cool that, like, something that you build to like screw someone over ends up being worth more than the house that you're, yeah, yeah, exactly. I just love stuff like that. Just jumping back to letter bonds for a second, I've discovered that the former prime minister,
+
+[00:40:32] well, a very long former prime minister, Anthony Eden, so Prime Minister of England, he was almost killed by a letter bomb. Yeah, and this was prior to him being Prime Minister. It was when he was foreign secretary, and someone had hand delivered a letter bomb. He took it, but he thought, oh, this looks a bit boring. So he put it in his briefcase,
+
+[00:40:53] and he had it for 24 hours. He went home, he didn't open it. He just had a whole day of not opening it. And then Scotland... A letter looked boring. Yeah, he thought it looked like a circular. Like, it looked like something that might have been dropped off. And it was a generic thing.
+
+[00:41:06] Oh, right. Yeah. And so then Scotland Yard got in contact and said, we're worried that something might have been sent to you that is a bomb. And he still didn't look at it. And it was his secretary who eventually went, that might be a bomb. And then, and it was.
+
+[00:41:19] And so it was just purely his absolute boredom towards this letter that... Because that's the most interesting letter he ever received, actually. Well, that's the thing is, like, they're designed to go off when you open them, aren't they? So you can carry them around. Yeah. And it's fine. So, like, for instance, you're told that if you work in, like, you know, a government office and they might happen, a lot of people, when they get a letter that they're not sure about, they put it in water.
+
+[00:41:43] Because they think that's what you're supposed to do with a bomb, but you're absolutely not supposed to put it in water. Because some of the explosives will explode if you put them in a big... Is that so? Yeah. Also, renders the letter completely illegible. Exactly. It's a stupid idea. There are some tips.
+
+[00:41:59] There are some useful tips, actually. So warning signs include excess postage. Like, why is someone spending so much money on their parcel? Because you don't want to risk it getting returned to you. Right. No return address. So the really clever bombers will leave the return address off. I think I would put the return address as my number two nemesis.
+
+[00:42:24] Yeah, nice. Such a good idea. Yeah. Good idea. Number two. How did you go on? It's a long old list, Jamie. Bad spelling.
+
+[00:42:35] Oh. Because a lot of, I mean, a lot of people sending these things are not the, maybe, I'm going to slag off letter bombs, but they're not the brightest buttons. Really? Yeah, bad spelling. Because they've just constructed a bomb. It feels like you've got a basic intelligence. What are you doing?
+
+[00:42:50] They might have studied the sciences and not the humanities. Yes, that's the point. There are so many kinds of intelligence. Hmm. addressed personal, confidential, or do not x-ray. And the final one, just for any of that have slipped through those many holes in the Swiss cheese, ticking sounds, protruding wires, okay, or aluminium foil. Or if it says acme bum on the front.
+
+[00:43:21] If it's dropped off by a coyote who looks pleased with himself, that's another one. I did read, there was a, what's the name of the journalist, Slavovzijek? Slavajajek. Yeah, so he wrote this piece and the opening anecdote of the piece that the top winner in the contest for the greatest blunder of 1998 was a Latin American patriotic terrorist who sent a letter bomb to a U.S. consulate in order to protest against America interfering local politics. As a conscientious citizen, he wrote his return address on the envelope. However, he did not put enough stamps on it, so that post was returned to him, forgetting he
+
+[00:43:55] put it in he opened it and blew himself up he literally did what james said yeah now who knows if that's apocryphal or but it's jesus are the fingerprints of jack waz anywhere near this i'll tell you what that's the first time jack waz and sloid jizze could be mentioned in the same sentence together stop the podcast stop the podcast hello everybody just wanted to let you know we are sponsored this week by car Ah, calm. This is an incredible app. It's the number one app for sleep and meditation. It's basically designed to bring down your stress levels and make you get good sleep and just a better life. That's right. It is very, very easy to feel anxious, feel stressed. And calm has a lot
+
+[00:44:42] of methods. They have things like guided meditations to help you work through those anxieties and stresses of everyday life, to boost your focus, to build healthier habits. You will end up being a calmer, calmer, calmer, calmer, calmer, chameleon at the end of it. I don't know why that joke stressed me out. But it did. But Andy's right. You can become calm simply by using this app. People really swear by this thing.
+
+[00:45:10] I have so many people in my life you use it. So if you go to calm.com, that's c-alm.com slash fish, you'll get 40% off unlimited access to calm's entire library. That is right. as Dan says, calm.com slash fish. Maybe if you work in the emergency services, you'll end up as part of the calmer police. These are great jokes.
+
+[00:45:31] Should be said. No, it's really highly recommended. They've got two million five-star reviews. And if you go to calm.com slash fish, you can find out why. Okay, come on. Let's get back to the podcast. On with the show.
+
+[00:45:42] Lovely. On with the podcast. It is time for our final fact of the show, and that is, James. Okay, my fact this week is that there is currently a scandal in Thailand after at least a dozen supposedly celibate monks admitted to having sex with a woman called Mrs. Golf. James, you're a keen golfer. That's how I found this. I was Googling golf. No, no, no. No, this, I just read this in the news and I thought it's very amusing. It is a lot of senior monks. I mean, not amusing if you're if you're a monk, because obviously a lot of them have lost their livelihoods, including some as high-ranking as Frat-Dep, which means angelic level. So this goes to the very, very
+
+[00:46:32] top. And it turns out they've been having relationships with this woman, who's called Mrs. Golf, and they've been transferring money to her. And they've found this lady, and they found over 80,000 photos of naked monks on her phone. How do they know their monks? sorry to quibble I reckon there's a way you reckon there's a way yeah it's probably away I reckon there's a way probably it's the hairstyle down there
+
+[00:47:00] it's like a tonsia 80,000's a lot not necessarily all different mugs they could have been 80s still I don't even know if I have that amount of storage on my phone for 80,000 yes what was her data plan like this is really interesting
+
+[00:47:13] is she in the cloud she's using the cloud so yeah and the reason she's called Mrs. Golf is because this is quite common in Thailand for people to have little short nicknames and you're kind of given them as a child by your parents and they don't really mean anything. Like it might be that this person's parents love golf but more likely they just take like a Western word that kind of sounds fun or trendy or whatever and they just call that. The most famous Thai person in the world probably is Lisa from Black Pink and her nickname is
+
+[00:47:46] Pock. So they're just mostly just sounds or they're might be little words from other languages, but it's just like a little nickname. But people go by it in real life, like as adults, she might still be known as that nickname. Yeah, right. So this is an unbelievably fascinating story. This one woman went around so many of these different monasteries and managed to talk in what were effectively, I'm assuming, celibate monks, into engaging not only in sex, but also having photos taken.
+
+[00:48:14] And the top monks, some of them have fled the country. We don't know quite where they are. and they haven't said why they've done that. They're now investigating 300,000 other Buddhist monks in Thailand off the back of this to see whether or not they're involved. And she got a lot of money off the back of this. Was her a extortion, sort of, I'll release the photos.
+
+[00:48:33] So the photos would be shown back to them and then they would have to pay money. And a lot of the monks have been acquitted where the police have decided that actually you just gave her money because she was pleading for the money and didn't engage in sexual activity. But do you know how much money, allegedly, She is netted the equivalent of $11.9 million from this.
+
+[00:48:54] There's a lot of money in monking, isn't there? Isn't there? Yeah, that's a bigger career than I thought. Like, no, my career advisor did not say, have you considered becoming a monk? And I think it's like quite a big deal in Thailand because if you're a Buddhist, you think that if someone becomes a monk, then they kind of automatically sort of develop this strong resistance to temptation and that. kind of thing. And so to find out that they haven't was quite a big deal for a lot of people.
+
+[00:49:22] Yeah. I think this is very interesting because I started reading about by the way James, there's a very hard fact to Google like naughty monks and naughty nuns is actually even worse. It's an even harder, legit Google. But basically there was a lot of this in the 16th century
+
+[00:49:40] in England because monks and nuns and monasteries were seen as hotbeds of sin and the idea was they're all on the take, they're all selling, pardoning for sins, that kind of thing. Like they're all shacking up and there were some institutions. Hence the Reformation like that. Hence the Reformation, right.
+
+[00:49:58] But I think we've all been conned into thinking that monks and nuns are inherently sort of naughty figures because they're absolutely not. And I think we've fallen for Henry the Eighth era propaganda. And I'm blowing the lead off this. Not enough people talk about it, but I'm not afraid to. I'd just like to reference the paper by Christian Knudson. sodomitic monks and other dissolution myths the late medieval monastic
+
+[00:50:20] decline narrative revisited and it is a belting read it's really good and it's... Can you tell us more about the Fukushima disaster? But like Henry VIII wanted to dissolve the monasteries because they owned a huge
+
+[00:50:38] proportion of English land right? There was so wealthy and Henry the 8th thought I'm going to discredit ecclesiastical institutions any way I can't And every monastery in England in 1535 and 6 got a visit from bureaucrats who were trying to record every dubious incidents of behavior by a monk or a none they could. And there were some cases, absolutely, there were some cases where monks have been playing the field or whatever it is. But they also, they had to come up with new crimes. So they found dozens of instances recorded of voluntary pollution, which is just sort of playing with yourself.
+
+[00:51:10] But it's not in seven, in one priory Westacre, 76% of the monks were labeled in constant. by which they mean romantically incontinent. Right. But 10 of those 13 were for just enjoying some sort of cowl billiards. And so it's not, sorry, not cow. The cow goes on your head, doesn't it? You know what I mean? Hardly ever.
+
+[00:51:30] I just think it's really interesting, and I think we shouldn't fall for it. Okay, well, we won't. But also, like, I'm a Catholic, I mean, you know, lapsed Catholic, but like, you can do anything if you say sorry. That's like the point. Yes. But actually, the penance was quite severe, or it could be.
+
+[00:51:51] So Richard Gray, one man called Richard Gray in medieval England, he was found guilty of having sex with a nun, and he was sentenced to being flogged while walking around Stanford Church on four Sundays in a row, carrying a candle while dressed only in linen garments. And then he had to make a barefoot pilgrimage to Lincoln Cathedral. From where? Wherever he lived.
+
+[00:52:14] Well, that's a movable feet. of a punishment, isn't it? What if he thought, right, I'm going to get a flat just outside Lincoln. Yeah, that was quite a miss for me to not say where he actually lived in my notes. But then he, and then after that, he didn't do what he was supposed to do, and they'd get communicated him. But in those days, being excommunicated was a big old deal. Right.
+
+[00:52:39] Because it means you can't go to heaven, but it also means you can't be baptized. It means you can't get married. You can't do all sorts of different things. Yeah, and actually quite often the women were punished more than the men. So two that happened quite close to each other, a guy called Nicholas Plymouth, was a monk who was committed adultery with a Tanner's wife, and he was ordered to remain silent for one week. And at around the same time, someone called Alice Longstray was sentenced to a year of strict confinement after an affair with a priest. That is double standards. So it is double standards, yeah.
+
+[00:53:12] Yeah. James, you've spent time in Bhutan. I have. Did you ever hear of the thunderbolt of flaming wisdom while you're out there? That's what they still call me that, there. I wonder when the thunderbolt of flaming wisdom is going to return. So it's referring to a monk's penis, but... So, I'd question who your real friends were out there, but... strange that they yelled at me in the streets.
+
+[00:53:49] Is that right? There was this guy, Druck Puck Cunley, and he was in the 1400s. Yeah, I've been to his church. You've been to his church, so he was, he was interesting, because he was known as the saint of 5,000 women. He was a fertility saint. The idea was he thought sex should be incorporated into reaching enlightenment. And so, yeah, so classic.
+
+[00:54:10] Oh, yeah. Yeah, you would meet the thunderbolt of flaming wisdom as part of your hello. to him basically and but he was he was liked but mad as fuck like people genuinely thought he was known as like the holy madman or something like yeah and he introduced this idea which still goes on in various bits of Bhutan today which is that if you're setting up a new house and you need it to be blessed you would basically graffiti fallas yeah put dick pics all over like like draw a penis all over the walls did you see any while you're yeah yeah they're on every every house has them yeah in this particular town where he was struck
+
+[00:54:45] And also if you go into his church, a priest comes up to you with a giant phallus and sort of touches you as if you're being knighted by the queen. Right. Did you have that? Yeah. Wow. Cool. Arise. If it's on every house, can you put it on a semi?
+
+[00:55:04] Sorry. Go on. Do you want to know something cool about the first century St. Thetla? Yes, please. This was sent in by a listener, actually. Listen to Kat Brinker. So thanks Kat for this. the first century saint Thetla
+
+[00:55:17] she is the unofficial patron saint of computers and the internet can you work out why it's going to be sex connected presumably nope but you said it was to do with the internet no I know I know I know what could a first century monk have to do with computers
+
+[00:55:33] and the internet she like cats that's a really good one that's very close she was very racist all the time it's because her name Thetla Sounds like the Spanish word for a key on a keyboard. Zekla.
+
+[00:55:52] You've not just wasted their time. Unbelievable. Would you like to know some analogs of the word tecla? I've got loads. That is it. That is all of our facts. Thank you so much for listening. Thank you for everyone who has joined us around the world on the live stream.
+
+[00:56:14] We are all found on our online accounts. You can get us on Instagram. I'm there. I'm on at Shreiberland. James. I'm on TikTok. No such thing is James Harkin. Andy.
+
+[00:56:25] Instagram at Mrs. Golf. 80,000 photos on his grid. It's insane. It's too much, mate. It's too much. And Jamie? Uncle Ego, it's weird. Don't worry.
+
+[00:56:40] Okay. And if you want to send us any of your facts, You can do that as well by going to podcast at QI.com. So send us facts. Send us anything that you heard in this episode that you want to talk about. We take it all and we bring it to our special secret room, which is part of clubfish. We got any clubfish members here? Six.
+
+[00:57:00] Okay. Everybody. But we will read them out there as part of our mailbag special. So do do that. Go online. Find out if we're coming to a town new you with more live shows. But otherwise, come back here next week for more of our actual show. it's all free. Come and do that. Thank you so much, everyone for being here tonight. London Podcast Festival. That was awesome. We will see you again. Goodbye.

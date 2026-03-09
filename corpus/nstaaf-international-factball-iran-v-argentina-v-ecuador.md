@@ -1,0 +1,141 @@
+# No Such Thing As A Fish - NSTAAF International Factball: Iran v Argentina v Ecuador
+
+- Episode date: June 25, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/nstaaf-international-factball-iran-v-argentina-v-ecuador
+- Slug: nstaaf-international-factball-iran-v-argentina-v-ecuador
+
+## Transcript
+
+[00:00:00] Hello and welcome to No Such Thing as a Fish presents International Factball. This is the only podcast out there that makes absolutely no mention of football, despite being a football podcast. Brought to you by the QILs in association with visitinglin.com. My name is Dan Schreiber and I'm sitting here with Freddie Soames, James Harkin and Anna Chazinski. And we're about to play the penultimate match in our
+
+[00:00:23] competition and it is a triple header. A rare football occurrence that doesn't happen too often, but it's happening right now in which Iran, Argentina and Ecuador are about to battle off in a three half match. So let's begin. The first whistle is about to go. Match is about to start and it's Iran. What's quite interesting about Iran?
+
+[00:00:44] OK, what do you think was the most popular TV show in Iran in 2002? Oh, um, Crystal Maze. Yeah, the answer was Baywatch. Really? Yeah. No wonder David Hasselhoff is so big around the world. Yeah. They're only just hearing about him in certain places. Well, this was 2002, so that's well years ago. Satellite TV first came to Iran and Baywatch was all the rage.
+
+[00:01:08] Wow. Is it is that not quite surprising that it's allowed? I'm not sure how allowed it was, actually. But yeah, people watched it nonetheless. OK. You know, apparently satellite TV is now banned in Iran. Oh, is it? Yeah. Because of Baywatch. They took one look at David Hasselhoff and thought this guy is not for us. Get this out of here.
+
+[00:01:27] Yeah. I read that in Iran. The thumbs up. Don't do it. Really? Doesn't mean what you want it to mean. What does it mean? It roughly means, but I like that someone's written this sentence as the rough meaning, sit on my phallus asshole. That's what someone's put down as the rough meaning of a thumbs up. It's the same.
+
+[00:01:45] It goes for Afghanistan, Nigeria, parts of Italy and Greece as well. A thumbs up doesn't mean what we think it means. So speaking of the phallic thumb, it has that cemetery, doesn't it? On the border of Turkmenistan, it's got the phallic cemetery, which is a big tourist attraction in Iran now. And no one knows why it's there, but there are hundreds of gravestones and they're all in the shape of either penises or like breasts or genitals of some sort. Oh, I thought you mean... No one knows why.
+
+[00:02:08] It's a cemetery for penises separated from the bodies. Is it like an ancient cemetery or...? They don't know. Very little research has been done into it. It was only documented first in the 70s, but I think people are quite nervous about researching into it because Iran is a conservative country in a lot of ways and they have this whole massive cemetery of penises hanging out on its... That's amazing.
+
+[00:02:26] I thought the idea of burying a penis just out of pride, just having a gigantic casket. A mausoleum with this tiny little shriveled penis in it. Yeah, yeah, exactly. A tiny, tiny little casket. He died on a cold day. What can we say? Speaking of body parts,
+
+[00:02:43] Iran is the only country in the world to have like a regulated legal organ trade and you're allowed to sell your own kidneys. It's only for Iranians though, so you can't go there and buy a kidney. But there's quite a big thing about it because there's a lot of graffiti around the hospitals now and you'll get people advertising their blood type and like a phone number. So you can call them up and buy a kidney if you feel like it. Oh, wow. OK.
+
+[00:03:04] It's sort of like an eBay for kidneys. Can we sell our kidneys to Iranians or is like foreigners bandalled together? Because I actually am not being paid enough by QI. I need something to make ends meet. The Lut desert I like. It's an area of Iran. It's so extreme, the temperatures are so high that if you put milk in the middle of the desert there,
+
+[00:03:25] it won't turn sour because the bacteria can't live. And so it stays sterile. Wow. That sounds quite useful. That's why I should keep my milk. Yeah, your cornflakes will be quite warm. Yeah, and it's a long commute for a cup of tea, but even so. Yeah, it's got the highest ever recorded temperature. I think hasn't been recorded by NASA 159 Fahrenheit
+
+[00:03:44] or 71 Celsius for the modern among you. Things that are invented in Iran. Yes. OK. Windmills. Uh-huh. Really? Windmills? Yeah, apparently the oldest known windmills we have are from Iran. Human rights. They were invented by Cyrus the Great around 500 BC and what's now known as Iran.
+
+[00:04:02] Sorry, what does that mean? He drew up the first kind of human rights document. Yeah, code of human rights. Wow. And also April Fool's Day. Really? Yeah. They also have the world's oldest wine. It's actually from 5000 BC. They found six two and a half gallon jars.
+
+[00:04:17] It's in a Neolithic village in Iran's northern Zagros Mountains. But yeah, oldest wine, a 7000 year old wine. And apparently it's still quite delicious. Really? Yeah. I think it would be quite vinegary. It might have gone a bit, yeah. It depends if they kept it in the same circumstances as milk. They kept it in the desert.
+
+[00:04:33] Yeah. You're right. What's weird is that its main wine producing region is the Shiraz region and they produce Shiraz wine, which was a white wine totally unconnected to Shiraz wine that we know today, the red wine from the Rhon region. It's not the same grape. Nope. Unconnected.
+
+[00:04:48] There are theories about how maybe Shiraz came over from Iran, but it seems like that's a myth. OK. We are vastly approaching half time. So if you have any Iranian facts that haven't been said. Yes. I have a good one. Go for it. They tried to make the world's largest ostrich sandwich. Ostrich sandwich?
+
+[00:05:05] Yep. It was going for a world record for the Guinness Book of Records. Largest ostrich sandwich. It took two days to prepare the sandwich. A huge measuring tape ran across the length of the table, but before they could measure it, people rushed forward to eat it. You're kidding. So literally like Guinness is arriving
+
+[00:05:21] ready to like take this down as a world record. They have it on video, but they didn't do the official measure because people let it before they could do that. I've got one last thing that's pretty good. It's actually illegal to wear a tie in Iran because it's a symbol of American kind of encroachment on the nation.
+
+[00:05:37] You'll remember Ahmadinejad was very famous for his three piece suit and he wore an open neck shirt at all times. Got a bit of a North Korea about it, doesn't it? Yeah. Less eyebrow than ties. Their most commonly sold detergent is called Barf detergent.
+
+[00:05:52] Barf, B-A-R-F. B-A-R-F, yeah. Vomit detergent. Yeah. That's very good. Okay, there we go. There's the halftime whistle. And now it's time for our halftime show,
+
+[00:06:03] which comes in the form of a QI quiz brought to you by visitingland.com. And we have two questions for you in this half and they are starting with you, Freddie. My question is, what does Mr. Chicken have in common with David Cameron? Mr. Chicken. Okay, and second question, Anna.
+
+[00:06:21] My question is, so Barry is four foot long, he lives in Newquay and he has had a poem written about him by a rabbi. What is he? Okay, so if you wanna find out the answers to those quiz questions, you're gonna have to stay tuned for the end of the match
+
+[00:06:38] where we'll be revealing them there. But in the meantime, let's head back to the field for the second half of our match and it is Argentina. Argentina, okay, let's go. I've got facts and it's to do with football. No.
+
+[00:06:52] I know I'm very sorry about this, but it's very quick. It's that the very first rule book on football published in Argentina said that a player who had been fouled could choose to accept an apology from the fouler instead of involving the referee in the situation. Which would, that would make all modern football
+
+[00:07:10] so much more interesting to watch a negotiation process going on, an apology, a shaking of hands. And then by the time the ref arrives, they're gonna ask, cool mate, which sort of thing. Yeah, that's my football fact. No more football, sorry. So Argentina, since 1944, has had an average rate of inflation of 205%.
+
+[00:07:28] And since 1969, it's dropped off about 13 zeros from its currency, which means the Argentinian peso is worth about one 10 trillionth of what it was worth back then. Yeah, really plummeted the turn of the last entry. That's really plummeted. It's gone downhill fairly fast. Trillionth.
+
+[00:07:47] I've never heard anyone say a trillionth about anything. Except in a ridiculous exaggeration context if they're a five-year-old. Used to be the eighth wealthiest country in the world, about 1900, anyway. Argentina was. Argentina was, yes. There's a practice that's arisen in Argentina
+
+[00:08:03] lately of selling ferrets on steroids and disguising them as expensive little dogs. People have been paying quite a lot of money for what they think are toy poodles in chihuahuas. And they turn out to be ferrets, and they're given steroids when they're born to make them bigger. And then they get really fluffed up
+
+[00:08:17] and you see pictures of them. They kind of look like a chihuahua, but they mainly look like a really fluffy big ferret. And there've been complaints about that. I'm not surprised there's been complaints. Ferrets are brutally aggressive as well. Like you expect this cute little sweet chihuahua, and then suddenly it attacks your small child.
+
+[00:08:33] I don't know. John Mitchinson, who was on one of these earlier podcasts, he used to have pet ferrets. And he said they were the best pets you can have. Really? Yeah, he said they were very loving. Apparently when happy, ferrets may perform a routine known as the Weasel War Dance,
+
+[00:08:47] which is characterised by a series of hops and frenzied attempts to bump into things. Which is so not what you want from your new to our. Very similar to John Mitchinson. Yeah. I didn't know that Shagua Vera was Argentinian. But did you guys know that he was, he used to be a journalist for a rugby magazine.
+
+[00:09:08] That's cool. Yeah, he was a massive rugby union fan. And he was a player as well in Buenos Aires. Played for three clubs. And he founded a magazine for rugby called Tackle. And it ran for three months between May and July, 1951. He was the sole contributor to the magazine as well as the editor.
+
+[00:09:26] And was accused by the police of spreading communist propaganda in some of the articles when he commented on the class system in different Argentinian rugby teams. Okay, so we're, yeah, guys, we're running out of time here. The whistle's about to go. We're heading towards our second half time of the match. That's rare moments.
+
+[00:09:43] Does anyone want to throw anything in before we go to it? Argentina has the largest Welsh settlement outside of Wales. It's the Chubut region. It was settled by the Wales in the late 19th century. And 10% of its population have Patagonian Welsh as a first language. And I think about a third of its population speak Patagonian Welsh as a first or second language.
+
+[00:10:02] Yeah, and it's got six newspapers, and I think two of them are in Welsh. Isn't that weird, middle of Argentina? Bunch of people speaking Welsh. That's wonderful. All right, here's another fact. The male Argentinian lake duck has a 42 inch penis. Wow.
+
+[00:10:16] 42 inch penis. That is impressive. That is getting an impressive gravestone if it's in Iran. Okay, so there's the whistle. That's the end of that half of the three half match. And now it's time for our second half time show, which once again is brought to us
+
+[00:10:31] by visitinglin.com. And it comes in the form of another question, and that's from you, James. Okay, just one question for this second half. The world's first dog show took place in 1859 in Newcastle. What was controversial about the winners? It was a ferret on drugs. Okay, well, if you want to find out the answer
+
+[00:10:54] to that question and the two previous questions from the first half half time, then stay tuned to the end of the match where we will be revealing all of the answers. Okay, so now it's time to head to the third half of our match. Yeah, screw you, Matt. Yep, and here it is, Ecuador.
+
+[00:11:10] Ecuadorians prior to 2004 were renowned for being late, according to their own country. Their country was like, guys, everyone's way too late. And the lateness supposedly cost Ecuador 2.5 billion a year. So what they did was in October of 2004, everyone synchronized their watches at noon. Wow.
+
+[00:11:33] And this was the mark of the beginning of a national crusade against lateness. You know, the crazy thing about Ecuador is nature has its own constitutional rights in Ecuador. Really? Yeah. It says that nature has the right to exist, persist, maintain and regenerate its vital cycles,
+
+[00:11:47] structures, functions and processes in evolution. Does nature have seats in parliament? No, well, this is the thing. It has rights, but no responsibilities. That sounds good. But in return, nature. No tornadoes, no earthquakes. Wow.
+
+[00:12:02] That's great. There was a load of scientists in Ecuador in 2010 looking for new species and they found a gecko so small it can perch on top of a pencil and a new species of snail-sucking snake. Apparently they said that when they went there, you could, if you go to any one spot in Ecuador, you can find 20 or 30 species of frog.
+
+[00:12:24] And if you go to the next site over, you'll find a whole bunch of different ones, just loads and loads of frogs in Ecuador. Wow. They've also got the world's smallest orchid. Oh. Which is extraordinary, the person who spotted it, because the world's smallest orchid
+
+[00:12:39] is just 2.1 millimeters wide. Wow. Oh my God. And it petals on one cell thick. That's so small. Yeah, but it'd be great excuse for Valentine's Day, wouldn't it, when you can say to your girlfriend or boyfriend when they said,
+
+[00:12:55] you haven't got me anything. What are you talking about? But you are a forest of Ecuadorian orchids. Is there a tiny, tiny gecko balanced on top of the tiny orchid, do you think? Abdala Bacaram, Ecuadorian president, he released a CD called A Crazy Man Who Loves. It was an actual album.
+
+[00:13:17] After winning his presidency, he once invited Lorena Bobbet to the Ecuadorian- That's the woman who cut off her husband's penis. She was an Ecuadorian woman. John Wayne Bobbet's wife was Ecuadorian, and she was the one who very angrily lobbed off the penis of John. Can that also be found in the Iranian graveyard?
+
+[00:13:36] Well, you would hope so. That would be the star feature, wouldn't it? The thing about Abdala Bacaram, who's quite good, is he caused a national scandal by serenading the winner of the International Miss Banana Contest. Yeah, okay, now, I read that, and I can't for the life of me work out
+
+[00:13:53] why I didn't look into what the hell the Miss Banana Contest is. What is it? It's just a beauty contest. It's just to celebrate bananas and to promote them. Miss Banana Contest, I definitely want to take it to the next Miss Banana Contest. So, to be clear,
+
+[00:14:09] is the winner of the Miss Banana Contest a banana or a woman? A woman. It's a woman, it's not a banana, I know. That would be, it would be an even bigger scandal if the president was serenading a banana. Yeah, on Ecuadorian politicians and politics, in 1967, in the town of Pico-Azza in Ecuador, the people of Pico-Azza elected
+
+[00:14:28] a brand of foot powder as mayor. It won the mayoral election. It was a foot powder called Pull Vapiers, and it was meant to be a tongue-in-cheek PR campaign. It was like, elect for Pull Vapiers to get rid of your rancid foot odor, and it won the election. I don't know how many people know this.
+
+[00:14:45] It may be kind of a boring fact, but you know, in all the Andean countries, it's really popular to chew coca leaf. It's like kind of a stimulant. I mean, obviously, it's what you used to make a cane, but it's a big problem because, you know, the war on drugs, they want to burn all the coca plantations, but it's also a massive part of Andean culture,
+
+[00:15:02] so they're all still just chewing coca leaf to kind of keep themselves awake at night and do whatever. The other Andean delicacy, I suppose, is guinea pig. You can have it in a couple of different ways, but I've had it on a stick. Oh, really? Is it nice? Yeah, it tastes nice.
+
+[00:15:19] Like a guinea pig lollipop. Exactly. The cheeks are the best bit. Are they? Yeah. Did I read... Did I remember reading that there's a painting somewhere of the Last Supper where they're eating guinea pig? It's awesome, yeah. I love it when there's a cultural artistic clashes.
+
+[00:15:33] There's an Ecuadorian poet called Jose Joaquín del Olmeido, and there's a statue of him in Ecuador, but it's not actually him. They couldn't afford to make a new statue, and so they got a second hand one depicting Lord Byron. Apparently. Did he look like Lord Byron? Or was it just another poet?
+
+[00:15:50] No, it didn't look like him. Classic Ecuadorian hero, Lord Byron. A couple of years ago, a bunch of young Ecuadorians attempted to enter Señor Buro into the election, and Señor Buro was Mr. Donkey. He was a donkey. Sadly, he was not allowed to enter,
+
+[00:16:08] but there was a big movement to get him voted in. Whoa, whoa, whoa. The donkey wasn't allowed to enter, but the foot powder was. I guess times have changed. They learned from their mistakes. That was a tough 10-year rule. It wasn't the same election. All right.
+
+[00:16:20] That was a missed opportunity. Donkey versus foot powder. OK, that's the end of the third half of our match, but before we find out who has come out on top as the winner, let's get the answers to our visitinglin.com quiz. And we started with a question from you, Freddie. So the question was, what does Mr. Chicken have in common with David Cameron?
+
+[00:16:42] And the answer is that they've both lived in number 10. Because, OK, so England, like Mr. Donkey, had a chicken run for politics successfully when I'm presuming. No, actually, it was a Mr. Chicken, a guy who lived in Downing Street in the early 18th century, and Walpole managed to convince him to move out so he could take over. That was a real political coop.
+
+[00:17:05] OK, question number two. That was yours, Anna. Yes, so I told you that Barry is four foot long. He lives in Newquay, and he's had a poem written about him by a rabbi. Barry is a four foot long reef worm, and he was found in Newquay Aquarium. He wasn't supposed to be there.
+
+[00:17:21] They saw him poking out, and they eventually had to dig up all the rocks in Newquay Aquarium and found this hideous reef worm. OK, and finally, James, your question. Yes, my question was about the world's first dog show in Newcastle in 1859. My question was, what was controversial about the winners? The winners were judged by Mr. Jobling and Mr. Brailsford,
+
+[00:17:43] and were dogs belonging to Mr. Brailsford and Mr. Jobling. Very controversial. They just knew a lot about dogs. That's why they're judging this show. Obviously, you know a lot about dogs. That's true. You raise a prize winning dog. Yeah.
+
+[00:17:57] OK, so that's the end of our quiz. There are no prizes for that. However, if you do want a prize, if you want to win a QI book or a t-shirt or a hat, head over to visitingland.com where you can enter a competition to do so. But now it's time to find out who has won the penultimate match of our international fact bowl.
+
+[00:18:13] Was it Iran? Was it Argentina? Or was it Ecuador? And I am going to go to James. OK, I think of those three, I'm going to go for Ecuador. How come? Just like the idea of everyone setting their watches at the same time.
+
+[00:18:30] Oh, yeah, to solve lateness. Yeah. Yeah, yeah. OK, well, there we go. Ecuador has come out on top. And if you heard this podcast and you thought, hang on a second, it should have been Iran or it should have been Argentina or hang on,
+
+[00:18:42] who the hell does a three-half match to begin with? You can get in contact with us to ask any of those questions on our Twitter handles. Mine is at Shriverland. Freddie. F. Soames. James. At Egg Shaped.
+
+[00:18:54] And Anna. You can get me on at Quikipedia or email podcast at qi.com. Hashtag get Anna on Twitter. OK, that's it for today's match. We're going to be back again tomorrow with our final match of the international fact bowl competition. And James, that's going to be at the final two countries, South Korea versus Ghana.
+
+[00:19:11] OK, so that's going to be a good one. All right, catch you guys tomorrow. Thanks everyone for listening. Goodbye.

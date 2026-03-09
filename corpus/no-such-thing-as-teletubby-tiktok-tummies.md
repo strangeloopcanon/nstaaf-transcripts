@@ -1,0 +1,329 @@
+# No Such Thing As A Fish - No Such Thing As Teletubby TikTok Tummies
+
+- Episode date: October 30, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-teletubby-tiktok-tummies
+- Slug: no-such-thing-as-teletubby-tiktok-tummies
+
+## Transcript
+
+[00:00:01] Hi everyone, welcome to this week's episode of Nosey's Things of Fish, where we were joined by the legend, Dan Schreiber. Another legend, Andrew Hunter-Murie, but the biggest legend of all, Ben Elton. Yeah, long-time listeners of the show will understand what a big deal this was for me in particular. He's my big, big hero, and he didn't disappoint. You guys are going to absolutely love him. The reason he was on the show is because he's just written his autobiography. It's out now. It's a Sunday Times bestseller this week.
+
+[00:00:28] It's called What Have I Done? And it's the full story, you know, as you're doing an autobiography, childhood through to current day. That's a typo, isn't it? It should be called what I have done. Is it too late to change? I'll email it. There is a phrase, what have I done? That's what he's going for. I understand now.
+
+[00:00:45] That's it now. One interesting thing about Ben when he was on the show is he went on so many amazing big rambles, especially one bit about his journey to having a new child, which was extremely explicit. unbelievably funny, but you will not hear it if you listen to this episode because it goes in the XL version. It was a little bit rude for this episode. If you want to hear that, you're going to have to go to Club Fish. That's right. You may have heard on last week's show. We have just gussied up Club Fish. And if you want ad-free episodes and bonus content and all kinds of extra stuff, you can go to patreon.com slash no such thing as a fish and see what kind of extra stuff you can get
+
+[00:01:23] and also see how you can support the show. That's right. But for now, enjoy Fish and one of the greatest sitcom writers in British comedy history, the guy behind the young ones, Blackadder, Upstart Crow, books like popcorn, maybe baby. And again, his latest book, What Have I Done? On with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hoburn. My name is Dan Schreiber. I am sitting here with Andrew Hunter-Murie, James Harkin, and Ben Elton, and once again, we have gathered round the microphones with our four favorite facts from the last seven days, and in a particular order, here we go. Starting with fact number one, and that is Ben. My fact for this week is the actor who played Tinky Winky
+
+[00:02:23] was removed from his role because his interpretation of the role was not acceptable. Which, I mean, how would they tell? I don't know. Well, yeah, this was Dave Thompson. Yes. I mean, I'm bringing it out of as my fact. It concerns. a very dear friend of mine. In fact, I think, you know, my second oldest friend, I mean, not to go into abstract detail, but my oldest friend is Gabby Glaster, who played Bob in Blackadder,
+
+[00:02:54] and my second oldest friend played Tinky Winky Winky. I really only, I only befriended people who would later play Seminole. Pretty famous character. Yeah, A Leicesters. Dave Thompson is a very, very, very great stand-up comic, a very interesting comic muse in general. And he got a great break at one point in his career in that he auditioned for and was cast as Tinky Winker.
+
+[00:03:16] Because he did an enormous amount of physical theatre in his day. He did a lot of teaching and working with kids with special needs using theatre, etc. So very good with his tall, wonderful body. He got the job as Tinky Winky and gave a lot of thought to it. I mean, it isn't actually as simple as you think. Well, surely they just all kind of go around in these enormous costumes. I think the reason it was a success, was because there was character.
+
+[00:03:41] But for some reason, they sacked him. And I don't, I think some people say, because I think it was Dave's idea to give Tinky Winky a handbag. And I think in those days, I don't know if that's a fact or not, but I think it might be. I think that's about as far as you get with facts these days, they might be.
+
+[00:03:58] And I think there was some sort of weird idea that that might suggest he was gay and a weird idea that that was a bad thing. It was numerous things. The handbag was one, which I read in one interview, Dave says, It wasn't a handbag. It was like a magic bag. It could do magical things. So that's why Tinky Winky had it. It was a handbag. Dave, come on. I think Dave's had decades to talk about this now, right? So he's probably adding little bits. Purple, supposedly, was a color to suggest. This is all mad.
+
+[00:04:26] Yeah, it's all mad. Some of fake controversy. It sounds really ice cold the way he got his tubby bye-byes. He was on his way to a rap party. And he was just drawn to one side and handed a letter from the company accountants. And by rap you mean end of series rather than they were all going to get down and something. But one of them was a Jamaican, threw in a lot of Jamaican dance moves. I believe it's the guy who played dipsy through in a lot of dance halls, stuff, interpretation. Anyway, no, but the rap, end of series party. And he just got told that's it.
+
+[00:04:55] But he has said since then, I'm proud of my work for them. I was always the one to test out the limitations of the costume. I was the first to fall off my chair. I took all the risks. Wow. Good old day. He's a big physical comedian fan as well, right? Laurel and Hardy were his big influences and so on.
+
+[00:05:11] That's what he thought he was doing inside the suit. I don't. I have no idea what I said. I know he would, as I say, he's a friend of mine, and I know he was deeply upset. He was devastated. I think since then, the notoriety, you know, it's interest. I don't know whether you do better in a comedy career playing Tinky Winky or having been sacked from playing Tinky Winky Wiggy.
+
+[00:05:32] I kind of think maybe the latter. I don't know. But at the time, because he actually did invest, as he does in all his work, a great deal of his, you know, artistry and, you know, he took it very seriously. I think he felt, you know, very undermined. What is his voice like?
+
+[00:05:48] Because I read, he said that one of the reasons that he left might have been because they didn't use his voice, they dubbed him over with another actor. He doesn't have a very strong accent. Well, don't they all kind of go, eh-oh? Yes. But he was re-voiced.
+
+[00:06:02] And he's Darth Vader. That's David Prowse all over. It's one guy in the suit, Some of them did their own voices, but... The other three did their own voices. That I didn't know. And he was the only one read-off. And I didn't really care until now, but I mean...
+
+[00:06:16] And then his voice was done by a guy called Mark Hinahan, who his other big role was playing Lyndon B. Johnson in a TV series called... LBJ. Literally, the man who's known really now finally for, hey, hey, LBJ, how many kids to kill today with the Vietnam War is actually the voice of one of a children's favorite. There's a kind of a... irony stretching across the decades there. There's got another one on Dipsy, John Simmit.
+
+[00:06:41] He was a comedian as well. So it's great knowing that there were comedians inside. He's also Charmander on a Pikachu and Friends cartoon. Yeah, they've all got amazing credits. This is all after our time. Yeah, I mean, the teletub is they still going? Is that after? Yeah, I watched it this morning.
+
+[00:06:55] Did you? Have you got kids or are you just a bit weird? But it was after she'd come to the nursery that I put it on. Yeah, you just skinned up a doobie. Because apparently that's what was originally the big. thing was students sort of like Kingstone. When it started, I was a student and we used to get up at like
+
+[00:07:12] 11 o'clock in the morning like students do and just put telitubbies on and watch that. Yeah, every morning we used to do that. Well, you know what they say, don't you? Eh-oh. There was a number one single. We actually pastiche that in We Will Rock You, My Queen Musical,
+
+[00:07:27] because it's about the future of the world in which rock and roll's been forgotten and all music is kind of electro, it's pop, you know, know, computerized pop, created, and streamed directly from the sort of conglomerate, whatever. Anyway, one of the things was that people are trying to remember back to the age of rock, but they really don't get it so they discover that, you know, this song was a number one, telitubbies say, oh, and they treat it with the same reverence as sort of satisfaction,
+
+[00:07:53] and I want to hold your hand. Anyway, anyway, too. That's amazing. You know, it was created by a guy called Andrew Davenport, and the whole, I didn't actually know that trippiness and spoken splice was associated with teletubbies, because the one I associate that with, which is actually more LSD, is in the Night Garden, which is the trippiest of shows. And it's got eagle piggle and same creators. And also, Lala, in the reboot of Teletubbies, the same actor plays Upsi-Dazee in the Nightgarden.
+
+[00:08:23] So there is like that. There's the same universe. It's a sort of universe. Was Teletubbies rebooting? I mean, what was the one that I watched this morning was very different than the one I watched when as a student. Oh, okay. And I mean, I don't want to bore your listeners, but I mean, I'm quite interested.
+
+[00:08:38] What different, I mean, was the hill a different color? No, the hill was the same. I think they just get into a few more scrapes. And also. More plot. Yeah, there's more plot. I mean, it's literally tension packed. The video is different as well.
+
+[00:08:51] The voiceover's different. Like, immediately I was like, this isn't what I grew upon. Do the screens in their tummies, are they now vertical for the age of vertical video? Yeah, they're all TikTok. Yeah. It's funny how you don't like. change one doesn't like change i remember having you know watched an awful lot of almost the dangengyn girls round and round and round when my kids were very small i happened to
+
+[00:09:15] see one with i don't know i'd a nephew or something late and they've gone all cgii so they're not real they're not real models anymore and i just i wanted to write to someone i did i was a times they're also run by italian and french companies these days out of my leg do you see what he did there a little bit of politics goodness gracious H.S2 across Sodor is very, very slow. Can I tell you guys about Lala? Yeah. So Lala was
+
+[00:09:40] Nikki Smedley. She has since done a one-woman show, Confessions of a Telitubby. And you couldn't say you were a telitubby at the time. I think in the early days when she'd just been cast and the first things were going out. They all signed NDAs, so you couldn't confess it. But she had originally, her previous job, as far as I can tell,
+
+[00:09:57] was fronting the garage rock girl group Psycho Pussy. And that doesn't get you sack from the sink. And all Dave did was fall off his chair. Oh my goodness. That's amazing. That is a brilliant fact. That's amazing.
+
+[00:10:13] But that doesn't seem to matter in children's entertainment. There's the biggest children's entertainer. It's called Blippy. And it's a huge character in America. It's sold, I think, for like a billion dollars in the States as a brand. The guy who plays Blippy, that's not his first career. Similar sort of alternative career to begin with. Yeah, he was a prankster.
+
+[00:10:31] There's a video online that you can see of blippy taking a poo on his friend's chest. Well, that would make any child laugh. I think that's probably the best kids gaggy ever did. The Barney character, he's now, he does tantric sex massage. He's so interesting. Dave Joyner. I read about him.
+
+[00:10:50] Yeah, Dave Joyner. So he wasn't the original Barney. He took over his Barney. And he supposedly, to get into the suit itself, he said he used tantric. He used Lou. What is a tantric sex massage? I think, is this where you thought today was going when you came into the office? I didn't know I have to bring out my personal stories, but I'll tell you what it is.
+
+[00:11:13] They effectively put you in a headspace where you can start feeling your energy growing to the point of culminating an orgasm. So you don't necessarily have to have someone touching you. So it might be a verbal massage, somebody saying, you know. I mean, we all got the entire world learned the phrase, Tantric sex at exactly the same moment when Sting and Trudy announced that they spent a year shagging or something without pause. And everybody kind of heard this and everybody had a giggle about Sting and Trudy. And I don't think anybody ever really asked, well, I said, what, I mean, what is tantric sex? I mean, is it a different position? Is it? No, it's a slow process. I think with
+
+[00:11:51] Sting and Trudy, it was them sitting across from each other, staring at each other's eyes for about four hours and slowly getting it. Tantritch is meaning case. So it's really terrible boring, sex. I think it's so much better when you shagged, personally. And five minutes is fine. I mean, anyway, as a tantric sex, it's something mystery. I must look it up. So you were saying about people sort of all learning things at the same time. Do you know Toy Story? There's this bit in toy story where Andy, the child, walks in and all the toys flop down. Yeah. Okay. So in Disney. Which story story? Is this the first one? I believe it's in all of them that this happens. I must admit, I haven't seen any of them, but I have read the transcripts of all.
+
+[00:12:32] That is true. Sounds like tantric watching the toy stories to me. It's just not as good. Yeah, they do. Whenever in travel or an animal works out. So, in Disney theme parks, they had all these toy story characters, so it's people in costumes. And then whenever anyone shouted, Andy's coming,
+
+[00:12:52] all the actors would just fall to the floor. It's like a cool little sort of thing. Thompson would be great in one of those characters was calling to the floor. It was like a little sort of hidden thing but then it went viral on the internet and suddenly everyone learned it at the same time and so there was one day when every single person
+
+[00:13:11] who walked into the theme park just shouted Andy's coming and all the actors had to the fall to the floor and it lasted one more day and they just stopped doing the whole thing. Yeah, absolutely. That's so funny. See, people can't be trusted with a global fact. You know, they're just going to spoil it for everyone by overdoing it.
+
+[00:13:28] I read this amazing story. I was reading about people trapped inside big costumes, trying to see if there was anything else. And I came across a kind of different story about a kid, 12-year-old, called Martin Pistorius. He had a mystery illness where he fell into a coma for years and years, but he was conscious inside the coma. So he was completely aware of what was going on.
+
+[00:13:46] Yeah. And he kept trying as hard as he could to break out of it. Nothing could happen. And he is now out of it. In fact, he's like a wheelchair racer. He's got kids, he's got family. And the thing that broke him out, is that when he was 12, they put him into a hospital,
+
+[00:13:59] and they played non-stop reruns of Barney to him, and he got so annoyed with the song, I love you, that he went, I can't be in this coma anymore. And he decided to train himself, and it took him years, but through anger of Barney, he trained himself to know when it was daytime,
+
+[00:14:14] to know how to move the muscles of his lips when he was trying to smile at someone, and they slowly recognized it, and they helped and coached him out of it. That, I had to say, one of, you know, I'm sure everyone shares it, I mean, the terror of, I think it's called Locked In Syndrome, isn't it? I remember reading about one person.
+
+[00:14:30] Is it something with butterflies or something? The story, a French bloke. And he, you know, he'd been, he was, they had a sports game on. And the nurse just, let's just turn the telly off at night. And, you know, he'd been watching it. And the anger, I'm afraid it didn't pop him out. But he also somehow managed to, because he's obviously told that story since. But goodness gracious, I mean, the idea, and you can't even ask them to kill you, you know, you literally can't do anything.
+
+[00:14:55] Yeah. Barney took a lot of flack. Barney took a lot of flack. People hated Barney. I think because of that repetitive song and all of this. But the guy who played Barney, as we say, David Joyner, he is a very interesting guy. Do you know what his previous job was? Go on. He was a mannequin in shop windows. Oh.
+
+[00:15:10] What? A live mannequin. He did it for a few dollars an hour. Right. And he claimed that after a year he was so good at it that he was charging $100 an hour. Wait a minute. Surely for $100 you can buy a mannequin. I would have thought.
+
+[00:15:24] I know. Why would anybody... I just don't believe this story. He said he changed his clothes every hour. You know, so you've got a little fashion show. So as you walk to work, the mannequin is wearing something. And then as you walk back, he's wearing something else. Is he holding still the whole time?
+
+[00:15:39] I believe so. I mean, there's... Coven Garden is literally full of people with this skill. They paint themselves silver and stand there. I'm afraid you obviously do facts at QI. But I don't think that's a fact. No, he claims it. Yeah, he claims it, right.
+
+[00:15:55] That's from him. I think there was some political controversy. I mean, I don't know. It's an American thing. I wouldn't even know what Barney looked like, but or certainly not this irritating song. But I think there was some, is it there? Did it go woke or something? Did it, did it annoy?
+
+[00:16:08] I was just always woke. Did it annoy the people who like don't like things going woke? I think it's been cancelled too long to have gone woke. Barney's not been around for a long time. So it was canceled in the old thing. In the original sense. Imagine that. Like we look back now and we say, oh, you know, what a shame?
+
+[00:16:22] You know, they're cancelled plate. for the day. Oh, what did they do? Did they say something mean about? Okay, it is time for fact number two, and that is Andy. My fact is that the British Army used lances until 1927. Wow, I'm surprised it was that, that early that they got rid of it. Really? I mean... I mean, if you think about it, we got what, the nuclear bomb 20 years later.
+
+[00:16:55] And 20 years before that, we were just using big sticks. Yeah, but if you, yeah, I don't think they were using it. But you think about it. And in fact, after that, I mean, the poor Polish cavalry were slaughtered in 1939 because they also used lances. That's right, yeah. It took a long time for armies to get over, you know, the old ways. Who knew that soldiers might be reactionary old dickheads or some of them at least?
+
+[00:17:21] Can I just say, Ben, that Andy is very, very excited to talk about lances. I'm so excited. I could just see, as you were to talk about lancers. He was like, what? Yeah, yeah. Right, well, I mean, let's, but as I say, I don't think the British Army was, certainly wasn't the last, because the polls, you know, were using, which a lance is a very sharp pole, just to make it.
+
+[00:17:41] But they were very sharp to use them. I'm listening. I mean, we're actually talking about a military disaster and a human disaster, of course. But it is true to say, I mean, I think the last British charge, since you've got me on, I like history, was, was, what Churchill was involved in. So we got lots of interesting links here. Wasn't it 18-9, Ombderman? Outside cartoon?
+
+[00:18:02] Yes, I think that was the last. Well, it was one of the last. This is a thing. I can't believe the man who wrote Blackadder is saying, well, this was actually a military and a human disaster. Hang on, we've got to get some comedy out of this. Well, exactly. My grandfather got annoyed with me because he thought we were laughing at the expense of the British Army.
+
+[00:18:20] And my grandfather, my uncle, who was a historian, but also had served in the British Army in the Second World War, but was also saved by the British Army because my uncle and my father's family were Jewish refugees from the Nazis. So they were very conscious of what we owed to Britain and also what we owed to the armed forces who in 1940, despite what the Americans might like to tell you
+
+[00:18:41] that they won the Second World War on their own, there was a year during which Britain stood alone after which most of the Bermacht was involved with the Russians. But anyway, let's not get on to the whole of the Second World War. We're going to stick on us first. Let's see, go, Andy. Lance is, Lonson, Lanzet. All right.
+
+[00:18:57] Sorry, I didn't even finish about what my uncle thought, and now you've moved on it. So it's like, you're like mountain goats leaping from crag to crack. I can't possibly follow this. I want to hear what your uncle thought, first of all. Well, very briefly, he wrote to me when Blackadder goes forth came out. He was a bit of sort of like he had a slightly German accent. And then he wrote, obviously, it wasn't a, it wasn't a voicemail. But I could hear his voice in the letter.
+
+[00:19:21] He said, I'm very disappointed to hear that you're making easy swipe. at the army. Your father who sired you? That's the phrase he used, which is, you know, that's, that's come to my study boy. It's a tautology, really, in it? Because your father obviously sired you. But anyway, he said, owed his freedom, as do I,
+
+[00:19:41] to the British army, etc. You did very well with blackouted at two, but this is the, I don't approve and I wrote back, and I said, this is just not the case. I think, you know, it's very respectful, but obviously the humour that Tom is themselves, had, you know. Anyway, he watched a bit more of it and said, he said, what an old bastard.
+
+[00:20:01] He said, he said, I've watched it since and I've decided perhaps I was too hasty with my criticism, but you shouldn't be so sensitive to it. I thought, bloody hell. He's having it both ways, isn't he? Anyway, back to Lances. He must be the only person in history who thinks that the fourth blackadder was the worst one. Oh no, he, as I say, he didn't. He leapt a bit quick. He said jokes about idiotic officers and things, you know, it wasn't that, it's not that cut and dry, etc. Although actually, you know, the bloody-mindedness that, you know, I mean, Hague's inability to think outside the box, Churchill again, you know, in trying to develop the tank,
+
+[00:20:39] thinking outside the box, Gallipoli, for all that it was a disaster, the idea to break the deadlock in the Western Front. Look, I'm auditioning for the rest is history. I want everybody to know that this podcast is just a leap for me to an even bigger podcast. And that's really the only reason I'm here. So please. Back to Lances. Now.
+
+[00:21:00] Now. I'm afraid we've run out of time. The Cavalry Lance. Okay. I'll tell you where I got this, first of all. I went recently to the Royal Armouries in Leeds, which is a ginormous museum of arms and armour and armaments. It's absolutely unbelievable all the way from,
+
+[00:21:16] I think they're having a sort of Roman exhibition at the moment all the way to today. I would like to live there. It's so good. Oh my God. I'm going. It's incredible. And basically, I met some of the curators there.
+
+[00:21:25] I just want to give a shout out to Henry Yallop. He is the keeper of edged weapons. What a title. It's so cool. Oh, I wish we'd had that when we were doing Blackadder. Every weapon has an edge. Well, that's true. Do they?
+
+[00:21:38] Yeah. Does a cannon have it? They've got some blunt. I'm talking as a mathematician, sorry. Lances. Lances. Can you have a round edge? I mean, has a club got an edge?
+
+[00:21:47] Has a circle got an edge? Back to Lances. Thank you. Basically, the point is. So he told me this amazing thing that the British army kept them in service until 1927. And it was common among European armies, as someone just said. Which is why it's not actually very amazing. But anyway, carry on.
+
+[00:22:02] All right. Yeah. I don't remember having a go at your fact, then. But basically, most European armies had it in service because this is the thing I love about it is, I think it might be the ancient world weapon that lasted the longest into modern militaries. As in bows and arrows were not used in any mass way. What are the other ones? Swords were not used.
+
+[00:22:23] in a mass way this late. Lance's stayed in service. And it's basically because one of the most effective things you can do is have a very long stick and poke it into someone else. Like, it was from the, I mean, the Romans had a version of the Lance called the Contos. Oh, the Iranian cavalry, sorry. 20th century at last two. That was the first century to the 20th.
+
+[00:22:40] I read another couple of theories as to why they lasted. Number one, that people in the army sort of fantasized of these cavalry charges, you know. And then another thing is that they like pig sticking. So it's like a sport where there's like a boring. Spearing pigs. That was really popular in the army, so people pet them for that reason. But it was basically just a really successful thing as well. And it was, we should say, Lance is a, just for anyone who's not familiar with it, a lance is a spear that you don't throw. You know, it's held mostly by heavy cavalry if you're trying to break up an enemy formation or
+
+[00:23:13] charge or sort of, it's a really disruptive weapon, you know. I imagine it in like a jousting competition. You hold it under your armpit. It's exactly like that. Yeah, yeah. I mean, yeah, it was a sort of. successful weapon, but with the emergence of the machine gun, it became instantly a not successful weapon. And it took them very much too long a time to notice. I mean, the fact that the military hierarchies worldwide were unable to sort of think beyond the horse because it had been so, you know, 2000, 3,000 years. I mean, I think it's more the horse that they couldn't bear to get rid of, because the idea of a cavalry charge remains such an exciting thing.
+
+[00:23:53] thing if you're of a military turn of mind. And militaries were still hugely reliant on horses for transport in general, you know, millions of horses in both world wars. Absolutely. But the Lance had this really weird thing where it went out of fashion in about the 17th and 18th century when pistols came in and then it came back. Yeah, what was the... I saw that, that it went gone around that time.
+
+[00:24:12] What brought it back? Basically, Poland and Hungary had amazingly effective cavalry. Right. And guns were not very good at the time. You know, they weren't... You know, they were slow to reload and they were not very accurate over a very long distances, and it went so well for the Polish and Hungarian Cavalries that Napoleon adopted it, and then the British army. So the whole of the 19th century was this huge renaissance for the
+
+[00:24:32] lance. I think it's more to do with colonialism. I think battles between Western armies, the lance may have, they may have used it, but I don't, I mean, if you've only got to read the charge of the light brigade, I mean, Lance is against cannon, even before the invention of the Gatling gun, what's at the end of the 19th century. For me, the cavalry charges, you know, they were useful against an army that didn't have guns. It's against infantry. Waterloo. Waterloo, it was a hugely used. As in Napoleon's use. Again, yeah, no, you're right. I mean, as long as you couldn't reload very quickly.
+
+[00:25:03] Although, as we famously know, the British Square, with three ranks, each reloading and firing in order. Anyway, back to the line. Hey, Andy, I'm wondering, like drones, like knocking a drone out with a big stick, maybe they're going to come back. Oh, yeah. Don't tease me. It's sort of around the Cromwellian times. Did they have very, very long lances? I got this idea there was a time when they got longer. And there must have been a point when they became impractically long.
+
+[00:25:30] Yeah. You know. Pikes, which are the basically spears you stick in the ground to prevent enemy cavalry, those are about five meters long. I mean, they're really, really long. They couldn't wield to that. No, no, no, that's to stick in the ground and prevent a cavalry project. They almost had an exciting comeback of their own back in World War II. Because Churchill, yeah, Churchill wrote a thing saying,
+
+[00:25:49] every man must have a weapon of some sort, be it only a mace or a pike. They took him at his word. They produced 250,000 of them to give out to all the soldiers. Yeah, and someone said, we can't give them pikes. What are you doing? They've got machine guns out there. Well, I want to know the providence of this fact. I've read an awful lot of books on World War II.
+
+[00:26:08] I've never come across that one. Well, it was discussed by Godfrey Nicholson, the MP, known as Cross. We all know how much sense and how much truth here. Godfrey Nicholson, though, he was a man of. on, I wasn't here. It was known as Croft's Pike because he was someone... You're not thinking of Lanz Corporal Pipe? I get all my facts from British sitcoms, yes.
+
+[00:26:30] It sounds to me like Nicholson was a very stupid boy. Can I tell you about Mrs. Hertha Ayrton? Go on, man. I love her. She was a citizen scientist and she was aware that there was a problem with gas. You know, first World War First, big use of poison gas on the Western Front. So she invented the anti-gas fan. And it's just a large fan.
+
+[00:26:54] It's a handheld fan. It's one of those where you can't snap it out and flirt with it. It's just like an open fan. It's like a paddle. Oh, so it wasn't an electric fan. It was a paddust. This was the First World War. This was just like, it was just a handheld.
+
+[00:27:07] And they made 100,000 of these and distributed them along the Western Front. Isn't that a weird idea though? Like soldiers with their fans? Do we call it an invention? I mean, surely she just, she came up with a good use. for something which already existed. I mean, she said, why don't we fan gas away? Nobody said, my goodness, what shall
+
+[00:27:24] we use to fan the gas away? Ben, I like to acknowledge female inventors, actually. And so, well, I'm with you on that. You know, as we all know, Mrs. Orwell wrote 1984, apparently, according to a new biography. So, yes, let's... She wrote another thing called 1984, didn't she?
+
+[00:27:40] Which he might have based his slightly on it. Well, just the title. Just the title, right. It was a poem. Anyway, let's not start debunking his debunkers. It's a very good thing to find the influences of women in history, so we certainly don't want to be poo-pooing that. It's like a children's entertainer on a on a chest. Just looping back. Okay, it is time for fact number three, and that is my fact. My fact this week is that in 1962,
+
+[00:28:14] a baby was successfully conceived thanks to a new fertility drug that contained Pope-approved. Proved, nun's urine. Yeah. This is the story of Pergonol. Perginal is a drug that has been used for decades and decades to help people who have got fertility problems. And back in the 1940s, there was a guy called Piero Donini. He was a scientist who was working on extracting and purifying FSAH and LH. So these are hormones that we produce in our body to stimulate production of sperm and produce testosterone in men.
+
+[00:28:48] They're used for women to grow and function their ovaries. to produce a trigger ovulation. They're really important. He's the person who isolated them and try to work out what to do with them. So another guy comes along who is studying the exact same thing and finds out about Donini's discovery and says, we could change the whole system of people trying to get pregnant. And this was Bruno Lunenfeld. Yeah, exactly. Bruno Lunenfeld. And so they approached this company, Serrano, where Donini worked. And they said, could we try this out? In order to try this out, we need gallons and gallons of urine. And we need to find out where to get that from. And they said, it's a great idea, but we don't want to put our
+
+[00:29:25] stuff into this. We can't do this. There was a guy on the board who happened to be the nephew of the current Pope. Okay? And he said the Pope has approved that the nuns that the Pope has access to will be the providers. Not that he has access to. Not direct action. It's not a tantric beside sort of situation. No. He has access to. Well, influence. He's influence. And he's approved the fact that if you ask them, they, they, the Pope says he's okay.
+
+[00:29:54] Because it's post-menopausal, large groups of older women, yeah, well, a memory would certainly be able to, you know. And they can't be pregnant. And they can't be pregnant.
+
+[00:30:03] And they can't be pregnant. That would spoil it. And that one, what, medieval nuns wouldn't have done. Yeah. No naughty nuns. No naughty nuns.
+
+[00:30:09] Well, that is very interesting. You say Pope approved as if that's kind of the big fact. It's like, you know, a Pope, Pope approved nuns you're in. Whereas actually,
+
+[00:30:19] I think, Nun's urine is probably the more interesting part of that sentence, but which, because it really is, what a sort of interesting way they arrived at finding the stuff they needed. But, I mean, did he have to approve it like wee by we? Or was it just a general, is it a Popul bull that he said you can, anyone can use Nun's Wee? It's fine by me. I don't think he was project manager, no.
+
+[00:30:43] I think he allowed them to just get on with it. Bless each trickle. Okay. It took 10 nuns 10 days to produce enough urine for one treatment. If 10 nuns spent 10 days to get a gallon of urine, how long does it take five nuns? GCSE Italian math. It took nuns 10 days to produce it. I mean, they weren't obviously spending all day.
+
+[00:31:06] They basically, when they had a wee, they kept it. And, you know, they needed that much of it. Yeah. I think it's less dramatic when you unpack that sense. He's coming for yours, too. He's coming for yours. I saw it covered. So don't worry.
+
+[00:31:18] It's 100 none days of urine. It's 100 non-wees. It's not a day. It's got nothing to do with the day. You don't really have one wee a day. Well, you're right. No, you're right. You're probably five.
+
+[00:31:26] Actually, you're absolutely right. Well, well done. I probably have these days. I'm 66. I have one wee a minute. So you're right. I have to knot it just to get through lunch. You know.
+
+[00:31:38] But one part of this that you're missing out, Dan, is that the Vatican owned 25% of Serrano, this company. So that was the reason they were so interesting. in going for this. The Pope had a dog in the game. It's a stunning. So the collection is insane. I mean, just because that was one treatment was 10 nuns, 10 days worth of urine for 10 nuns. So, but that's one treatment. And then the drug took off and it became successful. And they started off with 100 nuns all donating their urine. And that gave them 30,000 liters a year. And so that was enough for 450 treatments, right? And then that took off. But they had to fit
+
+[00:32:17] special lose in the convents, obviously. Well, keep the way. You push it away. It's no use at all. And so, so the first baby girl was born in 1962, thanks to this treatment. Yeah. There was specifically this one. And it took off, and by the 1980s, they needed 30,000 litres of urine a day. So they had to expand beyond nuns.
+
+[00:32:35] Yeah, they had to synthesize it, basically. Well, no, that took them a while to do, to synthesize it. So they looked for other groups of older, non-pregnant men and girls of women. Where did they find them? They did. Prisons? They didn't do prisons, I don't think. There were urine collectors working for this company
+
+[00:32:51] who did door-to-door, door-knocking campaigns saying, Wow. Hello, can we bring out your pests, basically? And they had hundreds of that, they had 100,000 donors by the mid-90s. You would certainly, because, of course, religion is kind of shrinking. I mean, I think, I'll bet there's a lot less nuns around now than there were 50 years ago.
+
+[00:33:09] Yeah, that's true. Peaked with the sound of music, and I think it's down ever since. So, gosh, but there didn't. And eventually learn how to, like, man-made nun piss. Or person, human. They worked out. Synthetic. Yeah, synthetic.
+
+[00:33:23] But it was 1995 when they came up with that. That's the name. It was called gonel F. Gonal F. Gonal. And actually, per gonel is similar word. And they both come from the word for gonad. Do you know, Gona.
+
+[00:33:35] I did two, yes. Well, I did two, my wife and I, we had our infertility journey. And we did three cycles before we wonderfully got our beautiful twins. and no one ever mentioned Nunn's Piss, synthetic or real. There was literally, I don't know whether they were trying to slip it past us. Maybe they thought, I'm sort of relatively publicly known as an atheist. Maybe they would have thought I wouldn't have wanted Nuns Piss involved. Would you? Would you have minded?
+
+[00:34:03] No, I wouldn't have minded, actually. Of course I wouldn't. We were what's called non-specifically infertile, which is medical jargon for we do not have a clue. and I think a lot of people are and you know everything seemed fine they couldn't find a reason and yet they say in terms of facts they do say
+
+[00:34:24] if you're a couple trying to conceive in the first year nine out of ten will conceive and by the second year nine out of ten of the ten percent who didn't will have conceived so by the time you get you the third year you really are either infertile
+
+[00:34:38] or fantastically unlucky and we never found out and it turned out we were fertile because our third and last child came as a very big surprise, not born off the wrist, but in the conventional sense. Sired. Sired. You're absolutely great.
+
+[00:34:56] There's a really cool fact, which is, so you wrote this into a book, Inconceivable, which I absolutely love, and then made that into a movie called Maybe Baby. In Maybe Baby, Hugh Lorry, who's the lead role, is a TV maker, and he's in charge of this children's program, and it's at the BBC. And there's a lead character who's a children's entertainer who wears a costume who's called Mr. Furblob in it. Guess who was inside that? Dave Thompson. Come on, Dave Thompson.
+
+[00:35:24] No. Does he? Thompson is in my movie, maybe. He's a very funny physical comedian and a very good comic. Yeah, I got a lot of good material out of that because that's what I do. I like to create comedy from what I know and what I feel and what I think. and obviously that was a massive part of our lives. And we, over the years, we had many lovely letters saying, you know,
+
+[00:35:46] it was all very grim in our house, and your book or your movie was helpful because it is funny. People are funny. And the nun's wee story is enough to prove that a thousandfold. Yeah, I always thought, because, you know, in the movie, the two people are constantly, I'm ovulating, come home now. It was always like a rush. And I always thought, oh, that's just a good comic conceit.
+
+[00:36:05] Cut to us on tour in Europe, where I'm finding myself on my day off flying. back to the UK. To Shaggy, yeah, because my wife is a part of it. You know, there are certain times when you're more fertile in you. And honestly, it's not easy.
+
+[00:36:21] You need a bit of tantric, get you going because, you know, like to order. I mean, I'm sure there are some, but you know, you suddenly, oh no, you know. Anyway, we did it long before any Viagra, so, you know, anyway, look, we're going into TFI territory,
+
+[00:36:35] can I talk about the Vatican for a second? Yes, yes, of course. So the Vatican owned 25% of this company. I was looking into the Vatican's finances because I'm a former accountant. In World War II, they had a bank called the Nazi helping bank. Effectively, yes. It was the Institute for Religious Works, and they brought it in as like a national bank, which wouldn't have to be overseen by any authority. And they were known as the world's best offshore bank. And indeed, they are alleged to,
+
+[00:37:10] have hidden billions of pounds from Nazi sources. They were investigated by the Bank of Italy in 2010 and found that they were non-compliant in seven of the 16 core standards of the Italian banking industry. But is that related to the Second World War? That's how it began. It began, actually, it began pre-Second War War. But the investigation, it wasn't like a very cold case.
+
+[00:37:31] No, the investigation is current. Oh, wow. I say current. It's 2010, so it's 15 years ago. Are they going to have to give some of the weeback? We've all not made a taking the piss truck there And I think that's very good of us And the other thing they have in Rome Is they have a tax break for any chapel
+
+[00:37:50] So if they own a chapel in Rome They don't have to pay tax on it And a chapel counts as any building That has a three metre square place Where you can pray And so they own all these buildings in Rome And they just put a tiny little corner And put a little statue of the Virgin Mary or something
+
+[00:38:07] Call it a chapel They don't have to pay tax on it. This is all according to a book called God's Bankers by Gerald Posner. That is very... Well, you know, it doesn't surprise us that, you know, money and religion can produce corruption. There's no doubt about that. But the Pope in question on this one was... Oh, Pius.
+
+[00:38:25] Pius the 12th. So he's a friend of the podcast. Yeah, yeah. We mentioned him... A couple of weeks ago. A couple of weeks ago. So he had this doctor, this really strange doctor called Paul Niehance, who was a Swiss surgeon. And he'd offered this reduct.
+
+[00:38:38] rejuvenation treatment. So we're kind of in the realm of that already with the, you know, the fertility and the essence and all of this stuff. But Nihans injected the buttocks of his famous patients like supposedly King George the 6th with the cells of fetal lambs and calves. And it was a kind of juzhup Bukyu-u-u-u-up treatment. And this is the Pope whose embalming went disastrously wrong. And he ended up being, you know, his other, he was very unlucky with his doctors. The other doctor embalmed him supposedly in the traditional Aramaic style, and it went awfully, awfully wrong. And the other reason he's a friend of the podcast is he was the one who ruled in 1954 that anyone mentioning Jesus's foreskin will be automatically excommunicated.
+
+[00:39:21] Oh, wow. Which is why I've been technically excommunicated. Jesus was Jewish. So is this some reason? I mean, has he thought to have had one or not? Well, he was thought to have had it removed as a child. As Jews often do. Absolutely.
+
+[00:39:35] And there are relics around the world of this. supposed Holy Foskin. Just get back at this embalming. I didn't know about Pope embalming. Do they keep all the popes? Yeah, yeah. Because there's been thousand. I mean, well, I don't know about thousand, but an awful lot of popes.
+
+[00:39:50] Where are they then? Is they backed up, they're on a hard drive? Yeah, yeah. There's a big place for a dead popes. If you go to the Vatican, there's like the catacombs underneath and they have loads of, they're not all on display, I have to say, so I don't know if they're all still there, but definitely you can walk past loads of poems. How many popes do you think they've been?
+
+[00:40:08] Oh, what's a good question. Can't be triple figures. What? Yeah. Well, you mean more than a hundred? Yeah. I think so. I mean, there've been popes for two thousand years.
+
+[00:40:17] 30 AD. Yeah, and I think they've, yeah, let's have a, let's somebody have a go. Okay, I'll start. St. Peter, right, who's the rest? I mean, I think it's pious. There's about a hundred piouses. I mean, there's certainly a lot of X's and ones are. He was pious at 12.
+
+[00:40:32] Yeah. I'm saying double figures. I'm saying, I'm saying it. I've got the answer. I've got one, two, three. This is according to the pontifical yearbook. So that's a cool yearbook. 365.
+
+[00:40:45] There's 266. Right. According to this. Do you think they've got them all? I mean, obviously, I haven't got the really early ones. I mean, how many popes kimbalmed popes are there? How many popes are still in physical? We don't, we don't fully know, apparently.
+
+[00:41:01] There's lots of bits of popes that we have. We've got lots of hearts. Fortskins and heads out about the place. I don't mention them. Don't bring out the horse. Okay, it's time for a final fact of the show, and that is James. Okay, Ben, you've had a go out the other facts so far, but I think you'll be fine with this one.
+
+[00:41:22] My fact this week is that Shakespeare's parents and his children were probably illiterate. Well, that's not a fact, is it? He strikes again three out of three. Right out the gates. The word probably does a lot of work there, doesn't that? Well, there's a lot of damage. I mean, the fact that someone was probably something is about as far from being a fact as you can get. Okay, let me give you...
+
+[00:41:47] Trump level fact. So let me give you a little bit of evidence, but it is scant because what we know about them is very little. But Shakespeare's father and mother couldn't sign their names. Like when they signed, they signed with images. So his father-in- Well, that means that's how they signed their names. Absolutely. That may have been how they chose to sign their names. That's absolutely.
+
+[00:42:07] And actually now, if you want to sign something now with an image rather than your name, you are allowed to do that by law. So you are allowed to. And actually in those days, it was relatively common. So crafts people, trades people, guild members would often like draw things. So John, his father drew a picture of a pair of Glover's compasses instead of his name. And so some people point to this as evidence that he couldn't write. And William Shakespeare had three kids, I think, but one of them, Hamna, his son, died very young. But then he had two daughters. And in those days, girls would typically not be taught how to read and write, or not how to write anyway.
+
+[00:42:45] And we have one sort of very quite scruffy signature of one of his daughters. So it seems like she could write her name. But the implication is maybe not much else. Well. But again, like the evidence is really, really scary. It's really. So there's a, actually, we know more about Shakespeare than we do about any of the other great English poets of the English Reformation, considerably. There are a lot of known facts, which is why it's particularly galling that idiot conspiracy theorists
+
+[00:43:12] to say, well, maybe it wasn't him because they think a... Oh, Dad, that's looking at his notes now. But let's just look at the issue, rather than to the Shakespeare conspiracies. Firstly, Shakespeare's own signatures are generally varied. He spelled his name differently. The whole idea of what a signature was and what it meant, and indeed what correct spelling was, was viewed very differently in those days. Think about the evidence.
+
+[00:43:39] Mary was a daughter of the aristocracy. This is his mother. Absolutely. Now, her husband, there's no doubt about it. John Shakespeare came up. He was lower class to her. But he eventually was in court for cooking books, for various bits of dodgy accounting and things.
+
+[00:43:56] So clearly, he certainly was mathematically literate. There's no doubt about that. He became mayor of Stratford-on-Avon. It seems unlikely that he wasn't able to read Don't forget reading and writing were separate in those days. I think that's another thing, isn't it? It's like in those days, a lot of people could read but couldn't write. Susanna Shakespeare, the elder daughter, was married to a very learned apothecary.
+
+[00:44:19] She unquestionably worked within his business. She was a very considerable herbalist and a gardener. It just seems unlikely that human curiosity, particularly if your father is the greatest dramatist of the age, they didn't realize we would become the greatest dramatist in English letters, It seems unlikely to me that they wouldn't have taught themselves to read, been taught to read. I know women were treated entirely differently. I personally think it more likely that they could read and probably write to a certain extent. It seems unlikely that Little Hamlet, 11 years old running home from school, his twin sister didn't take some interest in what he'd learnt.
+
+[00:44:56] I think they could read. But neither is a fact. Is this kid called Hamlet? Hamnut. Hamnut. Yeah, I know. But this is all, I mean, irrelevant anyway, because it was all Franzis Bacon. so it doesn't. Exactly. Exactly. Or some other posh geezer.
+
+[00:45:09] To me, Shakespeare denied. Do you want to know what is a fact? Go on? Because of course it's a popular conspiracy, particularly amongst lovies and posh boys, that Shakespeare didn't write Shakespeare. My father had a good joke on that. He'd said, of course Shakespeare didn't write his plays. It was another fellow with the same name. Because obviously, in a way, does it really matter? But of course, it is evidence of a corrosive snobbery in British culture. Because of course, Shakespeare was famously the only poet of the English renaissance who didn't go to either Oxford or Cambridge.
+
+[00:45:38] I mean, the grip those institutions had on British arts, as indeed politics and sciences, was as strong then as it is now. So I think it's a very unfortunate thing to say, well, he was educated, he was chucked out of school when he was 13. Would he really? Well, you know, McCartney was a working class ladders with George Harrison, you know, Lenin slightly lesser. The idea that if you come from rough and ready roots
+
+[00:46:02] mean you can't have the finest brain in the country is, I think. I've got to say, Ben, coming from Bolton myself, I do agree. But anyway, just to get to my fact, because I'm waffling on and I can see you all want to get your facts, no one questioned Shakespeare's provenance, his reality, the reality of Shakespeare. Starting with Ben Johnson, who wrote his obituary as his friend, Stan Hemings, who put together the first folio,
+
+[00:46:27] Nobody mentioned, there is no recorded mention of doubt about Shakespeare until the middle of the 19th century. So 300 years passed before anybody decided, wouldn't it be interesting if I could start this? To me, they're just like moon landing denialists, which is one step from Q and on.
+
+[00:46:43] I think conspiracy theories are anti-science, anti-facts, and Shakespeare definitely wrote Shakespeare. I find it so interesting how this arose more than 200 years later. So Delia Bacon was one of the... I had a name, the clue.
+
+[00:46:58] I think no relation. There's an American woman. She was the first person to raise the possibility. She was clearly very intelligent in a lot of ways, but I think she was also quite unstable in other ways. And she travelled to England to do research on, you know, the fact
+
+[00:47:13] that Francis Bacon, who was a scientist and, you know, very learned guy and, you know, very gifted in lots of ways. Probably quite busy, though. Probably too busy to write 37 plays as well. Anyway. And so lacking in any ego is always. all, you know,
+
+[00:47:28] plus boys from Cambridge are that he didn't want any credit for them. How strange it was, or indeed any of the cash. And he allowed this bloke from Stratford to buy a lot of houses on the proceeds. But I think she travelled to England and she didn't really,
+
+[00:47:40] she mostly stayed in her room when she was here, though, just sort of reading... Her padded room. She absorbed the atmospheres of the country. And then she wrote this 700-page book arguing the case. Anyway, I think it was Bill Bryson who wrote a lovely short biography,
+
+[00:47:56] Bill Bryson, finding various anti-Straffordians who've included Jay Thomas Looney, Sherwood E. Sillyman and George Batty. And foe of the podcast, Mark Twain. Oh, was it? Really? Mark Twain. He said, so far as anybody actually knows and can prove,
+
+[00:48:12] Shakespeare never wrote a play in his life. All the rest of his history is built up, course upon course of guesses, inferences, theories, conjectures. Classic Twain. Classic Twain, I'm afraid. I find it genuinely mad that otherwise intelligent people continue to love and of course it's because people
+
+[00:48:29] love a conspiracy theory but sadly conspiracy theories are the enemy of the enlightenment you know we're already moving into a post-truth age where we're
+
+[00:48:39] coming back to an age of faith and superstition and anti-empirical evidence and I think it's really dangerous and it might seem harmless for a bunch of old lobbings to assemble every now and then and gay say well I think
+
+[00:48:52] it was the Duke of Buckingham you know but I actually think it's the thin end of an anti-science, anti-evidence wedge, which leads to, you know, vaccination, conspiracy theories, and a whole world where the president can say we like to choose alternative facts. Well, you might like this then, Ben. Have you read the Shakespeare play that he wrote in the year 1853? He collaborated with another famous writer, which is Victor Hugo. Once he was exiled from France to Jersey, he lived in Jersey for a while, someone came around to the house and
+
+[00:49:25] showed him table tapping about the spirit world. He became obsessed with it. He spent a couple of years talking to, amongst others, Lord Byron, Jesus Christ, Joan of Art, Mozart, Plato. Victor Hugo, oh, my God. Two years, and Mozart was using the table to make original compositions that they wrote down. And one of the things that happened in those two years is that Victor Hugo and his son sat and channeled through Shakespeare a brand new Shakespeare play.
+
+[00:49:50] They got the first act of a new comedy. It's in French because Shakespeare said, Shakespeare. be said to them that is the superior language. Because it's a cute that didn't speak English that well. Yeah, exactly. And so that's out there. I don't think it's ever been performed. There's a one-up thing. Isn't it sad? Because obviously he was a great, you know, he wrote those miserable.
+
+[00:50:07] I mean, a great, great, isn't it sad when you discover the feet of clay that everyone has concealed? You know, like apparently Newton dabbled in alchemy and went kind of mad. He wrote more alchemy than physics. Yeah. He was very, he was very into, but from the off. Yeah. Just quickly, you mentioned antivax theories as a result of this thin end of the wedge.
+
+[00:50:25] riddle me this Ben the second man who ever got the Pfizer jab in the UK against COVID was called Bill Shakespeare No that's a loop You've brought us all the way back You've stitched together so much
+
+[00:50:39] That's the famous image of what's he called Matt Hancock sort of pretending to cry Was when someone told him that I think Oh is that so Well there were a lot of unbelievably good jokes as a result Two gentlemen of Corona Taming of the Flu
+
+[00:50:53] Is this a jabber I see before? me. I mean, there was some very, there was some very good things. Yeah, but one of the most amazing things is that that Bill Shakespeare eventually died, not of COVID, of something else, not long after. And in Argentina, when the news announced his death, they said we have lost one of the most important writers in the English language. Yeah. For me, he is the master, is what she said, on TV. And she had to come back on and apologize and say, oh, no, no, that's not what I know. Well, linking vaccination back, I bet that newsreader felt a bit of a prick. One really good facts about Shakespeare I like, because we talked about his daughters before, is he had four grandchildren.
+
+[00:51:33] Unfortunately, none of them had children afterwards, so that's where the line died out. But one of his grandchildren was called Shakespeare, as in the first name was Shakespeare. Oh, really? Isn't that cool? That was cool. It wasn't a surname. No, the surname was Quinney or Quiney. That's great.
+
+[00:51:47] They wanted to pray tribute to the famous grandfather who sired them and wrote that. the canon of Shakespeare. But his lineage died outright with the granddaughter, except there were few peoples who claim that it went on, including an American footballer who's called William Shakespeare. Oh yeah. Yeah, died in 1974, also known as the Merchant of Menace. Brilliant. Super. Yeah, he was part of the Notre Dame fighting Irish football team. And they claimed lineage, direct lineage from Shakespeare, despite having no evidence. It was pointed out that he failed at English at college. Oh, it must be. Yeah, yeah. But there is a, there is a descent from I think Shakespeare's father or grandfather.
+
+[00:52:24] I think these days there is a baronet of I think it's called Thomas maybe Shakespeare so the line The Shakespeare family do have direct Is that a claim that he's connected? Well I think it's not a claim I think he's descended from the dad
+
+[00:52:37] Or the grandfather I mean it is a surname I mean there are other Shakespeare Well we know from the bloke who got the second Fives of that scene There are other Shakespeare's And they're obviously always cursed with that name
+
+[00:52:49] You know and like Poor we're occasionally get letters from black Black Adders who hate Richard and me forever. And the other thing about Shakespeare the surname is we don't know what it means, but it might have been someone who uses a lance. Oh, yes. Honestly, the degrees of separation is shrinking.
+
+[00:53:10] We're literally, we're huddling around these subjects. Wait a second. Stratford is Warwickshire, right? Yeah. Do you know what else was filmed in Warwickshire? Telytobbies? The telitubbies. And isn't a needle?
+
+[00:53:23] A very small lance? Yes. I mean, really. Dan, wrap it up. We can't count. We do. We do actually do wrap up. Okay, that's it.
+
+[00:53:35] That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can all be found on our online accounts. I'm on Instagram on at Shreiberland, James. My Instagram is no-s-s-thing as James Harkin. Andy?
+
+[00:53:49] I'm at Andrew Hunter M. Ben. I am not a. on any social media whatsoever, so you can't get me and say, I ruined no such thing as fish. But if you want to send your furious letters to us, you can get us at podcast at QI.com. We'll forward them onto Ben,
+
+[00:54:04] or Andy will use them as part of our mailbag episode, which is called Drop Us a Line. If you want to get access to drop us a line, that's part of Club Fish. That's our secret members club. So go to our website, no such thing as a fish.com. Check it out there. What's the book called?
+
+[00:54:17] The book is called What Have I Done? And it's my autobiography. And it says he does exactly what it says on the tin is about what I've done. It's brilliant. I've read it. I've read the whole thing. And it's out now, right? The book is, I don't know when there's podcast going out.
+
+[00:54:31] Yeah, we'll be. Yeah, in that case it is. Otherwise, just come back next week. We'll be back with another episode. We'll see you then. Goodbye.

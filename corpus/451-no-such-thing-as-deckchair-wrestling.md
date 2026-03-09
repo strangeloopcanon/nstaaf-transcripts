@@ -1,0 +1,343 @@
+# No Such Thing As A Fish - 451: No Such Thing As Deckchair Wrestling
+
+- Episode date: November 4, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/451-no-such-thing-as-deckchair-wrestling
+- Slug: 451-no-such-thing-as-deckchair-wrestling
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing As A Fish. Daniel Shriver is away this week. I thought it was because his wife was having a baby, but he's just sent an email saying, tell them it's something to do with by brand new book The Theory of Everything Else, available in all good bookshops. And I'm like, well, look, whatever reason he's away, we have a very exciting guest that is in his stead, and that is the wonderful comedian Angela Barnes. You will have seen her on your televisions, most notably on the TV show Mock the Week, but she does all sorts of other stuff. I appeared on her radio show a couple of years ago and immediately knew that she would be perfect for fish.
+
+[00:00:43] She is the most inquisitive, interested person. You're going to absolutely love her. And once you've heard the show, you are going to want to go and see her live in her upcoming tour called Hot Mess. And tickets for that are currently available on her website, which is angelabarnescomedy.co.uk. If you can't wait to see her live, then why not go and check out her podcast. It is called We Are History Podcast, which she does with John O'Farrell. And it is all about history. It's really funny. It's really great. You've got to go and listen. It's available wherever you get your podcasts. Anyway, Dan will be back next week. But in the meantime, on with the podcast.
+
+[00:01:41] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Anna Tyshinski, and I am joined today by Andrew Hunter-Murray, James Parkin, and our very special guest, Dan Schreiber Replacement, a hopefully permanent Angela Barnes. Hello. Okay, once again, we've gathered around the microphone with our four favorite facts for the last seven days. And in no particular order, here we go. Starting with you, Angela. Okay, so I've always wanted to say this. My fact this week is that in Communist East Germany in the 1950s, the state came up with a sanctioned dance for their teenagers to do. They were a bit worried about the influence of rock and
+
+[00:02:32] roll from the West. Elvis Presley was doing his military service in West Germany. So they were picking up all the Elvis on their radios and their TV while he was doing his service. Really loudly over the wall. And so they were all the youngsters, they were worried about their hip fusting movements. And the state felt that dancing on your own was subversive, that you should dance in a couple. Yeah. But when you did dance in a couple, you shouldn't be gyrating like Elvis. Fair enough. And what I know about teenagers is not very much. Right. Probably that they wouldn't necessarily do what the government told them. Well, no, but it was the dance in question, the Lipsy dance. It would have to be unbelievably good for
+
+[00:03:14] teenagers to want to do it. It has to be Agadou. Was it? And was it Agadou? It definitely wasn't Agadou. What was it? Was it good? I haven't seen this dance. So it was two choreographers came up with the dance, Krista and Helmut Seifert. And they came up the steps. And it was an East German composer called René Dubianski, who came up with the music. And it was basically it was a fast waltz. So he merged two waltz beats into a six four beat, because there's nothing that teenagers like more than waltz. And the idea was that they would dance together, but their hips wouldn't wiggle. So there's footage of it on YouTube. And it just at first, it looks like a normal sort of Latini kind of dance. And then you realise that their hips don't move. Weird. And it just looks
+
+[00:04:03] old. It feels like a reverse Irish dance, kind of. Is that not right? Is Irish dancing just hips moving but the rest of us? It's just like the bottom half moving. Yeah, I suppose it is. Yeah, yeah, yeah. But no, it's not like that. Even Irish dance doesn't move your hips around much. No. I've taken Irish dancing classes. Have you? In my time. Yeah, I can really picture that. Can you? It's a Michael flatly about you. Yeah, as a boy, I learned some some river dance. Actually, what we never noticed because we always record around the table is that you're always river dancing. Yep. I wonder why I kept getting bruised shins. The effort in the edit to remove the constant clackity clack of me dancing away. I actually had a doctor say to me once, so I have
+
+[00:04:46] something called periodic limb movement disorder, which means in my sleep, my legs flail. And I did a sleep study once at Guy's Hospital. And in the official report, he said two things. One was that my snoring was, and I quote, heroic, which I'm very proud of. And the other was that like watching me sleep was like watching horizontal river dance. That's in my official. They really sound like compliments, both of those things. That's really thoughtful. I was such a lucky man. Do you have to sort of have a mini sleeping bag for your legs alone? Well, I don't think it contains. So whenever I have slept in a sleeping bag, I've woken up with it on the floor. You can't be contained. So I just can't be contained. The energy, if I could wire it up to the national grid in this
+
+[00:05:24] energy crisis, it'd be all right. What were we talking about? Dancing. Dancing. Sorry. Yes. I didn't realise how what a threat Elvis was at the time. God, people went nuts over Elvis. They thought he was going to impregnate every woman on earth. There were riots in East Germany in 1959, in about 14 East German cities and towns. And there then had to be crackdowns. So Leipzig had a crackdown. Leipzig is where the Lipsy dance, the state one is from. The Lipsy's from the Latin name for Cypsey. And they sentenced 15 demonstrators to prison sentences of between six months and four and a half years for going to pro Elvis protests. Really? Yeah. But it was everywhere. We shouldn't tar East Germany with this solitary brush. Rock and roll was
+
+[00:06:10] sort of vilified in a way that I don't think any legitimate music ever has been. There's plenty of Americans that were frightened about the influence of Elvis as well. Do you know there was a state sponsored rock and roll festival in the US? In the US? Yeah, in America, which like hated rock and roll as well. But it was called Vortex One. It sounds like the saddest thing ever, but Paranoia was quite popular. Do you remember the festival of Brexit? Oh no. This was like if that had been a success. Yeah. This is that. It was in Oregon. And I'm surprised that the hippies agreed to go to it because it was basically because Nixon was going to visit Portland, Oregon in 1970, I believe. And this was obviously at a time of
+
+[00:06:51] extreme anti-war protests and extreme government crackdowns on those protests in America. And there was a fear that the hippies would start protesting or the peace protest would start protesting. So to get rid of them, basically, the state government said, guys, do you want to best we give you a festival? And they all went for it because they really wanted peace. But more than that, they wanted a rock festival where they had license to take drug, like the state was like, look, we'll turn a blind eye to all the drug taking and the nudity. Sorry, is it just to get them out of town when Nixon's in town? Sounds like a sitcom. Oh no, we've accidentally got them crossing paths. And he didn't even turn up in the end. So they just got a festival for nothing.
+
+[00:07:33] So I read a book we see about the Stasi Poetry Circle. Your work and leisure was really tied up in East Germany. So, you know, you would go on holiday with the people you were with. Sounds awful. And, you know, all your leisure activities were bound up with the company that you work for and stuff. And it was the same with the Stasi. And so they would have these sort of art circles. And one of them, they had a poetry circle, but the guy who ran it, Uwe Berger, I think his name was, he wasn't a member of the party, but he was one of the hundreds of thousands of misarbiters they called. So these unofficial collaborators, the Stasi. So he would get all the poetry, these young Stasi officers would be writing their poetry
+
+[00:08:17] in their poetry circle. And then he'd be looking for dissidents among them and feeding it back. And was he looking through the medium of the poetry? Yeah. So he was looking for maybe dissident users of meter or half rhymes that indicated. Or just anybody that basically wasn't socialist realism or showed any sort of freedom of thought. How interesting. Yeah. Because they did also, they infiltrated punk groups. They were very threatened by punk music when it came in in East Germany. And so they started the infiltration. I feel threatened by that still. Sure. I mean, they infiltrated everybody. That's the thing about the Stasi. And they were the biggest administrators of any. So out of the whole of German history, from the Middle Ages to World War
+
+[00:08:55] II, there were more written records kept in the 40 years of the German Democratic Republic than the rest of German history put together. Really? Yeah. But it's all bad poetry. It's mostly bad poetry. So when the war came down, and then in January 1990, the people stormed the Stasi headquarters in Leipzig, a place called Runden Ecke, the round corner to their offices. And they rescued these sacks of, I think there's 15,500 sacks of shredded documents. And there's these people that are called the puzzlers. Who piece them back together? Who piece them back together. And they've been doing that since 1991. They're still doing it. So there were millions of shredded bits of paper, and it will take centuries to put them all back together. I just feel like,
+
+[00:09:38] you know, you've got an old lady in, you know, in Leipzig doing her, doing her little jigsaw. And then she gets a tap on the shoulder, Mrs. Schmidt, we have a job for you. Yeah. You heard about the Schwarzer Canal. So in East Germany, they could pick up Western television, because obviously, it's not far away. But you could be arrested if your TV area was pointing west. So you had to be a bit careful. They eased off on that as time went on. But there were two East German channels. And on one of them, there was a program that was on every Monday night. And it was called the Schwarzer Canal. And what it was, it was 20 minutes of clips of West German TV programs with a communist commentary. Saying why they were so bad.
+
+[00:10:20] Say why it was so bad. I'd watch programs that had a commentary over the top explaining why they were so bad. You should get on Twitter. It's just Gogglebox, isn't it? What you've just described. It's like Gogglebox. There had been a program in West Germany called the Horta Optik, which is the red viewpoint. So which was sort of slagging off what was happening in East Germany. So that was their sort of retort to that was the Black Channel. And also it's called the Black Channel because that was like a plumbing slang for a sewer. Oh, that's clever. Yeah. So it was like a little pun as well. Is it the red derotor? Do you call it? Derotor Optik. The red viewpoint. Is that a joke on
+
+[00:11:03] rose-tinted spectacles? Like, oh, in the East, they're all seeing, you know. Maybe it is, yeah. Probably not. Do you think they came up with the titles before the concepts? I think so, yes. You know that the BBC had studios in nuclear bunkers in the Cold War. So I mean, I have to rein it in because I could go on forever about nuclear bunkers. That's my little obsession. But in the regional seats of government nuclear bunkers, of which there were 12 in the Cold War period in Britain, they were for politicians for offices of state and things like that. And each of them would have a BBC studio inside. So you can visit the one, there's one at Kelverton Hatch in Essex, which is open to the public, one at Hack Green in Cheshire, which is, and you can see the BBC
+
+[00:11:47] studio in there. And they have, in Kelverton Hatch, I think they have playing the actual BBC broadcast that would have been playing. So when you kind of go to the nuclear bunker, like all your politicians go there or whatever, all your important people, would they have had to take a BBC sound engineer with them? Because it's going to be quite echoey in those places. So you had BBC sound engineer and presenters, like heating engineers and, you know, electrical engineers and various different specialties would need to be in this bunker to maintain. So if you were selected, you'd sign the official secrets acts, you wouldn't tell anyone. That's so funny. Because obviously, I'm sure you know a lot of BBC sound engineers like I do.
+
+[00:12:27] Well, and I just, yeah, I wonder if they all got this job thinking, well, if it all goes south, at least we can. Would they, these days, if that happened, do you think there'd be any room in the bunker for podcasters? I think, well, I know, I'm not sure how much of this I'm allowed to say because I, so I saw, you're on the list. Yeah, I'm not on the list. I'm not on the list. I promise I'm not on the list, but I do know that they still do. You were until not the week finished. I do know that they still do drills and that they still take a BBC presenter. Which BBC presenter would you take to your nuclear bunker? BBC. It has to be BBC. Yeah. I'd probably go for Hugh Edwards. Would you? I just want stability and continuity and he provides it. That's
+
+[00:13:09] interesting. I was thinking, does Dion Dublin do like houses under the hammer or something? He could do a great guide to the bunker, couldn't he? That's a solid wall. That's not, yeah, that's a solid wall too. Lots of solid walls in here, very few partition walls. I've got one fact about Agadou, just because Angela mentioned it earlier. So the singer of Agadou, Platt Lace. Platt Lace, right, you're right. And the guy is Dean Michael. So he was sent to prison in 2016, not for the dance. He was pushing pineapples, wasn't he? Shaking trees. Branded coffee. It was for benefits fraud. It doesn't come up in the song anywhere. But he was in for 10 weeks. He basically, he had claimed he couldn't walk, but then
+
+[00:13:55] he was also doing gigs on stage where he was dancing very vigorously. So they thought, that's not right. I know, we got put away for 10 weeks. And anyway, he says, after he came out, he said that while he was in prison, he got through the tough times by leading a giant conga of prisoners. I think that's how they all escaped. That's so funny. At night, the entire wing was singing in chorus, Agadou, dude. I sort of missed those days when dogs had really clear instructions. Like, I'm not one of nature's dancers. So when they tell me what to do, that superman, that was Platt Lace as well, wasn't it? Yeah. I knew what to do then.
+
+[00:14:36] We loved the Macarena. Exactly. We had the rules. There was a movie in 1984, which I'm sure you all know, called Footloose. Yeah. And it's a story of a teenager who goes to a small town where dancing has been banned by the local government. So that's why I'm talking about that. One of the people who was in this movie was the actor Kevin Bacon. Okay. He was 24 at the time. But to get himself into the role, he enrolled into a local high school pretending to be a 17-year-old. Isn't that amazing? Wow. Was he rumbled? He was not rumbled. How old was he at the time, sorry? He was 24, and he was pretending to be 17. The principal apparently knew about it,
+
+[00:15:22] but no one else knew about it at all. Oh, my God. And he fell in love with Drew Barrymore at the end. Well, the amazing thing is he got really badly bullied. He went to the school and he thought like his character was that he'd come from the city and he was in like a small town school. And so he was wearing clothes that he imagined a 17-year-old would wear if they'd come from, you know, Philadelphia and gone into a school. But obviously, he looked very different than all the other kids. And so they just really, really bullied him quite badly until one of the kids kind of came and sort of took him under his wing. And apparently, that's kind of something that happens in the movie, although I haven't seen it, so I don't know.
+
+[00:16:01] I don't believe that Never Been Kiss was not just entirely based on this story. I mean, that is the whole plot. I don't know. It's never been kissed. Someone goes back into a school. Guys, Drew Barrymore. She's about 24. She's a reporter. She disguises herself as a 17-year-old to go back into a school where she gets badly bullied until someone takes her under their wing. Was it made after 1984? It certainly was. Yeah. 21 Jump Street. That's that as well, isn't it? Is it 21 Jump Street? Yeah, they do that. Cops go back to school. All I know is, is that the one where there's a meme where he goes, how do you do fellow kids? I only know the meme. The meme must come from that. Very weirdly, I've got something about
+
+[00:16:36] banned or official dances in the USA. And it relates to Hollywood as well. So 24 U.S. states have passed laws designating square dancing, the official state folk dance, right? I thought you were going to say it was banned. Far from it. There have been so many attempts to make square dancing the national folk dance. And people keep saying at the national level, look, this is not really a national thing. We don't care. So there are other ones like Hawaii has the hula, obviously. Kentucky has clogging and didn't look into very much because North Carolina has the Carolina Shag. And that's the official dance. And there is a 1989 movie starring Bridget Fonda, which is simply called Shag. And it's about four high school
+
+[00:17:27] students on a road trip. I was really disappointed when I went to the movie. I was expecting a documentary about carpets. I went as a bird lover. It culminates in a Shaggy contest, basically. Shagdancing contest. Is the dance anything like a Shag? I mean, dance. It depends how you do it. Any dance can be, can't it? Okay, it is time for fact number two. And that is Andy's. My fact is that in the seventh century, one of the most impressive things you could be buried with was a folding chair. That was hot, hot stuff. Is that because they were from the future? It meant you had a time machine. It was not because of that. But that would have been.
+
+[00:18:17] Usually it's like things that you've buried with as for use in the afterlife. Maybe, you know, might want to now sit down. Always. Well, the woman they was found with was enough, they think was in her 40s or 50s. And as a woman in her 40s, I could relate to carrying a chair. Yeah, this is the thing. They're normally found in women's graves, the kind of grave goods. And about 30 medieval grave sites have been found with chair burials, as they call them. This latest one, it's quite a recent find. It dates back to about 600 AD. And it's kind of, it might not be that they were very, very powerful, wealthy people in life. It's kind of because they're often buried with lots of humble grave goods as well. But they seem to be kind of spiritually
+
+[00:19:00] significant, you know, having a folding chair. It seems, yeah. Like a wise woman kind of thing. Exactly. A healer or a magician. So they were buried sat on the chair? No, I think the chair was just included. It was just included, like, as their favorite chair. I wouldn't have the image of being blowed on a chair. No, there's an archaeologist called Bettina Pfaff. And who, she thinks that these women, it's mostly women, belong to a kind of spiritual elite. So in life, they would sit on the chair whilst reading someone's palm or something, presumably. Maybe, yeah, or leading a ceremony or something. And they were buried with it. Yeah. Cool. And where was this in Europe?
+
+[00:19:39] Across lots of Europe, yeah. Germany, especially, I think, quite a lot in Germany. Yeah, big deal. So I did a series called You Can't Take It With You on Radio 4, which is about, when it started off being about when my dad died, we went a bit mad putting stuff in the coffee, to the point we thought we might have to take him out. Just filled it up with stuff. And so I got really into sort of reading about grave goods a bit. One of my favorite things I found was a website where you can buy a coffin with drawers in, so that you can put the goods for the person in the drawers. And my favorite line on this website says, if you do choose to bury the deceased with some personal items, it's important to remember
+
+[00:20:22] that these are items you will not get back. That is useful. They always put their car keys in there. Wow. That's amazing. I didn't even think that was like a modern thing to put grave goods in. The drawers at the bottom, sort of under the body. Yeah, I think it's a bit cruel because if they do go to an afterlife, have they got access to those drawers? Yeah, because they're all I've got my favorite things, but I can't get them. I think it started with when my dad died, he had his head was on this sort of lacy pillow. It just wasn't right. My dad ran a sex shop for a living. It didn't look right. It sounds like it could fit by way of a sex shop. His girlfriend replaced it with some inflatable breasts. Wow, that is really amazing. Imagine the archaeologist
+
+[00:21:07] in such a place. I love imagining that. And they'll jump to such conclusions about our entire society. Sex wizard, we think. Actually, he was cremated. And that's the other thing. So I started asking people A, about what they would want buried with them and B, what they would put in my coffin because I just thought, you don't get a say, do you? At that point, someone else is deciding what you want to say with you. And of course, most people I spoke to were going to be cremated, and so everyone would say popcorn kernels. So I'm going to fill my coffin with that's fun. With little fireworks. Yeah, fireworks or cannabis, something just to make it a bit more fun. So yeah, chairs, folding chairs that go back a long way, which makes sense. Actually, there's
+
+[00:21:48] a book on chairs by a guy called Rittold Rybsinski. And I always come back to this in my research. It's such a good book. But he says he thinks the oldest chairs ever will have been folding. It's a cracker, I'm telling you. I disagree with Mr. Rubsinski or whatever he was called. You don't think the oldest chairs are folding? I don't really, because I think the oldest chair would be literally just a box. And I think it requires something extra to. I think once you've made it into, once you've used some human skill rather than just sitting on a flat rock and claiming it's a chair, because it would be nomadic society. So I think the oldest evidence of folding chairs we have might be ancient Mongolian societies who were nomadic. So the important people would
+
+[00:22:31] take a chair with them. And that's great. And they looked exactly like those beach chairs that you get, you know, the old people sitting on beaches. There are eight folding stools in the British Museum. Wow. And the earliest ones were just people to sit in. Such a good point, because they have those people who sit and make sure you don't steal anything, don't you? And they sit on little stools. Also very old, those people. A lot of the time. The oldest one they have is from the 18th dynasty of Egypt, which is 1500 BC to 800 BC. So that's pretty old. And what do they look like? How easily foldable are they? They just look like an X with a pivot in the, where the two lines of the X meet. And then a little bit of cloth on the top, although the cloth has rotted away because
+
+[00:23:18] that's perished here. So easier than a beach deck chair, which I still can't do? No. Stripey beach deck chairs are just there to torment me. It's like a Brompton. Your fingers won't survive. Lots of folding chairs were big for lots of people. So I mean, James, you mentioned the Egyptian ones. Tutankhamun had one. Tutankhamun had a couple in his tomb, I think. One was Ebony and Ivory. Pretty cool. Bishops had a folding chair in medieval times. That was a huge deal. There was a thing called the Cathedral, which is the bishop's official throne. But if you were traveling around your diocese or whatever it was, you'd have to have a traveling... A travel throne. A traveling cathedral. Yeah, yeah. A travel throne. Speaking of religion and chairs,
+
+[00:24:04] not a folding chair as such, but is it a myth, the papal chair, the hole in the papal chair? That is a myth. That is a myth. Do you mean the hole for the... So the whole Pope Joan thing, isn't it? Like Pope Joan, the supposed 9th century lady pope who probably didn't exist. And that they then... The papal chair had a hole in it so that their genitalia could be inspected from beneath to check they weren't a woman. And then they'd shout, there'd be some cry when they're like, he's got knackers in Latin. And then we can continue with the Catholic Church. It's like, yeah, I think that definitely is a myth. It's a myth. Yeah, yeah. But it does happen these days for real. There seemed to be a spate of people getting their testicles trapped
+
+[00:24:46] in folding chairs. Oh, God. I didn't even have them in my eyes. I didn't read about any popes doing it. Maybe those just didn't make the news. It's so common. Well, I thought, I think I was just looking at the chair accidents. And I came across like a 60-something year old man in 2018 who was sitting in his folding chair, which had little slats before we got to the shower. And they fell through and couldn't get them out and had to have the fibre game come. His testicles is that, because they do hang lower in older men, don't they? Yeah. It's interesting you say that because all of the stories I found, which were then, I think I found five different stories, they were all older men. Yeah. The rubber perishes as time goes on. And there's a certain... Like a worn out
+
+[00:25:28] slinky. Yeah, there's more given system. Well, yeah, it's tough. There are some great photos if you want to. What are the photos of? It's mostly like there's a man lying on a stretcher, but he's obviously still sitting on the chair. Actually, if you go to Blackpool, you know, there's cutouts where you can put your head in. There's one of those. A dangling pair of testicles stuck through a deck chair. They have to have the fibre gate on hand at all times. Because it's scary when the fibre gate turn out because they've got things like angle grinders and they've got all sorts of big kit, haven't they? And I don't... It doesn't really call for the fibre gate, I would have thought. It calls for a delicate... Surgeon. A massaging. Yeah. Some oils. They have to cut the chairs. I
+
+[00:26:15] think there's sometimes no mass and level of massaging you can do, which is a bit frightening. Yeah. And I have to say, I respected the fire. It was firemen, two firemen, so much. In one photo I saw who had such grave looks on their faces, which I imagine took a huge amount of effort. We used to call it... So I used to be a nurse and you'd call it the nurses mask or the... And I think firemen have the same thing. Because sometimes you'd see things that were funny or that were horrific. And you can't, you know, you can't take a bandage off and go, oh my God! You know, you have to just sort of maintain this kind of nurses mask. Is it a sort of a creepy grin?
+
+[00:26:53] Amazing. Do you know who the first person to use the word deck chair was? We're going to say invented the word deck chair, but... Famous person? Famous person. So it's gettable? Oh, no. I'd be astonished if he does. 1880s author of a children's book.
+
+[00:27:11] Arthur Rannis. So it was Carl. Louis Carl was a good one. No, that's not 1880s. 1880s. Kenneth Graham, who wrote The Wind and the Willows. All good one, but no. British?
+
+[00:27:21] British, yeah. British children's all that. 1880s. So it's tough. Robert Louis Stevenson. You like it because you wrote the pirate books? Yeah, yeah. But think of that surname.
+
+[00:27:32] Stevenson. I think of what else Stevenson's are related to. That Stevenson's rocket was the first train? I don't think of... Nesbitt. Yeah, I wrote my place. God, that was good. That was stunningly good.
+
+[00:27:46] Ian Nesbitt, who wrote The Railway Children. Very strong. Deck chair was first used in that book. Also, great glue giving from Stevenson. I mean, that was... Yeah, that was... It was a great throw and a great catch. I think it was what I was saying.
+
+[00:27:57] Brilliant, I enjoyed that very much. It was good to be part of the audience. Come on, either side. Some other words invented by Ian Nesbitt in the OED. Brecky, snarky and zooming. Wow. Zooming as in moving around quickly. My dog gets the zoomies.
+
+[00:28:12] Yeah, yeah, yeah. Zooming, yeah. Wait, what does the dog do? It's called a zoomie. What's getting the zoomies? Yeah, she gets on Zoom, close my mouth. No, you know, when dogs just get really hyper excited, they just run about like they call it the zoomies.
+
+[00:28:24] Is that what the zoomies is? Yeah. I thought the zoomies was a drug thing. I might also be that. I don't know. Drug paraphernalia, your honour, and wow. Do they ban the deck chairs on Bournemouth Beach? Should they?
+
+[00:28:38] I think it was last year. There was... So, oh, they stopped renting them out. I don't know, you got... You didn't get a rescue if you bought your own deck chair. Wouldn't immediate climb down from a promising little hill. It's a molehill now. Was it a government thing or a council thing?
+
+[00:28:53] It was a council thing, because they were afraid they were going to be used as weapons. Really? I couldn't really find any evidence that they have been used as weapons. Feels like a pretext, doesn't it? It does, but for what, why? Why didn't they want to rent them out?
+
+[00:29:05] It lost the council about 200 grand that year. Really? From renting them out. Would they think that you'd go around and sort of snap old men's testicles? I suppose chairs as weapons is like every time there's any sort of football violence, whatever. It's always plastic chairs being thrown around, isn't it? Oh, it's plastic one.
+
+[00:29:23] And in wrestling, of course, they have the steel chair, but it's very rarely the deck chair. He's getting out the deck chair. Oh, he's still getting it out. That's it's out. You're in trouble. You talked about Bournemouth, Anna, I think. There was an article in 2021 in the Telegraph
+
+[00:29:41] about deck chairs in Scarborough. This was a 58-year-old woman called Dawn Avison who runs the last remaining deck chair concession in Scarborough. She's got what they described as a deep mahogany tan, and apparently locally it's known as Scarborough Rust, which is if you work on the beach. That's your tan that you have. And she said that last summer,
+
+[00:30:07] former Education Secretary Gavin Williamson sat down on one of her deck chairs for a selfie and then left without paying. What? And now he's a minister without portfolio, so I think that just says, you know. He's a man who I genuinely don't think could put up a deck chair. Gavin Williamson, no.
+
+[00:30:24] I don't think any of them could. Can I tell you one bit of folding chair news? Are you guys familiar with Sidney Joe, the 27-year-old tiktoker? Of course. There you go, I knew you would be. 27-year-old tiktoker. I don't know anything about tiktok, but that feels old.
+
+[00:30:41] Well, she's appealing to the youth. So she got stuck in a folding chair, which is kind of amazing. There's a picture and she's looking at her body through the middle of it. It's folded around her. And she had to be removed by the fire brigade. I think this was last year.
+
+[00:30:56] And they used Jaws of Life, which are the hydraulic things that you use to extract people from crashed cars and stuff, which sounds quite frightening. And the reason that she'd got stuck is because she has $199 per minute channel where she gets stuck in things and then frees herself.
+
+[00:31:15] And it went wrong. Oh, what do you mean? It's like people pay to watch her escape from stuff. Yes, I think we're all asking, is this a sex thing? Yeah, yeah. Well, look, it says it's a fetish channel. That sounds like sex.
+
+[00:31:29] Right, that sounds pretty sexy. I'm not down with all the lingo, but I think that is a sex thing. Oh, look. God, the poor, bloody fire brigade in her local area. Hello, it's me, Sidney. This is me again. Yes.
+
+[00:31:40] No, a washing machine this time. Okay, it's time for fact number three, and that is my fact. My fact this week is that most people dislike Kale before they're even born. That's how long-lasting the loathing is. This is this weird thing that came out recently, and it's quite a small study, but it looked at ultrasound scans in 70,
+
+[00:32:10] about 70 pregnant women in late in their third trimester, and then they got the pregnant women to take capsules of either powdered kale or powdered carrot or nothing, and then they looked at what the fetuses were doing, and the fetuses made the facial expressions that, well, when they had the kale, they made the facial expression they make when they cry, and an unmistakable kind of wince of displeasure.
+
+[00:32:36] And we're not 100%, that's what a fetus means when it makes that face, but come on. It feels like ethical issues here, right, if you're making your fetus unhappy, making it cry. You're right, God, the ethical issues is feeding people kale. That's every parent who makes their kid eat vegetables. So at what point is the baby crying?
+
+[00:32:52] Because obviously the mother's eating the, takes the capsule, so they're waiting for it to, how do they know at that point that the baby's receiving the kale? I think it was, they waited 20 minutes, and I think by that point, whatever you've eaten has filtered through to the amniotic fluid, whatever it is.
+
+[00:33:07] So the flavor, they know the chemical is in there at that point, yeah. And they can compare it to the people who've had the kale or the nothing and see at an exact moment when their expression changes. But it might be a benevolent thing, actually, because if theoretically you eat lots of kale in pregnancy, you might then be able to stop your child hating kale
+
+[00:33:28] in outside pregnancy, in childhood. I think that's how it works. That does look a bit, I think. It's possible that you can prevent fussy eating, basically, by just exposing the child to as many flavors as possible early on. It's a bit less unfamiliar later on when you're giving them whatever for the first time.
+
+[00:33:45] Obviously the problem being that you'll feel so ill for most of your pregnancy that you will only eat bread and biscuit. Okay, I think my mum must have mostly eaten refined sugar, Joey. But they actually like the carrots, which I find quite surprising. I know carrots are sweet, everyone always says,
+
+[00:33:59] but they're no whisper bar, are they? But if you've never had a whisper bar, if all you've got to compare it to is kale, then carrots are pretty good. You're absolutely right. Yeah, they did a little sort of smile, some fetus equivalent of a smile when they tasted the carrot,
+
+[00:34:12] twice as often as when they tasted nothing. I wonder if that's because the carrots help them see in the dark, and then it's like, oh, I can see where I am. Oh, and this is gross. But yeah, it is, I don't think kale's that bad. I think I can't taste bitterness as much as some people. It's all right.
+
+[00:34:28] I had some in research for this podcast when I knew we were going to be talking about kale. I went and had a sort of salad. And then as in you searched out the kale, because I don't have kale in the house anyway. Right, so I never do. No, no, no, no, I went to a cafe. I'll have that kale salad, please.
+
+[00:34:47] And I was pleasantly surprised. I thought it was horrible, and I don't mind it. I feel like kale was only invented sort of about 10 years ago. I mean, it definitely, I wasn't eating kale in my childhood. Was it eaten cabbage? It was pretty much 2012 when it kicked off, 2011, 2012. And before that, literally no one ate it. I think kale was invented in 1976.
+
+[00:35:08] Yeah, I was invented. You had a twin, kale. This was... I didn't eat it in the womb, unlike my other twin. This was New York Times food critic Mimi Sheraton. In fact, she was the first female restaurant critic at the New York Times. And she wrote about how great kale was.
+
+[00:35:28] And at that time, literally no one ate kale in the United States. But she helped to make it popular. But they interviewed her a couple of years ago, and she said she really regrets now making kale popular. Well, she says she read through the article, and she realizes that in those days, she liked kale because it was cooked properly. And in these days, people serve it raw.
+
+[00:35:52] They kind of roast it like I often have roasted kale, which is, you know, it does taste quite burnt, and the way I cook it anyway. Do you make kale crisps? I've tried so many times to do that, and every time I went up, we'd just burnt kale. I think that's just how it's meant to be. You've just been confused by the word crisps and the fact that...
+
+[00:36:08] I thought it was going to come out like golden wonder. All the recipes claim it's heaven. It's kind of okay. It's kind of raw kale. But Mimi Sheraton says if you eat it like you're supposed to eat it, which is like a winter vegetable, like you might have cabbage or something like that, quite often boiled or stews or stuff like that, then it's really delicious.
+
+[00:36:25] But these days, the way that people cook it is wrong, and she feels quite responsible for that. That's so interesting. That is the one thing I think my Nan might have got it right, that you do have to boil it for three days. Yeah. Oh, well, do you know what you're supposed to do if you don't have three days?
+
+[00:36:40] You're supposed to massage it, which I did not know. But this completely transforms kale. A, it stops it making you fart. And B, it stops it tasting bitter. And this is if you, before you do anything to it, you just give it... If you massage it with a whisper bar. No, it's because it has a lot of sugars that don't get broken down until they're waved through your digestive system
+
+[00:37:01] and you're large intestine. So A, then that gives you lots of bad gas. And B, that means that on the way through, you're not tasting those sugars. And so it tastes bitter. But if you massage, and I meant to try this, but I didn't do the first time research, but I'm sure people were right in.
+
+[00:37:16] But yeah, if you squeeze it properly, just like you're rubbing it in before you cook it, then it tastes much sweeter and much nicer. So not with oil or anything, just with your fingers. I mean, I'm giving it a full-on mass. Like some candles. Some romantic music on.
+
+[00:37:32] I gotta say, I also thought it had been invented in 2012, and I didn't realise it was really huge in previous centuries, especially in Scotland. And I didn't know this at all. And it was because it can grow for a start in quite tough Northern climates, which is a good thing. And also it grows over the January to April period, which got called the Hungry Gap,
+
+[00:37:53] which is where lots of previous crops might be running a bit low. And so it's a very useful staple food. And there's all this Scots dialect about kale. All these words, like a kale bell is a dinner bell. Kale was used interchangeably with food, as in kale might just mean food. And there were sayings as well.
+
+[00:38:12] Like, have you heard called kale hit again? Called kale hit again. Yeah. No, what does that mean? Cold kale heated up again. Oh. Oh, it's that simple. I thought it started off weird.
+
+[00:38:22] What does it mean? No, what does that mean? As a say? Oh, OK. Oh, I see. It means that... He's washed up. Yeah, later in life, you've kind of come...
+
+[00:38:32] It's a comeback almost. That's nice. That's much more positive than the real meaning, which is that I've heard this story dozens of times before. This is called kale hit again. Oh, God, that's useful. Start using that constant. Yeah, a lot of my relations.
+
+[00:38:46] I'll give him his kale through the reek. Through the reek. What is a reek? Through the reek. Old reek, he is Edinburgh. Through the nose. Through the nose. OK.
+
+[00:38:58] Yeah. Yeah, because reek means smell, right? OK. It means what you say when someone farts. As if someone's farted in the room, you don't know who it is and you're like, oh, I'll give some old kale through the reek. All lovely guesses.
+
+[00:39:12] So, reek is smoke. And basically, I'll give him his kale through the reek. It means I'm going to treat someone badly. I'm going to hand you your kale for dinner through the smoke of the fire, so it tastes gross. So it's roasted instead of massaged. Exactly, yeah. They had, the word for garden was kale yard,
+
+[00:39:31] really, wasn't it? For a small vegetable garden, it was kale yard from about 14th century. And then it morphed into kale yard fiction, which I was not familiar with. But this is, well, can you guess what kale yard fiction is? Makes you cry, makes you cry. It makes you grimace.
+
+[00:39:47] It's sob stories. It makes you do all of those things. Yeah, written since 2012. It makes you fart. Okay, I don't know if it does any of those things. It's just a derogatory term for a really bucolic, overly sentimentalised, rural, rustic fiction, because, you know, it's like old fashioned kale yards
+
+[00:40:05] in Scotland. And J.M. Barry was accused of being a kale yard writer. I'll see. For his books like, old licked iddles. I read an article on Atlas Obscura about Halloween in Scotland. I don't know if you saw this, about how kale was quite popular in that time,
+
+[00:40:25] because it was kind of the growing season of kale. Like you said, it was more of a winter vegetable. But apparently, youths would blindfold each other, pull stalks of kale from the ground, and then analyse their length and girth, and the amount of dirt caked onto them, and it would tell them what kind of partner they'll marry. Why do they have to be blindfolded?
+
+[00:40:46] Because then you could say, oh, I think I'll marry that tall, girthy, non-soiled girl. No one wants a soiled yard. But I guess that's what you would do then. You'd go around the bars looking for a soiled, girthy woman. But first, when you said kale used in Halloween, I thought it was going to be the world's most disappointing trick or treat. Have you never bobbed for kale?
+
+[00:41:09] I mean, when I was a young girl in the 80s, like we didn't, trick or treat wasn't a thing, really. And when it started to come in, I remember my mum, there was a ring at the doorbell, and these two kids said trick or treat, and my mum didn't know what it meant at all. It just hadn't been a thing here. And so my mum went, oh, treat, two of this week,
+
+[00:41:26] it's the shot that I'm going to have. That's the choice you've made. I was really disappointed to read that kale is very high in vitamins K, A and E, but not L. Is there vitamin L? Well, there is. There's a guy called Dr. W. Nakahara, who in the 1930s discovered something that he called vitamin L,
+
+[00:41:53] but it turned out to be a couple of chemicals, which are not vitamins at all and which aren't in kale. But he called it vitamin L because he thought it was good for lactation in rats in particular. But it turns out that, yeah, not only is it not a vitamin, it's not particularly good for lactation either. But it is a thing, vitamin L.
+
+[00:42:14] It's just vitamin L, but the L stands for lye. Yes, exactly. But 130 grams of kale contains 1,000% of your daily vitamin K nutrition. Wow, I mean, 1,000% of it. What vitamin K do you get? Stiff bones, really. Stiff bones?
+
+[00:42:31] Do make sure to try and get your bones as stiff as you possibly can. Hear a bit of me, Kate. It just feels like a euphorism for ketamine. Yes, it does, doesn't it? Yeah, yeah. How much kale was that? 130 grams, not much.
+
+[00:42:45] That's quite, I was about to say the opposite. That's decent serving. Yeah, that's quite light, isn't it, kale? Oh, it's light, I suppose. Truth is, it's 1,000%. So you only need 13 grams, so... Yeah, that's manageable. But people who take blood thinners
+
+[00:43:00] should be careful with kale, because if you have too much vitamin K, it can be a problem with your clotting of your blood. And also, if you have iodine deficiency and you eat an enormous amount of kale, you can get hypothyroidism, where you make too much of your thyroid hormone. You can get a nice goiter on your neck.
+
+[00:43:19] An 88-year-old woman got severe hypothyroidism and went into a coma after eating. But she was eating between 1 and 1.5 kilograms a day of raw... What? This is actually bok choy, which has a similar property, raw bok choy for several months. But that's more than 10,000% of her daily fit of kale. So she was overdoing it.
+
+[00:43:40] And how can you physically eat that much bok choy? It's really light. She can't have been doing much else with her days. I suppose at 88, after... It's like a panda, with bamboo, just all day just showing on bok choy. It's the panda, isn't it? It's her on the bok choy. Okay, it is time for our final fact of the week,
+
+[00:44:07] and that is James's fact. Okay, my fact this week is that Goldfinger was such a difficult boss that he once fired someone who didn't even work for him. You don't want fictional Goldfinger here. Goldfinger! Uh, no, I deliberately missed out. And the start of this fact,
+
+[00:44:25] which is Brutalist Architect, Erno Goldfinger, did all this stuff. We knew Angela was coming on the show, and we know you like a bit of Brutalism architecture. And so I dug out my book, Concretopia, which was written by a good friend, John Grindrod, all about Brutalist architecture. And I thought I'd find some facts about Erno Goldfinger.
+
+[00:44:45] And he was a very angry man, apparently. Maybe he was stuck in a zecture. Yes. He'd have to be a big zecture. He was a big man. Was he? Yeah. He used to show his strength to the people in his office
+
+[00:44:58] by, er, punch, using a hole punch, to punch through stacks of card that no one else was strong enough to do. And that was how, that was his way of going, don't mess with me, look how many bits of card I can punch a hole through. What's the threat there? I can punch a hole through your torso.
+
+[00:45:13] I mean, it's weird that in World's Strongest Man, they don't have this ability. Right, they're missing a trick. It'd be great, because like an office-based World's Strongest Man would be very funny. Yeah? And fun. So, Erno Goldfinger, people, especially who live in London,
+
+[00:45:26] will know some of his buildings. Trelik Tower, I think, is his most famous one, which is only because I used to live near. But yeah, he did a lot of these concrete buildings, very popular for about three years, but they're all, they're all still here. And John Grindrad, who wrote this book Concreteopia, he spoke to James Dunnett, who worked with Erno Goldfinger,
+
+[00:45:50] and then Dunnett sort of related this story, that he was a very fiery character. And whenever you came to work for Goldfinger, a lot of people only lasted less than a day, and they'd be fired at lunchtime. And apparently, one day, Goldfinger was in one of his rages, you know, probably he didn't get his whole punch working properly, and he stormed through a reception,
+
+[00:46:08] and there was a guy just waiting in reception, and he just went, you're fired! And he didn't even work for them. So funny. He apparently, between 1954 and 1955, in that year, he lost 26 employees in a small office, either through sacking them or they left because of stress. That was just in one year.
+
+[00:46:27] Yeah. And you know, obviously, the actual Ian Fleming Goldfinger connection with Goldfinger. No, go on. So Ian Fleming named the character Goldfinger after Erno Goldfinger. So Erno Goldfinger, the architect, was married to Isabel Blackwell from,
+
+[00:46:44] yeah, from Cross and Blackwell family, and her cousin played golf with Ian Fleming. And the family all hated Erno Goldfinger because he was so mean and nasty. And Ian Fleming didn't like him because he'd demolished some houses in Hampstead to build the Willow Avenue. Is it Willow Road?
+
+[00:47:03] To Willow Road. To his house, yeah, in Hampstead. And so Ian Fleming was angry that he'd demolished these cottages that had been there before. And so that's why he called him Goldfinger. And Erno Goldfinger sort of got his lawyers involved to sort of try and stop it. And Ian Fleming suggested
+
+[00:47:22] that what he would be prepared to do was put a slip in every copy of the book that said, actually, his name is Goldprick. But in the end, they settled and it was fine. Didn't they settle? Because Ian said, okay, I'll use Alrick Goldfinger as in his first name in every mention of him in the book.
+
+[00:47:40] To clarify the sort of name. Yeah, he did do that. It's nothing to do with you. It's a complete coincidence. The story doesn't reflect very well only in Fleming, I think, because between the destruction of these cottages in Hampstead and the writing of the book, I think it was about 20 years.
+
+[00:47:58] I think it's a long grudge that was held. Well, the thing is with Fleming is, so Pierce Fletcher, who's the producer of QI, he says he knows someone called Scaramanga. And this guy called Scaramanga, his father went to school with Ian Fleming, right? And I've met, I don't know if you've met, Blofeld, Henry Blofeld, the Cricket commentator.
+
+[00:48:17] Surely that character is not based on the Cricket commentator, Blofeld, I can't see any similarities. It's based on his father, apparently. And according to Bloers, he says that they went to the same club and Fleming saw the name in the club list and stuff like that. We're not quite sure. But basically, I mean, Ian Fleming just knew so many people
+
+[00:48:36] with amazing names. Yeah, incredible. Because I looked at all my Facebook friends yesterday to see if any of my friends had good enough names to be Bond villains and none of them do. Like literally, I don't have a single friend who has a funny surname. But the settlement they came to
+
+[00:48:50] was that the publisher would pay Goldfingers, I think some of his legal costs, and they would also provide six copies of the book. That's all right then, as long as I've got six copies of the book, it's hanging me off, I don't mind. And then, but I think it probably didn't pay off for Goldfinger in the end,
+
+[00:49:04] because for years afterwards, or for years after the movie came out, the James Bond film, people would ring him up and do a Sean Connery voice and say, Goldfinger, this is double all seven. Oh yeah. Well, you shouldn't have made your dress so public with this famous house you built.
+
+[00:49:17] That's true. Yeah. He was a lifelong Marxist as well, and he used to sell, he had like art sales for, him and his wife used to hold these art sales to raise money for the Red Army. Oh, did they? Wow.
+
+[00:49:31] Yeah, and we're friends with, I think Barbara Hepworth used to sell stuff with him, and yeah. I guess his kind of architecture, brutalist architecture gets associated with left wing ideology, and I think the anti-brutalism movement of saying, we really hate these buildings. They're so ugly. Can we get some more classical Roman stuff up, please?
+
+[00:49:49] Is more associated with conservative hypes. It's very eastern block. The concrete. It puts the block in eastern block. It's very strong. It's a function over form, isn't it? The whole idea of modernists showing you're working.
+
+[00:50:05] Yeah. Sort of, which I think is beautiful. I have a concrete wedding ring and a concrete engagement ring. I'm showing this, that's my concrete engagement ring, which I'm showing you. It's like a square of concrete. And that is my concrete wedding ring. My husband has one the same,
+
+[00:50:17] and the aggregate is pebbles from Brighton Beach, because we live in Brighton. And so, yeah, I'm a little obsessed with concrete as a medium. It's the most attractive I've ever seen, concrete beat, actually. Well, I've got a little theory about that. I wrote an article about this in The Independent a little while ago, about this idea of,
+
+[00:50:35] you know, like, I was going to say Prince Charles, King Charles, or as Dara O'Brien keeps calling him, what the week, King Prince Charles, which I think is. He obviously spoke out against Bruce's architecture quite a lot. He described the National Theatre as something like a clever way of disguising a nuclear power station in the centre of London or something like that.
+
+[00:50:54] And the monstrous carbon clause and all of that. But my theory is that we're sort of triggered by nostalgia, human beings, you know, about things that make us think about home. And if you grew up in Buckingham Palace, then yes, the National Theatre's going to look quite ugly. But if you grew up like I did on an estate, you know, where there's lots of concrete,
+
+[00:51:10] about concrete, subways, concrete, then those buildings make me feel nostalgic and warm. And, you know, so it's all relative. Yeah. Like, for example, Wellbeck Street Car Park was a famous Brutal structure in Soho, and that got demolished a few years ago. That beautiful sort of...
+
+[00:51:24] Oh, I was going to say. Oh, yeah, I go past it all the time. I clearly don't. Sort of looks like they pour concrete into a beehive, that kind of sort of tessellated, beautiful structure. They knocked it down. But I just think, well, where's the difference there? Like, people will preserve, say, old coaching-ins.
+
+[00:51:40] Because Charles I stayed there once or whatever. We go, well, who parked their car in that car park? I bet a load of really famous people did, because of where it is in Soho. You've got to get the room passed down. But you know, this idea that things that seem modern to us and ugly, well, in the future, we'll have historic values.
+
+[00:51:55] Stop knocking them down. Yeah, I agree. I would love a car park plaque scheme. You know, if you found out Gary Linnaker parked here in 1996, that would change the way I felt about that space. Basically, every Indian restaurant in the country has a picture of Gary Linnaker. Does that make you feel different about those?
+
+[00:52:13] It's, I can't believe. He must have parked somewhere. He must have gone to so many Indian restaurants around the country, because they are everywhere. There's one right near here, right near where we're recording this now. And I just can't imagine how he had the time as a top-class footballer to be plowing through
+
+[00:52:28] that many curries. I can't imagine what it's like to share a bathroom with him. Slightly related, I saw Gary Linnaker once in a service station. I can't remember which one. Like a proper motorway service station. And I was with the comedian John Robbins. We were now waiting for gigs somewhere. And he's only, like, nice to be with Gary Linnaker,
+
+[00:52:45] ahead of us in the queue. And the thing that just amazed us most was he'd obviously been travelling from somewhere to somewhere and was wearing the most crisp white shirt without a crease in it. Oh, really? So you've obviously got out of a car.
+
+[00:52:56] How are you looking so amazing? That's interesting. Yeah, there you go. Nice. Well done, Gary. Was he absolutely going to town on a Cormor or something? Not in Starbucks, no. He was signing a cup for them, though.
+
+[00:53:07] So I guess they were putting that, though. They were going to put that on the way. Oh, yeah. Was he? Yeah. All celebrities get around a lot. Gary's the only one who comes with his own marker pen. They come on every place.
+
+[00:53:18] But yeah, you're right. Going back to this architecture, which we're talking about, I think, there is this assumption that it's bad for a community. People get very depressed. It has a negative impact on mental health. There was lots of chat in the 80s, which, like, in Thatcher Zero, there was this big pushback
+
+[00:53:34] against all this brutalist architecture. And people were saying, like, Thatcher's favourite housing expert, who was a woman called Alice Coleman, saying it's increasing levels of crime and antisocial behaviour in all these areas, partly because I think there's less surveillance. If you've got those big tower blocks,
+
+[00:53:50] you can get away with a lot, she said. And people do assume that. And I couldn't really find any evidence of any studies that say people's mental health is affected. And also, I think, what happened? So post-war, when there was a housing shortage, you know, after the Blitz and everything, you had to build quickly.
+
+[00:54:07] And there was this fashion in Europe for building up these modernist architects. So Le Corbusier, who built UNITEDA d'Abetation, all these grand ideas. But what we tried to do here is do it cheaply, because you had, when church was government, came back in in 51, and you then had, I think the housing minister then was Macmillan,
+
+[00:54:24] and the idea was to build quickly and cheaply. And so there was the disaster that happened at Ronan Point, which was a tower block in Newham. And it was built 16 stories higher than it should have been. So the designs were for it to be 16 stories lower. That's a lot. That's a lot to add. And they used what was called an LPS system, which is a large panel system.
+
+[00:54:43] So it's precast concrete panels that are then slotted together in situ. And what happened? Apparently, in this particular building, some of the gaps between the panels were so big you could put a coin through them, and they just stuffed them with newspaper. And then a gas explosion happened, and one corner,
+
+[00:55:03] sort of the pictures all over the papers, this corner blowing off of this thing. But of course, it spread really quickly because of the gaps in the panel system. And all of this. So it was all kind of set up to fail in this country because they were tower blocks in Europe that worked perfectly well.
+
+[00:55:16] And obviously what happened as well is that when Right to Buy came in, people would buy their council homes, and then they'd move up the property ladder, move out, and then private landlords would let them... So you end up with this situation where it's the poorest people in society all packed together in places without a concierge,
+
+[00:55:33] without any proper management, and with nooks and crannies, where drug dealers or whatever could... So they were set up to fail from the off, really. So it's not the building's fault. It is the funding and the government at the time. These big ideas cost money. And of course, the architects that came up
+
+[00:55:48] with these big ideas never had to live in them. Yeah. Although, old Goldfinger did. Oh, he did live in Balfren Tower, didn't he? He did. I mean, only for a couple of months. He did say of Balfren Tower, which was like the first big thing that he built in London. And he said, everything I did, I did as if it was done for me.
+
+[00:56:05] And to show that he went and moved in with his wife. And he used to host champagne receptions for all the residents where they would come and tell him what they thought of the building and what they liked and didn't like about it. Although if you do, after two months, just move to your swanky pad in London, then...
+
+[00:56:19] Go back to Hampstead. Is it worth saying something about the word brutalism? Yeah, definitely. Because brutalism, I think people think, is because it looks brutal, but it's actually from Beton, which is the French for raw concrete. So that's where...
+
+[00:56:32] And the term brutalism came from... There's a couple called Allison and Peter Smithson who were pioneers of new brutalism. They were the kind of radical young architects in the 50s. And they wrote an essay where they mentioned new brutalism as this new form over function... Sorry, function over form, aesthetic.
+
+[00:56:50] Which we should say, because it's confused me for a long time researching. You'll definitely know it. New brutalism was just brutalism. There was no old brutalism. No, no. They just started with their new... They started in, I think, Sweden or somewhere.
+
+[00:57:00] It's called Nybrutalism, was the original in the late 40s, I think. And then they sort of picked up that and ran with it. And then there was an architectural journalist, Reina Bannum, Peter Reina Bannum, who then wrote about it in the architectural review. And they described it as an ethic, not an aesthetic. So this idea that buildings should be
+
+[00:57:20] for functional purposes for people to live in, rather than to just look pretty. So it was Reina Bannum who kind of brought brutalism as a word, right? It was kind of... They talked about new brutalism, and then he was the one who kind of made a joke about the brute concrete in France, is that right?
+
+[00:57:36] Yeah, I think so, yeah. Because I wrote to John Grindroth, and he sent me some facts, and he said that the brute in brutalism, because it comes from the same root as Breton brute, it's the same brute as you get in champagne. Really? So yeah, brute champagne means dry,
+
+[00:57:50] it also means raw, I think, in French. Concrete, would you like a glass of concrete to celebrate? That's what we had at our wedding. No, it's not. Although we did have, actually, the tables at our wedding were named after either whiskies, because my husband was a big whiskey fan, or brutalist buildings.
+
+[00:58:10] So we had a Wellbeck Street car park table, we had a number one Croydon table. My favorite structures, one of them, is the Pennine Tower at Lancaster Services. I love that structure so much, we had a table named after that. You used to live there, you used to live near there. And I moved to a town, it's called Silverdale,
+
+[00:58:34] and just to try and get in with the locals, I did a pub quiz there. And they had a question, it was around where they gave you 10 clues, and if you got the right answer, if you got in the first clue, you get 10 points, and it'd go all the way down. The first question was,
+
+[00:58:49] this building was designed by whoever it was. Oh God, now you can get a TP something. Yeah, every other team in the quiz ran to him saying, we've got the answer, we've got the answer. Me and my partner at the time was sat in the corner, no, okay, next clue, next clue, next clue. All the way down to the last clue,
+
+[00:59:10] which was like, it can be seen on the M6, just outside Silverdale, and we guessed that it must be that service station. And yeah, that was a typical kind of quiz in that town, where all the locals knew all the answers, but if you weren't local, you had no chance. That's so funny. It's a beautiful structure, it looks sort of space age,
+
+[00:59:28] kind of like a flying saucer on a pole. Fortin Tower. You would have got on, I think, quite well with Thomas Edison, who was also, do you know about his concrete obsession? I don't think I do, no. Oh God, I think you might have married him in a different life.
+
+[00:59:43] He was obsessed with it. He set up Edison Portland Cement Company, and he wanted to make houses and all of their interiors entirely out of concrete. And he actually, I think it was because he had lots of sand left over from other stuff he was trying. I don't know why he was making sand castles. And he imagined houses made entirely of concrete,
+
+[01:00:03] but then inside they would have concrete tables and chairs, and bath towers made of concrete, fridges made of concrete pianos. And he built, I think he built a little version, a little concrete cottage. And it does look like someone's taken a normal house, and then they've poured concrete over all the items in it.
+
+[01:00:21] I think that was kind of his idea, right? He would just get this kind of shape of a house, and all you would have to do is pour concrete in, and eventually it was set. You'd take off the mould, and you'd have a house, and it would have all the tables in and everything. But I think that's, does that still exist, that building? There might be, I think that original one might still exist.
+
+[01:00:37] They probably have tried to get rid of it, but found it impossible to destroy. Yeah, it's a place called Hermit's Castle, which is in Scotland somewhere, and I can't remember exactly where. But it was a, an early sort of, I think in the early 50s, maybe this architect David's someone, I can't remember his name.
+
+[01:00:54] This is just full of me trying to remember people's names. But he built like this little, out of concrete, this little castle. And the idea was that anyone walking could then just sleep in it, or, and people do. But he did exactly that, like the beds all moulded into it, and the sort of like little shelves and things. It's all moulded into, because they used like concrete,
+
+[01:01:13] it's called shuttering. So that's the, you use wooden panels, or wooden moulds to pour the concrete into. You sort of line them with resin, and then put them, and then you move them away. And you've got, so that's why concrete was so exciting, because you can make any shape out of it. You can do all these.
+
+[01:01:28] Yeah, like plastic, I guess. Yeah, yeah. Not comfortable, though, to sleep on. If you, you wish that someone had made a bouncy castle. Housemade of doobies. Angela, have you seen the film Locke? It's Tom Hardy. Oh, in the cart, yes, yes, yes.
+
+[01:01:43] I have, I forgot it was called that, about the big concrete board. Exactly. Yeah. I did when I was, so I did British Brutalist Architecture for Mastermind a few months ago. Oh, cool. And I just found myself down this YouTube rabbit hole,
+
+[01:01:57] at about four in the morning, I was watching videos of concrete pours, going, this isn't, what am I doing? This is not going to come up. This is not going to come up. You should start a festive site. Okay, that is it. That is all of our facts.
+
+[01:02:14] Thank you so much for listening. If you would like to get in touch with any of us, we can be found on our Twitter accounts, Andy's on. At Andrew Hunter M. James is on. At James Harkin. And Angela, I don't actually know if you have a Twitter account.
+
+[01:02:25] I do, it's at Angela Barnes. At Angela Barnes, an easy one to remember, and you can contact me by emailing podcast at qi.com, or you can go to our website, know such things as fish.com, where you can find all of our previous episodes, and lots of other fun stuff, as well as a link to join Club Fish,
+
+[01:02:43] which is our super secret, exclusive, not that secret, because we announce it every week. Members Club, where you can get ad-free episodes, if you just hate those adverts, and you can also get extra special bonus content as we release it. But more importantly, Angela, where can people get tickets to your tour?
+
+[01:02:59] Oh yes, I'll be going on tour in February 2023, throughout the spring, and they can get tickets from my website, which is AngelaBarnesComedy.co.uk. Yeah, do that. Don't join Club Fish. Okay, thanks everyone very much for listening, and we'll be back again next week.
+
+[01:03:15] We'll see you then. Goodbye.

@@ -1,0 +1,251 @@
+# No Such Thing As A Fish - No Such Thing As A Limited Edition
+
+- Episode date: March 17, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-limited-edition
+- Slug: no-such-thing-as-a-limited-edition
+
+## Transcript
+
+[00:00:00] Hi guys. I just wanted to let you know before we start this show that one of our number is doing a comedy show. Is it me, Anna? It's not you, James. You know about that, wouldn't you? No. It's me. It's not Dan.
+
+[00:00:13] What? It's not you, Anna. It's not me. Oh, then I'm not interested. I have no interest either. Oh, yeah, that's going to put people off now they've realized it's not me. It is Andrew Hunter Murray who keeps on having to add new shows to his bloody comedy show because people keep on filling them out. and all right start again just read the card i've given you
+
+[00:00:32] we went to watch it the other week didn't we yeah and it's hilarious it's really funny it's so funny it's really really good yeah yeah really it's great it's really funny it's full of characters you get to see andy being the stupidest version of himself doing he's a rhyming librarian lady at a book club he's a samba man it's amazing spoilers so many spoilers uh no it's excellent it's absurd and insane and hilarious. You should go and see it. It's on the 27th and the 28th of March at the Soho Theatre. It's at 745. Go and see it now. Well, don't go and see it now. Go and see it when it's on.
+
+[00:01:11] Also, before we begin, you'll notice that James is not here this week. Sitting in his place is Erica McAllister. Erica McAllister is a friend of ours. She works at the Natural History Museum, and she is their curator of flies, Diptera. And she's got a new book out. It's called The Secret life of flies. She took three years to write this book. It's everything that she knows about flies. And she knows a lot about flies. She knows so much stuff about flies. And also, she has no time for people who don't like flies. Which is why I wasn't allowed on the podcast. So the book's going to be out April 3rd. It was really exciting to have her on the show. She was really awesome. And she told us that she was going to make sure she always brought it back to flies. And she did,
+
+[00:01:51] no matter what we were talking about. Okay, on with the show. And welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I'm sitting here with Anna Chazinski, Andrew Hunter-Murray, and the Natural History Museum's curator of Diptra. That means flies. It's Erica McAllister. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Erica.
+
+[00:02:37] My fact is that the vinegar fly sperm is so long that if humans have the same sperm to body ratio as the fly, for example, then, Dan's sperm would be the size of a sperm whale. Whoa. Do you feel proud? That's... So when you say size, is that the... As long as a blue whale. As a sperm whale.
+
+[00:03:00] If it was blue whale, that would be quite extraordinary, but it's a sperm whale. It's about 120 feet, I read, roughly. Is that right or not? meters or science can you not do a meters no no it's new money no 33 meters 33 meters a third of a of a hundred meter sprinting thing so three of dan sperm will be able to stretch the length of usane bolts run yes yeah that's kind of nice graphic I hadn't quite done that thought process but thank you why do they need sperm that long um they don't have a lot of sperm oh okay and they don't go through the teenage years so they don't waste it and what they do is that because it females are very very
+
+[00:03:37] promiscuous. And this is all nature that females are designed to be promiscuous. And we're only doing it for our offspring. It's not for fun. That's what I tell people. And so what, we originally thought that if there was lots of sperm competition, you make loads of it and it was great. And actually what these do is their sperm is so large, the actual sperm pushes the other sperm out of the way. Whoa. I know. Putses them out of the way of, like, in the opening, in the genital opening, it pushes other sperm out of the way. Yep.
+
+[00:04:07] They've got quite exciting penises. Have they? What are their penises like? Yeah, what are their penises like? Hello. It depends on species. Some of them have got like little combs. Some of them have got like little whips. They've got little tickling organs.
+
+[00:04:20] They've got all sorts of things. Wow. So it's like a whole Anne Summers' shop, but just inside a penis. Another thing I read is that this particular fly, vinegar fly, has testes which are a tenth of its body weight. They're enormous because they have to produce this. So they're not the biggest in comparison to body. size in Animal Kingdom. The sage bush cricket
+
+[00:04:39] gets that at 14%. And you can look it up. You know, we study this. But they do need because when they want to produce this sperm, and it is one at a time that basically is pumped out, not like the thousands that Dan waste. So Dan's testicles
+
+[00:04:55] here, Dan have estimated your weight. I think they'd be well over a stone, maybe seven and a half kilos. So as you're lining up next to Usain Bolt. Bouncing along on them, like Spacehoppers. I've also got a real image of your sperm that I want someone to draw
+
+[00:05:14] with just very thick-rimmed glasses and a weird black pet quiz. Do not draw that and send it to at Schreiberland. Don't do it. And this is the other thing. So supposedly the sperm are like balls of twine. Yeah, no, they're really, really thin. So it looks like someone who has just given a cat a load of wool.
+
+[00:05:33] Right. And then somebody's come in and quickly had to tidy it up. and shoved it all back again. It's always the same when the cleaning lady comes down, isn't it? The guy who I think first found out about the vinegar flight and their extremely long sperm. Scott Pitnick, he has a tattoo of a sperm cell on his arm to sort of commemorate this discovery.
+
+[00:05:58] That's very cool. He's put up photos of it online and it is all over his arm. It has to be. Well, it is the length of his arm. It's a huge tattoo Although he should have made it The length of You know as we've said proportionally
+
+[00:06:10] Yeah the length of the sperm whale Yeah so he should have made it running it all up and down his body Yeah he needs 30 metres of it Yeah I guess he should Is it true that the way as someone Who looks for new species of flies As you do at the Natural History Museum
+
+[00:06:28] Is it true that you identify them through their genitals More than anything else Well not through their genitals Because that would be odd. But yeah, species descriptions is basically it's always done on male genitalia. Female genitalia is really similar. So the whole thing about it being a lock and key doesn't quite make sense. But the idea now, I have got this great idea, that we're very into 3D printing and microcetic scanning.
+
+[00:06:53] We can actually do 3D genitalia, get glasses, walk through. We could have like theme parks of fly genitalia. I'm sure the NHM would totally go for a new gallery. of like walk through genitalia. Is this the thing that you've been pitching at every weekly meeting class? Any more of business before we end? Could you call it through the pee hole? Isn't there?
+
+[00:07:14] So I was reading about apparently they think the reason it has one big sperm that it leaves in a packet on top of the women's abdomen and then she puts it into her genitals. The reason it's so big is so that it blocks it up like a plug to other flies do that? No, I mean basically every animal has a plug. Humans have plugs. Ours is just a little bit more fluid.
+
+[00:07:34] Oh. Okay. Yeah. So the female seminal fluid is the plug, trying to kill all the sperm. But also the European plugs are slightly different to the British ones. And you need an adapter sometimes. And so, yeah, so flies go out of their way to try and make these plugs. And a lot of flies actually use themselves.
+
+[00:07:51] So they do practice sexual suicide. It's a male when he's in cop with the female. Yeah. And he's pumped his sperm up. Yeah. A lot of them will sacrifice themselves, will let the females. eat them and then so she's so busy doing that it's a longer sperm transferal so he's got a greater chance so he uses him so there's a type of biting midge that basically when she's in
+
+[00:08:15] cop and she's facing him she soars through his eyeballs releases a digestive enzyme his insides dissolve she sucks them up his body breaks off snaps leaves the penis in her she just whips it out afterwards brilliant whoa you know when we our parents as humans talk about the sacrifice They've made. Yeah, they know nothing. No idea. I had my body dissolved by your mother. Well, the bush crickets, with your massive sperm, she will eat his wings.
+
+[00:08:43] How come? Because he gives her something like mid-cop to nibble on to keep her there. Because females basically only care about food. And then does he have to walk home afterwards? No, well, he can't fly away. He can't fly away. Basically, that's it for him because no other female is going to be interested. No point in even doing the wingless walk of shame.
+
+[00:08:59] It's why I go on any date with a packet of pringles in either hand. It's so mid-date. I can provide the Pringles to them and they'll stay on the date with me for longer. Yeah, because you've got to keep the female interested. There's a whole group of flies that the females don't even hunt. And so the males would bring them gifts. So the females would feed, they would have sex, it was all great.
+
+[00:09:19] But the females were finished before the males, so the females would just disappear. And the males are like, but we haven't finished. And so the males learnt to wrap up their gifts. So it was like taking a box of chocolates. So she'd take so much time opening the fly up that he would have lots of sex. But it went the opposite way.
+
+[00:09:36] Because then she spent so much time. He was like, well, I've finished. So another group basically stole back this half-eaten box of chocolates and rewrapped it to give to another fly. What are they wrapping it in? Oh, saliva. Nice. Yeah.
+
+[00:09:48] It's my favourite kind of wrapping paper. So some other questions I have about flies while you're here. So they flap their wings super fast, right? Yeah. They're like 300 times a second, which I find insane. But I was reading that some of them have, someone called it a gearbox mechanism, where you have, do they have grooves or something
+
+[00:10:04] and they can kind of change gear to make themselves go faster or slower? They have, they do have that. But flies probably are the most efficient and most amazing flies on the planet. But their vision is what's really important here because they see so much faster. So we are always half a second behind real time.
+
+[00:10:21] What? It takes us that long to process what goes on. So actually we're never in the present moment. We're always in the past. But flies are milliseconds, milly, mini, mini, mini, like nano. So hence why they do everything so much faster. Because so if I, and obviously I'm advocating, do not swat them.
+
+[00:10:38] But if you went to swap them, they would just see that as really slow motion. And at the last minute, they can just walk out the way. So if you do want to catch a fly, do it really slowly. Because then actually it appears like a solid object. Okay. They're like Neo at the end of the first matrix. Very much like Neo. Okay.
+
+[00:10:53] Yeah. Well, they have described that. Is that so? Yeah. What bullet time? Bullet time. Yeah. Bullet time is what they call it in the matrix.
+
+[00:11:00] when everything goes slow and bushy. Yeah, I should have watched. Spider-Man can do that as well, as you see in that scene in Spider-Man, and spiders catch flies. Ah, but there's flies that eat spiders. No. No, no, no, it is.
+
+[00:11:12] And they're so cool. There's three species in the UK, and they're called Accrocerra's hunchback flies, and they look gorgeous. And the female, she lays loads of eggs, but she doesn't lay them. She's basically got a machine gun as an oviposter, and so she just rapidly fires out hundreds of these eggs,
+
+[00:11:26] like, ch-ch-ch-ch-ch-ch-round. And she wants them to, that land on vegetation that's slightly raised off the ground. And then the larvae have got like a sucker on the end of them and they kind of like stand up in the air, that they just don't care, waving around. And then they look down and when a spider runs along, they kind of hurl themselves out the spider.
+
+[00:11:43] And then they run to the spider. By the way, they've got no legs. So you can, like, inchworm crawling to the spider, up the leg into the abdomen. Oh, I know. But what's really cool, if the spider is immature and spiders can live about five years, they would do a little bit of munching
+
+[00:11:57] and then basically go to sleep and wake up when the spider, is mature and they can eat the right organs. Really? So they're inside that they have a nap inside the spider. For two years? Three years? But it's not just spiders. So I read that there was a name here that I can't properly pronounce but
+
+[00:12:11] Lucilla Bufonivora. Have you heard of that? Buffy for shorts? Yeah. Lucilia. Yeah. And so they have a similar larvae thing where they go into a frog's head and then they eat the frog's head from the inside. And it's amazing. If you see the frog's heads, have you seen the picture. Yeah, I saw the photos. Yeah. Okay. Go and have a look at the images because it's like completely deformed, like collapsed.
+
+[00:12:32] It's like... Not sure we should be advocating this sort of behaviour. Your garden, honestly, if you really knew what was going on in it, it's just like... It's disgusting. Yeah, and everyone isn't about cute nature, and I'm like, mm-mm, everything is eating everything, ripping limbs off and eating their inside now.
+
+[00:12:55] Okay, it is time for fact number two, and that is my fact. My fact this week is that whenever he got really angry, Winston Churchill would throw his teeth across the room. Whenever? Well, not every single time, but when he got really angry, apparently that's when you knew the teeth were coming out.
+
+[00:13:14] So Winston Churchill had false teeth, dentures, and he had three sets of them. He had a dentist who made them for him called Derek Cudlip, and Derek Cudlip specifically made these teeth. And so he used to get called in to the war rooms whenever Churchill flung his teeth across the room because they would break. So he would arrive with a new set of teeth to give him to pop back in and then he would take the old pair and he would go off and he would fix them while he was gone.
+
+[00:13:42] So he used to break them a lot, Churchill, when he got angry. Some of it was by throwing it against the wall. The other times was when he was biting too hard through stress and anger of what was going on. And it was so important these teeth to him because as far as Churchill was concerned, part of the major push of winning the war was his voice, was him going on the radio and saying all these inspiring things. So when the call up came for the dentist to go to war, he tore up the paper and said,
+
+[00:14:09] it is more important for the war effort that this man is here looking after my teeth than it is for him to be fighting on the front lines. It was his technician, wasn't it? Cudlitt was the technician who made it, and then his dentist was Sir Wilfred Fish, both excellent names. So, as you say, he thought his speech was very important. and he had a slight speech impediment, so he had kind of a lisp,
+
+[00:14:30] and he thought that was a vital part of how he was going to rally the troops. And so he made them make specially designed dentures that were slightly soft so that he could actually preserve his lisp, so that he could make invigorating lispy speeches that he did. Amazing. Yeah. And you can, so the reason I know about this is because I read an article where a few years ago his teeth were auctioned off. So someone actually bought his teeth, and it was sold, I believe, by the family of Mr. Cudlip. And, yeah. I can't take that name seriously.
+
+[00:14:59] I'm sorry. But the really cool thing, the guy who bought them, he was a collector of Churchill memorabilia, and he already owned the microphone that Churchill had made a lot of these speeches into, and then he had the teeth that went with the microphone. So he said, in a sense, he had reunited them. I mean, all he was missing was actually Winston Churchill.
+
+[00:15:18] The Guardian headline about the auctioning of the teeth, I just have to read out. It was, we shall bite them on the beaches. Pretty good. Very good, yeah. I actually looked up as far as I could A list of things that had been auctioned of Churchill's So there were quite a few things
+
+[00:15:32] His funeral plans were auctioned They went for £472, a violin made from one of his cigar boxes Was also auctioned off And a Calgary Stetson, cowboy hat That was auctioned off as well I read the thing that was auctioned off It came with a DVD which showed a clip of him Putting on the hat
+
+[00:15:50] Presumably Which is kind of sensible because you want authentication One thing of Churchill's that went up for auction was a file of his blood and it was withdrawn from auction after the very understandable objections of his family members who said, we don't need a file of Winston Churchill's blood going up for sale.
+
+[00:16:09] But it was only put on auction at £300, which I think if you're going to do the really gruesome thing of putting a file of somebody's blood up, at least put it up for $50,000. So we were looking into this because obviously you go around the world and you go into all the nice big cathedrals and there's an artefact.
+
+[00:16:24] and it's like, okay, I have a finger of Jesus Christ and we're like, brilliant. And I've now seen, God knows, how many vials of blood of Jesus Christ. Really? Yeah, and so the scientist to me is like, oh, we should just sequence this. Yeah. You know, we can do it now. We've got the technology.
+
+[00:16:39] But with all the bones and all the art facts, apparently you can make like four, five Jesus Christ. What's the natural history museum gets sent? No, we haven't got sent notes. No, we don't get sent that sort of thing. Could you make your own Jesus Christ if you've had the blood? Well, it's it. No.
+
+[00:16:55] So it's not like when you guys brought back the IBEX in 2000. We didn't bring it back. No, it wasn't the... No, no. When I said you, I sort of meant... Don't do that. Don't do that. I sort of meant you guys as in all scientists. Okay.
+
+[00:17:08] I'm going to say, Diptra. I'm not doing anything like that. Well, another Churchill relic is... Went to auction in 2015, and that was the stub of one of his cigars that he had smoked while in hospital, in his hospital bed. times have changed
+
+[00:17:24] but you can get a lot of that out there cigars of Churchill's little stubs there's plenty of them around they keep going on auction and the reason is that he never used to finish a cigar he used to only smoke them halfway through and there's a lot of accounts of Churchill being very acutely aware of the fact that the cigar was his trademark look
+
+[00:17:44] so there's accounts of him as they're pulling up to places him saying stop the car and he'd light up a cigar and say branding it's all about branding you wouldn't say that exact way Branding's all about branding. In 50 years, that's going to be a Churchill misquote, and it's going to be your fault. Branding, it's all about branding.
+
+[00:18:00] It was something like that. He does seem very corporate, though. Yeah, exactly. I mean, if he's worrying about how he speaks and his teeth. Well, and of course, the thing with his whiskey drinking where he knew that whiskey was part of his image and he massively watered down his whiskey all the time because he didn't want to be drunk. But I think that's fair enough. I think it's good that he wasn't absolutely smashed all the way through the wall.
+
+[00:18:20] Obviously, that's fine. But you didn't have to... He didn't have to do that. Yeah. It's all very, as I believe he once said, branding, it's all about branding. Just on his cigars. His mom hated the fact that he smoked cigars. And she said to him when he started, she said him when he was 15.
+
+[00:18:37] If you knew how foolish and silly you looked doing it, you would give up immediately. And I just, I love the idea because parents always say that when you start smoking and you're 15. They're like, you look like an idiot. I know you think you look cool. And Churchill's mom saying to him, you look like a damned fool, Churchill. And she actually paid him to give up. smoking, so he did give up for six months. I think you've, like, done a really bad public health message there.
+
+[00:18:58] He basically said, look, he turned out really well. Take up smoking. One day, you too could defeat fascism. What you said, Dan, about how he thought the speeches were a hugely important part of the war effort and morale and this kind of stuff. I was reading about the reaction to one of his most famous other speeches, the Dunkirk one. So just after the British Army had been kicked. out of France by the Nazis.
+
+[00:19:25] The speech, we shall fight on the beaches, and in all the other locations, at the first draft had it. Brackets fill in here, branding. Anyway, supposedly that reaction didn't, the speech did not get a great reaction. So when you read it out in the House of Commons, his wife, Clementine,
+
+[00:19:43] she told a friend that, and I'm quoting here, a great section of the Tory party were not behind Winston and had received his speech even in sullen silence. So lots of the, reactions were not actually as good as we think they were at the time. And it was more when the tide of the war turned a bit, for example, in about 1942, that they've really got a great reaction then.
+
+[00:20:02] Okay. Is it true that he basically just used Anglo-Saxon words in that speech? Ooh, I don't know. Because he really went like patriotic. Patriotic. So he tried to use any other words. So it's all very solid old English words. That is so fascinating.
+
+[00:20:19] Yeah, yeah. Even though they're kind of Germanic in origin. really he should have been using some nice romance languages like the French. That wasn't going so well. So the original speech when Churchill made it wasn't broadcast because the House of Commons wasn't wired for sound and on the radio that evening they said Churchill said these things in the House of Commons today and then quoted him.
+
+[00:20:40] So where did we get the recording, sorry, of the Beech's script if it wasn't recorded in the House of Commons at the time? Churchill re-recorded them later on. No way. And in fact, he recorded them after the war was over. He's so corporate. That is so corporate. He is a way.
+
+[00:20:52] Is it slick, isn't he? That'd be like Obama getting into a recording booth and doing his Yes, we can speech again. You're absolutely right. It was in 1949 that he recorded these. And these were the ones that were sold by EMI and I think possibly Decker too. And they were sold in the States as well. This is honestly so disappointing. I reckon I've definitely listened to those at some point after a bottle of wine
+
+[00:21:14] and got really emotional and I thought, God, it's like I'm right there. And that's just him sitting in 1949 in a little white business room. That is so depressing. It's the experience of hearing them is very emotive. And I think when you hear those words, you know, we can all remember him saying how he says, we will fight them on the beaches. We actually says we will fight on the beaches, so there we go.
+
+[00:21:35] Oh. I mean, in doing it later on as he did, he could probably add more emphasis because he knew how it turned out. Yeah. So he can like really go, hey, look, this bit. Yeah. And everyone's like, wow, you're amazing.
+
+[00:21:48] I've got a funny feeling guys. We're going to win. We're going to be successful in that bit. Okay, it is time for fact number three, and that is Chazinski. Yeah, my fact this week is that art galleries wedge marbles between paintings and the wall, so that if anyone tries to steal the painting, the marbles fall on the floor and make a clattering noise. And that's just a classic art gallery anti-theft device. Is that a classic?
+
+[00:22:18] It is a classic, yes. I read this in Salon, and it was in an article called How to Foil an Art Heist, and the person who wrote it is someone who advises museums on this kind of thing and galleries. And he said he can't name the museums who do this because they don't want to give away their really advanced tactics. But yeah, apparently this is quite common, especially if there are galleries that have budget constraints. He just shoved some marbles, wedge them between the painting in the wall. And as you can imagine, if a thief tries to lift the painting off the wall and they go clattering to the ground, the thief might scarper. Yeah.
+
+[00:22:49] Or trip, or trip, yeah. Outside my flat when they put the garden gates and they were like, have it. you have this extra bit on top of the garden gate, which is really flimsy. So if someone tries to climb over, that smashes. Oh, wow. And it's, yeah, so a lot of people, it's like, oh.
+
+[00:23:06] It's the home alone method of defending your gallery, isn't it? The galleries also recommend installing tarantulas around the place. And little cardboard cutouts of people to make it look like the galleries always open. Yeah, they're just dancing all the time in the window. So you wouldn't have tarantulas. That would be like the worst. They can only just flick hairs. You want to really go for something else.
+
+[00:23:25] than the tarantula. What'd you go for? I'd go for a deaf stalker, scorpion. Death stalker scorpion. Or a squalopendra, like the big centipedes. Here you go, tips. I'd just say, they're pretty more aggressive. I'd love if you were in charge of security somewhere.
+
+[00:23:40] I know. It's so good. I'd have flesh-eating spiders, but they go away and slowly these necrotic wounds carried on eating them. We have lots of problems because, obviously, in the old days, natural history collectors were very obsessive. obviously we're very normal nowadays.
+
+[00:23:56] A lot of people would come in with various different apparel to actually go through the collections and pick out specimens they hadn't got in their own collections. So this is the era of top hats and things like that. So underneath, they would have like foam bases in the top, in the inside of their top hat. So they'd go into the collection, stick a load of butterflies in it, put their hat back on and walk out.
+
+[00:24:20] No way. And these were collectors who just wanted to steal from the NHM Because they wanted the stuff for themselves. There's some very famous cases. And there's a lot of people who, I mean, that's wrong. But what they did, a lot of them was even worse. They took the data off the specimens. Now, to me, that's like you might as well.
+
+[00:24:37] It's like, oh, and then it's ruined. It's ruined for life. There's nothing we can do with it. You don't know when it was collected or away. It is just a dead stage or whatever. So you know what? Steel and hopefully we'll get it back one day because some child in the family, like three generations on would donate it to us. But if you take off the data, that's it's dead.
+
+[00:24:53] It's double dead. Why would you take us to us? There's nothing we could do with it. Why would that, so they sort of take, they leave the thing behind, but they just take the, you had a very famous person. Mine at Teggen, he did it all the time. And he also put on different data. And it was like, ah.
+
+[00:25:12] Just to mess with you? No, was he trying to build up his own collection? Yeah. Was he trying to prove, sort of say, I've collected all these things. He was trying to make himself to be the most amazing, like, collect at the time. And it was like, ah. Yeah. and that's why we're very careful about security.
+
+[00:25:26] And top hats no longer allowed. No longer allowed, no. I think I found the most prolific art destroyer who was not a thief of art. It's a woman called Mrs. Brightweiser, who was the mother of a French art thief and destroyed the art that her son had stolen when he asked her to destroy evidence.
+
+[00:25:49] And I've got written down here that she destroyed a billion pounds worth of the art. stolen. Very prolific art thief. Why didn't he destroy it? You can't get your mum to do your dirty work. I know, but he's not the only one. So there was a thief called Radu Doguru who asked his mom to burn all the artworks he'd stolen so that the police wouldn't find them.
+
+[00:26:07] And she did. She put them in the stove and she burned them all up. And then forensic experts had to go through all the ashes in the bottom of her stove and pick out tiny, tiny bits of, say, Picasso's signature. Whoa. Like tiny, you know, fractions of a millimeter long. Yeah. Just so they could measure them and say, that is the kind of it.
+
+[00:26:23] paint that would have been used in this monoe or whatever. Yes, yeah, yeah. These for sad little boys living in their mum's attic, doing their crime and then bringing it home to their mummy to sort out. It is bizarre. There have been two separate cases of, you know, getting your mum to destroy the art you stole that is weird. Just been reading.
+
+[00:26:42] We have a depot which exists somewhere in the UK and a cat broke in and it took a fence to one of the specimens and it just kept knocking it off and so they'd come every morning and it was like put it back up, could never find this cat. And it was only like CCTV, because they were like, this is really weird. Why is this one specimen? Always off. You brag about the great security you've got, but there's a cat that keeps repeatedly breaking in. But we know that cats are naturally very good at that.
+
+[00:27:09] They are good at that. I've got one last thing, which is this is a really cool example of security in a museum that, this is at the Museum of English Rural Life. And it's a bit of security they didn't realize they had. They have within their collection on display a 150-year-old mouse trap. And they came in one morning and sitting inside the mouse trap was a mouse, caught in present day, as in the last few years. And so what it was is while they're doing renovations, some mice managed to get into the museum, had managed to get through the little casing and got caught by a mousetrap that had been set and built in 1861. That is so cool.
+
+[00:27:51] Yeah, by Colin Pullinger and Sons of Silsey, West Sussex. And on the side of the box, it boasts perpetual mousetrap will last a lifetime. Longer than. Someone needs to write in longer than before that. Yeah. That's super cool. That's pretty cool. One of the silliest things we've ever had stolen from the museum is coprolite is done from a dinosaur.
+
+[00:28:14] Oh, yeah. Oh, yeah, the Putham. There's market for that. I wonder what he wants to do with it. It's the coolest coprolite out, surely. Yeah, exactly, exactly. You know, I mean, you can get any sort of... There's a museum of poo in the Isle of White.
+
+[00:28:26] Did you know that? No. Didn't you know that? They freeze, they liquid nitrogen, they freeze these poos in spheres. Just normal human poos or... Are they accepting donations? Apparently, there's a waiting list. They're trying to get different animal poo and whatever.
+
+[00:28:42] We've been in contact. So it's not fossilized ancient poo. It's just a dog poo you pick up on the street. No, no, I mean, they're not quite selective. Okay. They don't take any old shit. It's got to be pedigree. Pettigree poo.
+
+[00:28:54] God, I don't want to know what the gift shop looks like. That's not open to the public, though, is it? Yeah. What? Great. Isle of Wight, visit. Here we come. Okay, it is time for a final fact of the show, and that is Andy. My fact is that prisoners in Siberia used to eat prehistoric animals they found frozen in the ice.
+
+[00:29:19] Is that really true? So what kind of animals? Mammoths? All kinds of animals. Really? Mammots. Dinosaurs. Who said?
+
+[00:29:25] Well, okay, according to Alexander Solzhenitsyn... Okay, he's reliable. He's very reliable. He was a prisoner in Siberia for a very long time, a very famous Russian author, and he wrote a book called The Gulag Archipelago, the idea of this sort of huge chain of islands of gulags spread across Siberia. Siberia is absolutely enormous,
+
+[00:29:43] and it's where Russia traditionally sent all of its dissidents and, you know, any troublemakers. And it's on the first page of his book. He writes about some prisoners handing over some prehistoric squirrels they found, ground squirrels to the camp geologist of the camp they were in. But he also said that on other occasions, prisoners had just devoured these things on the spot because they were so hungry. Other people have disputed it.
+
+[00:30:06] They've said there wouldn't be much left of a ground squirrel, even if it had been frozen. It would have, you know, petrified, gone very hard. So he claims that other people have said, is this possible? They get hard like wood. Maybe they were just fish that had been stuck in a frozen river. But it's possible, yeah. Yeah? Yeah.
+
+[00:30:22] So there've been lots of reports for hundreds of years. of people eating prehistoric animals, haven't there, which I think people say are mostly apocryphal, and it's often mammoths. Well, they did, when the baby mammoth,
+
+[00:30:34] and they defrosted and all the blood started leaking out, there was, and I don't know if they actually took from that one, but they have eaten bits of mammoth. Was that the one that was found quite a couple of years ago? Yeah.
+
+[00:30:44] Who would they? The researchers. Oh. Yeah, it was like a big thing. And, um, that's a pretty, is that a risky thing to do? I mean,
+
+[00:30:52] if the, if the animal is frozen and it's kept constantly be the zero degrees, it's fine, which doesn't happen basically in the environment. But if it goes up and down in temperatures and it defrosts and then refreezes, that's when you're getting all the mold and the bacteria being actually frozen into the specimen. So that's when you can get all sorts of craziness. But if you heat it in the microwave for a minute, that should be fine. Because the average mammoth is going to fit in a microwave.
+
+[00:31:19] There was, was it Alexei Tickanov has tried mammoth. I think he might have been one of the zoologists on that expedition. Well, anyway, he said he's tasted mammoth, and it was awful. It tasted like meat left too long in a freezer. I mean... Which... What are you expecting me? Just on things found in ice, I read a really cool story that.
+
+[00:31:38] In 2010, researchers were looking in Shackleton's base camp, and they found underneath the floorboards a crate of old whiskey. And they brought it up, and it was frozen. But when they were de-frosting it and they were swirling around the bottles, they could hear liquid inside. so the whiskey was still usable. Now, obviously, they were never going to drink it. But the particular whiskey that was there was from a company called McKinley,
+
+[00:32:03] and they'd lost the recipe since. So basically, we had the recipe again of a lost whiskey. So what they did was they flew it over to Scotland, and there's a new company called Wyatt and McKay, who bought McKinley, and they put syringes through the cork, and they managed to get the whiskey out, and they managed to replicate the recipe of what that long-lost whiskey recipe was and they made 50,000 bottles so they sold it as a sort of limited edition
+
+[00:32:29] $157 American per bottle. It's not unlimited is it? You know when you get something limited edition you think God it's only me and 10 other people. I guess everything is a limited edition isn't it? Because no one's ever made an infinite number of anything yes. But so then they sent the bottles back to the base so it's still there as part of what was what did they call it? What did they call it? Oh I don't know. I think they called it just what it was. They didn't call it shackleton. No, they should have. The American audience would have loved that.
+
+[00:32:57] Yeah. Just on these ancient animals that are being found in the permafrost and things like this. So one really useful thing is squirrels because they made nests and they made nests of all the local flora. And so it's like a densely packed nest full of the kind of species that you would have had growing in the Ice Age. It's a frozen herbarium. Yeah. So you've got all these densely packed nest. different species just gathered very conveniently in one place for the scientists to look into an
+
+[00:33:27] examine. That's great. And this is the amazing thing. A few years ago in 2012, scientists grew the most ancient living organism, multicellular, on the planet. It's a plant, little plant called Cylene stenophila, and it was brought back to life by these seeds that the squirrels put in their nest. The seeds were 31.5,000 years old, and we grew them into a plant.
+
+[00:33:52] And they still work. And they still work. and now we have lots of these things. And it's quite beautiful, isn't it? Is that really delicate looking white flower? I think so, yeah. With a white flower on top. Yeah, it's really lovely.
+
+[00:34:01] Wow. Yeah, that's incredible. Can I ask a quick question about, so has the Natural History Museum got a woolly mammoth that's ever been sort of thawed out of the ice? I don't believe we have any. And the one that came to us to visit and everyone got to see went back again.
+
+[00:34:17] Okay. So it's like, yeah, you can look. Yeah. So it's really, apparently one percent only of the woolly mammoth. that get dug out of the permafrost or that thaw out of the permafrost ends up in end up in scientific hands. Interestingly, elephant tusks are sighties. Mammoth tusks aren't.
+
+[00:34:33] So they're not protected in terms of like under the, yes. So you're not allowed. Because they're not considered rare enough. I mean, you can't really protect the mammoths anymore, can you? But you can stop the tusks from getting into the wrong hands, right? You could say this is protected as in a museum has to have that. Yeah, but we haven't got legislation for that. Really?
+
+[00:34:51] On other old foods that have been eaten, there's bog butter. Bog butter is a way that people used to store butter, and they would put it in bogs. This is especially in Scotland and Ireland, and it would be preserved. And I think recently we found 300 packs of bog butter, so there was a big uncovering in a swamp in Ireland. And it was up to 1,400 years old. And this woman called Helen Lucy Burke, who I think is a journalist, went to the museum where all this bog butter was on display, 1400 years old and it was being suspended on a plinth. And it's like cheesy, lardy butter.
+
+[00:35:26] And she just grabbed a bit of it and ate it. Which is quite cool. And she said it wasn't disgusting. It wasn't very nice. It was cheesy, ripe and athletes footy. I mean, but that sentence would be disgusting enough if you had a friend who just grabbed a bunch of butter and started eating it.
+
+[00:35:40] So like, what, did she have it on anything? Did she have toast with her? Just on its own. I think it was quite solidified by that point maybe. Oh, right, like a biscuit. I quite like butter. Just by itself. Yeah, but you wouldn't just stick your hands.
+
+[00:35:50] I know. Really? Yeah. You're kidding. I just, it's one of those things. Like a cat. I don't like chocolate. I like butter.
+
+[00:35:58] Oh, really? Which is healthier. Just eating chocolate or just eating butter. Both are bad. Don't hot. They're good in small amounts. It's not like I have like a pack of butter. Who would die first?
+
+[00:36:08] You only allowed to eat butter or me only allowed to eat chocolate. Well, at this rate, chocolate's dying out, so you would have the worst sauce. What? Chocolate's dying out? There's a problem, isn't there? There is, because the pollinator's dying out. And you know what the pollinator is? It's a fly.
+
+[00:36:21] Is it one specific fly then? Well, we think there's about 14 species. We don't know. Well, can't you bring them back? Isn't this what you do? No, it's you're creating a habitat problem for them. I don't blame me. I'm just saying it's you people who are with your mass demand of chocolate.
+
+[00:36:34] You've gone out there and you're like, okay, let's say our monocultures. The adults have come along and they're like, oh, don't like this. Oh, so they're genuinely like, this is limited stock. Like, this is actual limited stock. Just grab your chocolate now. Stick it in a bog. And then you'll be fine. Okay. Wow.
+
+[00:36:49] The nearest box. By the way, are mosquitoes flies? Yes. Okay. I thought there might be something else. Is it Daddy Long Legs a fly? Ah, what are you calling a Daddy Long Legs? Oh, there are two, aren't there?
+
+[00:36:58] No, there's three now. They've added a third one just for fun. So, you know, this is why I shouldn't use common names or anything. So you've got the Daddy Long Legs, the Flying Thing, which is a crane flight, true flight. That's the one. The second one is a Pillions, which are harvestmen. And the third type is the Daddy Long Leg Spider, which is the one that used to be called a cellar spider. It's the one that hangs around in your living room.
+
+[00:37:19] Oh, it's very... Windly. Yeah. Okay. And that can't fly either. No, but that's a spider, so that is venomous. Are there any spiders that can fly? Nope.
+
+[00:37:27] Unless they're using feretic behavior. Oh, I'm kind of lying. Because balloon spiders, they balloon. So they exist. So they can get up in really high up. Wait, hang on. How do they float up? No, they really silk.
+
+[00:37:40] It's the silks. Do you remember? Oh, yeah. They're reversed parachuters. Yeah. They go ground up. That's like saying we can fly, isn't it? That's like saying we can fly because we rope climb.
+
+[00:37:50] Oh, well? Yeah, because they're using threats. It's just literally released into the wind. Yeah. And because it's so thin and they're so small, the viscosity of the air is such that they can go, and it's them. The only equivalent is if I let out my sperm whale-sized sperm
+
+[00:38:06] and that caught the wind and dragged me to the end before Yusain Bolt got there. Your road on it. Yeah, exactly. Extraordinary scenes at today's Olympics. Okay, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland. Andy? At Andrew Hunter M. Erica. Flygirl MHM.
+
+[00:38:38] And Chisinski. You can email podcast.com. Yep. Or you can go to our group account, QI Podcast, or go to our website. No Such Thing as a Fish.com. It's got all of our previous episodes. And do get Erica's book. It's called The Secret Life of Fly. It's available. You can get on Amazon. It's going to be in bookshops. Why not go to the Natural History Museum? Buy it from the shop there. Track down, Erica. Get her to sign it and have a chat. Track her down. I said I'd only sign for wine. Oh, okay. All right. There we go. We'll be back again next week with another episode. We'll see you then. Goodbye.

@@ -1,0 +1,89 @@
+# No Such Thing As A Fish - NSTAAF International Factball: Germany v Portugal
+
+- Episode date: June 15, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/nstaaf-international-factball-germany-v-portugal
+- Slug: nstaaf-international-factball-germany-v-portugal
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish presents the World Cup of Facts. This is the only World Cup podcast out there that makes absolutely no mention of football whatsoever. Brought to you by the QILs in association with visitinglin.com. My name is Dan Schreiber. I'm sitting here with James Harkin, Anna Czenski and Andy Murray. And today's match is Germany versus Portugal. Okay, I have some German words to kick off. Okay. There's hanschuchnebalwerfer, which is someone who uses gloves to throw snowballs. Why would you need to use that word? It's like a weed, basically. Another word for a weed is a wamdusche, which is someone
+
+[00:00:38] who has warm showers, as opposed to icy cold showers in a Bavarian waterfall or something. That's hansch. That's really good. Do you know the word shattenparker? No. It's someone who parks their car in the shade. Of course. What else could it be? Actually, the Germans occasionally take English words into their language and they have an Anglicism of the year competition. A couple of years ago, the best English words to go into German was shitstorm. And last year, it was gate. Gate? What? To mean gate? As in watergate? I think it means like a media storm. Yeah. Yeah. That's brilliant. While they're taking in new words from different countries, they're actually eliminating words as well. One specifically, which is the longest
+
+[00:01:26] word in the German language and a regional parliament has officially eliminated it. What is that word, Dan? I can't wait to hear you say it. It is. And that goes the rest of the podcast. It's 63 letters long. It's something about meat. Something about meat. Yeah, it is. It's pertaining to the testing and labeling of beef. Nice. But it's gone now. It's out. They're done. But what about all the times you need to use the word that means pertaining to the testing and labeling of beef in everyday conversation? Well, what happened was that it was a law because
+
+[00:02:06] of the BSE crisis. And so they didn't want the English beef to go in there. So they came up with this word that will explain about the testing of it. And then they repealed that law so they don't need it anymore. That's definitely a way to guarantee that BSE returns. Well, thank God that's all over. We don't need that word anymore. Let's get rid of the word Ebola as well. It's asking for trouble. Moving a bit away from language, in 2008, I really like this, the German poet Friedrich Schiller was sent a reminder that he should pay his TV and radio license fee, which is fine, except that he's been dead for 200 years. Wow.
+
+[00:02:41] Just about to say that. Like, he wasn't really a TV watcher, was he? Was Schiller the one who kept rotten fruit in his desk to help him write? Oh, wow. That's cool. Why? Eating it helped him write, or just having it at that. No, it was the smell of it, I think. Or if he didn't write any, he had to eat some of the rotten fruit. It might not be Schiller, I'm not sure, but yeah. That's a great fact, if so.
+
+[00:03:01] Germany invented the Cuckoo Clock, which you would have always thought was invented in Switzerland. Yeah, the first Cuckoo Clock throughout the 17th century, all of the mentions of them are in Germany. There's a famous quote in a movie that all that Switzerland did was invented the Cuckoo Clock. That's what it is in The Third Man, the Ferris Wheel. And they didn't even do that. Didn't even do that. What have you done, Switzerland? We'll find out if you're in the World Cup, are you? Yes, they are.
+
+[00:03:24] Yes, they are. I'm sure we've done a lot of other great stuff we'll get to you. What I like about Germany is how they like to get naked. Yes, they do. They're the real natureists, aren't they? Even right in the centre of Berlin and Munich, you'll find, yeah, nudists. I think it's the teargarten in Berlin. Well, one of the leaders of the naked culture movement in the 1920s was called Adolf Koch. And he hadn't changed his name as a publicity, as a PR thing.
+
+[00:03:51] No, no, no. It sounds like I made that up, didn't it? Yeah, no, no. He was called Adolf Koch. Nominative determinism. It comes back and back. How would you guys tell the difference between East and West Berlin from space? Well, because the most easterly of the area will be East Berlin. Because of seeing the other space. Oh, we smart. What if you're disoriented in space and you need to like orient yourself? So, Chris Hadfield took a picture from space and...
+
+[00:04:19] Chris Hadfield being the former captain of the International Space Station. Indeed. So, he's on the International Space Station and he took a picture. And in East Berlin, it's yellow. It's got a yellow hue. And in West Berlin, it's got a white hue. When it was back, when it was separated from West Berlin, then they could only afford sodium. It was more budget friendly to have these sodium lights and they give it for yellow light. So, that is really cool. That is a good fact.
+
+[00:04:41] Yeah, it is quite cool. If you look at the picture. Yeah. If I'm ever disoriented in space and can only see Berlin. It's a foggy day in the rest of the world. And for some reason, you need to know which East. It's going to come in handy. I'm telling you, you'll thank me one day. Yeah. Remember the thing that they did when they had hyperinflation in Germany in the 1920s? Money wheelbarrow, isn't that kind of thing?
+
+[00:05:03] Yeah. The amount that money was going up. And they had like 10 million mark notes and things like this. And it caused a problem called zero stroke. And people would... Because they were seeing so many zeros and all the money and when they were paying bills, it was trillions and trillions of pounds. They became really confused when they were referring to numbers. And so, people would say that they were 10 billion years old.
+
+[00:05:24] Or they had 40 trillion children. That's great. That's very funny. I think it was started by birthday candle manufacturers. Okay. That's the halftime whistle there. Germany putting in a stellar performance. And now it's time for our halftime show, which comes in the form of a quiz brought to you by visitinglin.com.
+
+[00:05:47] So we're going to start with James for the first question of this QI quiz. Okay. My question is, what could you not do in Frinton on C until the year 2000? Frinton on C. Frinton on C. All right. Andy, my question is, which Disney character is buried in Gravesend in Kent? What? What?
+
+[00:06:08] Will it be Ariel? Will it be the Genie? Will it be Mickey Mouse? No guessing. No guessing. Is it one of Monsters Inc? No. Is it Simba?
+
+[00:06:21] Is it Boba Fett? Is it Lassie? No guessing. I'll tell you at the end. Okay. I reckon I know who it is. Do you know it, Dan? I think I got it. Yeah. Yeah. You're busted, mate. Okay. Question number three, Anna.
+
+[00:06:32] Why did the first Oxford University students not study the Aztec Empire? Dan's looking like you might know that one as well. Is it Baloo? Okay. Well, if you want to find out the answers to these quiz questions, I certainly know that I do. The Disney character, I think I know it. Stay tuned to the end of the episode, where we're going to reveal the answers. But now it's back to the match.
+
+[00:06:53] Second half, Portugal. So where have we got Portugal? Well, Portugal is the biggest country in the world, pretty much in the 16th century. They owned so much of the planet, they would like the USA of their day. Wow. Was that because of Brazil? Yeah. Well, they had bits, they had placed in Africa and placed in Asia
+
+[00:07:11] and also in Brazil as well. And they were just an absolute world superpower. And they invented a lot of the food, which we think of as being from that part of the world as not. So, for example, you think tempura is Japanese. It's not. It's Portuguese. It's Portuguese. Yes. Yeah.
+
+[00:07:25] Portuguese missionaries took it there in the 16th century. And then, you know, everyone now thinks it's a Japanese invention. Also, vindaloo is Portuguese. Is it? Yeah. Concerning the Portuguese dish, carne da viña da los, which is a dish of meat, usually parked with wine and garlic.
+
+[00:07:42] So was that, that was in the 16th century, that it was the biggest country in the world? Yeah. I would say so. I've got a football fact, which I know. I think it's quite interesting. The Portuguese team this year for the World Cup have six bodyguards. Four of them are for renown.
+
+[00:07:59] Oh, really? Yeah. The two are for the rest. And the other two are just reserves. In the last couple of days, they've called him the most marketable footballer in the world. Above Beckham. Yeah.
+
+[00:08:11] Well, Beckham doesn't play. Yeah. Hey, guys, this is not the football podcast, please. Oh, sorry. Can we start? Yeah, sorry. 00:08:16,320 --> 00:08:17,120 Sorry.
+
+[00:08:17] So, Andy, why don't you bring us back to something non-football-related? Okay. In 1974, Portugal's entry to the Eurovision Song Contest was used as the signal to start a revolution, which is probably the most significant Eurovision song of all time. The song was called A Depois do Adios, and it was used as the signal to start the Carnation Revolution. It was basically, let's go, let's start fighting. Yeah.
+
+[00:08:38] It was when they overthrew Salazar. Yep. It's bizarre. Between 1910 and 1926, Portugal had 44 governments, 20 military takeovers, and 12 presidents. I read a thing about a Christmas tradition of theirs, and it's not only done in Portugal, it's a few other places. During Christmas time, they like to build a model village of Bethlehem. Like a nativity scene.
+
+[00:08:58] A nativity scene. So, they have a model village, basically, of the nativity scene, but there's an extra character who joins in into this scene. So, you have Mary Joseph, baby Jesus, and a guy who's called a cagana, which roughly translates in English as shitter. And the shitter is a little figurine that is traditionally a man that's placed into this scene, and he's in the act of defecating his pants around his knees.
+
+[00:09:24] He's bending over with a pile of feces at his heels, and he's usually placed in the corner, probably because he needs privacy. But if anyone wants to Google this... Why is no, hang on, no, why is he there? I'm not sure. They do that in the Basque country as well, I think, and in Spain a little bit. And in Spain. And sometimes they will get a famous person's face for the little boy,
+
+[00:09:45] so they might have David Beckham or Cristiana Ronaldo or someone. What, for baby Jesus? And no, that would be terrible for the cagana, though. And terrifying as well. If it was Ronaldo, they would have four bodyguards around him. What do you think the wise men are allowed to approach? Three henchmen. Just very quickly, because you're saying they do this in Spain as well.
+
+[00:10:07] One way of getting into Spain from Portugal is by a zipline. It's the only country in the world where you can cross the border via the zipline. It takes less than a minute to travel the whole thing. Is that including the stop for your passport check along the way? There's another guy on the zipline next to you who's checking your passport as you go. And it's, yeah, it's 2,300 feet long. You zipline into a new country. That is fantastic.
+
+[00:10:33] Does anyone want to include anything else? The film Forgetting Sarah Marshall in Portugal was renamed a nice pair of dot, dot, dot roller skates. I don't know why I haven't seen the film. That is the worst name for a film I have ever heard. Or the worst euphemism for breasts I've ever heard. Oh, I have one more tiny nugget fact if that's helpful. The most important Portuguese export is cork.
+
+[00:10:58] It accounts for its exports account for 70% of the world's cork. And cork sales represent 16% of its trade income, which is a lot. Wow, yeah, worrying because of all the synthetic corks. I know they're really in trouble. Okay, that's it. That's full time. That's the end of our match. But before we find out who has won today's bout,
+
+[00:11:18] we're going to get the answers to our visitingland.com QI quiz questions that were at the halftime match. So we're going to start with James. Okay. The thing that you couldn't do in Frinton on C until the year 2000 was visit a pub. Their charter explicitly forbade the opening of pubs in Frinton because they didn't want to attract the wrong sort of residents.
+
+[00:11:38] Okay, question number two, Andy. Do you want to have a guess? Yeah, I do. Have a guess. But can you repeat the question for us? It's which Disney character is buried in Gravesend in Kent? Okay. So I have two options that I want to throw up.
+
+[00:11:51] Go on. The first one is John Smith. Nope. The second one is Pocahontas. Yes, it's Pocahontas. Is it Pocahontas? Yeah. Ah, because she came back, didn't she?
+
+[00:11:58] They ended the movie as if she just stuck out there waving goodbye. I know. No, she went back. No, someone obviously hasn't seen Pocahontas 2 where she comes back and marries the man who she actually did marry rather than John Smith. That's true. She didn't end up with John Smith.
+
+[00:12:10] Yeah, but it's all in Pocahontas 2. Watch the sequel. I didn't even know there was Pocahontas 2. Yeah. Pocahontas 3 is a bit dull. It's just her rotting in the ground. Yeah. Okay.
+
+[00:12:20] Question number three, and that is Anna Chasinski. Yeah, the reason that the first Oxford University students didn't study the Aztec Empire was because the Aztec Empire wouldn't exist for more than another 300 years. That is a great fact. Okay. Well, there we go.
+
+[00:12:35] Those are our three answers. If you were playing but thought, damn it, that would have been good if there was a prize. I got some of those right. Why don't you head over to visitingland.com where there is an actual prize that you can win, QI goodies, signed books by the elves and so on, and yeah, have a bash.
+
+[00:12:50] You might win something. Anyway, we're going to find out who the winner now of our match today was, and that was Germany versus Portugal, and we're going to go to James to make the decision. Okay, I am going to vote with my stomach and go with Portugal because of their Vindaloo and Tempora. Okay, so that's it for this match.
+
+[00:13:07] Hope you enjoyed it. We're going to be back again tomorrow with another brilliant bout between two nations, and they are James. They will be Belgium and Algeria. Belgium and Algeria, nice. Okay, if you want to ask us anything about the things that we were talking about
+
+[00:13:20] in this podcast, maybe dispute James's stomach, you can get us on our Twitter handles. I'm on at Shriverland, James. At Eggshaped. Andy. At Andrew Hunter M. Ada. You can get me on at Quickopedia.
+
+[00:13:32] At Quickopedia. Okay, and we'll see you again tomorrow. For the next match, goodbye.

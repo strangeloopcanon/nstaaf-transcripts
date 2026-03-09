@@ -1,0 +1,245 @@
+# No Such Thing As A Fish - No Such Thing As Dr No Teeth
+
+- Episode date: June 9, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-dr-no-teeth
+- Slug: no-such-thing-as-dr-no-teeth
+
+## Transcript
+
+[00:00:02] Welcome to another episode and no such thing as a fish, a weekly podcast. Coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here with James Harkin, Andy Murray, Anna Chazinski, and special guest, Tim Minchin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Tim. Okay, my fact is that Bulgaria has an age.
+
+[00:00:37] agency that shoots rockets to kill hail. To kill it? To kill it. Well, to minimize it. It's preemptive strikes, hail strikes. So I thought all this weather manipulation technology was bollocks, but apparently it's not. So Bulgaria has lots of agrarian, Bulgarian land, and they grow stuff, and hail. damages crops a lot and because of its geography and its variable landscape there's lots of hail.
+
+[00:01:13] And so they use seeding techniques to, well, there are various ways you can lower hailstones by seeding. So do you want to know about it? It's super boring. I'll try and make it more boring than it actually is. So you basically, they discovered in 1946 or something that if you put dry ice, solid carbon dioxide into clouds, you can increase precipitation, basically, and later they found out that something silver iodide and potassium iodide also do it. There's various techniques, and you can drop them from a plane or shoot them up from a rocket, which is what the Bulgarians do. But in terms of fighting too much hail, the main technique is basically that you make,
+
+[00:01:59] you shoot these chemicals up, it changes the chemical structure of the stuff within the cloud. and it actually makes more small hailstones that compete for the available water. So by the time they hit the ground, they're no longer hailstones because they started too small. I think I've misunderstood the fact because I thought they were shooting rockets
+
+[00:02:16] at falling hail. I assumed it was like there was an attack happening and they were like when you shoot a missile at a plane to take it out in war. Like a game of space invaders. That would be amazing and with enough people and enough tiny rockets that would probably work.
+
+[00:02:31] But it's like, you know, those meteor or disaster movies, you've basically got one massive hailstone coming towards, so you need Bruce Willis. Exactly, that's what I'm picturing. That guy who sings Loving an Elevator or his daughter. Do you know that Armageddon fact about the fact that NASA, so they don't do it officially, but they unofficially show people who are being recruited for NASA,
+
+[00:02:54] the movie of Armageddon, and the job is to spot as many inaccuracies as possible. Oh, good. I think the... It's over 100 is. and everything. Yeah, I think it's over 200 men. So it's an icon of poor space fact.
+
+[00:03:04] Yeah, exactly. Yeah. So that's actually a thing that they sit down and... So I can't get the song in my head. Don't want to close. Oh, no one. That's the gay. I'm going to sleep because I miss you, baby.
+
+[00:03:16] Oh, so good. That's not inaccurate. That's perfect. Did I spot that? It was the only bit they didn't quiver with. How good the song is. But there's sort of dodgy technology. There's things called hail cannons.
+
+[00:03:29] So in medieval times, they used to ring church bells and fire cannons into the sky and to try and stop hail. But they have things that it's still in modern times called hail cannons which basically make an explosion at the bottom of what looks like a large loud hailer, ironically. And they send up a sound wave and it's meant to distribute hail and it doesn't work. And they essentially don't work.
+
+[00:03:53] Do they? But they're still marketed everywhere. If you look up kind of wine growers' tips and stuff in Europe, people will try to sell those things. And they are like gigantic ice cream cones a bit, aren't they? They're the same ones. They're like big cones. Yeah, they look like huge cones.
+
+[00:04:05] What you were saying about bell ringing, they used to do that to get rid of thunder, didn't they as well? Oh, yeah. So they would send people up a massive tower with a bell in it to ring the bell to get rid of the thunder. And they get electrocuted. Yeah. Because you're next to a massive metal thing really high up.
+
+[00:04:18] Yeah. I was reading just the other day about a miracle in the Middle Ages, which was where the church bell started to ring by themselves. Because they were so happy. So windy. That a particular... They were really thrilled that a particular... religious event or celebration.
+
+[00:04:32] So they started. They're wrong with themselves. Yeah, that's nice. Do you know what my favorite thing about this fact is that the person who discovered that silver iodide works as well or better than solid carbon dioxide in cloud seeding was a guy called Bernard Vonnegut. Right. In 1946. And I just, which is so weird.
+
+[00:04:57] And it's Kurt Vonnegut's brother. Get it. And the weird thing. Whenever I think of cloud seeding, I think of Cat's Cradle. I think of Ice 9. Yes. And his Cat's Cradle is all about an isotope that freezes liquid on contact. And it's, so that's obviously what he was reading and thinking about.
+
+[00:05:14] His Big Brother was, because he was a science nerd, but I didn't know. That's extraordinary. It's one of my favorite. It's a great book. That's an incredible book. Yeah. It's a scary book. I'm so glad for this hail fan.
+
+[00:05:24] Wow. Yeah. So the thing that you were saying earlier about cloud seeding, not thinking, that I had no idea that worked, and apparently it does. I was reading that the Beijing Olympics, for their opening ceremony, they made sure that they had no clouds by doing literally that firing rockets into the sky in order to knock them out. And is it proper science?
+
+[00:05:48] There are all sorts of question marks over it. Sometimes it works. So it might have been a coincidence that there just was no clouds. It's always hard to tell, basically, because you can't say it definitely would have rained. There's no control group. Yeah. No, and because the data set of any weather is chaotic, not climate, but weather, is chaotic. You can always draw inference where there was an inference, you know.
+
+[00:06:10] But there's no way. I mean, the Chinese government course would say, like, we got rid of the cloud. That's very in character, bless them. But it's not pseudoscience because you can measure impact, but the impact is never from 100 to zero. So it's percentages of manipulation. Okay. Have you read the accounts of people going in and doing cloud seeding? No.
+
+[00:06:36] It's so hardcore. People in planes, yeah, yeah, yeah. The people go in the planes. So a Bloomberg journalist went up with a couple of cloud seeders who were doing cloud seeding in Bangalore because India has drought problems. So they were trying to solve that by generating a bit of rain. And it's so what you do is you go under the hugest storm cloud you can find. and there's a big updraft in the middle of it
+
+[00:06:58] and you fly underneath that in your little plane and you let yourself get sucked up and I think you get sucked up at 800 feet per minute and so this journalist was just like I was in the back behind them just vomiting the whole time Then what? Then what?
+
+[00:07:11] So then they've got... You're not meant to fly into clouds are you? They've got all these rockets on the wings so they've got... I think he had eight rockets on each wing and it fires the substances off into the clouds and then allows them to seed but it sounds absolutely terrifying He said he couldn't lift his hands off his lap because you're going up so fast. There was a thing about, so when the USA was starting to get involved in a really serious way,
+
+[00:07:34] because they tried it over Lao during the Vietnam War, but also the USA had a national hail research experiment in the 70s, and it lasted for four years, and I think they closed it down because they hadn't got the technology right. But when they were doing it, some farmers were very angry about the idea because they thought that cloud seeding would reduce the rainfall and damage their crops the other way. And some of them fired shots at aircraft, which they thought were doing cloud seeding. Right. So adding to the risk of being a cedar.
+
+[00:08:03] Do you know loud, this isn't very cheerful at all, but I haven't remembered it since I went there about 10 years ago, is the most bombed country per square kilometre in the world because of during the Vietnam War. It's so weird. It's good to have a record of some description. Yeah, exactly. It's very proud of it. Yeah, it's on all their posters. The only other thing is they have all those jars, don't they?
+
+[00:08:22] They have the plane of jars. Full of unexplained jars. Yeah. We think they might have been for funeral uses. Putting bodies in maybe. Or they might have been for storing grain. It's just hundreds and hundreds of massive human-sized jars on a plane. Wow.
+
+[00:08:36] Fantastic. We don't know why they're not. Jars on a plane. Coming to summer. Do you know the biggest hailstone? No. 2010, a hailstone larger than a bowling ball fell on Vivian during an exceptional hailstorm. Wow.
+
+[00:08:52] Vivian is a town in South Dakota. Thank goodness. I was going to say, he didn't even get a surname, James. It's really disrespectful. She's like Madonna. The Hailstone obliterated her surname on her name tag. Wow. Have you heard about the guy who had weird blue hail fall in his garden in 2012?
+
+[00:09:16] Did you think it was urine from a plane or something? He didn't, because my urine isn't blue, James. is yours? I am going to have to see a doctor. George I had blue urine, didn't he? Parfairia. Okay, so this wasn't George the third's urine being cataported out of a plane.
+
+[00:09:32] But this was a guy called Steve Hornsby. He lived in Bournemouth, and it was in the middle of a hail storm, and these jelly-like three-centimeter diameter balls, blue balls, fell in his garden. I think about a dozen of them fell in his garden. And he said they were like squishy, jelly-ish eggs. And they don't know what they were. One of the researchers said that it might have been
+
+[00:09:52] a bird's egg, like an undeveloped bird's egg. And she said, birds' eggs have been implicated in previous strange goo incidents. And apparently because birds hold their eggs in their claws when they're flying. But if they're hit by hail, then they let go of them in a panic. And so this guy just had 12. Birds hold their eggs in their claws when they're flying. Apparently. Really? It's the premise of my movie. The whole first scene is a bird flying with an egg in its claws. So I hope that's right. That's a good spoiler. Thanks. We've got a scoop there. It's starting the beginning. Do you think critics will walk out if it's actually an actor to write it.
+
+[00:10:26] I can just picture a little kid next door to that guy in Bournemouth just throwing blue jelly over watching the dude's face and laughing the journalists show up. Have I taken this too far? I have a couple of things on Bulgaria. Did anyone look to go to Bulgaria? No, but do it.
+
+[00:10:43] Okay, first off I try to find a famous Bulgarian, which is quite hard. There isn't really any. Christel Stoichkoff. Okay, so we've got one. Any lead on one? I've got Simeon Saxicobo Gopher. Okay, so who's your football player? Yeah, and yours?
+
+[00:11:00] Mine was the Prime Minister of Bulgaria until 2005, but here's the cool thing. He was, he is one of the only two. Who had blue urine. Blue urine. He's one of the only two people who's currently alive, who was ahead of state during the Second World War. Oh, wow.
+
+[00:11:17] Whoa. Yeah. He was the Tsar of Bulgaria in 1943 when he was six years. years old, then the Soviets invaded, and he was exiled, and then he stayed alive and stayed alive for a long time, and then won an election in his native country in 2001. How cool is that? That is cool. We just imagine the six-year-old, I'll be back.
+
+[00:11:40] So you've got no Bulgarians? No, I do. I should just qualify and say internationally famous Bulgarians. But it turns out that the grandparents of Mark Zuckerberg are Bulgarian. and he's named after his Bulgarian grandfather, Marco. So he's there trying to claim him as Bulgarian. Also, I found one very good politician from Bulgaria who got fired in 2010 because he was playing too much Farmville while they were trying to.
+
+[00:12:07] So FarmVille's a game on an app. And he was fired and he was dismissed and they added in his dismissal that he would now have more time to tend to his virtual farm with his hail cannons. I thought they'd send him down to be Minister for Agriculture. culture. Yeah, you would think. And when he was, when he was dismissed, he came back and he said that he basically tried to explain himself and tried to say that he wasn't the worst.
+
+[00:12:32] He said he'd only reach level 40. Well as Daniela Zelokovar had the counselor from the rightest Democrats of the strong Bulgarian party was already at level 46. So he was furious. Outrage. Okay, it's time for fact number two, and that is Chisinski. My fact this week is that we judge. music more on how it looks than how it sounds.
+
+[00:12:56] What? What am I talking about? So this is an experiment that was done by researchers at UCL in 2013. And it was actually a sequence of seven experiments, and it involved over 800 participants. And some of them are musical experts, so we're professional classical music judges. And some of them were just amateurs, just plebs like you and me. And they... I take exceptions to that, Alan.
+
+[00:13:21] Except you, James. Different types of plebs. Yep. And they got them to listen to recordings of people who've been entered into classical music competitions and to tell the participants who they thought would won these competitions. And when the participants just heard a recording of the recitals, they had no better chance than just random chance at knowing who'd won the contest. And when they were watching the person performing at the same time as listening to them performing,
+
+[00:13:48] they also had no better chance than just what would be random chance. but if you muted the visuals and they just watched the person on the piano during the classical music recital, suddenly the chance of them guessing who'd won the competition went way up and they got like they were more than twice as like theater one. Why do we think that's the case?
+
+[00:14:08] At the start of the study, like 96% of the professionals and 88% of the amateurs said that they would judge almost entirely on sound. But actually they think that we use visual cues So we don't quite realize it. But when they say what they appreciate in the music, they'll say something like passion. And actually, they're getting passion out of the way that a performer is moving.
+
+[00:14:29] And they're thinking, oh, I'm really enjoying hearing this piece. I'm really appreciating the nuances and the music. But actually, they're just enjoying watching someone look like they're passionate. I just thought it was really interesting. Yeah, that is interesting. So whenever I've seen a band play, the one that's coming to mind is Mumford and Sons. There's a guy on the keyboards, right? if I ever see in a festival and he goes for it and he's like he's rocking on it but you know he's
+
+[00:14:54] just playing a G like it's just a G over and over and it's like why you why are you putting but if that was muted so it's not an acoustic instrument so yeah you can't get more out of it by hitting it harder or throwing you both but but it's the same watching a pianist player a beautiful acoustic piano and that you'll you'll watch some classical pianist sort of ease their body in and and their wrist down and they'll just sort of place their finger on the key. And most of the cue you're getting from that, the reason that sounds like a beautiful note is because of the approach. Yeah.
+
+[00:15:28] And you could go, you could get a robot to go, and it would sound exactly the same. Well, this is the thing, this is why they have blind auditions for orchestras these days, because they notice that they were. And the gender bias is insane. Yeah, and until the 70s or the 90s, about 5% of an orchestra was with female musicians,
+
+[00:15:48] which is obviously statistically surprising. Well, but of course the assumption was, oh, well, you know, their brains are different and they're physically not as capable, and so they can't cut it. And everyone just took that as given, oh, well, you know, women aren't as good as men at music. And then they started blinding the auditions.
+
+[00:16:06] And guess what? It's like 50-50. It's nothing to do with it. But they had some where they had blind auditions and still many more men were being chosen for the orchestra and the women. And they worked out a possible explanation, which was that the women were going and wearing high heels to the blind audition. Clip-clop. You heard the sound of their feet,
+
+[00:16:26] and that might have been subconsciously affecting people. Fools. They should have known. I mean, women are idiots. I'm sorry. They shouldn't have worn high heels. That was the point. That was the point I was trying to make that around it.
+
+[00:16:36] Yes. Is that women are idiots. It's great. Yeah, it's pretty depressing. This reminds me, this is a digression, but of blindings. instrument tests because have you guys discussed this? No, no, I don't think we are.
+
+[00:16:50] About the Stradivarius effect, you know, the knowledge that an instrument is, I guess it is very related. The knowledge that an instrument is worth a million quid changes not only the audience's appreciation but the musician. So a first chair
+
+[00:17:06] or a soloist, classical violinist will get on lease or buy if they're very lucky a Stradivari worth a million bucks and they'll play it and everyone will swear black and blue that it sounds better but if you
+
+[00:17:23] blinding this is quite hard because the wood smells different and it feels different in stuff but if you control as much as you can for those variables blocking their noses and just get the players to play it and hear it
+
+[00:17:37] they can't pick a Stradivarius from a thousand dollar Chinese fireland and this has been true for about 200 years they've been doing these stuff and it always shows no one can tell. But then every single year you get another thing saying, oh, it's because of the wood, it's a special kind of this or special kind of that. Do you know what's valid though?
+
+[00:17:54] I mean, I was thinking about this today with disease and psychosomatic illness and stuff that if you have someone with one of these umbrella diagnoses like chronic fatigue or there'll be this outrage if anyone suggests there's a psychological element to their disease. but that assumes a dichotomy between neurology and physiology that is something that increasingly we don't, we realize it's not true. So the fact that a disease has a psychological element or a neurological element, psychological and neurological are kind of indistinct. If it does have a psychological element,
+
+[00:18:32] it doesn't mean you're not still sick. It's just you're not necessarily sick. These people want it desperately to be a tick or a, or some kind of, kind of pathogen, but if you tell them it's neurological, they're like, no, it's not all in my head and it's like, it doesn't matter. It's all in your head in the end, pain and sickness, and it's all interpretate. And so with this violin thing, like, maybe it doesn't matter that it's bollocks, because the musician feels more passionate about their music when they play it, and maybe it changes their body language and changes the audience experience, and the fact that it's psychological is
+
+[00:19:05] fine, it's part of our experience. Yeah, it is. It's good stuff. We should keep lying. That's let's re-label all violins stradivarius. Let's just do it. And sell them all
+
+[00:19:18] for 200,000 pounds. If we do it bugger it up. You miss the point. If we do it and we cover it up 200 years from now, people will be enjoying
+
+[00:19:26] music much more. There was this guy in Stradivari. He made thousands and thousands and thousands by hand. He's still making them. It's amazing.
+
+[00:19:40] Quick thing about cognitive. bias, which this is kind of about, but which this is about, which is how we convince ourselves of things that aren't true, is that everyone, almost everyone thinks they're above average. And if you present people with most skills and you do studies on how good they think they are at skills and then you test how good they are at skills, people will think they're better than average at most things. So I think some things are particularly high.
+
+[00:20:07] So there's a study in 1977, which is quite famous, where 94% of people, you know, professors said they were above average in relation to their peers. So obviously this is people, we are so good at convincing ourselves of certain things. It's with driving a lot as well as well, isn't it? Is there a gender thing there? I bet men are worse. In driving, I think actually it was gender equal because I was expecting that as well and I was disappointed.
+
+[00:20:32] I bet men are better. I bet I'm above average at thinking I'm better than you at things. Do you know about that you guys discuss the Dunning Krueger effect? But there's also a correlative. between how bad you are. The gap between, it's slightly a misinterpreted thing, but the gap between how good you are and how good you think you are increases as you get worse at a thing.
+
+[00:20:53] Oh, wow. So it's sort of like the less you know about a thing, the less you know how bad you are at the thing. Yeah. So people, and the thing that people make a mistake with this data, which is very interesting data, is they think, oh, those people are so dumb, they don't know how dumb they are,
+
+[00:21:09] but it's actually all of us, in all of us we have things where the Dunning Krueger effect the point is it's the things we're shit at that we don't know we're so shit at you've basically written a song about that haven't you? The first song in Matilda
+
+[00:21:20] is basically like that oh yeah I guess the idea that everyone thinks their kid is above average yeah specialness as de rigour above average as average go figure
+
+[00:21:30] it's one of my best rhymes it's a children's musical you've got to go see it here you know come on you people okay it's time to move on to fact Number three, and that is James.
+
+[00:21:42] Okay, my fact this week is that the BFG's dream powder also helps against constipation. Oh, bless. Is that an edited chapter? So this is not in the book. This is a thing that I read by Aphelia Dahl, who was Roald Dahl's daughter,
+
+[00:22:00] and she was talking about her childhood. And before Roald Dahl wrote the BFG, he kind of had this idea already. And his kids couldn't sleep, and he was like, oh, you know what, there's a kind of a dream powder that people blow into your bedroom and it gives you good dreams, but it also helps for anything from maths problems to constipation. Okay? And then the kids kind of went to sleep and then he ran outside, got his ladder, put it up against the wall, ran up, put a bamboo pole into their bedroom and pretended to blow in sleep. Wow.
+
+[00:22:32] And then from there, that's where the idea from the buck came. Was there a... Supposedly they knew that it wasn't, that it was him, but they pretend. attended him afterwards. And was there a lot of constipation in the doll family? Not after this. They all immediately shut themselves. Oh my gosh.
+
+[00:22:52] They did once get suspicious, I think. So they said, how are we supposed to know that this is real, Daddy? And so they went downstairs and confronted him. And he said, how dare you question my truthfulness? And then the next day they said they woke up and opened the curtains and they saw the letters BFG burned into their law. And he loved his lawn so much. And apparently he was very angry about this.
+
+[00:23:13] And that proved to them that the BFG existed. So they were very easily convinced. He sounds like a great dad. Yeah. I was reading about the first movie of the BFG, the animation. And the original voice was meant to be Spike Milligan. And I'm very upset that it's not because I look at the BFG's face and I see Spike Milligan now. Right.
+
+[00:23:33] Yeah. And when he showed up to the audition, they said he had to go home and shave. I don't know why, because it was a voice job. Well, Dahl hated beards. Yeah. Oh, really? Aided beards, yeah. Was he a puginaphobe?
+
+[00:23:45] Yeah, totally. Yeah. What? That's what? Is that? Oh, is that the Twits? Yeah. He hates Mr. Twit.
+
+[00:23:53] I mean, that's really real. I've talked to Lissy about that. He really didn't like beards. Yeah, I think he wrote an essay in The Times that only came out quite recently, saying there are a hairy smokescreen behind which people hide. And, yeah, yeah, he really loat them. But is this true about beards that this is difficult? because he said that it was a bad representation of male vanity
+
+[00:24:13] and no man should be vain. But I would have thought that it's much more effort to shave. But he said, I think it must take at least twice as long to wash thoroughly a face that is matted with bristly vegetation so that no dirt or food remains among the hairs than simply to shave. But I didn't realize beards required that level of cleaning. That does sound phobic, doesn't it?
+
+[00:24:31] I mean, I've never considered washing my beard. Do you have to clean, like, comb food out of your beard every night before we go to sleep? Um, no, should I? What, according to dull. That does sound phobic though, doesn't it? It sounds like that sort of fantasy version of what a beard might be like. Yeah, yeah.
+
+[00:24:48] Or maybe just sort of thinking of big Dostoevskian beards and I don't know. So he had supposedly this cabinet of curiosities, sort of odd things in his shed, and I imagine you'll have seen all of these. Yeah, I was actually one of the last people to see it before it moved. Wow. And now it's in the museum in Great Missenden. Ah.
+
+[00:25:07] And he had some of his spine in a jar. Yeah. Because he had a terrible spinal injury when he a plane crash in the Libyan Desert during the Second World War. And he also had, he had a draw on one of his filing cabinets. And the handle of it was a bit of steel which had been put into his pelvis during an unsuccessful hip replacement. And so he said, well, I'll just turn that into a handle for a filing cabinet. That's great. He was medically, he was extremely unlucky, I think, in terms of people around him and himself.
+
+[00:25:36] wasn't he? Sad. So he lost his daughter and that obviously just destroyed him. But then Theo got, you know, his son got hit by a car in New York when it was a little tiny infant in a pram. But he invented this shunt. He got a model maker from down the road and a doctor who turned out bizarrely after I'd written Matilda. I found out as a friend of my granddad's. Wow.
+
+[00:26:02] Wow. My mom was reading his biography and went, Dave, this is your father. father's friend. So that was very exciting when mum got to meet Lissy. But yeah, he just felt that he should be out of fix stuff, you know. And it's such an interesting brain,
+
+[00:26:18] this darkness and light and the pragmatic versus the fantastical, you know. I just been absolutely intriguing guy. And it did, you know, you hear about people patenting things and being a bit wacky, but his invention genuinely did save thousands and thousands of children's lives, didn't it?
+
+[00:26:35] It was superseded. quite quickly, but it was huge. I think it was, yeah, very effective in his time. Three thousand children, I think, had it fitted. Yeah. And that's charity saves a whole lot more, and it's pretty incredible. Yeah. You know, you had no teeth.
+
+[00:26:48] Really? He had them all out in his 20s. It would have been a spy, because he was a spy briefly, or his sort of military attaché in Washington and the war, but he would have been a spy with no teeth. At that awesome time. That's a great book, isn't it, the spy with no teeth? It's on Ian Fleming's backup list.
+
+[00:27:06] Dr. No Teeth. They were friends actually, weren't they? Well, Donnie and Fleming. They worked together a fair bit. Or they knew each other release and had mutual respect for each other. And they both sort of worked for MI5 together at that time. And they worked on two movies as well. Yes, and they worked on films together afterwards.
+
+[00:27:24] Yeah. So did he do the spy who... No, he did. You only live twice. And he also did Chitty Chitty Bang Bear. Yes. Dahl, this is a thing I found out that I had no idea, is that he was buried with a power saw. Yeah.
+
+[00:27:36] Not that it was used to dig the grave I mean he was literally he's got a In his coffin with him or sort of in the I'm not sure whether it's a tomb But he was buried with his snooker cues Some burgundy Chocolates, HB pencils and a power saw We need to find that tomb
+
+[00:27:53] And get that burgundy We are low on wine He used to write for Playboy didn't he He did Yeah Wrote Playboy stories In fact Hugh Hefner did a thing where in one of the editions of Playboy
+
+[00:28:09] he included ten golden tickets and if you got a golden ticket in the Playboy copy you then got to go to the Playboy Mansion to an X-rated Wonderland Chocolate Factory Nine-year-old has the most dramatic day of his life This is just one tiny fact about dreaming because the BFG is about dreams
+
+[00:28:34] am I right? Yeah, yeah. So there was a study done in Germany about nightmares and the five most common themes for nightmares are falling, being chased, being paralysed, the death of family or friends,
+
+[00:28:48] and being late. Which is like, is that up there with all those other traumatic things that could possibly ever happen to you? Not knowing your lines. That's what I get. Really? Yeah.
+
+[00:29:00] Having to go on, not knowing my lines. Often, Shakespeare. Having to go on, in a Shakespeare and not knowing my lines. Would that be worse because a lot of people
+
+[00:29:09] are just going to know all the lines anyway. Yeah, probably. Shouting it out. Or not to be. I have a fact about constipation. Oh, please. So, this is from the,
+
+[00:29:25] you know, the Guardian used to do notes and queries. You sometimes find the very old columns online, basically. They have one question and a load of people answer. Have they stopped doing it now? I'm not sure,
+
+[00:29:34] but a lot of them look archive now basically. But they've got, there was a thing about old books, right? And a couple of people wrote in, and one person wrote in saying, the father of a friend of mine used to find that breathing in the atmosphere of a well-stocked secondhand bookshop, the mustier the better, was a certain cure for his acute constipation. Now, that sounds like the Mariko Aoki phenomenon. Yes, exactly. There's a phenomenon we've talked about on this podcast where it was this woman, I think Mariko Aoki, where she had, where she was overwhelmed by the urge to have a poo when she was in a bookshop. I wonder, and there's another letter who's, another person second down, wrote,
+
+[00:30:10] I first became aware of this little known side effect of my interest in old books some years ago and have been plagued by it ever since. I'm reassured to know there are other sufferers. I think we might have cracked the phenomenon. Well, you do get a lot of kind of, not bacteria, but fungal spars, don't you, in all books? So maybe it speeds up the process. It might do. Yeah, it must do. I thought it might be associative. So these people are people who read their old books. books on the loo and their brain goes, oh, old book, Putin. That's an amazing theory. Can I just, there's one cure for constipation that I like that I didn't know about, which
+
+[00:30:46] is the violet ray device. And so I think this was kind of sort of invented by Tesla. So it's an electrical device, which was used to cure a whole bunch of stuff as late as the 1930s. And it basically used electrophotherapy to, and you put the instrument that puts an electric current through whatever bit of your body is ailing, you put it on that and it cures it, and you were supposed to put it into your rectum,
+
+[00:31:10] and you saw an electric current up there, and it relieves constipation. It feels like it would work. It does. In the 1930s, if you look at newspaper adverts, it's all over it, the violet ray device. They use electric kind of butt plugs to get semen from rhinos, I happen to know.
+
+[00:31:27] Oh, yeah? Yeah. Is rhino one of your online name? Okay, it's time for a final fact of the show. show and that is Andrew Hunter Murray. My fact is that Britain has only one performing circus raccoon so I found this fact in the
+
+[00:31:46] spectator. It's from the House of Commons papers and there are not many animals performing in circuses left in the UK and elephants and big cats have both been banned from British circuses. There are now two travelling circuses. For turning up drunk.
+
+[00:32:02] It does make it sound like they've misbehaved. I can't come to a circus junk. Make there's raccoons on stage. They're doing their job. So there's the Circus Mondaio who have horses, camels, llamas, mules,
+
+[00:32:15] donkeys, reindeer and one zebra. Okay. And there's Peter's Jolly Circus. Which I, and I phoned up both of these circuses. Did you? Yeah, I had a chat with them. And Peter's Jolly Circus has
+
+[00:32:27] horses, donkeys, ponies, a camel, two zebras, llamas, a parrot, and Reggie the raccoon. I spoke to the guy who keeps him. Well, he doesn't. Well, he does a lot of stuff.
+
+[00:32:38] Firstly, he did an advert with Gary Linneker. A crisp advert. I imagine it was a crisp advert. Reggie salted. Very good. Very good. As you were. So I thought you guys might ask, what does Reggie do?
+
+[00:32:54] And I asked the keeper, and he said, he basically, I'm paraphrasing, but he said, he basically walks around the ring fence and goes up on a ramp onto a platform and goes in and out of poles like dogs do for this agility thing. and then comes back down. So maybe that's why there's only one. Fantastic. But the keeper wasn't pains to point out he's not the UK's only performing raccoon because there's a lady who did Britain's got talent with a raccoon.
+
+[00:33:18] So raccoons have public toilets. Don't they? They have their own latrine area raccoons and we don't know why they do it, whether it's from a sense of cleanliness or one, the article's reading said, maybe for communication purposes, but they have a group of raccoons
+
+[00:33:32] will designate a toilet place and they all go and shit there and that's where they do that. Well, raccoon droppings are very poisonous. They have little nematode worms in them that can kill you. Really? I think there's like even no cure or something. That's why, I was wondering why quite a lot of the warnings are very alarmist about raccoon
+
+[00:33:48] and how bad it is if you find them in your garden and you shouldn't touch them. But that probably explains that. The government of the Bahamas were protecting the Bahamun raccoon. And then someone did some DNA test and found it was exactly the same as a North American common raccoon. And so overnight they went from protecting. them to setting up an eradication. That's so good. It's such a horrible news to wake up to
+
+[00:34:14] as those raccoons in their four-post of beds. Darling, what's wrong? I have a few facts about circus things. Right. Okay. So I found an unbelievably good book called Beastly London by Hannah Velton.
+
+[00:34:32] It's so good. It's a history of almost every animal that's ever been in London. and it's incredible. So just a few circus shows that happened. There was the singing mouse, which appeared in 1843 at some private rooms in Redent Street. Apparently it could warble incessantly for a quarter of an hour. Wow.
+
+[00:34:52] Even better on mute. And then a few years later, there was a rival singing mouse which set up off the strand, which were very near at the moment at a hairdress. And tickets were sixpence. But if you got a haircut, it was free to see the mouse. enough that a mouse can sing but can cut out of the same. It's incredible.
+
+[00:35:10] I just remember I went to Circus Museum in Florida. I can't remember it somewhere in Florida. I can't remember what it is. And then they had a load of weird people there who did weird things. And one of them went downstairs on his head and that was his whole act.
+
+[00:35:23] That's good. Without using his hands? Without using his hands, he would just kind of get on the top step with his head and then I guess use his neck muscles or something. One of the first ever circus performers rode a horse standing on his head. Was he and
+
+[00:35:35] one of Asley's lot? I think he was pretty Astley, so it wasn't actually circus, because Philip Astley is the guy who invented the circus. But he did a lot of, like, weird kind of horse riding. Asley did incredible horse riding, yeah. There was a guy called Daniel Wildman, who was so good. 1772, this is. He could ride a horse while standing upright, pretty good,
+
+[00:35:53] with a mask of bees on his face. Isn't that incredible? I'd like to see him riding a bee with a mask of horses on his face. So just one sentence about him He rides standing up on the saddle With the bridle in his mouth And by firing a pistol
+
+[00:36:11] Makes one part of the bees mount over the table And the other part swarm in the air And return to their proper place So he was doing tricks I was show jumping with the bees While riding a horse But apparently he held the queen bee in his hand So to sort of get them to follow along
+
+[00:36:25] Yeah That's amazing That sounds ridiculous sort of level of imagination To work on the scale of a horse and the scale of a bee at the same time. Have you guys heard of the dog's toilet club? Have we heard of the dog's toilet club? I reckon I've accidentally stumbled into it.
+
+[00:36:44] What is it? It was an establishment on Bond Street in the early 20th century. Unfortunately, it's not quite as good as it sounds. It was where you could buy nice things for dogs, like toilette in a sense of toilet water. And it was incredibly lavish because it was on Bond Street. So you could get scented baths or Hankies for your dog or jeweled collars or fur coats.
+
+[00:37:06] When was that? Early 20th century. That's weird. The people have been doing that for so long. Yeah. So that dog's toilet club is also in the Beasley London book. I cannot recommend it enough. One of my favorite circus facts of recent times is that John Major's dad, former
+
+[00:37:21] Prime Minister of England, John Major, his dad was in the circus. And by all accounts, I'm going to actually properly read about him. Sounds like an extraordinary guy. Tom Major. and the idea that everyone says is fact, although I don't think David Bowie actually said it, is that he used to see the poster of Tom Major. And that was Major Tom,
+
+[00:37:41] and that was Major Tom, and that was in Brixton, and that was where Bowie was at the time. The song originally went, this is ground control to Tom Major. Ah, I just can't. Father of John Major, you will be the prime minister. Okay, that's it. That's all of our facts. Thank you so much for listening.
+
+[00:38:04] If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can all be found on Twitter. I'm on at Shriverland, James. At Egg-shaped. Andy. At Andrew Hunter M. Tim Minchin. And Chazinsky. Podcast.com. Yep. Or you can go to at QI Podcast, which is where all of us exist as one unit, including Tim now. Or go to no such thing as a fish.com, which is our website. And we have all of our previous episode. episodes up there. We will be back again next week with another episode. Goodbye.

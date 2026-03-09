@@ -1,0 +1,355 @@
+# No Such Thing As A Fish - No Such Thing As Quantum Baseball
+
+- Episode date: August 28, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-quantum-baseball
+- Slug: no-such-thing-as-quantum-baseball
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish. We have a very exciting announcement for you if you live in London or if you live anywhere else in the world. That should cover most of you, I think. Yeah, that's it. If you're on the ISS, I'm sorry, this is not for you. Click forward. We are doing a couple of live shows at the Fantastic London Podcast Festival. We're doing the next week, if you're listening to this as it goes out, it's the 5th and 6th of September.
+
+[00:00:27] it's going to be so much fun. We have two unbelievably special guests. Do you want to say who they are, James? Yeah, they are Titans of Podcasting, I would say. Yeah. Doyens of podcasting. Grand Dame de Podcasting. Absolutely.
+
+[00:00:42] They are Richard Osmond of the Restis Entertainment Podcast. And it's only blaming Jamie Martin from my dad wrote a Parno, the greatest of all the podcasts. That's right. Richard and Jamie are going to be joining us live on stage. And it's going to be so much. fun and it's going to be especially fun if you're either in the room or watching the live stream of it because, and this is one for everyone around the world, we're doing a live stream. And you get to see
+
+[00:01:07] all the bits that we edit out of the final show because they're just too damn funny or too rude or too exciting. Absolutely. And if you are on the ISS but you're coming down the seven days subsequent to the shows that we're doing, then don't worry because the streams will be available to watch for seven days after the live event. Absolutely. Absolutely. So, Really, this is an entire human species experience. And if you're an animal listening to this, if you're a chicken or a monkey or an alligator, just ask the nearest human to set you up with a live streaming ticket,
+
+[00:01:38] and they will be able to do that. Absolutely. So for details about those shows, which are on Friday the 5th of September, and Saturday the 6th of September with Richard and Jamie, go to no such things of fish.com slash live. And right there, you can get tickets to the festival, if there's any left,
+
+[00:01:54] and all those lovely, lovely live stream tickets. Brilliant. I think that's it, isn't it? That's all I have on my list. It's me too. Let's do the show. Up with the podcast. On with the show. Hi everybody. Welcome to another episode of No Such Things a Fish. This is one of our audience facts specials where we're going to talk about your facts.
+
+[00:02:28] My name is Andrew Hunter Murray. I'm here in the QI offices in Hoban with Dan Triber, Anna Tersinski and James Harkin. We have gathered around the table with three months worth of crisp, fresh, hot. Good audience facts. And we're going to be sharing them with you. And we've had some cracking stuff in the inbox, as we always do. We have, and you've circulated round to the three of us, the choicest cuts. Absolutely. But I haven't verified the stuff I've sent you or done any extra research.
+
+[00:03:00] This is mostly audience emails without that filtration system. Well, you never know we might have verified or done extra research. Depends how diligent we are. also listener listen out to what we're all saying and work out for yourselves if andy has kept the choices cuts to himself yeah why don't you give us a fact to start off with andy okay here's here's a fun one this is from pete nissen who says a computer engineer for the astronomy department at a prestigious u.s university sorry that's who he is Jesus Christ have you read these
+
+[00:03:33] Pete works I think we've got the answer if he's kept the choices cuts Hasn't even read them. Pete works at a prestigious US university and as a computer engineer for the astronomy department. He says, every single faculty member firmly believes that alien life probably exists, but the distances are too big and the laws of physics too rigid
+
+[00:03:53] for aliens to ever visit Earth. Yeah, that's what I think as well. Okay. However, I've recently come into possession of hard evidence that contradicts this. Okay. But you feel like an idiot, James. I'm so annoyed that I put my cards on the table.
+
+[00:04:08] So here's Pete's evidence. The first human, in quotes, to walk on the moon was Neil Armstrong. I agree with that. Okay? Oh, James. Oh, you've done it again. Neil Armstrong spelled backwards is... Gnaughts Mr. Alien.
+
+[00:04:30] That's right. Apart from that word gnaughts, which doesn't mean anything in our languages, Mr. Alien is irrefutable proof, as Pete calls it, and he's going to be presenting that at the next faculty meeting. Well, I've got to say, I'm quite glad that I put my cards on the table nice and early now. Sounds like Dan was well versed in this age-old alien backwards. Have you heard that before? Well, I knew Neil A is alien backwards.
+
+[00:04:52] As in have people talked about that before? Is this all over there? Yeah, yeah, that's a big thing. But it's not used in terms of a conspiracy theory. It's just used as like, oh, what a nice coincidence. Like Buzz Aldrin's mother's maiden name was Moon. Yeah, kind of thing. Exactly.
+
+[00:05:05] I read the third one? It was the third one. Michael Collins. Michael Collins. Probably can do something with that. Do it at home. Snilok. I read a while ago that the reason we haven't had aliens here yet is because any civilization that can travel throughout a space will necessarily have also created technology that can wipe itself out.
+
+[00:05:27] Yeah, interesting. And then there's another theory, which is that we always talk about the distance of space, but we sometimes forget how much time there has been since the beginning of the universe. So you might have had a civilization that got to where we've got to, ready to go out, spacefaring. And then, as James says, they wipe themselves out. And we've just lived two billion years distant from them when they were active and they were ready and they were sending signals out into space. It's like a rom-com sort of meat cute missing out on each other. Yeah, exactly.
+
+[00:05:54] Michael Collins does contain all the letters of the word alien, just so you know. I wondered why you weren't paying attention when I said all that stuff. Also, coch mills, alien cock mills. Okay, that's interesting. Are they making bread out of them? My research hasn't revealed that yet. Wow. I'll do some more analogues and work it out.
+
+[00:06:12] Let's have another fact. Okay, this one is from Jorge Marillo, or George Marillo. And they say that 10 million people in South America can understand Jabba the Hut. Ooh, that's so interesting. I assume that was a made-up language. So has it been a language that's been adopted? It's a made-up language called Hutties, and it's in Star Wars, of course, for anyone doesn't know Star Wars
+
+[00:06:38] but it was invented by, it was based on a language called Quechua which is spoken in South America and there is enough words in Quechua that if you're well versed in that language you can listen to Star Wars and you pick little bits up
+
+[00:06:55] That's so good So it's like a dialect I guess so Or it's a bit like a Portuguese person in Spain could sort of piece a lot of it together maybe Yes a bit like that A bit like how if we hear sort of a Dutch person talking we can kind of pick up bits of it, but it's a different language.
+
+[00:07:09] I have no idea what they're saying. You do that? That's a thing. What? Wow. Some of the words from Ketua in English, alpaca, condor, guano, lima, as in the beans. It's all quite that part of the world-related stuff, isn't it? They haven't given us the word chal-main.
+
+[00:07:29] They've sensibly left that to the experts, isn't they? I suppose so, I suppose. There's quite a few quetua languages, as in there are, it's like a language. group and one of them is called the Wanker language. Oh, there you go. That feels like your bonus research. It does, yeah, that's from my own files. Because I actually, I was there in South America a while ago and I bought a football jersey
+
+[00:07:52] from the team Deportivo Wenker. Oh, yeah, of course. That's what they named after. Named that for these people. I thought you were going to say, and I kept hearing people call Wanker. Your guy told you know, that's a local language. Did Jorge say something about his grandparents? He said that they were having lunch one day, he and his sister and his family,
+
+[00:08:12] and they got to a bit where, and the reason I didn't read this out, is because these are people I'd never heard of. Grido holds Han Solo at gunpoint. And almost immediately they kind of looked at each other because they recognized what they were saying. Isn't that crazy? Yeah, yeah, yeah. That's amazing.
+
+[00:08:29] You know, Star Wars I read about the other day. So the planet where Obi-1 Kenobi comes from, Do you know what it's called? I thought it was called Tatooine. No. So that's where he was based. That's where he lived. Mordor.
+
+[00:08:41] Yes. It's a crossover we didn't know existed. It's called Stujon. It's called Stujon because George Lucas was being interviewed by John Stewart, who asked the question, where is Obi-1 Canobi from? And he said, I don't know, Stujon. And so it's officially canon. And I don't like that.
+
+[00:08:57] Because George Lucas can just say anything in an interview, and it's canon. So it's not in the movies. Exactly. Yeah. No, exactly. Hence the question. That's a bit like papal infallibility, but it's a bit of a curse, as in if anything you say, it becomes canon. Yeah.
+
+[00:09:10] You know, he's got to be, watch his mouth. Like Nixon's argument, you know, if the president does it, it isn't illegal. If I say it, it's true. Well, be careful what you say. Thank God Nixon was the last person to think that. Do you remember, I don't know if we did it, but there was a Jedi, because there's a big encyclopedia of peripheral characters, and they put them all together, and someone came up with a new character and called them Bates. and so it got officially put in as master baits and they missed it, the person missed the joke
+
+[00:09:38] and so that's an official Jedi according to these birds. Isn't there a type of music called Jizz? Oh yeah, that's space, yeah. Space jazz. Space jazz. Masturbates doing space jazz. The Pugwash crossover sounds like it's imminent.
+
+[00:09:53] Klingon is a language from not Star Wars, Star Trek. The other one. Indeed. And I found out the other day that they filmed the first Klingon scenes before they'd written the language. It's quite a complex language. It's one of those quite developed languages.
+
+[00:10:07] Yeah, so they film the scenes and they just mouth random stuff for the scenes. And then the guy who is one of these special linguists who they bring on to actually write the language afterwards had to make the language match the mouth movement of the initial Glinger speakers. Wow. First language ever based on
+
+[00:10:22] mouthing nonsense. That's really funny. That's really good. Anna, you got a fact? Yep, this is from Hannah Biddle who says that she's sending in a particularly Harkinian fact, and I strongly agree, and I don't know if I approve of it. But here it is. During his career, Raphael Nadal used 300 kilometres of string in 1,250 Babelot rackets. Now, she's added those two together, for no reason that's really explained. So she's got 1,550. And then she says, as we know,
+
+[00:10:54] Raffa hails from Mayorka. Mayorka to the French Open in Paris is 1,28 kilometres, and then Paris to Wimbledon is 340 making the total trip length basically 1,550 kilometres so that if you add up the... Shouldn't she be multiplying them together? She shouldn't be doing any of this. And that's what we say to you, James,
+
+[00:11:17] after your fence. There's no logic to why she's added the number of babelac rackets to the kilometres of the string she's used and then just use a distance from a Yorker to the French to Wimbledon. So the amount of string is the total amount of string. as well. Yes, the full length of string
+
+[00:11:32] that makes perfect sense, Hannah. Because once you've taken out all the string to measure, then what are you left with, the racket? So you just have to count the rackets and then you measure out the string end to end to end? And then why is Raffa just going from New York, which is the French Open to Wimbledon? Well, up to the Australian Open. You need to go to a whole lot more rackets to get to the Australian open, yeah.
+
+[00:11:49] I appreciate it. It's good. It's good. It's good. It's good. I go on here from Becca Nelson. I hope you haven't come across this before. The first female dentist in England was called Dr. Payne, middle name Fanny. Nice. So Dr. Lily Fanny Payne.
+
+[00:12:07] Does sound like gynecology was the area that she should have gone into. Yeah. Well, I did Google to find out more about her. Little heads up for anyone wanting to do the same. Put quote marks around the name. Because you do come up with some interesting stuff. She's 1895. She was studying to become a dentist.
+
+[00:12:23] And it wasn't allowed in England. So she went to Scotland. And everyone was saying, you can't become a dentist. you're taking the bread out of some good man's mouth. You can't do this. But that's where she was looking for the bread in the first place. So yeah, so she studied there. She built up a huge debt, came back to England,
+
+[00:12:41] was allowed to become a doctor. So Dr. Lily Fanny Payne. And she spent the first number of years of her job paying off the debt that she accrued from going to Scotland. Well, welcome to being a student and then getting a job, Fanny. That's what happens. If you didn't want the debt, don't take this. Of course.
+
+[00:13:00] You just reminded me, Dan, there was a famous British education list and feminist. And what year was Fanny Payne? 1895 is when I think she became. This woman was alive too. She was called Fanny Hertz. Oh. Fanny Paine and Fannie Hertz is a good Edinburgh Fringe show. Yes.
+
+[00:13:15] Waiting. Oh, buddy cups. Oh, they're cops. Oh, they're cops. What are they? They always go for the crotch, I suppose. Fly kick you. Can I give you guys another?
+
+[00:13:29] Yeah. This is from Jakubvul, who starts off possibly too sad, but it is funny. Okay. So a mixed message coming in at the top. I assumed that if you're killing a highly endangered pangolin, you know those things? They're covered in amazing scales. Yeah. They're almost like armadillos.
+
+[00:13:47] Yeah. They're like an armadillo anteater cross. Yeah, yeah. They're amazing. They're the most trafficked animal in the world. Yes. And they're very, for that reason, increasingly rare. God.
+
+[00:13:57] So I assume that if you're killing a pangolin, you're doing it because. because the scales are used in traditional Chinese medicine, which they are. But a survey of more than 800 hunters and meat traders in Nigeria found that the pangolin is considered to be the most delicious of all the animals. Is it now? In addition to being extremely tasty, 89% of them were captured by simply picking them up off the ground. Yeah, that's the problem. They're naive, aren't they?
+
+[00:14:21] That's what you call an animal who will just let you pick them up. Naive animal. That was too sad. That was actually too sad to cover. Sorry. Where's the funny bit? I'm still waiting for that punchline. They're so tasty. I think that's the funny bit. Do you remember turtles are really tasty as well?
+
+[00:14:36] The giant tortoises of the Galapagos. That's the problem with these animals. They need to evolve some bitterness. Do you think what's made us so successful as the human race is just we'd actually taste gross? Well, there's a Lewis Leaky theory, isn't there? That's why we have B.O. so that other animals won't eat us. Yeah, he thinks that we became the dominant species because lions basically came up to us smelters and went, no, no way. And he said that you would often find that if there was a dead human, the animal wouldn't start eating it until it had rotted and it had maggots and so on. That's when we were.
+
+[00:15:08] Pallisible. So we could be ruining our chances of survival by inventing perfume at this point. The lions are coming up and going, yum. Yeah. Link's Africa. Yeah. Don't wear that in the jungle. Do you remember a few weeks ago we were talking about why people have beards? Yeah. And we were like, well, it could only be either to attract women or to. sort of get other men,
+
+[00:15:29] terrifying, or what if it is to make you unpalatable to animals? Like they get a little hair stuck in the teeth. Yeah, really annoying to eat.
+
+[00:15:36] And it's right at the top, it's probably your head is the first bit they're going to eat. Especially lion tamers. Exactly. Interesting. Good theory.
+
+[00:15:45] It's a good theory. When the Quakers founded the new city in Pennsylvania, they decided to call it Philadelphia. After the Egyptian city, because they thought it meant
+
+[00:15:54] brotherly love. Unfortunately, the translation was a bit off, and it meant sibling love to honour the practice of brother-sister marriage in the Ptolemaic dynasty. I did not know that. I thought it was just brotherly love. That's what I thought as well. So it turns out that the Quakers inadvertently named their city incest bill. According to Joe Brooks Smith.
+
+[00:16:16] That is a good fact. That's so funny. We now have to mention facts that actually aren't correct. But I think it's a useful thing to know if you've sent one in right? What you got? So Stephen Corkeran, I'm afraid you sent in a fact saying Carl Marx's great-great-grandson does parkour and has a YouTube video called Exclamation Marks. Terrific fact. I thought we might have even said that on this podcast. No, do you remember what happened with this fact? What happened with it? Okay, so I submitted this as a fact, and we were going for it as a headline fact, and I found the parkall guy, and I got in contact with him, and we had a chat, and he's not. Either he said it jokingly in an interview once
+
+[00:17:00] or it was just put in an interview and it spreads. Yeah, so that's not true. But I just happened to Boncar Marks' daughters' names. He had three daughters. You know what they were called? Quotation. Very good.
+
+[00:17:12] Stretch. And... Skid? They were all called Jenny. Okay. Oh. This wife called Jenny. Yeah.
+
+[00:17:25] Yeah. I thought they were going to be called like capital of... labour and combine harvester. Yeah. He didn't, we wouldn't wish that upon them. Speaking of marks and names,
+
+[00:17:35] just reminds me of a fact that I submitted to you guys for a headline and we turned down, which is that there is a Brazilian footballer called Marks Lenin and he's a left winger. Oh, that's good. That's great. There's another Karl Marx fact, which is not true, but it gets peddled around as a truth,
+
+[00:17:51] which is, you know, how he's buried in Highgate Cemetery. So he's a giant, huge gravestone with his head on top. And apparently some... A statue of his head. There's not a big gravestone. And then Karl Marx's decomposing head sitting there. Oh, I see.
+
+[00:18:07] Yes. Yeah. It's a huge statue of his head. And supposedly some anarchists wanted to get rid of it. And they put a bomb underneath it. And it blew up, but it malfunctioned. So only blew up a tiny bit. And if anything, the only damage to it is that the graves has slightly shifted to the left.
+
+[00:18:23] And that's been peddled around everywhere and there's no evidence for it. There's some not true. Marks facts. Actually though, speaking of Karl Marx, they did find out something quite funny last week, listening to the Diane Abbott interview. So for international listeners, Diane Abbott, one of our MPs, got herself in trouble in the last couple of weeks. But she got us up in trouble on a podcast where she was being interviewed about her life. And she went out with Jeremy Corbyn, and she was talking about the early days of their relationship. And she said that she used to wine and wine and wine, saying, you never take me out. We never go anywhere. We never do
+
+[00:18:56] anything. And so he said, okay, I'll treat you. Fine. Finally. I'll try I'll go out. And she properly got all dressed up, dolled up. I got really excited, you know, cancelled plans for that evening. And he took her to Highgate Cemetery to look at Carmarx's grave. Wow. And that was when she thought, oh, you would have liked that, wouldn't you? You would have been smitten. I've had grave dates, yeah. I've done those. I went to see William McGonagall's grave on a date once. Did you? Did you? Where is he buried? Edinburgh. See? Yeah. Long way to go for a date. Yeah, it was a cost of time.
+
+[00:19:28] Did the other person appreciate it? She actually got off the train at about. On the tape ridge. Please, fall again. Quite an esoteric joke, that. Internationalists have all turned off at this point. Interesting. Is it true about Karl Marx's grave that, is it Herbert Spencer?
+
+[00:19:48] Who he really hated is buried right next to him. Yeah, it's on the opposite side. So they're basically looking at each other. I'm smelling sitcom. Yeah, Marx and Spencer. books. It's fun. I've got another fact here. This is sent in by Daniel Atkinson, who's recently got into watching sumo, and so has consumed a ton of sumo information. So he says, sumo wrestlers have to take taxis and ride bikes everywhere. This is because there are so many
+
+[00:20:15] sumo-related car accidents that the Sumo Federation has banned them. So they're banned because they're terrible at driving. Well, what the problem is is that when one sumo wrestler in a car hits another one, they then just will keep driving until they've driven the other one off the road. Like that's the really sad bit. Brilliant. Those, sorry, they get bikes. That's got to look silly.
+
+[00:20:34] Those tyres have got to withstand quite the pressure. That's a good point. I've never seen a sumo on a bike, have you? No. But we don't live in Japan. Maybe in Japan, they're turning penny. Yeah, it's possible. I've been to the yearly final of Sumo in Tokyo.
+
+[00:20:52] And I reckon that they all turn, Because they're all, I think they're all quite rich, aren't they, sumo wrestlers these days? They all had cars that were taking them in because we saw some of them arrive. Oh, okay. You didn't see anyone wobbling along, unless stabilizers. We've done so many good facts about sumo over the years. Do you remember the one about the guy who had the top of his head altered because he needed to get the height requirement in order to become a sumo? Did you have stuff put in?
+
+[00:21:15] Yeah, it was like basically... Like a lump of fat. It was like a, yeah, like a breast implant, basically, just put in the top of his skull and then... Sexy. Yeah, exactly. And then there was the fact that the judges all carry a knife on them in case they make a wrong call out of honour. They have to kill themselves on the spot.
+
+[00:21:35] Yeah. It doesn't happen that often anymore, does it? And how wrong does the call have to be? Is it like, give them a four for that? No, a three! Here's a good fact. From Matt Fisher. After serving a four-year prison term for forging the Hitler Diaries,
+
+[00:21:51] Conrad Kujao began selling authentic forgeries under his own name. He often had to authenticate his forgeries because other forgers were selling forged, authentic Comra Kujal forgeries. Oh, my God. Wow. And I did a bit more digging on this.
+
+[00:22:03] And basically, he came out of prison. He did a little bit of time. And then he set up a shop selling forged, is it, Juan Miro paintings? And maybe some fake dahlies as well. But he was acknowledging they were fake. It's pretty easy to fake a Miro. Is it?
+
+[00:22:22] There's just circles and triangles, aren't they? Mirror, mirror on the wall. But basically, I found out how he got into forging the Hitler Diaries. That's quite a thing to do, isn't it? He collected a lot of Nazi memorabilia. He was an avid collector of Nazi memorabilia. Always a good sign. And the prices in the West were way higher than they were in East Germany or West Germany.
+
+[00:22:48] Because obviously there's demand overseas. And it wasn't legal, so he often got his stuff confiscated. I guess there was more available on the German market, you know, than there was in the West. So he then started forging authentication details for his stuff to make it more valuable. So he got a First World War helmet, which was a real First World War helmet. And he said, oh, this was Hitler's helmet and here's a certificate saying it. Interesting. And then he started doing stationary and letters.
+
+[00:23:11] And they were really primitive. They were aged with tea. And, you know, they were like children's school projects. But he was getting better and better. And then he started doing... I don't really remember much about that story. But like, people fell for it, did they? Yeah, they were published.
+
+[00:23:24] Summit Times bought them. Really? They hit the diaries. It was embarrassing. It was one of the most embarrassing things. That is awks. To ever happen to a newspaper. Yeah, wow.
+
+[00:23:34] But they were partly full because there were 61 volumes available. Whoa. I know. He did a lot of writing. Why did that make them more easily fooled? I would have thought this many times, but Hitler was a busy man. How did he have time to write all this? I think if you just give them one page that goes, oh, going to invade Poland tomorrow?
+
+[00:23:51] Then they might think, oh, yeah, this has just been. Not up by someone. Exactly that. But if it's 60 volumes of him saying, Bloody Stalin. That's a hell of an investment of time. If you suddenly hand it over and someone goes, this is a fake.
+
+[00:24:03] Yeah. Ah. Nine years writing those. I was born with a tiny mustache. For at least 300 years, one common insult against a king was that they had pooed in the font while being baptized. This is according to Cass L
+
+[00:24:25] and they read it in a book called The Anglo-Saxons by Matt Morris and they're referring to Ethel Red the Unready. Right. So yeah, people didn't really rate him very much and they thought we're just going to make this up about him as far as I know he didn't poo in the phone. What was the nappy situation back then?
+
+[00:24:43] Great question. Well, Sumo hadn't been invented. What were they wearing cloth, I guess? Yeah, you would just wear cloth. I think a lot of kids would just go without. It would be cold, wouldn't it? The king, I would think, would have a royal diaper. Yeah, swaddling cloths and things like that.
+
+[00:25:00] I bet that was a person. Like, you are, you just carry, get shad on, get pissed on. Who are you? I'm not the royal diaper. So would they dunk the whole baby in? I'm just thinking of the baptisms that my kids have had, and it's very much water over the head. Oh, they often would dunk in.
+
+[00:25:15] Right, so you do. Like traditionally a proper baptism, your head should go under, really. It sounds like your head? Yeah. Like a waterboarding? Not precisely how waterboarding works You're not demanding information from him Do you know what? I've never been to a baptism
+
+[00:25:28] And I've never touched wood I've never been waterboarded Do you deny the devil And all his penions Screw you copper Do you remember Have I told you guys like to think of when Wilf was being baptised
+
+[00:25:44] What happened to me So I was handed him Oh you shattered the fog I remember this thought Yeah yeah yeah Yeah Why forgot to pour my nappy And so I was holding him and I had to read a piece out.
+
+[00:25:56] So I was holding Wilf reading a piece out from a bit of paper. And I then had to put the paper down behind me on the table and then hold Wilf with two hands. So I put the paper down behind me and I came back and the guy started reading the prayers. And I just suddenly was like, oh my God, something's on fire. What the hell is on fire? And I turned around to see and the paper wasn't touching and there were a few candles there. And I looked down and my arm hair was lit up because I'd gone over a candle as I did it. Yeah, I was on fire.
+
+[00:26:21] I mean, it was, you know, slowly going out, but I had to... I mean, it does feel like the devil's had something to do with that, doesn't it? So, Mr. Schreiber, do you believe in God? I do. Why are you on fire then? Can someone cover that crucifix, please? There's a species of finch that's named after a guy called Finch. What a great fact.
+
+[00:26:50] Lovely. Great little fact from... Well, Andy, you've said it's from someone called Colin surname. Wow. And the surname was named after Colin's first thing. I think Colin signed his email Colin's surname. He must have. So that's odd from you, Colin. But great fact, nonetheless, it is correct. Maybe he's from Surinab.
+
+[00:27:11] And it just... Alter translated. So there's a finch called the finch, but no one knows it's named after them because it's just called the Finch. Is it called the Finch Finch? Well, it's called Finch's Euphonia, in fact. And it's in the Finch family. I've got one of the name fact. This is from Hannah Wallace of Florida.
+
+[00:27:30] The discography of 98-year-old jazz musician Dick Heiman includes the 1966 album I'll Never Be the Same. Some of Hyman's other albums include the sensuous piano of D and the man from O-R-G-A-N, the man from organ. We've met him before, haven't we? Have we? In the podcast, I'm sure. I'm sure we had Dick Heimann.
+
+[00:27:53] My friends used to have a... A comedy double act called Dick and Hyman, but that was their names. Really? Yeah. Because a Dick Hyman, you don't know what that would be. They don't normally have them. No. Molly McEnany writes that an engineer refurbishing and installing old
+
+[00:28:11] Cini operated pay phones, that person's name is Patrick Schlott. However, the coin slots will not actually be used because the public phone service will be free. Oh, okay. But I assume he's worked on other shlott. Schlots. 100%. Schlot. It's such a good
+
+[00:28:28] surname. It's a really good. Shlot. You go for a casino afterwards. That's what I'd do. Yeah. Pat Schlot is what
+
+[00:28:34] Jane Fond would do at a casino. Pat Schlot. Pat the slot. It's a Sean Connery joke. Yeah, but what's the pat? What's the idea? You have to pick your money.
+
+[00:28:43] You have to test all electronic items. You have to pat test. I've just got to pat the slot. Shecky so James, you absolutely pulled by not the fire with it.
+
+[00:28:55] I'm not sure about this Bond movie. Why should I said another again? Mark Weldon Lowe says that the granddaughter, a famous artist, David Shepard, is a lamb. And that's her married name. She's called Lamb. And her grandfather was Shepard. That's very good. I go on here from Jake from Illinois, who says,
+
+[00:29:19] when the Ferris wheel debuted at the Columbian World Exposition in 1893 in Chicago, They needed to expedite the painting process. Supposedly, Francis Davis Millett. What? Was it that they just held a paintbrush at the bottom and let the wheel go around so they didn't have to move? That's how I would do it. That makes total sense, yeah. Well, supposedly, what actually happened was Francis David's Millett, who was the decorations director,
+
+[00:29:47] invented spray paint specifically so that the Ferris wheel could be done in time. Oh, really? Yeah. Here is quite a nice one. It's from John O'Connell, Jr. And it's a little like the Nadal tennis racket stretching fact in that it's got a distance in it. It's also a stretch.
+
+[00:30:07] Well, this is a... This one is true, though. I've followed it up. So John says, since French Guiana is part of France, I don't really know much about French Guiana. I know it's in South America. I know it's near the top. And I know it's...
+
+[00:30:19] That's all you really need to know. What else do you expect to know? What is... Exactly. The number of dogs living there. It's main export. Chief exports. I don't know the chief export. Cade sugar, probably. Maybe. But 41% of it is Amazonian rainforest.
+
+[00:30:34] It's very rainforest. Anyway, it is, but it is part of France in legal terms. Yeah, it's one of the Departement. Right. Well, I didn't know that even really. So since French Guiana is part of France, John writes, and France is part of the European Union, the largest national park in the EU is in South America, not in Europe. which I like. That's good. Because their biggest national park is there. Following on from this, Brazil is the country with which France shares its longest land border.
+
+[00:31:01] And I did not. I thought, what about Germany and Spain? They're massive. And they're both shorter than the Brazil, French Guiana border. Yeah, that's a really great fact. It's kind of a little bit. It comes up in quizzes a fair bit, that one. I once went to Reunion, which is an island in the Pacific or the South Atlantic or somewhere.
+
+[00:31:21] No, it's in the Indian Ocean. Oh my God. Jesus Christ. Oh yeah, it's isn't it? It's just in the East of Africa. It's just in the East of Africa. But that's also a French de Patomor. So you don't need to go through any security to go between them or any passport control.
+
+[00:31:37] Oh, wow. And I think it's the world's longest domestic flight that goes from Charles de Paul to there. It was something like 14 hours. And does that come up in quizzes? That one I'm not so sure. I never heard it before in a quiz. Do you ever worry that going to lots of quizzes you do? Blunts your sense of wonder at the most amazing facts in the world.
+
+[00:31:56] I'm not sure I ever had a sense of wonder. Although this really shook me to the core, a message from Jake, who had been to the Kelvin Grove Museum in Glasgow and learned that people would chisel off penises of the gods to use as Aphrodisiacs in ancient Egypt. Ah, okay, okay. They eat them or snort them? It's not clear, to be honest. But I think you would
+
+[00:32:23] sprinkle it on your ice cream grind and sprinkle. Yeah, yeah, at first I thought he was saying that they used them as dildos and I thought
+
+[00:32:31] that would be interesting idea. Well, certainly would be, yeah, very interesting. That explains why you got kicked out
+
+[00:32:41] of looking at the elk of marbles, isn't it? Penises of the gods is a very evocative phrase. Yeah. It's something about, it feels, well,
+
+[00:32:49] it's like Eric Ron Danikins what's his book called? Chariots of the gods. Chariots of the gods. It's a sequel. It's a sequel. And they were quite small then, so actually maybe it wouldn't, I think, because there wasn't this big onus on penis size.
+
+[00:33:02] Were they big statues? Or do you mean there were tiny statues? Penis size? Penis size. I actually think like there are some Egyptian gods that had quite large penises. Oh, the Egyptian gods, sorry. Had really big penis. I'm sorry, did you say Barbie?
+
+[00:33:14] Barbie. B-A-B-I. It was like the monkey god who would take you across to the underworld. And he had a penis. that could be used as a sail. Or an awe. To hold up the sail, sorry. Oh, mast.
+
+[00:33:28] So Ken doesn't get a penis, but Barbie does. There we go. Very good. Did we talk about the destruction of the Herms? Because the Hermes were all, they were Greek statues, I think, and they were a bust of a head and shoulders, but then they did have a little willy sticking out in front. And they were fertility things.
+
+[00:33:46] And I'm sure there was a period in Greece, which was the demolition of the Hermes, when Athens was invaded by someone or other, all the herms got chiselled off. I do know that. Well, I think that was quite common that you would, if you went to a place and you wanted to disfigure their gods, you would kind of disfigure the faces,
+
+[00:34:02] but you would also cut off the genitals. But that's just what you'd do today as well, isn't it? I mean, that's like the obvious thing to do. You see a statue with genitals, which bit you're going to take? You'll take the willy. No, fair enough. Yeah, yeah.
+
+[00:34:13] What were the herms? I've never heard of these things. What were they attached if it was just a head and shoulders? And then was it sticking out with the neck? It was like a column of marble. You know, it was like a column of marble. Shoulders, penis floor, penis floor. Yeah, it's a column
+
+[00:34:26] and then they had a tiny little willy like as if you were using it to get water out of like a water cooler kind of thing. I see. Like a stick man they just couldn't be asked to draw the rest of the body. Look, it looks like that. Oh yeah. Oh yeah. So it is the only,
+
+[00:34:40] it's really the only prominent bit that you can remove. So it's an obvious target for vandals and hooligans like you, Anna. Yeah, I'd do it. I've done. I've got 20 of them in my house. I have a very long email Not all of which I'm going to read Which actually doesn't seem to have come Signed off by anyone Which is a shame because they've discovered something amazing
+
+[00:35:02] I might not have copied Does it say Andy Murray at the top there? Yeah I assume that's to you No no it's from someone else called Annie Murray Well that's very confusing Did they happen to have the same email address as you Let's move on What are they saying they're long but I doubt not
+
+[00:35:15] fascinating email This person who's brownie called Andy Murray has worked out how to get rid of hiccups. So he said, skipping out the first nine paragraphs, no, it's very good. He said that when he was 13 in school biology, he learned what causes hiccups, and he thought he hypothesized
+
+[00:35:32] a way to stop it should be doing a burp as you feel the first hiccup coming. And he can report that after 45 years of doing that, he's only ever hiccups once. But I never feel my first hiccup coming. You've got to be on the lookout all the time for a initially
+
+[00:35:50] up. It would be ready. It does. It does. But then he did say he lost his concentration once on the 28th November 1990.
+
+[00:36:00] This was also in the Hitler Diaries this kind of detail. I think it was a memorable day for anyone who was an adult at the time because it was the joyful day, as he describes it, that Thatcher resigned.
+
+[00:36:12] And he said he was part of a small group of archaeologists digging this Salisbury. And when they found it, they started celebrating, got incredibly drunk. He was so happy, so drunk on cider that he forgot to burp in time.
+
+[00:36:24] And he proceeded to hiccup nonstop for 24 hours, having obviously saved up all these hiccups. A lifetime. A lifetime. That whole thing sounds like a cautionary tale, doesn't it? Of the man who suppressed his hiccups and then hiccups forever. You're so right.
+
+[00:36:43] That's a Grimm's fairy tale or an ESOP's fable or something. I would definitely be up for 61. volumes of this guy's diary. This is awesome stuff. Here's something from Kate Evans. She tells us that when Leeds became a city for the first time, so Leeds in Yorkshire, they didn't have any celebrations. And that is because they only applied because they heard that Sheffield was planning to apply as well and thought, well, since we're the largest city in Yorkshire, we should be a city before Sheffield are. So they quickly applied. They won. And then they didn't have any time.
+
+[00:37:18] time to prepare the celebrations. So good. Biddies. So good. Or maybe they're from Yorkshire so they're so tight. They decided they didn't want to have any parties. That's good.
+
+[00:37:30] I like a city rivalry. Yeah. I'm a big fan of that. What's your favourite? I don't have any really local to me. Because I'm from London. Where's the rivalry? The entire rest of the UK.
+
+[00:37:44] You're Oxbridge though. So you were part of like a major the Cambridge Oxford rivalry. People don't really. care about that, not properly. No, unless you're, it may shock you to know that Andy's not a rower if you're listening, and so I don't think... Why would that, why would listeners not think I was a rower, Hannah?
+
+[00:37:59] They think you're a cox. Soaks on them, I rode on the coxless force. That was a very painful team to get into, I must say, good Lord. Andy is so much of the cox that he got destroyed by the Phoenician Empire. Wow. Okay. Do Rose care about that really? I mean, they do for the boat race.
+
+[00:38:22] Let's move on. Let's move on. I'd love our UK version of roast shows. I don't think Jimmy Carr will be signing on to hope this one. Oh, dear. I've got a fact about weaners. This is from Ralph Linsangun. And it says in brackets, repeat.
+
+[00:38:50] I don't know if that means repeat the name, Ralph Lengen Sangan. or if it means the email is repeated. But anyway, he headlines it by saying cybernetic weaners are only possible because of Dr. Weiner. Quite confusing because I'm always a bit confused about the word cybernetic and what it actually means.
+
+[00:39:04] Yeah, it doesn't mean anything, does it? No, well, so I looked stuff and it doesn't really hang out. Cybernetics is a study of automatic control and information exchange, sort of between machines and living things. So I think it's related to prosthetics. So if you've got a prosthetic penis that can be remote controlled or something or do something, it's in... Remote control.
+
+[00:39:22] Wow. Yeah, that would be cool, wouldn't it? I'm not a control penis. Sorry, I just need to pull the batteries out and run them a few times. This guy's called Norbert Weiner, Dr. Norbert Weiner. Oh, I've heard of him. Yeah, I think he's quite a big deal. So he was the founder of Cybernetics, which is a big deal.
+
+[00:39:38] That was the runner-up name that lost out to James Bond, but it was going to be the names of Weena, Norbert Weiner. It's a fun trivia effect, Gina. And it would be sexy. If that had happened, that would be a sexy name right now. Norbert Weiner and Pat. slot. He sounds very cool, Norbert Weiner, and worth more than we're making it sound like.
+
+[00:40:00] He learned 34 languages apparently. Graduated college at 14, got PhD at 17. He was known as the most remarkable boy in the world in 1906. But maybe the reason you've heard of him, James, is that he came up with the weena sausage. So he was a mathematician. And in the, and I'm just going to read this out and good luck ever grasping it, get a PhD. in the mathematical field of probability, the weaner sausage is something
+
+[00:40:25] that can be visualised as a sausage of fixed radius whose centreline is Brownian Motion. We have talked a bit about brownie in motion on the show. But anyway, he came up with this mathematical concept that was named after him. So it looks like a sausage in maths. And it's named after him. So it's called the weena sausage.
+
+[00:40:43] Got it. You know, mathematics is a fun too, I think is the lesson. And he was responsible for the cybernetic penis. He founded cybernetics and so machine human interfaces and stuff like that. Of which prosthetic penises could be seen as an extension, I think is what the person is saying. Okay, so he wasn't a penis technician himself. I don't think he was a penis technician. No more than any of us are.
+
+[00:41:07] I got something here from Jessica Cluckus. I think that's how you pronounce it. She's from the Isle of Man and she says, I am surprised there's not come up more on the pod. So here are some facts that I love. Pilates were invented in. Patrick, which is a local town in the Isle of Man? Is that true? I didn't know that. Halloween does not
+
+[00:41:26] exist there. What? I guess you don't have to do everything. Quite right too. Fair enough. But it also doesn't exist in the Murray household. Yeah, because I've turned off the lights and I'm lying on the floor, which actually would be a great position to spook people from, but I don't do that in case local kids come around
+
+[00:41:42] and, you know, alarm me. She says we were the first to give women the vote and have the oldest continuing running parliament in the world. How ironic of the Isle of Man. Oh. What about Jeff the talking mongoose? He is from the Island Man.
+
+[00:41:57] Yes. The ghostly mongoose. Is that why they don't have Halloween? Because he scared everyone so much. It's too bad memories. Yeah. That was like a young teenage girl or something who pretended that she was talking to a ghostly mongus and then got all of the newspapers involved and everyone believed it.
+
+[00:42:15] Probably Conan Dyle did or someone like that. Oh yeah. Yeah. I think all the biggest like ghost hunters of the time. went to investigate it as well. So it was quite, there's a great biog on it. It was quite a big scandal. We covered it ages ago and the BBC got involved in a way
+
+[00:42:26] that meant they had to change all their regulations when it turned out was fake or something. That's right. BBC scandals used to be certainly more wholesome, didn't they? Yeah, they were more fun. Actually, Jeff, the talking mongoose also used to get his penis out at parties. Right. Oh, fuck.
+
+[00:42:40] Jeff. Jeff. You said Pilates was invented on the Isle of Man? I'm really surprised about that. Am I remembering this right or wrong? that it was invented by someone called like Tony Pilates. It was. It was invented by Mr. Pilates, who I don't think was from the Out of Man.
+
+[00:42:56] Like Bitram Yoga was invented by, he wasn't Tony, but Mr. Bitram. Yeah. Yeah. I just think that's, I love those things. Unexpected things named after people. German chocolate cake is named after a guy called German. Brilliant. Brilliant.
+
+[00:43:12] That kind of stuff. Yeah. So according, just a super quick Google while you guys were chatting, Pilates was developed by Joseph Pilates. He was from Germany. his father was a gymnast and his mother a naturopath. Pilate said the inspiration for his method came to him during World War I
+
+[00:43:26] while he was being held at a camp in the Isle of Man. Can I just say that I don't think it's really fair for the Isle of Man to claim that as one of their offensions when the person who invented it was being held prisoner there. I think that's fair. We tortured it out of him in the end. Maybe he was coming up with those positions to try and escape. We don't know.
+
+[00:43:47] That was the only way he could get under the fence was by planking for seven minutes. Here's a great one. This is from Nat Edwards, who is Master of the Armories at the Royal Armouries in Leeds. Very cool. What a cool thing.
+
+[00:44:01] So here we go. This is the fact. In the late 19th and early 20th centuries, special guns were popular among cyclists, especially in France, Belgium and Spain for shooting bothersome dogs. Oh yeah. Cyclists would have guns marketed to them.
+
+[00:44:15] And this was invented the velo dog, a new kind of ammunition that could be fired from small, lightweight, powerful revolvers alarmingly they were not very accurate and they were called dog revolvers one of them was even used in an attempt to assassinate King Alfonso the 13th who survived possibly on account of not being a dog
+
+[00:44:32] because we've been researching this for QI weirdly this year or last year and water pistols were invented for scaring dogs as well The first adverts you see for water pistols in the newspapers were used this to get rid of dogs and it was for cyclists So that make, water pistol makes sense to me Like you've got a troublesome dog
+
+[00:44:50] You're on your bike You don't want to, you know An actual gun for a dog Feels a bit Do you shoot it or do you try and scare it Or do you pistol whip it And when I say whip it I mean that's the type of dog you're
+
+[00:45:03] I think the idea was to shoot them I think it's dogs like water So the water pistols Probably not successful They probably just went for more and more If I squires as a water pistol At my mum's dog It would just want to eat the water
+
+[00:45:14] So Mom's dog is very stupid though. You need to grade up to machine gun. Yeah. There's a good fact here from Luca, from Italy. I'm going to do it as a riddle. There's a golf course where you can hit the ball and it stays in the air for an hour and three seconds.
+
+[00:45:33] Nuclear quantum entangling. Time zones. No, no, no, go on the entangling. It's very simple. It lands in the Higgs bosom. If you hit it around the Cern. It's time zones. Yeah, do you know this one?
+
+[00:45:53] Oh, that's cool. I haven't heard of it, no. It's a green zone golf course, and it straddles Finland and Sweden, and there are seven holes in Finland and 11 in Sweden. So on hole six, you hit the ball, and it stays in the air for an hour. That's great. You know what I have heard of that golf course, but I haven't thought of the time zone part of it. That's so good.
+
+[00:46:11] That's good for a crime. So I'm just going to say it for an alibi. Where were you? I was here for an hour. wait for the ball to come down so I couldn't have killed him obvious I think it was the quantum physicist
+
+[00:46:24] who did it funny paint and funny has a kicking the crap out of a quantum physicist over here I wasn't going to mention this one but I will because it's related to James Bond and we've been mentioning that bit Andy Cumming has sent this in
+
+[00:46:40] two facts William Stevenson the man James Bond was fashioned after who was from Winnipeg So I think Andy Cummings from Canada once escaped prison using a can opener. Yes. And says, this only bends the truth a touch. Now, I didn't look into that because I wasn't going to read that.
+
+[00:46:57] I thought James Bond was modelled after quite a few other people as well. I think there's a few different people, isn't there? Like, for instance, James Bond, the ornithologist. Yes. Ian Fleming had a cool older brother, I think did lots of expeditions and travel and big game hunting and stuff like that. Yeah, that's right. Might have been part of it.
+
+[00:47:12] But do we know what happened with the tin opener? Because I wasn't going to read it. I was going to bring in his next fact, which I thought was quite a foul one. So he sent two, two fun facts. The city of Regina briefly had the slogan, the city that rhymes with fun. As you might imagine, people were fired. That's really good.
+
+[00:47:34] I actually have another one from Stephen Corcoran of exclamation marks fact fame. Oh yeah. Okay. Non-fact fame, yes. Well, this is a good one. It's that a British office are captured during the first. First World War was granted leave to visit his dying mother on one condition that he returned. This is about a captain called Robert Campbell.
+
+[00:47:54] He was captured really early in the First World War August 1914. I mean, just such bad luck. You know, you've got to set out the whole thing. And he got word when he was in a prisoner of war camp that his mum was dying. And he wrote to the Kaiser saying, look, can I please go and visit my mother? I will come back. And the Kaiser said, yes, but you've got to come back. And he went.
+
+[00:48:13] He went home. He went to Kent, which must have been such a weird experience. Spend a week with his mum kind of saying goodbye and then he went back to prison voluntarily Right And then as soon as he got back He started digging a tunnel for the next nine months
+
+[00:48:26] Did he? And then escape via it And then was recaptured again anyway Good on him He wanted to escape the honourable way Yeah Oh yeah completely Yeah yeah
+
+[00:48:34] And also I'd go back though Because you'd assume they'd just chase you down They know where your mum lives They know where you live yeah Yeah But you're living They're at war
+
+[00:48:41] With the place where you are Yeah Yeah I've He would have estimated how easy it was to just send one of their men over to Kent. That's that that point. Per point. I think he thought that if he didn't go back, other prisoner exchanges might not happen, that they just end the whole system.
+
+[00:48:56] And anyway, he lived until 1966. Did he? Yeah. What month? Just wondering if he saw the World Cup. What month was the World Cup? It was in the summer. The report I found said he died in the Isle of White in July 1966, age 81.
+
+[00:49:11] That's so difficult. It would have been tight. He might have seen the qualifying. The earlier rounds in the tournament? They think it's all of? Oh, it is. Who did England be in that match? West Germany.
+
+[00:49:25] What a beautiful... I've got to find out. What a beautiful ending. That would have to find out if he saw the world... I mean, he saw the victory in the First World War and the second, which was arguably, you know, he'll have cared more about. We don't even know if he liked football. We know he liked war. Did he like war?
+
+[00:49:42] Was that why they all did it? From Anna Ridpeth Just a nice bit of trivia She says my friend Nathan Is a big fan of baseball So this is credited to Nathan There was a single baseball player Called Danny Yanson
+
+[00:49:55] Who played for two teams In a single game How? Oh, this is very simple quantum Entangle Do you want to carry out on or shall I answer? Please The game was postponed
+
+[00:50:08] Halfway through any move between teams I'm really sorry that James keeps on killing all of your scientific theory I'll get at one of these days. One of these days is going to be called to. Still, another alibi to you, Andy. I wasn't even on that too.
+
+[00:50:21] I couldn't have killed him. Yeah, you're absolutely correct. It was postponed because in Clement Weather and he was traded from the Toronto Blue Jays to the Boston Red Sox. Gosh. And then he was put in a particle accelerator. Right, that's it.
+
+[00:50:47] That's all of your. facts, thank you so much for sending them in. If you'd like to send in more facts, then please do. The email is podcast at QI.com and we'll do another one of these before too long. They all get read. They all get red. Even the very long ones.
+
+[00:51:02] So that's there's no incentive to keep it short actually. What am I doing? We cut off at 50 words. I cut off at 50 words. There we go. But maybe you'd like to contact all of us on various social media accounts. So if you'd like to do that, you can do and it's encouraged. I'm on Instagram
+
+[00:51:18] at Andrew Hunter-R-M, James. Add me on LinkedIn. At James on LinkedIn. Yeah. Yeah, Instagram on at Shriverland. Anna? We are collectively at No Such Thing on Twitter or at No Such Thing as a Fish on Instagram.
+
+[00:51:31] So there are all sorts of ways to get in touch. But the most important thing is that you guys stay well and keep on, keep... Bring it home, Andy. And goodbye.

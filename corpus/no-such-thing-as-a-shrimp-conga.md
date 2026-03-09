@@ -1,0 +1,227 @@
+# No Such Thing As A Fish - No Such Thing As A Shrimp Conga
+
+- Episode date: November 29, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-shrimp-conga
+- Slug: no-such-thing-as-a-shrimp-conga
+
+## Transcript
+
+[00:00:00] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from New York City. My name is Dan Schreiber. I am sitting here with Anna Chazinsky, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that's my fact this week. My fact is, Carl Sagan spent two years suing Apple computers for calling him a butthead. That's got to be hard because you have to prove that you're not a butthead, right? Yeah, absolutely. So for listeners who don't know who Carl Sagan is, he's, of course, the great scientist. He did the TV show Cosmos, the Golden Disc on the Voyager. He was the person who dreamt that up.
+
+[00:01:10] He's one of the greatest public science speakers of all time, if not the best. Is he a New Yorker? He's born in Brooklyn, yeah. Born in the same little village that the three stooges were born in. So this was in 1993. So basically what happened is that Apple computers were releasing the Power Macintosh 7,100. And when they were putting it together and they had to talk to the media and stuff, they had a code name that they used, which was Carl Sagan.
+
+[00:01:37] And the joke in the team was that the idea was they wanted to sell billions and billions of the new. computer. So Sagan found out about this and he said, he wrote them a letter saying you absolutely can't do this. You're using my name to profit with your company and I don't want you to do that. Can you please stop? So they did stop. But what they did instead was rename the code name BHA, which stood for Buthead Astronomer. And he thought that's defamation of character. So he sued them and unfortunately he lost. And so they carried on with it. So then he then tried to sue them for calling it Carl Sagan to begin with at all. And he lost that as well.
+
+[00:02:17] But then he then tried to sue them once again, and they settled outside of court. So we don't know what happened there, but the final code name that was given in place of BHA was L-A-W law, which stood for lawyers or wimps. Wow. So there were no hard feelings at the end of it, clearly. Yeah.
+
+[00:02:35] It must have hurt, though, because so billions and billions. Billions and billions is the phrase that he's really famous for. and that's, as you say, why they named it that. And he never bloody said it. And this always used to really annoy him. For someone who was interested in the huge cosmic questions, he had quite a petty side, it seems. So he once was presenting one of his documentaries,
+
+[00:02:58] and he said there are billions of stars out there. And I think Johnny Carson on the Tonight Show did an impersonation of him where he said billions and billions, and that became his catchphrase, and it really pissed him off. And he used to be asked to save billions and billions. It's not even a good catchphrase. And he'd refuse to say it, and he'd refuse to write it,
+
+[00:03:16] and eventually he'd caved and started saying it and writing it all over the shop. Well, that's the thing. I first read about billions and billions, the fact that it wasn't his in one of his later books, a collection of essays, which was called billions and billions. Oh, there we go. Really? Yeah.
+
+[00:03:29] But he did that unit that he said, that has become a kind of joke unit in astronomical terms. A Sagan means, because it means four billion. Oh, really? Oh, really? It's billions plus billions. Wow. It was approximately $4 billion.
+
+[00:03:43] It's any number greater than $4 billion is a Sagan. So it's very useless term for people. Yeah, exactly. How often are we using the Sagan in life? Never. Never, never. The story of the Voyager Gold Disc is also very, very cool. Because I did not know that he was behind this.
+
+[00:03:56] So the Voyager exploration into space was nearly a cassette tape. They nearly put that up, but they realized that it would get shot to pieces by radiation and things like this. Yeah, but it's copper coated in gold, and that will last for a quarter of a Sagan years. Oh, cool. Very cool. And there are lots of stories about it. And one of the stories that I knew that you would like, Dan,
+
+[00:04:19] is that the song Here Comes the Sun by the Beatles was going to be on it, but the Beatles weren't allowed to put it on there because they didn't own the copyright to a lot of their own material at the time. That's the story. It turns out it's not true. And the producer of the disc,
+
+[00:04:33] I didn't know how to record producer behind it, but there we go, he said, in an article that he wrote about it, it's not the Beatles' strongest work, and the witticism of the title, if charming in the short run, seemed unlikely to remain funny for a billion years.
+
+[00:04:48] He's asking a huge amount of any joke to remain funny for one billion years. He must have been really insulted to be called a butt head as well because he hated Beavison Butthead. Did he? Is he on record as having hated? He is.
+
+[00:05:03] In one of his... In one of his books, he said the dumbing down of America is most evident in the slow, of substantive content in the enormously influential media. As I write, the number one video cassette rental in America is the movie Dumb and Dumber, Beavison Butthead also remains popular. He absolutely hated Beavis and Butthead.
+
+[00:05:27] I think he just didn't get it. Yeah. Yeah. Do you know Beavis and Butthead are named the two people are named after real people? No. Yeah. So the guy who created it was Mike Judge. and he lived next door to a 12-year-old
+
+[00:05:41] who called himself Iron Butt because he claimed that he felt no pain when anyone kicked him in the backside. Right. And his best friend, everyone called him Butthead because he was such good friends with Iron Butt. And then they had a third friend
+
+[00:05:57] who was called Bobby Beavis. Wow. And he was really not famous for anything apart from he had a really weird laugh. This is the kind of high-brow content you get from our podcast. If only Sagan could have heard us speaking tonight. It's amazing that he didn't like them because he was a proper stoner, Carl Sagan.
+
+[00:06:14] He really loved smoking and to the point where he used to write articles to magazines that just dealt purely in marijuana sort of saying, I wish this was legalized and he wrote them under pseudonyms. We didn't find this out until after he died, but he was an advocate while he was still alive. Can I just tell you who the first person in history who was called a butthead was. That was in 1896, it was describing a guy called Thomas. Gage, who was the British commander in chief during the Battle of Bunker Hill. Wow. Really? Yeah. And that
+
+[00:06:45] was when the British kind of won the battle, but it was a massively Pyrrhic victory because they lost like 1,000 men in the battle. And someone wrote about him saying he was an absolute butthead. Oh. That seems actually a bit too weak an insult for someone who's murdered thousands of men. I know someone else who was called, what was it, Iron Butt? Iron Butt. So Iron Ass was also the nickname of Richard Nixon.
+
+[00:07:08] Was it? Yeah. People used to kick him in the butt and he couldn't feel it. No, he got it for a slightly different reason. When it was a student, he was known for his cast iron ass. If you've got an iron ass,
+
+[00:07:21] it just means you're very dedicated and you keep on sitting down until you finish sitting down. I don't know. You keep on sitting down. Yeah, until the work is done, I'm going to sit here with my iron ass. Oh, right. Okay.
+
+[00:07:32] But it's also if you're being stubborn deliberately. Because Iron Man, like, not the cartoon character, the actual, like, that you do to become an Iron Man is the triathlon all that sort of stuff. That's as far as, like there's no bit where you just have to sit on a chair for hours. Oh, we've come to the Iron Ass
+
+[00:07:49] segment of the Iron Man competition. Do you know Buttock used to mean a common strumpet? A common what? No, I didn't know that. Strumpet. What's a strumpet? It's like a crumpet. It's a sort of delicacy. It's nice. You should order one next time you're
+
+[00:08:04] cool. A cafe. No, you know a strumpet. It's like somewhere between a a prostitute and a quite flirtatious woman. What? There's an in-between? It's a promiscuous lady from days of yore, largely. I actually thought it was still in common parlance,
+
+[00:08:25] but apparently not. Has everyone else heard that? Wow, okay. Usually if you're at a dinner and you say, has anyone else heard that? One other person's like, yeah, 900 people is. Embarrassing. There's a good German insult,
+
+[00:08:41] which is if you call someone an arskeiger, that means a butt violin, which is cool. And there's another one. They've got quite a few of these. And another one is an arshmid urn, which is, if you're an idiot, they call you an arshmit uran,
+
+[00:08:56] which means you're just an ass with ears. It's a strong insult. We're going to have to move on soon to our next fact. I've just got one more defamation slash buttock fact. Oh yeah Well I've got a few more But I'm only going to say one
+
+[00:09:12] This is Do you guys know the company The North Face That makes clothing Well there was a guy called Jimmy Winkleman Sr Who decided that he was going to make His own company called the South But
+
+[00:09:24] Very funny And they obviously said You can't do this Because the logo was pretty similar To the North Face They said you can't do that And he said no no it's a parody It's a parody
+
+[00:09:36] And in the end They went to court and they sued him, and he was forced to cease all promotion and sales of South Butt products and abandon his trademark immediately, and they also forced him to get rid of his other trademark, the But Face. Just this one other weird defamation case, which has been in the news recently. And so, you know Rebel Wilson? Have you?
+
+[00:10:00] Yeah. Okay, yeah. Now I'm talking your language. She just won the biggest payout in Australian history. for a defamation suit. It was $4.6 million Australian dollars, and it was because she was accusing a media group of defamation
+
+[00:10:16] for saying that she'd been well brought up. Really? She goes around saying that I'm such a Bogan, you know, and she talks about how she's such a Bogan, she really embraces it. Dan, a Bogan is like a male strumpet, I guess. I mean, it's not.
+
+[00:10:33] I'm an Aussie, it's not. You guys here, do you know what a Bogan is? it's like a, it's so hard to explain what it is without being derogatory. It's an Australian term for someone who's a bit rough and ready. So she's always really embraced this. She's come from a real working class background, real bogan upbringing, and a media group called her upper middle class, and she's managed to successfully sue them.
+
+[00:10:54] She had to go to court with her family and prove that she was a bogan. Wow, no way. Unbelievable. It's amazing. They had to do things like talk about what the kids were called, what her siblings were called, So their names are rebel, liberty and anarchy. And is anarchy?
+
+[00:11:11] Anarchy spelled A-D-N-A-C-H-I. I don't think understandably, the judge decided this was irrefutable evidence that she was, in fact, a boat. Okay, it is time for fact number two, and that is Andy. My fact is that, in 1995, astronaut Bill Gregory ate 48 meals in a row, which included shrimp cocktail. Was he in space at the time? He was.
+
+[00:11:39] He was in space? In 1995, while in space. So, astronauts love shrimp cocktail. They can't get enough of it. And it's hard to come by up there, obviously. What do you mean, sorry, they love it. Is this part of the selection process? Yes.
+
+[00:12:01] It's the final question. You go through all of your training for a few years, and then they very, they just give you a plate of shrimp cocktail and say, what would you do with that? Yeah, they do absolutely love it, don't they? So Chris Havfield, who was in space, what, just a couple of years ago? He said it was his favorite food. And Edward White, who was in space in 1965, said it was his favorite food.
+
+[00:12:23] And pretty much everyone from that guy to that guy who has just loved this stuff. Really? Yeah. So, I mean, Gregory was having it for breakfast. You know, he was having it with his breakfast. He'd have fruit yogurt, some oatmeal, and then a shrimp cocktail for his. breakfast. And Jim Riley, when he was on the
+
+[00:12:39] endeavor, he would take his Russian colleagues on mere bags of shrimp cocktail as a friendly offering between neighbors, you know? Although I think he might have done that because the Americans aren't allowed alcohol on board, whereas the Russians are. And so often they'll get some medicinal alcohol
+
+[00:12:55] in return from the Russians. Yeah. There was one astronaut called Story Musgrave, which is a brilliant name. He was on the space shuttle, and he sometimes would threaten other astronauts when they were making their menu choices, he'd say, you'd better put shrimp cocktail on your menu, or you'll be sorry. Because he thought that if they didn't put it on their menu, they'd try and steal his because they would realize how delicious it was. It's because it stays spicy in
+
+[00:13:19] space, basically, and it provides a lot more flavor than other food. Oh, and that's a thing, isn't it? Spice is a thing because the spice, they're often clogged up in their nostrils, and the spice rises and clears them. I didn't know the prawn cocktail, I'm going to call it, because I'm British. I didn't know that it was spicy. No, but they add spicy. So they could just bring up cups of Tabasco. If they like it because it's...
+
+[00:13:44] There is Tabasco in it, definitely. Yeah. Yeah. Tomatoeee, Tabascoe, shrimp-y, goodness. The University of Suffolk have just done a study where they pulled a load of shrimp out of Britain's waterways and found that every single shrimp they looked at
+
+[00:13:59] contained cocaine. Wow. Really? Wow. Every single one. How would you have a good time as a shrimp? How are you doing up there, Bill? Yeah, I'm doing really well.
+
+[00:14:11] The earth's really big. It's really massive. Not as important as me, though. I feel like I'm in top of the whole situation up here. Desperately shoving shrimp up their nose. That's incredible. Do we... Why do they all have so much?
+
+[00:14:23] It has been flushed into the rivers from human sewage. Because too many humans are taking illegal drugs. And we're on to you. Ketamine as well. Well, a lot of ketamine. It's a horse tranquilizer. Yeah, is it a downer? Yeah, it's a bit of a downer.
+
+[00:14:43] When you're giving it to shrimp. Yeah. You must have to take much less as a shrimp than you do as a horse. I mean, horse, sorry, just to clarify, horse don't take it for fun. They don't... I don't think the shrimp are doing that either, do you bet? Someone emailed me actually this week saying that New York's drinking water is full of crustaceans. Is this a thing that you guys are all familiar with?
+
+[00:15:05] There seems to be a theme online, which is that New York has the best drinking water in the world, but it's also riddled with, yeah, someone agrees, good, riddled with tiny crustaceans. And I read that once that that is a problem because it's technically not kosher, is that right? Oh. I think so, yeah, which I think if you're a really orthodox Jew, you have to get filtered water, I think. A few people in this audience feeling so horrified. I have another New York shrimp fact. This is surprising.
+
+[00:15:33] So there are some, it's tangentially. But there are some shrimp species which are social and they form little kingdoms. So there's a king and a queen shrimp in these shrimp societies. And these are really small shrimp. They're about the size of a grain of rice. They're many. But they live inside sea sponges. And if an intruder comes in and meets a single shrimp, you know, shrimp is face to face
+
+[00:15:55] with a big predator, the shrimp will snap its claws rhythmically to summon its friends. What, like is it West Side Story? Oh my God. Sorry. Wow. Jesus. It's the Jets, the Sharks and the Shrooms. They've got the cocaine trade stitched up, the shrim.
+
+[00:16:14] They're good clickers, actually. Prawns, aren't they? So they do a strong line in making clicking noises with their claws. And there's the pistol shrimp, which does this. So it looks bizarre. It's got one incredibly fat, swollen claw and one, like, really slender one. It looks kind of like Nadal. Do you remember when he had, like, one huge left arm?
+
+[00:16:33] Right. It's the Nadal of the shrimp world. Basically, it uses its giant claw to fire bubbles at its foes. It's like a machine gun fire, so it projects bubbles through the water, and they go so fast, and they reach unbelievable temperatures.
+
+[00:16:48] So when their bubbles burst and, like, smash into the face of a predator, then they reach 8,000 degrees Fahrenheit. They are hotter than the surface of the sun. What? Which is mad. And they also have this bizarre thing with their pincers,
+
+[00:17:02] where if they are attacked on the pincer, then they can shed it. So their pincers will drop off. So let's say they're attacked in their big pincer. It drops off, and that's okay, because it grows back. But if they lose the big fat pincor, it grows back as a thin one.
+
+[00:17:16] And then the other one that used to be thin compensates and becomes big and fat. And occasionally you get shrimps who have screwed this up somehow, and they've got two huge fat pincers. And that seems really cool, but it's really sad because they're essentially like a knife and fork. So they have respective purpose. purposes. So the slender pincer is needed for sort of picking the meat out of their prey once they've killed it.
+
+[00:17:38] So if they only have the big fat ones, they're just killing their prey left, right and center, and then they can't actually... So it's like Nadal if he could only play really hard shots, he could do any drop shots. Exactly. Regret starting that analogy. I was looking at general crustaceans as well as this. There are some ancient crustaceans which spent so much energy growing their genitals that they went extinct. Isn't... no, what?
+
+[00:18:09] These are things called ostracods. They're small... They're chalk-shelled crustaceans. They're tiny. And they're very ancient as well. They go back hundreds of millions of years. And in fossils, you can tell the difference
+
+[00:18:19] between male and female ones, because the males have more genitals, and they are a slightly larger shape to accommodate those said genitals. In fact, they're mostly... A third of the internal volume of the male is genitals.
+
+[00:18:33] You've said genitals a lot in this sentence. I have a bit, yeah. Well, get ready, James, because there are more to come. I wish that's the first time I heard that. It's all flooding back. I wish this wasn't the show that our respected partners were at. So the male ostracods with the bigger genitals of the... the species studied were likely to go extinct because they had put so many resources of their
+
+[00:19:09] life into growing their genitals that they couldn't really respond to change. It's like spending an enormous amount of money building a giant penis statue on your house. If you then have a run of bad luck, you'll go bankrupt because you haven't got the necessary cash packing. This is not as good as the Nadal one. I know. I know. I know. What it's like is if you play tennis and you grow your arm really, really big, your right arm, you get really good, but then the rules change and everyone has to play left-handed. It's like that, isn't it?
+
+[00:19:39] That is better than... Oh, I've spent so much money on that statue. They also, so just on them, they also had huge sperm. Did they? This is the incredible thing about them. Their sperm were, I think their sperm were ten times bigger than their bodies.
+
+[00:19:58] What? So, they had to sort of... Yeah. once they developed a sperm, they don't have one, I think. How does that work, though? The folded. Oh, the fold. It's not like coming out of his mouth.
+
+[00:20:10] Well, it does. When it's delivered, so it's all coiled up like a hose pipe, but when it's delivered, I suppose, you'd be able to just go on and on, like one of those handkerchiefs coming out of a magician's pocket. Wow. What? How upsetting.
+
+[00:20:23] How fun would sex be if that's what happened every time. How fun would children's parties be, it's happened every time. So there was one, um, like animal from the Cambrian period called Sinofellos Zynos. And they had a groove on their face that could lock onto the tail of another one of their kind. And so what they would do is they would keep locking themselves on like a load of Legos and just became a massive version of that animal.
+
+[00:20:52] The human centipede? The shrimp conga, I think is what you mean. That is a much nicer movie, isn't it? The shrimp conger. I imagine Dan, you in a human sense, to be going, let's do a conga. You always like to see the good in every situation, don't you? Worst birthday party ever.
+
+[00:21:20] Now the magician. Okay, we're going to have to move on to our next fact. It is time for fact number three, and that is James. Okay, my fact this week is that the loudest male birds on earth, use their voices to yell at females who are sat right next to them. And I don't think we could see any kind of parallels in our species. So this is an article in the journal Current Biology by a couple of scientists called Jeffrey Podos and Mario Cohen Haft.
+
+[00:21:52] And they have found this bird called the White Bellbird. And it can shout at an average of 116 decibels from a distance of one meter. and the reason that they're really good at shouting is they have a really, really simple song. So there's no trills, nothing like that, no flourishes. It's just one, it's like a foghorn. And also, when they've cut them up, they've realized that they have, well, according to this article,
+
+[00:22:20] it says, unlike most birds, the species has great abs. Whoa. And so what he can do is just go to a female and just go right next to her and go, I've got great abs! And she will find that very attractive. Well, I think, because this is how they, this is the ones that have been observed.
+
+[00:22:41] And the scientist studying them, this guy, Dr. Podos, he said that they start by facing away from the female. They start shouting when they're looking in the other direction. And then suddenly they just swing around and start shouting the other. And Poddust said that we never saw copulation. We never saw what a really good male does. the ones we saw might have just been losers. Oh, really? I didn't see that there.
+
+[00:23:08] It starts to make a lot more sense, doesn't it? I suppose the idea, from what they're saying, is because they don't have all these trills and whistles and things like that, the females can't judge how good the song is on how technically good it is. All they can judge it on is how strong it is and how loud it is.
+
+[00:23:24] Right. What they're saying. Or how thoughtful and quiet it is. And I think, isn't it the case that they, the reason they are able to be so loud is because they don't chew their food. Is that right? Yeah, their beaks open, don't they really wide? Yeah, they've got massive mouths, and they just eat whole fruit, swallow it down completely whole, and then it just sits there in their stomach for ages, which maybe is what that makes their abs so impressive.
+
+[00:23:50] And then they just throw up the seeds when they're done. And because they've got these huge mouths and these strong digestive muscles, and that's meant had the side effect have been good at singing. That's very cool. They're part of a, so they're called the bellbird, I believe. That's right, the white bellbird. The white bellbird. So there's a few of those species dotted around, and there's one which is called the three-wattled bellbird, and they have a similar call as loud.
+
+[00:24:11] So if you're a human listening to it, it's just under a mile away that you would hear this sound that comes out. And that's not the loudest, your one's the loudest. So imagine being right next to it. But their sound, which is a three-part song that they do, for the mating call and for the sort of telling males that I'm in this territory. is called, and this is a very English word, but it's called the bonk. For a mating called, the bonk is,
+
+[00:24:37] so in England, bonk means to have the sex. Yeah, I mean, fancier bonk, you strumpet, is a common phrase in our culture. So there are other birds called satin-bow birds,
+
+[00:24:56] and they actually are a bit more sensitive to the females than these these what was it the billbirds so they they are capable of being very loud but they realize that if they are continue very loud once they have an initial lead with a female then they will startle and put off the females so they deliberately tone it down
+
+[00:25:17] yeah they give very intense behavioral displays as it's called and then the females crouch and say I'm not having a nice date anymore and the males then back off really yeah it's do you say they're bowbirds. Yes. So the one thing I know about bowbirds is some of the species they make like they make nests
+
+[00:25:34] that are like little tunnels, right? And at the end of the tunnel they'll put a load of like blue objects for instance. It's always kind of the same colour and they'll put a load of objects there and then they'll funnel the female into this tunnel and show her the amazing objects that they collected. But what they like to do is they like
+
+[00:25:52] to put the bigger objects at the back and the smaller objects at the front and that creates a forced perspective so when they stand in the middle of their blue objects they look way bigger. Isn't that cool? Well, so they stand next to the big ones? Yeah, or is it the other way around?
+
+[00:26:08] I can't remember. They understand perspective more than you do, is what you're saying. They did a study on zebra finches I think last year in 2018 and they found that they practiced singing in their sleep so they look at zebra finches and they see that their vocal cords move in the exact same way that they move when they're awake,
+
+[00:26:27] and their neurons are firing in the same way that they're firing when they're awake. So they're literally singing the same tunes. And the only reason that you can't hear them is because they have their mouths shut and they're not passing air over them. And so, if you were to get a sleeping zebra finch, open its mouth, and then blow into its face. Well, you're going to be arrested.
+
+[00:26:49] You do not get arrested for blowing it a zebra finch. Well, if you don't, you bloody well should be. Anyway, if you do that, it will play the bird song. Wow. Isn't that incredible? That's incredible. That's amazing. Do you know there are some birds that French kiss?
+
+[00:27:04] White fronted parrots, French kiss. They will open their beaks and they'll flick their tongues back and forth. It's quite romantic, actually. The male will then regurgitate his food into the female's mouth as a form of affection. Oh. I was just looking into mating rituals generally within the animal world. world. And I found, so this is a bit of, it's not quite directly connected, but I found the story that happened in China, a male cat that had been put into a pet sort of hotel for the evening while his
+
+[00:27:39] owners were away. And they told them the cat's not been neutered. And so, you know, keep him away from other cats. And he came back in the morning and the cats, it turned out, had all been let out and the staff had gone home and they saw on CCTV that this cat ended up sleeping with five different cats over the course of the evening. They didn't know this to begin with, but they worked out because the cat was so exhausted that it needed to be put on a glucose drip. It was, this cat was absolutely knackered. And the owner asked to see the CCTV. And he said, between the hours of 1040 p.m. and 5 a.m., my cat mated with five female cats. And those are the only ones I could see on the CCTV footage.
+
+[00:28:21] Who knows what else? And so they blamed him. They were like, well, you should have neutered your cat. He said, I told them. And now all these cats are going to be pregnant. No owner wants their cat to be pregnant. And his quote, this is my favorite quote, my fucking cat is exhausted and on a glucose drip, and this is my fault.
+
+[00:28:43] Okay, it is time for our final fact of the show, and that is Chisinski. My fact this week is that in the 1490s, the Italians called syphilis the French disease. The French called it the Italian disease. The Russians called it the Polish disease. The Polish called it the Turkish disease. The Turkish called it the Christian disease.
+
+[00:29:04] And the Tahitians called it the British disease. Actually, they all should have been calling it the American disease. It's just scientific fact, guys. I want to make clear at the start of this fact. I really don't think a nation should be blamed for being the origin of an illness. I'm making that clear from the start, but syphilis started here. And this was a, it was a huge deal.
+
+[00:29:31] So it was 1495, this syphilis outbreak suddenly happened in Europe, and they didn't know where this awful illness had come from. And there had been a lot of talks. It was just when Columbus had just popped over to America and picked up some stuff and come back. And so there's been speculation that maybe one of the things that he brought back with him was syphilis, but they've recently done a study in 20, 2011 they actually did a study and they looked at all the bones of people who maybe died of syphilis
+
+[00:29:57] from the pre-Columbus era and they found that none of them actually had that they're all sort of masquerading in syphilis but was something else and syphilis did not arrive in europe until that expedition to the americas yeah but it really it devastated europe this is one of the reasons why everyone was blaming their neighbors because it was ruinous and disgusting there was a thing about the about the people who were living in europe and were thought to have had syphilist pre-Columbus. So there were 16 bodies that were found and I think there might have been monks in England, in Lindisfarne somewhere, but they all appeared to have had it and they were older. So this was very good evidence for syphilis not being a Colombian thing. However, this is the amazing thing.
+
+[00:30:41] They lived in coastal regions where a load of their diet was seafood. Okay. And if you eat a load of seafood, a lot of the water in the deep ocean contains old carbon. It's carbon which is a lot older than the carbon we get from our food today. So this thing called the marine reservoir effect means that if you eat a lot of seafood, that will have had deep old carbon in it, and the carbon in that is older. So your skeleton will look hundreds of years older to experts in the future. So these people died of syphilis, but they were older than we thought.
+
+[00:31:14] No, younger than we thought. These people were a lot younger than we thought. We thought they were from 80080, for example, but actually they were from way. later than that. Isn't that bizarre? You can make yourself seem older by eating seafood. It's a good anti-aging tip, actually, for the afterlife. Avoid fish.
+
+[00:31:33] It wasn't just syphilis that we got from the Americas. We also got Shagga's disease, which sounds like a synonym for syphilis, actually. And there are about 8,000 people a year die of that.
+
+[00:31:48] Sorry, do we know what that is? Yeah, it's like a parasitic infection that you get. People always thought the Darwin had it but I think they've decided that he didn't now. Yeah. Pinter is another one, which is non-fatal. And as far as I can see, they're the three main things that we got from the Americas. In return,
+
+[00:32:03] Americans got bubonic plague, chicken pox, cholera, diphtheria, gonorrhea, influenza, leprosy, malaria, measles, mumps, rebella, scarlate fever, smallpox and tuberculosis. So it doesn't feel like we should be blaming them that much. No. No. I like whoever it was who was cheering that list, though.
+
+[00:32:25] Some level of pride. I've got them all! Gotta catch them all. Bingo! Do you think that was the Pokemon Go of the 1400? Pokemon Go immediately to a doctor. Do you know what in the middle... In the 15th, 16th centuries, 16th onwards,
+
+[00:32:45] it was very contagious, obviously, and transmitted sexually. So, you know, it was a big... It was seen as a big social problem, hence everyone blaming everyone else. So if you were in a country that was not your own, you might be deported if you got the disease. And if you were wealthy, you might be put under house arrest. But for people who were not wealthy, it was still an enormous problem, and you could go to a hospital.
+
+[00:33:08] They actually, you know, constructed some hospitals to help people with this disease. But the catch was you would be publicly whipped before you went into hospital. And then again, after you came out. Oh. Wow. Yeah. It's a good disincentive, though. If you're trying to keep the health budget down, I think,
+
+[00:33:28] telling people you'll beat them before and after they go into hospital would stop some people from going, wouldn't it? I guess. I'm not advising it as a policy, I'm just saying, you know, elections coming up in both of our countries. It is definitely a thing, though, of blaming foreigners, isn't it, for illnesses? So, for instance, U.S. Senate candidate from New Hampshire, Scott Brown, said that undocumented immigrants were bringing Ebola into the US.
+
+[00:33:54] Tontillis said that they should shut down the southern border completely to keep Ebola at bay. Fox News anchor Chris Wallace said that Ebola-infected terrorists might launch a biological terror attack from Mexico. Basically, they thought that people with Ebola were going to come up from Mexico and spread it in the US. Now, Mexico has had no confirmed cases of Ebola in its entire history. and in fact the closest country to Mexico with any confirmed Ebola cases is of course the United States of America. There's a bizarre disease
+
+[00:34:28] called Jumping Frenchman Syndrome just as a synthesis fact is about sort of us blaming illnesses on the Gallic peoples so jumping Frenchman syndrome was only recorded in one place one time and it was among the jumping Frenchman of Maine in 1878
+
+[00:34:45] and there were 50 cases of it and basically it was these people who reacted really abnormally to sudden stimuli. So if you sort of shouted at them, they just jumped really high in the air. They either jump really high or they shouted or they hit someone. And they also had this thing where they instinctively obeyed any instructions that you gave them. If you gave them immediate instructions, they did it straight away without thinking about it. So if you said, you know, push your wife off a cliff, they'd just do it. And no one knows what it is.
+
+[00:35:13] They were all French, Canadian or sort of on the border of Canada lumberjacks in this remote region and they think it might be just one of these remote illnesses confined to a very like a genetic thing i guess if you're a place how long how long would the um the belief in the command last for because if you were a lumberjack and they said push your wife off a cliff you'd have to grab her and run quite a long way yeah it will wear off find your clip yeah okay but you could say punch that guy to two of the lumberjacks and they would punch each other immediately wow yeah yeah yeah it was dangerous you shouldn't say that around them in fact anyone from northern main just don't risk it just in case.
+
+[00:35:49] So I found a disease which one of us has, I've discovered, and we won't be... This is like the best reality show ever. Andy, you've got syphilis. Well, if I have, James has. Huge gossip there. To be discussed in the dressing room. Does the one of us know that we have it?
+
+[00:36:17] No, no. Oh, really? Yeah, and I'm not sure actually if we do have it, but... Wow. But I've got evidence that we might. So there's a thing called coprographia. There's a few other variations on that word.
+
+[00:36:30] Oh, I know where you're going with this. Yeah, so the idea is that you find yourself involuntarily, if you're just sitting down and let's say you have a pen and paper or you're near a window drawing a cock and balls on the thing. You just find yourself just doing it. You didn't know you were doing it. Now, the reason I think that one of us has it is because when we were recording the audiobook of the book of the year 2019,
+
+[00:36:51] instead of reading from the book, they gave us iPads to read it from. And halfway through, Anna discovered, there's a little button that means you can draw on the iPad. And there was a bit in the book where she just didn't say anything for a tiny bit, and we stopped, and she went, sorry, guys, I don't know what happened.
+
+[00:37:08] I was really distracted. Turned her iPad to us, and there was a massive cock and balls sitting. There wasn't one massive one. There were loads of small ones, to be fair. That's a big difference, actually, that, Dan. Okay. It was like the shrimp conger.
+
+[00:37:23] It's one big one made up of lots of little. Oh, okay. That's the thing. I was looking into, so this fact is about how a disease got its name and everyone said it was the French and it all gave it a different name. So I was just curious about names of diseases and how they get them. And actually, quite recently, a Colorado-based scientist did a thing where she wanted to see if an AI machine could generate serious sounding disease names. and she fed in 3,765 conditions, all the descriptions of them into this machine
+
+[00:37:54] to see what they came up with. And some great names came out of it. So according to AI, people out there are suffering from penis arthritis. Makes me feel a bit stiff in the morning, that one. They were all amazing. Insect skulls was one. Cancer of the cancer.
+
+[00:38:18] and RIP syndrome. We need to wrap up, guys. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy.
+
+[00:38:43] At Andrew Hunter.m. James. At James Harkin. And Chisinski. You can email a podcast at QI.com. Yep. Or you can go to our great. group account at No Such Thing or our website. No Such Thing as a Fish.com.
+
+[00:38:53] We have everything up there from upcoming tour dates to all of our previous episodes to things like our new book, the book of the year of 2019. Thank you so much, New York. That was awesome. We'll see you again. Good night.

@@ -1,0 +1,205 @@
+# No Such Thing As A Fish - No Such Thing As A Flying Sniffer Dog
+
+- Episode date: October 16, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-flying-sniffer-dog
+- Slug: no-such-thing-as-a-flying-sniffer-dog
+
+## Transcript
+
+[00:00:00] And welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the Lowry and Salford. My name is Dan Schreiber. Joining me on the stage is the three regular elves. It's Andy Murray, Anna Chisinski, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. So, starting with My Fact. My fact this week is the seventh time park ranger Roy Sullivan was struck by lightning,
+
+[00:00:49] coincided with the 22nd time he fought off a bear with a stick. So this guy's a park ranger. He was, I think he was fishing at the time. So he was just out there. He's been struck six times before. And then lightning was coming. And he just thought, oh, I'll just stay here probably not. Nothing bad will happen.
+
+[00:01:13] Got struck by lightning, was running back to his car, and suddenly a bear comes out of nowhere, and he's just like, Jesus Christ, has to fight off a bear and then went back home. His diary must have been amazing. Bear, bear, lightning, lightning and bear. But as I said, he's been struck seven times. He was almost struck eight times,
+
+[00:01:35] but the eighth time when he should have been struck, it hit his wife instead. It sounds awful. It sounds terrible. because obviously he was interviewed because he was very um he became well known for this and he said naturally people avoid me i was i was walking with the chief ranger one day and lightning struck way off and he said i'll see you later roy then he said there's a restaurant on loft mountain that even it's just overcast they won't let me in um it sounds awful it sounds terrible because
+
+[00:02:10] time number four um he This is August 1973. I think he died in the early 80s, possibly. But in August 1973, he got in his car and he accelerated because there was a cloud forming
+
+[00:02:22] and he was very nervous about storm clouds by this point. And he outran it, stopped the car, got out of it to watch the storm, hit by lightning again. They have a full list of all the times that he was...
+
+[00:02:35] The first time he lost his big toe nail to lightning. Oh, so big toe nail? Yeah, big toe nail, yeah. The fifth time, a bolt came up. out of a small low-lying cloud, hit him on the head through his hat,
+
+[00:02:47] set his hair on fire again, again, knocked him 10 feet out of his car, and knocked his left shoe off. Do you know why shoes come off when you get hit by lightning? Is it because you watch cartoons? So, for example, when it hits a tree, lightning, it will sometimes explode a tree
+
+[00:03:08] if the moisture is in the middle of the tree because it takes the path of least resistance. people obviously there's moisture everywhere and we're you know 70% liquid so it often dissipates all over your skin but if it when it does that all the sweat and the moisture on you boil into steam immediately and sometimes so much steam is produced that your shoes will be blown off that's what causes it so he got struck seven times yeah i found someone who's been struck even more really yeah recently there's a guy called melvin roberts from south carolina and he at least claims to have been struck 10 times He was in the news in 2011 for being hit six times
+
+[00:03:45] and his wife says that he's been struck another four times since. By lightning, definitely. She's not just finding him really annoying. I think I found a group of people who've been struck by lightning even more than that. Wow, really? Yeah, so I was reading The 14 times. It's an amazing magazine and in it they had a small story
+
+[00:04:04] where someone had written in to contest the fact that Roy Sullivan was the most struck person of all time. And what they said was that in 1995, a group of explorers who were up on a mountain, mountaineers, got struck 20 times in 16 hours, a group of five. And they were in their tent, and they all described the moment that they were struck.
+
+[00:04:25] And they were just in there getting struck over and over again, 17 times. And they went, we've got to get out of there out of here. There's a rescue shelter down the mountain. So they started ab-sailing, and while they were doing that, they were struck three more times on the ab-sail down. Oh, my God.
+
+[00:04:41] To be fair, I do think you have to divide that by five, though, at which point you haven't been in the record anymore. Very good point. Yeah, it's all about the mass. It sometimes goes from one person to another as well. No. Yeah, or it can hit, for example, it can rebound off a tree and into a horse or whatever.
+
+[00:04:55] It just, yeah, I mean, and then it's less likely to kill you because at least some of the force has been dissipated. Yeah. That's the idea. Men account for 85% of lightning strikes. Isn't that weird? And the National Weather Service in the US speculated that this might be because men tend to be
+
+[00:05:11] unaware of all the dangers associated with lightning, more likely to be in vulnerable situations, unwilling to be inconvenienced by the threat of lightning, and don't react quickly to the lightning threat or any combination of these explanations. So there's stupid, ignorant, pig-headed, and they have very slow reactions. That actually was just my interpretation,
+
+[00:05:32] but I think that's the long and short of it. A man in Croatia has admitted that he has not gone outside after hearing thunder since lightning struck his penis in 2007. Zoran Jerkovich. It's there, it's online, honestly. Zoran Jerkovich said, my friends used to tease me, and I used to tease them back,
+
+[00:05:59] saying my penis has extraordinary ability now. But it doesn't. It's hard to tease them back when you've just got a sort of charred stump to do. So I think there might be something about Croatia God hates it or something. So there's a Croatian woman who has been left recently
+
+[00:06:22] with a severely burned anus after a lightning strike ended her mouth while she was cleaning her teeth and drinking water from the tap came through the tap ended her mouth and then left through the anus
+
+[00:06:33] so it could earth through the ground. Apparently, so the report said she was wearing rubber-sulled shoes so once the lightning had entered through her mouth when she was drinking water from the tap. It took the easiest route and came out of her rectum to reach her rubber-shold shoes.
+
+[00:06:49] You know, speaking of lightning coming out the bum, there actually is a fabled worm called the Mongolian death worm, which is in Mongolia. Is it, Dan? It's a massive worm,
+
+[00:07:06] and all accounts of it say that it can shoot acid from its eyes and lightning bolts from its anus. Accounts. I don't think. I don't think they deserve the name accounts. No one really knows why lightning happens, do they?
+
+[00:07:21] I mean, we kind of do. Like, when you're at school, they tell you, like, it's because clouds are rubbing together or whatever, and it kind of is that a little bit. But it's like ice going up in the clouds and water coming down or the other way around, and they rub against each other, and it causes, like, static electricity,
+
+[00:07:35] like you would have with a balloon. But no one really knows why it starts, and it's like a chain reaction that starts. And one theory, you'll like this, Dan. Apparently, there's the latest, theory coming from Russia that it's cosmic rays, which come from outside the solar system and hit the earth, and that's what starts the lightning in the first place. Wow. And no one knows what causes cosmic rays, really. I mean, it could be supernovas or quasars or... The Mongolian
+
+[00:07:57] death were... We can't rule it out. Yeah, amazing. You know, America has two annual conferences for lightning strike survivors. Oh, really? Yeah. Don't they say about 80% of people struck by lightning actually survive the strike? Yes, yes, yes, 80 to 90% live, but it's not plain sailing after that. It's not as though you have burns and then you recover. It can scramble your memory. And there are all these long-term effects that we don't know about.
+
+[00:08:26] And it just gets right into your cells. And there aren't enough cases that are studied in the medical literature to have a proper body of science. So it's a lot of guesswork. And, yeah, there just isn't the money to try and work out what exactly has happened. Okay. We're going to have to move on to our next fact in a minute. Is there anything else you guys want to add?
+
+[00:08:44] Another thing that we can't explain is the lightning that happens at the beacon of Maracaibo, which is the most incredible place on the planet. So this is a place in Venezuela. It's the Catatumbo River, I think, in Venezuela. And it's one tiny spot where for 280 times an hour, for 10 hours a night, for 160 nights a year, lightning strikes this exact same spot and nobody knows why. I reckon it could be Roy Sullivan doing some fishing. But isn't that weird?
+
+[00:09:17] And it was mentioned first in a poem about Francis Drake in 1597 and fishermen use it on this lake in Venezuela to light their way. So if they're going fishing, they just use this constant lightning storm to say, oh, okay, well, there's a storm. I guess we go towards that because that's where we'll get the best light slash die. And yeah, no one knows why it happens. Wow. That's amazing.
+
+[00:09:37] I did read about that, and I think it replenishes the ozone layer, doesn't it? Biggest source of ozone on Earth. the biggest single source of ozone on earth. So it's a good thing. It's a good thing. That's so cool. Okay, we're going to move on to fact number two, and that is James Harkin.
+
+[00:09:53] Okay, my fact this week is that this year, America's Hero Dog of the Year award was won by a cat. Can't have been a good night to be a dog. Yeah, so this is Tara the Cat, and I reckon some people will know it, or will at least know the cat itself, because it's been a bit of an internet sensation.
+
+[00:10:15] There was a young child being mulled by a dog next to a car. You might have seen the video on YouTube, and then this cat runs on and kind of scares a dog away and then runs off again, and she became such a hero that she is now an honorary dog. Wow. What a way to reward her to invite her to a ceremony full of dogs. Who are now pissed off that a cat's one.
+
+[00:10:39] It is amazing. She just full-on runs into the dog. She just smashes her head into it. Have you guys seen that video? You must have done it right. Yeah. It's good to watch. Yeah. She got a few other awards, actually.
+
+[00:10:50] She was invited by the local baseball team, the Bakersfield Blaze, because this was in Baker's Field in California. They invited her to throw the first pitch. No way. Yeah. And a baseball game. How did she do? Well, it said on the news report that she was assisted by her family.
+
+[00:11:10] I've watched it. And the family do a lot of us. It goes wrong about five times and then basically a guy holding a cat throws a ball. Basically it. But this video is the first YouTube video in history to reach 20 million views in five days. And the cat became a hero and the dog was put down. Was it? Yeah.
+
+[00:11:32] No way. It just bites it. It had bitten a child really badly on the leg. Yeah, okay. Sorry. I'm on the dog side. No, I'm not. I'm not.
+
+[00:11:42] Cats have a long and noble history of impersonating dogs, though, don't they? Because they can bark like dogs. Like if you have cats and dogs living together, then cats will learn to impersonate dogs. What? Okay, hang on, no. I've never... I'm the Mongolian death one guy. If you basically look at a time into YouTube, cat barking like a dog.
+
+[00:12:01] Are you sure that a cat can bat like a dog and not that a dog can throw its voice? Dogs are actually amazing ventriloquists and we've not realized. But there is a really good video on. YouTube of a cat owner. I mean, I can't believe we're discussing YouTube memes, but let's do it. Of a cat owner who sneaks up behind her cat, filming her cat sitting on a window ledge, looking outside at a dog, which obviously lives with the family,
+
+[00:12:25] or lives next door, so it's lived around it, and barking. And it's honestly going, the cat's going, rough, rough, rough! And it keeps doing this, loads. And then the person who's holding the camera sort of clears her throat, and the cat hears, and looks around, and starts to be, meo. And the science came up. with some bullshit explanation like, oh, she turned her vocal cords
+
+[00:12:45] as she turned around, which changed the tenor of her voice. But it's quite clearly the cat going, whoopsie, I've been caught right in the act of impersonating a dog. So just on heroic dogs, I have a couple of different kinds of heroic dogs, we all know about bomb-detecting dogs, and we know about guide dogs. There is only one, I believe, there's a great piece in the Guardian about this, there is only one airborne nut allergy dog in the UK. Sorry, the dog was airborne or the nuts.
+
+[00:13:14] My fault, should to clarify. So there's a woman also called Tara actually, Tara Bedford. She has an incredibly bad nut allergy, so bad that even the smell of nuts can trigger a reaction. She says, any rustle on a train or a bus, and it's, what are they opening? Should I move? She can't go to the cinema. She can't go to a plane because someone opens a packet of peanuts and she's dead. She's in a plane.
+
+[00:13:37] She had to go to A&E 40 times in four years. Oh my God. But the story has a happy ending because there was a Labrador who had failed a guide dog test for overuse of the nose. Put them together and now the dog forcefully pushes her
+
+[00:13:53] whenever the dog smells nuts, a peanut or a nut she's allergic to. So it's a very good ending. A seeing nose dog. Seeing nose dog, yeah. Wow, that's so cool. And he flies as well. And Rush...
+
+[00:14:10] I'm sorry. Russia employs sniffer cats. Do you know that? Really? Really? Yeah, there's some sniffer cats in Russia, and they're looking for kind of Russian mafia might be smuggling fish for the caviar down in the south of Russia. And the most famous one, the first one, was called Rusik. And Rusik died when he was hit by a criminal's car quite recently.
+
+[00:14:33] And the locals thought that it might be a contract killing, because the week before, another cat called Barsik was killed after. he was poisoned by a mouse. What? Sorry, with a mouse. Oh. Yeah. I was looking into sort of the latest in Cat News.
+
+[00:14:56] And I headed to a place I discovered a few podcasts ago. I headed to Pussington Post. Just a few recent headlines. Cat ignores frogs sitting on his paw. That was September 17th, if you want to look that one up. If you're into Cat News, which you obviously are, there's this guy who is constantly updating us on Cat News. He runs a Twitter feed called NBA Cat Watch,
+
+[00:15:24] and the entire Twitter feed is devoted to finding out what cats are owned by basketball players. And he's been going for quite a while now. So he said it started off as a typical dumb Twitter joke, but the more I thought about it, something caught in my brain, I'd be watching a basketball game and I'd start to think about who does own a cat on this team?
+
+[00:15:45] He said, I'm aware that it's ridiculous trying to find NBA players' cats on social media. However, it's my niche and I got there first. And yet no one has ever got their second, have they? I found a really exciting Guinness book World Record, which is for World Mousing Champion. And the winner of this, the current champion of the sword. It's a dog, is a dog.
+
+[00:16:12] It's a cat. But it's amazing that this is an actual record that's being held. So it's a cat called Towser. And Towser was stationed at distillery in Scotland, and where grouse whiskey is made. And during her reign, she killed 28,89 mice. No way. Yeah, and so that's a Guinness World record.
+
+[00:16:35] That's a way. And then she died, so she got taken over by another cat called Amber. who's been there for 20 years now and who they've said was not known to have caught a single mouse. They've all been caught already. She's just got there on a first day and go, well, there's not much to do here, is there?
+
+[00:16:52] Can I tell you about a couple more little dog things? Yes, please. So there's another kind of dog which is a corpse detection dog. So police use them to find bodies, things like this. And they have to be trained. But you can't train them, obviously, on real cases because there are very few of those. So they're trained by wrapping up pigs' bodies in shower curtains.
+
+[00:17:15] And there's a man who runs a search company, his name is Mick Swindles, and he says he always puts clothes on the pigs too, for added realism. Insert your own David Cameron Joke here. Oh, God. Well, this is the thing. He said of them, because he puts clothes on them, and he said, people say, why do you always put them in a skirt? Have you ever tried putting trousers on a pig?
+
+[00:17:45] So presumably these cats are just now really good at detecting Clothed pigs. Dogs are really good detecting clothed pigs and not that good at detecting human corpses. We're very similar to pigs in many ways. Speak for yourself. We're going to have to move on in a sec. Can I say one thing?
+
+[00:18:02] This original fact was in Bakersfield in California. And so I found another story from Bakersfield. It's just a quick one. It's a guy called Mr. Slivers. And he was arrested, and they interviewed him afterwards. And this is why he said. He said, I was just bored, and I decided I wanted to be a cat burglar. So I kicked in the window and tried to steal the lion,
+
+[00:18:23] but it was too heavy, so I stole the cat. And he wanted to be a cat burglar and thought that a cat burglar is something that steals cats. Whoa, whoa, whoa, whoa. I'm more interested in the home that owns both the lion and a cat. It was a museum. It was a museum. Oh, they were stuffed. Sorry, right.
+
+[00:18:40] Okay, got it. Otherwise, I don't think you'd be saying The lion is too heavy Weight is the least of your problems That line was way too bitey On my facey Okay, it's time for fact number three And that is Chazinski
+
+[00:19:01] Yeah, my fact is that The earliest known penalty for illegal parking Was to be impaled on a stake Yeah, this was... It's for... It's firm, but it's fair. And if you appeal, it's a smaller steak. So this was actually in 700 BC.
+
+[00:19:25] This is the earliest parking restriction I can find. So it's in Nineveh, which is the Assyrian capital. And the parking restriction was put in place by King Sinakarib. And we have a stone tablet where he's laid out the restriction. And it says, Royal Road, let no man decrease it. or let no man lessen it, this royal road, and on pain of being impaled on a stake. And you got impaled on a stake,
+
+[00:19:49] if you did park on the royal road in your chariot, obviously not your motor car, and impaled on a stake and then planted in your own garden so that people who were coming to visit you could go, oh, I guess he's not available for tea. Wow, planted in your own garden. What do you have a little label sticking out like you get on those plants?
+
+[00:20:07] Yeah, with the species. This is a Norman. Yeah, Sinakarab. He was, he's most famous for moving his capital city to Nineveh, like you say, and had like a really amazing capital city, didn't he? He had like gardens. They think it might been the hanging gardens of Babylon was there. And yeah, he was just an extremely opulent man. Apparently he had a piece of Noah's Ark, which he worshipped as a god. And he once wrote about his enemies, their testicles, I cut off and tore out their privates like the seeds of cucumbers. He was good with a simile, actually.
+
+[00:20:44] Sounds like he was very bad at making sandwiches. You selectively shave the outside of a cucumber, then you slot it home in the sandwich. He actually, so he was not a humble man because he did create these incredible gardens. I mean, I think people should know more about Sinakarab, and very little is written about him. But a lot of historians,
+
+[00:21:12] now think that the hanging gardens of Babylon, as you say, were his gardens, and he irrigated the mountains all around, so he built this incredible canal that stretched 50 kilometres up into the mountains, and which irrigated his whole amazing new city. But he was pretty cocky about it, so even on the signpost where he said, you'll be impaled on a steak or a cucumber or whatever if you park here, then the little signpost then went on to list his achievements explaining Sinakrib is king of the world, favorite of the gods, holder of invincible weapons, and architect of urban design. So I think that's quite like that on those signs.
+
+[00:21:47] You put a PS. Here's what I've achieved, guys. Wow. Yeah. That's amazing. Do you know in Britain the first ever parking ticket that was given? No. Okay, so it was in September 1960.
+
+[00:21:59] They set this up. Yeah, yeah, yeah. It was quite like where it was like an established proper where parking attendants went out. And the first ever ticket was given to a Dr. Thomas Creighton, who was answering an emergency call to help a heart attack victim at a West End hotel.
+
+[00:22:16] So he raced there, he got out, when he came back, he had a ticket. And there was so much public outcry that they said, okay, you haven't got a ticket. That was the first ticket. Can you imagine the... How was your first day? Cocked up pretty badly, actually.
+
+[00:22:32] But the first parking ticket in America was also had to be overturned. Oh, really? Maybe parking tickets are just a failed enterprise. Yeah, this was a reverend, actually. the Reverend C.H. North of the Third Pentecostal Holiness Church and it was a newly installed parking meter, the country's first parking meter,
+
+[00:22:49] and he just ran into a shop to get changed, and by the time he'd come out, he got a ticket, and he complained to the courts and had it overturned. Wow. It would be pretty hard to get it overturned in the old days when you're being impaled on a stake. I've got a story about parking tickets. So begin so many of Andy's anecdotes.
+
+[00:23:10] Okay, so this is from January this year, and it was from the BBC news website. A traffic warden is being investigated after a parking ticket was placed on a wheelie bin. The warden was accused of bizarre behaviour. So one witness said this. It appeared the warden slapped the plastic ticket envelope on the bin in a moment of high jinks after a member of the public pointed out it was on double yellow lines. So it's a joke. It's just a silly joke, yeah. But then the response, this is in Kamarvan.
+
+[00:23:38] Kamarvanshire Council Traffic and Safety Manager John McEvoy said Although this was meant as a humorous incident We take this kind of thing very seriously And have launched a formal investigation Into the conduct of the officer Although this was meant as a humorous incident We are still the arseals you think we are
+
+[00:23:55] I have some stuff on weird laws And slightly strange punishments If that's okay The Hittites Apparently they had a rule where anyone found guilty of committing a sex act with a dog or pig would be killed. Insert your own David Cameron, Joe Geh.
+
+[00:24:16] But if it was with a horse or a mule, the only punishment that they could give out was that you were no longer allowed to be in the presence of the king. Wow. That, isn't it? And if the king, sorry, if the pig mounted the human, then no one would be punished at all.
+
+[00:24:35] It had to be the human who was... Wow. Well, how would the king... Is that his opening question to everyone? You fucked a horse? Like that? Because you could just be in an audience of the king and it doesn't get to him that you did it.
+
+[00:24:47] That's a good point, yeah. I don't know. He was very close with the horse community. They reported all these things. Poofington Post. That's really good. It's good, but it hurts. So do you know about the guy who invented the double yellow lines?
+
+[00:25:10] No. This is a guy called George Bamber, and this is in the late 19th century, so the 1880s. And he based the double yellow line design. He was a farmer, and he based the design on the markings he put on his sheep. So he used to stripe his sheep with double yellow lines. And he noticed that no one would ever walk on his sheep or parked on them. I thought this is something. Precisely.
+
+[00:25:33] He wanted to keep the entrance to his farm clear on markings. day so people come in and buy his produce. So he thought, ah, what design could I use? Oh, those yellow lines from the sheep. And he drew them out. And it really caught on in his village. To the mayor of his town started using these double yellow lines to stop people parking in undesirable places.
+
+[00:25:49] But he received a 10% commission for a number of years on, like whenever the double yellow lines were used that he'd taken from the sheep, he got a commission on them. That's amazing. Isn't that cool? That's really cool. Because I would have thought it was based on the single yellow line. But you're saying that was invented first.
+
+[00:26:05] Double yellow line came first. That is interesting. Yeah. Yeah. It's like hearing that Rocky 2 was made before Rocky. The Rocky 2 was so good. I thought, we should do all one. We're going to have to move on to our next fact.
+
+[00:26:22] You guys got any more? All right, let's do it. It's time for our final fact of the evening, and that is Andrew Hunter Murray. My fact is that female corn, earworm, moths go invisible after sex. So this needs a bit of explaining. Basically, so corn earworm moths are a kind of moth. And when males mate with females, they have a protein in their semen,
+
+[00:26:49] which makes the female invisible to other males. So it gets into the female's body, and it inhibits all pheromone production immediately. And the males only can tell when a female's around by smell. They don't have very good vision at all. They can't really see other females. So when a male... So it's a self-prosephersonable.
+
+[00:27:08] preservation thing by the male who's done the mating, he thinks, well, I want this female off the market. So he just makes the female invisible to other males. Why didn't he just paint double yellow lines on her? So this is from a book called Nature's Nether Regions by a guy called Meno Schilt-Huisen, I hope I'm pronouncing his name right, and I just find that incredible. Yeah. That's amazing. Totally insane. Yeah. Yeah. So basically there are all kinds of animals which do incredible, strange things through the medium of sex. So banana flies
+
+[00:27:42] are a kind of fly, and male banana flies have... Not a kind of banana. Good. So when male banana flies have sex with female banana flies, they deposit semen in the female, and that contains a chemical
+
+[00:27:57] which makes the female go completely off all other males. So they start kicking away other males, and then they give off a scent to make themselves unattractive. And it lasts for a week. It's not actually that long, is it. It is if you're a banana fly, I think.
+
+[00:28:12] Completely kills their sex life. I mean, how much action are these females getting? Well, I mean, some insects do all their mating on a single day. Yeah, okay, fair enough. That's a bit rough. Yeah, yeah. No, sorry. I read that female beetles, they quench their thirst through sex,
+
+[00:28:29] and it's because of the semen and the fluids in the semen, because they get very dehydrated. And so when they have sex, it's actually just like having a job. drink for them. That's the reason we all do it, Dan. Sometimes the tap is too far away. So some insects do all the mating. Bees and ants do all their mating for a lifetime in a single day
+
+[00:29:01] when the queen does all her mating. And the males sort of try and fight each other with semen. to do rivalry, basically. And some queens, if they've mated with a male and they like that male, they can secrete a fluid to protect that male's semen from the rival sperm, basically. And the scientist who found this out is called Boris Baer,
+
+[00:29:26] from the University of Western Australia. And he was asked whether this might happen in humans, whether human women could do such a thing. And he said that he doubted it. And he said, to my knowledge, women do not copulate with 90 mates in half an hour. in his limited experience. We are learning a lot about you today.
+
+[00:29:50] So the New Zealand giraffe weevil, which is a weevil, not a giraffe, the way that they mate is like you get two weavils and they fight against each other and usually the biggest weevil wins. But there are little weevils that kind of sneak around. And when there's two males fighting over a female, that weevil goes in and then,
+
+[00:30:09] steals the female while she's like kind of watching the fight. And the female actually ends up having sex with the smallest weevil. Wow. She actually goes for the lesser of two weevils. I've never seen you look more disappointing. That was incredible. Mass suicide was committed tonight. Here's a really, really weird thing, an interesting thing about flies, baby flies.
+
+[00:30:41] Baby flies. Baby flies. can get characteristics from males who have had sex with their mother, but not their father. So a male who's had sex with the mother much, much earlier, can still give characteristics to the fly. Wow. How is, how? Well, we don't know.
+
+[00:30:59] It's really new research. But that is unbelievably interesting. But what's a characteristic for them? So say, for instance, the female fly had sex with a really big fly. Yeah. And then nothing came from it. And then the father ended up being a little scrawny fly, then the baby might have the bigness of the original guy
+
+[00:31:17] who she had sex with, even though it's not his actually father. This sounds very suspect. Are we sure this isn't just a lot of women cheating on their husbands? No, it's new research. That is why this baby's ginger. Yeah, it's called Telet. legony and it used to be believed by humans, by people. In ancient Greek time, people thought that your children would have things from whoever you had sex with, whether it was the father or not.
+
+[00:31:52] It was thought for a long, long time. And then it was shown to be not true in humans, but they've recently found that it might be true, or probably is true, in flies. Wow. That's so cool, when we had a wrong belief, and it was just completely wrong for no reason, and then it turned out we were right all along. It's very satisfying. Norway Norwegian rat sperm They can join forces with each other And become a super sperm They have little hook-shaped heads
+
+[00:32:16] And hundreds of them just hook onto each other And say, guys, we can do this together And then they swim faster as a single It's like the power rangers You remember when they combine forces To make a larger power ranger It's much like that And that's why Andy never did any more babysitting
+
+[00:32:33] Naked Mole Rats But have you guys all seen naked mole rats? Because, I mean, they're just so extraordinary in basically every single way. But their sperm are also bizarre. So only 7% of naked mole rat sperm can swim. So they ejaculate, and then the vast majority of their sperm
+
+[00:32:52] just like flails and floats around and, like, drowns or doesn't make it anywhere. Only 0.1% I think can swim really fast enough to get anywhere. So they're just constantly ejaculating, useless, useless sperm. But they are immune to all cancer. So it's like a trade-off. Yeah, swings and...
+
+[00:33:09] But up to 90% of human male sperm, as opposed to human, female sperm, obviously, has two heads or two tails or is completely deformed in other ways. There are very few, which are, you know, the perfect guys you see on the posters. I just think there are unrealistic standards of beauty for sperm. Human semen is, I'm sorry about this,
+
+[00:33:40] but it is really amazing. Don't apologize. I'll send you the dry cleaning bill and we'll call it quits. It contains proteins, ladies and gentlemen, that can forge a kind of mating plug, like other animals have mating plugs that stop other males from impregnating females, but the proteins in human semen can do a similar kind of thing.
+
+[00:34:07] and it also contains chemical compounds that prevent the sperm cells from becoming overenthusiastic. I'm not quite sure what that means, but... Does it sort of, they sort of overshoot past the egg, and they end up in the kidney or something? So there was a question on Yahoo! Which, I never know if people are joking on Yahoo! Answers, but someone posted a question saying, I ran out of shampoo and I don't have any money,
+
+[00:34:34] have no choice, and I have to go to work tomorrow. My hair smells. like feces. Can I just use sperm as my shampoo? The next post was the next day from the same guy. Well, no one asked me about the feces smell at least. Okay, we're going to wrap up. Okay, that's it.
+
+[00:34:57] That's all of our facts. Thank you so much for coming tonight, everybody. If you want to get in contact with us about the things we've said over the course of this podcast, you can reach us on our Twitter accounts. I'm on at Shreiberland, Andy. Or at Andrew Hunter M. James.
+
+[00:35:09] At egg-shaped. And Anna. You can email podcast at QI. Yep. And if, there's a little snigger about the fact she's not on Twitter, still not on Twitter, can't believe it. And if you want to listen to all of our previous episodes, you can head to No Such Thing as a Fish.com, and you can listen to all the previous episodes. We're going on tour still. Thank you so much for being here, guys. This has been amazing for us. Thanks for listening at home. We'll see you again another time next week. Goodbye.

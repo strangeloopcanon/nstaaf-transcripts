@@ -1,0 +1,207 @@
+# No Such Thing As A Fish - No Such Thing As A Man In A Wine Bottle
+
+- Episode date: March 29, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-man-in-a-wine-bottle
+- Slug: no-such-thing-as-a-man-in-a-wine-bottle
+
+## Transcript
+
+[00:00:02] Another episode of no such thing as a fish, a weekly podcast this week coming to you live from the Hammersmith of Ventim a pot. My name is Dan Schreiber. I am sitting here with Anna Tijinsky, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that in the 18th century, London plays written by David Garrick and starring David Garrick would often be shown in theatres owned by David Garrick.
+
+[00:01:01] They would then be reviewed by David Garrick in newspapers owned by David Garrick. Amazing guy, wasn't he? He was a man of many talents. Apparently, according to the reviews I read. So, yeah, I mean, he ran the Drury Lane Theatre. He was a great actor. A lot of you will have heard of him.
+
+[00:01:24] He also had the St. James' Chronicle and the public appetizer. In The Chronicle, it said Mr. Garrick was most extraordinarily accurate in every syllable which he uttered. And his spelling is really good, too. He was a really exciting character for theatre. He was someone who brought in the old. He championed Shakespeare, but he also was looking at new technical. to make plays more interesting. So, for example, when he played Hamlet,
+
+[00:01:51] he designed a wig that when the ghost of his father walked in, stood up on edge. No. Yeah. He did change the way people acted weirdly. So before Garrett came along, then, for instance, spectators would be on the stage. You guys would be up here with us,
+
+[00:02:08] like during the performance, intermingling. And he said, let's not do that. No, let's not do that. Let's definitely not do that. Let's do that. He made actors... He made actors come to rehearsals, which really pissed them off. He abolished the practice of people, audience members,
+
+[00:02:25] coming in at the interval for half price. So people were coming in the middle of Hamlet and then spend the whole time going, so who's that guy? Why is she so upset? But actually, that was really, really controversial, wasn't it? There were riots because of that. So when he decided against the half-price thing,
+
+[00:02:44] he came on stage, and all the people, people in the pit. So it used to be that you have rich people in the top and you'd have really poor people in the pit or poorer people in the pit. Let's hear it from the rich people up there. They're all the same price. So he came on stage and the people in the pit said that he had to stop this half-price thing. I'll bring it back, I should say. And he said he'd have to consult his business partner and he was booed off stage.
+
+[00:03:15] Was his business partner David Garrick? It was him in a moustache. And then the actors came on and then they were also booed off stage and then finally, according to the article from the time that I read, at 8 o'clock the ladies were asked to leave so the house might be burnt.
+
+[00:03:33] Whoa. Oh, that's so thoughtful. It's really, like the theatre was a risers place. So the Gary, sitting on the stage thing, that was the result of a 15-year campaign. it took 15 years to get people to stop sitting on the stage and there was also Garrick
+
+[00:03:50] the way he changed acting as well was very cool because before Garrick and there was another guy called Macklin who was a huge rival of Garrick's but before that actors would basically stand with their feet at 10 and 2 shouting essentially shouting and Garrick was such a good actor because he paid attention to the other people he was on stage with rather than just waiting so James Quinn before that was
+
+[00:04:12] But the reviews would say things like He even acts when he's not acting It's blue people's minds What does that mean? It means like he pretended to listen To the other people on stage He was playing a part He stayed in character
+
+[00:04:28] Rather than just going back to standing neutrally Like a dummy waiting for his turn to shout Oh, okay, right, cool Wandering off stage when it's not your line You just go and get a coffee Exactly, yeah Yeah So acting did used to be very different
+
+[00:04:39] As we said beforehand And the leading actor, the greatest rival to Garrick, was a guy called James Quinn, who was known as the Bellower. And he was London's best actor because he had a very loud voice. And also he was very good at gesticulating. So there were three hallmarks of great acting. Number one, very loud voice. Number two, excessive gesticulating.
+
+[00:04:59] And number three, incredibly long pauses. So actors at the time were schooled in three different types of pause. You had moderate, longer, and grand. Wow. Wow. He sounds very much like Brian Blessed, doesn't he? He's that kind of person. But did he not, was he not famous for killing people?
+
+[00:05:20] He was in a lot of jewels, Quinn. Yes. Right. Yeah. I read that he killed a fellow actor who mispronounce the word Kato as Kito on stage. What? I think that's fair enough. Dan, you would not have lasted five minutes in the scene.
+
+[00:05:36] But that was like, that did happen. So you mentioned Andy Charles Macklin, who was, Garrick's rival, I think. And Maclin once killed a fellow actor for borrowing his wig. That's harsh. Well, because he had that one that stood up and not many people had that.
+
+[00:05:50] Yeah, it's true. So we mentioned the riots briefly. Oh, yes. I just had one theatrical riot I wanted to share with you guys. So this was in Drury Lane. It was in 1755, and a Swiss ballet master
+
+[00:06:01] had brought a festival to Drury Lane. Very exciting. And the press were furious because he had brought Frenchmen and French women onto an English stage and they were living. So someone in it. the gallery cried out that the dancers were disguised French soldiers, which obviously they were not.
+
+[00:06:16] It was a ballet festival. And one of the actors shouted back, I'm not French, I'm Swiss. And one of the protesters then shouted back, Swiss, what the devil do we know of Swiss? A Swiss is a foreigner, and all foreigners are Frenchmen. So this went on for a few nights, and then on the fifth night, they just started, the spectators just started ripping up the benches and destroying the chandeliers and destroying the scenery on stage. Constantly we're doing it, tearing theatres apart. I don't know how many theatres are still standing. I think one of the most famous theatre riots was in 1809 and that was the Covent
+
+[00:06:51] Garden Theatre riots. Basically, the Covent Garden Theatre had been burned down and they thought, well, use this as an excuse to rebuild it and put up prices. And they also rebuilt it so that if you were in the upper tiers, you could only see the legs of the people on stage. And this really annoying people. And they properly rioted. So they had this chart, which was old prices, old prices.
+
+[00:07:10] the noise was so bad that soldiers were constantly having to be sent up to restore order. The writing lasted three months. And the audiences did things like they would bring live pigs into the audience. They brought rattles, they brought trumpets. They bought pigeons very often and released them into the auditorium. And they wore these badges with O.P. standing for old price. It was quite nice, a bit of merch for the rioters. In the same year as the Swiss riot, Garik's Theatre posted an advert in the press.
+
+[00:07:40] to try and find out who it was that flung a hard piece of cheese of near half a pound weight from one of the galleries last Tuesday night and greatly hurt a young lady in the pit. Oh my God, was it spelled greatly like GRAT? Do you know that he went to, when he was at school, he was taught by Samuel Johnson. Yeah, yeah, he was, and this was in Litchfield, and Samuel Johnson had to start a school basically because he was not allowed to be a part of an already existing school. and the reason that they said is it was feared that the way that he was able to distort his face all the time would scare the children. So they were like, your face is too scary, you can't teach here.
+
+[00:08:21] So he set up, yeah, he set up his own school and there were only three pupils at it, one of which was David Garrick. And then after school, they went to London together. The school shut down, didn't it? Because it had three pupils. So then they went to London. Can I just, one more thing about a very exciting event in the 18th century theatre world. another big thing was 1749 at the Haymarket Theatre there were adverts all over London
+
+[00:08:46] that the bottle conjurer was going to be performing and no one knew who this was. It's a mystery to this very day but what was advertised was that various things it said that you could give him a walking cane on stage and he would tap it and play the sound of any instrument you liked with his tapping. You could wear a mask
+
+[00:09:04] and even if you wore a mask you'd be able to tell you who you were and then the piesta resistance was he'll have a common wine bottle on stage he will go into it and sing in it and he would climb into the bottle he would climb into the wine bottle yes and sing in the wine bottle and during his stay in the bottle
+
+[00:09:23] any person may handle it and so this massive although Anna I've seen some of your wine bottles and they are pretty big why do they make the neck so tiny otherwise I'd go in myself but this huge audience turned up because it was a quart,
+
+[00:09:40] which I think it was about a bit bigger than a normal wine bottle, a liter or whatever, but a massive audience turned up, including the King's son, lots of nobility. It was obviously a ruse. He wasn't going to climb inside a wine bottle. And so people got really pissed off. And so they went, and he didn't turn up.
+
+[00:09:56] No one came on stage. And the benches were torn out. This was the Haymarket Theatre, big theatre. Scenery totally destroyed. Debris was dragged out of the theatre and all of the stuff inside the theatre was set on fire. and one newspaper explained this the next day, the fact that the guy hadn't turned up
+
+[00:10:12] and climbed inside a wine bottle, explained it by saying he had given a private audience beforehand and whereupon receiving a demonstration of the trick, the viewer, as in that private audience, had corked up the bottle and whipped it in his pocket and made off. Okay, it is time for fact number two, and that is my fact. My fact this week is that the main...
+
+[00:10:40] source for Sigmund Freud's work on paranoid schizophrenia was the memoirs of a man who made unbelievable and ludicrous claims. That man's name was Dan Schreber. Daniel Paul Schreber was his name. This is a guy who lived from 1842 to 1911 and he wrote a series, well he wrote a memoir, memoirs of my nervous illness and in it he was kind of trying to show what it was like from the inside of someone who was having all of these thoughts and so on. Published the book and Freud picked it up and never met him. They lived at the same time
+
+[00:11:19] but didn't want to meet him because he didn't want to be influenced by it. He just used the book and that was the basis for a lot of his Freud's work. Daniel Schreber's book is still in publication if you go into bookshops, that memoir. It's how important it is. So Shreber thought that there were little men living inside his feet that were
+
+[00:11:36] taking out his genitals and then putting female genitals in so he could have have God's child. Yes. Putting female genitals into his feet or into... Into the place
+
+[00:11:46] where they normally are. Oh yeah. Otherwise, very hard to walk. Yeah. He was mad, wasn't he? Freud. Freud was, yeah. Not this guy with the vagina
+
+[00:11:58] in his foot. I think he was fine. There were just so many things that are wrong about what he thought. So he had a lifelong fear of trains, Sigmund Freud, and that was based on experience he had in his early childhood,
+
+[00:12:12] which he explained in a letter 40 years after the event, and he explained to one of his friends that when he was three years old, he'd moved house. His whole family had moved house, not just him. And they'd moved, gone by train, and he explained that he'd seen his mother naked on the overnight train, and he thought, you know, from that experience, he'd been permanently traumatized by seeing his mother naked
+
+[00:12:35] and obviously being sexually attracted to her. So there is an idea. that he had this theory of the Oedipus complex and now it's thought that maybe he had one but it's not true that everyone has one. You know he was almost not a psychiatrist he first started, the first paper that he ever published was on eels and it was his attempt to locate
+
+[00:12:55] their testicles. That was what he was doing. He dissected 400 eels looking for their testicles just was obsessed. He was like, they've got to be somewhere and... At what stage do you go? I've done 319. Yeah. 400. 400 was a sage. Because he published the paper saying, didn't find him.
+
+[00:13:17] But this was one of the great mysteries of the age. It was. Genuine he was. What? No one knew where eels bred and male eels only have gonads when they need them, basically. So Aristotle said that eels came from nothing.
+
+[00:13:31] That was his great theory. What a chance. He sometimes said they came from the guts of wet soil. as well, isn't he? Yeah, and some people said they came out of thatched roofs. I mean, no one knew. So, but the thing was, Freud, when he wrote this paper, he said, well, they must have all been female. That's the only explanation I can think of, rather than that he got it wrong. And I read a great essay online which asked, you know, what, this must have been very formative for Freud. It said, we know now that Freud viewed most people's problems through a sexual lens, but was that
+
+[00:14:02] lens tinted by the set of testicles he couldn't find a lifetime ago? Did his inability to locate the eel's reproductive organs prove so prominent in his studies that he saw them everywhere he went in the manner that a rare car owner begins to see his car everywhere soon after driving it off the lot? The weirdest simile I've ever heard.
+
+[00:14:25] He hated women though, didn't he? Maybe that's all about the eel testicles as well. He was the heinous sexist. So he said that women should be basically avoided because they were too susceptible to being soon. He advised his friends against hanging out with them at all. He said that they have an ineptitude for serious life tasks. They are unstable, incapable of grasping their own unimportance.
+
+[00:14:49] And they're people who... He said nature has inclined them to be vain. And he said the only thing that women contributed to society are plating and weaving, because women traditionally were... They did do a lot of weaving and plating. and he attributed this to, obviously, their desire to have a penis. And so what he said was, women are so upset about not having a penis that their plating is expressing, their desire to plait their pubic hair in order to conceal the fact that they have no male genitals underneath.
+
+[00:15:21] To conceal it. What's interesting is you say he didn't like women, but it was a woman who actually helped him get to his biggest breakthrough in psychiatry when sitting with them. and she was appropriately called Fanny. Fanny Mozer was her name. He was treating her, and he used to do it through hypnosis, but he was a terrible hypnotist. You're unstable, you're weak.
+
+[00:15:46] You wish you had a penis. So he used to do the you're getting sleepy thing, and Fanny Moses said, actually, I don't think I am. And he was like, no, you are. And she went, I really don't think I am. So she just started talking, and she was laying on the couch, and kept talking and kept talking, and he thought,
+
+[00:16:03] hang on a second, this is amazing. I'm actually getting stuff here that's real and raw, and that was the game changer for him. That's when he... In a way, the talking cure was invented because a woman told him to shut the fuck up. Because she... Honestly, because he...
+
+[00:16:16] Because funny, he used to say his theories to her. At one point, she just said, honestly, please shut up, because without your comments, I can properly let my mind wander and work out what's going on. And he was like, okay, cool. I'll just step back.
+
+[00:16:32] Yeah. Well, he saw sex everywhere, didn't he? He thought anything that elongated, such as sticks or tree trunks or umbrellas represented the penis. He said that walking up and down steps symbolize a sexual act. You guys in the circle? Sounds like it. What was his day-to-day like that he just saw penises everywhere? It must have been so distracting.
+
+[00:16:56] Do you guys know what the first Freudian slip was? Oh, no. So the first Freudian slip was a young man who, who said exoriori, ex-nostris, osibus, ulta. When, as you all know, he should have said, ex-oriare aliquis, nostris, ex-osibus, ultor. So, I mean, it's obvious, isn't it? I think, guys, like, I can't believe you're laughing at that.
+
+[00:17:20] Yeah. What is it? So, basically, it was the suppression of the word aliquis meant that he must have had some association with that word. So he did a word association and said, what does that make you think of? and eventually got to a word which was Saint Januarius. And St. Januarius kept his blood in a file, which was supposed to have turned into liquid once a year
+
+[00:17:42] and then was solid the rest of the time. And then the man confessed that his girlfriend had missed her period. And so Freud concluded that he had blocked out this word from 10 minutes ago because he associated that with the fact that his girlfriend might be pregnant. Yeah. You shouldn't give your blood in a file. It makes the cardboard soggy. But...
+
+[00:18:05] Very good advice. So I haven't like it was right. Have we talked about the cocaine? I don't think we have. I don't know. Huge fan of cocaine. He experimented with it as a student, believing it would alleviate his depression and anxiety,
+
+[00:18:16] and great news, it did. And he just started posting... It was this bizarre period where you were just posting cocaine around because it wasn't really illegal. So he sent it to his fiancé to make us strong. She must have been plating like mad after that. He gave it to his great friend
+
+[00:18:33] who was called Fleischer. because Fleischel was addicted to morphine and he said, I know something that'll cure your morphine addiction. Try cocaine. Fleshal then became completely addicted to cocaine. And Freud said he claimed it had been a success, but it had not. One of the things he justified it with when he was recommending it to this guy whose life was ruined by Freud forcing cocaine on him,
+
+[00:18:56] Freud said the wonderful thing about cocaine, the best thing about it is there is absolutely no craving for the further use of cocaine after you've further. Just take it. Or even repeatedly. You're a bad time. Your seat number has been taken down. I was looking into, with Freud, just off the back of David Garrick, I thought, what did he do, you know, as hobbies? Did he go to the theatre, for example?
+
+[00:19:25] And I could only find one example, and it was to see a guy who we've mentioned very briefly on this podcast before, called La Petomaine. Oh, yeah. A petermain. The farta. His act was to just fart on stage. What's interesting is it wasn't that he was eating, generating gas, and farting. He was sucking air up into his bum and farting it back out. So he discovered this when he was in the ocean and he was almost drowning.
+
+[00:19:49] He noticed the ocean getting very slightly lower. As he was drowning, he went, it went both in and up at the same time. And he was like, that's weird. He came back to the surface. He went to the beach and it all flooded out of his butt. And he thought, what's happening here? Highlights of his act, they involved the effects of cannon fire and thunderstorms from his bum. He could play Osolomeo through a sort of rubber tube in his bum.
+
+[00:20:15] I don't know that. Would you mind performing it? We know it as just one cornetto. Oh, absolutely. Yeah. And that's who, that's Sigmund Freud. The only example I could find of him going to the theatre was to see the farting man. Well, he was very into defecation. He thought that was extremely important. Freud was, yeah.
+
+[00:20:34] So was he going, follow through, follow through? No, he was convinced that defecation, obsession with defecation and the obsession with money were related. And he said that he was obsessed with money himself. He said money is like laughing gas to me. He loved being rich. And he thought that being into excrement was something that transferred in later life
+
+[00:21:00] into being into money. And he said that like there's a constant, association with them in our minds because it's the contrast he thought between the most precious thing which is money and the least precious thing which is shit and he also said it's because there's this
+
+[00:21:16] perfect transition so when you're in your youth he thought erotically interested in defecation but not money and then as soon as that starts to recede you become erotically interested in money and so he thought they were intrinsically related pooing and money
+
+[00:21:32] as we've ascertained he was wrong about everything. It is time for fact number three and that is Chazinski. My fact this week is that swordfish can speed up and slow down time with their minds. So this is this amazing thing that has been
+
+[00:21:49] discovered about swordfish quite recently. So if you say speed up and slow down time and in the end time is about how you're perceiving stuff, right? So swordfish hunting, their time perception is about the same time as ours, which means that they basically are processing all the images that are coming into their eyes and their brain is processing
+
+[00:22:08] that as fast as we do. So they experience time in the same way as we do. But if they're not hunting, then time goes about five times more slowly for them. It all slows down. And they can do this deliberately. So what they do is they heat up their brains and their eyes and that just makes them be able to absorb more information. And so the faster you can see light coming into your eyes and all these images, then the slower time goes. It's amazing. And it means that they can hunt better, right? Yeah, exactly. So it's like a good, a kind of an analogy is if you swat a fly, or you try to swat a fly, then you're usually unsuccessful. And that is because they are seeing way more frames per second than you are. So you think you've got really close. But to them, it's like so easy. Like to a fly, if they watch a movie, it's just like a drawing and then a bit of a weight and then another drawing and then a bit of a weight and another drawing. And that's why we say time flies. No, it isn't. Yes, it is.
+
+[00:23:01] I'm pretty sure it is. So what happens, because I've actually swatted flies, do I have access to faster time? No, you're not a, you're not Neo in this analogy. No, it means that they just didn't see you coming, but if they were to see you coming, it would be like Neo, isn't it? It's like in the Matrix,
+
+[00:23:18] you kind of see it slowing down and coming towards you really, really slowly. Right. And the weird thing is that they knew that Swordfish did this thing where they heat up their eyes and their brains. They found that out a few years ago, but they only just realized why, and they did it by removing the retinas of freshly caught swordfish, and they put them in a bath, and they connected them to some electrodes to measure the response of those retinas to lots of flashes of light,
+
+[00:23:46] and they changed the temperature of the bath that the retinas were in, and when it was in a hotter bath, then their response to light was ten times faster, so their response, their ability to absorb lots of information. and this is just a detached retina, fully detached, from the fish, which has been eaten somewhere. And that retina responded 10 times faster to the light that was being given to it than if they were in a bath that was much colder. It is amazing.
+
+[00:24:11] Yeah? Do you know they don't stab their prey? I sort of vaguely assume that they would... Because they have like a really long sword-shaped... Yeah, and they're sort of upper jaw. And I just assumed that they would kebab, as it were. Yeah. I think the problem would be, if you're a fish and you could kebab a fish,
+
+[00:24:27] you can't grab it with you. your hands, can you? Because you don't have hands. Very true. If you were feeding others, if you went around as the cab. If you are the cab. Yeah, yeah. That would be very nice. Yeah, yeah. So for a cocktail party. Your waiter comes over. Yeah. What a, what a party that would be, where the waiter had all the food balanced on his nose for you. I'd go. But the problem is they're solitary fish, so they can't do that. They can't eat off each other's noses. Oh, well, they're quite solitary. But they do, yeah, they're very solitary. But what they do is,
+
+[00:24:53] they did not know this. So they do this, they do this, they do this as well, another fish with a very, very long upper jaw. They slowly put their bill into a school of sardines or other smaller fish and then yeah, yeah, yeah. They thrash their head from side to side.
+
+[00:25:07] Like Zorro. Like Zorro. And then they injure enough fish in that yeah, yeah, yeah, yeah. Bit and that they can catch them, they can then just eat them. It is amazing how they do that
+
+[00:25:18] with the noses because they will slot their noses into a big school of fish that they've herded into a big cluster and the fish don't notice. So you can see the sort of all the sailfish's nose, sitting in amongst them just waiting with all the fish swimming around them.
+
+[00:25:33] They sweat out of their noses, but instead of sweating sweat, they sweat lube. What's the purpose of it? Well, it makes them really slippery, and it means they can swim really, really quickly. Oh, okay. There's no sexy evening where you go, did you bring the swordfish?
+
+[00:25:51] In Sicily, in the 18th century, it was believed that swordfish would dive out of the way if they heard anyone speaking Italian. So all the local fishmen spoke Greek the whole time. Wow. Wow. But we think what that actually was, it was basically an excuse for not catching them.
+
+[00:26:09] So you haven't caught any swordfish, oh, it's because Leonardo's been speaking Italian, that's why we didn't catch them. We're going to have to move on very shortly to our next fact. Just one last bodily control thing. Yeah. So this is about heating yourself up. there are monks in Tibet who can decide how hot they are just through meditation.
+
+[00:26:29] I mean, really? Yes, it's been tested, and it's not like a huge difference. It's not as though they'll be dangerous to touch. But they can increase the temperature of their extremities just through meditation. They train themselves a bit for years, and they're quite good at it. There is a report which says that if you put wet sheets on them, they could be dry within an hour. But I think that is not true. I think that's an exaggeration.
+
+[00:26:52] Also, I think it's quite offensive. do that. I'm meditating. Okay, it is time for our final fact of the show, and that is Andy. My fact is that in 1986, Waddington's invented a board game, which was all about trading cattle semen. This is a real game. It's called Grade Up to Elite Cow.
+
+[00:27:14] It sells itself as a game of skill and chance for dairy farmers. And we have a copy here tonight. That's good. It says from 2 to 3,000 players. This was by the British Frisian Cattle Society, and it's basically marketing for cattle farmers. It's like monopoly, basically, but instead of property, you collect semen.
+
+[00:27:42] So there are various squares all the way around, and there are risks and rewards. Here's one of the squares. Accident to semen flask. All your semen is lost, unless an insurance policy is held, return all your semen disc. It's incredible.
+
+[00:27:58] Has anyone ever played this? Do we know? Lots of people. If you go online, I started Googling so many people have played it. Really? Yeah. There's a great website
+
+[00:28:06] called boardgamegeek.com and they have a lot of reviews. Oh, nice, cool. But the reviews are, I mean, no one really loves the game, but they love the idea of it. So one of the reviews was Monopoly with cows and semen.
+
+[00:28:22] No, the rules are quite complicated. You start with little cows, go around the board and there are various semen companies and there's one thing which is there's many pitfalls along the way as you're going around so um you can pick up those market cards that you get sort of like monopoly yeah which will state stuff like this cow has persistent mastitis seller at the market price it's a thoroughly realistic game basically is it well yeah i think so i think that's very deceitful you can't sell a cow at market price who has persistent mastitis i noticed she didn't do this Devon where we were last week
+
+[00:28:57] who'd been kicked out of town. That's true. So is it is to help farmers? It doesn't help anything really. It's not helping anyone. But there are lots of board games where the point was to help. So they used to have very moral purposes.
+
+[00:29:13] So the new game of human life was a 1790 classic and the aim of that was to be the first player to become an old man. That's it. Surely whoever's oldest at the start has an advantage. You have to move through the seven periods of life and accumulate moral observations along the way. Okay. Yeah.
+
+[00:29:31] Have you heard of Trump the game? No. That was quite a big one, actually. It was launched in 1989 with the tagline, it's not whether you win or lose, it's whether you win. That's great. Oh, that's so perfect.
+
+[00:29:46] I hope it's on his gravestone. The head of Parker Brothers said, it can leave you exhausted and feeling like you don't want to play again. Words later attributed to Stormy Daniels. Can I just, you mentioned the Game of Life, I think, the early version. And I used to play the Game of Life as a kid, and it's amazing. But it actually started in 1860, and at that time it was called the Chequered Game of Life.
+
+[00:30:13] And it was made by this lithographer, so like an image printer, an artist, called Milton Bradley. And he was very successful at the Game of Life. But the reason he had to make it is because he'd been very unsuccessful. in another way. So if you've ever played the game of life, the reason it exists is because Milton Bradley made lithographs of Abraham Lincoln. And that was when he was a presidential nominee. He wasn't very well known? And he didn't have a beard. They were clean shaver. Oh, wasn't it? Like a little girl who told him to get a beard or something? It was. Yeah. So him and this little girl would have beef. So he sold these lithographs really well and they were extremely
+
+[00:30:50] popular. And then Lincoln suddenly thought, I'll grow my distinctive beard that everyone will associate it with me forevermore. And the prince became totally worthless. And this guy, Milton Bradley, went completely bankrupt and then he created the game of life. And he was a very moralistic guy. So the game of life, if you've ever played it, has a spinning
+
+[00:31:08] thing in the centre rather than a dice. And that is because dice were associated with gambling and he was very Christian and dice were evil. So he had a spinning T-totum then. It's not funny actually. It's evil. And that's what it has, but it became super popular.
+
+[00:31:28] Oh, this is something I think we may have mentioned before. So during the Second World War, MI-9, which is like the cool version of MI5 and 6, they smuggled escape kits to prisoners of, you know, allied prisoners of war who were being held in Germany. They smuggled them escape kits inside Monopoly. And the other thing they did, they got in touch with another film, and they distributed snakes and ladders kits with genuine escape equipment hidden inside. Not the actual ladders. you couldn't escape.
+
+[00:31:54] Yes. No, it wasn't an actual ladder you could. If I were a prison guard and someone had a snakes and ladders kit delivered with an enormous spade within the box, I would notice. Yeah, but they genuinely did it. Amazing. Wow. You know the game, Guess Who?
+
+[00:32:11] You've played that. Yeah. That was invented by one of Anne Frank's schoolmates. Wow. Yeah. Yeah. And it was two people who invented Guess Who. They became a couple.
+
+[00:32:22] They actually knew each other at that time. as well. They used to walk to school together in the morning but didn't go to the same school. And they ultimately invented not only guess who, but over a hundred board games, many of which we know the names of or might have played for various different countries. But they started, their
+
+[00:32:37] very first thing was inventing a thing for the Borden Dairy Company. So they started by working for yeah, for cows as well. But that couple, they, I think, got separated at one point and they had to, well, the guy had to find her
+
+[00:32:53] and, you know, he went to the police station and they said, does she have glasses? And he said, no. And they said, well, is she wearing a hat? Never mind. God, that was a long wind. The Soviet Union had amazing games. They were also very moralistic.
+
+[00:33:11] So there was the game, Tuberculosis, a proletarian disease. There was, look after your health, the new hygiene game. The Abandoned, where you had to round up homeless children and take them to an orphanage. And my favourite, healthy living, where you had to become the healthiest worker possible. So basically it was the Soviet Union trying to inculcate its values into people. So you'd be penalised for consulting folk healers or drinking a beer at lunch or consulting with a strange woman. Fair enough.
+
+[00:33:41] We're going to have to wrap up soon, guys. There's a Kickstarter, which you can get involved at the moment. It's a board game and it's called Brexit, the board game of second chances. And third chances. And they say, we invite you to relive that historic referendum, but this time you're in control. Oh, God.
+
+[00:34:04] Unlike no one being in control. It's like you've gone to hell. Honestly, if the devil said to you, I invite you to relive that historic referendum and this time you're in control, you'd be like, oh, cool, this is hell then. They say, this is the absolute must-have game to make all this political mayhem
+
+[00:34:24] fun again. I just got one last thing. Yeah, sure, yeah. Which is sometimes there are mistakes on board games and in 2017, the makers of the Antendek Saturday Night Takeaway board game were forced to apologize after it was found to contain multiple errors.
+
+[00:34:41] One question claimed that the moon is 225 miles from the earth. Okay, that is it. That is all of our facts. Thank you so much. much for listening. Thank you guys. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter-M. James. James Harkin. And Shazinski.
+
+[00:35:10] You can email podcast.com. Okay, that's it. That is all of our facts. Thank you so much, Hammersmith. Good night.

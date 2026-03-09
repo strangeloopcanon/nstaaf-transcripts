@@ -1,0 +1,201 @@
+# No Such Thing As A Fish - No Such Thing As The Kevin Olympics
+
+- Episode date: November 28, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-kevin-olympics
+- Slug: no-such-thing-as-the-kevin-olympics
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. No, seriously. It's in the Oxford Dictionary of Underwater Life. He says it right there, first paragraph, No Such Thing is a Fish. Hello, and welcome to another episode of No Such Thing as a Fish,
+
+[00:00:21] a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here with Anna Jizinski, Andy Murray, and James Horace. Markin, and once again, we've gathered around the microphone with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, and that is Jasinski. Yeah, my fact this week is that in 1874, there was a plan to transport dead bodies from all over Europe to Mount Vesuvius and throw them in. Is this the plan of a supervillain?
+
+[00:00:54] Well, maybe, maybe. So it's reported in a couple of newspaper articles from the time. There's one article in the Daily Gazette for Middlesbrough, which describes how an American company has got some capital to erect railways or have trains running all over Europe, and it takes people who have died who want to be cremated in Mount Vesuvius, and it runs them up Mount Vesuvius, and then it tosses them into the burning lava below.
+
+[00:01:23] And this, so I can't find any modern evidence of this. I can't find that the company ever. happened but seems strange that it would only be reported in the middlesbriggasette it does seem a bit weird um there's also reported in the new york times in the same year okay so it just tilts you in as the train passes it just sort of tips the carriages over the edge and then they tilt back on well i think the train probably stops at the top because in the other article it mentions that there would be some sort of a chapel built at the top of mount vesuvius where you could have a small funeral service before before tipping your family member into the
+
+[00:01:56] It'd be better if the tracks went actually over the caldera and then just tip them out as it was going. Or just like if the bottom just opened up, you just dropped them out. Is there always lava at the bottom? No, there's not. See, that's a weird thing that they always say with throwing people into volcanoes. I like that. This is what they always say. If there's an active volcano, the fumes from a volcano are enough to kill you.
+
+[00:02:19] So anyone trying to throw someone into a volcano would die immediately, purely just off the back of the fumes. No, no, you could do it at a certain point. there was one more source, which from 1878, which was just before Vesuvius had an eruption, I think, and it was like Vesuvius was getting ready. Is this in the Hymolian? The West Lothian Butte. They were very European, the local papers.
+
+[00:02:41] And I think it was sort of bubbling and waiting to erupt, and that's the ideal moment. That's when you want to catch it. There's a really funny letter that was written to the New York Times around this time about this idea, and it says, it's recently occurred to certain thoughtfulness. an ingenious persons that the constant fire maintained in the crater of Vesuvius
+
+[00:03:00] generates an enormous amount of heat which is wholly wasted. Occasionally a native Italian has inadvertently slipped into the volcano and has vanished so suddenly and completely that not even a trace of garlic could be scented in the air and nothing but a silent hand organ and a bereaved monkey
+
+[00:03:16] remained to recall the fact that a citizen of free Italy had flashed into flame and dissipated in the gases and it goes on because it's not just racist against the Italians This is the New York Times. Even the stoutest British tourist who has toppled into the crater while searching for a good place to boil a tea kettle
+
+[00:03:34] has disappeared before he could fairly mention his purpose of writing to the Times newspaper and denouncing the neglect of the local authorities to rail in the crater. Well, to be fair, they've got us to a tea, haven't they? They've nailed us, yeah. Tea drinking and whining. I know sometimes we think journalism is always getting worse, but I think there we have definite proof
+
+[00:03:54] that it sometimes gets better as well. I don't know. I think it's quite amusingly reported. Garlic is an Italian trope, an Italian fill in, and not even his baguette and stripy jersey remained on the outside, nor his trademark beret. There's just one more part from this letter, which is good, and which the newspaper article reports as well, which is one of the advantages of this service, this funeral service,
+
+[00:04:16] is that mourners who have seen the remains of their loved ones comfortably cremated in the finest natural furnace in Europe can straightway distract their minds and delay their grief by enjoying the view from the summer. of the mountain and making a subsequent visit to all points of interest in Naples in the vicinity. And the newspaper actually reports that you'd get, the train ride would come with a voucher to spend in Naples once you got there. It's very awesome.
+
+[00:04:39] I think this is really cool, speaking of magma. So there's a new project to see if we can drill further than we've drilled before into the earth and see if we can get basically to where the magma starts. And isn't it weird that the furthest we've ever sent an object away from this earth is 20 billion miles. So now I think it's the Voyager, wasn't it, that was sent out in the 70s. It's now 20 billion miles away. The furthest we've ever got into the Earth, and it's not for want to trying, is 12 kilometers. It's really hot down there.
+
+[00:05:09] But it's really cold in space. Yeah. It's just because there's stuff there, though. The geologists are just saying, in space, you've got no stuff. People act like it's such a big deal, but actually it's mostly space. There are a couple of molecules per cubic meter in space. That's true. But that's much, much fewer than in the ground. where there are loads of molecules literally every centimeter. That's molecule probably down there.
+
+[00:05:30] The Slate.com official explainer question of the year for 2007 was, why don't we drop medical waste and nuclear waste into active volcanoes? Okay. And what was the answer? Because they'll blow up nuclear waste all over southern Italy. Oh, it'll erupt it. Is that the answer? Basically, you put it in.
+
+[00:05:48] It's not hot enough to start to pit from being radioactive, but it would just kind of fire it straight back into the atmosphere. So we'd have a nuclear volcanic eruption. Sorry, have that got question of the year? I think that's one of the silliest questions I've ever heard. I read, though, that one of the issues with a volcano eruption is that, obviously, over the months after it, lava can just still travel towards towns and they don't know how to stop it and they don't know what to do. One of the things that they tried back a long time ago was they bombed the lava.
+
+[00:06:18] So they literally bombed the area of where the lava was going into. George Patton did that. The idea was to divert. the direction of the... And you can get it all in a channel that goes into the sea of something. So he launched a bombing attack on lava. Wow. There's a volcanic island called Ferdinandaia,
+
+[00:06:35] which is off the coast of Sicily. And it is only above sea level when it's erupting. So normally it's not on very many maps. And so in 1986, the US Air Force flew over and bombed it, thinking it was a Libyan submarine. Oh, really? Yeah.
+
+[00:06:52] There's that volcano in Tanzania, isn't there, that erupts black lava. It's the only example of a volcano erupting that substance in the world. And it's just because it's made of carbon and tight instead of silicate silicate materials. But yeah, the lava is run very, very dark. Exactly. It can run at about 500 degrees Celsius, which is much cooler than normal lava. This is really cool.
+
+[00:07:14] Sicilians used to use the slopes of Mount Etna to keep their food cold. Okay. Because there's snow all over the slopes of Mount Etna. So they use the caves in the side of the mountain to keep fruit cold and things like Adam lemons and yeah. Didn't Nero take snow down there and make like an ice cream kind of thing? He probably took credit for it, didn't he? You know Nero.
+
+[00:07:35] He tramples over intellectual property rights of others. The land speed record on a bicycle was set on a volcano. Was it? Oh, yeah. It was on Sero Negro, which is in Nicaragua, I think. and it's like a really steep slope and so people go down there quite often for fun and this was done by a Frenchman called Eric Barron
+
+[00:07:59] known as the Red Baron and he reached 107 miles per hour before his carbon fibre mountain bike snapped into sending him tumbling down the last section of the mountain he broke five ribs dislocates her shoulder and torn muscles in his hands but got the record so worth it do we know
+
+[00:08:17] the thing I always see is when people are trying to break speed records and that, for example, cycling, you cycle along, but you cycle along with an enormous truck driving ahead of you really, and you're really close behind it. So you have to assess the speed quite carefully, and it's to get rid of the air resistance and all of that. So that's if you're, if you're peddling, whereas this guy is just going down a massive mountain. It's a freewheeling. Yeah, it's more like plummeting, really. Yeah. Yeah. It feels like cheating as well. It's true. I was actually going to save this fact for later in the podcast, because my fact's about running, but running is easier. Supposedly, I read this earlier today, I couldn't
+
+[00:08:49] believe it. Running is easier at about 20 degrees Celsius when the air temperature is there or higher because there are fewer molecules to get in your way as you run. Much easier in space, much more difficult when you're going through the air. I don't believe it makes that much different. I only lost that one because I think there are a lot of molecules out today. Yeah, my lane was full of molecules, to be fair. Fact number two, and that is Harkin. Okay, my fact this week,
+
+[00:09:21] is that in 2010, an abandoned wastewater treatment plant in Baltimore was found to be home to an estimated 107 million spiders, with a density of 35,176 spiders per cubic meter. I just feel sorry for the work experience, boy, who had to count them. Because he didn't have a fear of spiders before, but he does now. Yeah, it was an estimated number, and then they've kind of extrapolated that to get the number. And they were all alive? they're all alive yeah they are great though some of them can catch and eat fish i think they've just found out they found spiders can't spiders can they found out there are at least five species of spider
+
+[00:09:59] which one of them is the dolomides spider which can catch fish the fish are on average twice their size and they anchor their hind legs to like a stone in a in a lake or a river and then they grab the fish with their front legs that's amazing it's pretty impressive yeah that is really cool um i read that they found not too long ago the oldest spider web ever okay and i know It was in East Sussex, I think, and it was in amber. Oh, yeah, yeah. It was like from dinosaur days, and they were studying it. And so I ask a definitely very stupid question.
+
+[00:10:32] We used to it now, Dan. Yep, all right, cool. Yeah, I'm learning to ask now. Why are we not for the things that we want to preserve, let's say, for a long time in the future, just coating it in amber? You know, like, imagine if dinosaurs covered themselves in amber. We might have a full dinosaur. I actually think that was brilliant. Do you?
+
+[00:10:49] Yeah. I do. James doesn't. I don't know where we would get enough amber, because obviously it's low quantities. I'm sure we have better ways of keeping things like... I'm sure. I just... But just from history, the only things that have survived through that are in a perfect state are things in amber.
+
+[00:11:06] And that just seems like an obvious time capsule of a thing. Okay. Cool. Get on it. Yep. Cameron, I'm completely told on this. So why do spiders not get stuck on their own webs? Do you know that?
+
+[00:11:19] Do they have some kind of lubrication around their legs? Well, nobody is 100% sure, but what it seems like is that they leave their glue on the webs in only little blobs all the way around, and they just simply tiptoe around it so they don't stand on their own bits of glue. And if they do stand on it, then it's a little bit of a pain, like getting, you know, chewing gum on your shoe or whatever, but it's not that bad. But when a fly comes into it, he hits like 50 blobs at once, and so that's what makes them stuck because they get such a big amount.
+
+[00:11:48] So it's kind of like in a Bond film or something where you have to avoid all the lasers if you're a fly. Like Catherine Zeta Jones in that film has to creep around them. Entrapment. A maze of glue. Entrapment. Yeah. Yeah. Great film. Yeah. So the Ogreface spider called as such because it has massive eyes, which means it can't go out in daylight because it's much too bright for it. But anyway, it is pretty ugly and it does this really clever thing. So you reminded me when you said the spider's dropped little droplets on their web. First of all, it spins a web between its front legs.
+
+[00:12:16] so it acts as a sort of like a fly catcher. So it will hang down from its back legs above wherever it wants to stay to catch the flies. And then it swings this web or net that it's made between its front legs at its prey and catches them. And the way that it knows when to swing is it creates a target by doing a little white poo on the ground. And it leaves a little white blob of feces as a target. And as soon as it's in the dark, as soon as it sees an insect of some sort, cross this bit of poo, drops down upon it, gets it in its net. Wow. Consumes it.
+
+[00:12:48] Very clever. Very clever. Yeah. What do you reckon the lifespan of a spider is? Surely it depends. 10 years. 10 years. So I don't know the answer.
+
+[00:12:58] Oh, come on. What I do know is I know the, as so far as we know, the oldest living spider. So the spider with the longest lifespan. Okay. 28 years. It's in Mexico. They had one that was captured in 1935. It's the world's oldest spider.
+
+[00:13:12] And it's 28. And what's it secret? Does it drink a lot of milk or? Bird eating. Bird eating. I eat birds. I smoke 20 cigarettes a day. I don't exercise.
+
+[00:13:22] I don't know how I do it. I was reading about the oldest recorded person who lived to be 122 and she died in 1997. Gian Calvair was a name. Yeah. And she quit smoking, I think, five years before she died. She was 117. She went, okay, come on, this has been enough. But I quite enjoyed, I did put this on Twitter the other day.
+
+[00:13:42] She was born in the year that Edison made the first sound. transmission and she died in the year that Hanson released Mbop. Was that what did for her in the end? She was the one who said that I only have one wrinkle and I'm sitting on it. Yeah. Oh, that's her. She was cracking. So just to put the original fact into context, which is that there were 107 million spiders
+
+[00:14:05] here with a density of 35,000 per cubic meter, the standard amount of spiders that we think are in, like a British field, would be about 40, per square meter. Wow. That's quite a lot, though. God, there's a lot. Yeah, that was a study done in 1958 in a Sussex meadow.
+
+[00:14:25] In the 1950s, if you look at photos, they were actually overwhelmed with spiders, just all those films. That's why everyone's got their mouths shut in early photographs, is to stop the spiders getting in. So is this a case of, you know, when they say,
+
+[00:14:39] if you leave rats and they breed and they breed and the breed or any, is this a case of just a total isolated sort of spider, farm. I think they're just small... Oh, the Baltimore one. Yeah. Yeah, that's basically it. They had no predators there.
+
+[00:14:55] They were allowed to just create as much as they wanted, and eventually there was 107 million of them. It's extraordinary. You'd need a massive glass, wouldn't you, to put that out? Yeah, a big shoe. What have they done with it? Do we know? The way it was worded, I think. I glanced at an
+
+[00:15:08] article, it said the people at the Baltimore wastewater treatment plant put out a call for extreme spider help, Isn't an understatement. I think the grammar's different there. Stream spider. Semicolon, help.
+
+[00:15:23] Do you think Spider-Bad ever got any false calls of people wanting him to just get rid of Spiders in the house? Guys, I'm dealing with some proper crime here. Batman, bat, same thing. That's true, yeah. Catwoman, now still not married. Okay, time for fact number three, and that's my fact. My fact this week is that, according to the Vatican,
+
+[00:15:45] the greatest pop album of all times, time is revolver by the Beatles. I would have thought they would choose Abbey Road, personally, but chose all I know. Oh, yeah, yeah, yeah. The kind of joke that it's created with a devotional hum. According to the Vatican. Well, it's the Vatican newspaper who did a, they published a list of what they considered to be the best albums of all time.
+
+[00:16:11] Is the Vatican newspaper called the Praley Mail? It's called Loz. Lo Zervatar Romano. I can't pronounce it. Which is a very funny pun in Italian. The weird thing is, first off, the Beatles were the ones who, more famous in any band in the world for having an association with a fight with the church, when John Lennon said that the Beatles were bigger than Christianity. Oh, he said bigger than Jesus.
+
+[00:16:36] But I thought he said it. Sorry, then Jesus. But he also said Christianity would shrink and fade away in that very same interview. But I thought he said it despairingly. I didn't think he was. celebrating the fact that they're bigger than Jesus. He was it just chopped by it. It didn't matter. It was the very notion of what he said. I mean, it led to
+
+[00:16:52] people were burning their records in the streets, throwing all their merchandise. It was a huge backlash, huge backlash. It was one of the biggest sort of moments of their career that they had to recover from. Wow. But so it's interesting, they've given him a pardon now. They've pardoned him for saying what he said. They said the Beatles were satanic
+
+[00:17:09] music. But the list is just, I mean it's pretty, it's just a mismatch. You don't expect the Vatican to be saying the Beatles, David Crosby, Pink Floyd, Fleetwood Mac. Donald Fagan. Donald Fagan is the lead singer of Steely Dan. So not even a Steely Dan album.
+
+[00:17:24] A solo work. Yeah, a spin-off. It's like the equivalent of like nominating a John Bon Jovi solo album and not a Bon Jovi album. Like it's just a very obscure choice. So I think this newspaper is trying to hip up, isn't it? I've read the Vatican thought it was getting a bit dated. All this, we still love the hymns. Oh, God, we like our big long robes and our cross necklaces.
+
+[00:17:46] I think there was a movement within this newspaper to say, look, we're with it, guys. And so now they report, so they review Harry Potter, which is, again, has had issues with the church. And they said that the half-blood Prince was good because it showed a clear line of demarcation between good and evil. That's interesting, because the Vatican's exorcist really didn't like it. No, he said it's satanic. Yeah. He also thinks that yoga is satanic. Yeah.
+
+[00:18:12] I think he needs to get with it. He's 89. Probably too late. There was a big feature about this paper in The Guardian, and it said that until 2007, this was kind of the old days for Los Arvatorre. There were two kinds of articles. The first one was those in which a Vatican department
+
+[00:18:31] had definitely directly intervened in, and they had a code for that, which was three asterisks placed above or near the article. But the other kind, the kind which didn't have the asterisk on, were those which had been written by Los Arvatorre staff, but they were so careful not to embarrass anyone that these articles were totally unreadably boring
+
+[00:18:50] so you had a choice of reading either propaganda or tedium but that's kind of changed now they've I believe they've shaken it up a bit but it's not it's not exactly the official voice of the church is it? It's a weird place between official and unofficial it's allowed in the Vatican
+
+[00:19:05] it's a paper that's kind of seen as a daily paper there and it seems to have a lot of it's the place where if the Pope has something to say there'll be the people to publish it It's very much the Middlesbrough Gazette. That's exactly. Do you guys know about the apostolic penitentiary system?
+
+[00:19:22] Been through it, mate. That's on our, that's the title of our spin-off podcast. It's all right. No, what is it? So it's this tribunal. It's the oldest established body of the Holy See. It's existed since 1179. And it's where you go when you've committed a sin that's too heinous to be forgiven by a priest.
+
+[00:19:43] So if you've got to confess something, you go to confess something, You go to confession, the priest is like, whoa, out of my pay grade. Then you go to the apostolic penitentiary tribunal, and there are five sins that are too evil. Should we guess what they are? Yeah, go on. I'll go for murder. Oh, no, murder is easy. Genocide, even, you can get genocide forgiven by your standard priest.
+
+[00:20:02] Can you? Yeah, you can. What? Yeah. What, your local? How many Hail Marys do you have to say for that? Look, it takes a couple of weeks reciting in your route. So three of them are...
+
+[00:20:12] Goosing the Pope. what's kissing here? Putting a finger up his bum Maybe Defacing his rings So most of the same thing Right Killing the Pope
+
+[00:20:25] You can't kill the Pope That's understandable There are three which just apply to people Who want to work for the church So if you're a priest And you've been in any way Involved in an abortion Then you have to go here to confess it
+
+[00:20:35] Right To directly to the Pope And if you're a priest Who's been confessed to And then you've broken your oath Not to share your confession And then the only other one that normal people like us can commit, and we'd have to be sent to the Vatican, is if we deface the Eucharist.
+
+[00:20:50] What, you mean at a local church, if I get Body of Christ and I drop it? I think dropping it is all right. You can play the five-second rule on it, can't you? That's probably the three-day rule in Catholic Church, isn't it? So it's more if you're doing it intentionally. There was a scientist in America recently, for instance, who drove a rusty nail for a bit of communion wafer, and I think the church was pretty pissed off with him about that.
+
+[00:21:12] that I just like the idea of the Pope listening to pop music. I don't think he does. It's obviously just this paper that's saying it. But there are a lot of, I like when you read about people who are in high power positions and they admit to liking certain things. So the Dalai Lama is very good mates with the Red Hot Chili Peppers and the Beastie Boys, which is just such a weird mismatch, but he recognized that he could put Free Tibet concerts on, use the power of these pop stars. And he realized they're the people who spoke to people. So he became very good mates with them. David Cameron, do you know what his favorite album is? Is it a Coldplay album?
+
+[00:21:45] No, he said that it was Dark Side of the Moon by Pink Floyd. Oh, yeah. But he, everyone knows that that's a lie, because everyone knows that his favorite album is The Queen is Dead by the Smiths. But he can't say that now that he's Prime Minister, though he had constantly said that before becoming Prime Minister. Really? Then when he did say he loves a Smith,
+
+[00:22:03] both Marcy and Johnny Marr came out saying, you are not allowed to like us. They banned David Cameron. That's ridiculous. It's not really up to them. I know. I just like them coming out and saying, it's ours,
+
+[00:22:15] and you're not allowed to like this. All musicians come out and ban politicians from liking their music. After a certain age, you shouldn't have a favorite album. You should have a favorite, I don't know, symphony. What's your favorite symphony,
+
+[00:22:24] Andy? I haven't reached that age yet. It's your favorite album. Badehoven's seventh. It's my favorite album. On niche newspapers, yeah. Can I tell you about my favorite one,
+
+[00:22:38] which is Jail Mail, which is a relatively new magazine and it's for everyone in the prison system. There are two others which are called Inside Time and Converse, as in Convict and Verse, so Converse. I think the daily jail would have been better, but I'm not going to, you know. I think it's a weekly anyway, so.
+
+[00:22:57] But anyway, it was hugely popular, and it's had to double its print run for its next edition. And, yeah, it has advice on what to do when you're up before the governor and details of reading projects and how to find employment. Is it written by people in by prisoners? I think a lot of it is, yeah. Farm and use of the world.
+
+[00:23:19] Yeah, a lot of journalists in there. I just think that's cool. Can I just, on the Beatles? Yeah. I didn't realize that apparently their concerts all just smelled of urine. And if you looked around the aisles, you saw women's pee, and Bob Geldof has attested to this. So this is a root because women used to turn up and wet themselves so excited.
+
+[00:23:37] That's true. These days of Rolling Stones, gig smell of urine, but that's the act. Okay, let's move on to our final fact, and that is Andrew Hunter Murray. My fact is that for the first 50 years of the Olympics, the only event was the 200-meter sprint, which must have made the two weeks of the competition extremely boring in the most part. Is this the modern Olympics? No, this is the ancient Greek Olympics.
+
+[00:24:02] So this is from a book I've just got called Eureka, everything you always wanted to know about the ancient Greeks, but we're afraid to ask. by a guy called Peter Jones, and it looks like it's full of good things. And it basically says, for the first 50 years, it was the Olympic game, not the Olympic Games, which is a nice way of putting it. And then after 50 years, they added the 400 metre race. But the cool thing is, if you won it, the entire Olympiad was named after you for the next four years. So it would become the Kevin Olympics or whatever that was instead of the Athens Olympics. Isn't that great?
+
+[00:24:30] Really cool. The Usain Bolt Olympics. Yeah. And then they started adding funnier things later, like boxing and wrestling and chariot racing. after a couple of two hundred years they added a race in armour oh that sounds good yeah that's great I read that that was the race in armour the only body coverings was a helmet and shin guards
+
+[00:24:48] that was what the raisin arm and the rest of me was completely naked okay I wasn't imagining that at all I was thinking big heavy plates of armour so it's a challenge like American football or whatever but the 200 metres wasn't even 200 metres was it I think it was 192 yeah um so that's true did they call it the 200 metres have we just called it that We, we've, that's an approximation. It was called, uh, stadium, which is where we get the word stadium from.
+
+[00:25:11] And there was a measurement of a stage based on that. Oh, okay, cool. And there were other games as well. I didn't realize this. There was the Pythian games in Delphi. It was really short games. Uh, and the Nemean games. And, uh, and if you won the games at Delphi, you got Laurel, obviously at the Olympics, you got olive.
+
+[00:25:29] Uh, at the Isthmian games, you got Pine. And at the Nemean games, it was celery, which you won, which I find very pleasing. Um, were the Olympic. Picks were held in 2012 in London. That borough, Newham, is the most physically inactive borough in the whole of the UK. Oh, wow. That's good. Yeah.
+
+[00:25:45] That's where I live. Is it? Well, I live in Hackney, but I'm literally, I'm 10 minutes away from Stratford. 39.17% of people in Newham take no exercise at all. Where's Newark? Stratford's... Is 10 minutes away from where you live? Yeah, but I've never heard...
+
+[00:26:01] He couldn't be asked to go there. In the 1932, Elimms... pick 3,000 metres steeplechase it was actually run over 3,400 meters because an official lost count of the number of laps That's so good That's so good
+
+[00:26:16] Yeah You'd feel and you'd be You'd realise soon after you'd forgotten I don't know how many they've done And you'd wonder if anyone else would spot You could put all the poor guy Well the runners is they're coming in And they're going to the final lap
+
+[00:26:31] They're looking at you and you're not saying anything You're like what? Another one? Yeah just try and bluff it out, wouldn't you? Because you'd know if you stop them too early, you think, I definitely don't want to stop them too early because they'll really know. But if I make them do another lap, it'll look
+
+[00:26:44] like it's their fault for being slow. Yeah. So was the one of the person who crossed the boundary at the right time, or the person who finished at the wrong end time? I think it was the same person, but it would have been at the end when they officially finished. Because you must... And everyone must have put on a real burst to get to the finishing line, and then...
+
+[00:27:00] Yeah. No whistle, no crowds cheering, just... That would be a great Olympic race. The we're not telling you how many laps. Oh, yeah. That's a brilliant idea. Sometimes it's one, sometimes it's 25. Yeah, that's a really good idea. Okay, so that...
+
+[00:27:16] And then we put them all in amber at the end. This is... It's a really good idea. So there's no adequate training for it. Cool. Well, that is the spirit of amateurism which they would want. They wouldn't. They weren't amateurs from the start in the Olympics.
+
+[00:27:32] No, they got loads of money, didn't they? Yeah. In the ancient Greek Olympics. I think someone's worked out. that Gaius Apelius Diocles was extremely good at winning money, I think, in his Olympic Games, and he won a lot of events. And it's been worked out that he won what would be the equivalent today of over $15 billion in modern-day cash. Wow, 15 billion.
+
+[00:27:51] Just been winning a bunch of Olympic events. I think they work it out on the percentage against, like, say, for instance, someone in the army. Yeah. Something that we can... Yes. It's really hard, though. It's so hard doing that. There are three or four different ways of calculating it.
+
+[00:28:04] Anyway... Sorry, it was enough to, so he earned enough to pay the entire salary of the whole Roman army for more than two months. So they did work that like that, which he didn't do. They asked him the classic, what are you going to do with all your money? I'm going to pay! Do you want to hear an Olympics-themed joke? Yes, please. Marcus was so slow in the races that the groundsman locked him in for the night because he thought he was a statue.
+
+[00:28:32] Isn't that good? It's funny joke. That's an ancient athletics joke. Yeah, yeah. Oh, I was going to say, in 1908 when we hosted the London Olympics. First of all, we did say that was obviously the first time we hosted it, and we weren't supposed to host it. The reason, in fact, fitting me in this podcast that we didn't,
+
+[00:28:51] was because I think somewhere in Italy was supposed to host it, and Vesuvius erupted in 1906, so they couldn't. So we stepped in, like the heroes that we are. We then coptered up in a number of ways. So we included, we had all the flags up on poles around the stadium, as you do. That was the first year that became tradition. We had the Chinese and Japanese flag up, neither of which countries competed.
+
+[00:29:11] We forgot to include the Swedish and American flags, which were competing. So obviously the Swedes were really polite about that. And we're like, oh no, don't worry about it. So we'll just, never mind. And America brought their own flag and their own pole and hoisted it up themselves on the pole at the stadium. It was sponsored by Oxo, by the way.
+
+[00:29:29] The 19th Olympics? Yeah, it was actually sponsored by OXO, Indian Foot Powder, an O'Dol mouthwash. Oh, fantastic. things to be sponsored by. Was that oxo, comma, Indian foot powder? I don't think it was used for that.
+
+[00:29:41] This isn't, oxo was originally used to cure athletes. No. And we are announcing actually that today is our first podcast that's sponsored by oxo Indian foot powder.
+
+[00:29:55] In India, they have a thing called the rural Olympics, and they have three types of competitions in there. They have rural games, such as Kabadi or wrestling, modern sports,
+
+[00:30:05] such as athletics and football and performing sports such as acrobatics twisting an iron rod by placing it on the adams apple passing a tractor over the rib cage and cracking a big stone by placing it on the chest, etc. What do you mean a tractor go over your chest? Yeah, that's just one of the sports. How can you win at letting something happen?
+
+[00:30:28] It's more of not losing. Can we imagine a disappointment after the tractor drives over your chest and you look up and you see a judge giving you a of five. Five? My lungs have collapsed. Come on.
+
+[00:30:40] That's why you've got a five. I have a fact. This is really fun. They think that the starting position for running races at the ancient Greek Olympics was just standing up next to each other
+
+[00:30:53] and with your arms stretched out in front of you as opposed to the crouching. What a funny way of starting a race, isn't that brilliant? It might work if you then push your arms backwards and it might give you some momentum.
+
+[00:31:04] Yeah. The molecules out the way. Okay, that's it. That's all of our facts. Thanks so much for listening, everyone. If you want to get in contact with any of us about the things we've said over the course of this podcast, we can all be got on Twitter, either at at QI podcast or individually on at Shriverland for me, James. That's egg-shaped.
+
+[00:31:27] Andy at Andrew Hunter-M. And Anna can be got on... You can email podcast at QI.com. And if you go to no such thing as a fish.com, we've got all of our previous episodes. there and we'll be back again next week with another episode and we'll see you then goodbye

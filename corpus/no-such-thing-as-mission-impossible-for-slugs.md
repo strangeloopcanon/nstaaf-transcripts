@@ -1,0 +1,227 @@
+# No Such Thing As A Fish - No Such Thing As Mission Impossible For Slugs
+
+- Episode date: May 3, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-mission-impossible-for-slugs
+- Slug: no-such-thing-as-mission-impossible-for-slugs
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Newcastle. The name is Dan Schreiber, and I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one. And that's my fact this week. My fact is, some of the plants at the poison gardens at Anic Castle are so deadly they are kept in cages. Yeah.
+
+[00:00:59] Surely they don't think they're going to escape, do they? This is, this is anyone, we're up near the area of Anic Castle. Does anyone know it? Yeah. Yeah. So this is, they have this poison garden and everything in it basically is aiming to kill you as a species of plant. So you're not allowed to touch anything. you're not allowed to taste anything.
+
+[00:01:20] It'd be weird if you did that anyway. I'm not really... I'm not sure because some of the things there are opium poppies, cannabis and magic mushrooms. So now I think I know why the cages are there, especially after that cheer. If I was a gardener there, what I would do, I would make some fake cages,
+
+[00:01:39] but I'd leave them, you know, busted open with the door hanging off its hinges. And nothing in there. Just an empty cage. And then just... And then just with your group you're bringing in, just dash out. Don't say anything. I run around looking worried.
+
+[00:01:54] No, this is, so they do have a number of cages. A couple of them, it is because they are drugs like cannabis and opium, but they also have things like giant hogweed. And I listened to an interview by their head gardener who's called Trevor Jones. And he was saying that that's one of the things that they need to keep in there because they have a lot of children coming to the gardens. And giant hogweed are very tall. They're about eight foot tall.
+
+[00:02:16] And kids love to run around. underneath it, but it does things like bliss. If you touch it, it blisters your skin, and it can go to almost third-degree burns. And gardeners that they know who work there, who've had contact with it, have all been hospitalized within hours. So it's a very dangerous, deadly drug.
+
+[00:02:32] Yeah. So I think also it is a bit of show that they want to sort of... Yeah. Well, they do say, though, that also, as well as not tasting or touching, you shouldn't sniff the plants in there. And you say it's show, but one summer, apparently quite recently,
+
+[00:02:46] I think seven people face. from just inhaling the toxic fumes that are emanating from their plants. I don't know why anyone visits this place. Has anyone here ever fainted at the poisonous gardens? No. It's not proven yet, but it will be. But what you say about it being like for show,
+
+[00:03:03] I mean, on the gates, they do have like skull and crossbones and a big sign saying these plants can kill. So it is, you know. So it was set up by the local duchess. Is it the Duchess of Northumberland? She kind of owns the place. And she's pretty, um, she's pretty, got, like she's a big fan of taxidermy. So she has 20 stuffed dogs, which is a lot,
+
+[00:03:26] even if you've got a big house, that is a lot of stuffed dogs to own. So she has this whole, there's one plant there, which is called Brugmancia or Angels Trumpet. And the Duchess says, it is an amazing Aphrodisiac before it kills you. Wow. Wow. But you die happy. Well, supposedly Victorian ladies were. would add tiny amounts of the pollen to their tea because it gives you a bit of a buzz, a bit of a little trip. And also, I found this claimed,
+
+[00:03:55] I don't think this is true, that prostitutes in Paris used to put the pollen in their client's drinks because it makes you sleepy, but it also has the reputation of making you dream about wild sexual adventures, and you'd wake up, and you'd think you'd done all this crazy stuff,
+
+[00:04:11] and actually you hadn't slept with anybody at all. You'd just had a cup of tea and then a nap. Actually, angels trumpet. is our particularly frightening one. People still take it. It was quite popular in the early 2000s at festivals when people got into herbal highs. It's really bad news to take it.
+
+[00:04:25] It's very dangerous. A man in Germany a few years ago took some and then used a pair of garden shears to cut off his own tongue and penis. Whoa. Wow, in that order? Does the order matter, James? I'm just thinking, you won't be able to scream if you cut your tongue off.
+
+[00:04:43] Oh, yeah. It is very weird. It's just sensible, isn't it? Whichever order you've done, it's weird that he didn't. one and thought, oh, that was a good idea. Let's try something else. Oh my God. I've never found a fact before that I'm just going to choose not to believe the truth. They say if you take Angels' trumpet, it makes you feel hot as a hair, blind as a bat, dry as a bone, red as a beat, and mad as a hatter. Hung over, then. Wow.
+
+[00:05:12] Do you know, there's a word which is for, a sort of blanket word for any antidote. to a poison, which is Mithridati. It's a bit of an old word. But it comes from Mithridartis, who's, Mithridates is 6th, who was an Anatolian King in the 2nd century BC. And I really like him. See, he had this terrible phobia of being poisoned, which is fair enough.
+
+[00:05:31] His dad was killed by poisoning, and, you know, it was the older days. People were always trying to poison each other. And so he decided to combat this really clever. You know, over 2,000 years ago, he would ingest lots of poisons every day his whole life to try and build up an immunity. And this kind of worked.
+
+[00:05:48] And it was actually kind of cool. He also was the first person to use a chemical weapon in that he used mad honey. So this is honey that makes you get really, really sick. It's honey that's made by bees of eating poisonous rhododendron. So he's known for that. So he was very successful in war,
+
+[00:06:03] and he was always eating this poison and he built up this immunity. And then at the end of his life, he was about to lose in battle. And the thing to do then was to commit suicide. And he tried multiple times and couldn't do it because he was immune to all the poisons. He hadn't like stabbed him,
+
+[00:06:18] in the heart lots of times growing up. He could have done something that wasn't a poison. Well, eventually he did have to get his mates to stab him. Oh, really? But it wasn't how he wanted to go. Oh, man. Well, there were some other people who did that. So the Visha Kanya are known as poison damsels,
+
+[00:06:33] and they're in ancient Indian tradition. So they probably didn't exist, but it's the story. And they were raised on poisons from birth. And what it meant was that they possessed leithely poisonous bodily fluids. So they got loads and loads of poisons as they grow up and then all of their bodily fluids to anyone else was really poisonous according to legend and so anyone who had sex with them would die right wow that's amazing
+
+[00:06:57] again it's not true were they doing it deliberately as a yeah so again it's this mythridicism where they deliberately did that and they were used as assassins but you but you could just gobb in someone's drink if you're one of these magic poisonous people that's not as cool a way of knocking someone off i just have one thing that i want to add um and this is generally to people listening to the podcast, you should check out this poison garden. It is absolutely amazing. The amount of stuff they have there, every plant genuinely could probably kill you if you got too close. There's certain plants that have berries on them that if kids ate, three of them would kill them in a matter of hours. Two's okay. Two's fine. Two's... Recommended. They'll get all trippy and it'll be awesome.
+
+[00:07:40] And you should check out Trevor Jones, who is the gardener there. He is such a fantastic personality, and he's always there, so people should meet him. But my favorite person is the Duchess of Northumberland, and she was asked because she has such incredible knowledge about poisons. She said that her husband sometimes is worried about her knowledge of poisons, and she said, but I tell him he shouldn't be concerned because these days every single plant poison is detectable in the blood. So, like, I wouldn't get away with it.
+
+[00:08:09] And then she said, so I can't possibly put in print how I would kill someone, because she does know, based on the poisons, but my husband tells me that he'd hit me over the head with a salmon from the freezer and then eat the salmon. So she... Okay, it is time for fact number two, and that is Andy. My fact is that the man who got nominated for an Oscar for editing No Country for Old Men doesn't exist.
+
+[00:08:33] Ooh. Yeah! It's not even Panto season. So... Yes, it's... No, it's not. It's always a good show and the biggest laugh is for the audience. So how is this possible?
+
+[00:08:53] Well, he's called Roderick Jains. He's an elderly English gentleman and he's edited all the movies of the Cohen brothers and he doesn't exist. He's been nominated, he's been nominated for an Oscar twice for editing Fargo and no country for old men. But the reason he has never been to attend the Oscar's ceremony
+
+[00:09:11] is because he is made up. by the Coen brothers. Yeah, you keep saying this, but why? Well, they edit all their own films, and they write and direct and produce and all of it. So they have just made up this fictional man who has now been... Well, just for fun. They think it looks braggy to have their name on too many of the covers.
+
+[00:09:30] I read that it was to get around some union issues. I don't know if that's true, but yeah. But whatever the reason, they are really into it. So they were asked, is he coming to the Oscars this year? He's been nominated, and they said, oh no, he's very old, very old at least. late 80s, early 90s. I don't know how he'd make the trip. And then he didn't win in the end. He got nominated but did not win. And
+
+[00:09:50] Ethan Cohen was asked how James had taken the news. And he said, well, we know he's elderly and unhappy so probably not well. Didn't take it well. Very sad. Very cool. They've made a biographical note for him. So there's this whole paragraph where they say,
+
+[00:10:08] Roderick James began his career minding the teacart at Shepardon Studios in the 1930s. He remains widely admired. and the film industry for his impeccable grooming and is the world's foremost collector of Margaret Thatcher nudes. Many of them drawn from life. I feel like the Coen Brothers'
+
+[00:10:28] last film is going to be a biopic of this guy. Yes, yeah, I hope so. I was just looking at sort of people who have been nominated for Oscars but weren't there or things like that and Banksy was up for one recently, a documentary one for Exit Through the Gift Shop, you know, that film he did a few years ago.
+
+[00:10:44] and he actually asked if he could attend the Oscars, and he asked if he could attend the Oscars in disguise, and they said no. And so the executive director of the Academy said, sadly, we had to turn him down because the fun but disquieting scenario is that if the film wins, and five guys in monkey masks come to the stage,
+
+[00:11:02] all saying, I'm Banksy, who the hell do we give it to? And it's a fair point. So he was fine with it, but Banksy said, I don't agree with the concept of award ceremonies at all, but I am so happy to make an exception if I'm nominated for an award.
+
+[00:11:17] My favourite nominee for adapted screenplay was a person called P.H. Vazic. And P.H. Vazic was nominated for Greystoke, The Legend of Tarzan, Lord of the Apes. But this person was, in fact, not a person. It was a Hungarian sheepdog belonging to who it was, who was meant to be nominated, Robert Town, who was the writer, but he hated all the changes
+
+[00:11:43] that happened to the script. So he put his Hungarian sheet dog as the actual scriptwriter and that script writer got nominated. So a Hungarian sheepdog has been nominated for a Oscar. Did it turn up? No, and it didn't win.
+
+[00:11:56] So it probably knew. Also, he had a sheet dog called P.H. Vazak. That's an unusual name for a dog, isn't it? Giving it two initials. Well, he's, hey, if he can write screenplays, he's probably going to have a very strong literature-based name as well.
+
+[00:12:11] I think you've misunderstood your own story. Have you heard of the actor Uggy? No. So there was a big campaign a few years ago to get Uggy nominated for a BAFTA for his performance in The Artist
+
+[00:12:24] And if you remember the film The Artist, it was that silent movie And Uggy was the terrier I do remember that. The dog was a big, you know, hit in the film And lots of, you know, if you're a member of BAFTA, you have to, you know, pick who you nominate
+
+[00:12:38] and a lot of the members of BAFTA wrote to the committee to check, am I allowed to nominate this dog for a BAFTA? and BAFTA had to make a public statement about it, and they had to say, regretfully, we must advise that as he is not a human being and as his unique motivation as an actor was sausages, Agi...
+
+[00:12:56] ...is not qualified to compete for the BAFTA in this category. It doesn't matter what their motivation is. I agree. Most actors are motivated by money, which they may well be using to buy solely sausages. So, we don't know. Someone who's got nominated a bunch of times but has never accepted an Oscar
+
+[00:13:16] is a guy called George Scott he was a ex-brilliant actor in the 60s in the 70s He's an ex-brilliant He used to be brilliant Yeah so he's still going But he's awful now Yeah
+
+[00:13:27] Really embarrassing So George C Scott Always said he'd never accept an Oscar He was very clear about this He called the Oscars a two-hour meat parade A Public Display He's multinated by sausages Obviously
+
+[00:13:39] He basically was like The suspenses contrived for economic gain I don't want to be pitted against my fellow actors He kept on getting nominated in 1960 and 1962 He got a Best Supporting Actor nomination He turned it down He was like I don't want to be nominated They wouldn't give up
+
+[00:13:55] In 1971 he got a best actor nomination I think that was for the film Patton And he refused the nomination But they ignored his refusal And he won the Oscar And he had to say I really don't want this Please take it away
+
+[00:14:08] but yeah they gave it to him anyway I think Goldie Horn was giving out the Oscar and she opened the envelope and she just went oh my God I've pretty much only researched dogs and Oscars there is Why dogs
+
+[00:14:23] Why dogs? I like dogs So there is a thing about the first ever Oscars because just you know off the back of Uggy in the artist there was a very famous dog called Rintin Tin Tin
+
+[00:14:38] You've heard of him? Yeah. So it was like a, like, this is way back, this is, you know, 1920s era Hollywood. And Rintin Tim was, I think, a German Shepherd maybe. Very, like a proto-lassy, basically. And was hugely popular. And when the first ever Academy Awards happened, Rintin Tinn received the most votes for best actor.
+
+[00:14:58] And that's true. There's Susan Oylean is a writer from America who's done a lot of research into this, and it's her belief that this happened. But he won the first round, and they thought, we've just set up the biggest film awards in the world. We cannot give it to a dog the first time round. We would be a laughing stock.
+
+[00:15:18] So they then said, well, we're going to have a second round, and the criterion for entry in the second round is... Number of legs. Pretty much. You have to be a person. Yeah. Oh, really? Really? It sounds like they weren't taking it seriously, the voters.
+
+[00:15:32] And I haven't seen Rinton's performance, but they can't have been taking it very seriously if they really thought. He was a super popular dog. Right. I mean, he was more famous than a lot of the actress he appeared on screen with.
+
+[00:15:43] Do you say this is the first Oscars? Yeah. Because the first Oscars was quite odd anyway, wasn't it? It was the 1929 one, and it was this big, there was this big long dinner with lots of speeches
+
+[00:15:52] about films and other stuff, and then the award ceremony lasted five minutes within which 15 awards were handed out. Wow. No way. One award every 20 seconds. Sprinting up
+
+[00:16:07] onto stage and sprinting away again. That's amazing. So bizarre. For best actress, there were five people nominated, except three of them were the same person. Janet Gaynor. She was just nominated for three separate films she'd been in, and she did win it, yes. Do you know the most...
+
+[00:16:26] I think this is the most embarrassing moment in Oscar's history. Not the La La La La Land thing? Not the La La Man moonlight thing, I think. Although that was very embarrassing, obviously. So this was in 1933. This was the Best Director Award. And Frank Capra, who was a really famous director,
+
+[00:16:44] a lot of classic Golden Age Hollywood films he directed, he was up for it. And so was another director called Frank Lloyd. And Frank Capra heard the presenter say, come on up and get it, Frank. But he hadn't been listening properly, and he had said it to Frank Lloyd. Oh, God.
+
+[00:17:02] And Frank Capra was already moving up the room to collect it. got to the stage and he then realized his mistake and he had to walk all the way back in front of everybody. He later said the walk was the longest, saddest, most chattering walk of my life. I wish I could have crawled under the rug like a miserable worm. Okay, we need to move on to fact number three and that is Chazinsky. My fact is that houses in ancient Turkey had no doors or windows. You got in by climbing a ladder up to the roof and dropping through a trap door.
+
+[00:17:44] I just think this is so cool. So this is discovered and this amazing settlement that archaeologists have uncovered in the last few years. It's a settlement called Chartal Hoiuk. And it was settled over 9,000 years ago. It's on the Konya plane in Turkey. And it's, yeah, it's amazing. And they all built their houses back to. back, sort of clustered like, you know, terrorist houses, which is very weird because they had lots
+
+[00:18:08] of room. And yeah, no doors or windows and like little ladders that you could drop down to climb up to get in. And then you put the ladder down and you drop onto the hearth in the middle. It's a bit weird because the entrance which you dropped through was the same as the exit for the fire. So you wanted to make sure they didn't have a fire lit when you were coming back home. I read a description of it. It's a bit like a honeycomb. So you have all these like little cells that are next to each other. So there's no paths in between them. They're all, you've got like six neighbors, one on each wall. And the other way to get out is to go through the roof, right? And the streets were sort of the roots, weren't they? If you were going to someone's house,
+
+[00:18:44] you would just walk along the top and you would go down. So it was a sort of, as if it were an underground bunker, but they just built it upwards and that became their new street level. In fact, they did everything on the roofs. So anything you would do as a group, so any kind of, let's say you were doing some religious stuff, it would all have to happen on the roofs, because that's all the space you had. Apart from there was one little area, wasn't there where they defecated. Really? Yeah, like a...
+
+[00:19:06] They had like a courtyard where they would put all of their feces and the rubbish and all that kind of stuff in a big midden. That's nice. Yeah, we have one of those in the centre of Newcastle, don't we somewhere? But they lasted so... They lasted a thousand seven hundred years. Yeah, that's such a lot. When you really think about that,
+
+[00:19:25] just have a real think about that quickly. That is a long time. Yeah, it wasn't the same people. No. and then they disappeared. Yeah. As in they probably disappeared. We don't really know why.
+
+[00:19:38] In about 5,000 BC, I think it was. Yeah. The civilisation just don't know what happened to it. But they do have, they've got amazing paintings that they've found on the inside of their walls, and they're always painting sort of like leopards and boars and bears, and also they always do those hand paintings,
+
+[00:19:52] which I like because you always do them at primary school, and it's nice that sort of cave people did that too. And they have paintings, they have this really cool painting of people, but without heads and then a huge what looks like a vulture and they think that's because they did that thing where when people died they would put them out on the roofs
+
+[00:20:08] and no other animals could get to them but the vultures would come and be able to eat out their organs so then they would take the bodies which had no longer any meat on them so it's just a skeleton and they would bury them in their houses under their beds under their beds so you'd keep your grandma under your bed
+
+[00:20:25] wow I've got to say I think I think we're getting it right and they didn't. In some ways. Look, here's one thing that they did get right and one reason that people think they lasted so long is because when we look at these cells now where they all lived, they're all almost exactly the same
+
+[00:20:46] and it's not like some of them have got more hand paints on or some of them have got more decorations and stuff like that. And it seems that that is because they all basically didn't have a way of accumulating goods. Everyone was exactly equal. and one theory as to why it died out in the end is because when they started farming, people could start hoarding food
+
+[00:21:05] and then some people got richer than others and then eventually that's because of the inequality that's why the civilisation died. But they were one of the first, almost the most important early agricultural community, early agricultural community, when people went from being nomadic
+
+[00:21:20] to being agricultural. But weirdly, their houses are nowhere near their fields, which is quite confusing because you would have thought if that's all you're doing, you want your field to be next to your, house. But I think that's because the clay to build their houses, they wouldn't have been able
+
+[00:21:34] to carry that from wherever that was to next to the fields to build their houses. So instead they had to carry their corn back to their houses. So their houses are built where the building materials are. It's annoying to have to make that kind of trade-off. But it's much lighter to carry corn than it is to carry a house. But you've only got to carry the house once. Exactly. Yeah. Oh, it's tricky, isn't it? And you put it on the back of one of those trailers. What trace? Sorry, what? They were advanced.
+
+[00:22:03] Have you heard about the people who lived in the old Dubai gorge in Tanzania? No. No? Yeah, fair enough. This is supposedly where the oldest houses in the world are, and they're 1.8 million years old. So, that's 1.5 million years older than humans are. There's circles of stone, which are...
+
+[00:22:26] They're not a lovely... houses, okay, because obviously they're 1.8 million years old. There are circles of stones, and they're surrounding slight depressions in the earth in the middle, and that's about, they're about 13 feet across these circles. And some cynics have said these are not houses. They're just circles of rocks. But you think, how did the rocks get into circles? We don't know.
+
+[00:22:48] And there's a theory that maybe a growing tree pushed the rocks outwards into a circle, then the tree died, and it leaves a circle of rocks behind. That seems unlikely. That's silly. I know. The house thing is more plausible. But we don't know. But we don't know.
+
+[00:23:00] But it's a theory. And they had presumably roofs. They weren't just circles of stone at the time, we think, or were they? Because if I just put a strewed a few pebbles around me and then said, look, I've built a house. I don't think I'm being employed by any architectural firms. It's tricky because there's no definition really of what a house is. You're right. I got a fact about trap doors.
+
+[00:23:21] Yes. Because this was about getting into a home bar of a trapdoor. So Rousseau, the French. writer had a trapdoor in his office for whenever he had unexpected guests. Was it to drop them through? He pressed a bus. It was for him to flee and they'd knock on the door and say, well, to see if Mr. Rousseau's in? Oh no, sorry, he's pulling the rug back over him from the trapdoor. I read recently that Mark Zuckerberg has that as well.
+
+[00:23:48] Really? Really? Yeah, yeah. Generally, wow. I think so. Why didn't Rousseau just lock his door? It's not as cool, is it? It's not as cool as the trapdoor. It's not as cool. They found a few years back what they think is the oldest door in Europe, and they think it's 5,000 years old, and it was found when archaeologists in Zurich were digging,
+
+[00:24:12] I think it was for a car park, and they suddenly found this door. And do you know how they dated it? Someone had put a letter in there, and they looked at the postmark. Oh, yeah. No, they counted the rings. It was a long shot. Yeah. Ah. How does that really? What's a wooden door?
+
+[00:24:28] It had rings. Very cool. Yeah, so they were able to count. Very good. Oh, yeah, that makes no sense. What am I talking about? Yeah, because you'd only know from when it was born, the tree, right? Oh, this is 12 years old.
+
+[00:24:38] Yeah. They could have carbonated it, I guess, right? Yes. It's obviously the answer. Wait, they must. They did, they... Did they count the rings? They counted the rigs, but the rings obviously ended, but the tree was chopped.
+
+[00:24:55] Well, yeah. So I don't know. Who wrote... this bullshit. I tell you what, when we do it in the office, it's embarrassing enough. In front of a thousand people,
+
+[00:25:06] I really have to question what's going on at this head of mine. Should we, another door, another door thing? Yeah. We'll quickly move on. Some Native American tribes, and actually I think
+
+[00:25:20] some East African tribes used to have keyhole-shaped doors, and why do you think that is? Massive keys. They had really really big kind of dresses and so it was the shape of them Oh that's good
+
+[00:25:37] Oh like a ladies' loo sign which goes out like that like a keyhole They didn't have houses They just had a load of ladies lavatories Right, okay, no you're all incorrect They counted the rings It's the opposite of wearing dresses It's either
+
+[00:25:54] It's like if they were wearing dresses but upside down as in that it's keyhole shape because the top is much wider and it's because people, usually women will carry big bundles on their heads and then when they're entering their home, the top is wider so that they can fit those bundles through but you don't want to let all the heat out of your house and so the bottom is much narrower.
+
+[00:26:13] So you can conserve heat, very cool. We need to move on to our final fact. Okay, it is time for our final fact of the show and that is James. Okay, my fact this week is that the red triangle slug can escape from frogs by supergluing them to trees. So cool. It is really cool. So I read the story in New Sciences quite recently.
+
+[00:26:37] There was a guy called John Gould from the University of Newcastle in Australia. And he made the discovery when he spotted a frog struck to a tree. And there was a slug next to it. kind of rubbing his hands with glee or something. And he cut a bit off the tree, and he looked how old it was. And then he took it back. Unbelievable. And then he took the frog back to his lab,
+
+[00:27:12] and he left it there for a while to see if it would get free, and it really didn't. Eventually they prized it free, and they put it in a, like, a little container, and then it kept getting stuck to the sides of the container. And it turns out that this, and slug can get this kind of mucus and it normally has a nice
+
+[00:27:29] like slippery mucus that it can travel on but it can also make this really really sticky mucus. Wait so why did they get the frog? Did they then interview the frog? Were they like, tell us how this happens? I was just trying to catch a slug and he got all over my feet.
+
+[00:27:46] But it's so weird because it's so weird that the slug because this is an amazing defence mechanism once it's super glute the frog to the tree as you said it just kind of hangs out next to it's the thing that it's locked up. Wow. That is awesome. And it lasts days, doesn't it?
+
+[00:28:01] Yeah, the glue. So they do get off, but it is a couple of days of what must be horribly embarrassing. Do the slugs invite their mates? Yeah. Well, the other frogs must be like, we're going to go catch that cool frog movie. Do you want to come? I'll be there in a minute. You didn't get stuck, did you?
+
+[00:28:18] I don't know. It feels like that would be a thing. Yeah, probably. So this mucus is really good because it's, a very unusual thing in that it's very gluey and very sticky, but as it gets wetter, it gets stickier. And this is something that doesn't really happen. Usually when things dry out, they adhere more. Like if you think about super glue, when it dries out, it's much more sticky. So this works better in wet conditions, and they think we might be able to use it. Humans might be
+
+[00:28:44] able to use it for like fixing wounds or there's similar ones that they use to kind of put in people's hearts. If you have a lesion in your heart, you can hold that together because obviously a lot of blood around there and it works there. So this might be really useful for us in future. Or plasters that don't fall off in the sea. Yes. That's amazing. I'm down with...
+
+[00:29:05] I'll fund that research. That is weird. That's why when you get slug slime on your hands, don't put water on it to wash it off because it just makes it worse. Really? Is that right? Yeah.
+
+[00:29:15] Yeah, yeah. Oh yeah, because slug slime, it can kind of suck up water into it. It absorbs the water, so it just gets bigger and more monstrous. Wait, so it drinks... It drinks the water. Yeah. It can do.
+
+[00:29:27] So if you think about a slug, like they like to be wet, don't they? They like to be moist. But then they're always giving out this slug slime all the time. So you think they would just dry out. But what actually happens is some of that slug slime can take in the water because it just gets loads and loads of water in it
+
+[00:29:43] and it can actually almost drink through this slime. It's crazy. I was reading about banana slugs. They have a thing where sometimes when they have sex, the slime itself is so sticky that, the male slugs penis will get stuck in there because it's just too sticky.
+
+[00:29:59] So their only option is they bite it off and just leave it. This is where Anna's German guy at the festival got his ideas from. It's too sticky, it's got to go. Oh God. Really? But they do sometimes bite each other's penis is off
+
+[00:30:20] anyway, I think. They're not really supposed to, but um... It's considered rude yeah sorry about that I wasn't meant to do that so they're all Amaphrodites aren't they slugs so which is good
+
+[00:30:34] that means when they have sex then both can go away pregnant which is nice but they will at the end you have to scarper really fast otherwise your partner might bite off your penis which is a bit scary but the best slug mating actually is the leopard slug mating isn't it because
+
+[00:30:48] the leopard slug has sex while upside down hanging from a brunt And the reason it does this is because its penis is so big that it needs to use gravity to unroll it. We've all tried that line at various ones. My Tinder profile is me hanging upside down from a tree. I think you know what this means. This is amazing, though.
+
+[00:31:16] They'll climb up a tree, two slugs, and they decided they're mating. And then they produce slime that it can solidify really fast, So it acts like a bungee cord. So they drop down of a branch hanging from their slime. And then they unfurl these penises, which are almost as big as they are. They're really, really long.
+
+[00:31:34] And they intertwined their own slug bodies, which looks quite nice, like a platt. And then they intertwined their own slug penises, which are sort of basically like extra slugs in the end, if you look at it. It looks quite nice. And then they have sex. You've got such a low bar for what counts as nice,
+
+[00:31:50] and I like that. It's very pretty. And then when they're done, they eat their way back up the rope. Wow. Oh, that's the bit you're disgusted by. He got some weird standards, Newcastle. All I'm thinking of is that scene in Mission Impossible now, where he's slowly lowers himself down the rope.
+
+[00:32:09] If he'd got his knob out at the bottom of that rope. What are you doing, Ethan? Sorry. I'll eat the rope and come back up. There's a thing that I like as well, just on the biting off of penis bit. What must be? Well, it's about losing body parts, and there's a thing that some slugs can do. There's sea slugs that do.
+
+[00:32:38] There's certain sleigh slugs, and there's tail dropper slugs. And what they do is, if there's predator coming towards them, they basically just rip off a bit of their body in the tail dropper. It's the tail. And they use it as a decoy bit of bait. so they'll be like, go have that. And so the predator will eat that because it's not moving.
+
+[00:32:57] And while they're munching on the bit of that body, the rest of them can get away. It's that extraordinary. I think we mentioned there's a scorpion that does that. Oh, yeah, there is one. It breaks off its tail. Well, the problem is it breaks off its anus. Yes.
+
+[00:33:12] And then it can't poo anymore. And then it can't have a poo ever again. And the poo just sort of builds up in its body because it's thrown away its tail. So it doesn't get eaten, but then three days later it dies of constipation. Yeah. Does it really? Yeah. They die. They explode.
+
+[00:33:25] Yeah, they do die. I wonder if they regret it. I guess it's then like another Mission Impossible film. You've got three days left to pass on your jeans. But it's quite hard to attract female scorpions because you're getting bigger and bigger full of poo. Yeah. So that's an exciting pitch, I think, for a film. Ethan Hunt has thrown away his own ass.
+
+[00:33:52] Um, so I've actually been looking at glue and gluing things. Do you, because it was about, because it was about glue. Um, so do you remember the guy who, um, who glued himself to Gordon Brown's sleeve? No, he was. Politics was a lot more fun in those days, isn't it? It really was. There was a guy called Dan Glass and he was, uh, an environmental campaigner. He was from a campaign group called Plain Stupid.
+
+[00:34:19] And, uh, he got invited to a reception at Downing Street. Street in 2009. And he thought, now's my chance. And he, so he thought, I'm going to do it. I'm going to glue myself to the Prime Minister to make a point about climate change. Fair play. And he said, I was saying to Gordon Brown, you can run away from climate change, but you can't run away from my arm. And he glued up his hand, and he did it. He managed to grab Gordon Brown's sleeve and superglued himself to the Prime Minister inside Downing Street. However, the PM managed to outfox him by the relatively simple method of taking off his jacket. Okay, that's it. That is all of our facts.
+
+[00:35:00] Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter account. I'm on at Schreiberland, Andy. At Andrew Hunter, M. James. James Harkin. And Chisinski.
+
+[00:35:13] You can email podcast at QI.com. Yep. Or you can go to our group account, which is at no such thing or our website. No Such Thing is a Fish.com. We have everything up there from upcoming. tour dates to merchandise to all of our previous episodes. Thank you so much Newcastle. We'll see you again. Goodbye!

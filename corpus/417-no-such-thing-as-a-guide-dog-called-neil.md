@@ -1,0 +1,291 @@
+# No Such Thing As A Fish - 417: No Such Thing As A Guide Dog Called Neil
+
+- Episode date: March 11, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/417-no-such-thing-as-a-guide-dog-called-neil
+- Slug: 417-no-such-thing-as-a-guide-dog-called-neil
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Belfast. My name is Dan Schreiber, I am sitting here with Anna Tyshinski, Andrew Hunter Murray and James Harkin and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order, here we go. And with fact number one, and that is James. Okay my fact this week is that during the festival of Britain in London in 1951, children would deliberately go missing because the local police station where they waited for
+
+[00:01:03] their parents had the capital's best collection of comic books. That's incredible. This was a huge big deal, 1951, this is the festival of Britain, probably the last massive festival we had in the UK before the Millennium Dome was built, and this. Don't laugh at the, it was a huge success in some measures. Number of domes. Yeah. But yeah, the festival of Britain, there was an amazing thing, they had all these incredible
+
+[00:01:35] buildings and structures and exhibitions all over the UK and London and Edinburgh and the Belfast in fact, they did have quite a lot here. But then it was in 1951 and by 1952 the entire thing had been demolished. There was no TV really in those days, it was really the early days of TV and so these days I think it's quite forgotten the festival of Britain, but when you look into it it was absolutely amazing. And what's extraordinary about it as well, so it was the South Bank in London where the Royal Festival Hall is now, which is a very iconic venue and I've been there many, many
+
+[00:02:08] times, didn't realize it was built for the festival of Britain, it was part of the big structure. The whole of the South Bank right along the Thames was just turned into this place of the future. And when you see pictures of it, it is extraordinary what was there. It is. And it was built basically to cheer people up a bit after a little war-type episode, wasn't it?
+
+[00:02:30] A little run-in with the Germans. It was a small run-in and it seems like it worked, it seemed to be pretty successful. So they had, my favorite piece of the festival of Britain was the, like one of the centrepieces with the Guinness Festival Clock, which was, it was in Battersea Park, it was 25 feet high. It said it was the most complicated clock mechanism for 300 years, which, what happened to clocks 300 years earlier, they just, they just forgot how to make them properly, but it was amazing. What I quite like about the Guinness Festival Clock is nowhere, is it explained why this,
+
+[00:03:04] one of these centrepieces of the Great Exhibition, was something that is made by an Irish company, which, I don't know if you know the spell fast, was not part of the United Kingdom at that time, nor is it now, and by two Polish designers. And it's never mentioned, but it sounds incredible. So they had the whole Guinness Menagerie, so, you know, back in the olden days, Guinness was advertised by all these animals, like, there was a toucan, wasn't there? Toucan is the big one, the main event, yeah. They had a crocodile, they had a pelican, a bear, a lion, a kinkajou, all these typically
+
+[00:03:36] British- Oh, what? A kinkajou, you know? A kinkajou. Yeah, you see them wandering up the South Bank sometimes, it's a real British, some kind of South American. Do you mean pikachu? Yes.
+
+[00:03:46] They had pikachu. It's like a weird-looking mammal, a cute South American mammal, which- Yeah, what kind, what kind of mammal? Like a bird? No. Like a bird. Sorry, back, wait. Hang on.
+
+[00:03:58] No, no, no, no, no, you can't pull that back then. So Anna, what kind of mammal? Like a lizard, or like a fish, or a... It was an insect, but- A kind of mammal, I'm talking about. Oh, fucking, because he made that joke, it's going to stay at the show now, and then... That was always going to stay at the show, the moment that left your mouth, I'm afraid. I suspect it's not the last you're going to hear of, though, fuck off.
+
+[00:04:24] Well, okay, so now we all know birds aren't mammals, great. You're welcome, everyone else at home, who had to have me take the bullet to get that bit of information out there. We've all learned something today. Okay. And they all danced around. So what was it, though? Did we find out?
+
+[00:04:40] Was it like a spider? It looks a bit like a sloth, like a cute, sloth-y type, like a possum or something. Okay, looks a bit like that. Great. The furry thing. Anyway, they jumped out of this clock and danced around constantly, and the ostrich would come out, which had beer-glass sizes. Not a marble.
+
+[00:04:59] Part of the bird family, I believe, is it? Very strong. Cool. Yeah, it was very cool. On the other... I mean, there was so much stuff in London, but it was genuinely all across the country. So 18 million people across the UK went to one or other of the events that were local. The Festival of Britain had its own ship, which is pretty cool.
+
+[00:05:20] Nice. It was called Campania, and the ship had an amazing life. Okay? It was truly a very versatile ship. It was built, actually, it was built in Belfast, local ship. It was built... Yeah. I certainly trust any ship that's been built in Belfast, by the way.
+
+[00:05:35] Oh, yeah. Too soon? No, not too soon. It's just a strong mystery. It's just a strong mystery. Yeah. Anyway, it was built in Belfast, but then, Second World War, it was requisitioned by the military, by the Navy, used as an export carrier.
+
+[00:05:52] Okay, so it's now fine. It's a military ship. It saw some action in the Second World War. Then it was turned into the showboat for the Festival of Britain in 1951. It was refitted as the command ship for Operation Hurrican, which was the test of the first ever British atomic bomb. Okay. So it sailed to Australia, and it had some laboratories fitted, and it did the test.
+
+[00:06:10] It was the main ship for that. And then it was scrapped. So I thought, you know, what an interesting life for a ship, guys. Yeah. I feel like this microphone might not be... No, great story. The Northern Ireland part of the exhibition was run by a guy with a brilliant name. He was called Willie De Mayo.
+
+[00:06:28] Isn't that cool? Willie De Mayo. And the whole part of the whole point of the bit around Northern Ireland was to show the importance of hard work, because Northern Ireland had made a really... Because someone in the UK had to work hard, and it was down to you guys. They worked out that Northern Ireland had made a much bigger part of the recovery after the war than anywhere else in the UK. But they also had a lot of manufacturing on site, because they wanted to show how many
+
+[00:06:56] things were made here. So you could buy some festival cigarettes that were made while you watched. They made a cigarette, and then you could smoke them. They had some stuff about stockings, nylon stockings. And the way they showed those off is they had a load of sort of dismembered legs. They weren't real legs. They were like kind of plastic legs, and they were in the shape of a fan. And they all had stockings on them, and they would spin round and round and round.
+
+[00:07:21] And then there would be some nylon that you could kind of see through the spinning leg fan. That's cool. That is cool. Back in London, there was all these little other events that were going on. So you would have the main features of the whole festival, which would be from theatre through to these caves that were built that were absolutely stunning. They were like grottoes, which looked incredibly beautiful.
+
+[00:07:43] And then there was a French-stunt tightrope walker called Eliano. I think that's the right pronunciation. And he walked across the Thames, so they put a tightrope out the whole way through, across the Thames. He walked it, and near the end, he almost fell. And he went down onto one knee, and he stayed there for four minutes. And then he eventually got up and then made it to the end. And it was a success, but it was particularly scary because Eliano didn't know how to swim.
+
+[00:08:15] And how do you fall in? That could have been a horrific moment, but like, yeah, that's pretty bold going across a giant body of water when you don't know how to swim. Well, people appreciated it. You can watch the footage of that, and 100,000 people were there. And that's a lot of people. It's like the entirety of London seemed to be rammed. I guess it was when you only had two channels on TV, so nothing else to do.
+
+[00:08:36] I'd also have no TV to watch them on. And when are we with 51, mostly while I'm on TV? Well, there was a big theatre there where people went to see television for the first time, the first time seeing visuals. Yes. Have you seen just with the Eliano tightrope, have you seen what he does when he falls onto his knee? No.
+
+[00:08:55] Well, according to one newspaper writer, he's obviously doing something, and I don't know how the journalists could see this, but he mouths to his wife, who was in the audience, who was also a tightrope walker, I can't do this. The rope's too slack. I'm going to fall. You know, somebody help me. And she just shouted back, you've got to do it. You've got no choice.
+
+[00:09:12] Come on. Get up, mate. Wow. And that kind of tough love is what does it? Yeah. Yeah. That's pretty good. Have you heard of the role that Laurie Lee?
+
+[00:09:23] Laurie Lee is author of Sider with Rosie. Yeah. And go on. What's the second famous book that Laurie Lee wrote? The Autobiography of Laurie Lee. Yeah, exactly. Well, it was a memoir, so that kind of was the autobiography. Anyway, look at the point.
+
+[00:09:37] I was trying to help you out. I'm really sorry. I'm biting the hand. Anyway, he was appointed the curator of eccentrics, because they wanted to have some fun stuff. And he said to put an ad in the papers saying, send me stupid ideas, and we'll build them and we'll put them in the exhibition of eccentric things. And he got brilliant suggestions, okay? And they built a lot of these things, which is really cool.
+
+[00:09:59] So one that they didn't build is the deflatable rubber bus for going under low bridges. Oh, brilliant. Very good. Brilliant. A machine which was 20 feet by 20 feet, and its sole purpose was to blow out a single match held in front of it. Okay. Cool thing.
+
+[00:10:15] I love this one. A staircase which had weighted steps, okay, so you could give someone the feeling of going upstairs while they were actually going downstairs. Oh, what? How cool is that? That's the dream. No, not very cool at all. How does...
+
+[00:10:28] What? You get in all the worst bit, basically, of going upstairs, and you're getting it when you're going downstairs. Yeah. But it would be useful... When? Wait. It's good exercise, isn't it?
+
+[00:10:40] Although if you could do the opposite and give the impression of sliding down a banister and then you end up on the second floor. That would be amazing. That's the way to do it. Yeah. If you had to trick someone... Yeah. ...going upstairs when they were actually going downstairs.
+
+[00:10:51] Yeah. Why would you want to do that? You're a kidnapper. And... Okay, I'm a kidnapper. It's only the most obvious, you know. And I want them to think that they're in the top of a building, but they're actually in a basement.
+
+[00:11:05] So that later on, when they say, where were you kept, the kidnapped situation has been resolved and it's all fine. And they try and escape, but they're just going deeper and deeper and deeper. They'll be asked, you know, where were you being kept? They'll say, well, I was upstairs. And so the police will be looking in places upstairs. Upstairs, you're right. You're in the cellar the whole time.
+
+[00:11:24] And is this how they use this thing? It wasn't... I don't know. Was this one of the main attractions of the Festival of Britain? All the kidnappers were running riot because the police were taking care of the kids, weren't they? It's a millennium dome. It had stairs that you could feel like you were walking upstairs while you were walking
+
+[00:11:37] downstairs. It would have been a runaway hit. Yeah? You're right. They also commissioned a lot of artists to do original art as part of this. So they had famous artists building statues and so on. And one of the artists they got was Henry Moore, and he did a reclining figure. That was his piece.
+
+[00:11:53] And there's a story that a small boy caught his head under one of the legs of the reclining figure and got stuck in there. And so the account was that they were pushing and pulling for ages, trying to get this kid... Well, pushing and pulling isn't going to work. Oh, from different ends, I suppose, they would. From different... Yeah, they were just trying to... Yeah.
+
+[00:12:13] Not just like for an hour that you are pushing, right? No, I'm pulling. Yeah, yeah, yeah. To you. They shouldn't have got the Chuckle Brothers to do the extrication job. Yeah, so what they did was they were just trying desperately to get him out. They couldn't get him out. So then they brought huge quantities of soap over it, and they started soaping this boy
+
+[00:12:30] up in order to get him out. And they finally managed to... And they tried weird things, like the soap was on his neck, it was on his body. They finally pulled him up vertically and managed to pull him out that way. Sorry. So they put him into a flat horizontal position and they managed to pull him out that way, and they said it was like a missile from the breach of a gun, like he popped out. And his mother reported that her son's neck had never been so clean.
+
+[00:12:56] These are the kind of jakes that were happening at the Festival of Britain. There was another sculpture called Root Bodied Forth by someone called Mitzi Konlif. And this was a sculpture of two bodies entwined together as if they're coming out of the earth. So if you can imagine the bodies going round. And the person who was in charge of the Festival of Britain was called Sir Gerald Barry. And he had to go and look at this sculpture when it was being made, because he'd been tipped off that it might be a study in sodomy.
+
+[00:13:27] And he concluded that if it was a study in sodomy, then it was one that was anatomically impossible. Fair enough. I can't believe that takes someone professional to judge it. It seems like it would be pretty obvious to most people if it was a study in sodomy or not. No, there's expertise in every field, Anna. You think you're some kind of expert.
+
+[00:13:49] I just think we might all be experts in that, but looking at it. All doing it, I'm not judging, but I'm just saying to look at most of us, we should move on anyway. No, no, no. I feel like this is your mammal gate, Anna. No, it wasn't amazing. The craziest thing of all is that they spent something like £12 million on it at the time in the 50s.
+
+[00:14:13] A huge amount of money. It was funded by the Labour government, who were, it was Clement Attlee, who was in power at the time. There was a guy, Herbert Morrison, who kind of was seen to be the person who was going to succeed Attlee, never actually did. His grandson is Peter Mandelson, I discovered. So it's like a history of staying in politics. But it went up in, when was it?
+
+[00:14:35] It was in... 51. It was in May, 51, I think it was. Churchill then didn't like it at all. So much money went in. It looked beautiful. And by September of that year... He got back into office in that time.
+
+[00:14:48] Exactly. So he got back in in that time. And by September, they had it dismantled. This incredible thing. Yeah, they saw it as like an emblem of socialism and this great kind of, all of these amazing sculptures and buildings, they were kind of of the socialist government, they're like, we're having none of that. Let's get rid of it.
+
+[00:15:03] Yeah. It was jealous. It was basically Lego gate from my childhood when my brother managed to make the Lego pirate ship when I had failed and I got up in the middle of the night, went into his room and smashed it to pieces. And that is what this was. Right. And at least I'm adult enough to admit that.
+
+[00:15:20] I bet Churchill never admitted that was what he was doing. Have you admitted it to your brother or is he going to hear this podcast? Fortunately, he doesn't listen to the show. Very interesting the dismantling of all this stuff. It was really hard to dismantle because they had to do it quite quickly and they were losing staff all the time. So they had like things like the single largest sheet of glass in the world at that point because it was part of the telescope that they'd built and they didn't know how to,
+
+[00:15:45] they'd had to dismantle everything around it before they could get this sheet out and they were losing people. They had a train from India, which they couldn't put on the railway to get back to its ship in time because it was the wrong gauge. Like there were all these issues and most things in there were really expensive. So you had these security guards who were bouncers basically protecting millions of pounds worth of items and inventions that were there. And one of the things that they had a lot of with dustbins, all the bins that were around
+
+[00:16:11] for this place, and one person went and bought them all up or most of them, and that was a guy called Billy Butlin who runs Butlins. So if you ever went to Butlins in the late 50s and possibly through to now, the bins that you're putting your rubbish in are the bins that were at the Festival of Britain. Wait, you think that's still the same bin? I didn't find a photo of a recent bin. It could be. I mean, they can't, you know, they don't get much wear and tear of bins.
+
+[00:16:35] Where are you going to throw them away, Anna? We need to move on to our next fact. It is time for fact number two, and that is Andy. My fact is that in the 1990s, a British bank set up a computer system so they could write to all their wealthiest customers at once. Unfortunately, due to a rogue bit of placeholder text, they started sending out letters which began, Dear Rich Bastard. So this is in a paper recently, and the website Snopes, who do a lot of debunking and bunking,
+
+[00:17:10] have checked it out, and it did happen. It was written up in computer weekly at the time. It was a telecommunication firm. They were launching a new gold card, and they wanted to email the richest people all at once and see if they wanted to buy a new product. And so one of the programmers just wrote a bit of placeholder text. Normally, the name of the customer would be in there, but some of the records were a bit botched and couldn't read it.
+
+[00:17:32] So he just said, as a little joke to himself, this will never go out, but it's going to be Dear Rich Bastard. Anyway, he then left the project and it was handed on to a different programmer who didn't know about this. And it was restarted. And so they started later sending out these letters to Dear Rich Bastard. Allegedly, they got one complaint from a customer who hadn't been called Dear Rich Bastard and was very offended. He'd been left off. Yeah, exactly. It could have been sent to...
+
+[00:17:59] There was a British Royal Naval officer in 1798 called Richard Bastard. No! Could have gone to him, Rich Bastard. There was also a Rich Bastard who was born in 1788 in Cornwall. He changed his name, actually, to Richard Bastion, and it seems to be... It changed it just when he got married. He got married to a woman called Jennifer Sincock. And they became the Bastions.
+
+[00:18:24] And the other Rich Bastard, the only other Rich Bastard I could find, a real Rich Bastard, is friend of the podcast, Seaguar Bastard. Do you remember him? Yeah, what does he do? He was a football referee. Oh, yeah. Seaguar Bastard and his middle name was Richard, so he was Seaguar Rich Bastard. And on his Wikipedia, there's a full paragraph on...
+
+[00:18:43] It says, there is a popular belief that because of his name, Bastard was the inspiration behind the chant, Who's the Bastard in the Black? And Wikipedia says it is unlikely that he was the inspiration because the colour of the clothing he wore while refereeing is not documented. And football chants did not include verbal aggression towards officials until at least the 1960s. Long after he had died, so...
+
+[00:19:11] Thanks, Wikipedia. Just busting a myth there. I love these big mail-outs where something goes wrong. I remember reading a story about a guy in Canada. He went on this date and it was a really good date. And at the end of the date, he got given the number of this girl, Nicole, who might possibly want her to meet up again. So he gets home and the next day he calls her,
+
+[00:19:32] or in the next few days calls her, and it's the wrong number. So he's like, shit, she's given me the wrong number by possibly one digit, I don't know. But how do you find Nicole in the campus where he was, which was the University of Calgary? So what he did was he tracked down all 200 Nicole's email addresses and he sent out a group email to all the Nicole's, sort of individually, saying, are you the Nicole who gave me a number? I'm getting a few red flags here.
+
+[00:20:01] I don't know about anyone else. But what's amazing is the story became a bit big. A Facebook page was set up between all of the Nicole's and they started becoming buddies. So all these new Nicole's were like a big Nicole clan all of a sudden and they managed to find the one who he was looking for and she did give the wrong number and she did want to meet up with him again. So, yeah, yeah, so it wasn't like he was being...
+
+[00:20:22] She's now dead. Wow. Pretty amazing. That is, yeah. It may be a nice story. It's really on the edge between creepy and romantic. It's so close, isn't it? It's romantic.
+
+[00:20:36] Just on these sort of mass mailing things, I really like the errors that companies make because it happens a lot. So there was a time in 2016, maybe someone in the room got one of these messages, I don't know. One person accidentally sent a test email to 840,000 people in the NHS. Oh, yeah. They accidentally did a write to everybody. One working-age person in 40 in the country got an email.
+
+[00:20:58] That was a flub and it was obviously a big waste of, you know, gummed up the computers. Unfortunately, they were all CC'd in, not BCC'd. So almost immediately someone wrote saying, reply all, please take me off this mailing list. So another 840,000 messages went out and then, obviously, the funny people started kicking in. In a single hour and a quarter, 500 million emails were sent.
+
+[00:21:22] Wow. The NHS had basically launched a crippling attack on its own computers. Didn't they actually... It shut down for a while, I seem to remember. It was so overloaded, didn't it? Yeah. I understand that's the Tory party is saying, the fewer NHS staff we have, the less likely this will happen again.
+
+[00:21:41] Yeah, yeah, yeah, yeah. The HBO sent an email round exactly like this to everyone that they shouldn't have done it. It was everyone on the mailing list, got this kind of test email. And someone wrote on Twitter that it had happened and then everyone on Twitter decided to share their stories of when they fucked up at work. Some of them were really good.
+
+[00:22:01] There was someone called at Aaron Chevy Ford and they said that they'd made a PDF assigning each employee to the Muppet they reminded them of the most. They said, I meant to send it to my work friend, but I accidentally sent it to the entire company. My supervisor, Beaker, wanted to fire me, but the owners, Bert and Ernie, intervened. So good!
+
+[00:22:31] It was amazing, isn't it? And then there was one person called Casey, who also replied, and they said, I was using my desktop calendar to make a note of when I started my period. But after several months, realised I was doing it on a calendar, I shared with the entire company. It's useful information, some would argue. It's just, yeah.
+
+[00:22:58] I like always imagining the behind the scenes when these stories come out, because companies will do this and then send out an apology, say, whipsy daisies, and then I just imagine the person getting furiously fired in the background. And there was one in 2018. It was the US Embassy in Australia sent out an email invitation to just all the big shot diplomats, politicians, journalists,
+
+[00:23:20] and the invitation simply had a cat wearing pyjamas, holding a box of cookies with the words, cat pyjama jam. And it went out to, you know, people at the highest levels of government. And so the embassy sent a tweet out saying, sorry if you were looking forward to the pyjama party, don't worry. I'm afraid it's not going to happen. It was a training error made by one of our new staff, and then they followed it up by saying that new controls
+
+[00:23:45] will now be implemented so something similar doesn't happen again. And you just know that that member of new staff, that one little intern has made this mistake, and the new controls are that intern not being an intern anymore. We're going to have to move on, guys. Can I tell you a thing about autofill text, which is kind of what the original fact is about? So there's a fake text generator.
+
+[00:24:08] The fake Latin is called loram ipsum, you know, when you just get... It just looks like a Latin sentence. It's not really, it's just an old chopped-up Latin text, basically, which looks like it's sentences, but it's not. Anyway, that's been established for hundreds of years, but there are new loram ipsums all the time, and it's really exciting. There is office ipsum. You can get a Samuel L. Jackson ipsum.
+
+[00:24:29] And there's also, I really like, an online dating profile loram ipsum, basically. A text generator, which just generates a dating profile. So I just wanted if you fancied hearing a bit of it. Yes, please. OK, if you plug it in, it just gives you this. Mountain biking, vampire weekend, exploring the city, Ethiopian. Down to earth, snowboarding, new friends, running shoes. If you think we have something in common, I'm pretty laid back,
+
+[00:24:50] sleeping late, curacao-er, I have a crush on. If you're still reading this, my favourite word is sushi. Passionate about making lasagna from scratch going to the gym. Guys, we need to move on to our next fact. OK, it is time for fact number three, and that is my fact. My fact this week is that when leaving the Norwegian military, soldiers must now hand over their used underpants and socks
+
+[00:25:15] for the next recruit to wear. Yeah, this is this is this is breaking news. It depends how you do it, doesn't it? It depends how you requisition those back. It's not like I'm going to need your gun, your badge and your pants right now. Well, it used to be that you would give every other bit of clothing back. But you got to keep the pants. Yeah, you kept your pants and socks.
+
+[00:25:37] But then, yeah, but then, you know, it's been a hard time in the pandemic. So the Norwegian defence logistics organisation, Spokespeople, said that with proper checks and cleaning, the reuse of garments is considered an adequate and sound practice. And so that's what it is now. You've got to hand back your. And I think it's fair because you hear use pants and what you've heard is unwashed pants.
+
+[00:25:58] And that's not what they do. They do wash them first, right? And do they also make them keep, you know, in a shop when you try on pants, do you have to keep that plastic thing in the crotch bit? They make them wear that the whole time as well, don't they? What's that bit? I'm not aware of this. You know, when you go up and do a bit of stand-up,
+
+[00:26:16] you're like, everyone will know what I'm talking about here. Hang on. I don't try on pants much in the shop. Maybe you're not supposed to. You know what it's when you're trying on. But actually, do you know what it's when you're trying on the bikini bottoms? Right. So does anyone know what I mean, the sticky bit?
+
+[00:26:33] That sounded like a lot of female voices there, wasn't it? It's distinctly female voices there. Yeah. Anyway, the plastic sticky thing. It's really useful if you don't want to get stuff dirty. Just cover it in plastic sticky stuff. And then you don't even need to use deodorant. Wait, so you wear...
+
+[00:26:48] You wear... Have you laminated your pants? Yeah. Everything I'm wearing is laminated right now. I feel like we're all learning so much about each other tonight, specifically. It's really... This happens a lot in armed forces. There are lots of stories about what happens with their pants policy.
+
+[00:27:07] So, for example, the Swiss army of knife fame, they only... They only allowed their female recruits to wear women's pants in 2021, which is very recent for that shift of policy to have been made. Until then, women were just issued with standard underwear, which was men's pants. I think they wouldn't have been stopped. They weren't checking whether they were wearing women's underwear.
+
+[00:27:33] It was just they weren't given women's underwear as part of their uniform. Yes, that's true. But still, they're not sort of being made to feel welcome with this kind of stuff. So, anyway, they've launched a trial this year where women actually now get women's pants. And they're convinced this is going to be a big draw for recruitment. I'm not. Or a small draw.
+
+[00:27:51] It depends on your size, right? Is there a lot of chat between the women going, what's this plastic thing that's on the inside? But at the moment, it's only 1% of the Swiss army is women. And they're hoping by 2030 it'll be 10% just due to this pants thing. Sure. Really? Yeah, maybe. They told more of the women about the corkscrew on the knives.
+
+[00:28:08] I'm telling you, they get a lot more recruits. What do you guys think that commandos wear underneath their trousers? I'm going to press the button and say nothing at all. What? No, that is the QI Klaxon. They wear nappies, basically. Nappies known as blast pelvic protectors. OK.
+
+[00:28:29] Well, it's a scary job, isn't it? Which direction is the blast coming from? It's to stop external blasphemy coming in, rather than the internal blasphemy going out. But it's because basically if there's like an explosion or a mine or something like that, you might get some shrapnel. And you have a lot of very important arteries, apart from everything else that's down there.
+
+[00:28:52] You know, if you get a bit of shrapnel in your upper thigh, then you're done for. And so they all have these, what they call nappy protectors, and they put those things up. We're not sure why going commando comes from, where it comes from. According to the OED, it probably is just because commando is a really brave and hardcore, and it's like, it was like American school slang, college slang,
+
+[00:29:13] and they're like, well, if you don't wear pants, you're as hardcore as a commando. But then there is some interviews with commando. So it's an interview with Lee West, who is a commando. And he said that they would take off their pants, because if they didn't, then there would be bacteria cultivated, and their balls might drop off. What?
+
+[00:29:35] That's what he said. He also said sometimes they might like go into an area, and then they would leave a pair of soiled pants to taunt the enemy. And so when they came away, they wouldn't be wearing any pants underneath. What are these rat boys? What's this? Yeah. It's the most serious.
+
+[00:29:52] Hey, great news. We've got Osama Bin Laden. Right, you, Private Smith, get your pants off. What's the... Why did they think that... Why would being commando make your balls any more likely to drop off in pants than anyone else? Jungle territory is the thing. Possibly it would have started around the Korean War
+
+[00:30:09] or the Vietnam War, perhaps. The British Army do have special antimicrobial pants. And you can wear them for months on end, because if you're deployed somewhere where you're going to be for months on end, I suppose it's useful. Yeah. They could have just had that little bit of plastic, and they wouldn't have had to do that.
+
+[00:30:26] I feel like I missed a trick. Just laminate that shit. The British Army has a combat codpiece. Really? Very similar to this nappy, yeah? They started issuing them in 2010, and it's actually a three-tier system. So they have... It's basically a special detective underwear.
+
+[00:30:43] It solves crimes. It's special protective underwear against explosives and missiles, stuff like that. And the... Exiles. It's incredibly powerful. If the Army's ever up against someone who fires missiles at individual soldiers' cocks, I say we surrender. I thought when you said it was a combat nappy,
+
+[00:31:05] that it was the other way round, as in it was like there was a gun down there that could fire... That would be cool, a little bit like Liz Hurley's nipples in Austin Bales. Yeah, exactly, yeah. And in the phrase, you could say, Oh, is that a gun in your... Oh, it is a gun in your pocket. Okay. It is.
+
+[00:31:20] It wasn't nappy. I didn't say nappy, because it sounds more sexy than the ones James was talking about. It's the combat codpiece. And it's actually made up of ballistic silk. Ooh. Sounds like a really angry silk. Yeah. But... And then it has... It's one layer of ballistic silk,
+
+[00:31:36] and then it's one layer of detachable armoured modular trousers. It sounds like something out of Wallace and Gromit, but apparently it's crucial in Afghanistan. Wow. Wow. I've devised a little game for us to play. Oh, great. It's like, you know, the player card's right, we had to bid higher or lower. Is that, basically, but with celebrity underpanned auctions?
+
+[00:31:55] Okay. Okay. So, Eva Braun. Yes. Guess how much her pants went for? Hitler's better half. We thought so. Just two... Pounds. We're going to go in pounds. Yeah, please. Okay. Uh, £6,000.
+
+[00:32:09] £3,700. All right. Now we get into the higher or lower bit, because I was just setting you up with that one. Oh, right. Sorry. If you thought that wasn't exciting enough. Yeah. Okay. Queen Victoria, higher or lower? Higher. Higher, because they were huge, weren't they? Queen Victoria's pants. Absolutely right.
+
+[00:32:23] It's not done on acreage, but, yes, you're absolutely right. They were bigger. £12,090. Okay, they were dead. Right. Michael Jordan, next up. Higher. Higher. Lower. James is right. Michael Jordan's pants went for £2,400, Queen Victoria in 2021. Queen Victoria or Michael Jordan?
+
+[00:32:39] Michael Jordan. Greatest possible player of all time. Yeah, but Queen Victoria, Queen of England, probably not that good at basketball, but good at lots of other things. They thought it was going to be boring. They're fighting over this now. Elvis Presley, next. Higher. Lower.
+
+[00:32:52] He never wore underwear. Trick question. He did wear them, and they did not sell. Ah. Awesome. Can you believe that? They were up for auction, and they didn't sell. Are they the ones he pooed himself in, because he did poo himself in? Didn't he poo himself? Well, he died in the toilet. Yeah.
+
+[00:33:09] Are they his death pants? No, I don't think... Because no one wants their death pants. I don't think there is death pants, but they were a little marked, but they... Oh, come on. I said marked. What do you want? They were macchiato.
+
+[00:33:22] Look, whichever way you want to phrase it, they were not pristine. OK. And that may have been the reason they didn't sell. I doubt it. Elvis fans. Oh, skid marks from Elvis? Yeah, but they didn't sell. Yeah, probably because they didn't meet the reserve price, which would be higher.
+
+[00:33:37] Next question. I've written Herman Goering, and I then didn't write down the price that they went for. You'd never have got that from Brucie. Do you know who makes British Army bras? Oh, no. It's like a sort of classic... Victoria's Secret.
+
+[00:33:55] Mark Spenser. No. Two ends of the spectrum, then. It shows your different tastes, and that's fine. Well, they only started being issued bras in 2021. It's a booby-doo. Booby-doo. Booby-doo.
+
+[00:34:14] The company Booby-doo supplies the bras with the British Army now. Yeah. Wow. It would have taken us a while to get that, I reckon. It would. OK, it is time for our final fact of the show, and that is Anna.
+
+[00:34:29] My fact is that it takes two to four months to train a dog to keep still in an MRI scanner. Yeah, I found this out recently. I was just reading about a study that did some brain scans on 18 dogs, a whole range of dogs, and I thought, well, I wonder how that works, because, you know, one of those people who've been in MRI scanners, lots of us probably have, and you have to keep pretty bloody still.
+
+[00:34:53] So I looked it up, and there's a study in 2018 titled Clinical Findings in Dogs Trained for Awake MRI. And, yeah, they've researched this properly, and there's a specific trainer, actually, called Marta Gacci, who described the process, and it takes between five and 20 sessions without the scanner. So before you're even entering the room with the scanner, you've got to get the dog used to keeping still.
+
+[00:35:17] Is it easier to get them into a cat scan? It is. No, you've become confused. Now, come on. Yeah, so then you introduce them to the scanner. You can't food train them with treats, because you can't give a treat to a dog in a scanner, because that ruins the whole thing, you have to start again.
+
+[00:35:35] They're not even allowed to lick their lips, so they have to sit still for, what, like, 10, 15 minutes, and if a dog so much as drools, so this is why you can't food train them, because if a dog is waiting for a treat, they start to salivate, and if they're in the MRI scanner and starting to salivate, then they start to dribble a bit, then they lick their lips, then they fucks it up,
+
+[00:35:54] and you don't get the crucial brain scan. I'm not sure I could go 10 to 15 minutes without licking my lips. Genuinely. Yeah. And I'm a very creepy guy, so that's... But everyone's got their threshold. I was going to say, do you know someone else who can't stay still in MRI scanners? And that is men. Oh, really? Yeah.
+
+[00:36:13] Because when you look... When you put a man and a woman in an MRI scanner, the man will almost always move around more than the woman. Right. And that means that you're not getting correct readings from each person, and it means that a lot of the studies that have been done between men and women in MRI scanners might not be 100% true,
+
+[00:36:30] because the men are wiggling around so much. OK. And why are they wiggling? Because they're men. What do you guys do? Why do men wiggle? They're probably adjusting themselves. Yeah? Possible. I don't know. I'm in there licking my lips all the time. The dog thing, they found out quite a lot of interesting stuff
+
+[00:36:45] about dogs as a result of the ones they managed to get in there. And one thing that they found out was that dogs really genuinely love us as humans. Like, they properly... The bits of their brain that activate when bits of them are reminded of us while they're in there. So there's like, if aromas are brought in, if there's a human aroma that comes in,
+
+[00:37:04] it activates this sort of reward centre, it's called, where it sort of shows that they're like, oh, my God, it's my owner, this is so exciting. And that's a connection that we realise is a real thing now, because you always think if a dog notices, for example, if you're feeling a bit moody, or you think, oh, the dog is picking up on my sympathy, it's not that it's just noticing and changing.
+
+[00:37:24] It's genuinely concerned for you. It can follow your emotions, and that's what they were looking at. And even if there was a group of aromas, they found that the dog would try and prioritise finding the human smell within that, just to be like, yeah, my owner's here, or a human I know is here. How pathetic is it that... What a nice story you had, Dan.
+
+[00:37:46] We... Sorry, that's lovely, blah, blah, blah, but how pathetic is it that humans have gone to all the trouble of making this extraordinary machine just to absolutely make sure that dogs love us? Like, the guys were all there from them wagging their tails, they were excited when we come home. Let's just go, Trey. I don't think that was the primary reason
+
+[00:38:05] for the building of the MRI, so there was no... Just quickly, do you know that there are almost no guide dogs called Neil? Almost none. I can't guarantee there are none, because I haven't really checked, but, you know... Is that... Are there any called Fletch? Exactly.
+
+[00:38:21] This is why, so probably not. Because you shouldn't name a guide dog after very common commands, or something that sounds like a very common command. So Neil sounds like Heel, Fletch sounds like Fetch, Kit shouldn't be chosen, because it sounds like Sit. So there are all sorts of names. Neil also sounds like Neil. I don't know why you didn't go for that.
+
+[00:38:40] That's what I thought, but then when you were saying it, I was thinking, did the dogs kneel down? Yeah, what's the common dog command saying, Neil? Ah, remember... I mean, I can't think of a... Don't move that you love me, please, that you love me, kneel down now! I can't think of dogs specifically in this,
+
+[00:38:54] but think of the opening scene of The Lion King when Simba's lift up, and they all go down to sort of... OK, again, again. No, right. Simba is a fucking cat, not a dog! I... Well, to be fair, they're both mammals. They are mammals. I preface that by saying I'm not sure there were dogs in that scene.
+
+[00:39:11] I'm just saying, we do know they do it, animals. They do do it. They do do it, and it has to be... But it's not a common dog! It's like Fetch, roll over, Sit. It has recently become quite popular for dogs to take the knee out of respect sometimes. It has!
+
+[00:39:29] It is not right up to speak with it. At football matches. Yeah. Before it starts, they all take the knee, don't they? They do! Yeah, yeah. Oh, my goodness. Have you guys heard of the 20-inch high club? Certainly have.
+
+[00:39:43] Certainly have. Go on. The 20-inch high club is for people, a very elite group of people, a small group who have had sex inside. In a model, in a model plane. No, no. Yeah.
+
+[00:39:58] No, in one of those planes in a children's shopping centre. LAUGHTER Pop another pound in there. Um, elite. This elite club, of course. It's a very small group of people who have had sex inside of an MRI scanner, and the reason it's called the 20-inch high club
+
+[00:40:23] is because that's the height and space of the hole that you go into. Rightly. That the couple go into. The initial people who first held that study, it was a scientist from the University of Groningen, actually. We've played a game in Groningen, and it was... A lot of Groningen going on there.
+
+[00:40:43] Oh, hey! Willie Broad Weimar Schultz was the scientist, and he scanned a couple, but it was very hard to do. It was very hard to get the couple to get the images they needed, because this was what you had to do. You had to hold perfectly still for a complete minute, and that's quite hard to do.
+
+[00:41:00] The only couple who were able to do it were Amateur Street acrobats, and so they had the experience and flexibility to get that right. To hold still during sex for a minute? For a minute? Please. LAUGHTER I've got to say, this podcast
+
+[00:41:22] is going to be about 12 minutes long, when it goes out. Shall we? There was... No. OK, can I tell you about one other study in this board area? Yeah. Why not? Kate Sukel, she was called. She was writing a book about science and sex,
+
+[00:41:38] and she had to... The study that was being done on her, she had to have an orgasm inside an MRI machine. But, you know, by herself. But, as Anna and Dan have said, the thing is you have to be very still inside the MRI machine, and it's very hard. And so, like training the dogs to be incredibly still,
+
+[00:41:55] she had to train herself. And this was the mechanism. She wrote an article in The Guardian all about it, an amazing, you know, account. She said she wasn't quite sure she could manage to get all the way there under those incredibly still circumstances, because she had to be in a helmet
+
+[00:42:11] which was screwed to the bed, so incredibly still. But she managed it. She managed the training program by attaching a small bell, which belonged to her cat, and then practised getting there with the minimum jingling possible. LAUGHTER What?
+
+[00:42:27] She strapped her cat's bell to her forehead with duct tape. Yeah, yeah, I got that bit. And then practised having an orgasm without hearing the bell go once. Oh! Oh, I see. That was the practicing before she came in. Before she went into the machine. She wasn't turned on by cat bells. I mean, by the end of this process,
+
+[00:42:43] she probably was. OK, wow, that's amazing. Have you guys heard of Dr. Didge? No. This is a guy called Graham Wiggins, and he helped to develop the technology for MRI scanners. OK, so without him,
+
+[00:42:59] we wouldn't have all of the really sharp images that we have today. And most of his Wikipedia page is down to a type of didgeridoo that he invented, which has got keys in it. OK, he invented it out of cardboard wrapping paper tube,
+
+[00:43:15] and he only made one of them. He used it for one gig, and it fell apart. But then, he later on played with the Grateful Dead playing the didgeridoo. He's like an amazing didgeridoo player, but he also was one of the main people
+
+[00:43:31] behind inventing the MRI scanner. You can definitely see the relationship between a didgeridoo and an MRI scanner. You just hope that the MRI scanner doesn't fall apart after one go. Because of the noise that it makes. Because you go in a big tube and there's a big noise. Big horrible sound. You know fMRI scanner,
+
+[00:43:47] so that's a functional MRI scanner. It's there for your brain. But you can also get a non-functional MRI scanner. There's one of these at the University of Michigan. And what the point of this is, is you go in and it doesn't do anything it's supposed to do,
+
+[00:44:03] but it makes all the noises that an MRI scanner makes. So it kind of makes an MRI scanner if you've ever been in one. The magnets are really, really strong, and it's like this banging, and all this really, really loud noise. That's a didgeridoo. And people feel like
+
+[00:44:19] they can sometimes, some people actually can make out a tune. Like their brain turns this really weird noise into a kind of tune. And if you want to study that, you can't just put loads of people in an MRI scanner because there's too much, you know, electromagnetism and stuff.
+
+[00:44:35] And so they need to put them in this fake MRI scanner, which has all the noises, to see what's going on with people. Wait, but if it's fake, then you can't see what's going on in their brains, because it's fake, right? Yeah, so they're not looking at their brains, it's the experience side. That's the other thing.
+
+[00:44:51] You know the ASMR that people report about having? So that's the idea that if you watch a video on YouTube of someone ironing, it gives you a sort of brain fuzz, like goosebumps around your head. It's any noise that's, or some people say,
+
+[00:45:07] I'm rubbing the cloth between my fingers, and that kind of... Some people listen in, so they're like, ding, ding, ding, ding. But so that's an interesting thing. It gives some people a really, yeah. Exactly, yeah. And they're trying to work out
+
+[00:45:23] what it is in the brain that does that. So obviously an MRI scanner is the way to find that out. Unfortunately, it's too noisy in there to even begin that, because it just breaks the spell of it. So we can't work out what it is yet. Shit, what a terrible loss to medicine that we'll never know why people get turned on by weirdos whispering to them on YouTube.
+
+[00:45:39] LAUGHTER Fuck. I guess we'll just have to keep curing cancer. LAUGHTER Guys, I'm going to have to wrap us up. Hello, OK. Yeah, we're out of time. OK, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us
+
+[00:45:56] about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland. Andrew Hunter M. James. James Harkin. And Anna. You can email podcast at qi.com. Yep, or you can go to our group account, which is at no such thing, or our website,
+
+[00:46:13] nosuchthingasafish.com. All of our previous episodes are up there. Do check them out. But until next time, Belfast, thank you so much for having us. We will be back. That was awesome. Everyone else listening at home, thank you for listening. We'll be back again next week. We'll see you then. Goodbye!
+
+[00:46:30] APPLAUSE

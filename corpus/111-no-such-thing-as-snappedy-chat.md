@@ -1,0 +1,175 @@
+# No Such Thing As A Fish - 111: No Such Thing As Snappedy Chat
+
+- Episode date: April 29, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/111-no-such-thing-as-snappedy-chat
+- Slug: 111-no-such-thing-as-snappedy-chat
+
+## Transcript
+
+[00:00:00] Hey guys, James here. So we have an announcement to make before we start today's show and that is that we have been offered our own TV show on the BBC. On BBC 2 it's going to be on at the end of May and we are absolutely delighted. Slash terrified. Very terrified. So what's going to happen is we're going to do a pilot very soon and you can get tickets to come and see that if you go to qi.com slash fish events. And the podcast you're about to hear is actually another kind of pilot that we did so you'll kind of see that the facts are a little bit newsy but actually we get into the podcast pretty quickly so you might not even notice. Okay, on with the show. Hello and welcome to know such thing as a fish my name is Dan Shriver I'm sitting here with Anna Chazinski, James Harkin and Andy Murray and once again we have gathered around to discuss the most interesting facts we found from last week and in no particular order here we go. Starting with you, James Harkin.
+
+[00:01:10] Okay, my fact this week is that this week the Queen will celebrate her 669th birthday. Because she's a lizard, they're all lizards. Lizards, those famous animals that live for 600 years. Because she's a sponge, she's a very ancient sponge out of the sea. So why why the why the okay so what this is basically is we all know the Queen has her actual birthday which is this week and she also has an official birthday which when all the parties are and stuff like that. But she also has official birthdays in all the different Commonwealth countries and so I went through all of them and found out when the days were. And some of them kind of coincide with each other, so this took me quite some time to work out and I worked out that she has had 668 birthdays and their 669th will be this week.
+
+[00:00:00] 00:02:08,360 --> 00:02:11,360 And actually there are some countries that used to be in the Commonwealth which aren't anymore. There's quite a lot of them and I couldn't really be bothered working them out. But I kind of assume the Queen isn't really celebrating those anyway so yeah I'm going for 669. She's saying she could be even older. No, no. She could be a thousand. No, no, no. She's still the age we think she is.
+
+[00:02:28] She's just celebrating a lot of birthdays. I worked out that if she is that age, 669 years old, she was born. Which she isn't by the way. But it means that if she is, then while all of us are here in 2016, she's actually living in the year 2592. And that's very exciting. See, I worked it out the other way that she was born in 1347. I think we're both wrong. We're actually recording this on Wednesday so she's celebrating it today and tomorrow which is Thursday, the 21st.
+
+[00:03:07] Today she started celebrating by visiting the Royal Mail and looking good. What, to look for a car? It's coming in. Money! Yeah, she went to the Royal Mail sorting office and had a look around there. Are you sure she wasn't picking up a parcel? Yeah, that could be it. No, no, I think they had a new stamp out or something like that.
+
+[00:03:32] And do you know the tweet that she tweeted? Because she tweets obviously. Does she? Yeah, unlike you. Unlike me. 669 year old queen is more modern than I am. Yeah, so she sent a tweet out, it's from her Twitter feed which I think is like at British Monarchy or something. And it showed the people at the Royal Mail singing Happy Birthday and then it said,
+
+[00:03:55] the first of many renditions of Happy Birthday for the Queen and I thought that was quite cocky. What if that's the only one, she's going to feel like an idiot. So the Queen is 90 in human years and 669 in Queen years. But other things that she is as old as in human years, television, liquid fuel rockets, Winnie the Pooh and the drug PCP. And she, I believe, is going to celebrate by combining all four of those things. Does she still send around, she doesn't still send cars to every single 100 year old, does she? Well, she does but you have to apply a few weeks before but you do get a card
+
+[00:04:48] and you also get a card from Ian Duncan Smith. No, you won't any more sorry because he's just resigned but you get a card from the work and pension secretary so now you'll get one from Stephen Crabb guys. Pretty cool. And then a long letter from Ian Duncan Smith saying, you want to hang out, I got nothing on. Do you know who it takes over if the Queen were to become infirm in some way but without abdicating or anything like that? Ian Duncan Smith?
+
+[00:05:19] No, Michael Gove. He's the Lord Chancellor at the moment and the last time it happened was in the 19th century with George III. I didn't realize Michael Gove was that old. No, I think, well, is it not that he gets to kind of say that they have to have a regent and the regent will probably be Prince Charles? Oh, I'm not sure. I thought it was that he carries out the royal duties. Gets into bed with Prince Philip.
+
+[00:05:53] Oh, call on Govee. Oh, there goes the OBE. There's a lot of stuff going about, also a little bit of trivia about her this week because of the birthday. One I really liked, she doesn't have a passport because in the British passport, there's a thing saying that she requests that all of anyone holding a British passport be allowed into those countries. So therefore, because she's made the request, it's kind of said, I've requested, but can you get my mates in as well? And so she doesn't need to physically carry it. I think it's that or she needs to hope someone in front of her in the immigration queue has the British passport. She can go and just read the name.
+
+[00:06:36] But I'm quite confused about this because she also doesn't have a driving license famously. She doesn't need to have a driving license even though she drives. So I don't know, A, how she buys alcohol. I think she might just about pass for over 21. But B, how does she, when she was walking into those countries, any of us could impersonate the Queen? We could all just put on a wig and say, I'm the Queen. I don't need a passport. Let me into your country. They say, oh, do you have a driving license to prove you are? No, I don't have a driving license. Google it.
+
+[00:07:04] And you're in. We're for a try. Although the Queen does muck around with her own identity a bit. So recently, one of the former Royal Protection Officers told the story about, because he worked with her for about 30 years, and she was out for a walk near Balmoral, her estate there. And they bumped into a group of American tourists and they said, they spoke to her, they said, does she live in the area? And she said, well, I've got a house in the area. It's very modest. And they said, have you ever met the Queen?
+
+[00:07:34] And she said, no. And then she pointed at the Royal Protection Officer and she said, but he has. That's growl. She gets some good gifts, birthday presents and general presents whenever she visits anywhere. And so they range from, I think, last year, a horse breeder called Christina Patino gave her £5,000 worth of stud sperm, of horse sperm, so that she could sperm up her horses. £5,000 worth of pounds off. £5,000 worth of pounds off.
+
+[00:08:13] There's one tired stallion. Maybe I can think of the Queen. That's two OBEs down there. It's just you and me now, isn't it? Did they actually give her the sperm itself? Because I heard that this lady, Christina Patino, offered to let one of the Royal Mer's visit her stallion, Big Bad Bob. But she gets quite cumbersome gifts and I always wonder with this sort of thing how she gets them home. So Brazil has given her two sloths.
+
+[00:08:47] She got a Maori canoe when she went to New Zealand. She put the sloths in the canoe. What? You think she rode home? She also got given seven kilos of prawns on one occasion. Oh my God. This is the most boring sentence I've ever heard. Queen being sent seven kilos of prawns. I think that's a very fascinating sentence.
+
+[00:09:14] It's got possible. The Queen sent an email in 1976. Nope, that's the most boring sentence I've ever heard. This sledging goes too far. In Malvern. There it is. What did the email say? Do we know? No, I know her username though.
+
+[00:09:38] Yeah, Big Bad Bob. It was HME2, Her Majesty Elizabeth II. And it was an extremely boring email. I think it said, this is Her Majesty the Queen sending an email or something like that. It was really awesome stuff. Anything else before we move on? She's been to the moon, in a sense. Keep talking.
+
+[00:10:01] When Apollo 11 landed on the moon, Neil Armstrong took out a special message. A congratulatory message saying, well done on getting to the moon. And left it there. Deliberately. I think his instructions were to just leave it in a metal canister on the surface of the moon. And the message was from the Queen. That's not going to the moon. It's not like everyone who's got the birthday letter from the Queen says,
+
+[00:10:20] Oh, the Queen came round to my house. Okay, let's move on to our next fact. Time for fact number two. And that is Anna Chazinski. Yeah, my fact is that the Brazilian Vice President accidentally released his presidential acceptance speech by sending it to the wrong WhatsApp group. I should add, so he claims there's skepticism about this. But yeah, I don't.
+
+[00:10:52] So Brazil has been in a bit of turmoil recently, a political turmoil. The President Dilma Rousseff has just, Congress, the lower house in Brazil has just voted to impeach her. But before they voted to impeach her, the Vice President Michelle Temer was obviously practicing his, Oh, when she gets kicked out, I need to make a speech and I better work out what that's going to be. And he recorded a 15 minute long speech and then sent it. He said intended to send it to one friend and accidentally sent it to the WhatsApp group. There must have been just below, which was a whole bunch of MPs and lawyers. We've all done it.
+
+[00:11:32] But sending a 15 minute speech by audio, that's going to take ages on WhatsApp. That's going to load. So either he put it down or he spent 15 minutes going, The terrifying 15 moments in politics. No, there are theories that this is an intentional move to state that he did not feel good about the current President. But yeah, he says WhatsApp error. So they've just voted, haven't they? The lower house you said to impeach the President. The thing is, the lower house is also in a bit of turmoil.
+
+[00:12:05] I didn't realize that Brazil has quite as big a corruption problem as it does. So of the 594 members of the Congress who voted, 60% of them are currently under investigation or facing investigation for, I'm quoting here, serious charges like bribery, electoral fraud, illegal deforestation, kidnapping and homicide. I think, yeah, that's Congress and the Senate, the 594. So it's in both houses. So at the moment it's just gone through Congress and there are like 303 out of 513. But then as soon as the vote goes to the Senate, an even higher proportion of them are really corrupt. And the three people in line to replace her when she is impeached are all also facing criminal corruption charges.
+
+[00:12:53] It's a real good situation out there. That's true. And they're all protesting at the moment, are they in Brazil? They are. I read that in the last year there's been more protesters in Brazil than the entire rest of the world combined. What? Wow. It's like literally like 3 million at a time, just complaining, yeah. That's true.
+
+[00:13:13] Just complaining. The Harkin attitude to democracy and the will of the people. I just go out in the streets of my placard and go, but isn't it the case as well that they had the pro-government protesters and the anti-government protesters and they've just put a big wall in the middle of them? They've thought, well what's a good example from the past where a massive wall between two groups of people who disagree has solved a problem. Yeah, two meters high, right down the middle of the capital city.
+
+[00:13:44] Wow. Just taking it back to the kind of incompetence of politicians with social media. I found one that has really good intentions, but it has slightly gone wrong as well. So I don't know if you guys know this, but on Twitter, Sweden has a, it's a country that has an official Twitter account. So it's at Sweden. And so you think, okay, who runs at Sweden? They made the decision that they're going to allow their own members of the public run it one person at a time, one week at a time.
+
+[00:14:12] So they just hand it over. And so the current person running it is called Isabel. This is her pin tweet. I don't do fika. I don't do dating. I drink beer and fuck. Official first tweet you see from Sweden. Did you see that as well that you can ring up Sweden?
+
+[00:14:32] Has anyone seen this? This is pretty cool, isn't it? Like they have a phone number and you can just call up and they just connect you to a random sweet. Yeah. That sounds great. What's this? Someone's at home and their phone's ringing. You just pick it up and you sign up for it.
+
+[00:14:49] You sign up for this thing and then someone from anywhere around the world at any time can just ring you up and say, hi, is that Sweden? And you say, yeah, I'm into fucking and all. Or whatever. I'd sign up for it if it was ringing a British person. Would you really? Dial a Brit. Like in the office you don't really like talking to us. No, but you notice I constantly stare at my phone looking haunted and alone.
+
+[00:15:18] So on politicians and social media. Jeremy Corbyn has been doing a big social media push and has joined Snapchat. I see. Which is what exactly, please? So I'm pretty sure. I think is it where people send naked photos of themselves to the people they're having affairs with? I'm not sure that's exactly what Jeremy Corbyn will be doing. But yeah, it's that one where the photo disappears.
+
+[00:15:49] You probably all know that. So he's joined Snapchat and he's posted a few photos. Some of his first ones, a few of them were sideways and one of them was extremely blurry and then most of them are just signing forms. But yeah, and he's also joined Instagram and his first post was of a tonnex tea cake. It's very exciting actually. It's very exciting stuff going on in Jeremy Corbyn's social media coming. No, it's good to see them embracing it. I think it's really cool.
+
+[00:16:18] But yeah, they do get it spectacularly wrong sometimes. On Twitter there was, I thought this was great, there was a Dutch politician. This was back in 2011. I apologize for the rudeness of this in advance. But he was sending a text which he thought he was sending to a lover and he accidentally tweeted it. And the... Dear Art, big bad part. So the translation of the tweet roughly goes, as you throbbingly climax for the first time I feel in my mouth,
+
+[00:16:54] as if they were the nectar of love, right? He didn't lose his job off the tweet, but he did gain 20 new followers. So sometimes it works in their favor. Just some basic facts about this kind of thing. Facebook Messenger and WhatsApp and that kind of thing is so popular now. A lot more than any other kind of ways of communicating. So there are 60 billion messages every day through some kind of messenger. And that's versus 23 billion by text message.
+
+[00:17:28] And that means in two days there are more messages sent than humans have ever been alive. Whoa. Yeah, it's absolutely massive in Brazil as well, isn't it? So I think Brazilians use WhatsApp on... I'm just gonna... None of these words are familiar to me before today. She called it snappity chat. Brazilians use social media even more than I do.
+
+[00:18:00] They spend twice as much time on social media as Americans, which I would have thought is going over 100% of the time that you're alive. In China as well, ginormous. So they have a version of Twitter out there which is called Sinawebu. It's ginormous. Stephen Hawking joined it just a couple of days ago. He got 2 million followers in 24 hours. That's just how quickly and what a massive group you can get. But he had 2 million and 20 after he accidentally...
+
+[00:18:27] Well, he is sending his tweets in Chinese and apparently just from the reports I'm reading that people are saying, I have no idea what he's saying. It's in Chinese, but I have no idea what he's saying. But I'd like to just say thanks for being on here. So they kind of really appreciate the fact that such a cool guy's on there, despite the fact he's making no sense for these tweets. There is a Chinese, I think it's a Chinese, instant messaging app. And I think it's a dating app.
+
+[00:18:57] I'm going off memory here, so I'm not sure on the details. But if you send a message which says something like, do you want to get a room? Or something like that. If you put in particular characters, it flashes up with a warning saying, you're sure about that. That's amazing. If only your throbbingly nectar man had heard that. So about presidents and stuff like this. So President Obama is the only person outside HBO who's going to watch Game of Thrones before it goes on air.
+
+[00:19:27] Now we know his real agenda. And there was a journalist who was called Vanessa Golem-Befsky who thought, if the president has a file of Game of Thrones, then surely I can get that file through freedom of information. And so she's going to President Obama saying, I want this file through freedom of information, and they're going to see if they can get it. But the only problem is that the average amount of time to get a file is 121 days. And by that time, we'll have already seen it by about two months. It's the principle.
+
+[00:20:03] Exactly, but it's a nice idea, isn't it? Just on world leaders, I was reading today that Vladimir Putin did a Q&A, a sort of big, wide Q&A where anyone could ask questions. And I looked through the Q&A, they translated it into English, and my favorite question was from a 12-year-old girl who asked him who he would save if these people were drowning, the Turkish president or the Ukrainian leader. Who would you save if that was the situation? 12-year-old girl.
+
+[00:20:34] And Putin said, if someone has decided to drown, it's probably already impossible to save them anyway. He did say, oh, but we would lend a helping hand to whoever is in need, but that was his first response. Okay, it is time for fact number three, and that is Andrew Hunter Murray. My fact is that a German city is fighting global terror by banning number plates starting with IS. Every little help. Yeah, absolutely. This is the city of Marburg in Germany,
+
+[00:21:09] and if you want to get a special license plate, what's it called, like a one-off? Personalized license plate. With IS at the start, you will no longer be allowed to do that, so you'll have to leave Marburg, get it done somewhere else where it's legal, and then go back to Marburg. That will cost you petrol, and it slows down. IS, yeah. I didn't realize that license plates are so strict,
+
+[00:21:32] so the DVLA is extremely strict about the license plates that can go out, and so they have a meeting every six months, I think, where they go through and work out all the possible combinations that could be construed as rude. That sounds like a great job, doesn't it? So much imagination required. A lot of them I couldn't quite work out why they would be rude. It's a 49-page document, the latest one, and it is very good reading.
+
+[00:21:58] None of it is appropriate for tonight. For instance, there are two-letter combinations that are banned. Two of the two-letter combinations are M, N, and N, F, and I have no idea why they're rude. Naughty, naughty fisting. Could you tell me a kind of fisting that isn't naughty? There's a sentence I never thought I'd say tonight. I'm just doing a survey.
+
+[00:22:27] But yeah, they go through and they list all the two-letter combinations that are bad, all the three letters that are bad, so you're not allowed on any number plates, C, U, M, C, O, K. I think I'm allowed to say all of this because I'm just spelling it out. C, N, T, B, N, P. You're allowed to say it because you're not a car. Always shattering my dreams, I think. B, N, P, yeah.
+
+[00:22:53] I think that's a real slap in the face. If you're a political party that's not even allowed on a number plate. So I wonder if, instead of naughty fisting, it's national front. Could be the national front. Oh, you see? I think it's naughty fisting, guys. Look, but there are some which are really sort of... You can't have V, A, 6, 1, A, N, A,
+
+[00:23:14] because it looks a bit like vagina, right? But to me, that looks like Vagiana. So it's a very odd... They're sort of the rules of really... You're not allowed to have A, 11, N, O, B, all knob. Which, if you get that number plate, is an accurate description of what you are. A lot of these aren't personalised, though, so don't hold it against... A lot of these are number plates that would be in the standard rotation,
+
+[00:23:40] but they have to specifically remove them. Like MA55 TBT. You see? It takes a lot of thought. See if you can work out this one. Hang on, I didn't get that one. Hi, Honest, let me show it to you. That's very rude. All right, I've got... See if you can work out this one.
+
+[00:23:57] X351 ARO. Well, this is great radio. And if you're playing along at home, you can write it down. No, so that is. Look at it backwards in mirror writing, and it spells out... Orals 6! It's because if you're looking backwards in your car, right? Yeah, they have to test that. They have to test the mirror writing.
+
+[00:24:22] Smart. Although the R would be backwards, so it'd be like Russian, yeah. Have you guys heard... James is super fun to have a road trip with, by the way. There's a new app that's out, which seems quite an exciting idea. It's called Plexed, and the idea is that when you're driving, you need to have... So you need to hope this person has the app as well, but you can text their license plate, and the text gets through to them.
+
+[00:24:51] So if someone's driving in front of you, and you... And this is what they kind of think it's made for. It's like someone's driving in front of you, and they're doing a really good job. Why don't you text them? But you're not allowed to text while driving. I know, I don't know how the system works, but it... That's what it's meant to be. It's meant to be allowing you to communicate with other drivers
+
+[00:25:09] to tell them good things about their driving. I think that's entrapment, legally, isn't it? Isn't that when you persuade someone to do a crime, and then you convict them of that crime? Well, when they... I'm basing this on the Catholic See to Jones film. But they'll finish their journey, and then they'll safely retrieve their phone from the glove compartment, where we all put it when we drive, and then they'll turn it on, and then they'll get the message saying, good job, maybe.
+
+[00:25:33] Some comedy about ISIS? That's why everyone came tonight. So in the news this week, there was a guy called Franco Roberte, who is Italy's top prosecutor, and he says that stoners who are trying to get marijuana legalized are helping the fight against ISIS. Really? Yeah!
+
+[00:25:58] How quickly the stone is turned. Whatever, yes! The idea is that the Italian mafia and ISIS are working together to kind of bring marijuana over from North Africa into Italy, and I reckon if it was legal, then they wouldn't have that way of making money. That's good, isn't it? So, on the subject of ISIS, I don't know if there are any Archer fans in the room, but everyone should be one.
+
+[00:26:26] Yeah, what's the radio for? The Archer. Not The Archer's. Oh my God, I've just lost everyone. So in Archer, this TV series, it's about... Alright, hang on, hang on now, but quickly, The Archer's? It's about the same. The stoner just is cheering at everything.
+
+[00:26:50] He doesn't know what's going on. So... Baked out of his gore in the front row. You've read those words in a book, have you? Drug language of the streets, fifth edition. Is this ever gonna... Am I in Archer? The main character Archer and all his colleagues worked for a company called ISIS. There's a bunch of Spires called ISIS, and in 2014, when things started kicking off a little bit elsewhere,
+
+[00:27:20] then the program makers decided they had to change the name. So ISIS, as everyone who watches Archer will know, has been removed from Archer, and actually there was quite a good episode at the beginning of the series, I think it was the first episode of series five or six, where you saw in the background, as Mallory was on the phone to Archer, you saw in the background two trucks with ISIS's logo disappearing into the sunset. But this created a serious problem, because it's a really popular show, and he had shed loads of merchandise.
+
+[00:27:45] So they just shipped it off to Syria. He joke, the creator Adam Reed said that in a board meeting, he suggested this jokerly and was met with an icy silence. So he should have been here and said, but he also said that he complained that, I gave my dad one of the ISIS hats, and in the end he had to call me and say, you know son, I'm not going to be able to wear that hat anymore.
+
+[00:28:11] I'm getting some weird looks in the hardware store. So I have a list of places which have had to change the name, which were called ISIS and have decided that it's not worth it anymore. So there's a mobile banking app, there's a nail salon in Oakland, California, a Danish pudding company, a Belgian chocolate firm, and a wife's swapping club in Leeds.
+
+[00:28:38] And presumably they were just getting too much confusion from people. People go there and engage in all sorts of fun and frolics, and they say it's not worth the aggro. So there was the nail salon in Oakland, they changed their name because people were genuinely making rude comments and rude phone calls saying, I can't believe you guys, you're sickos. And they got some good feedback though,
+
+[00:29:00] because one person wrote an online review of, I remind you, a nail salon in California saying, in the last week ISIS gave me a real nice treatment, and I don't know why we are bombing them. Okay. It is time for our final fact of the show, and that is my fact. My fact this week is that the North Pole
+
+[00:29:24] is on a head-on collision course with Greenwich, London, where we are right now. This has just happened 20 years ago, but we've just noticed, it's been going one way, it's been heading towards Canada, the North Pole, and mysteriously they have no idea why, it's suddenly just flipped,
+
+[00:29:43] not a complete flip, but it's changed direction, and it is now headed along Greenwich, Meridian, so it is heading right here, where we are right now. We could be the North Pole in about a lot of millions of years. You know they do know why. Do they? Have they worked out? That's what they've discovered this week. I should have read the article.
+
+[00:30:03] So this, to be clear, this isn't the Magnetic North Pole, which also moves quite a bit. This is the Geographic North Pole, so this is just the Earth wobbles on its axis, because it's not a perfect sphere, it's not kind of lumps and bumps on it, and it's got different masses in different places, so if you imagine sort of spinning a sphere round,
+
+[00:30:22] then it's going to move around a bit. It's as if the Earth is like a basketball, and you're kind of spinning it on your finger, and your finger is where the South Pole would be, and then directly above it is where the North Pole would be. It's exactly like that. And thank you very much for the metaphor, James, similarly. And what's happened is they thought at first,
+
+[00:30:40] the reason it was moving was because of the Greenland ice caps melting, but actually they've been doing this study since 2005, and they've realized that what it is, is water loss from Eurasia, bizarrely, which sort of changes the masses in the Earth, so a huge mass of water has been lost from India and from Asia,
+
+[00:30:59] and that's just changed the sort of weighting in the Earth, and it's caused the Earth to start spinning it differently, start pivoting differently, 00:31:09,360 --> 00:31:10,360 But it has happened very suddenly, hasn't it? We should say the speed at which it's moving, which is 17 centimetres a year,
+
+[00:31:15] which is about the same as hair growth. Yeah, the funny thing about that is because I remember reading a good few years ago that Russia found the geographical North Pole and put a pole in there at the bottom of the ocean, and put a Russian flag on it, because the geographic North Pole was kind of disputed between Canada, Denmark, I think, and Russia,
+
+[00:31:36] and Russia wanted to say, no, it's ours, and they put a flag there, but it's not there anymore. It's like 17 centimetres away, but still not exactly where they said it was. Are they going to send someone, do you think, all the way there to move it? Yeah, maybe, although it's down at the bottom of a very, very cold ocean, so I think maybe not.
+
+[00:31:54] I discovered a fact this week, which I think is really, really interesting, which is in 1985. I think it was this. Neil Armstrong went to the North Pole. Did he? Yeah. Did he go in the sense that the queen went to the moon?
+
+[00:32:10] No, the queen went, but with a letter from Neil, which he left. No, Neil Armstrong went to the North Pole with Edmund Hillary. So the first man to reach the top of Everest went with the first man to stand on the moon and with Steve Fossett, who was the first person to go around the earth.
+
+[00:32:26] How do we not know this? I know, isn't that really odd? So they landed and they went to the pole and it was with Edmund Hillary's son as well, who's also a big explorer. And then on their way back, they were staying in a hut, which was still in icy conditions,
+
+[00:32:42] and the storms around them, the icy storms, were so great that they got stuck in the hut for a number of days, and all they could do was chat, and apparently it was the first time ever that Neil Armstrong completely opened up about his experience on the moon. He'd never done that before to anyone,
+
+[00:32:58] and so Peter Hillary, he'd never done that because no one else is alive who was there in that room. And? He says, all right. He just said, you know, he said he left a letter and he came back. No, but isn't that amazing?
+
+[00:33:14] Neil Armstrong and the person who organized it wanted to bring the people who'd done firsts to the place on earth where they'd never been before. Okay, so it wasn't a big coincidence. They didn't all get there and go, well, you went to the moon. Are you serious?
+
+[00:33:30] Oh, yes. Yeah, it was won by a man from Arkansas, and he ran the race in five hours 17 minutes, but the record is three hours 36 minutes, and the reason is because it really, really matters on the conditions. Like, it's not like the London Marathon where you've got a bit of rain
+
+[00:33:49] or something that makes a difference. It makes a massive difference. They call it the coolest marathon in the world. Yeah. And they have polar bear guards all along the route. Wait, hang on. Wait, wait, wait. Are there guards?
+
+[00:34:08] I see what you're saying here, Andy. It's people guarding against polar bears. Shame. Because I would run faster. Tell. I've looked into the marathon as well. The first one happened in 2002. It hasn't been going that long,
+
+[00:34:24] but it only had one participant who was also the organiser. Yeah, and the entire course is floating on top of, obviously, on 14,000 feet of Arctic Ocean. It's an interesting thing about the ice, which is that it might be the last time ever that people ever walk to the North Pole,
+
+[00:34:42] or it won't happen that often because the ice is melting. There's not much way to water. And even if you are walking to the North Pole, the ice often moves southwards, so you can be walking for days and days until you start it. Oh, wow.
+
+[00:34:58] That's horrible. There was a guy called Wally Herbert, and he was trying to... Wally Herbert? Two words meaning you're a bit of a div. Really? Yeah. He was an amazing explorer.
+
+[00:35:14] He was trying to prove, because there was a lot of dispute about whether or not Peary was the first person. So he was trying to recreate the trip and see if he'd made it there. He was going to the North Pole, but people kind of not sure whether he did or not. Yeah, they weren't sure.
+
+[00:35:30] So he tried to recreate it. His conclusion was that Peary didn't do it, that he did, in fact, doctor the books. But in doing so, Wally Herbert became the first person to do it. So you obviously have to use compasses and work out where the North Pole was and because of the shift that's going on
+
+[00:35:46] all the time, it's hard to tell. So they did this marathon track this one day and they got to this point where they thought, let's stop and let's see where it is. They got to it, kept walking, didn't bother to check. So suddenly they were just like, oh my God, what are we going to do? Let's walk back and Wally Herbert said,
+
+[00:36:03] no, let's not walk back, let's go to sleep. They went to sleep and because of the way that it was shifting in the morning, they were back at the spot where the North Pole was because they worked out the hours of the shift that would happen. So he slept his way to the North Pole. Don't say it like that.
+
+[00:36:20] It's not like a bitter rival. Okay, that's it. That's all of our facts. Thank you so much for listening. See you next week. Goodbye.

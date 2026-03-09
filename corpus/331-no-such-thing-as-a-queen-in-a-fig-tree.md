@@ -1,0 +1,293 @@
+# No Such Thing As A Fish - 331: No Such Thing As A Queen In A Fig Tree
+
+- Episode date: July 24, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/331-no-such-thing-as-a-queen-in-a-fig-tree
+- Slug: 331-no-such-thing-as-a-queen-in-a-fig-tree
+
+## Transcript
+
+[00:00:00] Hello and welcome to another Working From Home episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Schreiber, I am sitting here with James Harkin, Andrew Hunter Murray and Anna Czazinski and once again we have gathered round the microphones with our four favourite facts from the last seven days and in no particular order, here we go. Starting with fact number one and that is Anna. My fact this week is that the Holy Roman Emperor once made every citizen of Milan pluck a fig from a mules genitals with their teeth.
+
+[00:00:52] OK. There's so much to unpack here. Yeah, my main question is about the dynamic of, as in how do you get a fig into a mules genitals? Like which bit of the genitals is it going into? Well, I'm so glad you've asked both of those questions actually because I do need to be more specific. I believe it was the anus according to most sources, which we're counting as part of the genitals. Is that a genital? Yeah, I don't usually...
+
+[00:01:17] Definitely not. No way. It's called a genital. You can't generate new life. Sorry. We've got a lot of explaining to do. Right. You could tuck it between the penis and the ball bag, I suppose.
+
+[00:01:28] I thought... Can I just say, I thought it was a female mule, no? Mmm. Yeah, I thought it was going in the vagina of the mule. Yes. Wow. Some sources say genitals, some sources say anus, basically. Was there one mule which stood in for every citizen of Milan because that's a huge cube.
+
+[00:01:47] It's a long cube. Right. Yeah. And you'd have to set up a city-wide system. You didn't do this over one day, Andy. This wasn't like a... This was a years-long process. It's like jury duty.
+
+[00:01:59] That's it, yeah. You get a letter. Oh, man. What is it? You're going to war? No, worse. OK, look. Oh, I have one more question.
+
+[00:02:11] Oh, right. Great. I think it's more important. He's the Holy Roman Emperor. Why is he doing this kind of shit? Mmm. I didn't have much on. I didn't have much on.
+
+[00:02:22] No. So this was Milan. It was causing him Frederick I. Frederick Barbarossa, a lot of problems. This was 1162, and it was all full of uprisings. And basically, he sent his wife went to visit Milan, and the people in Milan disliked Frederick so much that they humiliated his wife, tied her to a mule, and made her ride backwards on this mule around the city.
+
+[00:02:44] So he, Fred, was like, you humiliated my wife to make up for it. I'm going to make you all do this thing. And actually, in answer to your very good question, Andy, about how you get the fig into the mules, anus, or vagina, sources differ, you would have to put it back into the genital with your tea. Oh. So they had to block it out and then return it. That was my other question. Do you get to eat the fig afterwards?
+
+[00:03:09] I'm afraid. I think it's the same fig. That's true. That's a fig expenditure. That's true. Oh, yeah. You don't want to be at the back of that queue with a manky fig. That would be disgusting.
+
+[00:03:18] Yeah. Anna, in fairness to the people of Milan, they were being sieged by the Holy Roman Emperor at the time. Yes. It wasn't like they just humiliated his wife just because they didn't like him. It was more because he was attacking their city. It was bigger than that, yeah. He was besieging their city.
+
+[00:03:35] He was having a lot of problems at the time with various cities he was supposed to rule. And yeah, the Milanese did not like him. And actually, as part of this uprising, the three wise men were moved. So Milan was known for having the skulls of the three wise men. And then when Frederick sort of one beat them down, he had the skulls removed and moved to Cologne Cathedral, and they're still there today. But it's quite amazing. This is like a thousand years ago, almost.
+
+[00:04:01] I think if everyone was doing it, I would have no problem in doing the fig challenge. I mean, it would feel like the ice bucket challenge. They were actually also raising money for charity, weren't they? It was a donkey sanctuary, in fact. You had to nominate five people to remove a fig from the mule's kettles after this. Maybe there was a sense of solidarity amongst them, because they'd all suffered together. But they did. So what they had to do was they had to get it out with their teeth and then take it to
+
+[00:04:29] the executioner, who was the person who would have beheaded them if they failed. And then they had to say, echo ill a fico, as in look, here's the fig. And then they had to replace it. And apparently in Milan after that, sticking your thumb between your middle finger and your index finger, I guess, like I'm doing right now, is a sign of it's called known as making the fig, or it was known as making the fig. And it was an insult based on this. That's still an insult, quite a lot around the world, actually, doing the fig.
+
+[00:04:59] Because it looks a bit like a vagina, if you do it this way. Yeah, it does. And it's kind of still in Russia, for instance, if you do that. It's kind of, it doesn't mean like a really, really bad insult these days. It's just a bit like giving the V's kind of thing. Okay. It does mean your mother's vagina. Like in Madagascar, I read that if you went like that, you are going, it's not screw you.
+
+[00:05:22] It's your mother's vagina. I can't speak for Madagascar, but I can speak. I've had it done to me in Russia. That's all I can say. And it's not, because my father-in-law did it to me and apparently it's not a massive insult. It doesn't mean get away from my daughter. Sure.
+
+[00:05:37] That's what Polina told you. Yeah. He was actually complimenting you, Jack. This is a, there's a weird thing because in Italy, there's a really weird linguistic confusion, right? Because if you say, I hope I get this right, bella fico means nice fig, but bella figa means beautiful women's genitals. So there's a weird verbal link between the two as well.
+
+[00:06:00] Yeah. And the BBC, a really old BBC talk board had a thing about someone who'd been trying to order figs in Italy. And they said, I started off by asking how old was the fige, how much I loved it when it was fresh, as long as it wasn't too old, how I love to eat it, and on and on. The lady was clearly shocked, but I kept going on and on trying to explain how much I liked it. Jesus.
+
+[00:06:21] It's very much got genital associations around the world, hasn't it? And it looks like a, famously like a, look, we all know what it looks like, guys. You don't need to know. And he's going to that. I just want to say one more thing I really enjoyed about this besieging that Frederick was doing, because I didn't know about this. So he was really into underground warfare. So when he was besieging Kramer, which he besieged before Milan and Milan, he dug a
+
+[00:06:48] lot of tunnels. And I didn't realize in medieval times, tunnel warfare was a huge deal. So you're besieging a city and you dig a tunnel underneath and then you counter mine from the other end, as in you dig your tunnel and you would meet in the middle. And then two enemies on, it would have to be big enough to take you on horseback. And then the two enemies meet in this tunnel. Yeah. The horses would go down into the tunnel and they'd meet on horseback.
+
+[00:07:12] And this was a means of combat. And loads of people did it. So as in cool, they had a lot of these. They were dug by the Welsh miners. Honestly. So what happens is you've got two armies coming at each other and it is big enough to get a horse down, but only one horse. So it means that the person at the front of your battle can only fight against the person
+
+[00:07:32] at the front of their battle. Oh my God. And then whoever wins that, then fights against the next person in the queue. And you just keep going down and going down until they... It's like playing conkers, basically. It's extraordinary. And the other thing is that you would have these tunnels going towards the city, but you might also dig a tunnel underneath the other person's tunnel so that they kind of
+
+[00:07:52] fall through it and then get trapped and then you can kill them. And I read once that that's where the word undermine comes from, although I'm not sure if that's right. Wow. Henry the Fifth is very famous for having a very impressive fight in one, apparently. And something else you could do if they dug a tunnel under yours and popped out on your side. They often had big tubs of boiling urine and water that they'd throw on you as you emerged.
+
+[00:08:18] You could only come out one at a time. I can't believe they met each other though. You would assume it would be a bit like, you know, when you close your eyes and you have to get your index fingers to touch each other and they miss. I would assume it must have been so... You can hear each other digging underground. If you keep quiet, you can hear the noise. Each team had a golden mould, didn't they, which could hear where the other team was coming in.
+
+[00:08:41] Above the gates of Milan, until the 1500s, there was a work of art showing a woman lifting her skirt and clipping her pubic hair with a large pair of shears. So whenever you went to Milan, this is the first thing you would see. Wow. And no one really knew why it was there, but they think that probably dates from this particular siege by Frederick Barbarossa. And it could be that when Barbarossa was attacking the city, one of the women at the walls did this and they decided to memorialise it.
+
+[00:09:12] It could be because Milan asked for some money from the Empress Lea Bissa, who was in Constantinople at the time, and was extremely wealthy and really important Empress. And they wanted money from her to try and stop Frederick from attacking the city. But she said no, and so they did this picture of the woman as kind of an insult to her. But no one really knows why it was there, but then it got taken down by Cardinal Carlo Baremio in the 1500s because he wanted his eyes only to gaze on the stars of heaven. Yeah, as opposed to the towering genitals and pubic hair over giant women. I suppose that's fair enough.
+
+[00:09:50] He didn't include that part in the quote, but of course he would have said it. Implied. Barbarossa, by the way, died because he didn't want to queue. He hated queuing. That's like you. You hate queuing. I hate queuing, because I always think at the front of it I'm going to have to pluck a fig from a mules vagina.
+
+[00:10:10] But they were going to cross the river and he didn't want to queue. So he went across the river in a bit where you're not supposed to. He didn't want to go over the bridge or whatever and he drowned. Oh, Barbie. I've read a bunch of theories about how he died, which I think that's the sort of most accepted version of it. But it is shrouded in a bit of mystery. And one of the most confusing things that I read was that it was a foot of water,
+
+[00:10:32] which is very hard to drown in. Supposedly that could have happened because he was wearing such heavy armor that he was just pulled down. And there was also theories of fatigue that he had actually gone just for a wash and that he was so tired that the sun just kind of just he lost energy. But yeah, what a way to go. And the Nazis thought he was still alive because there's like a, an ancient idea that he's like King Arthur and he lives in a mountain.
+
+[00:10:59] And whenever Germany's about to fall, he'll come out and save everyone. And he can't leave at the moment because his beard is stuck in a table. So it's grown. Yeah. It's grown through the table and he doesn't have scissors, but he does have a boy who's loose, who he sends out to check how Germany's doing every so often. So he'll just wave him out and he'll come back.
+
+[00:11:19] It's not right. Well, according to the Nazis, it was real. They would have been so disappointed if, if he came out and said, right, don't worry, Germany's going to be safe. All I need is 250,000 mules. I need a large queuing system. And I need a bunch of figs. But then of course that's why they called,
+
+[00:11:38] you'll know Andy Operation Barbarossa, which was the attack on the Soviet Union that was named after him because he was such a, a top guy according to the Nazis. And also another Operation Barbarossa where they killed all the intellectuals. That was also named after him. I can't believe the sentence was just said, who believes us the Nazis and Dan? That's not something I want to be important.
+
+[00:12:02] But can I just say that by saying who believes this, the Nazis and Dan, I'm saying that you're not a Nazi. Otherwise I would say the Nazis, including Dan, who is also a Nazi. He just shows similar ideas and beliefs. Do you know what happened to Barbarossa after he died? Oh. He got his beard stuck in a table somewhere. He's still waiting for those shears from that poor pubic-haired woman.
+
+[00:12:26] If you don't believe the theory of Dan and his Nazi buddies, then this is what happened to him. So his body was apparently, they tried to preserve it in vinegar. Again, like a conker, but it didn't, it didn't work. And he was buried in three different places. This sounds like such a difficult, confusing burial process because his flesh was put in the church of St. Peter and Antioch, his bones in the Cathedral of Tyre, and his heart and inner organs in another church that was in Tarsus.
+
+[00:12:55] But that's a rough gigs, having to separate the flesh from the bones. You wouldn't want the flesh, I think. I know, I was just going to say, I think the Antiochs got a raw deal because that's just a pile of grossness, isn't it? Speaking of flesh, Fiks have flesh. So shall we talk about Fiks? Yeah. Why not?
+
+[00:13:16] They're very, very important. Up to 70% of the animal life in the rainforest depends on fig trees and because they're so high in energy, they fruit loads of times every year, they grow really well in that kind of environment, and basically they're eaten by lots of things and then those things are eaten by lots of things, etc., etc. So without Fiks, we wouldn't have lots of other rainforesty stuff. We wouldn't be here today.
+
+[00:13:43] They're amazing, aren't they? I've never looked into Fiks before. So I read a quote from Charles Dickens, which he said, train up a fig tree in the way it should go, and when you are old, sit under the shade of it. And the idea is that you can push them into a territory and that's the direction they'll grow, which is a thing that happens.
+
+[00:14:01] A lot of people end up making bridges out of Fiks by positioning the direction and they grow across these sort of river passes and that's your fig bridge, which is just naturally grown. It's astonishing. The photos are amazing, if anyone wants to see. Yeah, it's mostly, it's in North India, isn't it? And it's basically suspension bridges, which massively predate our suspension bridges.
+
+[00:14:22] And they're so long. I think the longest is over 50 metres long and over 500 years old because they do, yeah, they've got these incredibly strong roots that kind of, they weave around each other. And I think a lot of the bridges have a handrail. They will have trained some of the routes to grow into a handrail as well. Amazing.
+
+[00:14:40] It's a long wait for your bridge though, isn't it? When you've commissioned a guy. Yeah, Frederick would not have had the patience to wait for that bridge. So Fiks, yeah, they are, Fiks themselves are extraordinary as well in the way that they breed. Every fig that you eat has at least one corpse in it, probably lots of corpses inside it. Is that all of the figs that you eat, like the ones from the supermarket?
+
+[00:15:03] Oh, technically probably every fig you eat doesn't have a corpse in it because these days they're often done artificially but if you're eating a fig that has been naturally propagated, it's got at least one corpse in it because the way they breed is an extraordinary way where every fig in there, I think there are more than 750 species of fig has its own specific fig wasp. And the way the figs are pollinated is that a female wasp will burrow inside the fig
+
+[00:15:28] and weirdly a fig is an inside out flower. So the flower is on the inside, the bit that needs pollinating. Burrows inside the fig and then she lays her eggs and then they spawn and then they shag each other and fertilize each other and then the males, the male siblings, crawl up and make a little tunnel out of the fig so the females can escape and then the males die, sacrifice themselves, females fly off and then they go and pollinate the next fig.
+
+[00:15:52] Beautiful. It's amazing. It's so cool. You've kind of glossed over the incest bit because a lot of the wasps that hatch are siblings. Reasonably, I think, to gloss over that bit. I think all of them are siblings, are they not? No, they're not because you can get several different wasps crawling inside a fig which will then die but they will have laid their eggs around inside the little seed bits.
+
+[00:16:16] That's a good point. So you might not be... It's not frowned upon in the fig wasp world in the same way it is for us. And that's why there are lots of corpses often is that the ladies kill each other, don't they? Because if more than one mother gets inside, then they have a duel to the death very often. What? I didn't know that.
+
+[00:16:32] Yeah, to make sure that only one mother can lay her eggs. But then the poor mums of figs amputate their wings as they go in, right? So the mothers can never leave. Yeah, so they're doing kind of... And then tenor as well. Yeah, yeah. Have you heard of Mike Shanahan? Yeah, I've met him.
+
+[00:16:48] Oh, yes. Yeah, yeah. He came on our radio show a few years ago. He is amazing. He knows more about figs than anyone I've met knows about any other subjects, apart from perhaps Erica McAllister and flies. That's the only other person I can compare. Yeah.
+
+[00:17:04] He's brilliant. Or Dan Schreiber and Nazi's Sacred Myths. Yes. Apart from those guys. So yeah, he's written this book called God's Wasps and Stranglers, which is unbelievable. I've only read a chapter of it, but it is so interesting. If you're interested in figs, this is the book to read on the subject, basically.
+
+[00:17:23] I actually found something that I think Mr. Shanahan got wrong. Did you hear his book? Yeah. Go on. It was just, we were talking about royals and we're talking about, so Barbarossa and the fig. I found a modern royal that was associated with the fig, which is Queen Elizabeth II, who was asleep in a fig tree when she found out she became queen.
+
+[00:17:43] Excuse me. Sorry. Yeah. Our current queen was asleep in a fig tree. She was famously in Africa, wasn't she, when she found out? And it was a tree house, was it? I think exactly. No, no.
+
+[00:17:56] She crawled inside a fig. That's right. She lost her wings and antennae on the way, but a nearby aquarii was able to pry her out. Yeah. But let's gloss over the incest for a second. She was staying in a tree house and the story, the sentences that she went up the tree princess and she came down a queen. But I think that they actually found out quite some 40 kilometers away from the actual tree
+
+[00:18:23] where they were staying because they were out and about and Philip delivered it in a sort of cabin. So it's not quite true that she was in a fig tree, which would have been fantastic. Wow. That's so many preconceptions shattered there. Everyone at home has to adjust their whole belief system. Okay. It is time for fact number two and that is James. Okay.
+
+[00:18:47] My fact this week is that library books can set on fire if you put them in the microwave. It's ruined many a dinner for me, certainly. All my cookbooks have gone up in flames. That's when it says cookbook, it doesn't mean cook this book. This is more of a public service announcement than a fact and it comes via a library in Michigan, the Kent district library that's asking people to stop microwaving their books to prevent the spread of coronavirus. And that is because they contain a little chip in them, which is a kind of chip we've mentioned before called an RFID chip, which is what you get in your Royster card or in your contactless credit card or in your massive seal that you use to spy on the United States if you're Russia.
+
+[00:19:32] And they're in also in these library books and they're made of metal. And if you put metal in the microwave, a lot of the time it will set on fire and people have been doing this with library books. And they've tweeted a load of pictures of very burnt library books where people have been trying to sterilize. So these chips, you can't put them in the microwave. Are they oven chips? Very nice. Very good. But no, don't put them in the oven either. It's a very funny joke, Hannah, but this is not a funny matter. It's not a laughing matter. Got it.
+
+[00:20:03] I didn't know people have been doing this. Yeah. Well, they don't fully know why they're doing it as well. As in the article that I read sort of suggested that they're a bit bemused. It's not as if there was a ginormous moment on the internet where everyone said, do this to clean it. So some things popped up on a site somewhere where enough people in Michigan have seen it and died. Yeah. I mean, there's some, there is a fair amount of logic behind it, isn't it? Microwaves in theory could kill viruses, I suppose. Yeah, they heat things up, really high temperatures.
+
+[00:20:33] It's just that's not what they're made for. So don't put stuff in the microwave that's not made to go out of microwave. That's basically the tip. Yeah. We think the best way to sterilize books is probably just to leave them for a couple of days, don't we? And most libraries just now leave them for two or three days. Yeah. So COVID-19 will die after a certain number of days. I think in perfect lab conditions, it's kind of over a week,
+
+[00:20:58] but in real life, you know, you're not living in a bell jar with a perfect amount of air and no UV lights and stuff like that. So if you leave a library book for a few days, it should sterilize by itself. They did discuss, I think, UV-like treatment, because people kept on saying, could you treat things with UV? And it was pointed out, as well as being quite carcinogenic, so you don't end expensive, you would need to treat every single page of a book. So it would involve shining UV.
+
+[00:21:24] Imagine getting war and peace back. That's going to take two or three hours to UV treat. And it's not like you can just get a little UV torch and just shine it on, and that'll kill it. You need a special, very high energy UV light in order to kill viruses. I was looking into sort of library scares and things like this, and there was a really interesting account of worry about reading contagion. In fact, there's a book about it called Reading Contagion,
+
+[00:21:51] because it was reported in 1911 in a library journal that books seem well-adapted for carrying smallpox, measles, scarlet fever, trachoma, ditheria, erycepillus, dysentery, typhoid and tuberculosis. Erycepillus, really? Erycepillus, isn't it? That's it again? Erycepillus. Can I just explain that while we're laughing at that?
+
+[00:22:11] So I'll probably cut this out. But in our live show last year, we had a spelling competition where Andy would say very unusual words, and Dan would try and pronounce them, and then the audience would try and spell them. And Erycepillus was one of those, and I'd never heard the word before that gig, and now it seems to come up virtually every week. It's following us around. And I'm still saying it, Erycepillus.
+
+[00:22:35] And this was a fear because some readers would lick their fingers as they were turning pages. So people got very worried about this. And there was one scientist who decided to experiment on it, and he did it by taking public library books, cutting out the dirtiest bits. I mean, the physically dirtiest bits, not the rudest bits in the book, so that he's had most wear.
+
+[00:22:53] And then he would soak the pages in saline solution. Then he would spin that liquid with the sort of gloopy matter from the library books in it. Then he would inject that saline solution into guinea pigs. And amazingly, all the guinea pigs died. All 40 of the guinea pigs he tried and on died. And that's evidence that they're catching germs in the book rather than just that he just injected them with saline solution. Well, they did die of proper things, but it turns out,
+
+[00:23:22] I mean, if you're... No one reads library books like that. No one does that with library books. No, it would be an unusual thing to do. And also, they don't let you return them after you've whispered through a washing machine, injected yourself with parts of them. Well, do you know in Boston, the Boston Library,
+
+[00:23:37] how they clean their books when they get returned? No. They have a mini book-sized car wash that they send the books through. So it's got all these compartments. It's on a conveyor belt, and it can do 12 books a minute. They don't use it on the extremely rare books. It's just for more modern books. And it's a dusting system as they come through,
+
+[00:23:57] spinning brush bars and so on. You can watch videos of it online, and that's amazing in their books. That's not to sterilize them or anything, is it? That's to get rid of all the dust and... Yes. Anything that's returned just for maintenance, basically. Yes, not sterilization. This scare about book germs seemed to go on for a long time.
+
+[00:24:17] So it started in the 1870s, I think. And it lasted, as you say, well, until the 20th century. And in 1907, there was a law in the UK passed that said if anyone was ill, you were not allowed to borrow a book from a library or return a book to a library. And they tried, yeah, all sorts of experiments to figure out, if they were spreading germs, didn't they? They got lots of doctors involved.
+
+[00:24:39] There was another one, as well as the guinea pig one, where they had monkeys drink milk off a germy book, and then see if anything went wrong with them. Again, difficult to return that monkey poo drenched milky book to the library afterwards. I wonder if that law from 1907 still holds or not. Like, probably not the same law, but I'm pretty sure there's a law that's around now
+
+[00:25:03] that if you have plague, for instance, and you get in a taxi, by law, you have to announce it to the taxi driver before you go anywhere. And I think it's the same public health act that those two things are from. So I wonder if you have to announce to a librarian that you have a certain illness before you give your library books back.
+
+[00:25:21] I don't know. Because it was basically someone died, didn't they? There was a Nebraska librarian that died of tuberculosis, and that kind of made everyone think, oh, shit, there could be something in this. But do you know the Spanish flu from 1918 or 1919? Yeah. They thought that that could travel on telegraph wires
+
+[00:25:40] because a load of telegraph operators got the disease at the same time. But obviously, it was because they were all in a room together, in the same area. There was also one where a load of bank tellers in a bank got sick at the same time, and they thought that maybe it had come with the money. So it was like, they thought that whatever was coming into that
+
+[00:26:00] building might have been what caused the illness rather than one of the people giving it to everyone else. Hey, when we were on tour last year in America, we were in New York, and I went to the New York Public Library, and it is stunning. Have you guys been when we were there? No.
+
+[00:26:17] Or been any other time? It's really, it's just this majestic building. And I saw that they had a lot of sort of relics of literature in there, so I started looking into it, see what else they have. And there's some great things about it. For example, there was one customer, as it were, someone who came every day and sat at the same desk for 52 years,
+
+[00:26:36] and that was from 1923 to 1975. And it was the guy, it was a man called Norbert Pearlroth, who was the head researcher for Ripley's Believe It or Not. And he used to sit in that library every single day, or most days, at the same desk doing his research. And because the research available in that library is astonishing, they have the largest collection of restaurant menus in the world, for example.
+
+[00:27:01] They have 40,000 restaurant menus, and it's used by chefs all over the world to sort of find old, you know, ideas for what they can do with their menus. But it's also used by biologists, marine biologists, to study fish populations to see if there was a spike in what was being eaten in the restaurants around New York at the time. Yeah, so it's used for sort of understanding ecology as well.
+
+[00:27:25] There's one library designer who designed libraries like the Qatar National Library, which is incredible, and also the Seattle Library, which is quite famous. I think it has a spiral of ongoing books. So you walk from the bottom to the top, and the library shelves never end. Anyway, this architect is called, he's a Dutch guy called Rem Coolhouse.
+
+[00:27:46] I think his name is Coolhouse. What a name for an architect. What a great name. Hey, Coolhouse, Coolhouse. Yeah, I hope he just hears that all the time. Just as this fact was about microwaving library books, I've got one thing on microwaves. I was looking for interesting microwave stories
+
+[00:28:05] and things you shouldn't microwave. And in 2017, there was a man who had to be freed by firefighters after cementing his own head into a microwave. He was called Jay Swingler, 22, from the UK. He and his friends, they mixed up seven bags of polyfiller, and they poured it around his head inside the microwave, which was protected by a plastic bag. It wasn't stupid.
+
+[00:28:29] And unaccountably, it then dried, and they couldn't get him out. They tried for an hour and a half to get him out before calling the fire brigade. This was all for YouTube, and the emergency services turned up, and they sort of chipped the microwave apart. They destroyed the microwave, and they then didn't find him very generously
+
+[00:28:49] because they assessed that he had been at risk of dying. Sorry, I thought you said they didn't find him. Yeah. They just keep chipping and keep chipping. He must be in here somewhere. And I was later interviewed, and he said he hadn't wasted the emergency services time because they saved my life, whereas I say that he did waste their time.
+
+[00:29:10] There was an interview with Robert Pattinson earlier this year in April with GQ, which I assume they must have done over Zoom or over Skype or something, because he's in a house which appears to be a, like, a hired house rather than his own. And while they're interviewing him, he's making some pasta in the microwave. Now, he has come up with a new way of making pasta.
+
+[00:29:35] It's a bit like a pop tart, but you make your pasta, and then you put a load of American cheese and sugar with it, and then you cover it in corn flakes, and apparently it's the most delicious thing that Robert Pattinson has ever eaten. So he's making this while he's being interviewed by GQ, and they're asking him about it, and he puts all the corn flakes on the outside,
+
+[00:29:59] and then he puts it all in tin foil, and he says, are you allowed to put tin foil in the oven? And the GQ guy says, yeah, you can put tin foil in the oven. You're just not allowed to put it in the microwave. And then Robert Pattinson goes, I think this is an oven. And so then he puts his like pop tart thing
+
+[00:30:19] in what he thinks is an oven, but which is actually a microwave. And they're still doing the interview at this point. And then about a couple of minutes later, the whole thing explodes. The microwave explodes, and all the electricity goes off in Robert Pattinson's house. And I've got to say, this is the best interview I've ever read in my whole life.
+
+[00:30:39] And has anyone checked on Robert Pattinson recently because I'm a bit worried about that. My brother-in-law, Charbell, works in hotels, and he once got a call up to a room because the guy who was up there had ordered room service, had his food, but clearly hadn't finished eating it. So he called Charbell up, Charbell into the room, and he said, I need your help.
+
+[00:31:02] I was trying to reheat my food, but I can't get it back out of the microwave. But what he'd done was put it into the safe. And he'd locked his bolognese or whatever he had. That's fine. So the code was probably three minutes or whatever. That's so funny. OK, it is time for fact number three, and that is Andy.
+
+[00:31:27] My fact is that one of the kings of Leon was called Alfonso the slobberer. The kings of Leon are still going. What do you mean, was? Well, I'm glad you pointed that out. Obviously kings of Leon, great band. Three of them, Jared and two others, none of them is called Alfonso the slobberer. It turns out that before the band even thought about forming, there was a kingdom called Leon,
+
+[00:31:51] and that's what they're very cleverly referring to in their name. And Leon is in the... It was a huge chunk of the Iberian Peninsula, so Northwest Spain and what is now Portugal too. And it had a king in the mid to late 12th century called Alfonso, and Alfonso was an angry guy. He would have fits of rage that made him foam at the mouth, and that's why he got his charming nickname Alfonso the slobberer.
+
+[00:32:16] Wow. We do know a bit more about him. We know he married his cousin twice, not the same cousin, different cousins, so he had a type. And annulled them because of it, right? It's so bizarre that you can make that mistake. He marries a cousin, and then he had, I think, three children with the first one,
+
+[00:32:34] and then suddenly he was like, oh, damn it, it's incest. Not allowed to do it, so he had to be annulled. And then did the same thing again, had five children with the next one. Annulled again. I think the second one might have been his first cousin once removed. Yes, you're right. It was, but I didn't know this. It's so interesting.
+
+[00:32:50] I had no idea how strict the rules on incest actually were at certain points in history. Well, we usually gloss over the incest on this podcast. So the church had banned marriages for relations up to seven degrees removed, which meant that you had to count seven generations back, and it was illegal to... I mean, who on earth knows seven generations back?
+
+[00:33:12] It meant it was illegal to marry anyone closer than your seventh cousin. So it must have been an enormous hassle. If you fancy someone, you had to really trace... You had to go on, who do you think you are? Alfonso also formed the Cortes de Leon in 1188, which brought together all the nobles in that area. And some people say it was the first parliament
+
+[00:33:34] in the history of Western Europe. So that's one good thing you might have done. There were quite a few kings of Leon over the years. Henry the impotent, he was one. He was supposedly impotent as a result of a curse by the Bishop of Toledo. The curse was called frigidi et maleficiati. And it's quite a common curse that you would do in medieval times
+
+[00:33:57] where you would make someone impotent just by reading out this curse. Although he did have a daughter. So it might not have worked. Although the argument was, if he'd had this curse, it can't possibly be his daughter. So he must have been someone else's child. It's always a way around it.
+
+[00:34:14] Maybe the curse wears off after a while. Alfonso could have done with a bit of that curse. I mean, he had eight children within his two marriages. And then he had another 10 children outside his marriages. There you go. Needed a bit of frigidiati et maleficorium or whatever. I read another guy, another king who was in the 10th century called DeSancho.
+
+[00:34:35] Sancho the fat he was known as. Yes, he was also a king of Leon, wasn't he? Yeah, king of Leon. Interesting story. He basically was said to have been so overweight that it made it hard for him to walk. He couldn't ride a horse. He couldn't pick up a sword.
+
+[00:34:51] And so he lost the throne as a result. He was disposed as a sort of weak king. And his grandmother took him to a doctor and the story goes is that the doctor sowed his lips shut except for a tiny little hole to put a straw through to give him what was effectively the first weight loss diet, which was you can only drink stuff through this straw as your food. And he eventually lost half of his weight
+
+[00:35:17] to the point where he could ride a horse again and pick up a sword and he regained the throne because he came back as a strong king. Where was my throne back? I have returned after a long time doing a diet. He was immediately deposed because of his speech impediment. At least he wasn't slubbering with that tiny little hole.
+
+[00:35:35] He used to sip his smoothie. He did have a serious problem though. I think the contemporary accounts say that he was... Well, in today's measurements is 38 stone, which is too heavy. No horse can take that. I quite like that the guy... It was just such a testament to what a mixed place Europe was then
+
+[00:35:55] that his grandmother walked him, sort of wobbled him along to a Jewish doctor this guy was who worked for the Muslim ruler Abdul Rahman and obviously he was Christian. It was such a melting pot. He cured him and it's good because he replaced or don't know the wicked. It sounds like if it's between the fat and the wicked,
+
+[00:36:15] he'd probably go the fat, wouldn't you? Yes, it was like a really kind of positive thing like wicked. Yeah, that's true. And also I suppose Sancho could be fat with a pH. He might have just dropped some heavy beats. Yeah, that's true. They were all DJs, the Kings of Leon. Oh yeah, if they were all DJs,
+
+[00:36:34] then what about Bermuda the Gouty? I don't want to watch his set. There are quite a few Queens of Leon, as well as the Kings of Leon. Joanna the Mad, she was one of them. She was married to Philip the Handsome. And she really liked Philip the Handsome, but unfortunately he died.
+
+[00:36:52] And then she kind of lived with his coffin and would open up the coffin every now and then so she could kiss his feet. That's why they called her Joanna the Mad. Actually Alfonso the Slobberer wanted to leave his kingdom to his two daughters, so Sancho and Dolce. He left officially after he died. He left it to his two daughters.
+
+[00:37:12] Basically the people of Leon were not really up for female leaders and the daughters, and I think I would have done exactly the same thing, weren't really up for having a big fight about it. So basically they met with their half-brother's mum. So these three women met and they negotiated, look, we'll give this chap the kingdom and can we just have a bunch of castles and some money.
+
+[00:37:32] And it was called the Pact of the Mothers. They just went and lived the life of Riley somewhere. Yeah, it's a good call. Being a king or queen in those days. Very stressful. And the nicknames alone would have done you in. You got some more nicknames? Yeah, I found a few.
+
+[00:37:50] I strayed off territory a bit away from Leon and I just went to other regal nicknames. So there was a Byzantine emperor who was called Constantine the Name of Shit. Copra Nimos is what that was at the time. And it's allegedly because he shat in the font during his baptism. Oh, yeah. Yeah, I know.
+
+[00:38:10] So it's kind of a clever joke, actually. It is a bit like someone at school, like being on a school trip and having to shit in a bag and being called shitbag for the rest of school. For the rest of the reign, they're reigning as emperor as well. Terrible. Yeah. But that would have happened when they were like less than one
+
+[00:38:27] or just went for a bath. I'm not saying it's fair, Dan. I'm not saying it's fair, but I am saying it's funny. James II of England was known as James the Bishop and or something. Yes. I think the Irish called him that or something. Yeah. Because they wanted him to hang around and fight for them.
+
+[00:38:41] And then he fled to France quite famously, disappeared and just gave up his throne to William of Orange. So they were like, well, you're a piece of shit. That's how he went down. I have a quick study about nicknames in general. Oh, yeah. So there was a study by Queen Mary University and they were looking into nicknames in online dating
+
+[00:38:58] and how you can make yourself most effective, which I know is not of any special interest to any of you three. Well, I just need to know on my Tinder profile, should I call myself James the slobber or not? Right. Exactly. So they studied loads of different research papers. They studied like lots and lots and lots of previous papers
+
+[00:39:17] on online attraction. And it's quite funny. Just the things they found out or their headline results were quite obvious, seeming things. So they found that nicknames with negative connotations like little or bug are linked with inferiority. So you shouldn't pick them. And they said playful screen names were good.
+
+[00:39:37] So the name fun to be with, that's the number two, and then the letter B was universally attractive, they claimed. They also said pick something near the beginning of the alphabet because if like all sensible people, you arrange your dating profiles you're looking at in alphabetical order, you don't want to be lost in the bottom of the pile. So does that mean you should call yourself Andy?
+
+[00:40:04] Like in the Edinburgh Festival program. So you always have like the A, A, A, A company show. Exactly like that. Cause Zebedee the gouty. He's not getting any dates. I've just got a few more nicknames that I found of rulers throughout history. So there's so many, Manuel the sausage maker,
+
+[00:40:23] Wilfred the hairy, Half Dan the bad entertainer. That's not a good one. No, come on. King Dan. Actually is your online nickname, isn't it? So yeah, he was from Norway. He was the son of Einstein the fart.
+
+[00:40:40] And yeah, so he was very generous paying his soldiers, but he was very bad in providing food and entertainment for them. Buy your own food and entertainment if you've got a good salary. Broad half Dan. Okay. It's time for our final fact of the show.
+
+[00:41:00] And that's my fact. My fact this week is that there is a Chinese poem made up of 92 characters in which every word is pronounced sh. The poem is called the lion eating poet in the stone den or sh, sh, sh, sh, sh. Sure. Now.
+
+[00:41:17] Nice. For any Mandarin listeners out there, just to quickly say, I grew up in Hong Kong and I was taught Mandarin throughout school, but I have a foreign Mandarin accent. So apologies if I butchered that slightly. It's a very hard sentence to say. The poem is even harder to say.
+
+[00:41:32] Dan. That is an easy sentence to say. Sh, sh, sh, sh, sh, sh. Charlie is the one that we could know. No, no, because you're saying it with one tone and it's tonally Mandarin. You just sound like a librarian there, James. Wait a minute.
+
+[00:41:44] So when you said it, it sounded to me, to my ears. It sounded like they were all the same tone. Sh, sh. So sh is neutral, sh is the downward, sh is the upward and sh. So those are four different sh's that you could be saying as a result, which is why it's, if you say this poem out loud,
+
+[00:42:04] even the best Chinese speaker saying it out loud, no one will know what they're saying, because despite the four tones, you can still have about 15 different words which have that tone of sh for, let's say, going on the upward sound. So it is totally bemusing to listen to it out loud. Isn't it true?
+
+[00:42:22] It works in character form. Isn't it true? I might be wrong about this, because obviously I don't know anything about this language, but is it not true that in classic Chinese, it works way better. And in modern Mandarin and modern Cantonese, it really doesn't work at all.
+
+[00:42:36] Is that not true? Yeah, that's right. But the cool thing about classical Chinese that I never knew this, is that it's quite similar to modern standard Arabic today, but the way classical Chinese was used from about sort of the 8th century until about 100 years ago,
+
+[00:42:52] it was a way to communicate between people who didn't speak the same language. So China, Japan, Korea, Vietnam, all these areas in East Asia spoke different languages, but they all wrote in classical Chinese. And so they have this thing called brush talk, where if you met a foreigner, you couldn't chat to them,
+
+[00:43:10] but you could pass notes. And so you'd meet a foreigner and you'd do brush talk. So, I mean, it must have been extremely arduous, taken a lot longer, but you could just have a secret passing notes in class chat. Wow. That's pretty cool, isn't it?
+
+[00:43:21] It's like when you go to an airport and the word for parking is the same in every country. Yeah. It's like everything was like that. Yeah, exactly. Could I quickly give a bit of a brief explanation about this poem and the author of it, because this was written by a man called Yuan Run Chao,
+
+[00:43:39] and he's an incredible guy. He wrote it in the 1930s, and it was done as a sort of linguistic demonstration to show that you could manage to stretch out this one word into a 92-word poem. He was an amazing character. He moved over to America to study mathematics and physics at Cornell University,
+
+[00:44:00] and he eventually did philosophy at Harvard, and he became a huge influence within the world of Chinese language for the Western world. So, when he was back in China, when Bertrand Russell came over, he would act as his interpreter. Back in America, he recorded the standard Chinese pronunciation
+
+[00:44:16] gramophone records that people would get that would be distributed nationally, so people would understand a unified pronunciation of Chinese and America. He translated Alice in Wonderland. He wrote pop hits back in China. I mean, he was this incredible character. Have you heard his pop hit, by the way?
+
+[00:44:34] I haven't, actually. And weirdly, he wrote the music, not the lyrics for it. It's not exactly the kings of Leon. Yeah, 1930s Chinese pop is not what you'd expect. Very repetitive lyrics, isn't it? It's like the too unlimited of its time. His wife was amazing. His wife invented stir fry, which is quite amazing.
+
+[00:45:02] She wrote a book called How to Cook and Eat in Chinese in 1946, which went through loads and loads of editions. What a specific title for a book. It must have had a very quick sell-by date. It was like the book of the year 2019. No one bought it after that year. But she wrote a load of techniques that they used to cook in China,
+
+[00:45:24] but her terms are now used quite commonly in America. So the term stir fry was invented by her and her daughter as well, who did a lot of the translation. What's quite interesting and ironic is that people use this poem as an argument against writing the Chinese language in the Roman characters, because it's way more complicated than that. And if you start putting them into Latin characters,
+
+[00:45:49] then you just can't get the nuances. But of course, this guy, Yuan Ren Chao, he was very much pro-translation. He was a translator, so it's quite ironic that that has been used as an argument. But it is true that it's so hard to write down in Roman script, so there was actually someone who wrote beneath a YouTube video who was Taiwanese and I think was talking about
+
+[00:46:08] language spoken in Fujian, and said that the sentence grandfather hit his head on a metal tin and grandfather felt giddy is the word gong written eight times, basically. So like gong is grandfather, and then various other... Wow.
+
+[00:46:26] So much fun wordplay. That's such a common word. Which language did you say that was, Anna? That was in Taiwanese and in Fujian. And I spent about an hour this morning trying to practice the sentence, the horse is slow, mother tells off the horse. Is it all ma's?
+
+[00:46:43] Yeah, I think it's like ma, ma, ma, ma. How's that sound, Dan? Nonsense? Well, it would sound nonsense anyway, as is the point of the sure, sure, sure. Like it's impossible to grip on to... You need to see that written in order to go, okay, ma, mother, ma, horse, ma, slow.
+
+[00:47:04] That's where that would make sense for you. That's why it's so hard. Have you heard of the Hmong language of Vietnam? Yeah. That's got eight tones in it. Whoa. Yeah, so the word paul, depending on what you're putting,
+
+[00:47:18] where you're putting the tone, can mean either female, throw, thorn, pancreas to see or paternal grandmother. So if you want to say, I can see my paternal grandmother's pancreas. Yeah. They are brilliant, these little kind of oddities, though, aren't they? Because most languages around the world have something like that.
+
+[00:47:40] So in the Ajibwe language of Canada, which was one of the biggest First Nations languages, there's a phrase, gada, na, na, na, na, na, which means we should really go and get Anna, shouldn't we? No. Yeah? So I think we might start using that one
+
+[00:47:59] whenever Anna's late to the hotel lobby before we start. Can you say it again, James? It's gada, na, na, na, na, na, na. I'm going to start singing that at the end of Hey Jude. Just see if anyone notices. Every time someone sings Hey Jude, Anna turns up going, what? I'm here.
+
+[00:48:17] You know, the drummer of the band, who plays our theme tune. He had a song that he put out called Aneek, who was someone who used to do our sound checks for a fish and record our sound. And he named the song Aneek after Aneek, and it got picked up by Apple and was used in an advert in Abu Dhabi and Dubai.
+
+[00:48:37] And it was a very popular song. And what happens a lot over there is that people use their phone and Shazam to find out the name of the song. And so they knew that was going to happen. And after it had been sold, Apple pointed out that the name Aneek in Arabic translates as I fuck. And Apple was suddenly pushing a big song
+
+[00:48:57] of their advert with I fuck. So Adam had to desperately change the title of the song so that by the time it went out and Shazam'd, it was a different song and he managed to do it within the space of 24 hours before it went out. But yeah, he almost caused international chaos for them. OK, that's it. That's all of our facts. Thank you so much for listening.
+
+[00:49:22] If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter M. James. At James Harkin. And Anna.
+
+[00:49:34] You can email podcast at qi.com. Yep. You can go to our group account, which is at no such thing, or go to our website, no such thing as a fish.com. Everything's up there from all of our previous episodes to links to bits of merchandise you can buy. OK, guys, we'll be back again with another episode next week. Until then, do stay safe, do stay well,
+
+[00:49:53] and we're so happy that you continue to listen to us during this time. Thanks for doing that. We'll see you again next week. Goodbye.

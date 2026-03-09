@@ -1,0 +1,221 @@
+# No Such Thing As A Fish - 235: No Such Thing As Trousers For Spiders
+
+- Episode date: September 21, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/235-no-such-thing-as-trousers-for-spiders
+- Slug: 235-no-such-thing-as-trousers-for-spiders
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I am sitting here with Anna Czenski, James Harkin and Alex Bell and once again we have gathered round the microphones with our four favorite facts from the last seven days and in no particular order here we go. Starting with my fact this week, my fact is that a message in a bottle that was thrown off the Titanic as it was sinking was found one year later washed up on a shore in Ireland, only a few miles from the home of the man who threw it.
+
+[00:00:54] It's pretty extraordinary. It could be that he just dropped it on his way to the Titanic. So this was a 19 year old, he was called Jeremiah Burke, he was from Glenmyre County Cork in Ireland and the way that they were able to verify the bottle because there's been a lot of forgery bottles that were claimed to be, so people trying to make money. This bottle was a bottle of holy water that his mother had given to him as sort of good luck thing and he used one of his own shoelaces to tie it up as he threw the letter and the bottle overboard.
+
+[00:01:27] Saying this didn't fucking work mum, maybe send me a better good luck charm next time. So the message has a date on it, it's slightly unclear so it could be the 10th, 12th, 13th. We know that it's sunk on the morning of the 15th but so I don't know why he would have ... Yeah that doesn't make sense. It's very odd. I think at the best of times I don't necessarily know what date it is straight away. I think as you're going down with the Titanic, maybe you're going, which date is it guys?
+
+[00:01:53] What date is it? Asking the person next to you is clean of dear life, sorry do you know what date is it? Is it Monday? Yeah, so this bottle washed up and I've looked at it on Google Maps. It is literally just a couple of miles separate where the area of where they lived right to this shore and it was found by a coachman who found it and I didn't get to the bottom of this bit of the story but presumably knew the area, knew the people in the area and thought, ah this guy, he's said Burke of Glenmere Cork.
+
+[00:02:19] I know this family, I know the Berks, I'm going to see if this is him and so delivered it to the mother who a year later received this bottle. You could argue that it was a hoax, at the same time it's only been reported in the last few years properly again since it happened because they've been lending it to a museum so they didn't sell it, didn't go through auctions, it's been a family heirloom since. Yeah I suppose the natural currents would take it there anyway, wouldn't it? I suppose so, yeah. Kind of the obvious place for it to end up.
+
+[00:02:46] So where did the Titanic launch from Liverpool was it? It went from Southampton then I think it went to France and then it went to Ireland and its last stop off was in Ireland I think. Was it? Ah I didn't know that. But yeah that was such a weird coincidence but it's so weird how many messages and bottles or maybe it's not weird how many messages and bottles do get tossed overboard and found and there are so many great stories so another really good message and bottle coincidence
+
+[00:03:12] that I liked is that in April 2012 a UK fisherman called Andrew Leeper was fishing near Shetland and he found a message in a bottle and it was a note that had been dropped at sea in 1890 and it was one of those that wanted to investigate ocean currents so oceanographers were always doing this to investigate where the messages ended up to see what the ocean currents were like. Anyway Andrew Leeper found this message in a bottle in 2012 and so it was really nice because that meant it was the 315th to be put in that log started in 1890 so 315 of those messages had been retrieved.
+
+[00:03:49] And it's still going the log is still I think. They're still keeping the log going. Oh my God. Some incredibly bored researcher still sitting there. Yeah desperately waiting. Handling this town. Every 40 years. But what I liked about this guy was that he then broke the record for that's the longest
+
+[00:04:02] weight anyone's ever had to read a message in a bottle and the previous record holder had been his mate Mark Anderson who'd broken it in 2006 in the same boat. So how weird is that? So he's friends with him and he did like Leeper did an interview with the papers when he then broke his friend's record and he said, my friend Anderson is very unhappy that I've topped his record as Anderson never stopped bloody talking about it. I mean if anything screams hoax I'm also spits of that one. In 1954 I was just looking up other bottles that had been chucked in rather than found.
+
+[00:04:38] Guinness decided to do an advertising promotion and they threw 50,000 bottles into the ocean with messages in to Guinness bottles which I find unbelievable. So it's known as being Guinness's longest advertising campaign yet because they're still turning up but I can't believe that would never be allowed today dumping 50,000 bottles in the ocean. It's illegal in a lot of places. Yeah well it definitely is. So you'll get fined in Canada for $5,000 if you throw a bottle into the water.
+
+[00:05:05] We found this out because there was a story this year of a guy called Harold Hackett from Prince Edward Island and he's thrown an estimated 10,000 messages into the ocean since he started and he said he has to retire because he doesn't want to get arrested. Well no, arrested but fined. Good. I don't know if that's all his life meant to him, throwing messages in bottles into the ocean. I have limited sympathy with someone like, it was my life dreamed, pollute the ocean.
+
+[00:05:32] I can't believe that the government is more than like... In the 16th century it was also illegal to open a bottle if you found it. Yeah, I never found evidence of that. No, I think that was a myth. Is this the whole Queen Victoria having a Queen Elizabeth, sorry Queen Elizabeth having an uncorker of messages? I think she did have that because it's mentioned in a Victor Hugo novel. I think that was the first mention and that was like two, a hundred years later.
+
+[00:05:56] Now she can't have had an uncorker. That's not at least a modern invention, is it? No, I think fate and you still exist, even if Victor Hugo is penning it. That's true. In his novel. Yeah. His fictitious novel. I don't know how many Victor Hugo novels you've read but there is a lot of extremely
+
+[00:06:11] boring technical true stuff. Oh really? Right, literally you'll get like three chapters on the sewage systems of Paris and stuff like that. Oh no, James's resentment comes out about the fact he's been reading the same Victor Hugo novel for a year, which is genuinely true, right? If anyone here remembers was talking about Victor Hugo, it was probably about six months ago.
+
+[00:06:32] Yeah, that was on our 2018 tour at like. Yeah, and I'm still reading Les Misurables. With the latest sort of modern instance that I read of the uncorker comes down to a 1978 book called The Twelve Million Dollar Note by Robert Crask. In it there's true stories and then there are also hoax stories and the thought is that this was in the book as a hoax story but it got mixed up in all the reviews and so on when people were talking about this is a true story and then this is a hoax and that's why it's spread.
+
+[00:07:00] So the idea just to explain that she had an official uncorker of bottles because Queen Elizabeth I didn't want anyone else uncorking bottles that contain secret information. So a bottle was found, wasn't it, that was thrown from a navy ship supposedly that had military details that were very classified. As if anyone was throwing bottles over, they would often be people who were in the navy or doing official work for the government, checking out currents and stuff like that. So they didn't want just anyone to be able to read them. And I don't know, I know what you mean and I think you're right to be sceptical and it's
+
+[00:07:34] probably not true but I don't think it's necessarily true that we're saying that one person had this as his only job or anything. It could be someone who was part of the Royal Household who also had this job. He's grim of the stool on the side, he's official uncorker of various royal things. So this idea of doing scientific experiments for the sake of finding out ocean currents and stuff by dropping messages in bottles in actually serves a purpose, which seems so weird to me. So there was this guy George Parker Bidder who threw a thousand bottles into the North
+
+[00:08:07] Sea in 1906 and he promised a shilling reward for anyone who found the bottle and then sent it back to him saying exactly where they'd found it. And in fact, one woman found the last one in 2015 and she posted it back to the address and the company in Plymouth that was still monitoring it had to then track down a shilling and old shilling looking on eBay and old antique coin collectors to send her. That's so funny. Actually the first ever message in a bottle possibly might have been for that reason, which was supposedly Greek philosopher Theophrastus who wanted to prove that the Mediterranean
+
+[00:08:40] was fed by the Atlantic and so he put bottles in the Atlantic and saw them go around the corner into the med and he could prove that. And this is a slightly not sure if this is true or not. And did he leave a message saying whoever finds this, can you tell me the location? Pretty much. That's the idea. That's cool. And he saw them go around the corner, did you say?
+
+[00:08:58] No, I think again, this is possibly not true, but he would have put them in the water and then there would have been, like Dan says, a message saying, contact Theophrastus on, you know. 07-5. One happens square, happens. There was a thing on the US government nautical site which said that a lot of the nautical maps we have now are based on those messages. So in the 1950s, I think loads of messages in bottles were put in the Gulf of Maine and
+
+[00:09:27] all the maps we have of all the different ocean currents there basically based on where everyone picked all those messages up and then they sent back saying, hey, I'm here, I've just found this. And that's where a lot of ocean maps come from and now we've got satellite technology and stuff. I think quite recently, I'm sure we must have mentioned this, but there was all those rubber ducks that fell off a tanker and they floated around everywhere and we got loads of data from that.
+
+[00:09:50] Yeah, really? So that's still happening. I think they still wash up every now and then. Yeah, they do. Yeah. So I read an article, there was a great mental floss article all about messages and bottles and then the article veers away because this isn't technically a message and a bottle, but it's a pretty extraordinary story.
+
+[00:10:06] So I'm just going to read it anyway. This happened in 2001. There was a girl called Laura Buxton and she was coming up to 10 years old. She released a red balloon into the air. She lived in Stoke-on-Trent in England and on the balloon, she wrote, please return to Laura Buxton and on the other side of the balloon, she put her home address. So they released it into the air. It disappeared a few weeks later, 140 miles away.
+
+[00:10:31] The balloon hit a hedge when it came down and the person who picked it up saw the name and saw the address and immediately went what the hell was going on and went to his neighbor because his neighbor had a daughter who was 10 years old who also had the name Laura Buxton. So it landed exactly with the same age, same name, with a person. They got in contact and they were saying, what amazing coincidence, let's meet up. So on the day of the meeting, the two girls independently without having decided what they were going to do, both came in the same outfit.
+
+[00:11:01] They both had a pink sweater and were wearing jeans. Oh my goodness. Wow. This is just collecting all the coincidence that happened at the moment. They were both roughly the same height, which was roughly two girls of the same age and roughly the same height. So they were tall, tall 10 year olds. So they were very surprised.
+
+[00:11:18] Oh, you're a tall 10 year old, tiny little coincidence. Yes. You like pizza? I like pizza. They both had brown hair. They wore it in the same style. They both had three year old black Labrador Retrievers. They both had a gray pet rabbit, not on them, they left them alone.
+
+[00:11:33] They both brought, they did bring their own guinea pigs, which were the same color and had the same orange markings on their high quarters. This is mental floss. So I know it sounds like I'm reading an April Fool's thing, but this is also like, if that was in the local news story, I'm a journalist in a local news story in Stokeham Trent. I would go and go, come on, give me some more. What have you got? Did they have a dog?
+
+[00:11:55] Yeah. Okay. What? Exactly. What color hair did she have? Brilliant. Nice one. I must have woken up on the wrong side of the bed.
+
+[00:12:04] God, that does happen sometimes. Sure. I mean, mental things. I suppose you could say the law of large numbers means that there's enough things that happen in the world which aren't coincidental, that some coincidental things do happen sometimes. Yeah. Yeah. Thousands of Laura Buxton's pick up fan balloons every day.
+
+[00:12:18] Yeah. Happen not to be wearing the same clothes. But I do think we should still get excited by coincidences. I know it's like, oh, this could happen anyway. It's still amazing. Yeah. I think maybe we did get out of bed on the wrong side, but on the other hand, did you do not, when you're a kid, release loads of balloons with notes on them and never get
+
+[00:12:35] a single fucking reply from anyone? Yeah. Is that what you're presenting now? Did you? Yeah. I've never done that. It was a very common thing for people to do when I was a kid. It was.
+
+[00:12:43] We don't do it now anymore because it's like bathroom environment, but they used to be really in vogue to do that. Didn't know that. Everyone, you'd write a note on your thing. We would use to go to Tiggies for our birthday every year, we'd use to Italian restaurant in Bolton, and then we'd get a free balloon, and then we'd write a note on it. Yeah. Yeah.
+
+[00:12:58] Same. Tiggies in Bolton was shooting them down. Do you remember when you first got them shared with thousands of labels, Dead Balloons with James Harkin's name on, there was one person, one girl who did it, and it landed in the background of the Buckingham Palace in the Queen's Centre Park. Did she? Did anyone remember that? She was called Elizabeth Windsor, wasn't she?
+
+[00:13:17] Yeah. And she was a 90-year-old girl from Buxton. And they were both turned out wearing crowns. You've got a beefy to two. Oh my God. Okay, it is time for fact number two, and that is Alex. My fact this week is that the original mastermind chair was specially modified to have detachable arms, quote, in case a contender is too large to fit between them, unquote.
+
+[00:13:50] Oh, okay. So we're going to explain what mastermind is for non-British people. Yes. So the long-running quiz show has been running since 1972. It's a very, like, paired-back quiz show. So it's a dark studio. You have a person asking questions, and you have four contestants, and they each come up to a chair one at a time, and the chair is the kind of the famous symbol of the show.
+
+[00:14:12] And each contestant is asked a specialist subject, so you prepare a specialist subject. So if you know, for example, Titanic facts and everything about it, you would get quizzed in a very quick space of time, everything about the Titanic, and the more points you get, you win. It's like an expert quiz. Yeah, exactly. And it was based on a guy who was in the war, in Second World War. He was an Arya F. Gunner, and he was captured in Germany and questioned by the Germans,
+
+[00:14:38] and it's kind of supposed to be almost the same way that he felt at the time, which is you've got big lights on you that asking you questions again and again and again to kind of put you under as much pressure as possible. Yeah. Yeah, his name was Bill Wright, and yeah, exactly that. He was a prisoner of war, and he thought, oh, this will make a great game show when he was being interrogated by the Nazis. And interestingly, he says that in Germany, so you were asked three questions, which is
+
+[00:15:04] name, rank, and number, and that's still the thing that in Mastermind, it's name, occupation, and specialist subject. He took the rule of three, and he directly associates it with that. And when they started it, Magnus Magnuson, who is the original host of the show, and his name is, he's Icelandic, so that's an Icelandic name, Magnus Magnuson. Do you know what his dad's name was? No, I don't. What his dad's first name was?
+
+[00:15:27] Yeah, it was not Magnus, because he changed it. Yeah, in Iceland, it's supposed to be, your surname is son of your father, so my dad's called Michael, so I should be James Michelson. Right. But his father was called Anna. Sigurstein, wasn't he? Sigurstein, so he should have been Sigursteinsson, but actually, his father was called Sigurstein Magnuson, and in Scotland, of course, you have the same surname as your father, so he
+
+[00:15:51] had to keep the same surname as his father. Okay, wow. That's very interesting. So, yeah, so Magnus, usually you'd be a quiz host, or you'd have a title like that. His title, when he was doing the show, was The Interrogator, so that's what he was introduced at. So it was completely tied into his experience. And he was actually a Nazi as well, wasn't he, Magnus Magnuson?
+
+[00:16:12] He was, yeah. Was he? No. Geez. That's why I missed that paragraph when I was reading into this. Do you want to know what's weird, though, is that another little linking that I know from our friend who was on Mastermind, so Ian Dunn, who's a big fan of QI and who we know.
+
+[00:16:28] He went on Mastermind and he said, when you fill in the forms, when you're saying what your specialist subject should be, it's called the Mastermind SS form. They have a top. It's not kidding. That's very funny. I read on Wikipedia, they have a list of a few subjects that have actually been rejected. A few of the ones that have been rejected include Roots to Anywhere in Mainland Britain by Road from Letchworth, the banana industry, not allowed to pick the banana industry as
+
+[00:16:54] you're not allowed to pick it. Nice. Orthopedic bone cement in total hip replacement is another ad. The last order of the wiki is perfect squares up to 99 squared. Yeah. What is a perfect square, Dan? It's 9801. But that's one point.
+
+[00:17:17] But in recent years, I read in an article that subjects like Faulty Towers, Blackadder, Roald Dahl, Harry Potter, so they've been ruled out because so many people have picked it that they've run out of questions, basically. They don't know what else to ask about Blackadder that's not been done before. The thing with Harry Potter is that last year, 262 people wanted to do it as a specialist subject on Mastermind. That's according to producer Mark Helsby. The first three winners were women, which was quite bizarre because far fewer women than
+
+[00:17:48] men have ended up winning the titles, not because women are less clever, because of centuries and centuries of systemic oppression, blah, blah, blah. But the first... You're not totally bought into that. I would say that your specialist subject is not feminism. Look, I believe that it's just a long explanation to go into. But yeah, the first three people who won were women, and then in 35 years, it's been eight women and 21 men who won it.
+
+[00:18:15] But after the first three years, everyone was speculating, is a man ever going to win Mastermind? Can we talk about the chair very quickly? Yes. The chair was voted in a survey for House Beautiful magazine as the second greatest chair, basically, of pop culture. Or can we guess the first? Yeah, have a go.
+
+[00:18:34] Yeah. OK. Just one extra bit of context, it was voted as the second most iconic chair of the 20th century. I was going to say the wool sack in the house of lords or whatever it is. Is it the sofa from Friends? No, it's not. OK, so it's...
+
+[00:18:47] Is it in pop culture, right? Is it chair, the singer? No, it's in... OK, so I'm going to say it's the 1960s. It is a chair that made the newspapers because it was a scandalous... Nixon. It was a scandalous chair, basically. Scandalous chair.
+
+[00:19:03] Elvis. Elvis? Did he have a chair? Didn't he? So you just said... He's toilet. He died on the toilet, didn't he? They often call it the throne.
+
+[00:19:11] Yeah, that's true. Well, no. Is it the chair that Liza Minnelli sat on in that film? Is that 1960s? No, it's not. But it's interesting, have a think in your head about what she does with that chair and you might get to it somehow. Chicago, you're thinking.
+
+[00:19:25] She sits backwards. Does someone sit backwards on it in an iconic photo? We are so close. Is it Marilyn Monroe or something? No, that's it. No, Christine Healer. Yeah, we go. Profumo.
+
+[00:19:33] Profumo. Yes. One of the most... Yeah, so that got voted. The Christine Healer sitting backwards on a chair as the most iconic. Very much. That was more about Healer than the chair. Except in its time, most comedians would parody that shot and still do of being
+
+[00:19:50] naked on a chair that way round in reference to that. So I think for that reason, that chair is the... It's the concept of the chair. Yeah, exactly. I think I can picture the picture you're talking about, which I think means it counts. We'll allow it. So the last chair on Mastermind was given to Magnus Magnuson when he retired. And they've got a new one now, which, like Alex says, has these detachable arms.
+
+[00:20:11] It is an Eames soft pad. It was designed in 1969. And it was designed by Charles and Ray Eames, who are basically the best chair designers in the history of the world. He's like, Trumpish of you. I have these chairs. They make great chairs. They are the famous.
+
+[00:20:28] They're the big names in chairs. They were a husband and wife couple, and they made loads of mass produced chairs. And the first thing they ever mass produced was a molded plywood leg splint for World War Two, which they gave to all the soldiers. And it was molded on Charles's own leg. And they sold 150,000 of them. So there were soldiers all around the world walking on an exact replica of his own leg. Wow.
+
+[00:20:52] That's amazing. It's good, isn't it? That's incredible. My favorite TV chair is the chair that was in the audition room when Robin Williams went to audition for the role of Mork, Mork from Ork on Happy Days. So I think that spanned off into Ork and Mindy, didn't it? But the producer was a guy called Gary Marshall, and Robin Williams came into the room, and he was unknown at the time, walked in, and Gary Marshall told him to take a seat.
+
+[00:21:16] And immediately Robin Williams went to the chair and stood on his head on it. And Marshall immediately hired him, saying he was the only alien who applied for the job. Wow. It's cool. Those stories are quite dangerous because it encourages literally everyone to go in some audition and really break the mold. And can you imagine sitting there for hours after every single person comes in and does
+
+[00:21:34] something really annoying with the chair? You're the only one who's sat on the chair. You're hired. That was the test. Do what I tell you. We're not looking for actual aliens. We need an actor. We need somebody who's going to be easy to work with, to do the same performance time
+
+[00:21:46] after time and multiple takes. Okay, it is time for fact number three, and that is Chuzinski. My fact this week is that one competition at the Highland Games used to be pulling the legs off a cow in order to win a sheep. They're really hard in Scotland, aren't they? Because when I was at school, I used to pull legs off a daddy-long legs, but in Scotland they pull legs off a cow. It sounds like a metaphor for, like, ruining something, because a cow is more valuable
+
+[00:22:19] than a sheep. So why don't you just keep the cow and leave the legs on? So the cow is dead at this point, I should say, so it's not as awful. Still quite awful. Yeah, it's pretty bad. It's not ideal. It's a strength test, and it would be impressive if someone could twist the legs off a cow with his own bare hands.
+
+[00:22:34] It's an emotional strength test as well to witness what you've just done to this poor cow. If you ever see Anna in the countryside and you want to impress her, you took the legs off the nearest quadruped. This was actually invented in 1820, and I don't think it was that long-lasting, but the idea of the contest was invented by a guy called Alistair MacDonald, who was a clan chief, and apparently he was just this really cool, eccentric, vibrant clan chieftain character. In fact, he was who the character of Fergus McIver in the Waverly, Walter Scott's Waverly
+
+[00:23:08] novel was based on. And yeah, he said, let's do this, that'll be fun, and the first prize is a fat sheep. And the reason it didn't last probably is because it was extremely difficult. Yes. I read one, I don't, I think it might have happened maybe once or twice in one or two different ones, but the one that I read was in Invigari, and there was only one man who succeeded after struggling for about an hour. As a reward, he received his sheep and the eulogistic speech from the chief.
+
+[00:23:36] Nice. Has anyone been to the Highland Games? No, I have been. I have been. Yeah, it's really awesome. It's really good. It's almost like a fate, the one that I went to is like a village fate. But then you've also got these incredible things happening with people throwing these
+
+[00:23:51] massive weights, like really, really high, like really high. Is this the big logs? The big, I didn't, I saw that. The cabot tossing. The cabot tossing. The main one I saw, they were like, they had these kind of, you know, like kettle bells that you would use in a gym. Oh yeah.
+
+[00:24:05] They were throwing this over a big, big, big, high height. Wow. I was really impressed. Is it kind of like high jump? Is there a bar? Yeah, so you get higher and higher and higher every time. And the cabot toss is not about how far you can toss it. It's about you have to toss it so that it lands at 12 o'clock, so it lands upright.
+
+[00:24:23] It's got to stay up in the air for like an hour and a half, depending on time you throw it. Don't throw it at 9 a.m. It's not, yeah. As in it lands, like facing away from you, as it were, so you need to do a full rotation 180 and then land exactly facing away from you down the line. Exactly perpendicular to the earth. Yes.
+
+[00:24:44] So it would be extremely hard to pull the leg off a cow, right? I think they twisted. People tend to say twist quite a lot. Is that how you pull it? Is that? I think that is how you would do it, yeah. I think so. Let's say you want to pull a chicken leg off a chicken.
+
+[00:24:58] You tend to give it a twist while you're pulling, don't you? I can see what you're saying, actually. I can picture that now. Do you know the ideal shape for a cow in the 100th century? It's got four legs for starters. Well, unless it's at the highest. Is it kind of square? Because I can't really picture cows, because I can't picture anything, but if I ever had
+
+[00:25:14] to draw one, I'd draw it particularly square for an animal, right? And that's if you picture drawings in the 19th century, then cows would be vast and very square, and there was a lot of competition between members of the nobility and landowners about getting the right shape for your animals. So yeah, if you look at cows, they don't look like real cows, and the actual, the size of a cow between 1710 and 1795 increased by a third, so people were really building up their cows. So what were the dates?
+
+[00:25:40] Between 1710 and 1795, so that was when they started getting bigger. It's only a couple of generations. Yeah, absolutely. But cows were supposed to be rectangular, exactly rectangular. Sheep were supposed to tend towards being oblong, and pigs, the ideal shape for a pig was a football shape. Well what kind of football? As in, in those days was four rounds.
+
+[00:25:59] It's FA regulations, standards, black and white, hexagonal. I think rounds, so if you get pictures of pigs, very often they'll be the picture with their stomachs literally on the floor, like a potbelly pig. Because eventually they're going to turn them into footballs, didn't they? Yeah, exactly. So why were the cows square? Because usually when you make things square, it's so you can stack them. But I don't think they did that with cows.
+
+[00:26:19] Bit more in the legs. No, this was just getting them bigger, and that was the shape they tended towards. I read, just going back to the history of the Scotland Highland games, I read that the very first one, so they don't know exactly where the first one occurred, but it is believed that one of the first early venues was at Feta Resso, and technically it's a few miles south of the Scottish Highlands. So the first one may not... It's in the Lowlands.
+
+[00:26:49] It's in the Lowlands. So it's actually the Lowland games. That's a really good fight of history. If it's true, yeah. Unfortunately, as the article says, if it did happen there, it predates recorded history. We'll never know. There's really the first one, which is kind of a modern style, was in Breymar in the early 1800s, and it came at a time when the Scottish were kind of finding themselves, and that's
+
+[00:27:13] when all that kind of tartan... It did exist, but it was when it was properly... Being formalised, it's quite an informal type thing. There aren't the Highland games, or there weren't the Highland games where it happened at the same time. No, there's that one. It's more just like a festival type thing, isn't it? Yeah.
+
+[00:27:28] Yeah, various times over the summer, every place will have one. And it's weird. It's not just these... Any time I've thought of it, I've thought of throwing these giant logs and, as you say, the kettlebell style weights, but they do stuff like Biggest Bowl of Porridge as a competition, and there was one that was made in 2010 that set the record, which is... It was 690 litres of porridge, so it could feed 2,000 people. It was judged by Goldilocks, who said, this porridge is too small.
+
+[00:27:55] It is all tourist as well, isn't it? Yeah, pretty much. And you know who used to go to it, Billy Connolly all the time, and as a result, he used to bring his best mates along, who happened to be famous comedians as well, one of which who went was Robin Williams, just to bring old alien chair man back into the conversation. Oh, come on. Yeah. OK, it is time for our final fact of the show, and that is James.
+
+[00:28:28] My fact this week is that you can cure your arachnophobia by drawing pictures of smiling spiders. So good. I'm actually going to try this. Can you already? Are you arachnophobic? Yeah. Yeah, me too.
+
+[00:28:41] Do you need to draw like a nude, a life model kind of thing? Do you need the spider there? Well, they are always usually nude spiders, because they can't get trousers with eight legs. So it's true. Did you like a sexy photo of a spider, would that make it less scary? Like a profumo sitting on a chair. Yeah, four legs over your side.
+
+[00:28:58] So this is a clinical hypnotherapist called Adam Cox. He is British, or he practices in Britain. And he encourages his clients to draw brightly colored smiling spiders with big eyes. And he says that it reduces the feelings of anxiety towards the arachnids. But so does it cure you in a, presumably it's not like, OK, I'm going to be encountering a spider in the next five minutes. I'm going to quickly draw a picture of a smiling one to. No, it's a long term therapy.
+
+[00:29:27] So people are going week after week and drawing more and more spiders, and eventually it makes them feel less anxious. It maybe sounds like the early stages of a very severe phobia treatment. So as in you can't even, because you know there are some phobias where you can't even say the word of the thing you're scared of. And the idea of drawing a spider is probably really scary and horrible and thinking about the details of it is probably part of it. Well, I am an arachnophobe a little bit, not as much as I used to be as a kid, but I would
+
+[00:29:49] always find it really hard to see a picture of them in a book. And even now on the internet, I find it quite hard. I have to scroll past it. Me too. Yeah, just get it out of shot and just read the text. It's pretty hard to research this. But so what's interesting as well is there was a study that was done in Queensland in Australia and along with a UK university in Sussex.
+
+[00:30:13] And they were saying that if you have a fear of spiders, if you have arachnophobia, you are more likely to see a spider as in you're hardwired, as I say, to notice the threat. So if you were out in Queensland and you were walking through the bush, if I'm walking with you and I'm less scared, I might not see a spider that's obviously there, but you are on edge waiting to see one. Yeah, actually, it just that's, that's almost logical. I do have a problem with movement in general. So if I see any movement out the corner of my eye, it really freaks me out.
+
+[00:30:42] And the reason they their movement is particularly weird, because I think we mentioned recently actually how they move by hydraulic pressure. I hadn't realized it was all spiders moving that way. So when they stretch their legs out, they're not doing it with their muscles at all. They're pumping blood out through their legs, which is why they move in that weird jerky way. And that's why when they die, they always shrivel up because the pressure disappears. They shrivel up.
+
+[00:31:05] So basically when they run, they have to have an erection in every one of their legs. That's exactly it. Yeah. It's very quickly getting harder than not getting hard. Yeah, exactly. Yeah. The genitals are hydraulic as well, by the way. Yeah, they operate with some hydraulic pressure and also they obviously have this really cool thing, spider penises, where they can keep on having
+
+[00:31:24] sex without the spider. So there are quite a few spiders like the orb web spider, which will start having sex with the lady spider and then attaches its penis to get away. Because I have to take a call. I'm so sorry. I'll be back in a minute. You have this. Exactly. And it's actually more effective without its spider attachment.
+
+[00:31:43] As soon as the spider leaves, the penises tend to eject about 70 percent of their sperm after that. So they keep pumping sperm out. Even when the spider's gone. Wow. I was I was looking into general phobias because obviously there are so many phobias out there and I found this long list just to see which ones are actual phobias because there must be a phobia for everything.
+
+[00:32:05] But there's a limitation obviously on ones that have been given names. So the ones that I found that I thought were quite interesting that have actual names assigned to them, there's a phobia for the fear of opinions. That's very interesting. I'm not really sure what I think about that. There is the fear of flutes. When you say there is, as in a guy on the Internet decided to attribute names to this is a big list that a guy wrote.
+
+[00:32:34] Not Wikipedia is called something like phobia, weirdphobias.com. I think that's a really difficult thing, isn't it? Because there's a list of millions of them. There's like a fit someone wrote one about a fear of a duck secretly looking at you or something like that, which is obviously not true. Then on the other hand, there are such weird ones that are true. It's really hard to tell which ones are and aren't. So like fernphobia is definitely a thing.
+
+[00:32:57] Being scared of ferns, I think quite a few famous people have got that. Fern cotton, which is very difficult for her. Yeah, she's scared of cotton as well. Yeah, and fear of like holes and stuff like that is really common. Yes, I've heard of that one. Fear of chins. Do you reckon that's a real one? I can't imagine why, but that's what I mean.
+
+[00:33:15] It's hard to say what it is and whether it isn't. Yeah, you know, a guy had his arachnophobia accidentally removed quite recently. So you can get rid of an accident, but it does involve really invasive surgery. This was a guy who'd always been terrified of spiders. And then also he got an illness where he started having seizures. And so he went in for an operation to get rid of his seizures, and they had to remove a bit of his amygdala. And the surgery went really well, but he woke up and he found
+
+[00:33:41] just two slight changes to his character. He had this stomach lurching aversion to a very specific kind of music. So when he heard it, it was a music on a particular advert. He was terrified, just hated it. And he was no longer remotely afraid of spiders. That's really useful. I have a fear of invasive brain surgery, though, so it's a bit worse than my fear of spiders.
+
+[00:34:03] There's an organization, a charity organization in the UK called Triumph Overphobia Top UK. One of the managers is called Trilby Breckman. And Trilby Breckman runs self-help groups. He sounds like a really cool guy. And he said, we once had a guy who came to us for six weeks and never said a word. He just sat there.
+
+[00:34:24] Then eventually he managed to say, I've got a social phobia and then ran out of the room. So good. But. I mean, we shouldn't be laughing. What are we listening? And this is... Who the hell recommended group therapy to a guy who was a fear of social environment?
+
+[00:34:42] It's OK to laugh because he came back the following week and within a year he was running groups by himself as well. So now he's got a fear of being alone. He's in the group all the time. I was looking up what... Because I was like, what are spiders scared of? Because, you know, spiders. Most spiders are terrified of ants
+
+[00:35:01] because ants contain formic acid, which is really bad for spiders. And a lot of them will run for their lives if they see an ant, as it were. That's like a quote that a researcher said it would have run away. But in the University of Canterbury found that they even run away from... Some spiders will even run away from another species of spider called a jumping spider with the gregarious jumping spider, which pretends to be an ant.
+
+[00:35:25] That's its defense mechanism. And it scares away other spiders. So it hides its legs. I think we said that they hide two of their legs, don't they? So some species of spiders do that and pretend to be ants and that scares other species of spiders who are scared of ants. So someone who's scared of spiders myself a little bit, if I was to dress as a massive ant,
+
+[00:35:42] do you think they'd all kind of just leave me alone? Possibly. So the spiders in the TV series I'm a Celebrity Get Me Outta Here must be feeling good this year because they're going to be missing a big ant on set this year. Oh, very good. Why do you think you should never pick up a tarantula? Because I hate them. Because I might shit myself.
+
+[00:36:05] And if I shit myself, no one's going to hang out with me anymore. That makes your social phobia even worse. Because you'll scare them too much and they'll die. It's similar, so it's for their sake. So their abdomens are incredibly thin and one little touch on the abdomen with your fingernail could split it open and they'll spill their guts all over the place. So you can't just like tickle it on its tummy or anything.
+
+[00:36:23] They hate a tummy tickle. Stop doing that. And if you drop a tarantula, it'll almost certainly die. Really? Yeah, this is the advice of the British Tarantula Society, which is a bit of a QI favourite, I think, because it was founded in the 1980s, but the woman who founded it was called Anne Webb, which...
+
+[00:36:40] Oh, yeah. That's going to make watching Home Alone again a more harrowing experience, knowing that tarantula that gets loose and gets dropped and stuff. I mean, they must have had a stunt spider dressed as a tarantula, if that's the case, because he would have burst open in some of the scenes. I think you're assuming too much knowledge of Home Alone from some of us.
+
+[00:36:59] I can't immediately remember the tarantula scene. Oh, it jumps on his face. The only thing I remember is Kevin with his hands to his face screaming because he's been left Home Alone. Yeah, so you've memorised the poster. Sorry, I'm going to have to correct you again. He's not screaming because he's left Home Alone. He's screaming because he put aftershave on his face.
+
+[00:37:16] Was he? Yeah, yeah, yeah. And he was pretending because he saw his dad screaming like that. I don't think so. And then you suggestively in the posters, I mean, he looked like he's screaming at the two robbers who read the side of him in the famous poster. But in the context of the film, he's never screaming.
+
+[00:37:30] I have an extremely clear, extremely fake memory. His mum screams. His mum sits up on the phone and goes, Kevin, that's, that's me. Does he not say, no, he doesn't say Kevin. Why would he say his own name? Doesn't make any sense. I still think you're right, though.
+
+[00:37:47] What about in Home Alone 2? Does he do it there? No, because he's lost in New York. Although she says Kevin again in a scream. You know, in the Edvard Munch's The Scream, does he do it? No, that's actually he's just put aftershave on his face. Yeah, yeah. OK, that is it.
+
+[00:38:03] That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At James Harkin. Alex. At Alex Bell.
+
+[00:38:16] And Chazinsky. You can email podcast at qi.com. Yep, or you can go to our group account at No Such Thing, our Facebook page, No Such Thing as a Fish, or our website. No Such Thing as a Fish.com. And if you're interested in our podcast, No Such Thing as a Fish.com, Alex designed it. Thanks, Alex.
+
+[00:38:32] Has everything, links to our tour, our new book. It's got a behind the scenes documentary called Behind the Gills, which shows how we act on towards a lot of ironing and and everything else of all our previous episodes and so on is up there. So check it out. No Such Thing as a Fish.com. We're going to be back again next week with another episode. We'll see you then. Goodbye.

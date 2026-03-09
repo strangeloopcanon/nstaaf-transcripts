@@ -1,0 +1,339 @@
+# No Such Thing As A Fish - No Such Thing As The Little Spreadsheet Loving Mermaid
+
+- Episode date: September 8, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-little-spreadsheet-loving-mermaid
+- Slug: no-such-thing-as-the-little-spreadsheet-loving-mermaid
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode. No Such Thing is a Fish, a Weekly podcast this week coming to you live from Aberdeen. My name is Dan Schreiber. I am sitting here with Andrew Hunter, Murray, Anna Tashinsky, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, and that is Andy. My fact is that in America, you can watch televised Microsoft Excel competitions.
+
+[00:00:52] You can do a lot of things in America. It doesn't mean you should. It's the newfound land. I'm so excited. This is a thing called Microsoft Excel Esports, and it's been on, I think it's been on a couple of years. It was definitely on this year. It was on ESPN, which is a sports TV network, and it's, It's called the Excel All-Star Battle, and it was organized by a group called the Financial Modeling World Cup.
+
+[00:01:17] And there is a slight caveat here. It was organized as part of something called the Ocky, which was a 24-hour celebration of the stupidest imaginable sports. However, that included corgi racing, stone skipping, a number of other dumb stuff. But it did happen. It was a televised thing. There were commentators who were Excel pros. The aim of the game, basically, they had a problem setting up this as a sporting competition. because, as some of you will have noticed, Microsoft Excel, not a game.
+
+[00:01:45] It's fun, but it's not a game. And so they had to invent ways of competing at Excel. So one of the challenges was to create a yacht regatta game on Excel, which included wind speed simulation and directional vectors and things like that. Yeah. I think another one of the contests they call Excel Golf, even more tedious than it already is. But I think that that's all about getting to your answer
+
+[00:02:14] in the shortest possible amount of time and that's kind of what golf is about, right? Make the game go by as quickly as possible by doing it in the fewest shots so you can get to the bar. See, I think it sounds... I'm with Andy, I think it sounds really exciting. I was reading about the commentators, so they have commentators who watch as the Excel spreadsheets are being made.
+
+[00:02:31] About Bill Jellon? Bill Jellin, aka Mr. Excel. And he's just like... So, like, some of the transcripts, It's sort of them going, oh my God, look what they're doing, oh, my God, they're going for it. And then there was this one bit that goes, oh, no, the F1 key, the dreaded F1 key. And basically, the F1 key brings up some help for, do you need help on your Excel? And it's a key, I think you told us before, it's a key that's hated by Excel spreadsheet people.
+
+[00:02:57] They actually take it out of the keyboard. It's so hated amongst members. I thought they didn't hate it. It was that it helps you do a load of the functions. But actually, if you're really good at knowing all the shortcuts, you don't need. did. So they take it off the keyboard as a kind of pride. It's like, I don't know what a good example would be, taking the head off your golf club to show. I'm so good at golf. You're so good. Yeah, yeah. I can do it just with the stick bit. Do you think anyone ever says when they're asked
+
+[00:03:24] what sports do you like to watch, they just say F1 and leave it at that? They're not probed any further. I was reading about a famous Excel sportsman called Dermard Early. He's Irish. and there was an interview with him, and basically he got into competitive excelling because he was really popular at work because he was the only guy who knew how to use Excel. I bet a lot of us here know about that, you know, going into the office, being the only one who knows how to use a spreadsheet
+
+[00:03:55] and just people kept coming up to him. And so they asked him, does Excel make you popular? And he said, yeah, it made me popular with my peers and with people at work. And they said, do you get any fan mail? And he said, yes, I do. well, I get a lot of LinkedIn connection requests. I think they're rock stars.
+
+[00:04:14] Just back to Bill Jellon for a second, reading about his life. He goes around the world, giving talks. He's a hugely popular guy within the Excel world. He's written 60s... It's an important caveat, isn't it? I'm a hugely popular guy within the Excel world. But he's written 67 books on Excel.
+
+[00:04:31] He's got a list on his website as well about the cool things that he's done so that when you read it and you know Excel, you're like, oh my God, this guy's amazing. So check out his list of his awesomeness. He helped a client in Australia cut a 40-hour-a-month task into a four-minute process.
+
+[00:04:46] That's pretty crazy. He was immediately fired. Yeah, look at this. Spent 14 minutes with a seminar attendee in Trinidad to reduce a three-day task to a two-minute process. Yeah, wow. And then this is randomly thrown in there. Once won $1,000 for stopping an electric fan with his tongue
+
+[00:05:04] at a local stupid human tricks competition. Say $1,000. $1,000. That's quite a low sum of money for an event where there's a non-zero chance you'll lose your tongue. You might insure your tongue before you go to the event. For $2,000.
+
+[00:05:22] Yeah, yeah. Win, win. Then if... So even if you lose it, you get $3,000. If you stop the fan, you get $3,000. I don't know. If you've thought this through. If you stop the fan, but you'd lose your... your tongue in the process.
+
+[00:05:35] You need a spreadsheet to work it out. And that's where. Sounds great. Thank you. They could have shortened that bit that Andy just said, which felt like about three days to just two minutes. You guys, I'm sure, came across the European spreadsheet risks group in your research for this.
+
+[00:05:57] What a bunch of heroes? What do they do? Their whole raison d'etre is to warn business leaders about the risks of spread. So there are millions of problems which arise if a spreadsheet is bad, or if there's human error or anything, you know, lost revenue, fraud, systematic failures, people taking three days over something, it should take two minutes, all of it. And they have an annual conference to network and discuss spreadsheet risk. And they have a page on their website, which is called horror stories. Oh, give us one. I'll do the crackling fire as you tell it. It was a dark and stormy night. Has Hollywood bought the right to any of their horror stories? I know, they haven't. It can be really dangerous, though.
+
+[00:06:41] In seriousness, the dangers of spreadsheets led to austerity, which, I mean, you probably may have read about this, but important to remember, that whole period of shit that we all went through about 12 years ago. Glad things picked up after that. Oh, would not like to be in a timeline where things just got worse and worse and worse.
+
+[00:07:01] that was all based on this Harvard paper. So the reason that George Osborne and David Cameron launched austerity was because of this Harvard paper that did a bunch of calculations which showed that, I think, if your debt was exceeding 90% of your GDP, then your economy would shrink. And so they said, okay, the economy is going to shrink if we don't launch austerity. Actually, it had been done on a spreadsheet, and a bunch of rows of data had been missed out,
+
+[00:07:26] which, if they'd been included, would have shown that the economy wouldn't shrink, didn't need austerity at all, all for nothing, sorry to be a downer. I mean, was the reason they did it really the spreadsheet? Or were they looking for an excuse and found this paper? George Osborne deleting those rows in the middle of the night. That was, I think, mentioned by this group, wasn't it, that Andy was talking about? And another one was MI5.
+
+[00:07:53] They had a spreadsheet of a load of phone numbers that they should bug. But unfortunately, the spreadsheet cut off the last three digits. and turn them to 0-0-0. And so they started bugging people that were completely the wrong number. Oh, my God. That's so funny. Incredible.
+
+[00:08:10] Oh, they must have got themselves in such knots listening to the conversations about what we're having for dinner tonight. I think that means there's going to be a weapons drop in Kazakhstan? Yeah. Zero-zero-zero is also literally the non-spy, isn't it? Because every number up is...
+
+[00:08:24] O-O-Zero. Yeah. The worst spy. The worst spy. I read in an article where they interviewed Dan Bricklin who invented the spreadsheet. Apparently, when he invented it, people thought that people who were using it had magical powers.
+
+[00:08:40] This is why he said, because they could do these jobs so much quicker than anyone else. But he said that not everyone quite understood what they did. So some people thought that it was just a way of showing numbers and didn't realize that they had ways of doing calculations and stuff as well. And so according to this guy, some people would have the spreadsheet and then would glue a calculator to the side of their keyboard so that they could do the calculations at the same time. Have you guys heard of Paul McKenna, the hypnotist?
+
+[00:09:08] Yeah, of course. Of course. So Paul McKenna decided who he should marry with a spreadsheet. As in he wrote down the pluses and minuses. Well, he was at a time in his life when he was going out with, he was dating and he would go on dates with lots of women and he then realized, oh, I don't think I'm looking for the right thing, or he wasn't finding the right person.
+
+[00:09:29] Yeah. And a friend pointed out, you're not happy. You're going on all these dates, but you're really not happy with how your romantic life is. Why didn't you make a spreadsheet to find out who you really love? And he did so, and he found out it was his long-term personal assistant, Kate, who... Who was also the person who did all his IT. No, I know that.
+
+[00:09:50] I mean, I did... I mean, it sounds like he's being Paul McKennaid, doesn't it? Yeah. Wow. Amazing. Did he marry her? Yeah. He did.
+
+[00:09:58] Yeah. Okay. Good to know how that worked out. But well... Have you guys heard of less famous but Ariel Fishman? No. Ariel Fishman has... It sounds like someone from the Little Mermaid to me.
+
+[00:10:13] It does, doesn't it? Yeah. Ariel is the Mermaid. Ariel is a mermaid, and she's a fish woman. Yeah. Yeah. So this is her brother. This is her brother.
+
+[00:10:22] And he has the largest collection of spreadsheet software in the world. He's been collecting it since its early days. James, you look so excited by us. We don't need to ask if he's married. So he's got over 800 individual unique bits of Excel and other companies.
+
+[00:10:43] Because back in the day, when spreadsheets started, there was a boom. Companies were trying to get involved in it. Boeing even started their own spreadsheet software, but they lost out to Excel and Microsoft. And so he's got a collection of 800 unique pieces of software. He's been collecting it for many, many years. And apparently there's one, kind of like the Holy Grail, the missing thing that he's been trying to get his hands on.
+
+[00:11:04] This is a bit of an old article, possibly he's got it now. But Excel 2001 for the Mac is the one thing that he can't get his hands on. So if anyone has it out there listening or in the audience here in Aberdeen, you're sitting on gold. You're sitting on precious, precious gold. Wow. And Ariel Fishman would like to hear from you. Do wrap it in plastic before he sent it to him, because obviously he lives under the waves. And, uh, yeah.
+
+[00:11:32] Yeah. Oh, wow, and Ariel collects things, doesn't she, as well? She does. Imagine what a boring film that would have been if what she collected. Versions of Excel. I've got spreadsheets and we're adapted. Under the C.
+
+[00:11:46] And when I say C, I mean column C. It is time for fact number two. and that is Anna. My fact this week is that in 1966, the World Chicken Congress happened in Kiev. Super. I know basically nothing else about it. And if we're being really pedantic,
+
+[00:12:22] it's the World Paltry Congress. But potato butada, right? Well, I think that's quite important because in 2019, 204 and 2001, the World Paltry Congress was in Turkey. Oh, brilliant. Yeah. And in 2017 and 2003, it was in northwest France,
+
+[00:12:41] 30 miles from the city of Brest. Nice. What a shame that the city of Peking changed its name. Yes. Not for the people of China who were glad to be out from under the yoke of... But yeah, no, for the pun, I think. But I think if you told them the reason to keep it,
+
+[00:12:58] they might have, right? It does sound like a wild... It sounds really fun. It sounds like a good place to get. Well, I think so, yeah. What would you rather attend? The World Excel Championships or the World Paltry Congress, 1960s.
+
+[00:13:10] I couldn't choose. I'd tear myself in two. If they were on the same day, that would be tough, wouldn't they? Well, just they've got interesting sounding papers and sessions. So this year, papers have included recent advances in ostrich farming. Wow, yeah, ostrich is a poultry too. That's interesting.
+
+[00:13:26] Can I just point out for the listener at home? Andy went, wow, yeah, right, before anyone in the audience made any noise. I think I'd heard a collective intake of breath. Recent advances in duck nutrition. Okay, that's weaker. That is definitely weaker. And mechanisms of regulation of the sperm acrosome response in chickens, the role of membrane rafts. Wow.
+
+[00:13:48] I've always wondered what their role was. So sub-question to the one before. You're at the conference. But, uh-oh, all three of those talks are happening on different stages at the same time. I'll go to ostrich farming, I think. Are you going to have some advances in Austin Charming? I just don't think I'd understand that one. I was clinging on as I read it out. In the 1966 one, all the papers had to be presented.
+
+[00:14:14] So you had to present a paper that was about 2,500 words, and then you read it out to a scintillated audience. And they all had to be typed up in English, French, Russian and German. And you'd have to type it up, you know, yourself individually. And there was just a thing in the bump that they sent out for it that said, should the author have any difficulty translating the paper into Russian, in case the author struggles, the organising committee provides it free of charge. But which implies that the others, you've just got to be trilingual,
+
+[00:14:42] as well as being in poultry bro. It's English and German. Yeah. That's a challenge. Wow. It is. But, yeah, the world poultry Congress is a big deal. One interesting thing about poultry farming, right,
+
+[00:14:53] is that some people think that we are currently in the geological age of the chicken. Oh. And the reason being that we eat as a species, so many chickens, and we farm so many of them. And because when we finish with them, their bones often go into landfill, they'll be left for long, long periods. And so in thousands and hundreds of thousands of years' time, they'll just find loads and loads of chicken bones everywhere and just assume that this was some kind of chicken culture. Oh, my God. They were running a place, yeah. All the buildings that were there were built by chickens. I guess they'll think that.
+
+[00:15:26] We'll be wiped out of history. and it's just, wow, that's so exciting. Or the only other conclusion you can take is that the dinosaurs weren't the biggest thing at the time, just people were eating a lot of them. Yes. There was something bigger that was eating all of them. That's such a great point.
+
+[00:15:42] Up until, I think it was the Second World War, we didn't really eat chicken that much. It was really expensive to produce them. You would eat, this is, the story I read was more to do with America, so it was about the production and how much it would cost. And then there was a competition run called the, chicken of tomorrow. And the chicken of tomorrow competition was every farmer was invited to come and present their chicken. They sent in the eggs, so they didn't even bring a chicken. So they're just
+
+[00:16:08] like sent the eggs and then the eggs were incubated and they hatched. And then they looked after these eggs and they watched what kind of chickens were yielded and how meaty they were and how quickly they could produce eggs and so on. And they were trying to find a chicken that they could then mass farm and produce so that all of America could basically eat chicken as a standard meal. The chickens we're eating now are basically they are the descendants of the chickens of tomorrow. Yeah, of this one competition. The chickens of today are the chicken...
+
+[00:16:33] The chickens of tomorrow. It's like back to the future, but the chickens. It sounds absolutely bananas. So there were 40 finalists in this competition and you had to submit 720 eggs as an individual farmer and then they were, yeah, as Dan says, they were raised in control conditions, they were all fed
+
+[00:16:50] the same thing. And then after 12 weeks the survivors were slaughtered and judged, so it sounds like it was really fun. Gosh. If Miss World was like that, it'd be. It's weird that you mention beauty queens, James, because as part of the celebrations, the jamboree, to celebrate the offing of however many thousands
+
+[00:17:08] of the surviving chickens, they had dances, they had a parade, they had a rodeo, and they also had a chicken of tomorrow queen, who was a beauty queen who would go around promoting the chicken of tomorrow. Oh, a human. Yeah.
+
+[00:17:21] A human. She was called Nancy McGee, which is a good name, I think. Chicken of Tomorrow Queen. And she was like, we've talked about industry queens in the middle of the century. They were there to promote the industry. Well, we talked about Marilyn Monroe ages ago
+
+[00:17:33] being the asparagus queen of somewhere. Artichoke. Oh, sorry, was it? Oh, sorry. Can you idiot? Do we know anything more about Nancy McGee, though? I don't know. I mean, she might still be alive.
+
+[00:17:45] She was about 18 at the time she won. That was 1948. Yeah. So she didn't have as big a Chicken of Tomorrow career as the person who came after her. So it was so successful, Chicken of Tomorrow. 1948, I think it was,
+
+[00:17:57] that they had another one in 1951, and there's a huge star, Joan Walters of Arkansas, was the queen of Chicken of Tomorrow contest, 1951. She was a big celeb. Was she? Well, in a very small part of America. Yeah. Wow.
+
+[00:18:11] But no, we don't. All I know about the contest is also when they sent their 720 eggs, because they had to be really carefully timed, because you've got to start incubating them at precisely the right time, they had to be loaded onto trains that were specifically timed
+
+[00:18:25] to take the eggs and get them to the place where they were going to be incubated at the perfect moment for them, you know, to be put under heat. So special egg trains. Speaking of eggs, by the way, the National Egg Collection of 1914, I don't know if you came across that. It's pretty amazing. Andy, I can tell that you did. The idea of this was it was during the war,
+
+[00:18:46] and what you would do is you would collect some eggs and you would send them over to France for recovering soldiers or people on the front line. Their aim was to get 20,000 eggs a week over to France. And in the week of the 16th to the 23rd of August that year, they managed 1,030,380 eggs that they sent over. It's insane. Were they intact, though?
+
+[00:19:13] Were they like, can you use bubble wrap next time? It was a massive omelet, they have eaten. No, it's bizarre, because it was, think of the one fragile, precious thing you don't want to send into a war zone, an egg with his little shell. The problem was they put them all in one massive basket, didn't they? It does sound incredibly sweet. There was the theory that eggs were so nutritious, they were the best thing for, you know, our boys over in northern France,
+
+[00:19:37] and there were lots of protein, and they were great for recovery. And children would write their names and addresses on the eggs, and sometimes soldiers who were given the eggs would write back to the children. On what? Another egg? No, fake. On a sausage? Just on a bit of paper. But by August 1916, they got through 22 million eggs in total.
+
+[00:20:00] It's so amazing. It's bananas. You could put like little messages as well as your name and address, couldn't you? And they called them egograms. Oh. So sweet. Nice. If you're a chicken farmer, sometimes your chickens will try and overthrow you, and you have to resist.
+
+[00:20:14] What? This is true. So, it's... Have you recently read Animal Farm? Yeah. No, so it's, you know, the thing of the pecking order is a real thing, actual hierarchies in chicken societies. And some cockerels will try to challenge the pecking order
+
+[00:20:32] and start pecking you, the farmer, and you have two methods at that point to kind of reassert your dominance over the whole barn or the whole flock or whatever it is. So method one is to put on thick leather gloves and you just pin the aggressive rooster to the ground. Every time it comes at you, you just say, no, stop. chill out, I'm the captain now.
+
+[00:20:54] And you just do that. And eventually it just gets the message and it's like, okay, I submit, you know. The other option is to kill and eat that rooster. Do you have to eat it in front of all the other chickens? I think so. Oh no. Let this be a lesson to you all.
+
+[00:21:10] So you said there's only two ways to stop this, right? So have there been situations where neither method has been deployed and a whole farm is now being run by a chicken with some dead farmer. Yeah, yeah. You've seen those signs. You know, pick your own humans
+
+[00:21:25] at the size of the motorway. You know, Bernard Matthews? Ten chickens in an overcoat. Do you know what fart eggs are? Sorry? Fart eggs. Fart eggs. Or cock eggs are the same thing.
+
+[00:21:40] Or wind eggs. They've got lots of names for this one thing. And they're tiny, tiny eggs. But I didn't know the hens did this. They sometimes get laid by a completely ordinary hens. and it's often when they're just learning how to lay, I think, and they haven't got it quite right. Just a mini egg.
+
+[00:21:54] It's like a mini egg compared to... It's incredible they get so many of them every year, and they have to pump the chocolate. Yeah, then they get the chocolate right inside. But do they fart them out? Is it like a cough where it's like, oh, God, there's an egg? I don't know what the process is, but it's not the passing of wind that causes it. I guess it's just called that because it's like an accidental,
+
+[00:22:16] whoopsie, I've laid a useless egg. Although sometimes very good for dieting, I'd imagine, because they're often without any yolk. They're all white. Good for making a meringue. Very good for meringue. A tiny meringue. And there used to be, if you do have a cock egg or a fart egg,
+
+[00:22:33] there is, well, there's a myth that used to be produced by a coccatress, a mythical serpent, and that the only way to get rid of the curse that would be on you is, because it could kill you with an evil stare, is by throwing the egg over the house and smashing it in the field next door. So you've got to get rid of that egg. Or you can just kill and eat the coquettress.
+
+[00:22:55] It also works. Yeah. Can I quickly ask a very stupid question? I just realized I don't know about the sack. So these are tiny, tiny eggs. Yes. From a chicken that would usually have big eggs, right? Well, normal size eggs.
+
+[00:23:07] So when an egg is growing inside, I always assumed that it was the size it was always going to be, and it sort of forms a shape and congeals and stuff. Do eggs start as tiny little eggs and slowly expand like a balloon? No, they definitely don't do that. Okay. I think so. I think you need to go to next year's World Poultry Company.
+
+[00:23:29] Just very quickly before we move on chicken Kievs or chicken Kyivs. We obviously often call them these days. Invented possibly in Ukraine, possibly in Russia, possibly in France, we're not really sure, I think invented in Britain. because the modern chicken keef, the old ones were basically buttery and with herbs and stuff,
+
+[00:23:51] and if you go to Russia and Ukraine, that's kind of what you get most of the time. Modern ones with garlic in, probably invented by a woman called Kathy Chapman in 1979, who was working for Marks & Spencer, and this was the first ever chilled, ready meal, which she invented. And when she invented it,
+
+[00:24:11] the guy at Marks and Spencer, who was in charge was like, I don't like garlic, so no one else likes garlic. We're not going to make them. And she was like, no, no, I'm telling you, tell you, like, garlic is the next big thing. Honestly, it's going to be huge.
+
+[00:24:23] And within about two years, M&S had to set up a whole new factory just to make chicken chips. Oh, wow. Amazing. That's so cool. Rock it. Applaus. Applaus for that woman, who would have thought.
+
+[00:24:37] Can I do one more really quick thing? Okay, very quickly. The USA has a secret stock of chicken farms, which are guarded. and no one is allowed to know where they are, apart from the people who work there. So this is because they make, they truck them to, again, secret facilities, the eggs that are laid there.
+
+[00:24:53] Yeah. The eggs are cracked open and used to make, any guesses? Omlets. Something we've all had four of in the last year? Pandemics. Pandemics. Vaccines. Thank you.
+
+[00:25:03] Thank you for the sensible suggestion. James. Yeah. Each egg produces one vaccine. They sort of inject the virus, the virus strain they're looking for into an egg, and they incubate it, for a few days, and then they harvest the virusy goo, and then they kill off the virus,
+
+[00:25:18] and then they use that to make a vaccine, and the US government gets through 100 million eggs every year, and the farms that lay them are secret. You're not allowed to know. They're kind of national security. Wow. Egg farms. What then happens with that egg, sorry? It's done its job. It's finished. It's not cooked. It's been used in a very serious and complicated medical...
+
+[00:25:39] I'm just wondering if you could secretly vaccinate a whole country by just giving them eggs. that are... And there's your Dan Brown novel. Okay, I do need to move us on to our next fact. It is time for fact number three, and that is James. Okay, my fact this week is that in the 18th century, a Worcestershire man called John Tallis stayed in bed for 30 years with a peg on his nose because he thought fresh air was dangerous.
+
+[00:26:16] He sounds like a very strange guy. He is rather. This was in a review of a book called The Georgians by Penelope J. Caulfield. And this was a report in a magazine called Gentleman's Magazine. And they were talking about this guy who lived in a place called Burkut near Solihull. And throughout this whole time, he didn't see anyone, basically. He had hardly any visitors. Basically, the only people he ever saw are his servants who would change his bed once a year.
+
+[00:26:43] Is that... I'm not sure they were changing the bed sheets once a year No, they're changing the whole bed. I believe it was the whole bed. That's quite good. It was a mixture, so occasionally they would change the sheets. So if they changed the sheets, he would roll onto one side of the bed and they would undo it, and then he would roll back onto the other.
+
+[00:27:00] They undo it and slip it on, like on those table tricks, where you go hulae, and nothing leaves, right? And then the other thing was, if they were changing the full bed, they would wheel in another bed, and he would sort of tumble into the new bed, and then they would remove the old bed. Were they making the call based on how disgusting the bed was? Was it the like on the 1st of January we're going to come around and we're going to see if you just need a change of sheets
+
+[00:27:21] or if it's a full new bed you need again? Was it that? Probably once a year for the full bed and then incremental changes throughout. That's right. You can estimate how gross it's going to be without fully checking after. After 20 years, I imagine you'll have some data to work with.
+
+[00:27:34] If you've got a spreadsheet. Exactly. So why did he refuse to get out of bed? The fresh air thing, fine. It doesn't want to go outside. But I just like stand up and let them take shakes it off. I guess so, yeah.
+
+[00:27:45] He's lazy. He's been in bed for a while. It's hard to get out of bed, isn't it? I know, I have been there. He didn't want his, like, he didn't want any fresh air in the room, so he had, like, just one window in the room with glass, which was three times thicker
+
+[00:27:56] than any other glass you could get at that time. I think just three panes. And his head was covered in more than 100 yards of flannel. 100 yards. Yeah. And it's like a mummy, like this. I said it was as large as a large beehive. Wow.
+
+[00:28:12] Oh, thank you so much. That really puts it into context for me. Well, no wonder he didn't leave the room, he wouldn't have been able to fit out the door with a hundred a massive beehive on his head. I know why he was in bed. Why? He was cursed by a woman.
+
+[00:28:26] Oh, no. Yeah, so he was... You've made it sound quite sexy being... Why do you think he went to bed? By a woman. So he caught her stealing part of his fencing, and he ordered her to put it down. He said, put those sticks down.
+
+[00:28:42] and she said, A curse on you, and she condemned him to remain cold and to never feel the warmth of a fire. And that's what happened because he made it happen. So did he say he thought that's why he was in this situation? Well, that's the story. I mean, there's a lot of story in the story. Oh, but that's not his story.
+
+[00:29:01] That's not his story as to why he was in bed. He wasn't like, I've been cursed by this woman. Oh, that's his story. That's his story. I've been cursed, yeah, yeah. And you're saying you believe him. Absolutely. Okay.
+
+[00:29:11] Yeah. I guess if you believe in a curse, then you have been cursed. Exactly. It's all psychological. But that explains what was confusing me, which was, what was his explanation for the fact that everyone else wasn't dropping dead who was in the outside world? But was it just him who was going to die over the fresh air?
+
+[00:29:25] I curse you, oh, by the way, everyone else. It takes the sting out of the curse if it's a universal thing. Well, because James said because fresh air was dangerous, which it was, but not universally, right? It's like if you're allergic to prawns. Prawns are dangerous. That's true. You know?
+
+[00:29:40] Yeah, yeah. That makes sense. Well, he must have seen other people could go outside and get him new beds, so it clearly wasn't as dangerous for everybody. Unless the servants were coming in and going, it's still, they're dropping dead outside, like, like, yeah. I think there was a rule that they weren't allowed
+
+[00:29:54] to mention what was going on to it. They couldn't bring up the whole, like, why don't you just come out now? You know, they just sort of let it happen. Well, no one kind of intervened. He was, I mean, he clearly was suffering from what we'd call hypochondria now. Yeah, except it was a curse.
+
+[00:30:08] Well, yeah, but that's probably how he would have rationalized. his hypochondria at the time. Oh, I can't come out of being cursed, sorry. I mean, he's just... You've obviously never been cursed. That's what I'm going to. He supposedly as well, like James, you're in fact saying that he had a peg on his nose.
+
+[00:30:21] Yeah. And there's a few other accounts where he would put a cork up each nostril as well. Which just sounds fun, I think. Because you imagine whenever he sneezed, he just went... Oh, dear. Yeah.
+
+[00:30:38] Great guy, John Talas. Was he? outside of the cursing? Just, no, just committing to a curse, you know, kind of... A lot of us are going to lead lives that don't get talked about, you know, in 100 years from now.
+
+[00:30:50] John Talas, here we are, in Aberdeen, on stage, talking about a guy, put a peg on his nose, rolled over his bed to... Beehive on his head? Beehive on his head. Large beehive. I read about a woman from Taunton.
+
+[00:31:02] This was supposedly written in the British Medical Journal. I couldn't find it in the BMJ, but it's written in lots of newspaper reports where they say it was in the BMJ. Anyway, her doctor, Peter Rowe in 1978, said that she stayed in bed for 40 years because a doctor once told her to not get up until he came back and he never came back. Oh, no. And was that doctor, like, on his deathbed some years later and just his last
+
+[00:31:31] words were, oh! I never went back. But we all know that feeling where you commit just a bit too long and then you think, well, I can't quit now, and then it just kind of gets a bit ridiculous. Yeah, I've seen you'll stand up. Yeah, my career is. Speaking of lying in bed for a very long time, this is a different kind of lying in bed for a very long time, lying on a bed of nails.
+
+[00:31:54] Oh, very good. Yeah. So the records are quite interesting. The female record for lying on a bed of nails is 30 hours, okay? By a woman called Miranda, queen of the fakirs. Queen of love. Wow, nominative determinism. Fakir
+
+[00:32:10] Fakir A fuck yourself Come on Come on Come on mate It's kind of A kind of
+
+[00:32:18] Far Eastern mystic is a fakir You know Sorry That's all right So anyway Miranda Queen of the Fakirs
+
+[00:32:27] Has the Sorry I'm sorry I'm sorry For telling you off I really am So anyway Female Record
+
+[00:32:37] Miranda, Queen of the Fakhirs, male record held by a man called Ken Owen. And it's just a... Ken Owen. But his record is 300 hours, compared with 30. And it was broken in 1986. I mean, doesn't that just tell you women have things to do?
+
+[00:32:56] Well, well, no, no, because, no, no, well, to be fair to him, Ken was on holiday. And this was in 1986. Someone had taken all of the loungers, and he's like, oh. No, so it's written, it's on the Guinness website, but it's only in newspapers from the time. And he was, he travelled across Wales on a fortnight's holiday,
+
+[00:33:17] and wherever he went, he would lie down for, you know, 10 hours at a time. It's cumulative. Oh, it wasn't, I see. It wasn't consecutive. That is cheating. Yeah, maybe. Well, he also, he did other things while he was doing it. I think it was maybe a martial arts guy. He had 26 concrete blocks piled on his chest and then smashed by his friends.
+
+[00:33:34] Okay. So he was. That while he was lying. on the nails, yeah. They do do that sometimes. Yeah, I think it was, yeah. And he said the good news was the longer you lie on the bed of nails, the more the nails gradually rust due to your sweat. So... Oh, what does that do to it? Is that good? He said, well, by the time I finish, my bed should, in theory, feel as flat as a snooker table. So it's just a very long way to wear filing down your nails, although you don't want to file those kind of nails. I've become confused. Yeah, anyway.
+
+[00:34:02] Do you know the person who has been asleep for the longest amount of time, according to newspapers at the time, was someone who was hypnotised. So I think asleep under hypnosis, I was hypnotised by a hypnotist called Peter Powers. Have you guys heard of Peter Powers? No. I think he was a deal in the 80s and 90s.
+
+[00:34:20] He hypnotized a man in a Liverpool shop window. I don't know if the man asked for it or if he was just looking for... Was that not a mannequin? Well, he's still asleep. And he doesn't seem to have it. a head. Someone keeps him up with the latest fashion.
+
+[00:34:39] Every week. Guys, you've flown it absolutely wide open. He's a big old cheat. No, he slept apparently for eight continuous days. Except that he was woken every few hours to go to the loo and drink water.
+
+[00:34:54] But he was woken but was still in a hypnotic state, so apparently it counts. But Peter Powers recorded a tape of him that he gave to the medical team who were monitoring this bloke all the time, that was if saying, like, if Peter Powers got killed in a mysterious accident, then they were to turn on this tape of him, and it would get him out of his hypnotic state.
+
+[00:35:15] Because otherwise he'd be asleep forever. Wow. Yeah. That's sensible... It's good health and safety. It's responsible hypnotism. Yeah, absolutely. Good on him. The country of Montenegra has a lying-down champion, an annual championship in lying down.
+
+[00:35:28] Yet to be televised on ESPN, big mistake. I had never heard this before. Supposedly, there is a widespread national stereotype, internal stereotype, of laziness in Montenegro. Is that right? And people are just, like, people are very relaxed. They like, you know, they like to take it easy. And this year's winner won after 60 hours and said,
+
+[00:35:46] I didn't even warm up. And it's, you know, lots of foreigners have entered over the years that's been going on, but only Montenegrins have ever won. So, yeah. And I found an old Montenegrin joke, if you'd like to hear it. I'd love to, because I got to Montenegro quite a lot. Right. Well, this is, it can't be that old because it features Stephen Spielberg.
+
+[00:36:05] He's been around a while. He's been around a while. Stephen Spielberg's shooting a movie in Montenegro, and he invites a load of locals to audition to be extras, right? Yeah. And he hires two Montenegrin guys, and he explains to them their task for this movie is just to lie under a tree. That's all you have to do, lie under a tree. And they work for two days while they're shooting this scene around them. I wonder what movie that was.
+
+[00:36:23] I don't know. It would probably be... Yeah, okay, sorry. On the third day, Spielberg tells them that for the new scene they're shooting, they have to moved to another tree. And one of the guys replies, Mr. Spielberg, we're actors, not stuntmen. It's quite a nice joke. It's a good joke. Yeah. I like it. We're going to have to move on in a sec, by the way, unless you work out what movie that's from. I've got one more kind of slightly eccentric person from the 18th century, if we have time.
+
+[00:36:52] Go for it, yeah, yeah. This guy called Henry Cope, and he was known as the Green Man of Brighton, because he always dressed in green pantaloons with a green waistcoat, a green frock, a green cravat. He dyed his hair green and his whiskers and his eyebrows green. He would always eat nothing but green food, green fruits and green vegetables. He had his apartment painted green, and he had it furnished with a green sofa,
+
+[00:37:19] green chairs, green table, a green bed and green curtains. He always walked around with a green silk handkerchief and he had green buttons on his coat and he walked around also with a green poodle. I'm waiting for you to say his shoes were always red. There's no line there, I guess, apart from maybe like Eiffel 65 were colourblind and they were writing about this guy.
+
+[00:37:44] I don't know, but apparently he'd lost his wits over love for a beautiful woman and decided to wear green forever. Right. That'll get her back. As a woman, trust me. Every time he passes, ah, the one I let go. Meanwhile, she's looking out of her window at her field.
+
+[00:38:04] Can't see him at all. Doesn't realize he's passing. If only he'd come to see me once, I'd marry him. Okay, it is time for our final fact for the show, and that is my fact. My fact this week is that, according to Cameroonian folklore, the best way to beat a chimpanzee in a fight is to Pretend to stab yourself with your weapon and then throw it at them. The chimpanzee will then imitate what you did and fatally stab itself.
+
+[00:38:40] Fight over. This is, so as I say, this is folklore. I found this in an academic book called Primates of Gashaka, and it was edited by someone that I've worked with in the past, so has James, a primatologist called Volker Summer. And the idea is that the mimicry abilities of the chimpanzee as such that they will think that that's part of how
+
+[00:39:03] the process is of chucking these things back. So they were finding that when they were throwing these spears at chimpanzees which was their chosen weapon to kill them, they would imitate it and pick it back and people could get hurt. So the hunter would be hunted by the spear being thrown back. So they introduced
+
+[00:39:19] this idea, what if we pretended to stab ourselves? And that, hence, is what happened with the chimpanzees. But presumably they didn't, actually do it. Well, it's folklore. So it's, sort of like it's told as if it did happen, but I don't think there's any actual evidence. It will be based presumably on the cliche that they are good mimics. And so they're monkey people, right?
+
+[00:39:37] Yeah, exactly. Yeah. Valka Sommer, have we ever mentioned him before? I don't think we have. Correct me if I'm wrong, because I'm going off memory. But I think his main thing was they wanted to know how many ants some apes were eating. Yeah. And they didn't know how many they'd been eating, but the only bit of evidence they had was looking through the feces and seeing how many, like, bits of dead ants. the wear, right? But that doesn't really tell you how much has kind of been absorbed into the
+
+[00:40:04] body. And so he got all of his research students to eat a load of ants and then save their poo. And then they all had to check through all of their poos to see how many bits of ants came out because we have a similar digestion system to the apes. And that would be able to tell us how many ants were eaten by this. Yeah. So it was, yeah, so you'd eat the ant. It would just be the head. And it was roughly for every 10 ants, one ant head would come out is what he found. And it was a cultural thing, you know, it was like the group that identified by this one thing that...
+
+[00:40:34] It was one group of... It's a cultural marker. It's a cultural marker, exactly. Yeah. They're very nice guys, chimpanzees. Most of the time. Yes, you're giving me a funny look because they also do have quite high murder rates. I think their murder rate is the same as Tijuana in the, like, Central of Drug Wars
+
+[00:40:53] in Mexico, which I know it doesn't reflect very well on them. They are the only other species, aside from human. who sort of plot to kill each other, but they generally avoid it, and they are really good in other ways. So, for instance, they're much fairer than human beings, not like Snow White's the fairest of them all.
+
+[00:41:12] Like, they have inequity aversion. They hate unfairness. Oh, really? So there are various studies that have been done with other monkeys where, like, if you give one monkey a grape and then you give another monkey a bit of lettuce, then the monkey with the lettuce if it stops eating it really soon
+
+[00:41:30] because they're too jealous of the guy with the grape even though if they hadn't seen the bloat with a grape they would have eaten the lettuce very happily. So that happens with monkeys and other animals because they've got a real sense of fairness like we have. That's so unfair, how come he gets a grape? But chimps do it on behalf of each other. So there have been experiments where
+
+[00:41:46] if you give one chimp a grape but you don't give her friend a grape then she won't eat that grape until her mate's been given one. They're unionized. They're unionized. Yeah, and people got really... That's really cool.
+
+[00:41:59] Chimp research was so controversial. God, that's more... I mean, if you gave me and Dan a grape... I know. Sorry, if you gave me a grape and not Dan, there would soon be no grapes around because I'd just quickly eat the grape and hope Dan hadn't noticed
+
+[00:42:10] that I'd be given a grape. You're less involved than a chip. Apparently so. That is, they are... Like, that was Franz de Varses. They're more fair than us, certainly than you. But even than all of us. And actually, he was saying,
+
+[00:42:22] when this was so controversial this was coming out, the idea in the late 20th century that, you know, human traits actually existed in chimps as well. And Franz de Valle said that when they came up with the conclusion that chimps have this innate sense of fairness, a philosopher wrote to him saying, it's completely impossible that any animal has a sense of fairness
+
+[00:42:39] because fairness was invented in the French Revolution. Amazing. Franz de Vals, he was like, he's one of the main writers on chimps and bonobos as well, right? And I read some of his writings on both of those things. and he was writing about a zookeeper who'd worked with chimpanzees, and then he started working with bonobos. And bonobos, I don't know if you know, I think they're our closest relatives, right?
+
+[00:43:06] They're very sexual animals. They're very touchy-feely, all that kind of stuff. This zookeeper had only worked with chimps before, and so he went up to this bonobo for the first time and went to give him a little kiss, and the bonobo stuck his tongue down his throat. That's amazing. And it turns out they French kiss Bonobos.
+
+[00:43:30] Oh, really? But they're French kiss humans. Well, generally each other, but if you get close enough... Wow. On Fossie. What a good fact. That's so good. That was also controversial, because people...
+
+[00:43:41] Again, Franz de Valle was saying when the whole thing that Bonobos... Snogging was invented by the French during the French Revolution. That's why we call it the French kiss. Yes. There was this big thing came out that Bonobos are just rampantly shacking all the time,
+
+[00:43:55] like, regardless of gender, practically species. And Franz de Val wanted to publish this big coffee table book on it, and it wouldn't get published by National Geographic in America. I think this was in the 70s or the 80s, because basically it was too rude. And they said, this is too raunchy,
+
+[00:44:10] and so he had to go to Germany to get it published. Obviously, they said, please! And they put a picture of Shagging Bonobos on the front cover. That's so cool. As part of this research for this fact, I was Googling chimpanzees. Makes sense? Yeah.
+
+[00:44:25] It checks out. But I googled chimpanzees, and you know it quickly comes up with people also ask on Google. Okay, yeah. And I hadn't been searching for anything, any unusual terms or anything like that. Sure you weren't. It was like chimpanzee rituals or whatever I'd search for. Anyway, one of the main, like, this presented it to, I cannot stress, I hadn't done anything to deserve this suggestion from Google. One of the main questions for Google on chimpanzees, people also ask.
+
+[00:44:55] What happens if human sperm gets in a chimpanzee? Gets in! Yes. Sorry, you know when you lent me your computer last day? That's what, genuinely, I was very shocked that that came up. Well, it's a big question. It's a lot of a question. It is.
+
+[00:45:12] Can we, is, is it possible to have a hybrid species between, a lot of people... There was that Sylvia guy, wasn't there? We probably mentioned him before. Yeah. He tried to sort of do a hybrid between... A Humansy, it's called. Well, I think we have solved the mystery of why your computer is defaulting to that. You've got to stop learning it to Dan.
+
+[00:45:34] What was the answer, though? I didn't click on it. Oh, you. You wimp. Call yourself a research. I don't like Humanzi. You don't like it? I go with chump.
+
+[00:45:48] Nice. The harm of human, the chum of chimp. Yeah, I actually work that out when you say that. But they make... They make nests, this is a thing that should be more spoken about, they make nests every night. Yeah. As in birds make nests, I can't think of any other animals that make nests apart from birds. Well, the thought is that's how we got pubic lice is through sleeping in the nests of gorillas and chimpanzees and so on.
+
+[00:46:12] Oh, wasps. Sorry. Wasps make nests. Great one. Birds, bees. Sorry, Dan. Sorry, some of them beehive. Bees don't make nests.
+
+[00:46:24] Yeah, some of them do, I reckon. Are some solitary bees, yeah. Yeah, yeah. Actually, the vast majority of bees are solitary. Right. The vast majority of bees, wasps, birds, and chimpanzees. It's still interesting. So this is the interesting thing.
+
+[00:46:38] Their beds are extremely clean, and they also reuse them. This is amazing. As they travel, because they're often moving, they make new beds every night. They will reuse their beds within six months, and they will leave the foundations in place to build on when they return. Very smart. And yet, pubic lifestyle.
+
+[00:46:54] Dan. No, because they also poo in their beds, which is part of the reason that they move around. So they use it as a toilet. So why would you sleep in your toilet after you've used it?
+
+[00:47:03] So they migrate every day. Very slow learners. Just every morning, oh fuck, I pooed in my bed again. I'm going to have to move. Get the servants to wheel in a new one. Over you go. But yeah, and then so early human, early man,
+
+[00:47:21] I don't even know if necessarily it was the point where we were necessarily homo sapien, it was proto-man, let's say, would see these empty nests and go, great, I've got to bed for the night. So we would sort of be walking behind the chimps and gorillas to find bedding
+
+[00:47:35] for the evening. And little bits of pubic lice would be hanging around in there, and that's where we'd catch them from. Wow. So that's what you googled, how do people get pubic lice? Great news, darling. Unfortunately, a little bit of sperm did get it. Oh, God.
+
+[00:47:53] Show of voices, Aberdeen, how many people think they could beat a chimpanzee in a fight? Well, the stereotypes of Scotland is not what I thought. That's basketball, yeah. We're going there tomorrow, I think, and we'll tell them you said that. There was a... a famous study that we've actually mentioned once or twice, and they found that 38% of men thought that they could beat a chimpanzee in a fight.
+
+[00:48:30] 38! Now, there was some studies done in the 1920s about how strong chimpanzees are, and they found one chimpanzee called Suzette, who could do a one-handed poll of 1,260 pounds. Wow. Okay, it was during a fit of passion, so it wasn't normally how she would do it. But they kind of gave them things to pull, and they did that. Now, there is a very recent study from this year that has looked at all those old ones
+
+[00:48:57] and reckon that they were properly exaggerated. And actually chimpanzees aren't as stronger as we think. They're actually much closer to humans and they reckon that the average chimpanzee has a differential about 1.5 times the average human. And so if you actually plot those graphs of like the stronger humans and the weaker chimpanzees, actually it's not much. It's like in the 20% or 20 or 30%. So actually, 38% of men saying that could actually be right.
+
+[00:49:27] Really? That's incredible. Wow. But chimpanzees will sort of just rip your ear off. As in they don't fight nice. I don't think even if I was stronger than a chimpanzee, which I'm definitely not saying I am, I would be willing to go for the...
+
+[00:49:43] Yeah, well, that's true. I suppose they might fight in a different way than us. Your tactic would be just complaining to the umpire constantly. Press, press! The ear thing. Andy wins for her technicality. The Quicks are ripped off. The Queensbury rules are not being observed here. We're going to have to wrap up in a sec, guys.
+
+[00:50:02] Did you know that chimps drink responsibly? Cool. Yeah. They do drink, but never to excess. And it's mostly PG tips. They found this out in Guinea, because humans harvest us, we harvest and ferment stuff from trees. and they were harvesting sugary sap from raffia palms and fermenting it, and they found that when they allowed it to ferment,
+
+[00:50:28] they'd leave it in little cups jammed into the tree, then chimps would come and they'd fold up leaves and they'd dip them in, use them as sponges, and then they'd drink it. But in their drinking sessions, they would dip about nine times, which would amount to a beer of about 3.1% alcohol. And then they'd stop? And then they've had enough. That's it, home from the pub.
+
+[00:50:47] Well, it means they can drive back, doesn't it? Exactly. I'm reading about a chimp from Aberdeen. Oh. Yeah. You guys know Hazelhead Park? They sure do. That means at least I got the right Aberdeen.
+
+[00:51:07] Otherwise, I don't know where this would have gone. But in the 60s and 70s you had a zoo in Hazelhead Park. It's not there anymore. And they had a chimp called Humphrey. While they were building the zoo, Humphrey lived with one of the owners or one of the people who was kind of paying for it. And they kept him in a nappy so that he didn't poo everywhere. And then one day they went out and they kept him in like a cage, a large cage,
+
+[00:51:32] but they kept him in a cage. And he managed to break out of the cage. And they found him, he'd broken into the larder, and they found him in an easy chair with a lump of cake in one hand and a chocolate biscuit in the other. I know. Okay, that's it. That is all of our facts.
+
+[00:51:57] Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, Andy. At Andrew Hunter M. James. At James Harkin.
+
+[00:52:11] And Anna. You can email podcast at QI.com. Yep. You can go to a group account, which is at no such thing, or our website, No Such Thing as a Fish.com. All the previous episodes are up there. Check them out. All of our previous episodes are up there.
+
+[00:52:22] Did I just say that? Why did I just say the same thing? He's glitching. He's glitching. Get the hammer. Bring the chimpon. There's also a link to our new membership club, Clubfish.
+
+[00:52:33] Very exciting. It's a land that has no adverts. It's very, very cool. Check it out, as well as extra shows that we've been putting up there behind the scenes stuff. So just head to No Such Thing as a Fish.com for that. Outside of that,
+
+[00:52:44] just want to quickly say, Thank you so much, Aberdeen. That was so much fun. We will be back again for everyone listening at home. Thank you so much. We'll be back again next week with another episode. We'll see you then. Goodbye.

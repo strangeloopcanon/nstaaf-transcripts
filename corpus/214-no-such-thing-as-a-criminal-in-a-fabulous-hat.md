@@ -1,0 +1,243 @@
+# No Such Thing As A Fish - 214: No Such Thing As A Criminal In A Fabulous Hat
+
+- Episode date: April 27, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/214-no-such-thing-as-a-criminal-in-a-fabulous-hat
+- Slug: 214-no-such-thing-as-a-criminal-in-a-fabulous-hat
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber, I am sitting here with James Harkin, Andrew Hunter Murray, and it's the original QI elf and author of the new children's books, Wonders of the World's Museums, Molly Oldfield, and once again we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go, starting with you, Molly. My fact is, blue whales are born backwards tail first so they don't drown during birth.
+
+[00:00:51] Yeah, that's extraordinary. What I think we can tell is that you are the original QI elf because that's typical QI fodder, isn't it? Blue whales. Oh, we're going to love a bit of a blue whale. Yeah. It's actually really weird. I googled it to see what they looked like.
+
+[00:01:04] So obviously the tail's coming out first, and then I thought, okay, what's it coming out of and it sounds ridiculous, but their mammal's right, so am I allowed to say vagina? Oh, yeah. And I was like, do whales have them? What? Obviously they do, right? Yeah. Yeah.
+
+[00:01:21] But we spent so long at QI, I think I spent about 12 years licking up. In fact, James and I were thinking of writing a book, the QI book of genital ignorance. Do you remember that? I don't remember that. That's a great title. Sounds like a great idea. Yeah. I think you're backing off from this project very early, James.
+
+[00:01:37] But anyway, yeah, so I googled this, and there is an expert of wealth giantess, and the Scientific American have written an article about her. She's called Dr. Sarah Messnick, and it's really hard to study them, obviously. So what she does is she looks at Victorian drawings. She's got a freezer full of them. She asks people if they ever find one. I'm sorry, a freezer full of whales' vaginas. Yeah, exactly.
+
+[00:01:59] Not drawings, the real things. And she also... That must be a big fridge. Well, right. A blue whale's one is so big you could walk inside it. And the strange thing is that every single whale... How do you fit that in your freezer? You need a walk-in freezer.
+
+[00:02:13] You could make the freezer out of the vagina, couldn't you? Also, the other thing she does is she gets people who are like whale experts but love diving to swim down and try and put little cameras on the whales so that she can CT scan them. And as she said, that is a total gauntlet in there. Our very first whale vagina, when we open it up, there were so many structures in there that we couldn't figure out how a sperm would possibly be able to swim from one end to the other.
+
+[00:02:39] So, basically, whales inside, they've got like flaps, folds, blind alleys, and funnels, and a dizzying maze for sperm. So, the reason for this possibly is because they're in water, they don't want water going up there. So, that's a way to keep the water out, have lots of little sort of blind alleys and funnels and mazes. Oh, OK, right. But they don't really know why.
+
+[00:03:01] But how about with the both then? Why is it? Because if they came... Why they came up at tail first? Yeah. Well, it's so that as they're being born, they can still breathe because if they came out head first, then they would just drown. But surely whales breathe there, right?
+
+[00:03:12] They come up to the surface to breathe. So, if they're being born under water, they won't be able to start breathing whichever end comes out first. So, what happens is, often with whales, they'll have a load of mates of the mother. Midwives. Yeah, they're known as midwives, right? And they'll kind of take the baby up so it can have its first breath to make sure that it doesn't just drown there.
+
+[00:03:32] And also, their umbilical cord is like perforated. And so, it kind of comes apart really quickly and easily. Cool. That's amazing. Have you heard about whale placenta? No. No. There's a big plastic bag in the water.
+
+[00:03:44] Oh. It was very exciting recently. One floated past Hawaii and everyone in Hawaii gathered at the water's edge to watch it go. The other animals don't fish it. I think it probably becomes food for other animals. Yeah. Yeah, I picked the fact about the blue whale because it's like a fact from my book. And I wrote about the blue whale, he's at the Natural History Museum called Hope.
+
+[00:04:06] And when I went there with a little kid, she said to me, can blue whales talk to killer whales? What do you think? No. Different language. I'd say yes. I'd say you could sort of shout in blue whale and put on a killer whale accent. Yeah.
+
+[00:04:23] Or you could get the gist. You'd be like, I think they want to eat me. Doss, squids, por favor. That kind of thing. Yeah. But a killer whale isn't a whale. Yeah, right. It's a dolphin.
+
+[00:04:34] So, it makes more like clicking, whirring noises and a blue whale obviously like makes deep singing noises, but I don't know. There's a killer whale, they're called killer whales because they killed whales, right? They were originally called whale killers and then they got flipped around to kill a whale. Ah, nice. But humans can talk to other animals and other animals can kind of communicate with each other.
+
+[00:04:55] We can talk to dogs, kind of. We can talk to whoever we want, whether they understand us or not. So a baby blue whale for its first year gains £200 every day, which is about my weight. Wow. So it's like, after day one, it's like I then go into the whale and then day two, another one of me and day three, another one of me for a whole year until they're absolutely humongous. And that's all, is that all krill or do they get some sort of other food source for the
+
+[00:05:20] month? They must be them. The milk. The milk. The milk for the month. They must have to make 200 litres of milk a day. Wow. That's a shit load.
+
+[00:05:28] That's a very weird mental image, Shane. It's kind of, just say, a whale made up of 365 youth, all kind of tied together. Shane and I'm Jonah, but only baby whales like to eat me, but they're doing it again and again. And I'm cloning myself, obviously, in this metaphor. How many youths would it take to make up one blue whale? A lot. So for instance, an adult blue whale eats about four tons of krill a day, and by weight,
+
+[00:05:54] that's the equivalent of eating 26,000 Greg steak bakes a day, which is one every three seconds. What is a steak bake? I don't know. It's a glorious thing. It's like a sausage roll, but it's got steak in it instead. It's like a pasty. Right, got ya.
+
+[00:06:10] It's very nice. Yeah, but you wouldn't want to eat one every three seconds for the rest of your life. Would you go on with life if you had to do that? Yeah. Absolutely. So you don't get full because you've got a much bigger stomach, like if your vagina's the size of a fridge, then your stomach's probably the size of, you know, maybe a whole warehouse full of fridges.
+
+[00:06:30] So you're not going to get full all the time with these steak bakes. And you've got a big mouth. You can eat more than one in time. You don't need to do the three-second separation. I guess so. It's funny as to imagine you, Daniel, having to eat one every three seconds. Especially they feed in this, like it's called the, the blue whales feed in the lunging position, which is actually the position of-
+
+[00:06:49] Not the lunching position. Which is the eternal lunching position. Yeah, that's the, you know, they've hung the blue whale in that tourist museum from the ceiling. So what they do is they like dive down and open their mouths and all the krill goes in and then they close their mouths and the baleen like filters out the water and the krill stays inside like little peas. Right.
+
+[00:07:10] Dude, I don't know if we've mentioned this on the podcast before, but the blue whale in the Natural History Museum, the one that's made of the massive sort of like paper mache. Do you remember that giant whale that they have? Oh, the model one. Yeah. The model one. So there's a trapdoor at the bottom of it and builders when they were making all the surrounding rooms and the whale itself used to go in there for breaks.
+
+[00:07:31] And it's a bit of a time capsule now because inside there are still old magazines that's said to be a mattress because supposedly after late night parties, there were sneaky shag sessions going on inside the blue whale. We were told, we were told this by curators from there. Did you have to go in through the freezer sized vagina? But yeah, inside the blue whale supposedly is a time capsule of newspapers and there might be a mattress in there and so on. Actually having sex inside a blue whale definitely happened in Gothenburg and they also have
+
+[00:07:59] a trapdoor and public was allowed to go inside, but they stopped it because they found a couple in there doing that. Wow. Everything else I've got is very tame compared with this stuff. They had a cafe in the mouth of this one in Gothenburg and they used to have religious people would go there and tell the story of Jonah and the whale while having their coffee and they're having a whale of a time. You couldn't get it.
+
+[00:08:22] You couldn't be swallowed and end up in the stomach of a whale, could you? Because they can only eat krill, right? Yeah. They've got tiny throats. Yeah, the size of a grapefruit we've said on QI, isn't it? But you could squeeze through the size of a grapefruit. It's not going to be really solid, is it? It's going to be muscly, but I reckon you could squeeze through, no?
+
+[00:08:44] Imagine trying to eat a meal though that was trying to get through. That was too big. Imagine a lump of gristle that was trying to get into your stomach that was too big. I think you'd choke. Yeah, but it's better to have them helping you swallow it. The gristle, if you had food that helped you swallow it, that would make life a lot easier. If the Greg Steakbake wants to be eating. It's falling slowly down your throat.
+
+[00:09:02] Get out! I don't like you! Come on, there's the other one of my buddies, two and a half seconds behind me, let's go, let's go. Go, go, go! OK, it is time to move on to fact number two and that is James. OK, my fact this week is that during the Qing Dynasty in China, when the weather got hot in the summer, people would swap their pillows for ceramic ones.
+
+[00:09:27] Ceramic pillows. What an uncomfortable day it must have been, like the first day of using a ceramic pillow after having a lovely soft pillow. Do you think? I guess your pillow would be nice and cool, which is good. Yeah. Which is the advantage of doing it. Well, we're in the hottest day of the year today, aren't we?
+
+[00:09:42] This is going to go out in a few weeks when it's probably pissing it down again, but this is the hottest day of the year and this morning when you're in bed, would you not have killed for a ceramic pillow? I would have. I love the ceramic pillow right there. Yeah. Actually, that would be awful. Imagine a pillow fight with a ceramic pillow.
+
+[00:09:55] I wouldn't want that. There was a pillow fight in 2015 between a load of army cadets in America and they decided, for some reason, instead of having a normal harmless pillow fight that they put helmets in the pillows and as a result, at least 30 cadets were injured, 24 suffered concussions, there were three broken arms, one broken neck and many missing teeth. One broken neck. That is bad. I read about that.
+
+[00:10:26] It's at West Point Military Academy. That's right. And it was this great tradition. It happened every year since 1897 and after 2015, they said, well, maybe no more of this. Isn't that crazy? Yeah, that is. Pillow fights used to be used a lot for early cinema. There's a lot of examples of some of the early movies that were made.
+
+[00:10:43] Those black and white ones that are called like the first example in 1897 was just called a pillow fight and it's just people having a pillow fight. And then it was remade, well, there was a follow-up called new pillow fight. Yeah, what happened then? Yeah, it was just more, yeah, I guess, you know, the second installment. They did it with helmets inside the pillow. No, but what I read is the reason it was very good for cinema is because you could see the fight starting small and feathers would come out.
+
+[00:11:12] And as the fight escalated and they got harder, more feathers would come out so the audience were able to properly see the intensity of a fight as it got heavier and heavier. It was just great for early cinema to have that as an effect of visual. So yeah, a lot of pillow fights in early cinema. Have you guys heard of a pillow fort? Yes. That's a phrase, yeah? Yeah, when you build yourself.
+
+[00:11:33] You build a fort out of pillows. Yeah. Okay, there is a park in America which is called Fort Pillow. Okay. That's its name and it's named after a US and Confederacy general whose name was Gideon Johnson Pillow. It's got... He's a very comfy man.
+
+[00:11:48] I can just imagine like putting my head down and sleeping on his fat tummy. Was he really fat? I don't know if he was fat or not, but he was not a nice man. You wouldn't have wanted a cuddle yet. No, he was a bad dude. But I don't think it's got anything to do with pillow forts and it's called Fort Pillow. What are the odds? I've been trying to find out the first use of the phrase pillow fort to see if Fort Pillow predates it.
+
+[00:12:09] I can't find it. Pillow. What a terrible name for a general. General Pillow. Was he general? Captain Pillow? He was a general pillow. He was a general.
+
+[00:12:21] He was a brigadier general. He was very senior in the army. I reckon it's his name that made him such an angry man. So I got this fact from the Christie's website, The Auctioneers. There was an article about 100 things we learned from Christie's. I'll give you a few more of those before we go on to the next one. Okay, cool, yeah. Napoleon was allergic to leather.
+
+[00:12:43] In France, first edition comic books sell for much less than the original plates that we used to make them. That's a good fact, isn't it? And Andy Warhol once wrote in his diaries that Danny DeVito was so cute we should all marry him. Wow. That is two pop culture names I did not expect to come together. He's quite hallowee as well, isn't he? Danny DeVito? Is that how you just look at people who are slightly hallowee?
+
+[00:13:10] That means like Tommy you'd sleep on. Tommy you'd sleep on, right. There was someone who was it who slept on the stomach of... I know who it was. Was it Genghis Khan or something? No, it was. I think it was Peter the Great. That's right, yes.
+
+[00:13:24] Peter the Great used to use a young male secretary's stomach as a pillow. He preferred his wife, but if he was away travelling and his wife wasn't available, he had his... Bring in General Pillow at once. But you couldn't turn him over, could you? Because if you turn over that person you've got a bony back. You've got a bum. The bum. You just have the slipper out of it.
+
+[00:13:45] You don't need that though, do you? No, it's not ideal. No, but you would want the man's tummy. That's different. It's different, isn't it? There's less going on in the stomach. Rumbling if it's hungry. That's true.
+
+[00:13:58] He doesn't have to be well fed. Sorry, what are we talking about? Pillow's a long time ago. Yes, so Chinese people, they used to use ceramic pillows. Well, actually, James, they still do. I've got someone staying with me, and she's from Singapore, and she said her aunt still uses a ceramic pillow. Cool.
+
+[00:14:17] Is that right? Very cool. Just in the summer or...? She stopped talking to her aunt recently, but... Following a pillow fight where... But because they lived in small living spaces, they would be decorative as well, and they would be given as wedding gifts,
+
+[00:14:34] and they'd be kind of a sign of, you know, wishes for many happy years of marriage or offspring or whatever. Some of them were shaped. So they were lion-shaped ones, which would scare off evil spirits, which is useful. There were some shaped like frogs, and there was a fashion for some shaped like sleeping children. Hmm.
+
+[00:14:51] Yeah. Yeah, I think they thought that, like, pillows could commune between the spirit world and human world, so they had put, like, children playing on them to, like, bring children into the family or specific... There's one in the Met in New York that's got a drawing of two boys playing in peonies, which is apparently to ensure, like, baby boys and heirs would come along.
+
+[00:15:08] And there's one in the British Museum. That is in the shape of a woman lying down with her head on a pillow. And, yeah, on the concave bit of the woman around her hip where you'd put your head. There's a lovely poem which says, The wind rustles flowers under a snow-white moon. I read this, and I can't quite believe it, which is that in medieval times,
+
+[00:15:26] pillows were really for people who were a bit weedy. Yeah. They were only for the elderly or pregnant women. They still are, actually. I sleep on a piece of two-by-four with nails stuck at it. Take the man out of Bolton. I do have a reason why you should throw your pillows away, James, and go back to that piece of two-by-four with nails in it.
+
+[00:15:49] Why is that, Andy? There was a study by the University of Manchester which took pillows which had been used for various lengths of time, and they found several thousand spores of fungus per gram of pillow. They found 47 different species of fungus, so that might be what you're sleeping on. Yeah, I read that a third of the weight of any pillow, if you've been using it for ages, is dead skin.
+
+[00:16:11] I think that is... Some people think that might be true, and some people think that might have been a rumour pot about by pillow manufacturers, by big pillow. By big pillow. No, you would think, wouldn't you? And it's not just dead skin, it's also house mite corpses and house mite excrement,
+
+[00:16:25] and I'm living house mites. But if it was one-third of an entire pillow, that's a lot of a pillow. You would think you could tell if just one end was just your skin. Yeah, that's true. Mind you, but you sleep with pillowcases, right? So it doesn't all the gross stuff go on there, and then you change it. And then you wash it.
+
+[00:16:42] Wow. Who washes that pillow? You put a pillowcase around a turd, it's still a turd, isn't it? It's still bad, yeah. That is true. Hitler's pillowcase. Oh, yeah. I'm afraid we've reached the Hitler bit of the podcast.
+
+[00:16:55] His pillowcase was not only monogrammed with his initials, it had an eagle and a swastika on it. Yeah, it was auctioned in 2011, and a pillowcase and a sheet were sold for £2,000. That's not much. It's not, well... Come on, for Hitler's pillowcase. I didn't realise we had a collector in the room.
+
+[00:17:14] I had a lot more for that. OK. Do you want a random swastika fact? I've got two, actually. Oh, yeah. One, the oldest bit of human writing ever found has got a swastika in it. And two, the word swastika is Sanskrit, and it means kind of lucky or fortunate.
+
+[00:17:32] Yeah, it's Hindu symbol. The oldest writing, so that's the ancient Hindu, Indo-European... Sanskrit? Yeah. No, it's not, it's pre-Sanskrit. Yeah, it's Proto-Sanskrit, Proto-European. You know, if you get to a hotel and you don't like your pillow, you can order a pillow menu?
+
+[00:17:48] Not in all hotels. Not all hotels, but we've just finished a tour, and I don't think a single one of our hotels that we stayed in had a pillow menu. Yeah, sorry, I should have said certain hotels. Provide a pillow menu. I've worked in hotels that had pillow menus. Really? Yeah, yeah.
+
+[00:18:03] And they would be like, let's say you had an anti-allogen pillow, you might have that, or hard or soft, or general pillow's tummy or whatever. Or pillow... I'd like one with an eagle and a swastika on it, please. Do you have one of those? Okay, it is time for fact number three, and that is my fact. My fact this week is that Oscar Wilde ate his books as he read them. There was a book that was written by Thomas Rye called Built of Books,
+
+[00:18:37] How Reading Defined the Life of Oscar Wilde. In it, he reveals that as Oscar Wilde was reading books, he would tear off the top corner of each page once he'd read it and eat it, and then keep moving on. It was just a habit of his that he did. It's instead of having like a bookmark, right? I guess so, yes. You just go to wherever the chomp has been taken out of the corner.
+
+[00:18:54] Yeah, exactly. Yeah, very clever. Why don't we all do that? Well, have you ever eaten paper? Yeah. Do you like it? I don't mind it. It's not my favorite.
+
+[00:19:03] It's no Greg steak bake. I think it's not that nice eating paper. I think in a small amount it's fine. I've been reading a lot on Oscar Wilde recently. That's one of the fun facts that I discovered. Did he eat the books as he read them? No, I didn't. It's the internet he was reading.
+
+[00:19:18] Oh, it's like your computer. If you're reading online, you have to take a bite. Oh, good. Very nice. So, there was an exhibition not too long ago, 2016 in Reading Prison, where they showed all of the books that Oscar Wilde had while he was in prison. He did. And they did it.
+
+[00:19:34] Yes, it's an empty exhibition. But basically, when he was in jail, you weren't really allowed to have access to books, but because he was such a prominent figure. He was the only one who was allowed, basically. They have special dispensation for him, right? Yeah, he was allowed to keep his light on at night, longer than everyone else to keep reading. So, what I like about it is that Reading Jail was the only reading jail.
+
+[00:19:56] Wow. Very nice. Yes. I read that, I'm a bit of a hasty on the details. I think he was allowed, it was technically a long letter that the governor of the prison allowed him to write, because you were allowed to write a letter. Oh.
+
+[00:20:09] But he was writing a huge long... Oh, so this is the writing part rather than the... Deep profundice. Exactly, yeah. So, that was when he was in prison being allowed to write. Yes. And we see it, interestingly, as a letter, because it starts Dear Bozy to his lover and who he ended up going to prison as a result of the relationship with.
+
+[00:20:27] And Bozy never read it until after Oscar Wilde had died. It was never written to be a private letter to him done in long form. It was meant to be published, and it was written and sent to a publisher as opposed to Bozy himself. Yeah. So, yeah, it was a good cheat that he pulled off. What does it say? Oh, it's a huge sort of philosophical...
+
+[00:20:46] It's his deepest work, I think, that Oscar Wilde did, just life and why he was in there and what people thought about sex and gender and all that sort of stuff. I think I haven't read it. He's pretty rude about Bozy in it, because Bozy encouraged him to sue for libel when Bozy's father had been extremely rude about wild and public and said that the cost would be covered and all of this.
+
+[00:21:07] And as it was, the libel jar collapsed, Oscar Wilde was sued for what time was gross in decency, being gay, basically. And as a result, went to prison. So, he's quite annoyed with Bozy in bits of it. You know, that he... Supposedly his last words were, my wallpaper and I are fighting a duel to the death, one or either of us has to go.
+
+[00:21:26] So, are you ready to find out what his wallpaper was like? Because it must have been pretty horrible, right? Did you find out? I didn't. But I found out that his wallpaper in his own house, back in London, because he died in Paris in a hotel, right? In his own house, he had a drawing room with dragons painted all over a blue ceiling,
+
+[00:21:45] and his wallpaper had peacock feathers. It was like peacock feathers all set into the plaster of the walls. And then, I don't know whether the hotel in Paris where he died knows this, because they've redecorated the Oscar World Room where he died, with a fresco of kissing peacocks. And the other thing that's on show in there is the bill from his hotel stay where he...
+
+[00:22:04] when he died. And he never paid it, and apparently he said, I am dying above my means. Yeah. But I don't think that they were his final words, where they have their wallpaper thing. So, he had an operation just before he died. And while he was recuperating, he said that last words,
+
+[00:22:21] and he said a few other last words as well, saying, I can't even afford to die and things like that. But when he actually died, I don't think he was in any fit state to be making witticisms or... James, you just ruined the whole lovely ending. It was definitely nearly his last. Yeah. So, I read a thing.
+
+[00:22:38] Andy and I were talking about this downstairs, because there's a sense that it's been debunked, this fact that I'm about to say. But I read it in a Christopher Hitchens article, where he talks about the hidden, the hidden sort of innuendos that was all the way through the importance of being earnest, the play. So, Christopher Hitchens says that the word earnest
+
+[00:22:59] used to be Victorian slang for if you were homosexual. So, the idea was, Oscar Wilde loved the idea on the marquee. It was effectively saying the importance of being gay was his big sort of hidden message that was underneath it. And that seems to have been slightly debunked. But it's interesting, because Hitchens brings up a bunch of different examples where he seeded sort of hidden meanings within the play.
+
+[00:23:22] So, for example, there's a character, a minor character called Bloxham. Bloxham was famous at the time as an editor of a game magazine called The Chameleon, and he was a very controversial character. Cecily was one of the character's names, of one of the high society girls. That, according to Hitchens, was vernacular for transvestite rent boys back in the day.
+
+[00:23:43] And just lots of little bits of hidden hints towards the two main male characters having alternative lives that they're trying to hide was a suggestion that they were both themselves gay. And if there was a missing handbag in... A handbag? Very nice. And supposedly sort of meet-up places
+
+[00:24:07] where guys would go to meet-up sort of illegally and be places like lost property places and so on. So, another thing that you were telling me, Dan, is about the Marquis of Queensbury. Yes, yeah. Well, my original fact for this was that to protest at the opening of The Importance of Being Earnest about the relationship of Oscar Wilde and Bosie,
+
+[00:24:29] the Marquis of Queensbury, tried to interrupt the premiere with a bouquet of phallic-shaped vegetables. Did he throw them on stage, or what did he do? That was his plan, he was gonna go inside and he went with a posse, he went with like a crew, kind of like how Conor McGregor recently threw stuff at a bus.
+
+[00:24:46] That was kind of the Marquis of Queensbury. Conor McGregor didn't throw phallic vegetables, did he? No, they were phallic chairs. So, do you have to like carve a phallic vegetable? No, I don't think so. So, I think he definitely did take along vegetables. He took along a basket of vegetables to throw at the stage and throw at Wilde and protest.
+
+[00:25:08] But I think they weren't especially phallic. I think they were just carrots and turnips. But then, carrots are quite phallic, aren't they? All of them, really. What we're saying is that many vegetables are kind of a little bit phallic in nature. And so, to say that these were phallic vegetables seems plausible.
+
+[00:25:30] But what I don't think is true, that the Marquis of Queensbury went around selecting. I think that would be a weird thing to protest against homosexuality by going around looking for penises wherever you could find them. And would say more about the Marquis' own state of mind than about Wilde's. So, he wasn't allowed in, he didn't get led into the play.
+
+[00:25:46] And then, he left a card, I think. Sorry, can I just say, did they not let him in because he was carrying the vegetables? You know, when you go to a gig, they have to check your handbag. But yeah, so was that the reason why or was it because they recognized him? I think, probably, he turned up angry with thugs
+
+[00:26:06] and holding vegetables. And they thought, oh, it's the opening night. Let's not take the chance. Yeah. And also, he was famous for going to premieres of theater shows to protest them. That was his thing. So, he went to one play that he was protesting
+
+[00:26:19] that they were giving atheists a bad name. It was by Tennyson. He was an avid atheist. Yeah, yeah, yeah. That's right. And then, he brought vegetable shape like Jesus. Yeah, exactly. Well, a lot of vegetables actually look like Jesus.
+
+[00:26:30] Think about it, yeah. Which one? Nugle. Jerusalem artichoke? Yeah, play actually failed. In Buttons being honest, failed as a result of this trial happening. It closed after 83 performances,
+
+[00:26:44] in spite of getting crazily good reviews. Well, but it survived longer than it should have. What they just did was take his name off the bill. So, they just erased Oscar Wilde from the production because he was up there on the marquee. It was an Oscar Wilde play. And they just said, all right, let's get rid of that and let's keep it going.
+
+[00:26:59] So, it should have come off 30 or 40 performances before then, really. But when he didn't manage to get into the play, the Marquis, I think he went to Wilde's club and he left a card saying, to Oscar Wilde posing as a somdermite. He meant to write Sotomite and he misspelled it. But I think to a writer,
+
+[00:27:19] that is going to be more of an insult almost than spelling it right. It's annoying. And that's what made Bozi say, no, you have to sue my father for libel and that's when Wilde did sue for libel. What, one card's spelled wrong? Yeah.
+
+[00:27:30] He shouldn't have done that. With the benefit of hindsight, Molly, he shouldn't have done that. I should have sent it back. You spelled it wrong. Did you know that Oscar Wilde's on the front cover of the Sergeant Pepper's Lonely Hearts Club Band album? Nope.
+
+[00:27:47] Is he? He's like looking over the shoulder of John Lennon. The other thing I found out is that, is about his tomb. So, he's buried in Père Lachet's cemetery in France, Paris, where lots of famous people are. And his tomb's got a big sphinx flying across it. Have you seen it?
+
+[00:28:03] Yeah. And, yeah. So, it was described as a demonic flying angel and it had a huge set of genitalia, which apparently the keeper of the cemetery said... That was actually a cucumber. Or a carrot, wasn't it? Yeah, the keeper said that this is totally indecent.
+
+[00:28:18] So, they just covered it up with a top all in for a little while. Anyway, so then they said, right, we're going to have to sort this out, top all in's just not going to work. So, they made a bronze butterfly shaped cod piece and put that over the top. And then Alistair Crowley apparently stole it.
+
+[00:28:35] Yeah, he was known as the wickedest man on earth, wasn't he, Crowley? Yeah. He was like, what was he like? He was like a dark magician who... Oh, like David Blaine. Yeah. The newspapers called him evil because he was like,
+
+[00:28:50] he had very poor morals and was kind of corrupting the young, they said. Oh, yeah, like Jeremy Corbyn. Okay, so he's a cross between David Blaine and Jeremy Corbyn. I think I understand who this Alistair Crowley guy is. Apparently when he was on holiday in Egypt with his wife Rose, he had a vision of someone dictating like a book of laws to him and he founded a whole new religion.
+
+[00:29:11] Crowley. No, Corbyn. There's a bookshop not too far from here, which is called Watkins and it's an esoteric bookshop. It's a cult and all that sort of stuff. It's amazing. And they have a story which is that Alistair Crowley used to shop there and he came in one time
+
+[00:29:26] and the owner said, I don't believe that you have all these magic tricks. And then he said, well, watch this. In an instant, he made all of the books disappear in the shop and then a second later, they all came back. That's because he went in with Oscar Wilde who ate them all. Anyway, yeah, so Alistair Crowley, he took the butterfly off. He nicked it basically.
+
+[00:29:45] And then when he went to London, he got all dressed up, put the butterfly on his jacket and he went to Cafe Royal and like hung out with all of his friends and was like, I've got Oscar Wilde's butterfly copies and now everyone can see his massive genitalia on the Sphinx, right? And then they're now not there. And the rumor is, is that two angry ladies who were walking in the cemetery just got some rocks and bashed it off because they didn't like it.
+
+[00:30:08] And yeah, and apparently the balls are now used as paper weights in the Père Lachaise Conservation Office. Is that right? That's what I'd like to happen to my balls after I die. And I believe the penis shaft is used as a draft excluder under the door in the office as well. Very good use. OK, it is time for our final fact of the show
+
+[00:30:36] and that is Andy. My fact is that the New York police have a casting director for their lineups which is now he's not a proper policeman. He's not even a rogue policeman. He's just a guy. And there was a profile of him in the New York Times a few years ago. He's called Robert Weston. And whenever the police and the Bronx need to do a line up,
+
+[00:30:57] they say we need five light-skinned Hispanic men. He'll say, OK, I know just the people are ranked. They all get $10. He gets $10 for organizing the thing. And he's been doing this for years and he can find various different categories of people. That's really cool. Yeah, it's a very weird casting job that he does.
+
+[00:31:14] But he's been doing it for ages. So these days we have something called Viper in the UK which is the video identification parade electronic recording. And it's basically a database of loads of different faces. And so you go into your database and you say, this person has this colour eyes, this colour hair and whatever. And then it just finds people who look like them. Basically, instead of getting a tenner for every line up you do,
+
+[00:31:35] you get paid a tenner once and then your face is in the system. What it means is that they can go to the house of the person who's been a victim of the crime. So if you've been mugged, the police will come around to your place and they'll show you on a computer a line up and say, can you identify any of these people? Yes. So with the Viper thing, if you're accused,
+
+[00:31:53] then you can ask your lawyer to get the police to photoshop any distinctive mark you might have on your face. So for instance, I have a scar on my face down under my eye. What's that from? From when I was... Filipite. I was in the West Point military when I was younger. No, I just fell when I was a child.
+
+[00:32:11] And it's basically, I can make it so everyone else has this exact scar on so that... Oh, cool. Nice. You wouldn't have raised it off. You've just put it on everyone else. Yeah. Surely... Yeah, it is because if people are looking for,
+
+[00:32:25] if they remember a birthmark or a scar or something, they'll fixate on that and they might misidentify if they're just looking for that thing. But surely it's an incentive to criminals to do all their crimes in like a fabulous hat or something because then you can just make everyone in the ID parade wear a fabulous hat. That's what I'd do.
+
+[00:32:42] I was a criminal. Felt like vegetables on it. Yeah. Do you know that in 2015 there was an ID parade of dogs in the UK? What's that? Yeah. Because a dog did a crime?
+
+[00:32:55] A dog did a crime. What did it do? It bitten a girl in Wales and the police ran an ID parade of dogs which were all from the street that the biting had taken place. And the girl picked the right one. But then dogs are very different looking at them. Well, I don't know if they trained to get five border colleagues
+
+[00:33:11] or if they just had a rockwiler and a load of chihuahuas and poodles and stuff. I think they might have put the other dogs in border collie costumes. You've got two chihuahuas, one in the front, one in the back. Actually, you could have a line-up where the dogs are the ones who are picking the criminal because in some states of America, Alaska, Florida, New York and Texas,
+
+[00:33:34] they have sent line-ups where dogs smell a number of people to pick out the suspect. The FBI report from 2004 says it should not be used as primary evidence because it's not exactly amazingly kind of accurate, but it's all... What if we just smell like food? We all get a bark at that one, aren't we?
+
+[00:33:54] They rub sausages on all the criminals before the end. If you smell like sausages, normally you're allowed to ask your lawyer to make everyone else smell like sausages. But this is not... The dogs are not the victims of the crime, right? It's not which of these men called you a bad dog. No, they're just matching the scents
+
+[00:34:14] with the scent from the crime. Do you want to hear one thing about... So this is about people who look like each other in line-ups. I did find one thing about look-alikes. Yeah, go on. It's this guy who's a Daniel Craig look-alike and he was writing up his experiences and he just sounds like he has a really tricky time.
+
+[00:34:30] He was recounting some of his adventures. He's called Steve Wright and he has these awful times. So he says he was flown out to Santa Pe by a millionaire, to reenact the scene where James Bond comes out of the water in his swimming trunks. And he said, I was told to wait a few yards out of the water until my cue came, the theme tune from Casino Royale.
+
+[00:34:46] But when it did, it sounded very faint. He says, I suddenly realised that somehow I had drifted 100 yards out of the sea. I had to lurch back with seawater slapping it by face. By the time I reached the sand, I was totally out of breath and staggered out of the water. So you think that's bad. Then he did another party where he said
+
+[00:35:05] it's more typical for him to be schmoozing ladies at a corporate event dressed as James Bond and looking like Daniel Craig. He did function a black tie ball and he said unfortunately it was a black tie ball so I didn't stand out easily. When I waltzed into the room of 250 people and attempted to charm the female contingent,
+
+[00:35:19] I found myself being treated like a repellent sex pest. I tried taking a woman's arm and saying, so you must be pussy galore. Would you like to be my escort for the night? But I had failed to introduce myself with James Bond first. She pulled her arm back very quickly and called her husband over. Okay, that is it.
+
+[00:35:42] That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I am on at Shriverland, James, at James Harkin, Andy,
+
+[00:35:55] at Andrew Hunter M, and Mole, at Molly Oldfield. Yep, and Mole, mention the name of your book again. It's called Wonders of the World's Museums. Yeah, and it's available now on Amazon and in all bookshops. All bookshops. It's a guide to all the best things in museums
+
+[00:36:09] around the world for children. Yeah, I've got it for my kid. It's awesome. So do go out and get that. You can also go to our website. No such thing as a fish.com. We have all of our previous episodes up there. We have links to our tour dates and we have links to our book and other goodies.
+
+[00:36:23] So go there and check it out. We'll be back again next week with another episode. See you then. Goodbye. You

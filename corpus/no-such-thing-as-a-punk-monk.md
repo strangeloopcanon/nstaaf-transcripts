@@ -1,0 +1,257 @@
+# No Such Thing As A Fish - No Such Thing As A Punk Monk
+
+- Episode date: June 19, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-punk-monk
+- Slug: no-such-thing-as-a-punk-monk
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast. This week coming to you live from the Nerdland Festival in Belgium. My name is Dan Schreiber. I am sitting here with Anna Tyshinsky, Andrew Hunter, Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts. from the last seven days, and in no particular order, here we go. Starting with fact number one, and that is my fact. My fact this week is that there are more scientific papers
+
+[00:00:57] on dung beetles than there are on preventing the extinction of mankind. Wow. Yeah. So I got a little spider just walking on the side of the table here. Oh, he's on my finger. Very nice. All I'm saying is it's not weird to be interested in inside. Yes.
+
+[00:01:15] That spider's come for this fact. Yeah. Absolutely loving it. No, this is a brilliant new book coming out. It's coming out in July. It's called the Anti-Catastrophe League by Tom Off. And it's basically a look into all the people globally who are trying to stop us from going extinct. How do we survive a super volcano?
+
+[00:01:33] How do we survive asteroid attacks? How do we survive AI, if it gets too intelligent? He goes around the world and he meets all the people who are dedicating their lives to doing it. And as one of the little nuggets, in there. He brings up a little fact by a guy called Nick Bostrum, who's quite a famous scientist, and is a big player in this kind of extessential risk thing, where he says, yeah, basically, if you look into the literature, there's more on Dung Beetles in scientific literature than there is on surviving. Is there anything on how Dung Beetles might cause us to go extinct?
+
+[00:02:07] Oh, good question. Or help us avoid it? Let's not immediately make them the villains of the piece. If the Dung Beetles went on strike, then... Yeah, we'd be up to our necks and... Exactly. Yeah. We'd be in the shit, literally. So we need to kill all Dung Beatles.
+
+[00:02:25] No. No. Okay, that's what it sounded like. So how is the world going to end, according to your mate? I mean, there are so many different ways. I should just say, just for context, in 2018, there was a Google Scholar search, which showed 1,830 results for Dung Beetle-based papers, as opposed to, 449 for human extinction and 940 for terms like existential risk and so on. It's more a metaphor for the fact that we're
+
+[00:02:51] focusing more on things like insects than we are on these bigger problems. Well, that's because don't be as well as exist. So they're easy to study. The end of the world doesn't exist. Yes, that's largely. And as far as we're concerned, it never will. Well, the end of humanity, sorry, not the end of the world. It really pisses me off when humans do this. The world doesn't give a shit if we go extinct. The world's just going to keep on turning. And I think quite a lot of the people who look into it are talking about things that are so unlikely, aren't they? You think, like, there was that... What kind of stuff, yeah.
+
+[00:03:18] So there was an open letter written by a bunch of scientists recently. I think 38 of the world's leading scientist, Nobel Prize, when it's in the like, wrote an open letter with a warning, stop trying to create the mirror image of life on earth, because it will wipe us all out. So, very dumb-down version, all proteins made of amino acids, which are left-handed, which is just all about the way they spin. we don't really know why all life is built out of these left-handed amino acids. But scientists can now synthesize in labs right-handed amino acids,
+
+[00:03:50] and that could be super useful for lots of things. It can make better drugs, so it could defeat a lot of sort of natural biological things. But it could also wipe us all out, because basically if you get a right-handed bacteria that we've created in a lab, nothing has evolved to beat it. A right-handed bacteria attacks our bodies, and our bodies don't even recognize it. It's like a left-handed cricketer or a tennis player.
+
+[00:04:14] It's in a doubt. Are they invisible? They're unbeatable. Yeah, yeah, yeah. Unbeatable, there you go, you can't play them. Another thing that's similar to that is a thing called strange matter. And this is if you get nuclear stuff and you squash it down, squash it down, squash it down, they can turn into this thing called strange matter.
+
+[00:04:32] And if it comes and touches normal matter, then they can annihilate each other. And that thing that might happen is known as a strange comfort. And apparently if you get a strange conversation happening anywhere in the universe, that could be end of everything. It feels like we should be annihilating each other all the time. That's so funny. So there are big groups that are trying to work out how to save us all. And in 2005, this guy mentioned Nick Bostrom, who's a big best-selling author, who's a big name in science, he founded the Future of Humanity Institute.
+
+[00:05:04] And when they look at these bigger problems, how are we going to survive as a species? So it was him, there's another guy who joined. another guy who joined called Anders Sandberg. Very interesting character, Swedish scientist. He developed a bunch of ideas that he's been putting forward in science world. But my favorite thing is he wrote a paper that asked the question, what if the entire earth was instantaneously replaced with an equal volume of closely packed but uncrimpressed blueberries? Okay. He picked big, thick-skinned high bush blueberries. Okay. So what's going to happen. It's a very hostile world, James.
+
+[00:05:40] It's not good. Oh, I was going to guess nothing at all happens, because that's the answer half the time. I think small blueberry farmers go out of business quite quickly. That's true. Yeah. That's true. No, he said if you were standing on blueberries, it might be possible in theory that we could survive. However, almost immediately they would begin to compress rapidly, and then air would start erupting everywhere, causing great earthquakes, and then the entire environment would be completely filled by boiling jam and steam, and we would live in just a big crazy jam world. But is this, like, sorry, has he got funding to find out that this is a bad idea?
+
+[00:06:16] Yeah, and you're saying there should be more papers like this. I'm saying this is the co-founder of an institution that's looking to work out how we survive into infinity. Okay, so he was the co-founder with Nick Bostrum. Yeah, Bostrum. So one of Nick Bostrum's idea is the paperclip maximizer. Yeah. And that is that you come up with an AI and you say to that AI, what we need is paper clips.
+
+[00:06:38] But you don't give it any other instructions. You say to it, whatever you do, make as many paper clips as you can. And if you do that, they'll quickly realize that if they make too many paper clips, then the humans might come and turn the machine off. So they immediately decide to kill all the humans because they don't want to get turned off. And then they also realize that humans are made out of carbon and lots of different metals and stuff. And actually were quite good paperclip material. And so what you end up is the world with no humans but a ton of paper clips.
+
+[00:07:08] Pick up your paper clips. It's just a little eye looking back. It looks like you're trying to end the world. Very nice. It's beautiful. And the idea is that it would then go, well, we should make everything in the universe paperclips. And it would take over planets and set up paperclip factories and make more
+
+[00:07:24] until all of existence was one big paperclip. Actually, I wrote to Nick Bostrom, the scientist, a few years ago. because I was researching something about the end of the world and I wanted his opinion of it and he just sent me a rather nice line I think you might like this he said some of our biggest problems are primarily political and ethical
+
+[00:07:42] and they'll need solutions in those realms for a great future we really need both capability and love but if we could only have one I'd pick love and I would pick capability personally
+
+[00:07:56] I think he's going to be disappointed from that because I think he was flirting with you Oh no. That was effectively a swipe last day, Andy. You know the good news about the end of the world? If you think about it, is so what's one of the ideas for defeating it? Well, there's a guy you might not have heard of called Elon Musk, who talks a lot about terraforming Mars as being a way that humans could escape and go to another place. What's the main problem with Mars, the thing we need to do to it, to make it livable?
+
+[00:08:26] Like everything. We need to stop all the radiation. Loads of stuff. Get rid of the aliens. Loads of stuff, not including that. But one of the big things is make it warmer, and we already know how to warm a planet. Oh, terrific.
+
+[00:08:43] So, and as Elon Musk has planned, he has a plan to drop hydrogen bombs into the atmosphere above Mars every few seconds, and that will release the carbon dioxide trapped in Mars's ice caps. Would we know that carbon dioxide warmed a planet unless we'd already experimented with this one? No. So, was it all part of the home game? I think it might be worth sending him up there.
+
+[00:09:05] Maybe with his ex-best mate. Wow. Dung beetles. Oh, yeah. They don't just eat dung. Okay. Get out. Yeah.
+
+[00:09:18] Some of them eat fungi. Some of the meat rotting fruits. Some of they eat carrion. I mean, none of the meat burgers. It's all pretty disgusting stuff. Decapitated millipedes. I read about that one. It's a dung beetle in Peru.
+
+[00:09:29] it has given up eating poo and they all have this kind of chisel shape on their head to shape the poo into a ball which is what they normally do but this one in Peru it has given up eating poo and it uses its chisel to decapitate millipedes
+
+[00:09:44] so at what point that's an evolutionary question it's just one dung beetle who goes wait a minute this is delicious compared with what I've been eating my whole life also they don't eat very large pieces of poo
+
+[00:09:58] They're very fussy eaters and they have a bad reputation as being the slobs. Dung beetles specifically pick out nitrogen-rich tiny particles inside poo. So actually they hate the big bits of poo. Yeah, they're picking particles
+
+[00:10:13] 2,000ths of a millimetre big. That's not a sizable meal. So is there actually any poo in that? It's all poo. It's all poo. No, because sometimes when I poo, there's corn in it, right? Oh my God. Okay, okay. You're going to get extramed.
+
+[00:10:28] materials. It's all poo once is part of the poo. I think I'm not again. Not coming to Dan's restaurant. Okay. You know, single elephant can maintain two million dung beetles. Oh, really? That is good. But then if that one elephant dies, then they're all out of business. Are they alive? That's true. Yes. It's like a Trojan elephant kind of situation. No, they're not inside it. Oh, sorry. Oh. What did you say? What did you say? I said sustain, not contain. The anthophagous torus, the bullheaded dung beetle,
+
+[00:11:07] it's kind of the poster boy for dung beetles. They can pull dung 1,000 times their body weight. Wow. Which is the equivalent of me being able to pull an entire right whale's testicle made of poo. How relatable for everyone. Thank you. It is time for fact number two, and that is Andy. My fact is, new Finnish doctors are officially issued with a sword.
+
+[00:11:40] Short doctors get a short sword, and tall doctors get a long sword. And it's if you get a doctorate of medicine or philosophy or whatever, you get to wear a nice top hat, which we don't have in the UK. You see, because when you said this, I thought you meant doctors as in medical doctors. It is medical doctors, but it's also getting a doctorate. It's graduating, basically. Graduating, yeah. So fine arts, probably business, PhDs, whatever it is.
+
+[00:12:03] And if you're under a certain height, you get a 76 centimetre sword. If you're a bit taller, you get an 81 centimetre sword. It's not a huge difference. The night before you graduate, you go to a traditional sword wetting ceremony where you have to go and sharpen your own sword. That's wetting. Whetting. I think you need to wet it a little bit as part of the hot.
+
+[00:12:23] So that wetting in this case means sort of grinding it down. Sharpening on a grindstone, yeah. That's cool. And it's a whole process, right? Like you apply for it, you give your name, which gets etched into the side of it. It has the date of your graduation, I believe, there as well. And the hat is the only difference. That's how you tell what they're graduating from.
+
+[00:12:40] So they wear a hat? They all wear top hats. They are also bespoke hats made. On the front of them, there's a little gold emblem that shows the faculties and so on that they're connected to. And so if you're a doctor of fine arts, you'll get a dark blue hat. But if you're Doctor of Law, you'd get crimson. So that's how you tell all the different doctorates of parts. Apparently that idea comes back from the University of Uppsala, which is in Sweden, not Finland.
+
+[00:13:05] And some students went to Finland from Uppsala and they were wearing purple berets. But they were like, oh, they look really great. Let's do that. And Uppsala got their idea from the Romans. And the idea was, if you were a freed slave, you would get a red hat. It all goes back all the way to that. And speaking of Uppsala, by the way, at 10 p.m. every night, the students in Uppsala
+
+[00:13:27] open their windows and start screaming and nobody knows why. Every night? Every night. Someone needs to ask them? Well, they do it because their predecessors have done it and their predecessors have done it, but the reason that the original ones did it is lost to the midst of time. Right.
+
+[00:13:43] Do you know how long they've been doing it? Since the 70s. Oh, okay. 1970s. Since, okay, someone must be alive there from the 70s. Yeah. I think a lot was happening in the 70s that people don't really know why they were doing it.
+
+[00:13:58] Yeah, right. They're all jogged up to their eyeballs. Got it. They didn't know why at the time. What did you guys do when you graduated? I can't remember. Nothing. I really can't.
+
+[00:14:06] I'm trying to remember the ceremony because I was researching as fact. I can't remember the day. I can't remember being there. I have a memory of watching myself graduate from up high in the thing, but that can't be right. Well, so that maybe you nearly died? I did not have an out-of-body experience. I did die. No, I just can't recall it at all.
+
+[00:14:22] Yeah, I just can't remember either. Really? Yeah. I can't either. You didn't graduate. That's true, but... I just think it's not as big a thing. I mean, I didn't go to mine.
+
+[00:14:34] As big a thing here, it's somewhere like America where it's obviously this huge deal. And I like in America the massive fanfare over who's going to do the commencement speech. And there's always this struggle between all American universities
+
+[00:14:47] to get big celebs. It seems so random like Taylor Swift, J.K. Rowling, Bill Cosby, Robert De Niro. You know, they're off... Whoa. They're not very proud of their choices. Taylor Swift.
+
+[00:14:58] I know, I know. I'm not really questionable choice. I agree. Plimey. Didn't you study at Edinburgh, Anna? Uh-huh. I think you missed a massive opportunity when you didn't go to your graduation ceremony. Did I?
+
+[00:15:10] Everyone who graduates from Edinburgh gets tapped on the head with a hat that is made from the seat of the trousers of John Knox. Now, John Knox is not famous in the UK either. But he is important. He was the founder of the Presbyterian Church. He was a huge figure in Scottish history and Scotland's story. So when he died, a pair of his breaches were turned into the Geneva bonnet. And now, hundreds of thousands of students have been gently bonked on the head with a hat that's made of his trousers. Oh, wow.
+
+[00:15:44] You missed the chance. Except about 10 years ago, they decided to do some restoration on the hat. And they found a note inside saying Henry Banks, 22 Duke Street. 1849. So he was supposed to be around in the 16th century. So it's at least 300 years younger than they claim it to be. Right. Yes. Yes. But it has been to space. It's been to space. Oh, well. Well, it hasn't been. Let me knock down your fact. It's that they tried to take it to space, didn't they? And the university said, no, you can't take these 100-year-old trousers, which we're pretending of 500 years old into space. So they instead took a piece of
+
+[00:16:23] clothed the space and then sewed it in when they got back. Nothing about this is making me regret not attending my graduation. The graduation-related person, the biggest fan of is Chuck Schumer. Are you familiar with Chuck Schumer's work in graduations? No, no. So Chuck Schumer, I mean, he's a little bit like John Knox. You're like, Chuck Schumer, who is that? He's a Senate Majority Leader or was until very recently, a Democrat.
+
+[00:16:44] And he's one of the people who does commencement speeches, one of the celebs. But apparently he just does them all. So he's in New York. He's center in New York. And if you've been to uni or primary school or secondary school, got a doctorate and undergrad and masters, he's rocked up. Some people think sometimes uninvited just does the commencement speech. And there are Reddit threads of people going, I've been educated in New York. I've seen that sotting speech five times.
+
+[00:17:09] It's always exactly the same. And apparently if you're sitting in the audience doing a PhD and you've gone through all education, you can literally just mowled along the speech with Chuck Schumer. As he says it over and over again. Wow. What an ego. I have a favorite graduation. person from America as well.
+
+[00:17:24] Everyone does. Everyone has one. Benjamin B. B. B. Bulger. Benjamin B. Bulger, he's in his 50s now. He has graduated 17 times, or at least he will have got his 17th very soon. And these are not from sort of like online places. He graduated from Harvard, from Brown,
+
+[00:17:44] from Stanford, Cambridge, Oxford. I don't know if he's officially attended all 17 graduations. So he's actually getting degrees. Yeah. Well, that makes me think is getting a degree. is not a good pathway to getting a job. Yeah. If he still hasn't managed to find one.
+
+[00:17:56] But he seems at a basic character. He got expelled from preschool. He went to a school called Noah's Ark, and he got expelled because he kept asking too many difficult questions about the animals on the Ark. So he said, well, what are the lions?
+
+[00:18:13] What didn't they get hungry? What's going to happen then? They're going to eat everything? And they just went, listen, you're out of here. In preschool. Wow. Yeah, so he loves studying. He homeschools his kids. He has, so he's called Benjamin B. B. Bolger. He has a son called Benjamin B. Bolger, Jr. And a daughter called Benjamina.
+
+[00:18:30] Be B. B. B. Oh, lovely name. Yeah. We got an audience fact sent in about this recently, actually. I really like this. This is from someone, this is from Neal from Shrewsbury. So thank you, Neil.
+
+[00:18:41] Right, I love this. For 500 years, if you wanted to get a Master of Arts degree from Oxford University, you had to swear an oath that you would never be reconciled with Henry Simeonis. Nobody knows or knew at the time who Henry Simeonis was, but you had to swear, swear on your life, you would never make up with him, never settle the argument.
+
+[00:19:04] The oath was abolished in 1827 because nobody knew what they were abolishing. And do we know now? We do know now. He killed someone. He killed someone. But in like 12-something. I mean, he killed someone 600 years before.
+
+[00:19:19] It's been a long time. a long time and he was let back in. They started debating it 170 years before they decided, yes, let's remove this. We don't. Like even 170 years before they thought, we don't need this anymore. But it took them that long to get rid of it. I just love that. That's very cool. In 2018, Norway, police said to graduates that they should refrain from running naked across bridges or having sex on roundabouts. Which was weird because none of them had ever done it, right? Apparently this is the thing in Norway called Russ, and it's basically when you graduate, you just have a big old party.
+
+[00:19:56] Wow. And you might sort of get in a bus, a Russ bus, and drive around Norway and, like, go on a big old pub crawl along the whole country. Because Mayhem. Yeah, just like the Venger bus. And they came up with a new law about two or three years ago that says every group of the students has to have at least one person who isn't graduating who's like the designated driver.
+
+[00:20:17] That's an official law. That's very clever. And they have this thing called Russ knots. So you wear your hat like a lot of places do when you graduate. And you can attach things to it, a bit like what are they called those bracelets? Like a charm bracelet. So you attach things on. So if you spend the night in a tree, you're allowed to put a stick in your ca.
+
+[00:20:38] If you eat a Big Mac hamburger in two bites. Two bites? Yeah. They're a lot smaller than they look on the adverts. Okay. Yeah. Well, you get a little piece of Big Mac wrapping, and you can put that on. If you can drink a bottle of wine in 20 minutes, you get a wine cork.
+
+[00:20:56] So it is like, yeah. And if you can crawl through a supermarket while barking and biting customers' legs, then you get a dog biscuit. Do you have to prove you can do it? Because I can do that. Oh, yeah. I think you've got to do it. I can do it.
+
+[00:21:13] You have to do it. I'll do it later, after the wine thing. You know, if you go to Cambridge, if you want to graduate, you have to pull someone's finger. This is a genuine ritual they have. Oh, really? And they always fart? Wait, what's the point? Do you fart?
+
+[00:21:27] Yeah, yeah. Pull my finger, and you? That's the joke. Pull my finger. Yeah. Thank you. Well, at Cambridge, four of you pull someone's finger at the same time. And it's like a Don, a sort of lecturer, and he tows you towards the place where you get your degree.
+
+[00:21:40] Just farting the whole way. That's the coolest Don in the world who does the quadruple fart. The undergrad's on his finger. It's very hard to maintain four different notes at the same time. But it can be done. It is time for fact number three, and that is Anna. My fact is that California's international wine industry was started by a samurai.
+
+[00:22:10] Wow. Yeah. That sounds like a chat chibi-t made up that fact, doesn't it? Sounds like they've taken all of our facts from history and just like the Portuguese sushi industry. was started by a snowman hole. Yeah, they shoved two random nouns together. Come up with an amusing fact in the style of popular podcast,
+
+[00:22:29] no such thing as a fish. That's what I've started doing, okay? That's busy live, I outsource. No, this is a real samurai. They also have swords. I know who I'm backing in a samurai versus Finnish doctor sword-five. Well, it's a drunk samurai at this point, because he started a vineyard.
+
+[00:22:49] But still, this is started in 1864, this tale. And there were 19 young samurai from a part of Edo era Japan to the Kagoshima Peninsula and they were smuggled out. So this was when Japan was very isolationist didn't want any contact with the outside world but these samurai family said
+
+[00:23:05] you must go to the west and learn all of their technology and stuff. 19 sent away. There was this one guy who was called Kanai in Nagasawa who ended up via Scotland in California. Sorry, he was called Kanayay and he went west. Probably not relevant. Nice.
+
+[00:23:25] He did change his name. He wasn't originally called that, so maybe it was in prediction of the Cannae A West that we all know and love today. Why did he go there? He went there because he basically befriended in Scotland this kind of religious cult leader called Thomas Lake Harris who said,
+
+[00:23:39] I think we should try and set up a vineyard in California. Can you be the guy who does all the grapes? And he did, and he became the wine king. He was known as the wine king of California. He really rocketed Californian wine sales. he was the first person ever to market Californian wine outside of America. And yeah, he was a huge deal. It produced more than 200,000 gallons of wine a year.
+
+[00:24:00] And he was just this samurai. Wow. When was it? This. So it was 1864. They left, and I think it was huge by about the late 1870s. It was a big deal. Oh, so it's like basically it's gold.
+
+[00:24:12] Gold Rush era, yeah. And California was making wine before that, but this is when it really rocketed. Yeah. Very cool guy. This guy who was the guru spiritualist above him, Thomas Lake Harris, fascinating character. He ran a thing called the Brotherhood of New Life, and he claimed that you could breathe the ether, which would give you divine air as opposed to the actual oxygen that we have. Quick question, sorry?
+
+[00:24:39] Yep. How do you take in ether without breathing? Through pseudoscience. Oh, thank you. Yeah, through bullshit. Yeah, he also thought that you could breathe through your spleen. So he said, bypass the lungs and get that right to the spleen. Come on.
+
+[00:25:00] He was an interesting, and air quotes around that character. He, weirdly, it was a cult he ran. He forbade alcohol from being consumed and then started a winery with the samurai. Is he the one who thought the fairies existed and even thought that he married a fairy? Does that help? Oh, maybe it sounds a bit like him. I like him, though. I think a lot of what he was saying was metaphor.
+
+[00:25:24] What is breathing in the ether but Buddhism? He's basically a Buddhist, right? Saying that deep breaths, with deep breaths, you can achieve spiritual, you know, harmony. And there was a journalist called Al-Zare Chevalier, who was this woman, who was a bit of a muck-raking journalist, in my view, who came and she said that they were all, all the people in this cult were being made to perform strange sex acts
+
+[00:25:47] and have baths together. I think some of that might have been happening. Yes, and it might have been, and it might. Well, look. Why are you sticking up for this cult leader, Anna? I read a couple of biographies, which fair enough came up before she released her book at 1894, which made him sound like a really nice guy. Right.
+
+[00:26:05] Yeah, yeah. They can be persuasive cult leaders, though, I suppose. When I start my cult, you are the first person I'm coming to as a comber. You are an easy mark. I think there was a bit of weird sex stuff going on, but what they were taught, is that sex would be much better in the afterlife. They would be having sex with fairies and angels and stuff like that. And I actually think that sex might have been better in the afterlife for those guys
+
+[00:26:28] because their form of safe sex was to press very, very hard on the testicles to avoid ejaculation. But you, it works. I feel saying that wouldn't be fun for you. I think very, very hard is a movable feast of her phrase. I think we need to get it. Gosh. We should say the Wine King's fortunes were taken down in the 20th century. So he remained very wealthy, like ran this huge vineyard, lots of other vineyards set up as a result.
+
+[00:27:01] And then the Second World War happened, which, spoiler, wasn't good for Japanese people in America. And they all had their land taken away. But now his property has been restored. And you can still see, although it's quite singed from a recent horrible wildfire, his samurai sword, because they had to leave their swords behind in Japan when they were sent away as kids, he went back and got it, and it's now hangs on the wall of this vineyard sort of shed. That's very cool. That is very cool.
+
+[00:27:30] I was looking a bit into Californian wines, and it's interesting because the origins were part of mysticism, right, and this weird spiritualism, that still kind of remains in America, in California. There are many wines that are grown and everything is treated via. biodynamic wine, a treatment. What's that? This is a thing that was created by a man called Rudolf Steiner, who is also the reason that I never graduated, because I went to a Rudolph Steiner school, and they didn't let me graduate.
+
+[00:28:00] They were giving you wine every day, were they? Yeah, I was too pissed to show up to graduation. You told us that instead of learning history, you learned about holding a vibrating metal pole. And I don't know if you were joking. I think you probably were. No, not instead. That was, I do history class, and then I do holding vibrating metal pole class. afterwards. It was called Eurythmi. It's a dance. Anyone done Eurythmi?
+
+[00:28:20] So no, okay. Just for the audience. Ironically, you went, you with me and no one was with you. Yeah. Okay, so this is what's done. This is part of it. They do things like they will bury cowhorns that's filled with fermented manure into their vineyards. They will prune and harvest based on lunar cycle and they believe that if you use crushed quartz, It's basically homeopathy, which is used to make the wine grapes grow better. But the weird thing is, there were multiple award-winning Californian wines that are grown by using the Biodamic Rudolf Steiner principles. I bet they use other normal wine-growing principles alongside them, don't they?
+
+[00:28:59] I bet they water them and stuff, too. They are award-winning, a lot of California wines. And that really goes back to 1976 when there was a big competition where they put all the best French wines against a load of California wines. in France, and they invited a load of journalists over, and only one journalist showed up because they assumed that the French wines would win everything. It's called the Judgment of Paris, and it turned out that the Californian wines won,
+
+[00:29:27] and they were the tastiest ones. Wait, the judges were French? They were French. One of the judges, Odette Kahn, who was the editor of a French wine magazine, she demanded her scorecard back because she didn't want anyone to know that she'd voted for the California wines ahead of the French.
+
+[00:29:43] They must have hated that. It was horrendous for France. I'm sorry, I'm sorry, I'm sorry, that's so much fun. It sounds like the most fun moment for the rest of the world in history. Because it was even the people who organised the contest, who were a Californian wine grower and the British guy who ran a wine company in France, were like, obviously the Californian wines are shit compared to the French wines, but we'll see what the tasters think.
+
+[00:30:06] And the tasters were there, and they were, sorry, I almost tried a French accent then, and I retreated really fast. But they were the best wine tasters in France. and they'd taste a wine and say, ah, delicious, back in France again. And it would be from the Napa Valley. Oh, I love it. And they were disgrite. And a bunch of them were fired from their jobs and, like, cut out of wine decided that they were in after bringing this disgrace to France.
+
+[00:30:30] I'm going to get off the Eurostar on the way home tomorrow in Lille. And I'm going to ask them if they have any lovely Californian wine I've heard so much about. Oh, I can't wait. I can't wait. The thing is about wine tasting is a lot of it is, kind of mediopi, isn't it? Yeah, and it doesn't really, it doesn't hold up to scrutiny a lot of it. There was a guy called Robert Hodgson who did a, he actually made wine and he checked the results of a load of competitions and found that his wines, in one competition, they'd get like
+
+[00:30:59] 95%, and then another one they get 65%. And it was exactly the same wine. And he couldn't understand why. And so he did a study where he blindfolded wine experts and gave them three different wines and said, can you explain what they are and give them a score out of 100? And they gave them all different scores, but he gave them the same wine three times. And there's been another one where they gave people two glasses of wine. One was white, one was red. And then they said, what do you think? And they like the red one. Oh, yeah, there's hints of berries and there's hints of jamminess and all this kind of stuff. But actually, it was white wine with red food coloring in it. And they couldn't tell the difference between the two.
+
+[00:31:36] When the temperature was the same, they couldn't tell the difference. things are sham. I wouldn't say the whole things is sham, but I think a lot of it is. Wow. Okay. I'm going to buy that two euro my model I saw earlier then. Well, that's what all out of drinks is. Exactly. This is why stick to the hawk and you'll be fine. Do you know what the fastest growing wine in the history of America's wine industry is? Fast as growing wine. Yeah. You mean physically the graves? No, sorry. I don't know. I mean, as in they sold not many and then loads and then little and then even more. Have we heard of it? Is it? Possibly not.
+
+[00:32:10] Oh, well, this is a shit. Is it a famous kind of wine? It's famous in America. It's called Two Buck Chuck. And it is white wine that costs $199 in dollars per bottle. Actually, now due to the cost of living, it is $3.49 per bottle. But for many, many years, it was started in 2002, and for probably about 15 years, they kept it under $2.
+
+[00:32:35] And the way they did it is they just took all the off, the bits as long. left from all the different wine growers, and then they brought it to this factory and mixed it all together and sold it for cheap. But the thing was, their factory was in the Napa Valley, so they could put Napa Valley on all of the labels. I still don't think whoever cheap, I'd buy a wine that had a synonym for vomit in its name. I think we'll work on the title. Yeah, yeah. The first ever vineyard planted in California was in 1769, and it was by a man who used to whip himself
+
+[00:33:08] with spikes. Okay. This was because wines were often grown, as you know in Belgium, similarly with beer, by weird religious people. And he was one of them. And this was in San Diego, and he was a guy called Father Junipero Serra, which is weird, because his name is Juniper, which is gin. And Syrah is a kind of wine. Sirrah is a kind of wine. I mean, he's all over the place.
+
+[00:33:34] And yeah, he was a Franciscan monk, and he planted the very first Californian vines. and they were the main ones growing for about 100 years but he also used to wear sackcloths with lots of spikes on the inside that jammed into him as he walked and he... You know what, the first monk to turn that inside out were the spikes on the outside.
+
+[00:33:52] That was punk. That was punk, yeah. Punk, like, it rhymes with monk, it's punk. Yeah, yeah. That's a synonymonic for whether you're talking to a monk or a punk. All right, we do need to get to our final fact of the show. It is time for our final fact of the show, and that is James. Okay, my fact this week is that some donkeys keep sheep in their pockets.
+
+[00:34:22] Now, there we are. There's a picture on the screen. There's a picture on the screen. Anna, why don't you describe what you're looking at? What I'm saying is a donkey with pockets, wearing a coat with pockets, to be fair, and some really cute lambs poking out of them. Why are they doing that? Well, they are being taken to high pastures to the top of mountains where they're
+
+[00:34:44] can feed and it's very difficult to transport newborn lands. Because you can't put them on a car because the roads aren't so good, like a four by four, I guess, or something like that. But actually the donkeys are really good at getting up the mountains. And so you want to put your sheep with your donkeys. And a donkey, realistically, is quite difficult for a donkey to carry a sheep. So it needs to have some kind of outfit where you've got little pockets where you can put the sheep in. And this happens in Lombardy.
+
+[00:35:13] A good wine region. Right. Apparently not. Not anymore. And they have these little, they can stick their heads out so they can see where they're going. It's very sweet. They might get travel sick or something otherwise. Yeah.
+
+[00:35:27] So nice. Donkeys have a lot of different uses. Oh, yeah. You can name an activity and a donkey can help, basically. Golf? Yeah. Oh, yeah. Caddy.
+
+[00:35:41] The donkey caddy. Okay. I actually picked quite an easy one. Unfortunately, that's the first activity that comes into my head in all circumstances. Okay, well, there are guard donkeys in France. There's a bit of the Atlantic coast, which is called Poitou Charent. And there are guard donkeys there because France has a lot more wolves that it used. Well, lots of Europe has a lot more wolves than it used to.
+
+[00:36:05] They've been reintroduced, and they can sometimes prey on sheep. Not in Poitou Charent, where the donkeys are so aggressive and so. and so big and so frightening and they will find a wolf and run towards it and kick it in the head that the wolves just don't even try any anymore. These are bigger donkeys than an average donkey?
+
+[00:36:24] They are larger than the average donkey. Yeah. Great. Otherwise it's embarrassing. I think as a wolf to go back to your pack and say there was a donkey. Oh, it's embarrassing either way. Yeah. A donkey is massive. It's more like a horse. Beehives used to be transported by donkeys
+
+[00:36:41] so they would put wooden hives on the side of them, and they would, I guess, walk very carefully towards where they were going. There's a story which kind of has, like, bled into legend, but I will continue to talk, despite being a factual podcast, where supposedly the relics of saints, if they were transporting them, a donkey would transport it, because donkeys obviously very tied in to religious iconography. Jesus, you know, there was a donkey in the manger,
+
+[00:37:08] according to the main story, and so on. Jesus rode on a donkey on Palsam Day. Yeah, so it's very much that. So the idea was that if you were taking... It wasn't, sorry, can I just say, I don't think the donkey was in the manger, so much as beside it looking in. I think Jesus was on his own in the manger.
+
+[00:37:23] What is the manger? It's the crib, isn't it? Yeah. I thought the crib was the crib, and the manger was the room. God, he would have stuffed all those farm animals straight into the crib. Well, that's why my nativity play was received very badly at school,
+
+[00:37:36] and it was controversial. There is a song, actually over Christmas, which is Little Donkey, which is about how they're Jesus, Mary and Joseph are going to Bethlehem and Mary sits on the donkey and goes along. Okay. And Jesus is going inside Mary's tummy at that point. Yes, absolutely, yes. But actually, women did not ride donkeys in those days in the Holy Land. Really?
+
+[00:37:58] Only men would ride donkeys. So the man would have been on while the woman, even though she was pregnant, would have been walking behind. No. Generally speaking. Wow. Wow. And that is the one problem with it. Not really.
+
+[00:38:11] If you're Joseph, you're going, I don't even know whose baby this is anyway. How's this happen, love? Keep walking. And actually, if you look at a donkey from above today, most donkeys, they've got some hair that goes across their shoulders, and then they've got a line of hair that goes across their back, and it looks like a cross.
+
+[00:38:34] Oh, really? That's another reason why it's quite religious still. Sign of the cross, that's great. Is that why it's called the mange? What? Isn't that what it's called? It's called the main... It's not called the mange.
+
+[00:38:42] Unless you've got a mangy donkey. Wait, wait. Aren't we away in a manger here? Are we trying to say there's no link? Are we trying to say Dan's just misheard something and not understood it? Yes, we are. Carry up. I wish I graduated.
+
+[00:38:58] In Britain, one of our main hobbies is preserving the lives of elderly donkeys. Like, it's a big... It's a big thing. It's a bit like lots of... big donkey charities in the UK. Do you have big donkey charities here? Basically, if you watch TV in the middle of the day, then there'll be an advertisement saying,
+
+[00:39:16] please leave all your money to a donkey century when you die. And people do, in their thousands. They leave all their money to the donkeys. So you guys, who do old sad people leave their money to when they die? If not to donkey sanctaries, I literally don't understand where all that money would go if you didn't have donkey sanctuaries as an option. It's what happens to all.
+
+[00:39:36] You guys are weird. I went to the donkey sanctuary Balmuth website and I had some just great donkey facts that I have not checked. But fact number two, donkeys can see all four feet at the same time. I have checked that and it's not true. Have you? Yeah, I have. Also, why did you start with fact number two? Fact number one was even more boring than that one, if you can imagine that.
+
+[00:40:03] You don't have to stick to the sanctuary's numbering system. Fact number 12. A donkey, this is when I realized this list of donkey facts was suspicious. A donkey's bray will carry up to 60 miles in the desert. I just don't think that can be true. It doesn't seem very likely, does it? Is that donkey to donkey, though, or to human? Is it like, you know how dogs can hear a different higher sound?
+
+[00:40:34] You'd think that it would not be audible to predator animals. Like, there's a donkey 57 miles that way. Just a little announcement that might have got past a lot of people. Sadly, we lost one of the great donkeys this year, this January. No. Yeah, Perry. Perry the donkey has passed away, age 30. Perry was the inspiration for donkey from Shrek.
+
+[00:41:01] That was a real donkey. And when you see a photo, it looks exactly like donkey from Shrek. It's a donkey, yeah, he's a donkey. But his big, big old face, you know, he's tiny. Perry was originally sent to California to help calm polo ponies. So he would be the calm them down. Calm them down and keep them chilled. But things went bad when he bit every single one of them.
+
+[00:41:24] Oh, dear. Which is so Shrek donkey, right? Also, good on him, you pretentious dickheads playing polo. That's what I do to polo players. Wow. Do you know what the biggest global threat to donkey welfare is at the moment? Big horse. Just one big horse?
+
+[00:41:43] The horse industry. They're competing. People aren't breeding don't breeding donkeys anymore. Oh, people banning riding on them at the seaside. Is it slightly overweight children on Blackpool Beach trying to ride donkeys? Because I know they have caused a problem. They have banned them. It is not that.
+
+[00:41:58] It is China. consume something called Ejayo, which is a gelatin you make from donkey's skin, and it's supposed to be good for you due to Chinese medicine in various different ways. In China, there were lots of donkeys there. People were using them to move things around, and so actually they have quite a lot of donkeys there. But more recently, when China has become more industrialized, people don't have don't have donkeys anymore,
+
+[00:42:21] so they have to get their donkey skin from other countries. And they're importing loads and loads of donkey skins, especially from Africa. and the number of donkeys in Botswana fell by 60% in the five years between 2011 and 2016. Yikes. Fifth in Lesotho. And the price of donkey skins is going through the roof at the moment. If you had £1,000 at the start of 2017 and you invested it in donkey skins for the first six months
+
+[00:42:47] and Bitcoin for the second six months, you'll have ended up with £25,000, which would have been enough to buy a pair of cufflinks owned by Elvis. again, you always gild the lily, James. There was a sale that year of Elvis memorabilia. Wait, sorry, is that £1,000 to $25? Yeah.
+
+[00:43:07] And you simply needed to be an expert in the fields both of donkey skin and Bitcoin. Yeah, and get the timing exactly right. Of course. Law of Everett is someone will have done that. I think donkey meat is quite a delicacy in China, although the Chinese branch of Walmart
+
+[00:43:24] It had to recall a bunch of five-spice donkey meat products in 2014, but that was because they tested them and they were full of fox DNA, which is not a delicacy. So what? The don't think the don't think we're blaming the donkeys for contaminating. Because we had the thing in the UK where, like, beef parliads, like beef lasagna turned out to be containing horse. That was a big problem?
+
+[00:43:50] And donkey as well. Oh, was it? Donkey as well. And so donkey meat then containing fox. So what's in my fox burgers, that's why I want to know. It's the old woman who's swallowed a fly, but the other way. Guys, I need to wrap us up in a saying. Oh, yeah.
+
+[00:44:04] Do you have Lyme disease here? What do you call it that? Yeah, okay. It's really dangerous, obviously. You get it from a tick. You get bitten by a tick, and it creates, that's really bad for you Lyme disease. Anyway, so little bloodsuckers.
+
+[00:44:16] Donkeys and horses secrete this natural compound, which ticks can't cope with. They hate it. So if you wrap yourself in a live donkey, you will be safe. A live donkey? I think it has to be a living donkey. Yeah, yeah. I think you basically have to...
+
+[00:44:32] How long is it going to be alive when you've wrapped it around yourself? You are going to need a fresh donkey after a little while, I think. Wow. Anyway, just a... Yeah, that's a useful advice. A tip to you there. And if you do die from Lyme disease, consider donating all of your money to a donkey sanctuary, people of Belgium. That is it. That is all of our facts. Thank you all of you for coming and sitting here and listening to us here at the Nerdland Festival. If you want to get in contact with any of us, we're all on social media. I'm on at Shreiberland on Instagram. Andy? Andrew Hunter M. Various. Okay. James. No such thing as James Harkin. Equally various.
+
+[00:45:21] Oh. Okay. And Anna, to get to us as a group? You can email podcast.q.com and that's just on email. And then on Instagram, we are no such thing as a fish, and on Twitter, I know such thing. Yeah, and obviously we have a website, no such thing as a fish.com. If you want to check out all our previous episodes, go hang out there. But main thing is to say, thank you for having us for a third year in a row, Nerdland. We've really loved it. We will see you again, hopefully next year. Until then, goodbye.

@@ -1,0 +1,385 @@
+# No Such Thing As A Fish - No Such Thing As A Reindeer Stockbroker
+
+- Episode date: January 25, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-reindeer-stockbroker
+- Slug: no-such-thing-as-a-reindeer-stockbroker
+
+## Transcript
+
+[00:00:01] Hi everyone, welcome to this week's episode of No Such Thing as a Fish. Dan Shriver is not with us today, unfortunately. He is off doing community service, by which I mean he's doing jury duty, which means he won't be here this week or next. But in his place, we are joined by our colleague and very, very good friend, Leying Lee. Now, some of you, the super-duper fish fans, will already know who Leeing is. She has appeared on our meet.
+
+[00:00:31] the elves feature in Club Fish. She was so good on that that we decided to ask her on to the main podcast. I'm sure you're going to really enjoy it. She's absolutely brilliant. If you want to know more about all the other elves, then go to no such things of fish.com forward slash apple and no such things of fish.com forward slash Patreon. And if you go there, you can hear all the other episodes of Meet the Elves, as well as drop us a line, which is our mailbag show, compilations and much, much more. Anyway, there's no much more to say today. Apart from really hope you enjoy join the show with Leying and on with the podcast. Hello and welcome to No Such Thing as a Fish, a weekly podcast coming to you from the QI
+
+[00:01:26] offices in Hoban. My name is Anna Tyshtitsky and I'm sitting here with James Harkin, Andrew Hunter Murray and Leeing Lee and we are gathered here today with our four favourite facts from the last seven days. So in no particular order, here we go. Leeing, what's your fact? My fact this week is that during World War II, Bletchley, Park was forced to have a teacup amnesty. So it was an amnesty where you have to go and turn your teacup in. And you won't be arrested. You won't be arrested.
+
+[00:01:54] And you won't be arrested. There was a memo that was sent out that said, it is regretted that owing to losses, it is no longer possible to provide service crockery for morning and afternoon teas. Wow. And that was all they did it, Bletchley. That's all. Yeah, they only drank tea.
+
+[00:02:08] They didn't do any important work at all. No longer providing service crockery for morning and afternoon teas. I feel like that's the point of wish. England really started to decline. Yeah. The start of England's decline was the middle of World War II. Is that what we're saying? Found a point.
+
+[00:02:26] Wasn't the famous thing about Bletchley was that Alan Turing, who worked there, used to chain his mug to the radiator. Yeah. And then poor Alan would be teased by people picking the lock on the chain and nicking his teacup just to annoy him. If he can't set a code on his lock that's not. not possible to break by the others, then I don't know if I trust this guy to win our war. The thing about Turing is I read an interview with someone else who worked at Bletchley.
+
+[00:02:56] Apparently when he wasn't in his office, he used to tie his mug to his hand. So if they go outside, there was a big lake at Bletchley and they'd often have like a picnic out there. And he would be there with it tied by rope to his hand so no one could steal it. Fantastic. Wasn't there a rumor that they threw crockery into the lake? Do we think that was just a rumor? Well, yeah, that's an interesting question. So I found quite a lot of sources, kind of diary entries and things like that. Sorcers or Sorters. Very good, very good. I went to Bletchley myself and Dredge the Lake and found saucers. And I found some sources that people like Josh Cooper, who was the really kind of eccentric head of the air section, he would go around the lake, finish his coffee and then throw his cup into the lake.
+
+[00:03:41] And also there's a good reason for Alan Turing to chain his mug up because apparently his deputy, Hugh Alexander, would also be known to throw his teacups into the lake. Why? Was there a reason for it? Was it like a celebration or was it? Oh, we've cracked today's code. They were all Greek.
+
+[00:03:57] Right. It would just smash the plates and throw the teacups away. Yeah, it feels like that, doesn't it? Yeah, and well, it wasn't just lakes as well. There was another memo that said that they ended up finding loads of cups and sauces in the shrubs. It feels like there's some kind of weird Easter egg hunt game going on that we don't know about. If we know anything, it's that they were good at keeping secrets at Bletchley. And I think this one is still Official Secrets Act.
+
+[00:04:23] Yeah, because Leigh and you emailed them and asked them if it was true, right? Yeah, well, the thing I was mostly interested in checking was something that said that after the war, the administrators at Bletchley dredged the lake hoping to find kind of discarded equipment that was used to kind of crack the enigma code and really fascinating. kind of historical artifacts and instead all they found was giant heaps of cutlery and crockery and tea sauces and stuff which would have been fantastic so I emailed them just to double check and I talked to this amazing woman called Heather hi Heather if you're listening and she said that she's always listening she's actually translating what we're saying into three languages simultaneously yeah it's being encrypted right now but she said unfortunately they think it's a myth
+
+[00:05:07] or certainly a bit of an exaggeration. But they do know that certainly Josh Cooper may have thrown a cup in once. What a climb down. That's so interesting. They're drawing us away from the real story, I think. That's it. That's it. As I said, maybe actually it's something very secret to do with the way that we cracked codes or fought the war and they just don't want people to know. Fair enough.
+
+[00:05:33] Should we say, maybe for international listeners? I think we should. Like what actually was? I think now we've been speaking for 10 minutes. Right. So early 40s, Britain on the ropes. There's a war going on. There's a war going on.
+
+[00:05:43] We're about to go downhill. The T services declined dramatically. The Nazis have overrun Europe. And they are communicating using Enigma machines. They look like typewriters. And they allow you very easily to encrypt what you're saying. It divides it into blocks of letters. It looks like complete rubbish.
+
+[00:06:01] And the Germans are so confident about the security of Enigma because there are 364 billion possible codes and there's a new code every day. They're so confident they just transmit the messages they don't try and jam the signal or anything. So these messages are out there and they're undecipherable. It's a nightmare.
+
+[00:06:18] You know, completely impossible. Cocky. And that was their mistake. Because Polish intelligence had just cracked Enigma just before the war and handed part of the secret, a big part of it, to British intelligence. So at Bletchley Park, which is this country estate in England,
+
+[00:06:33] the British government gathers together hundreds of hundreds of code crackers and administrators and people who set to work, including famously Alan Turing but thousands of people who do a lot of variety of stuff right, like famous chess players or people who agree it solving crosswalk. It's an odd collection.
+
+[00:06:48] Everyone just sort of piles in to Blatchley Park and starts solving codes and cracking codes and it goes on until the war ends and it's amazingly successful. It is and also the thing about Bletchley again that it's famous for here is the fact that it was mostly women So it was women outnumbered men at Bletchley by about 8 to 1, I think.
+
+[00:07:06] And they were there doing that mechanical work of every day taking down all the clothes that were coming through. Yeah. In fact, I hadn't realized that Baroness Trumpington, who was a real character in British politics until she died a few years ago, was at Bletchley. I swear there was a period where sort of any elderly posh woman in sort of the 90s when I was growing up had actually been at Bletchley at some point. Because also they weren't allowed to say anything, were they? Yeah. So it was like national secrets for so long. long, so long. And then the 90s came along and everything got declassified. And everyone went, oh yeah, I was there. Yeah. So was like. Oh, yeah, I was. Well, they had a whole thing where they were
+
+[00:07:40] trying to recruit what they called boffins and debbs. Boffins being kind of clever people and devs being debuts as in high society, socialite women. Oh, why? Because they felt that, you know, they had that kind of level of education. And they were often not bilingual. Exactly. They often they could speak French or they could speak German or they'd had a university education. And so, as you say, it turns out that a lot of the people there came from quite high society and then they found themselves, you know, bunking with all of these random people in Bletchley. Because they were posh, they were often quite eccentric and prone to misbehaviour because they could get away with it.
+
+[00:08:18] So a lot of the women would bunk off constantly and go and shag their boyfriends, for instance. There was one woman who was in charge called Pamela Rose, who she was actually an actress. She wanted to be in the West End. And she was in charge of overseeing 50 women in one of the huts. And one of them was actually Baroness Trampington, who was called Jean Campbell Harris at the time. And at one point she had to stuff Baroness Trumpington into a laundry basket and rolled her down the corridor into an officer's room, I think.
+
+[00:08:45] It was quite annoyed, who was trying to do serious work. Was that to make her escape? I think it might have been a bit of japery. I'm not sure if it was a genuine punishment or having it. Bad news. We've lost another 30,000 troops at sea. One of the convoys has been sunk by the U-boats. which was due to us not cracking a vital message. Good news, we all had a great team-building exercise
+
+[00:09:02] that we got in laundry basket. It's amazing. They would, when they turned up, they would be asked two questions. One, do you like crossword puzzles? Two, are you engaged to be married? That was your first two questions. And then if you said, yes, I like crosswords
+
+[00:09:17] and no, I'm not engaged, they go, okay, now you can have an interview. Oh, you're through. Yeah, yeah. And also, the amazing thing about the secrecy is just how secret it was, as in you don't know what the person in the next hut is doing, You don't know what the people in the same room as you're doing.
+
+[00:09:31] Often you don't know what you're doing. I've been in some jobs where I didn't know what I was doing. I didn't really know what anyone else was doing. Is it possible you've worked at GCHQ without knowing it? That could be true. I thought I was an accountant because it's just numbers. Oh, my. You've done some significant stuff, I bet, without real...
+
+[00:09:49] But for who? Because you're just like cracking these cuts and you're grinding through huge numbers of... Huge amounts of information. And, you know, Churchill wrote a six-fold. volume history of the Second War, never mentioned Bletchley, because it was still super, super secret, because they had to hide the fact that towards the end of the war, Hitler was an open book. As in Bletchley Park were getting and translating and deciphering his messages before, like, robble or going or whatever.
+
+[00:10:12] That's incredible. And they didn't really, yeah. And they haven't. Yeah. And the fact that the secrecy lasted for so long as well, there are so many veterans who, you know, took the secrets to their graves or the amazing stories of, you know, husband and wives who met at Bletchley but didn't actually know what the other person was doing and then they had kids and they couldn't tell their kids what they were doing during the war as well. And so it was
+
+[00:10:35] just decades and decades and decades of secrecy. And what was really fascinating to me is that the first person to kind of publish a book about what happened at Bletchley was treated as such a traitor by a lot of the veterans who were there. It was quite self-aggrandizing. It was you know, kind of like, oh, I did this and I did this. That was vital to the war. effort and all of this. So that was probably another reason he sounded like a bit of an arrogant prick. But for a lot of the veterans at Bletchley, it was one of those things where it was, you know, it's secret and we're going to take those secrets to our graves. Have you guys been there?
+
+[00:11:08] Yeah, a while ago. Actually, I can't remember much about it, pathetically. I was there for a public speaking competition as a teenager. Unfortunately, you were engaged to be married so you could get a job there. I hate crosswords. Oh, that's cool. Do you know if you were interviewed there, another question you might be asked was if you were interviewed by Dilley Knox, who was one of the most important people at Bletchley and he was a real eccentric. And he would ask people the question, which way around are the hands of a clock go? Brilliant. What would you say for that? Clockwise. You're out.
+
+[00:11:44] You put the minute hand on first and then the hour hand. And then the second hand? You're building a clock. Oh, I see. You've interpreted it that way. It's very interesting. Second one goes right at the bottom, I think. You've thought outside the box, but no, the correct answer according to him is it depends whether you're looking at the clock or whether you are the clock. Brilliant. That's interesting because I imagine no one got that right. So how on earth did we get anyone in?
+
+[00:12:08] No one got to drop, but lost the wall. It sounds a lot like the kind of questions that you think get asked at Oxbridge interviews and things like that. And considering that so many people that were from Oxford, maybe they did kind of think outside the box in that way. I think it was that sort of thing. What was the name of the person that you said wanted to be a West End actress? That was Pamela Rose.
+
+[00:12:27] Pamela Rose. So I wonder when Pamela Rose was at Bletchley, whether or not she joined the Bletchley Park Dramatic Club. She did. She loved it. Yeah. I'm sure she did. I love reading about this. So at Bletchley, it turns out that there was quite a campus-like feel there.
+
+[00:12:43] A lot of people, you know, their university was interrupted by the war and they got recruited by Bletchley. And so one particular veteran described it as being like their university. So there was all the other kind of stuff that you'd associate with uni. There was like social clubs. They had Christmas pantos that they put on. And he's like, I don't remember ready of this at uni. I remember being debagged a lot. You were the one in the laundry basket, weren't we?
+
+[00:13:13] But one person that I found that I thought was so interesting is that Olivia Newton John's dad, Brin Newton John he was an officer at Bletchley and he was a member of the drama club no way really he finds his name Brin Newton John in all of the programmes for all the shows
+
+[00:13:31] that they'd put on just on the results they got because it is quite abstract and it's very sort of you know there's people like poshows in the country's and actually lots of them weren't pot lots of them were Wrens Women's Royal Naval Service who were getting on with the basic work
+
+[00:13:45] every single day but some of the things they did For example, they worked out the location of every milk cow in the Atlantic Ocean. That's pretty easy. I reckon I could do that now. Another one on the bottom. So the milk cows were the tankers that were in the Atlantic and they were to refuel German U-boats.
+
+[00:14:07] Oh, really? And there were a couple of dozen maximum and they obviously were the most significant thing for the entire U-Buit operation. They were all located thanks to Enigma and they were all sunk. So the U-boat, that was a big part of winning the war against the war against the U-Bolt. the Ubo's. I really like one of the ways that they worked. Like you say, the Germans had improved the enigma. So we did know how they worked, but it was still hard to crack the codes every day. And so what you needed was some information that you knew. So when they sent the information,
+
+[00:14:33] you know what you're looking for. And so what they did was they would drop bombs in very obvious places. And they drop it in a place where you know exactly where it is. And so the Germans then would send a message saying, there's been a bomb in, you know, 25 miles. miles north of Dresden or something, and you know what 25 miles north of Dresden is, and you probably might even by then know that you're looking for the word mine, which is German for a mine or a month. So you would know what you're looking for. God, it's called gardening.
+
+[00:15:02] I think this is the kind of thing where we're like, that's so clever. And if you were one of the actual co-breakers listening, you'd be like, God, that's the most basic. Wow. Can I give you something on crockery and throwing crockery around? So this fact was perhaps about people throwing crockery. So I thought I'd look at plate smashing in Greece. I've seen various articles about where it comes from.
+
+[00:15:26] And some people say, oh, it's an ancient Greek thing that they would do in funerals. I'm not really so sure. I think it might be quite a modern thing that came in the 1960s and 70s. But actually, in 1969, it was banned by the military dictator, Georgius Papadopoulos. he banned any plate smashing in Greece because it was so dangerous. Oh, not because we didn't have enough crockery for afternoon tea anymore. No, because they set up these factories where you would make fake crockery. Amazing.
+
+[00:15:58] So it was like, it was real crockery. It was made of China and stuff. But it was like really low quality. There was no patterns on it, anything like that. It was just something that was made deliberately so you could then smash it. And there were 53 manufacturers of these. fake plates in Thessaloniki alone. Stop it. Yeah, honestly.
+
+[00:16:17] That's so good. How many plates were being smashed? There was, in the 60s, up to 100,000 per month, it's estimated. Wait, what? Why? At the end of your meal? If you've got a great restaurant, they'll smash the plates for you. It's just like a tradition. They'll smash it for you. You don't even get through the smash it. Well, you used to do it yourself, and then, like, health and safety came in, and you would get, like, some waiters would, you know, put on their glasses so that they don't.
+
+[00:16:42] They'll get any piece in their eyes and do it in the corner. They actually take them away for the controlled explosion. And today there's only one manufacturer of fake plates in the whole of Thessaloniki. That was actually what, you remember when Greece had a terrible recession around the time of the credit crunch? That was mostly caused by the fake plate industry, wasn't it? Yeah. But like what is a fake plate? Is it, what is a fake plate?
+
+[00:17:04] It's interesting because you could still use them as a plate. Absolutely. But they're much cheaper to manufacture. They're not bothered if there's cracks in there or anything like. that. There's no patterns on there. They're just white china plates. Not as fun to smash, though. I bet they were proper hardcore smashes who still went for the sort of
+
+[00:17:20] £100 property. Yeah, he still go to the museum in Athens. That buzz? Is this why we're not giving the Parthenon marbles back? You think they're going to be used to the smash orgy? I don't know if you've seen the Elgin Marbles, but they are quite
+
+[00:17:36] smashed already. Why do you think they got like that in the first place? Okay, it's time for fact number two, and that's my fact. My fact is that 18th century sea captains sometimes use their sailors as sails. Brilliant. This is actually in a book called Sea People by a woman called Christina Thompson, and it's such a good book. It's so fantastically written. And this is a practice called Manning the Four Shrouds.
+
+[00:18:08] And it was used throughout kind of the great age of sail, which I suppose was 15th century to 19th century, a long period. And basically, if the wind is too high, if there's a big gale, if there's a storm, then it's very dangerous to put your sails up because they could be completely shredded. The mast could be toppled. the boat's going to go. Oh yeah, you don't want to get any of your sails shredded. Instead, put one of your men up there. We've got 400 sailors and only one big sale. No, that makes sense.
+
+[00:18:35] Send up Stanley Big Shirt. Is that a reference to my friend? Yeah. That's very good, because we've never mentioned him on here. Have we? No, I don't think so. You used to have a friend whose nickname was Stanley Big Fair. Yeah, yeah. That's so good because it worked for the listener, and then it worked even better for James on a higher level.
+
+[00:18:53] Thank you. So this is where the... The captain of a ship would say to Stanley Big Shirt and Co. Could you please climb up onto the four shrouds? So the shrouds of a ship are, if you see a big sailing ship, there's what look like, you know, like assault course rope ladders and climbing frames? Yeah, like rigging kind of thing. Yeah, exactly.
+
+[00:19:12] That rigging is what the shrouds are, and they're what support the masts, and you can climb up really easily. So the sailors would all climb up, and they'd spread out their hands and legs, and they'd literally just face up against the wind. It just sounds like utter nonsense, doesn't it? So they'd need a density of sailors such that it was the solid wall of sailors. Yeah. That's a lot of sailors. It's a lot of sailors.
+
+[00:19:34] It's kind of holding, can't they? It'll still be pretty functional. But you get most of the effect. I think that was because you didn't want it to be too strong. That was the thing. They're not going to be as strong as a sail. But there was one. There was a ship captain by Sir Hyde Parker in the 1700s where 200 sailors were sent up into the rigging.
+
+[00:19:47] The one that Christina Thompson in her book refers to is Commodore George Anson, who was involved in the War of Jenkins Ear, which I think we must have mentioned. I don't think we have. And again, for international listeners, this was a huge deal for Britain, the War of Jenkins's ear. I actually think for British listeners,
+
+[00:20:04] the War of Jenkins ear is, I don't think it's GCSC syllabus. It was about seven years. No, I'm thinking of the Seven Years' War. Sorry, no, disregard that. That was a bigger deal. I would say it goes, World War II, World War I, War of Jenkins ear are the three main things
+
+[00:20:16] on the syllabus in English schools, certainly. And basically, there's a War of Jenkins ear in 1740, which was named after a humorous slam in Parliament where someone waved an ear around. Google it. I thought it was after someone... The failure got cut off in a naval fracas. I thought it didn't. And didn't the cut off ear get waved around?
+
+[00:20:36] I think I might have made up that bit. I've embellished it in my head. Yeah. I don't think you're allowed props in their house of Parliament. I think that's the same rule. You're right. That's why they've had to remove the official rubber chicken from Parliament. It's really said they're allowed the sceptre and that's the one prop they have.
+
+[00:20:50] Anyway, this captain recorded in his diary in 1740, that we dared not venture any sail abroad, so instead we had to put the helm a weather, as in I think, face the helm towards the wind and man the four shrouds. And in kind of classic 1700s understatement, he recorded it proves successful for the end intended, although one of our best men did go overboard.
+
+[00:21:11] Wow. So yeah, good trick. Feels like a rare move. Yeah, it must have been. They might kind of doing it often. I would say it was what we might call a life hack. It came up a bit. I was reading in a...
+
+[00:21:22] In Captain's Weekly. These 12 weird tricks. You won't believe number eight. Sailors hate him. But was that the only thing they used the sailors for? Could you have used one as an awe for instance? Lovely. Your tallest, straightest soldier.
+
+[00:21:41] Big stif Tony. Yeah, yeah, yeah, exactly. I didn't, you could look into that because they did sometimes. I read one thing in an 1810 book of sailing instructors that said, if you're in a gale, you either man the four shrouds or if you've got some spare canvas or hammocks, which I guess the sailors are desperately struggling for hammocks at this point to get up there instead. If you've got some hammocks, you'd put them up there instead. Well, that did actually happen once with the hammocks, but in the 1920s.
+
+[00:22:08] So that was a good, what, 200 years after? They were still using random hammocks and blankets and things. So why were they doing that? Yeah, so there was a US submarine that ran out of fuel and lost communications. A sail not very useful at that. Well, you would think, you would think. There should be a milk cow around here somewhere. Well, but actually you're taking them all out at that point.
+
+[00:22:29] They thought, how are we going to get home? And so the commanding officer basically commanded his men to grab the hammocks and grab the blankets and grab the bunk bed frames. And they built masts and sails and put them on their submarine and sailed their submarine home. That is so cool. Because submarines were mostly surface vessels. don't they, in the tens and twenties. Were they? Well, they couldn't...
+
+[00:22:54] Well, they couldn't go down for long, could they? They could... Like, early proto-submarines. Did everyone on board have to hold their breath? That's right. Do you? Yeah. Age of sale stuff is so...
+
+[00:23:07] It's so cool. I just... I really, really like all of it. So, I got some nautical slang for you. That's manning the foreshrouds thing, I thought we could... Yeah, yeah. This is to a guine to nautical slang from John Hard. And it was published only about 30 years ago,
+
+[00:23:18] so it's got some more modern stuff. Bronzy, Bronzy. It's where you come third in a battle That's right Really bad result Cold and silver You're like Oh bad news
+
+[00:23:31] We got bronzy bronzy this time You didn't even lose Yeah No that's sun tanned If you're suntanned A bunch of bastards The French Always correct
+
+[00:23:42] But it's also some tangled rope Bunghole Ah now Is it The Anus This recruit always had to, it was part of the initiation ceremony, wasn't it? A bunghole here. No, that's just some cheese. What? What? Cheese. Is it, do they use the cheese sometimes to bung up holes in the ship? Maybe so. It's just bunghole is cheese. Do you know what
+
+[00:24:03] a nip cheese was? Oh, no. This was in a book called the Sailor's Word Book, an alphabetical digest of nautical terms, which is a very, very old. Nip cheese. So I'm imagining it's not a kind of cheese. Is it just mice on boats? Oh, that's a great one. No, it's not quite that. Any ideas? Oh, I mean, yes, but... Don't hang back to you. I'm not trying to them.
+
+[00:24:28] Is it a nipple thing? No, it's not Andy. Well, quite. As if, like, you guys are parents, you've heard of like neck cheese, right? Oh, as in the gets stuck in the folds of children. Yeah, you know, like, you know, kind of when a baby's breastfeeding and then the breast milk kind of dribbles down and then kind of get stuck in the folds of their neck. Yeah, yeah.
+
+[00:24:46] It's never quite a cheese like status. I have to say in my experience. I've never been able to. ferment it properly. But despite your best efforts, is it? Oh, yeah. Yeah. I love any cheese.
+
+[00:24:55] No, it's not the same as that, but on the nipples. It's the name for a purser's steward. So the person who looks after the money, if you imagine, like, putting bits of cheese to kind of share the money. He's like cheese pairing. He's a bit. He's a bit. Stingy. Yeah, yeah.
+
+[00:25:10] Good. Do you know why we call a poop deck a poop deck? Everyone's just a shut on it. No, I don't know. Everyone shats on it. That's what they did with it. Yeah. What's a poop deck?
+
+[00:25:20] deck? Well. A particular deck on the ship. Yeah. Not the main deck. It's the back one. Well, there's the four deck, there's the main deck. And I don't know where the poop deck is actually.
+
+[00:25:28] Well, if you knew that, it might give you a clue. Is it at the back? It's on the stern and it comes from the French la poop, which means the stern. Love love of a boat. That's great. And for that reason, you have some other things. You have the pooping sea. Oh.
+
+[00:25:43] And that is where you're going down the sea and the current is going at the same speed as your stern. so your rudder can't really get any purchase because you're going at the same speed as the water. That's great. Do you know what a bunting tosser is? Someone from the Jubilee. That's right. Actually, you're dead on.
+
+[00:26:05] Oh, have I? Well, it kind of. It is flag-related. It's a radio operator, and that would traditionally have been a signalman who is raising the signal flags, and so bunting-tosser. That's exactly what I said.
+
+[00:26:17] Snorkers Just sausages, guys Just sausages And the beach master The beach master He was someone who stood on the beach And said this way guys This way, keep going
+
+[00:26:35] Keep going Oh, too far, too far Oh shit Do you know what? I'm going to give you that Yes Well and again This is going to be something completely different Did he have those kind of like ping pong bats
+
+[00:26:45] That's it Yeah It's a superior officer who was appointed to lead the storming party, the beach master. So yeah, yeah. Do you remember we talked a few weeks ago about elephant seals? Their beach masters are harimbs of junior.
+
+[00:27:00] Is there ever been a situation where an elephant seal beachmaster and the British naval beachmaster have been mixed up with hilarious consequences? I bet dozens. Oh no! The storming party is just one elephant seal with his harim of a hundred females.
+
+[00:27:16] That's great. I mean, you would run away, wouldn't you? Yeah. It's scary. This is sort of relates back to the Bletchley Act, but there was a Cornish pirate called Robert Culliford, and he once loaded their cannons with China crockery in the hope that it would tear the sails of the opposition ships.
+
+[00:27:36] That's a great idea. How did it work? It did not work well. They actually exploded into a fine powder by the time they had met the enemy sails, so just sort of rained down. Nice bit of rain. Yes. I think they also, they did that in the Trojan War, didn't they?
+
+[00:27:51] And that's why Greek people, to this day, smash plates. Have you heard of the pine tree riot? This is a thing that pretty much prompted the American War of Independence and was directly related to the Navy. Okay, well, was it tax-related? Yes. Just getting it all right. I mean, that actually you have got right.
+
+[00:28:13] So basically, Britain and France both wanted to build chips, and to build a ship with a big mast, you need a big tree. I got this, by the way, from a brilliant book called The Age of Wood, which is such a good book. You thought it was something different. Britain had very little forest at this time, partly because it's turned it all into ships, and had to get them from America,
+
+[00:28:34] because in America there are these gorgeous, massive pine trees that will make a cracking mast. And they had all sorts of trouble. They basically decreed, right, all trees over 24 inches across, which is what you need for a ship to mast, they belong to the crown, and we mark them with a little arrow and they're ours,
+
+[00:28:50] and you can't have them, you colonists. And in fact, having wide floorboards was a sign that you were a patriotic American colonist that you were just cocking a snook at the British because you had used these wide trees rather than... You rebel you with your wide floorboards. And this all led to this confrontation
+
+[00:29:08] where the British sent the authorities to try and say, look, these really are our trees, and the Americans kind of sent them away with their tail between their legs and embarrass them and humiliated them. And this was a thing called the Pine Tree Riot and that was 1772 and that pretty much led on to the Boston Tea Party, 1773 and from there, you know,
+
+[00:29:26] everything went downhill. Yeah, but that was mostly masked related. Interesting. The age of wood, by the way, just count the rings, that'll do it. Fantastic. James, we did sign a 300 paid contract for this work.
+
+[00:29:44] I was looking a bit into what sales are made out of. And nowadays, they can be all sorts from natural fibers like cotton and flax to synthetic fibers, like nylon, polyester, all of that. But one thing I found that was quite interesting to me was that hemp was used basically throughout the ship for everything. So hemp oil was used in the lamps. The sailors would wear clothing made out of hemp. The ship's logs would be written on hemp paper.
+
+[00:30:13] But it turns out that some of these massive sailing ships, they would actually carry hemp seeds with them so that if they ended up in a shipwreck or they had damage, they could plant the seeds to grow hemp. And then mend their rope or their canvas because hemp is one of the fastest growing plants on earth. That's fantastic. That's really cool.
+
+[00:30:36] And they would use hemp to make the canvas for the sails and the ropes. and the word canvas actually comes from the word cannabis. Oh, that's good. Yeah, how kind of... Which is the same plant as hemp. Which is... Yeah. For any squares listening.
+
+[00:30:57] Sorry, just quick mention of the old wacky-backy. Okay, we should move on to fact number three. And that is Andy. My fact is that reindeer can chew in their sleep. Oh, that's useful. It's so cool. Gavis gone must do good business in the reindeer community, wasn't it? So it's really clever. It's all to do with where they live, because they live in the very high regions of the earth. Not necessarily higher, I would say.
+
+[00:31:31] You mean further north? Not like on top of Everest. Okay, we're being squares about it. This is why you never travel north of Watford. You're like, oh, I'm so high. I can't. I can't get the oxygen. Okay, they live in the Arctic Circle. We're being dweeby. Yeah, sure. And they, obviously the light there changes a lot, doesn't it? So some of the year, it's always light. Some of the year, it's never light.
+
+[00:31:53] It's dark for ages. And they have a very, very weak body clock. So in summer, they have to eat a great deal all the time to gain weight to survive the winter. And they're ruminants. So they bring food back up from one of their stomachs and they keep chewing it. And because they're having to do a lot of this during the summer, they will regurgitate food and they will keep chewing it. while they're asleep.
+
+[00:32:16] We weren't sure before what they were doing they just look a bit dazed and a bit dozy and the Norwegian Institute of Bioeconomy research have measured their brain waves while they're doing this standing around chewing and it sounds out they are in a light stage of sleep while they're eating.
+
+[00:32:29] That's really. Wait, we couldn't tell if they were asleep do they not have their eyes closed? I think brain activity is a better guide isn't it than whether you've got your eyes closed. It's not like every time you close your eyes, you're asleep. No, I know. I just feel like I'd know if I just looked at a reindeer
+
+[00:32:43] you'd be like, well, they're off if you're asleep. you just fell asleep for a second hour. That thing is really interesting about their body clocks because it means they don't get jet lagged, right? So our body clock is 24 hours. We deal with the light, the dark, we're on a 24 hour clock. If we go through some time zones,
+
+[00:33:03] then we're not on 24 hours anymore and we're all over the place. But if reindeer would do regular flights to Australia, like they might do once a year to deliver presents. for instance, they wouldn't get jet lagged. And the interesting thing about that is, you know, there are gene variants that cause this
+
+[00:33:23] and maybe we can turn those genes on and off in humans one day to stop humans from getting jet lagged. That feels like a drastic intervention. Yeah, we would also grow horns. Yeah, reindeer. Wainter are cool, aren't they? Most of my facts are about the Sammy people who are obsessed with reindeer, but, well, like I say obsessed.
+
+[00:33:44] Obsessed with. You're hugely reliant on them for their survival. Guys, get over there. I'm obsessed with oxygen and water. No, I love the Sami people. They are the people who live up in the Arctic Circle, really, in the northern parts of Norway and Sweden and Finland. The high places of the earth.
+
+[00:34:01] The high places, yes. So they paid their taxes in live reindeer for a long time. They have special designations sort of in the equivalent of the Magna Carta of that region. So it's called the Lap codicil, and it was a clause added to the 1751 Treaty which designated the borders of all those countries and it said that they are allowed to move totally freely across borders because the reindeer need to move across borders
+
+[00:34:22] and they need to herd them. Although herding reindeer is basically just following them, I think. Oh really? The reindeer go where they want to find food and to get sustenance, to go to better climates and the Sammy people just follow them to make sure they keep hoarder there. That is mostly true. You can get them to go in the direction you want
+
+[00:34:38] and the way you do that is you piss in a bottle and you carry it around with you and if they start going in the direction you don't want them to go in, you pour a little bit in this direction and they all go oh piss lovely and they all walk towards where the piss smell is. Because it's like got salt and minerals and stuff like that.
+
+[00:34:56] Just a life hack we call that. Good to know. Anyway, they have over a thousand words for reindeer. Do they? They really do. Because reindeer is so important so they have like a liami which means a short fat female reindeer. They have
+
+[00:35:11] snarie, a reindeer whose antlers are short and branched. A nigeru is an unmanageable female. And you're a bit sexist these names, aren't they? Yeah, I mean... There's no room for your woke political niceties in the unforgiving tundry, James. Well, there's a lot of snowflakes up there I have heard, so... That's cool.
+
+[00:35:35] They do have a word for a bull with one testicle, so maybe the feminist reindeer are getting upset cutting off the testicles of the males. They have night vision goggles, effectively, inside their eyes. Rained in. Rained in. Nice. Not the sami people.
+
+[00:35:50] Not the same. No. So rain-dice eyes change colour over the season. So they're golden in summer and then they're blue in the winter. And the reason that's helpful is that in winter they can see a lot more UV light. And the reason that UV light is helpful is that their favourite food is this thing called reindeer moss. Disappointingly, it's a kind of. like him. But it's really
+
+[00:36:13] yummy and it's very nutritious and there's a lot of it about in the Arctic. So reindeer love it and they like to find it and it's impossible for a human to find it because it's pale. But to a reindeer, it's incredibly obvious where the patches of reindeer moss are because it looks a completely different colour to them. Because I think snow gives up UV light isn't it? Whereas it doesn't so it looks like dark
+
+[00:36:31] because they have this ability to see the UV light they can see where the moss is. So it's very, very cool. They're very well adapted for their environment. What's interesting is that they're not actually 100% sure how the eyeball actually changes from golden to blue. And we should say as well actually that the colour change is not in your iris. No, because otherwise it sounds insane that they even discovered this in like 2030. It's like, wait a minute, we've domesticated these guys for how long we've not looked at their eyes. So it's not that you're looking at them on the outside in their eye colour changes.
+
+[00:37:02] It's the inside. It's the thing called the tapitum lucidum, I think I'm saying that correctly, which is kind of on the back of the eye and it does all of the reflecting of the light round your eye. Well, you would see that, I reckon, is if you were taking a photo of a load of reindeer
+
+[00:37:18] and one of them looked directly at the flash, I reckon you would see the change in colour there. Is that right? Yeah, that's why if you photograph animals in the dark, yeah, that's their tapetum. Because that's why we get red eyes is because the back of our eyes is red because it's got a lot of blood in there.
+
+[00:37:33] And so when the flash goes, you see the light, the light goes into the back of your eye where all the blood vessels are and that's why you get red eye. Is that why you get red eye in? In old, like mostly in old, is it on film photos?
+
+[00:37:44] Do you get that on digital photos now? I've seen it in newer photos, yeah. Do you? Yeah, yeah. I've never done. So that does imply that no one had ever taken a photograph from the reindeer before. I was thinking.
+
+[00:37:55] I've never taken it with flash at least. I think it's quite hard to take a photo of reindeer. They're very camera shy, aren't they? Well, they have a very shiny nose. Brilliant. Oh, your nose has come out red in this one and this one. And this one. I didn't know the UK has reindeer.
+
+[00:38:11] I was incredibly excited to find that out. Like, in the wild? Yeah. Oh. There's one wild herd of reindeer. And they're at the Cairngorm Reindeer Center. But they are wild. It's not a zoo or an enclosure.
+
+[00:38:23] They're not penned. High up. Very high up. Near Inverness. I mean, probably in the top of the mountains, because it's the Cairngorms I was thinking as opposed to. Well, that too. And they were introduced by this great couple,
+
+[00:38:34] Mikhail Uzi and his wife, Dr Ethel Lindgren in 1952 probably overshadowed by the change of monarchy and the Everest expedition but still and they gave them all these furious reasons of why we could, because it's basically early rewilding just by any other name and the reasons they gave these two scientists
+
+[00:38:50] they said well great source of meat, great source of fur useful for military transport in case of the Cold War turning hot sure I saw that and I couldn't work out what did they imagine that they would be bringing the reindeer to the Soviet Union and using them to transport stuff like military equipment Or are we being invaded?
+
+[00:39:08] Nuclear winter maybe, and so we get a load of snow. They might be useful. There was a story in the Russian press in the, when was this? It was in the 2000s that criminals, like gangs were using reindeer to do their crimes. And the reason being that they were in Siberia, so the police were coming to get them. And the police had snowmobiles, but the reindeer were quicker than the snowmobiles. And so the criminals realized that and they would use them to. Is they're like getaway vehicle?
+
+[00:39:38] Yeah, yeah, getaway race, yeah. Would they ride them? No, they'll be pulled on sleighs. Yeah, okay. It does sound weird, these Gopnik Russian criminals being pulled by. And children running to them going. Well, if you've just robbed a bank, though, you've probably got sacks of money waiting on the back of the sleigh.
+
+[00:39:58] Yeah. And one will fall off. Maybe that's the origin of the Santa Claus myth. But the kangorn reindeer-centered staff, very excited. They did a naked calendar just a few years ago. They're not... Naked humans or naked reindeer? Naked, the reindeer, I think, were mostly in harnesses and things.
+
+[00:40:15] They didn't save them all. They all died, of course. No, but there were 17 herders, and they were all posing in the altogether to raise money for the Ken Gorms Mountain Rescue Team. Do we approve of this? I mean, like, I don't mind that group of, what were they, Women's Institute, people doing it the first time. You've repeatedly turned down my idea, James,
+
+[00:40:34] for a fish nude calendar where we're all hiding behind facts This trend of people doing this? Well, I'll just give you a line from the photographer Who said It's very cold In the Cairn, guys Taking pictures of my naked friends and colleagues
+
+[00:40:54] Not to mention my girlfriend's mum Was certainly a surreal experience I can't believe they felt for it He said He goes from town to town proposing naked calendars. That's a brilliant idea for a perfect scam, isn't it?
+
+[00:41:13] Just go to another office. Hello? I'm just wondering if you like a naked calendar. Terry. Oh. What a dark film calendar girls to come to put that lens on it. Oh, dear.
+
+[00:41:31] Good gracious. More stuff on reindeer. They are very fast. The robbers are right. And they're fast from very young. They can outrun an Olympic sprinter when they're only a day old. Stop it. That's so cool.
+
+[00:41:46] Newborns can stand and walk almost straight away. And then within an hour, they can run. That is incredible. Which is good. It makes you wonder if they sort of do that competition, like within 15 minutes, some parents are like, mine's actually running already. It's sufferable. You should get Santa's wry.
+
+[00:42:04] reindeer to be your financial advisors. Go on. Okay. Because they're not employed for the rest of the year. Very nice. Oh yeah. Or they're free in January for the tax deadline. Exactly.
+
+[00:42:14] They're twiddling their hooves otherwise. So what it is is that a team of researchers at Dartmouth College, bearing a mind this is an Ivy League University, right? They did a very, very serious study where they got a bunch of Santa's reindeer at a local kind of Christmas theme park. They were Dasher, dancer, prancer, bixen, comet, cupid, Donna, Blitzin, Rudolph and Boris. Nice. Boris was a trainee.
+
+[00:42:41] Can I just ask, are these real reindeer and are they really Santa's reindeer? They are real reindeer and Santa is real. Okay, cool. So they were living reindeer. It wasn't like mod. Okay, right? And what they did was they laid out copies of the Wall Street Journal stock pages on the floor of their barn. And they got them to select stocks that they wanted.
+
+[00:43:02] wanted them to buy. So they made hoof prints on the newspaper pages and then they went and purchased these stocks to create a reindeer portfolio. And they found that it outdid the S&P 500, which is the kind of top 500 companies in the US. It outdid the growth of those companies by 5%. And apparently that's statistically significant. What? Is it? Apparently so, says the Ivy League researchers. Wow. The thing that they did... Sorry, just to say, that is significant. If you could make 5% more than the average on the stock market
+
+[00:43:38] and you could consistently do that, then you'd be very rich. Yeah, you'd be doing well. That's the consistently thing, isn't it? Well, all we have is evidence that they are. Well, over six months. But the reason why they did this was kind of to prove that senators and congressmen, who are often in America accused of using their inside knowledge to play the stock market, what they did was they compared the portfolios of the senators to the reindeer portfolio
+
+[00:44:04] and found that the reindeer was still better than the senator than the congressman who had inside knowledge. And one of the researchers actually said that it turns out that these politicians are as fectless as the rest of us at stockpicking. Well, it could be that they're scrupulously honest and they don't use any of their internal knowledge. Very, very good point. Very good point. And maybe they prove that with the reindeer portfolio.
+
+[00:44:28] It could be reindeer's are absolutely massive inside of hills. They're going around the country once a year. Like, while Santa's delivering their presents, they're hecking into emails. They're going through the filing cabinet. That's why, yeah, they always take a bite out of the apple, drink the sherry and go through all of your books, too?
+
+[00:44:44] Why are there hoof prints left inside the house after he's been? It doesn't make any sense. No, you're so right. Do they fall down the chimney? They should be on the roof. Yeah. Hoof on the roof. That's a good title for a children's book.
+
+[00:44:54] Lovely. Don't give you a reindeer's carrots. Why not? I don't know any reindeer. Next question. No, I'm listening. I do. Yeah, well, just because we were saying about, you know, sherry and mince pies,
+
+[00:45:05] I mean, don't give them them either. But, yeah, they can't digest them. But what am I going to cover my penis with in the naked calendar I'm choosing? Maybe there's some other baby vegetables that they make. I don't know. I'll see if I can find a runner bean. Great stuff. Okay.
+
+[00:45:29] All right. I quite need a pee. Do you want to go now? A pee is not going to be big enough. Okay. It is time for our final fact this week, and that is James. Okay, my fact this week is that from 1841 to 1851, the MP for Thursk thought he was a bird.
+
+[00:45:59] He was then replaced by a man who was later killed by a turnip. Was he killed by an actual turnip? He thought he was a turnip. He was killed by an actual turnip. Do they get into the campaign legislature? Vote for me. The other guy thinks he's a bird. I'm safe around turnips.
+
+[00:46:19] There wasn't much in the way of campaigning in these days, especially in Thursk, where all of these people all got in without any opponents. Who do you want to hear about first? The Bird of the... Birdman, I think. Birdman, I think. Birdman.
+
+[00:46:31] Okay, the Birdman of Thirsk was a guy called John Bell. basically in this area they had to have an MP. They had a railway and there were a few people living there. They had to have an MP. And there wasn't really anyone to do it. A few people from outside of the town came in, they might want to do it, but no one in the town wanted to vote for them.
+
+[00:46:53] So they all voted for this guy called John Bell because his family owned half of the houses in the town and everyone liked them. And he was the right man for the job, really. So they voted for him. But after he'd been in there for a little while, it turned out that he was of unsound mind. And they did an inquiry as to his unsoundness of mind,
+
+[00:47:14] which took place at the Three Tons Hotel in Thursk, which is now a weather spoons. And in this inquiry, they said that he sometimes fancied himself to be an eagle and made motions with his arms as if endeavouring to raise himself from the grounds to fly. He was also convinced that someone was trying to poison him with iodine in his tea. Ayridine?
+
+[00:47:34] A bit of a callback to the last episode. And then on other occasions when in company he would forget that he was at the dinner table and start to undress himself. Okay. But in those days, there was no way to get rid of someone. If they were an MP and there wasn't an election, and even if there was an election and people there wanted to send back the same guy, there's no way to get rid of them if they were of unsound mind. I guess I don't even know how you would now. Because in fact, then legislation was introduced and then there were various upgrades to it. but I think it was all repealed in about 2012 or 13.
+
+[00:48:06] So, you know, maybe that's why I was stuck with a lot of them. Yeah, any of our politicians would be of unsound night. You're right. It's just not relevant anymore. And anyway, he unfortunately died. Was he an honest MP, by the way, or was he feathering his own nest? Very good. Thank you. Any more of that? No, no, no. I just had that one stored up and I didn't want it to sit around inside me.
+
+[00:48:28] I can't wait for your turnip pun. He's coming. Because he was replaced by a guy called Sir William. Hain, Goalway, and he was out shooting in the parish, and he walked across a turnip and he fell with his body onto a turnip. I'm quoting from the York Herald here. He fell with his body onto a turnip sustaining severe internal injuries. No, that's a fake excuse when you tell him up to the hospital, isn't it?
+
+[00:48:55] Oh, the Hoover, I just couldn't. He was nakedly shooting in a field, and he fell, and the turnip went up his ass. No. No, he fell on the turnip and injured himself and the next day he failed to recover. And turnips are not, I mean, they're not funny things to fall on to. They're big serious, they're big hard things, you know. I mean, turnips are inherently funny, I think. Sorry, I don't know why I said that, but they're not being funny.
+
+[00:49:22] He wasn't the only MP who died in a turnip-related incident. I don't know if you guys found the story of Lewis Fenton, the Whig MP for Huddersfield. No. Okay, okay. So he died a little earlier. than this. This was 1833, about 50 years before, and he fell out of a window at home. Very sadly, he died of his injuries, you know, tragic.
+
+[00:49:41] And his widow explained that he was in the habit of going up to the attic to lick out of the window at a piece of ground where his turnips were growing. Oh, yeah. To make sure that the cows had not, also his cows, had not got into the turnip enclosure and were not, you know. So when he'd disappear for hours at a time, he'd be like, no, darling. I'm watching the turnips. I promise, I'm watching the turnips.
+
+[00:50:01] There's some strange noises from that attic. No, no, no. That's my turn it watching. I don't think we can imply anything unsavory in any time. The man's dead. We should be, you know. And he probably just was looking so much that he overbalanced and tipped out of the window. Must have been.
+
+[00:50:16] Must have been, yeah. I was just the word for the mental disorder that you have when you think you are, let's say a bird, is clinical lycanthropy, which I just looked up and I was wondering whether it was a thing. People think being a werewolf. I think lycanthropy must be a werewolf. It comes from the idea of, yeah, exactly, being like a wolf. but it applies to thinking you're like any animal. I guess they couldn't be asked to come up with a different word for thinking you're like.
+
+[00:50:37] You would think it would be zoolthropy or something. Yeah. It must be more common to think you're a wolf. But I just, I like the Wikipedia page on clinical lycanthropy, just because it used the case history of a 25-year-old man who was sent for treatment during a period of excessive hand-washing, irritable behavior, decreased sleep, and acting like a buffalo. Buffalo's famously obsessively washed their hands.
+
+[00:51:02] They do. Bison. Brilliant. There you go. Brilliant. That's a bucket list joke. That was one. I got that from a Christmas cracker
+
+[00:51:15] 25 years ago and I've been trying to chew on it in. Oh my God. Very nice. The MPs page on Wikipedia for notable MPs with records in various directions is unbelievably good. I don't know who's written there.
+
+[00:51:29] What do you mean records in directions? So here's one. The youngest MPs. ever in the House of Commons in England. Oh yeah. Christopher Monk, who was elected MP for Devon, age 13. Yeah. How old did he become a monk?
+
+[00:51:41] That's the question. Brilliant. You know, the interesting thing about Christopher Monk, I haven't seen that page, but I do have him in my notes. Fantastic. He, in 1681, arranged a boxing match between his butler and his butcher, which is the first recorded boxing match in England. That's really good.
+
+[00:52:00] Yeah, 1681. He was a real mad of the people as well, wasn't he? they. And the butcher one, we know. But we don't know much more about that. He had a big right hook, didn't they? Yeah, I like it. Nice.
+
+[00:52:13] Thank you. They're all coming out tonight. Oh, yeah. Wow. But the oldest, no, Pete, Samuel Young, ironically. No. That's brilliant. Served until it was 96 years old.
+
+[00:52:25] Really impressive. I mean, yeah, yeah. I mean, how old was Baroness Trumpington when she died? She was really old. Well, she was in the lords. and I think most people in the laws are at least 90, aren't they? But, you know, Parliament, sort of Parliament wasn't for a long time, it was very unofficial, but, you know, it was local landowners.
+
+[00:52:41] And then it was barons. And then as they gradually extended the right to vote to more people, they gradually thought, probably can't be only baronets. We've got in the house or whatever, you know, sort of, yeah. I liked George Sitwell, who's actually Edith, Edith, Sidwell, the poet's dad, but he was an MP in the 1880s and 90s, MP for Scarborough. and he was just a fun guy.
+
+[00:53:03] He spent his time writing books. He wrote books on pig keeping in the 13th century, lepers squints, acorns as an article of medieval diet and the history of the fork. Lepers squints. Yeah, wrote a book. I don't think he got these books published. He sounds very much like a QI researcher.
+
+[00:53:19] Yeah, he really does. Researching random topics of his own interest. He does, and actually very creative as well, as we all have to be, because he invented a musical toothbrush that played a song while you cleaned your teeth. That is good. That's good. In the 1880?
+
+[00:53:33] Yeah. He also invented a mini gun for shooting wasps. And the sit well egg. It was, um, it was nothing, you know, you didn't sit on it. It wasn't a Gwyneth Paltrow kind of precursor. You're sitting well. Tell me about it. Got an egg up there.
+
+[00:53:52] No, it was made of smoked meat, which was the yolk. And then it was wrapped in the white, which was rice. And then a synthetic. shell around it and he tried to sell it into Selfridges. So he was trying to have a new Scotch egg basically. Kind of. But with rice, did you say? With rice, exactly. That's like an um of Sibi.
+
+[00:54:09] Like the kind of Japanese ones. Yes, I was actually going to say sushi, but it sounds like you've said the proper thing that it is. Apparently when he went to Selfridges, he walked into the front door and said, I am Sir George Sitwell and I brought my egg with me.
+
+[00:54:27] Hello Dragons. I love Ignatius Timothy Trebich Lincoln. So do I? Another man of the people judging by his name, clearly. But he had the most insane CV of anybody I have ever heard of. So he was born in Hungary to an Orthodox Jewish family. He was a student rabbi. But then he became wanted for petty theft.
+
+[00:54:54] So he fled to London. He became a Christian. And then he went to Canada as a Presbyterian missionary. and then he went back to England as an Anglican curate, and then he was an MP for Darlington in 1910. He ran out of money, so he stopped being an MP. He became a speculator in Romanian oil, a German continental spy in World War I,
+
+[00:55:15] and then a munition merchant in China, and then he converted to Buddhism, became a monk, and then tried to become a Nazi collaborator. That all sounds very tiring. He could have just been a liar. And then you could do all that stuff. That's true.
+
+[00:55:33] But the absolute cherry on the cake for me is that he made contact with the Nazis, right? Because he said to him, listen, I have declared myself the Dalai Lama. Very powerful move. And I am backed by the Japanese. The Tibetans were less keen on this idea. But the Japanese were like,
+
+[00:55:50] yeah, this random Hungarian, Jewish Christian MP guy, he can be our Dalai Lama. And he said, I can help you lead a Buddhist uprising. in the East for the Nazis. That's a great alternative history of the war. Right. Did they go for it? Unfortunately, they didn't.
+
+[00:56:08] Sadly, sadly. Sadly, the Nazis didn't have been the war. But how amazing when history would have been is the Hungarian Dalai Lava? Good grief. The names are incredible. What was he called? Ignatius. Ignatius Timothy Trebich-Lincoln.
+
+[00:56:23] They do have just good... I don't know whether it's minor aristocracy who are the kind of people who wear in peace in the 17th century. Sir Freshville Hollers Grimsby I was looking at MPs who've been injured in the line of, not the line of duty
+
+[00:56:36] actually just in their lives in January because there were lots who lost arms in sea battles as Sir Freshville did Sackville Tufton was wounded at the Battle of Schoonervld Brooke Watson lost his right leg to a shark in Havana in 1749 I mean these guys had really interesting careers
+
+[00:56:51] What's he doing there? Sailing around He was being used as an awe wasn't he? John Stubb I love this. This is a really interesting one. He was the MP for Great Yarmouth. He lost a hand for distributing a pamphlet in 1579. What, to a lion?
+
+[00:57:08] Paper cut. Bad paper cut. His pamphlet was titled, The Discovery of a Gaping Gulf Whereunto England is like to be swallowed by another French marriage If the Lord forbid not the Bands. And it was arguing that Queen Elizabeth
+
+[00:57:21] was too old to have children And she should therefore not marry The Duke of Anjou, who was a French prince, and he was sentenced to death. And then that was commuted to losing a hand. And then just before it happened, he said, pray for me now. My calamity is at hand.
+
+[00:57:38] Oh, funny. It's just a nice little pun to go before. He should have had a podcast. You would love my bison gel, Kelly. Speaking of excellent names, just not a very quick one here for you. The Labour MP for Broxtow from 1929 to 1953 was called Seymour Cox. Brilliant. Wow.
+
+[00:57:58] Brilliant. I can't believe I've never heard of him. I mean, as if you're not going to cross next to his name. You don't need to campaign at all, do you? Seymour Cox? Yeah. That was his name, it was also his campaign slogan. But that's like a name that Bard would ring up Moe Bar with.
+
+[00:58:17] Seymourkeye. I don't know what X-rated Simpsons you'd be watching. Oh, dear. Wow. Seymour. Hawks. Just one more city MP or
+
+[00:58:31] eccentric MP. God, it's so hard to choose. There have been so many but I do like John Mitton, who was a Tory MP in 1819, not for very long because he found it really boring,
+
+[00:58:42] but he just did lots of fun stuff. He once rode a horse into a hotel in Leamington Spa and rode it up the grand staircase in the middle onto a balcony and then jumped it down from the balcony over the diners in the restaurant below and out through the window.
+
+[00:58:56] If you're rich and a man A middle class You could be a cuck I don't even think it was middle class To be honest He was very very very He would hunt a lot And like to do it naked
+
+[00:59:08] He'd start to hunt clothes And then apparently get so excited Midhunt that he'd strip off all his clothes And then arrive back naked And in winter as well So quite hardy And he hunted ducks On a frozen lake naked as well
+
+[00:59:19] He had a few He liked animals I don't know if that ingratiates To you It doesn't sound like he did Because it really was hunting hunting all the time. He liked very specific animals.
+
+[00:59:29] I love animals. I love shooting them. I love hunting them. Much like a lot of people who like hunting and killing certain animals. He loved other animals like his horse, who he used to nap with by the fireplace and who lived inside his house with him. He's one of these people who the stories are incredible and you think he would have been a nightmare to have in your extended family because it's always mad Jack Mittens turned up and done something wacky again.
+
+[00:59:50] Yeah. I think he died in poverty and debt in prison at the age of about 30. Yeah, yeah. Am I allowed to say good? Well, yeah, you can say what you like. Yeah, yeah, he was a very eccentric dude. He was. He loved being naked. That's not eccentric.
+
+[01:00:06] No, it's illegal. It's not illegal. It's actually only illegal if you're causing harm or distress or intending to. Sorry, you don't need to justify yourself to be only. And that very well positioned baby carrot saves your blushes anyway. My calendar is not a company on it. It's just this is actually legal. Eagle, calendar, 2024.
+
+[01:00:27] I'm not intending a love or distress. And if you feel it, that's on you. Well, I apologise if. Sorry about the way you feel, calendar. Okay, that's all of our facts. And thank you so much for listening. We'll be back again next week with another episode. In the meantime, you can get in touch with any of us on various social media accounts, James.
+
+[01:00:55] I'm on Twitter at James Harkin. Andy? At Andrew Hunter M. Uh, Lee? I'm not on anything. Good on you. Me neither. But if you want to get in touch with the lot of us, you can email podcast at
+
+[01:01:07] ui.com or you can tweet at no such thing. Or feel free to go to our website where you can get all our episodes and links to various other things that we do. That's no such thing as a fish.com. That will also give you a link to Clubfish, which is our special secret society, subscriber society, where we put all of our good content. I think it's where you can buy Andy's new,
+
+[01:01:29] calendar, isn't it? Certainly is. You actually get sent on whether you want to or not. You have to pay extra not to get the calendar. And other than that, please join us again next week for another episode. Thank you so much for listening. We'll see you again. Goodbye.

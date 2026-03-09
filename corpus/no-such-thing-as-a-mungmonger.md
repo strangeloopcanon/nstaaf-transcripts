@@ -1,0 +1,301 @@
+# No Such Thing As A Fish - No Such Thing As A Mungmonger
+
+- Episode date: February 28, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-mungmonger
+- Slug: no-such-thing-as-a-mungmonger
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I am sitting here with Andrew Hunter Murray, Anna Chisinski, and James Harkin, and once again we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Anna. My fact this week is that travelling salesmen used to carry around miniature versions of everything they were selling. Right. Such an amazing fact. It's so cool.
+
+[00:00:50] So I found this. I don't know how I ended up on this site, but I was on Tim's antique site. Tim's very well-respected antique dealers. And they had an article which was titled, What is miniature furniture? And it started by saying this question has been asked time and time again for many. Tim and Tim again, he should have said. Tim's and Tims again. And so there's a whole myriad of answers,
+
+[00:01:16] but we're here to answer definitively. And they said the vast majority of miniature furniture that you see in antique places was carried around by travelling salesmen because if you're going around the country, you were going to be away for weeks and weeks away from your workshop, then obviously it's a hassle to take all the full-size stuff with you.
+
+[00:01:31] So they made up tiny samples, but perfectly sculpted samples. So incredibly good, quality, you know, with the proper materials. Well, put together samples. But there were so many different things they tried this way. So there are amazing pages online of, there's a great website called Collectors Weekly, which has a load of samples.
+
+[00:01:48] It's so good. So there were stoves, there are mini stoves and sewing machines and telephones, coffins. I found on eBay in America, there's one going at the moment. It's eight inches long. It's selling for a few hundred dollars. Right. And it's a traveling salesman's coffin. Oh, okay.
+
+[00:02:04] As in a, it's a proper antique traveling salesman. Yeah, exactly. Have you seen the stuff that undertakers would take with them? Because it was not only, they'd have a briefcase full of miniature coffins, but you can also get, as antiques, their briefcase of a graveyard plot. And again, if you go online, you open up the briefcase and it's proper fake grass around it. And then it's got the gravestone, as they would suggest that they'll make up your gravest if you when you die. Wow.
+
+[00:02:30] That's so cool. And is there a sort of a hearse? And do you roleplay the whole event? I don't know. Maybe they did. I didn't see any briefcases with the miniature hearse in them. You could in the late 19th century buy miniature stepladders and ironing boards.
+
+[00:02:46] And this was from a guy called Oli Kirk Christensen in Denmark. And he had a woodworking company and he was making these stepladders and ironing boards. But then he thought, you know what, I prefer making these little things and making the big things. Why don't I start a company where I make lots of little things? And he started the Lego company. No.
+
+[00:03:05] Really? Isn't that cool? So he started off making miniature things with travelling salesmen and then he became a Lego guy. That's so cool. Wow. That is amazing. So these don't,
+
+[00:03:14] because there were a lot of sort of miniature version toys back in history, kind of like, I guess how Lego came out, miniature guillotines from the French Revolution. Yeah, this is during the French Revolution. They used to sell them for kids to play with. And you sold dolls with it.
+
+[00:03:28] You sold dolls with them and you would chop your doll's head off. No way. If you don't have a, if you're too poor to afford the dolls, you can just put your fingers through and that makes it a finger. finger puppet. You did used to get those guillotines that you put your fingers in, didn't you? Like in
+
+[00:03:41] magic sets and stuff? And then it looks like you're going to chop them off and you don't actually chop them off. Imagine if one in every 10 guillotine was one of those. And so it means that some people get away from their crimes. Like the opposite of Russian roulette. Yeah. That's really nice. Russian reprieve. Yeah. There was another reason for having miniature furniture that sometimes wasn't to show off your furniture. And that was if it was practice furniture. So this is something if you're an antique dealer you get good at is distinguishing the proper miniatures from the apprentice pieces. So you can also buy them. And it's if you're auditioning an apprentice and then the craftsman would give the apprentice a really cheap, crappy piece of wood and say, make something awesome out
+
+[00:04:21] of this. I completely understand. When you said practice furniture, I thought it was something you practiced sitting on. You got your real chair. Can't be trusted with a real chair. It's a cotton wool one. But would those apprentice pieces go out on the road as well? No. No, they're just for the workshop. And then it kind of stopped, didn't it, once we got photos? People just sent round catalogs. Although you still get people selling things door to door, don't you? In 2010, in the UK, the door to door sales sector was officially valued at 4.7 billion a year. In the UK?
+
+[00:04:51] In the UK. And that's only the legitimate things because people are obviously selling other things door to door. And in 2012, the number of complaints about dodgy doorstep sales hit a record high with 35,000 complaints made. So people are still doing this all the time. I didn't know that you are technically a pedlar, P-E-D-L-A-R. I didn't know that peddler was still a trade, as in it's still properly term, but you need a peddler's license to pedal. Because it's such an old-fashioned term.
+
+[00:05:19] Exactly, yeah. But you go to your local police authority and you tell them who you are. You know, you have to have lived in the area for a little while, I think. And it costs £12.25 to get a year's license pedaling. Does it? Yeah. Wow. It just shows, like, obviously, what a common profession it was.
+
+[00:05:36] many synonyms there are for this job. So you could be a monger, obviously. You could be a solicitor. That was an old word for it before it was a lawyer, a costamonger. You don't want to confuse those though. My solicitor will be here in a minute. He bursts in with a load of dishcloths. Tiny little judges chair having to sit on. Just on what you were saying before, monger, like, because obviously you have fish mongers and costumongers and all that kind of Were they door to door things or is that just a seller of things or what? I think it was a seller of things but then it would often, like you say, the mongers coming down the street now.
+
+[00:06:15] Cool. I've never heard it on its own without some kind of noun before it. No, well, you don't mung nothing. So that's why it's often preceded with the thing you're munging. What do you do if you sell mung beans? A mung mung mung munger. A mung mung munger. Sounds like an insult.
+
+[00:06:31] That mungungunger's a real minger. But yeah, so in the olden days, there are some peddlers that you don't have as much today. You had the tooth puller, and that was quite commonly you'd have the tooth pullers who'd come around and bang on your door to pull your teeth out. Okay. Or wouldn't you? Would they tie your tooth to the door? Well, that's what you would do, wouldn't you? You would tie your tooth to the door, and then when they open the door, they'd pull your tooth out.
+
+[00:06:55] You don't have to pay them anymore. So you don't open the door until they've said who they are. They say it's the tooth puller, and you go, hang on a second. I think they tied it to the horse. horse because it just is specific that they don't get off their horses quite a lot so I imagine maybe they tie it to the reins of the horse and gallop away or something. Come on. And then it's like galloping off with you still attach them.
+
+[00:07:16] Like you're a just married car or something. It's not as wobbly as I thought. So the tooth pullers, as well as being tooth pullers were often travelling dentists. And you can also get some of the dentist kits. So they would have a whole selection of teeth. And because it was the 19th century, the teeth would be graded from sort of just light yellow to a very dark brownish black. And they'd come to replace your teeth.
+
+[00:07:39] So they'd open their briefcase and be like, hey, which do you want? And you'd say, oh, that nice yellow one. And they'd say, I think maybe more. Like a tulux color chart, but where all the colors are disgusting. So one famous traveling salesman of history was Jeremy Clarkson's dad. Oh, yeah. And he was famous, was he? Well, he is now, I would say, as the father of Jeremy Clarkson.
+
+[00:08:03] But Jeremy Clarkson's dad, in fact, I think it's dad. In fact, I think his parents, they specialised in selling teacosies. Didn't they sell Paddington Bear or something? Bingo, yes, they did. Jeremy Clarkson's first job was going door to door. This Paddington Bear! Exactly that. He was the travelling salesman selling Paddington Bear.
+
+[00:08:22] And teacosies. What a weird combination of things to be selling? I know. Do they have a range of stuff in between Paddington Bear and tea coesies? There are sources online that say condoms, but that seems like such a strange third element to add to the mix. All he says to me is they must have been woolen condoms. Yeah.
+
+[00:08:38] A tea cozy for some people is a condom for others. It was the slogan on their van. I can't believe that you would have a firm selling teacoyses as pen to bear in condoms because it's too, one of them is too sexy. Yeah. It's not a condoms. Some stuff on small things very quickly. Oh, yeah.
+
+[00:08:59] So this year, in fact, last year there was the world's biggest ever. historical tabletop war game. Cool. So do you know what I mean by that? Because Dan, you look confused. Yeah, so... I don't think either of them knows because they both said the word cool after what you said. So it recreating a real battle.
+
+[00:09:17] It's recreating a real battle with little soldiers. It's kind of like Warhammer, basically. Like that, but not with orcs, with actual people. Boring. So there was more than 20,000 miniature soldiers. And it was at the University of Glasgow. and they replayed the Battle of Waterloo on a 192 square meter historical map.
+
+[00:09:39] And it took them a year to paint all the soldiers, this group of over 100 people. They've been investigating the archaeology of the Waterloo Battlefield since 2015. Wow. And then they did this game. And there were 4,000 casualties in their battle. And the Allies won because it wasn't definite.
+
+[00:09:58] They were going to do it properly, like a proper game. And it could have been that Napoleon would have won it. Oh. but the Allies won. And at one stage, the Duke of Wellington in the battle had a traffic cone on his head. Because in Glasgow, which is where it was, famously there's a statue there where they always put a traffic cone on. That's so funny. That's so cool.
+
+[00:10:18] Yeah. Although that bit not historically accurate, right? I'm not sure they even had traffic cones. No, they've misread tricorn. It's been mistranslated somewhere along the way. And do you know who invented, sorry, just while I'm on the subject, do you know who invented the first set of rules for playing with toy soldiers. Ooh, is this someone we will have heard of?
+
+[00:10:36] Yes. Jeremy Clarkson's dad, isn't it? It's not. It's his mom. No, it is the novelist H.G. Wells. What? He did that, yeah. In 1913, he wrote a book called Little Wars, which had the first ever set of rules for playing
+
+[00:10:51] with Toy Soldiers. And the full title of the book was Little Wars, a game for boys from 12 years of age to 150. and for that more intelligent sort of girl who likes boys games and bucks. I've never met such a woman. Okay, it is time for fact number two, and that is Andy. My fact is that female grizzly bears can get half pregnant. Intriguing. What does that mean?
+
+[00:11:24] It means they get pregnant or they are fertilized. Their eggs are fertilized by a male during the... mating and then they don't do anything about it for several months. So the egg is fertilised and it turns into this tiny bundle of cells called a blastocyst and that's normal. We have those two but in almost all mammals that then develops into an embryo. But in bears it just floats around in their uterus doing absolutely nothing for months on end and then the bears put on weight for winter because they need to hibernate.
+
+[00:12:02] They see how much weight they gain. And if they're up to the right level of body fat by the autumn, if they're 24% body fat, they will go to their den for winter and the blastocyst will implant into the wall of their womb, and then it will develop into a cub. But if they're not, it just gets reabsorbed into the body of the female. So they have this weird internal barometer of how well they're doing in terms of putting on weight for winter.
+
+[00:12:25] Oh my God. Have you seen the pictures? These are the specific pictures actually published by Katmai National Park in Alaska. Is it Katmai? K-A-I. That's how I would pronounce it, but... We've never pronounced anything right on this show, so... Don't break a tradition now.
+
+[00:12:39] Why break it out of it? So there are photos published by this National Park in Alaska, where the public votes every year on which bear wins the fastest, the best fattening bear. And you have to check it out, because they have these photos on their site of every bear in their national park. And if you move this slider along the pictures, you can see the before and after.
+
+[00:12:59] And it's only in the course of two months, and it is incredible. That's so cool. It's like the opposite of fat shaming, isn't it? Exactly. Yeah. It's like they're going to a Weight Watchers meeting every week, and they've put on an extra three stone,
+
+[00:13:10] and then it's getting applauded, and it is a huge amount they eat, and a huge amount they put on. So it's called hyperfagia, and they just eat constantly for a while, and they gain about two stone per week. And so it's really fun to do. I spent most of my research scrolling back and forth in these photos.
+
+[00:13:27] Yeah, that's a lot. It's interesting with pregnancy and bears, I was reading about zoos in America, polar bears, the polar bears that they have there, they don't know how to tell if they're pregnant. It's really hard to tell if a bear is pregnant because they often have pseudo-pregnancy. So it looks like they're pregnant. They have the hormones that show up in labs that say they're pregnant, but they're not. It just, it matches the same thing.
+
+[00:13:50] So do you know how they find out if they have a pregnant polar bear? Do they just wait and see if a baby comes out? They often do, but that's not useful for them because when it comes out, if none come out, then they're like, damn it, we need our breeding program to be better. They put them in a CT scanner. No. Oh, wouldn't that be exciting to see? They take some urine samples and they can, no, because he said the hormones is the same.
+
+[00:14:15] Yeah. They squeeze, they run in very quickly and they squeeze the middle of the bear and then they run out before it tears them in two. No. No? No. What do they do? They send their poo to a dog called Elvis. Now.
+
+[00:14:30] Who's poo? They hit the polar bears. All right. Okay. What? They send the poo to this dog called Elvis, who has a 90% rate of saying whether or not they're pregnant or not. I can't believe it every time. I know.
+
+[00:14:44] What? Yeah. How did they find out that Elvis can do that? They train this dog, Elvis, with another dog. And they kept, they gave them 200 samples to see whether they could break down. So there's more than 2,000 proteins in polar bear fecal samples. Five are consistent with pregnancy. and that's what he was smelling out.
+
+[00:15:02] And it's just this one dog. This one dog. The other dog just guessed it at some points, just faked it, just went, yep, and because they needed a reward or whatever. So they kicked him out of the system. It is just Elvis that they send it to. Oh my goodness. But yeah, that's what they have to do.
+
+[00:15:16] One dog is helping them out. Elvis. Well done Elvis. That's amazing. Hero dog. Andy, you're saying how most mammals don't do this thing. It was called embryonic diapause, isn't it? rodents do quite a few of them bears do as we know armadillos do
+
+[00:15:33] weasels, badgers and kangaroos all do and some people think that maybe humans do on a small level so there have been a few case studies where women have had in vitro fertilization and then found out that they were pregnant more than a month later like maybe two months later or stuff like that and they reckon it might be a very minor diapause that happens in humans but still more research needed.
+
+[00:16:00] It's a bit of a crap diaports though because it is only ever really a week or two weeks, maybe three whereas these bears can hold in for a year, can they? Yeah, yeah, yeah. Do you guys want to hear something mental? Yeah. Okay, a team of scientists, they put sheep blastacists, these little bundles of cells,
+
+[00:16:16] into the uteruses of mice. Okay? Now, sheep can't do this diapause thing. They just can't do it. And mice can do it. And when these sheep blastacists were inserted into mouse uteruses they went into pause mode the mice were able to pause the blastocyst
+
+[00:16:32] of a different species. I'm not surprised. Otherwise. Stressful situation for a mouth. It's a difficult birth, isn't it? But then they were removed these blastocysts after the mice paused them and then they will put back into
+
+[00:16:49] sort of, you know, petri dish you know, fertilisation, whatever, sort of artificial thing with cheap. And they grew into normal lambs. Right. So they're not inside the sheep. They're not back in the sheep. They were, I think they were put back in the sheep or put back in the test tube, but whatever.
+
+[00:17:04] They were grown into normal lambs, having been in a mouse's uterus. Wow. I think it's pretty tasteless that you won't differentiate between a test tube and a sheep, mate. Bears or pregnancy? Let's go, bears. Some brown bears have oral sex. Oh, yeah. Okay.
+
+[00:17:25] Okay. So this is in a zoo in Croatia. It's been noticed. They're both males. Over 116 hours of observation, these two males did it 28 times in 160 hours. Once every four hours, over several days. Impressive. Oh, really?
+
+[00:17:41] Yeah. Official study on the matter said it might have been because they've been deprived of suckling and that the provider may have found a substitute for teet sucking that also resulted in a letdown of substitute milk. Right. Oh, what a weird euphemism for that process. The award for the most disturbing fact of the year. Good grief. Do you suffer from premature letdown of substitute milk?
+
+[00:18:10] I think that was presented in a safer work of ways as I could manage it. It was very good, yeah. You did well. Maybe humans can learn from that. I don't think anyone should be taking lessons from that. this is why your milk peddling good business never tuck up I'm sorry I don't have any of the milk
+
+[00:18:32] will you take my substitute so we can learn some stuff from bears though if not that we can learn a lot from their hibernation period right or their torpor that they go into so they are enormously fat as we've said when they'll go into this torpor and they'll dig their dens
+
+[00:18:49] and they'll just lie there and they don't get so there's lots of stuff we think we should look into to find out why they don't get, for instance, muscle and bone deterioration. So if people are in hospital, let's say you're in a coma or you're confined to hospital for months on end, you get terrible muscle wastage and bone wastage and you get bed sores. And they don't really get any of that. And also, they remain quite alert. So I think when animals properly hibernate, then you really can't wait them up. This is a good thing to be
+
+[00:19:16] aware of with grizzly bears, actually. They will wake up as soon as you go anywhere near them if they're in hibernation and they can suddenly snap out of it and go for you so i think people were studying grizzly bears and they said they um i'm just thinking of the worst way that a grizzly can go for you as if it's not been suckling very well they'll go for any part of you that's nearest to be honest but uh they did a oh my god well no just imagine that scenario happening you've got your life, but you've got to walk back to camp and they say, how did you survive? You won't believe this, guys. I just got sucked off by a grizzly back.
+
+[00:19:59] Oh my God. I took 12 hours, 28 times. Poor thing, wanted to go back to sleep. Oh, my God. Disgusting. I've got disgusting bear story just to match. A more disgusting bear story. I found this really odd account from the 1700s.
+
+[00:20:25] So there was a clergyman from court called Arthur O'Leary. And he was in northern France and he saw a dancing bear. And this was an incredible dancing bear. Everyone was talking about how amazing it was. It could sort of count in numbers by putting its paw on the ground. It would nod to gentlemen. It just did all these sort of really graceful things. And this guy was thinking, how is this possible?
+
+[00:20:48] But then the giveaway happened. when the bear suddenly yelled out, the devil take him, the guy has me persecuted. And it turned out what happened. And he said he yelled that in Irish. So this guy understood because he was from Cork. It turns out that a man had been washed up in France and sewn into a bear suit of a real bear. No. And was made to perform and was stuck inside.
+
+[00:21:12] And that was his moment to get out. I don't know if he knew an Irishman was there who'd understand his language. But yeah, this is an account from the 1780s. That is amazing. Why did he wait so long to do it? Even if you don't understand Irish, you know if you hear a human voice coming out of a bear
+
+[00:21:26] that's something weird going on. It was just, you know, it was a dancing bear. They thought this was a very talented bear. But if you're spelling stuff out on the ground, you could spell out of help. I am an Irish man who are washed up on the beat. But I mean, if you're French,
+
+[00:21:37] you might not speak Irish. That's true. I guess my point is, I still, I don't think Irish sounded to French people like the growl of a bear. Yeah. I think if he just shouted something. Yeah, you'd probably pick up words.
+
+[00:21:50] people around you. Yeah, exactly. Bonjour, bonjour, bonjour. Wow. That is quite a story. It's bizarre. Which I do not believe. Neither do I, but it's out there.
+
+[00:22:02] Really good. So just one or two things on pregnancy, maybe? Oh, yeah, cool. Do you guys think it's possible to get pregnant via a bullet? Oh, there is, I've heard that, but it must be a myth. So there's a Civil War article, just after the Civil War, American Medical Journal. It was a proper entry from a doctor called, leg and capers and he had been...
+
+[00:22:23] Sorry, he was called leg and capers. Oh yeah, I guess he was. Leggan, what a weird meal. Anyway, he was treating a soldier. He was a soldier who'd been shot in the Civil War in a skirmish and his testicle had been shot off. Very, very painful, obviously. The doctor treated him as quickly as possible,
+
+[00:22:39] dressed the wound and then was immediately approached by a woman who said, oh, my daughter's been very badly wounded. A stray bullet had hit her in the abdominal cavity, right? Unfortunately, didn't have time to treat her properly. and the army was fleeing, so he left. Seven months later he returned, and the woman was very heavily pregnant. Wow.
+
+[00:23:00] The baby was born a little while later, and the doctor observed that after the baby boy was born, inside the testicles of the baby boy was a bullet. Come on. This sounds like a pen and teller trick, doesn't it? And it was written the name of the very doctor. Come off It is
+
+[00:23:22] It is It was a They did fess up That wasn't true Yeah yeah It was a hoax articles But that's how the legend Kind of entered the street
+
+[00:23:30] That's the first example of that story Right That is I can't remember who made it up now I was too involved in the story The doctor Legand Legand and his capers
+
+[00:23:42] Okay It is time for fact number three And that is James Okay My fact is that when the vandal sacked Rome in 455 AD, they agreed that they would
+
+[00:23:57] just take the money and not damage any of the property. So funny. They weren't vandals. Well, this is what I'm trying to do. I'm trying to rescue the reputation of the vandals. And it is a little bit controversial because it obviously happened a long, long
+
+[00:24:12] time ago. And a lot of people who were writing about it were Roman who wanted to say bad things about the vandals. But it does seem that the reputation that we have given the vandals for being vandals, might not be fair. And actually, during this sack of Rome, they'd done a deal with Leo I first, who was the Pope at the time.
+
+[00:24:32] And he said, OK, you can come here because obviously, you know, we can't really defend ourselves so you can come over. But whatever you do, please leave all of our churches and all of our buildings intact. We'll give you the money. We'll give you the jewels. We'll give you the gold and silver. But please don't do that. And it seems for the most part, although there was a few deaths.
+
+[00:24:52] and they did take a few people as slaves. For the most part, as far as pre-medieval sacks go, this was actually not one of the worst ones. But they did steal shed loads, right? Why don't we just use vandalism to mean stealing all the stuff somewhere and kidnapping quite a few of the people? We're just using vandalism to mean the wrong thing. The one thing they didn't do was smash anything up.
+
+[00:25:12] I'm really convinced by James's thesis on this. I had no idea that the vandals were relatively nice guys. They were all Christians. They were. Good Christian boys and girls. They weren't nice. Well, they weren't good Christians if you believe the other Christians who didn't believe the same Christian stuff as they believed in their Christian stuff. That's not relevant.
+
+[00:25:31] But they had been pushed out of their native lands by the Huns. Yeah. And the Vandals were just trying to get down to North Africa, which is where they settled. And they took over Carthage. And Ibiza, where they lived for 80 years. Which I always think is quite cool. A long party. Yeah, exactly.
+
+[00:25:47] But they eventually did move down and they lived in North Africa. and they were kind of happy there. But they were, because they had Carthage and they had a really good fleet, they were occasionally stealing from people and, you know, going on little forays and stuff. But then in Rome, there was all sorts of dodgy stuff going on. So the Roman Emperor Valentinian III was murdered by Petronius Maximus because they had a little bit of beef between them. And when Petronius Maximus took over,
+
+[00:26:16] he forced Valentinian's widow to marry him and forced Valentinian's daughter to marry his son, and Valentinian's daughter was supposed to get married to the king of the Vandals' son. And so the king of the Vandals said, well, you know what, if you're going to cancel that marriage, I'm going to cancel our deal, and I'm going to come over and I'm going to sack your city,
+
+[00:26:35] and that's what he did. And then Petronius tried to run away from the Vandals, but he was stoned by his own people and thrown into the Tiber. Nice. I think it's fair. I think it's completely fair. There was a deal. Petronius Maximus broke it.
+
+[00:26:47] The Vandos had every right to sack the city. Yeah. Yeah. It's very game of fronzie, isn't it? It really is, yeah, yeah. Pope Leo I'm the first. Pretty cool character from what I've been reading. I mean, he, imagine talking an invading army into just not hurting people and just taking the valuables and going out.
+
+[00:27:03] Apart from the people they murdered. Apart from the people they murdered and the temple they burned down. It was literally just that they didn't break stuff. Yeah, yeah. Well, no, but he was also the same Pope who talked, supposedly talked Attila the Hun out of actually coming to Rome at all. They sent him out. They knew Attila was on the way.
+
+[00:27:18] And he met up. with them and he said would you mind not coming and a till i went okay and went off he's that's two times that he's kind of responsible for yeah does feel like there's more to that story isn't there feels like there must have been more to the conversation than that yeah some sort of blackmail or bribery i think he came up and he said you okay hon he just burst into tears i didn't want to hurt anyone it's got out of hand i didn't know about sacking what i don't know why we said sack places Why you sack places? Why do you sack?
+
+[00:27:49] Because you put everything in sacks when you're running off. Yes. Is it? Yeah. Oh, it's from, I look this up in the OED, and it's from the Latin verb sacare, which means put it in a bag. Nice. Put it in a bag and smoke it.
+
+[00:28:03] Nothing, not everything fits in a sack. All right, all right, clever clogs. Not just, just, I mean, they've got other things, right? Maybe you've been using the miniature sacks that the dog of all sack cells would have been using. And then, being a vandal. was actually a good thing for quite a while. Okay, so people thought that the vandals were kind of cool. And a lot of royal families claimed descent from the vandals.
+
+[00:28:28] The Swedish and the Danish royal families, for instance, continued to do so until only about 30 years or so ago. Wow. But there was then a person called Henri Gregor, who was a bishop of blois, and he used... Is that how you pronounce that? Blas, braw. He used the term in 1794 to describe the destruction of artwork following the French Revolution.
+
+[00:28:55] And so that's when the word vandalism became to mean sort of wrecking things. Yes. Yeah, he got obsessed with it, didn't he? I read that there was no one to defend the good name of the vandals because at the time there wasn't a geographical region which was claiming dissent from them. Well, certainly not in that bit of France anyway. No, hadn't been for some time. But, I mean, because they were quite crap in the end. and they didn't last very long.
+
+[00:29:18] And actually, they should be grateful for de blois, because otherwise we wouldn't remember them at all, I don't think. They pretty much lasted 100 years, sort of fanny around in Carthagin, bits of North Africa and the Iberian Peninsula. Peace-loving people. They were not a peace-loving people. They were reasonably peace.
+
+[00:29:36] I read an account where they butchered people up into tiny little pieces of meat. You're judging them by modern standards, which is not the way it works. Okay, that's fair enough. They were all doing that in those days. Exactly. Thank you.
+
+[00:29:49] Do you know who their main allies were? No. Who they were in coalition with was the Allens. It was the Vandals and the Allens. Yeah. So the Vandal kingdom was actually the Vandal and the Allen kingdom in full. One more thing about the Vandals. Oh, yeah.
+
+[00:30:03] Is that George III married Charlotte of Mecklenburg Strellitz, and she claimed dissent from the Vandals. She was one of those. So we briefly had a queen who was a vandal. And it was really trendy at the time. And so in the late 1700s, they were going to make a British colony in North America, which they were going to call Vandalia.
+
+[00:30:23] And there are still places in America called Vandalia, including one city that was briefly the capital of Illinois. And sports teams from the University of Idaho are always called the Vandals because of this trendy time when everyone was called Vandals. That's awesome. That's really good. Oh, they've left their mark in a very odd way.
+
+[00:30:42] Can I have one favorite Vandal? Oh yeah. Who was the last king. So the guy who sacked Rome was actually really good. It was Geiseric and he was impressive. The last king was a guy called Gellimer. And he spent his whole time running away from people who were trying to beat his armies and fleeing.
+
+[00:30:58] And at one point, the only reason his life was saved was because it was always the Byzantins who were after him. At one point, the only reason his life was saved was because he was fleeing John the Armenian, who was ruler. Where was he from? So he's fleeing John the Armenian. who was going to get him, but then poor old John the Armenian
+
+[00:31:16] ended up being accidentally killed by one of his own bodyguards who'd got pissed and was trying to shoot a bird with an arrow and accidentally got John instead. So Gellimer escapes John. This is Gellimer, Mr. Vandal. And he fled to Algeria, and he didn't like Algeria because the diet was bad and they lived quite ascetic lives and he was used to luxury.
+
+[00:31:35] So then the ruler of the Byzantins said, do you want to surrender then? If you hate it there, surrender to me. And he sent a letter back saying, no, I refuse to surrender, but please send me some bread, a sponge and a liar. And he explained. This is like a tea cozy a condom in a Paddington bed. He was a distant ancestor of Clarkson.
+
+[00:31:56] When you say a liar, you don't mean someone who turns up saying, I haven't brought a bread or a sponge. What are you holding my idea back then? No, he said he wanted the bread to eat. He said he needed the sponge to wash his eyes because they were so swollen with tears because he was so unhing. unhappy and he said he wanted the liar to play alongside a lament that he had composed about what a tough time he was having and the leader of the Byzantians cried in sympathy and sent
+
+[00:32:23] him all the stuff he wanted. Nice guy. Now that is a peace-loving people, the Byzantine people. Well, that was Rome, wasn't it? I didn't realise that Rome didn't really collapse until 1453 AD. But the Byzantines were the, is that the Eastern lot? And they called themselves the Romans. They did not see, they didn't say we are the Byzantine Empire and what a shame about Rome.
+
+[00:32:47] They completely saw themselves as the continuation of the Roman Empire. Yeah. They just happened to all be Christians and have moved with the times. It's weird because we called the Christians Romans for a bit. And then we just decided, no, so. I think because these guys have been Christians for a hundred years or so. Yeah. Everyone's calling everyone stupid things, aren't they?
+
+[00:33:03] Yeah. And everyone called everyone barbarians as well. So barbarian, the word barbarian comes from the Greeks. used it to mean anyone who wasn't Greek. Yeah, right. And they gave it the word because they thought that everyone who spoke something that wasn't Greek
+
+[00:33:18] was just going, blah, blah, blah, blah, blah, blah. Blah, blah, blah. And so they called them barbarians. And so then the Romans called all of the Germanic tribes barbarians, but actually the Romans were barbarians as well, according to the Greeks. Okay.
+
+[00:33:35] They were all barbarians, basically. The Greeks even called other Greeks barbarians sometimes. Did they? It was just people who weren't exactly like you. basically. It was barbarian. And there's that weird folk etymology that it was people who have beards.
+
+[00:33:47] Barber means beer, but I don't think that is true. I wrote just on beards. So there was something like I read that was about seven sacks of Rome over different periods of time. And in 1527, there was one. But that's post when you're saying Rome, the ancient Rome.
+
+[00:34:03] But it's still counted as Rome, I suppose. It's still going to it. Congratulations, guys. The city is always right. Yeah, yeah. I hope because I'm going next week, so it's going to be very awkward if it disappeared a thousand years ago. So 1527, it was sacked so bad. That was a really, really bad one.
+
+[00:34:21] It was, oh, sack city. It was, yeah, big sack. That the Pope at the time, Clement the 7th, grew a beard in mourning. It was sort of a display of mourning. And he had it until his death in 1534. But he kickstarted a trend amongst popes to have beards. Because they didn't have beards up until that point. There were a few that had.
+
+[00:34:39] But the idea is if you were a man of. God that you had to be clean-shaven. But so it was seen, he was so loved, I think, that for 24 subsequent popes, they all had a beard. Really? Yeah. So he started a trend of beards in popes. That's great. Oh my God.
+
+[00:34:54] So this whole hipster beard trend, we keep thinking he's going to end, clearly by Dan's face, it doesn't seem like it is. This could go on for the length of 24 popes rains. Yeah. That's a long trend. And if you want to be a man of God, then you can get your free trial set. Just spawn. Okay, it is time for our final fact of the show, and that is my fact.
+
+[00:35:17] My fact this week is a people who have died from laughing include a 5th century Greek artist who couldn't stop laughing at his own painting, and an Australian dog trainer who died after reading the price difference of some commodities in 1915 as compared to 1920. They're very funny for price differences. Would the price gone down or up? I think they'd gone up. Has anyone looked at the price commodities from $1,000? 1915. I think you have. Well, I just about managed to survive. No, I did. It was during the war,
+
+[00:35:51] wasn't it? So everything went up in price, including wheat that increased by over 50% to more than six times the pre-war rate. What, by 1920? 1915, that was. Yeah, compared to 1920, though. I didn't check that. James, you just, like, you've done half the research year. No wonder you haven't died law for. That's the thing. It's dangerous, right? We know it to be dangerous. Very risky. There are lots of stories, aren't there, about people dying, laughing, but they're all, a lot of them are a pinch of salt.
+
+[00:36:22] A lot of them seem to have had underlying medical conditions. Yes. They've been aggravated. Absolutely. But I mean, that's, but they did go out. Still counts. In the last, yeah. There's an ancient story about a seer called Calcas, who died after another seer had predicted
+
+[00:36:36] his death. And then the other seer had been proved wrong. His prediction had been so wrong. And Calcas laughed and laughed and laughed and then died. thus proving the prediction right. It's one of those bullet testicle baby stories, they think. I think a lot of these are, aren't they? Yeah.
+
+[00:36:51] So why don't you tell us the story of the Greek artist? The Greek artist was called Zeusus, Z-EU-X-I-S. Zoixis? Like Zoigma. So the Greek artist is called Zoixus, 5th century BC. Was he from Manhattan? Yeah, he was a Marx brother. So he um
+
+[00:37:11] Zwexas Uh He's zoikis He's coming around So he died laughing because he painted Because he heard you try to pronounce his name He was painting the goddess Aphrodite Aphrodite
+
+[00:37:28] Um Zyxas and Aphrodite um And the uh The old woman who had commissioned it from him insisted that she be the model for the portrait Right Which he thought was ridiculous She didn't look like Aphrodite
+
+[00:37:39] So he painted it. And I imagine it as he got to the end, final dab on the painting. He stood back. He thought, this is so ridiculous that he went into laughter convulsions and died. Is the story that we are, that we, to believe. That's good. Yeah. Well, if she got the painting for free.
+
+[00:37:55] You'd just take it away, wouldn't you? Yeah, I'd roll it up. He's amazing, though, so he exists. There's one story that's related by Pliny the Elder, which is that he was, he basically got into an art battle with another. massive painter of the time. What was he called? He was called Parhasius. So Zuxis and Parhasius decided to have an art off and they arrived to this battle, both bringing the best painting that they could possibly do. So Zuxis pulls back his painting to reveal grapes. So he pulls a little sheet away
+
+[00:38:29] and grapes are there. The grapes are said to be so real that birds fly down from the sky and start pecking at the painting. Huge, huge deal. It's doing really well. Pahasius then says, okay, well, let me unveil my painting, which is behind these curtains, only to reveal that the curtains themselves are the painting so real. Oh, M.G. Yeah, is an illusion. And he won. He beat Zuisius. Yeah.
+
+[00:38:54] I heard that Zioxis was the one who was trying to push the cloth away, wasn't it, of Pahasius's painting. And so he was like, I'm going to show what yours looks like, and he couldn't do it because it was painted on the. That makes sense. It's astonishing. There's another anecdote that says he drew a boy holding the grapes, and the bird came down to try and peck the grapes, but he was really unhappy about that. Why might that be?
+
+[00:39:18] Who? Zoixus was unhappy. Yes. He was wanting his painting. No. He was unhappy with his own skill. Because the bird wasn't scared of the boy? Exactly.
+
+[00:39:28] Yeah. So the grapes were good enough, but obviously the boy wasn't good enough because the birds weren't scared. I like it. Embarrassing. I like it. There are a few more famous ancients who died laughing. So my favourite, which I think I read in Mary Beard's book, was the fact that two famous figures in ancient Greece
+
+[00:39:46] were separately recorded as having died laughing after seeing a donkey eating figs and drinking wine. Okay. It's funny. It's funny. It's ridiculous. It's obviously the same story that's been pinched by two people. So there's one of them which is recorded...
+
+[00:40:01] Could be one very funny donkey doing the rounds. The greatest comedian of the third century. You have a laughing donkey of death. It could have been an Irishman in a donkey suit. Just trying to say, let me out. They didn't speak Irish in ancient Greece. So one was recorded by Valerius Maximus in the first century AD, but it was talking about Philemon in the third century BC.
+
+[00:40:24] So he was this master chap, and his slave had put figs in the room with him, and he watched a donkey start eating the figs. And he was quite pissed off, so he called his slave and said, come here, chase that donkey away. I don't know why he couldn't get up and chase the donkey away himself. And the slave took a while to arrive. So by the time the slave had got there to chase the donkey away, all the figs are gone. So Philemon said, well, you might as well now give the donkey some wine. Because it's sort of a joke about how... And then he found himself
+
+[00:40:54] so hilarious that he laughed. He died apparently crushing his feeble windpipe with his own panting. And then... Can I just say, so he was laughing at his own joke, really? Absolutely. Yeah. Yeah. He was a funny guy. And then exactly the same thing is told about the stoic philosopher Chrysippus. Apparently, he died laughing at a very similar joke that he told when a donkey was caught eating his figs.
+
+[00:41:19] Yeah, maybe it was just a classic funny thing that doesn't quite translate these days. You can't do. There must be something we're missing. Well, or it's like exactly what Anna says. It's just one story. I think it's very funny. It's a funny joke. Someone else who's supposed to.
+
+[00:41:35] died laughing was Anthony Trollope. And he was supposedly reading a book called Vice Versa, A Lesson to F. Ansty. And he found a bit in it that was so funny that he died laughing. But what I find really interesting is that this is a really old book. But it's about a businessman who finds an Indian magic stone and swaps body with his young son.
+
+[00:42:01] It's basically Freaky Friday. Wow. That's great. all these movies. 13 going on 30. My as yet unpicked up screenplay the wrong tree, which is a dog body swap comedy. Does he swap with a tree?
+
+[00:42:15] No, two dogs swap with each other. But one of them is a big scary dog and one of them is a small lap dog. Why is it the wrong tree? Because they've both been, because there's a magic tree which they're both running round. God, I thought this was a joke,
+
+[00:42:29] but actually it's becoming apparent that you've actually got the script. I want to jump in and say, let's not indulge it because it can go on for half an hour. It's really detailed. I have got the copyright, just to make that very, very clear. What about two grizzly bears
+
+[00:42:40] who swap bodies with each other? What's the mechanism by which they swap? Oh, dear. I got a more recent one that's happened. 1988, someone passed away from laughing while they were watching a fish called wonder. And they were watching a scene. Funny film.
+
+[00:42:58] Yeah, funny film. They were watching a scene where Michael Palin gets some French fries stuffed up his nose. So Michael Palin, through a bit of comedy led to someone's death. And what is amazing about that is in the very first episode of Monty Python, Palin was part of the team that wrote about the funniest joke ever that was used in war. And it kind of life-imitated art there, really.
+
+[00:43:18] Wow. On QI, the TV show that we all work for, someone wrote to us probably about 10 years ago, maybe longer. I think it's before all you two started and went down was still there. And they said that their father was watching QI and died laughing. No. Yeah. and it was obviously sad that the father had died but actually he really loved the show
+
+[00:43:38] and it was a fitting thing to happen. Do we know which moment? Was it where the Acropolis is? Do they not specify? No, it was before that. I think it was when we brought a donkey on and it ate some things. It was either the D series or the F series.
+
+[00:43:53] I can't remember. But yeah, that happens. That's fair. How nice that he wrote in to say that as well. But laughing was often seen as not a good thing to be doing. So there are lots of things. of people who prescribed against it. There was a 16th century doctor called Lauren Jubert,
+
+[00:44:09] who described laughter as quite a dangerous thing because it could bring on fits and fainting and stuff. And he described it as laughter. He defined as sparkling of eyes, redness of face, sweat coming out of the entire body, effusion of tears, rising of veins, and emptying of bowels and bladder. That's why it's so dangerous
+
+[00:44:28] taking a cleaning job at Jonglis. Because people empty their bells and bladder are laughing. Is that a comedy club? Yes, it's a comedy club. Sorry, that was really funny, but I was just trying to hold control of my powers. Supposedly Newton never laughed. There's a story that says that he only laughed once in his life when he was
+
+[00:44:47] asked, what is the point of studying Euclid? It's a classic. That is a funny one. And someone who doesn't laugh is called an A gelast. Oh, really? I love the word gelastic, laughing-related. So I think there are people who have sort of gelastic seizures where they can't prevent themselves laughing even if the occasion
+
+[00:45:06] doesn't call for it or if it's very inappropriate. That's right. And someone who's a miso gelast is someone who hates laughter. Is that so? Yeah. Gets really annoyed but gets irritated by it. It's all someone who laughs at Japanese soup. I have another study on laughter which found that the best way to make a baby laugh.
+
+[00:45:27] Oh yeah. Yeah. And this works for babies between about six months and two years. Should we guess? Yeah. Are they ticklish? Oh, okay, so this is normal comedy club rules That you can't tickle the audience
+
+[00:45:38] And Todd used to do that Okay, so is it, yeah, Dan's, did you say piccaboo? He said it, peekaboo But I have a son, so I've tested. Yeah, how have you tested the other methods? Okay, so scientists measured what made babies laugh And they tried four methods, one of which was peekaboo One of which, um, putting a cup on your head
+
+[00:46:01] Okay, I haven't done that? It's funny. That is really funny. James is doing it now and I'm laughing. And I'm now just wondering at how flat James's head must be. Still sitting there. I don't think I can really talk properly while it's... Oh, okay.
+
+[00:46:16] Keep it there. So one of them is putting a cup on your head. One of them is pretending a toy animal is making the wrong noise. Have you tried that? Taking a toy cat and going... No. Okay. That's worse trying.
+
+[00:46:25] And then the last one is apparently stuffing your mouth with material. Just like filling your mouth with cloth. Okay. Apparently there are five categories of action type laughter. So there are categories of verbal laughter, like types of joke that make you laugh. And then things you can do to make someone laugh. This I should specify is according to this 16th century doctor called Lauren Juba,
+
+[00:46:47] who had disapproved of laughter. But he said laughter is divided into five categories. Category number one is exposure of the genitals. One whole category. It's an old faithful. Louis C.K. rides again. Category number two, a sepricadry, exposure of the arse. Different kind of humour altogether.
+
+[00:47:10] It is different. Category number three is a pratfall, which is falling on the ass. And then there are two more which are unrelated. Misapprehension of taste, so mistaking something that smells really bad for something that smells really good. And stuffing your mouth full of cloth. That's correct. I just love that moaning someone and showing. showing your testicles or fanny to them
+
+[00:47:34] and two completely different categories of comedy. They hated the category one stuff tonight, but they really went for the category two. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts.
+
+[00:47:56] I'm on at Schreiberland, James. At James Harkin. Andy. At Andrew Hunter.m. And Shazzynski. You can email podcast at QI.com. Yep. Or you can go to our group account,
+
+[00:48:05] which is at No Such Thing, or you can go to our website. No Such Thing as a Fish.com. All of our previous episodes are up there. Have a listen. We'll be back again next week with another episode. We'll see you then. Goodbye.

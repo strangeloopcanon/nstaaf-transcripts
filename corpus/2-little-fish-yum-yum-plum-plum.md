@@ -1,0 +1,195 @@
+# No Such Thing As A Fish - 2. Little Fish: Yum Yum, Plum Plum
+
+- Episode date: November 9, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/2-little-fish-yum-yum-plum-plum
+- Slug: 2-little-fish-yum-yum-plum-plum
+
+## Transcript
+
+[00:00:00] Her life is hectic. She needs a tranquility break sometimes. Give her a moment that's hers and hers alone. At justmachia.com, they've helped create moments for over 12 years. Macha is calm energy, tranquility in a cup. And justMacha.com provides all the tools you need to whisk up an act of love. Give her a moment. She deserves it. And she will love you for it. Get 15% off your first order with code Masha 15 at justMacha.com.
+
+[00:00:30] Hi everyone. Welcome to the second ever episode of Little Fish. Little Fish is a show where we list your facts, things that you've sent in to the podcast at QI.com inbox. Andy has sifted through them and he has found the very sweetest plums sent them over to the rest of us and we're going to go through them today and chat about them. Are they true? Are they not true? Do we know more about the subject? Have we never heard of any of these words before in our life? We will see as we move on. So who is going to do the first fight? It can't be me because I did the intro. It has to be one of you two. Oh, go on. I'll throw a plum your way then. Jump in. Let's do it. See how sweet you find it. Yum, yum, plum, plum. Mind that actually Sorry
+
+[00:01:31] One of these days One of these catchphrases Will pay our handy And everyone will be saying Yum yum yum plumb plum It'll be the new 6-7 You'll see James When I'm opening nightclubs around the country
+
+[00:01:45] shouting yum yum plum plum Right This is from the unimprovably named Nathan Gallimore Strong I think friend of this parish I think we may have heard from him before Oh yeah But he says, the windiest place in the UK is the butt of Lewis.
+
+[00:02:03] That's it. Thanks, Nathan. There you go. And it's basically, it's on the Isle of Lewis, Lewis and Harris, Harris and Lewis. And the butt is on a very, very northern tip of Lewis. And during his trip, he also wrote his first finicular railway. So congratulations, Nathan. Oh, very good.
+
+[00:02:19] It's a little bit contentious, this fact. I did do some follow up. I always thought it was further north. So is it Cape Rath or something? that's in the far north of Scotland I always thought that was the windiest place Well I think on average Shetland is windier
+
+[00:02:34] Oh yeah So the butt of Lewis has been named By the Guinness Book of Records A few years ago So they have their methodology I still consider Shetland to be part of Denmark Oh Because you yeah
+
+[00:02:46] You have well Controversial political opinion And if you're listening Danes Is it Denmark or no way There was one of them Where we got it as maybe a dowry or something from some Scandinavian country but the rules were
+
+[00:03:02] that they were allowed to buy it back at any stage like when we first got out of Shetland or Orkney They said yeah You can have it But as soon as we can get 12 marks together We're gonna buy it back
+
+[00:03:14] So and I think it's still true That in theory They could buy it back if they want Really? To know that Okay Well so if you're listening Vikings
+
+[00:03:22] Get the money together How windy How windy is this? It's really windy The thing is How do you measure how windy something is Is it average speed over the year? Maybe for me now
+
+[00:03:36] Because I live by seaside I could judge it If I saw where Margate Lives on a list Then I think I could then judge it By personal experience Yeah yeah Because it's quite windy where you are
+
+[00:03:46] Oh it's wild The wind and Margate is insane And it comes out of nowhere Like we have this amazing You can't see it coming We were sitting one time In Margate there's these things which are called the steps
+
+[00:04:00] that go on to the beach And you often sit Lots of beaches out there down Incredible These things called the steps If you've ever been to Rome They have a Margate tribute Which is called the Spanish steps
+
+[00:04:10] Do they? Oh well there you go see Yeah It's coming up Margate So we were sitting on what felt like a normal day And we were with our neighbours These eagles get coming And eating our fish and chips
+
+[00:04:21] And Chloe did this thing Where she picked up the final few chips and she threw them out to the ocean and just at that moment this giant gust of wind came blew the chips to the left right onto a couple that were kissing on the steps and about 12 seagulls just darted into them she had to run after them going I'm so sorry I'm so sorry and they were literally being attacked by these gulls um is that a true story yeah yeah yeah yeah it's one my favorite moments I have in fact I have a photo well that might Dan that sounds very windy Yeah, so that's how I'd be able to tell
+
+[00:04:54] But the strongest gust ever Recorded in the UK Was at Cairngorm Summit in 1986 Okay Which is a mountain in the highlands In Scotland, yeah Which was 173 miles an hour I think that's the strongest any gusts
+
+[00:05:09] Any individual gusts has been recorded But I think in general it's It's normally Shetland That is the windiest on average I believe I know, I know You'd be lifted off into the air When you'd be lifted off in the air
+
+[00:05:21] Oh yeah Don't wear your big coat. Thank you, Nathan. Yeah, great facts. Okay, here's a fact from Josh Glendening, who says, A soldier who spent too long on the toilet because of an upset stomach caused the start of World War II. So do we know about this incident? No.
+
+[00:05:42] Okay, this was called the Marco Polo Bridge incident. It was 1937, often considered to be the start of the second Sino-Japanese War, which then evolved into World War II. And so the story goes that in the 1930s, Japan had invaded and put it in a puppet government and named it Manchuria. Yeah, so in July 1937, there was a Japanese private, Shumara Kikojuro, who was stationed near the bridge, and he went missing. So a few soldiers accused the Chinese military of having taken him and were holding him hostage.
+
+[00:06:16] And so they started climbing over the walls to, find him. They started asking questions and getting a bit of an aggressive response. And it just kind of built up tensions. Meanwhile, this soldier comes back after a while saying, sorry, my stomach was gone. I had to dip into the forest and just relieve myself. And in that time, enough of a fight started that it went into a full-blown war. War. Just feel like we've missed one or two steps here. Yeah, yeah. I mean, it's... Probably some political things happening. There were a few political things. Also, there's another theory that he was visiting a brothel that he hadn't gone to the toilet. And a lot of historians, but this has been poo-poohed by a lot of historians.
+
+[00:07:00] Poo-pood. Very good. Very good. Is the idea that this was staged, so he was told to go away so that they could pretend he was missing so that they could find an excuse to go in. But so, yeah. I've heard this story before, and I think it rings relatively true. The basics are true, really i read um a couple of years ago i read sir anthony beaver's history of the second world war oh did he mention it he says this is the exclusive course does he oh yeah yeah it says every everything else would have been absolutely fine and um 18 chapters on this guy's dodgy tummy that's right just a little bit and then there was a skirmish does he go into the sino japanese or
+
+[00:07:40] does he start 1939 oh no he goes into extraordinary detail about the about the whole the whole global nature of it. Yeah, yeah. It starts with a soldier, actually. Page 1 is about this soldier who, I think he was from Korea? Or he gets drafted into the Japanese army when they invade. And then Japan locks horns with China,
+
+[00:08:00] and then he's taken prisoner after some fight by the Russians. And then he ends up serving in three or four different armies, always being pressed into a different army over the course of the war. It's an absolute nightmare scenario for him. And he's used as an example of how this war affected absolutely everyone in the world. Yeah, yeah. but his account is sort of grimly funny and then he was taken prisoner by the Russians
+
+[00:08:19] and it just goes on and on and on like that like the forest gump of war I suppose so and this guy your private Dan was taking a forest dump that's why you get the big bucks handy Yum yum plum plum Okay my first fact comes from Ian Jones and he says
+
+[00:08:42] I'm a pediatric surgeon That's not his fact His fact is about the Fanonsteel incision You gave me a load of German You gave me some German ones last week as well And yeah
+
+[00:08:54] And German is not my first Second, third Or indeed a hundred and ninety third language But this incision is one that this person did It's basically It's the most common way of doing a caesarian But you use it for some other surgery down there But it's in the shape of a pan handle
+
+[00:09:12] and it's on the bikini line and it gives you good access to the pelvis and stuff like that. Now, the incision is called Fanenstiel, because Fanenstiel in German means panhandle, okay? But the surgeon who first described it was called Herman
+
+[00:09:32] Johannes Fanenstiel. So, he invented it. It has the same name as him, but according to him, it's named after. the fact that it's the shape of a panhandle. Now, Ian Jones's personal theory, which I agree,
+
+[00:09:48] is that he deliberately drew the incision in the shape of a panhandle so that he could name it after himself. People do do this sometimes, don't it? Wasn't there an element of the periodic gallium? Gallium, and it was named after a guy who's... So he said that he named it after France. Yes, Gaul.
+
+[00:10:08] But actually, I think he was called Lecoq. That's it. Or something similar. which is chicken and Gallus Gallus is the Latin for chicken. That's it. That's it. So, yeah, like, people do do it. And to be honest, it's such a coincidence.
+
+[00:10:24] I've never seen the word fan and steel before. I mean, what if actually the surgery will be much better and easier to conduct if it was a completely different shape that doesn't look like a pound handle? Yes. It could be that, you know, in all these years, people who are having cesareans are having the wrong shape just because of his. Well, we should look at it. into that. That's insane. That's really good fact. That's very good. And great theory. I can give you more on surgeons. Yeah. Yeah, go on. There's a more.
+
+[00:10:52] Jean Casimir Felizquillon was born in Reunion. He came up with a new way of removing bladder stones through the peridium. But he's more famous for being the probable inspiration for this song Frera Jacqueser. No way. Wow. My little one sings that non-stop at the moment. Do they know that it's about removing Bladestones through the Peronium? No, but we never get to the third verse of the song. So what are the lines you get? Frerezac, a Ferre de jacca, d'orme vu, dolevoo.
+
+[00:11:21] Sonny le matina, sonny le matina, ding, dang, dong. Ding, dang, donk. So is that, we've had a patient come in, complaining of severe... It's the sound of the bladder stones falling into the pan. It's the ding-dang-dong. Good, good. Is the perineum the bit in between
+
+[00:11:41] the anus and the genital and the other genital opening what's the grundle that might just be you dad i thought that was another term for that i've never come across that have you not so the band that does our theme tune and pre-yesh who wrote our song and sings the song he was originally in a band called grundle and i'm pretty sure it was to wow there's ozies slang no no no no all right mr Shriver, let's get you up on the chair and just have a quick look at the grundle, sir. Oh, you've got a bad case of the fair of shock as there, mate. Dan, let's have another fact. Okay, here's a, here's not so much a fact, but a great pub quiz question.
+
+[00:12:23] All right, so this is from John Dunn. He says, my favorite pub... The metaphysical poet. He said, my favorite pub quiz question is, and here's a question now, and I'm going to ask it to you two, What are furthest north, south, east, and west states of the United States? Come on, mate. Yeah, you're, okay. I think I was born yesterday.
+
+[00:12:46] All right, so let's start, let's start with South. What's the, what's the Southerst? Southest. Southest. I'm going to say, um, Dakota. North Dakota. North Dakota. It's a trick question.
+
+[00:13:03] It's a trick question. Okay. Well, for me. it has to be North Carolina. Okay. No, it must be Hawaii. It is Hawaii. Oh, very good.
+
+[00:13:13] Correct. What is the north-thest state? I think that has to be South Dakota, doesn't it? Okay, playing seriously for a second. I'll say Alaska. Correct. Okay. It is Alaska.
+
+[00:13:29] It is. That is correct. Okay. So, one each. Yep. Westest. Westest. I would say Alaska, Alaska.
+
+[00:13:39] Correct. It is Alaska. Oh. Yeah. Interestingly, it's got North and West. Yeah, so, okay, that's 2-1, but you probably might have said the same. I would, and also I'm going to get the next one, right. Okay, so I'll give this one to Andy. Most east-est.
+
+[00:13:59] I feel like it's going to be a trick, but I'll say... West Virginia. West Virginia. No, I'll say one of those ones over on the far right handsides. I'll say Rhode Island. Rhode Island. Incorrect. I'm going to say it's Alaska again.
+
+[00:14:16] Correct. Why? Because the Aleutian Islands go over the international date line. Oh, for heaven's sake. Yeah. Is that amazing? South is the only one, Hawaii, that is not claimed by Alaska. So north, east, west are all Alaska. What?
+
+[00:14:29] Yeah. Okay, here's one. Kathy Oliver from Ontario, which is at least in the same hemisphere as most of Alaska. She said, my husband and I love your podcast, and it keeps us entertained on drives to my various treatments over the last two years, which leaves me to a fact idea for you. When you get a stem cell transplant, you will stink of creamed corn for a couple of days. Wow.
+
+[00:14:56] Okay. So the stem cells are frozen using a substance called dimethyl sulfoxide, DMSO. And it stops them from getting damaged, but it has this particular. culeate odour that smells to most people like creamed corn. DMSO actually is very pungent, but to such an extent that you can taste it by touching it. So if I had a petri dish of DMSO now and you put your finger in it, you'd be able to taste it. Wow. And that's because it directly triggers the nerves that normally react to taste.
+
+[00:15:29] That's insane. Yeah. That's absolutely insane. How many different foods does that work with? This is not a food. Okay. This is a chemical, and I don't know of any food stuff. I guess garlic could do it like that, maybe,
+
+[00:15:41] because that seems to go through your skin, but that's just, I guess. There's a theory about that. I remember you're walking around with an onion in your sock to see if you could taste it. That's QI research years and years and years ago. I've got two pictures for you off the back of this. Oh, yeah. So number one, there should be a Google for smells. That should just be a Google for smells.
+
+[00:15:58] What do you mean? What do you search? As in what do you type? You're not typing. You're not typing with you, that is. so what are you put in that you're trying to find like i haven't worked out all the details is it like shazam instead of a phone you hold a giant nose in the area where you are and it goes hmm baked crumpets that's exactly what it is very nice okay brilliant that's good right we've solved
+
+[00:16:24] that one i feel like i came up with that idea really like we were all in the room three-way split really great great work everyone see for the first set of quarterly results okay so second idea of the back of that the touch restaurant right you don't eat anything but you just go in and you put your fingers through holes in the table into various different foods that you can then taste yeah right okay but the only thing on the menu is dmso yeah so far so far maybe some garlic but you've got to wear it for a month yeah but I think that will be good if we can find enough foods that you can taste through your fingertips yeah be awesome I got to say I'm in on the Shazam knows. Andy, I'll let you develop this a bit more before committing. I'm sharing it with
+
+[00:17:08] you guys three ways, no matter what, including the debts. Okay. I just want to say to everyone listening to this, I'm happy to share my Shazam knows with everyone who's listening to this. We can all have 0.0.01%. That's really generous. But one of you listening will have to make it. Who's next? Do you want to do another one, Andy or Dan do you want to jump him? Yeah, I've got one here. So this is from Edward Malloy, who says this is their favorite fact. Norwich is the only city in history to be excommunicated. In 1274, after a riot in the cathedral, Pope Gregory X communicated the entire city until they repented and repaired the damage done to church property. Clearly, it has had a lasting effect as Norwich is now the last.
+
+[00:18:02] least religious city in England per the 2011 census. Is that right? Kind of right. I looked into it. It's almost right. I didn't fully get an answer to the excommunication, but Norwich is very much not a religious city anymore. It's interesting because there's a saying about Norwich, which is that it has a church
+
+[00:18:24] for every week of the year and a pub for every day. So a lot of churches. That must be Norfolk, right? There's no way there's 352 churches in. Norwich alone. Maybe there is. Maybe. Maybe. Yeah. Yeah. Absolutely. I take that back. It's just a saying. I don't think there's exactly 365 pubs either. But it's the, it is, it's the LA of Norfolk, I would say, Norwich. Right. You know what I mean? It's the glist. It's the mega city of Norfolk, isn't it? Of Norfolk? Oh yeah. There's Kings Lynn, of course. Oh yeah. Of course.
+
+[00:18:53] There's Kings Lynn. That's fair. That's fair. There's Kings Lynn. Well, a census was done in 2021 and it showed that those who said that they don't have any religion, don't believe in any religion, was 53.5%. So it's 76,973 people and that's a jump from a decade ago when it was 42.5 and that's 56,000 people. So it's the second least religious city in the UK. Oh, so there's town or city. Yeah. Isn't it somewhere called Satan, Satan, Satan, or something. That's the least religious. That's not a city, though. No, it's the city. It's a parish, isn't it?
+
+[00:19:34] No, do you know what I mean? I think it's got an amusingly apt name, the least religious place in the UK, but I can't remember what the name is. I would have, without knowing that little clue, I would have said most likely it would be somewhere like Brighton or Bristol, like somewhere where lots of cool young people live. So, yeah, sort of strongly secular. Do you want to have another guess, Andy?
+
+[00:19:54] James has it right, but do you want to have another guess? No, I'm going to stick with Satan foot, I think. Okay. Brighton and Hove. Wow. Yeah, had 55.2% of people declaring no religion. Gosh. Yeah.
+
+[00:20:08] Alster Crowley had his funeral there. In Brighton? Yeah, it might have something to do with that. Was he from there? No, but I think he passed away in Hastings, and I think his body ended up in Brighton for some reason. He was cremated there. Not so far, is it?
+
+[00:20:22] No, it's on the coast. Very windy. Is it? I don't want to release those ashes. a couple making out. Here's one from me. I already have a bone to pick with Andrew Hunter Murray.
+
+[00:20:33] It's episode two. And I already have a bone to pick because she sent us these facts. And, listener, think back to audience facts one. When I said, here's one from Wayne Hoyt. Or is it Holt?
+
+[00:20:46] Because it looks like it should be Holt. Well, this week I have one from Wayne Holt, H-O-L-T. I assume it's the same person and I assume one of them is a misspelling. I've got to check. Although I did have a eyesight check yesterday and I need reading glasses.
+
+[00:21:06] So maybe you need to check. Can you check? Is that a Hoyt and a halt? Yeah, it's a hoit and a halt. Right. Yeah, definitely. Wayne does write in a few times. He writes in frequently.
+
+[00:21:16] We have a few frequent flies in the fishing box. Does he change his surname every time he writes it? I've got to check. You've got to work on your pseudonyms, Wayne. What's the fact, James? Well, actually, the fact is to do with spelling. Oh, no. Oh, no.
+
+[00:21:34] The fact is that in concert, the band Devo sometimes performed as their own opening act pretending to be a Christian soft rock band called Dove, the band of Love, which is an anagram of Devo. Very nice. That's really good. I'm really sorry, James. They're both from Wayne Hoyt.
+
+[00:21:54] Wayne Holt doesn't exist. That's not a real person. I've mistyped his name. There will be a Wayne Holt out there. If you're listening, Wayne, how's Wayne going to solve this situation? Wayne's only going to confuse matters. Yeah, if you happen to be listening to Fish and you're called Wayne Holt, write in, let us know you exist. Yeah.
+
+[00:22:12] Simple. Shall I do one? Yeah. This is from Jessica Rhingaison from Texas, and she writes that Napoleon and Lord Wellington are kind of related, and it's America's, fault. Okay. This is, admittedly, quite tenuous. But the story is, is that Napoleon had a younger brother called Jerome, who visited the US when he was in his late teens, and he eloped with a lady called Elizabeth Patterson. Then Napoleon wanted Jerome to come back and marry a European princess,
+
+[00:22:45] because it was part of his plan to consolidate power while he was conquesting territories, right? So he brought Jerome back, Elizabeth stays, but then Elizabeth hops on a boat, and Napoleon bans it from landing. So she has no choice but to go and port in London. So that's where she lands. Jerome remarries and basically they never see each other again. Wow. Now the tenuous link that we've been given here from Jessica is that while she was in London, she was living with a lady called Marianne. Marianne was her sister-in-law. Marianne's husband dies and she remarries Richard Wellesley, who's the elder brother of Arthur Wellesley who defeated Napoleon at Waterloo. Good Lord. Yeah.
+
+[00:23:26] Small world, isn't it? I'm starting to think it's a slightly bigger world than I was imagining. Okay, I mean, I was lost so long ago. Yeah, it's just about clung on until the end. I tell you what, though, I did recently visit the room where Wellington died. Did you? Yeah. I went down to Walmer Castle in Kent.
+
+[00:23:46] Oh, it's a good day out. It's really good. It's a proper castle. It's 400 years old. It's not one of these sort of plastic castles that you get these days. You know, sort of like fake castles, which is just a stay. stately home with a few turrets. That's Disneyland. You're talking about Disneyland. It's not Disneyland. It's proper. And they had, um, there's a thing called being the warden of the sink ports. It looks like
+
+[00:24:05] it sank, French or five, but it's not. It's warden of the sink ports. That's how it's said, five, right? There were five parts. It does mean five. And it's spelled like the French of five, but it is, I swear to God, they pronounce it warden of the sink ports. Okay. I swear. Like, I went in and I said to the lady, nice to be visiting the sank ports. She said, sync ports. Anyway, she probably said that a hundred times a day for 20 years. Um, you don't want to be calling your port sink anyway you're absolutely right it's a crazy choice but there is this
+
+[00:24:30] honorary position called warden of the sink ports and Wellington was that so was the Queen Mum the old Queen Mum and actually when I visited they had a Queen Mum lookalike there for the day did they? Really? Yeah along with a kind of work must be drying up a bit well I
+
+[00:24:46] made a sort of casual joke about gin and she looked so disapproving because you know the Queen Mum She loved her gin she liked to drink My God, Andy, this was a tough day for you. First of all, you walk in a mispronounced sink pots, and then you make a perfectly harmless joke about gin to the Queen Mother look alike.
+
+[00:25:04] And then I find out Wellington's dead. It was awful. It was terrible, but no, it's a really evocative room because they've got this tiny bed, it's this camp bed, it's a military camp bed that is still there from the day he died. And he must have died in about, what, 1850. But he took this bed with him wherever he went. When he went up to London to be the Prime Minister,
+
+[00:25:24] that military camp bed went with him. How interesting. He slept in that bed in Downing Street, and then when he became warden of the sinkports, he brought the bed back to Warmer Castle, and that's the bed where he died. I went to the place when Napoleon surrendered, which is in France somewhere.
+
+[00:25:39] Is it Ildre or somewhere? I can't remember. Or I'll de France, Ildeeret, something like that. And I might be misremembering this, but I seem to remember that he had quite a non-ornate bed as well. Yeah, I remember being there and thinking, oh, wow, for a, you know, someone who's so important in history, what a shit bed. These military dies. Yeah, I think it's the military, like they're used to the campaigning lifestyle, you know.
+
+[00:26:04] I saw the bed that Abraham Lincoln died in. Really? Yeah, it's when we were, it's when we were in D.C. We had a bit of time off, and because he was shot in the Ford Theater, but then he was taken to a house, not too far away. I just need a little nap. I'm going, that's all right. No, they brought him to a house. And so he died in a bed that was, his legs were hanging off the edge, basically. He was tall, he was super tall and the bed was quite small. And you can visit
+
+[00:26:33] his bed. You can visit this, yeah. Okay, hear me out. Okay. Bed company. And we sell replica beds of like the great beds of history. Oh. We're going to sell, we're going to clean up on the finance bros who want to think that they're living like Napoleon or Wellington or Lincoln. I mean, those are three perfect examples of like beds of the greats, right? Yes. Like you two can conquer Europe with our £9,000 bed. Yeah. Yeah.
+
+[00:26:59] And we'll just sell them a military camp bed. What do you think? I love it. Okay. All right. Well, if you're listening to this, you can have 0.0.0.1%. Okay. So I think that's enough facts for the day that we've been sent in, but we still have one more
+
+[00:27:15] thing to do, and that is to name some custodians. of The Archive, so anyone who is in our top tier on Patreon becomes a custodian of a fact from No Such Things of Fish. It's very exciting. I'm a custodian myself, if you remember listening back to episode one of this Little Fish. But there will be more custodians named today. We will tell you your name, which you might already know, and then we'll tell you the fact that you're the custodian of. So, Andrew, who is going to be our first non-fish member who is a custodian of a fish fact. I just want to say that was incredibly slick
+
+[00:27:52] Jones. And the concept of the shout-out is clearly very well embedded in your head. First up today for a shout-out is Rachel Not. And her fact is the first ever sandwich that we know about contained wine. Congratulations, Rachel. That is now
+
+[00:28:08] your fact forever. Bilal the elder. Is that who it was? Hillel, Bilal, yeah, something. And it was more of a wrap. It was more of a wrap. It was more of a rap. It had like currants in or something, right? It sounds delicious.
+
+[00:28:23] I think we said this at the time. 11 years ago when we covered it on the show. Anyway, yeah, Rachel, that's your fact. And we went into sandwiches in the Earl of Sandwich, who we just covered again a week or two ago in recording. Yes, we did, of course. Well, we're on a big wheel, aren't we? We are.
+
+[00:28:37] Dan, have you got one? Yeah, this is a fact that is now going to belong to Silas Gill. And that is, in 2003, three people in Mexico died of acne. Oh. If you put a gun to my head and said, you've got a thousand guesses as to the Christian name
+
+[00:28:55] of the second ever person to become a friend of the podcast. Silas would have not been one of my thousand guesses. No. It's just a terrific name. Because I think are these in order of the people who signed up? So literally,
+
+[00:29:07] I think Rachel and Silas had to have had their hand hovering over the Patreon button as the time struck midnight. Yeah. Wow. And we should say Silas is an especially fish-friendly
+
+[00:29:18] name. Silas Marner. By friend of the podcast. Samuel Taylor Coleridge. George Elliott. That's right. Okay, so the third custodian this week, this is Dan Schreiber fact, and the fact is that amongst the other scientists called Einstein, there are M.E. Einstein,
+
+[00:29:39] who came up with a formula for predicting the composition of a pork carcass, and Rosemary Einstein, who co-investigated the use of cannabis, alcohol and tobacco on 300 young persons at her university. Could have done with an edit, Dan? We're going to need a bigger certificate. But drum roll, that fact now is under the custodianship of Helen Cosgrove Davis. Congratulations, Helen.
+
+[00:30:06] Nice. That was a great episode. That was a fact I took from a Mark Abrams book of the Ig Nobel Prizes, who James and I are going to be seeing tomorrow. He's in London. We're on a big wheel. Along with Case Mollica, who did that. the paper about the first case of homosexual necrophilia in the mallard duck. Yep. And who raised awareness for pubic lice because they might be going extinct.
+
+[00:30:25] It's going to be a spicy lunch tomorrow. Oh, as long as he's not cooking, I don't really mind. Oh, congratulations, Helen. That's the longest fact that's become custodian so far. Until the next done fact. Shall I round us off with one more? Yeah, go on there. All right. This is a fact that is now under the stewardship of Darcy. Mr. Darcy.
+
+[00:30:49] We can only assume, Fitzwilliam, if you're listening, congratulations. And it's one of my facts is that the first contact lenses cost as much as a car. Yes, you went to the museum, didn't you, to see. Yeah. The British Optical Association Museum. Those were the days when we used to do proper research. Episode two, quickly ended that. Yeah.
+
+[00:31:10] Although, we're on a big wheel. I went back there recently for a party. Yeah. For a party? Yeah. They were finishing their refurbishment of the. the museum. It's really good. It's in the basement of the headquarters of the British Optical Association
+
+[00:31:21] and they invited some celebs along and they also know so they invited me. Who are the other big celebs who are at the party? I can't name names. I'm sorry. It's very much an eyes wide shut situation. Everyone was in masks. Ironically considering their optometrists. Brilliant. Does everyone wear masks and eyes wide chut?
+
+[00:31:43] They do. Okay, good. In certain scenes, not the whole way through. That was very much a reach. of a reference for me. You know, when you try and do a reference to something. You mean like when you say Samuel Taylor Coleridge wrote... Silas Marna? Silas Marna. Yep, exactly, exactly.
+
+[00:31:57] Because the thing is normally in a podcast, I would say that and then I'd cut it out because I knew I got it wrong because I'd check it later. But I've referenced it twice now, so it's going to have to stay in. You've really shot yourself in the foot. Okay, well, they are the next four custodians of facts in the No Such Things of Fish Archive.
+
+[00:32:14] Read the names again, Andy? It's Rachel Nott. It's Silas Gill. Helen Colesgrove Davis and Darcy. Four absolute legends, the first four people to sign up for our friend of the podcast tier on Patreon. And you too can get your name mentioned on this show if you sign up to that tier.
+
+[00:32:29] But for now, it is time for us to say goodbye. So bye, Dan. It's goodbye from me. And it's goodbye from him. Bye. Bye. Thank you.

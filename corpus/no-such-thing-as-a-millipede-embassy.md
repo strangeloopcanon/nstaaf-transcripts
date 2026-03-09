@@ -1,0 +1,197 @@
+# No Such Thing As A Fish - No Such Thing As A Millipede Embassy
+
+- Episode date: January 8, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-millipede-embassy
+- Slug: no-such-thing-as-a-millipede-embassy
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing as a Fish coming to you from the QI elves in Covent Garden. My name's Anna Tushinsky. I'm sitting here with Andy Murray, Alex Bell and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days in no particular order. Here they are. And that's starting with you, Andy. My fact this week is that Czech deer still avoid crossing the Iron Curtain between Germany and the Czech Republic. So there used to be the Iron Curtain, which was a very, very long electrified fence in between the two countries during the Cold War. And at the end of the Cold War, the Czech and the German authorities, they established a nature reserve.
+
+[00:00:57] Going across the country, they thought this is a really nice idea. We'll have this huge habitat, all sorts of species. We'll have lots of room to play in. and there'll be more animals as a result and it'll all be good for biodiversity. It turns out 20 years later that deer on the Czech side just will not cross that border.
+
+[00:01:12] So what you're saying is that all deer are communist. Well, these are red deer very nicely. And the headline from the Wall Street Journal when this study was reported was, deep in the forest, Bambi remains the Cold War's last prisoner. She's a good headline. There's a strip through Germany
+
+[00:01:32] which was called the Death Strip. I think because it was that strip, it was sort of like a five-kilometer area between East and West Germany where you weren't allowed to cross and it was cordoned off with lots of barbed wire and walls and, you know, men with guns and high towers and stuff. And because no one touched it, no humans touched it for about 50 years, it's now got like more, it's the most biodiverse area in Germany. It's got more wildlife than anywhere in Germany. Is that supposedly true of Chernobyl as well?
+
+[00:01:57] It is, yes, isn't it? Lust leading to that old joke, why shouldn't you go wildlife spotting in Ukraine? Why? because Chernobyl's biodiversity is very high and we can't run the risk of damaging it also it should double fall off just going back to the Iron Curtain and the Berlin Wall did you know maybe everyone knows this but
+
+[00:02:17] the Berlin Wall came down by accident kind of yeah sort of yeah so there were negotiations and there was going to be a change of how easily people were allowed to cross and they had a live television press conference which was a bit of a rarity then it was a bit of a novelty and the guy announcing it mixes words up,
+
+[00:02:36] quite a bit carried away, said there's lots of changes happening, they're all happening immediately, and then people masked outside the wall. Yeah, there's footage of him when he's asked directly, so when are people going to be able to cross freely between East and West Berlin? And he sort of grapples with a bit of a press release
+
+[00:02:51] and looks at the back of it and goes immediately. Yeah. And then they go for it. And I read a theory that the checkpoint guard, who was in charge that day, was a guy called Harold Yeager, And he sort of caved in to all these protesters who came flooding towards him saying, let us through. And one of the ideas of why he would cave in is that he was waiting on the results of a cancer test.
+
+[00:03:13] I read in one article. And he was nervous and worried about that. And he just sort of thought, oh, bugger this. I'll let them get through. He was fine, by the way. This needs to be a movie. That's amazing. Yeah.
+
+[00:03:23] Just on that, there was a thing in the, I think it was the Second World War, where shortly after the horrible defeat at Dunkirk and, you know, things were looking really, really bad for Britain. I think it was about this time, and there was a sort of offer from Germany, an offer of a negotiated settlement. And the BBC newsreader, who was announcing the terms of this, said, well, obviously we're not going to accept that
+
+[00:03:46] way before anyone in government had been replied. And, you know, true enough, they did decline, but he said afterwards, yeah, I realized that was a bit, that was a bit strong, slightly biased. Yeah. Do you know who invented the phrase, Iron Curtain.
+
+[00:04:03] Winston Churchill. Everyone says it was Churchill. Everyone says it in that stupid voice. It's almost as if they know it's the wrong answer. Gerbils used it before Churchill did. And before that, it was used by an author called Ethel Snowden in 1920. But Gerbils wrote it way before Churchill did.
+
+[00:04:21] And he wrote an article called the Year 2000, where he was predicting exactly what was going to happen in the year 2000. And he said that our children's children will also have had children. And the events of this war will have sunk into myth. The first bit of that prediction actually isn't that impressive. No, it's true. But he also said, one will fly from Berlin to Paris for breakfast in 15 minutes.
+
+[00:04:40] It takes longer than that, though, doesn't it? Yeah, yeah. I mean, even getting through security takes longer than that. Yeah, so gherbles was wrong. About loads of things. I'd like to do. Sorry. So there are two species of millipede in Tasmania that never meet each other. Oh, yeah. Okay. There's like an invisible line that they never cross. but the interesting thing about it is it doesn't follow any kind of rivers or hills or natural contours it's just like an invisible line and no one
+
+[00:05:09] knows why. Bob Mezibov who's a millipede specialist he said it has got nothing to do with the environment it's like a political thing between these two species what could it be? Is it a leg dispute it feels like it's going to be a leg dispute isn't it? That's just stereotyping you think that
+
+[00:05:25] everything that millipedes do is to do with their legs 98 legs good 99 legs bad But there might be, I mean, you might, the thing is, you're so long as a millipede that you might end up in enemy territory without realizing it. What you're back half? Yeah. Yeah, if you're like backing up somewhere. Yeah.
+
+[00:05:44] Can millipedes walk backwards if they want to? I think they probably can. I think they probably can't. Oh, really? Why wouldn't they be able to any more than anyone else? I think, because it's a really tough job to coordinate that many legs, surely. Okay, okay. Okay, if there are any millipede experts listening,
+
+[00:06:00] If you could tweet me at Egg Shapes and Andy at Andrew Hunter M and let us know which of us is correct here. I think there's a pint riding on it. Or any millipedes, obviously. Wouldn't want to exclude the millipedes themselves from tweeting in. I think these, the Tasmanian ones, have exclaves as well. So you know you get little exclaves in of like someone else's nation in another country. And there are a couple of instances where the millipedes that belong to one side
+
+[00:06:25] have ended up in a little blob on the other side. And they think maybe they were taken over accidentally on. a truck and then but they still aren't mingling maybe they're embassies oh yeah the minipede embassy that's what it is yeah so this is quite cool i think it's called parapatric speciation and it's where i think there are like two populations of an animal that don't mingle and usually it's because like there's a ditching between them or there's some kind of topographical or geographical reason for it or millipede racism or we put a great big wall up for years and years and years.
+
+[00:07:01] But yeah, and it means that populations tend not to mingle with each other at all. They'll rub up against each other. They'll occasionally have a chat, but they'll only really mate with the people on their side. And eventually that creates and that means they split up into two different species. And it also happens with velvet walking worms in Tasmania. That's another mystery. So maybe Tasmanians are just unbelievably antisocial. Sorry, this is a walking worm.
+
+[00:07:21] Yeah, that sounds amazing. That's right. Velvet walking worm. I didn't look into the explanation for the name. What I imagine is that the one. worm, it doesn't have any legs, but it kind of squeezes itself up into two halves and walks like a pair of legs. Let's just go on believing it is that and never Google it, anyone. Nobody Google it.
+
+[00:07:41] Another thing is that there is a species of shark called Mako sharks, and there's a line underneath the sea where if you catch a shark from one side of it, then it'll be male, and if you catch one from the other side of it, it'll always be female. And no one knows why that is either. Do they only have sex on either side of the line. They must just come together for one part of the year, I guess. Speaking of sex on borders, I think it's in Switzerland. That's the last time you're invited to that bookshop. There's a, I think it's in Switzerland, on the border of Switzerland and maybe France or another
+
+[00:08:15] country, that there's a hotel with a penthouse in it, and the penthouse bed is on the border. Oh, cool. So you can take off two countries in one go. I don't know if you need passports or anything. Are you ticking off all the country? Yeah, and it's so irritating because I don't enjoy sex, so the idea of being able to take off multiple countries in one attempt,
+
+[00:08:33] it's a dream come true. Um, deer. Yes, dear. Oh, dear. Deer aren't always herbivores. Really? They've been caught eating birds straight out of the nets and other meat. Bostis.
+
+[00:08:49] And so apparently, there are several species that will, or quite a lot of species, that will eat meat if it's available. Oh, really? And on a related note, cows, I watched a video today of a cow eating a live chicken just off the ground. You're a sick puppy, Alex. The internet is a dark place. Also, deer don't have gall bladders.
+
+[00:09:06] That's the only other thing I have about them. How do they bladder their gau? Awful. Oh, no, wait. Okay, time for fact number two. And that is James's facts. My fact this week is that if every car in Monaco decided to go for a drive at the same time, they wouldn't fit on the roads.
+
+[00:09:32] How much time have you spent working that out? Not so much. So this comes from the economist world in figures, I think it's called, which is a yearly book that has loads of statistics in it. And the length of the Monaco road system, if you divide it by the number of cars, is less than the average length of a car, according to my calculations, which, if they're wrong, please don't write it. but I reckon that each car had about
+
+[00:09:58] just around two metres of space and definitely cars are longer than that on average wow should we do a test and ask everyone in Monaco to get in their cars and go out onto the roads now if you're listening to prove this fact wrong right because this is a podcast
+
+[00:10:11] people listen at different times oh yeah no you're right we'd need to arrange that and we'd need the entire population of Monaco to be listeners I'm fairly sure they are I think that's all about listeners obviously also forgetting that's an incredibly irresponsible thing to do as well
+
+[00:10:23] and we'll cause multiple deaths No one said this is a perfect plan, guys. So does Monaco have more cars per capita than anywhere else in the world? I think it does, and if not, it's in the top two. I read that they've got, and these figures are a couple of years old, 771 cars per thousand citizens. Yeah, it's a bit more than that now. Okay, so that sounds like a lot.
+
+[00:10:46] It's a lot. Considering how many citizens there are, or how few citizens there are. And it's the second most populated country on Earth, I think. No, sorry. It's the second problem. It's China. It's amazing considering Monaco is only two square kilometers
+
+[00:11:01] but it's got just shy of a billion people living in it. Order, order. Sorry. Alex. Because apparently Monaco is also the second most densely populated country on Earth after some place in China, I think. Macau? It could be, yeah, yeah.
+
+[00:11:16] Anyway, it's the second most densely populated country on Earth. Wow. And they have more cars than any other people in Earth as well. And what? One whole third of them are millionaires. Yeah. 30% of the population of Monaco. 300 million.
+
+[00:11:31] No, it's true. There are 30,000 people living in two square kilometres, so it is. It's incredibly densely populated. It really skews the statistics, doesn't it? Because they have like 100% literacy rates, and the life expectancy is like 98 or something ridiculous. In fact, it's also the oldest country in. in terms of the proportion of the population who are aged over 65. So there it's 27.8% of the population.
+
+[00:12:01] So in the UK, it's about 17%, 18%. So as a result of that, in 2009, Monaco spent 1.2% of its GDP on education. Essentially, there are no children. When you were saying the size of it is two square kilometres, I like to say that it's almost exactly the same size as Chipping Sodbury Quarry. Because when I Google things that were two square kilometres in size, that was the first thing that came. That's very cool.
+
+[00:12:29] I think your Google results may be personalized. There's another thing which is two square kilometers in size, which is the largest building in the world, which is in China. This single shopping centre is 1.76 million square meters. And that is the total area of Monaco, basically. Wow. Because they say that a lot of the biggest building. are aircraft hangars, aren't they? Oh, yeah.
+
+[00:12:56] It's amazing seeing aircraft factories and how big they are as well, because those are the same as, you know, they're like really, really mess of aircraft hangers, you know. I was watching a video of, this is really off topic, but I was watching a video of a German factory that makes houses,
+
+[00:13:10] basically like entire houses that are flat back. And the whole factory is sort of this big, white, sterile place, and nothing touches the floor. Everything is suspended from the ceiling. Wow. Why is that? Just in the interest of kind of tidiness and cleanliness and you can't lose anything.
+
+[00:13:25] Everything sort of, everything, all the bits are always kind of hanging and going from rails and stuff. Oh, that is a brilliant. I've got some DIY to do this weekend at my place. Is that why they call it an aircraft hangar because they hanged things? No. It's hangar, isn't it? Yeah. Isn't it?
+
+[00:13:41] What on earth is that? That's not a word. No, but it's like a coat hanger. But it's spelled wrong. It's not a coat hanger. I actually have a coat hanger, which is for all my coats. I've just got so many millions of coats. Because you're such a loser.
+
+[00:14:02] Actually, speaking of planes, so your fact is about all the cars not fitting on the road. Is the same true for all the planes fitting in the sky? Yes. No, the opposite. All the planes fitting on the ground. Yeah, I have heard that. That's why there's always planes in the air
+
+[00:14:18] because they wouldn't all fit in the airports. And they used to say during the millennium, when the millennium was coming, everyone said, gosh, what are we going to do? We're going to have to ground all the planes, but they won't fit in the airports. But I've slightly looked into it, and it's definitely not true. I think the only thing is they wouldn't all be able to fit in an airport
+
+[00:14:33] whilst being connected to an airport so passengers could board them. Because, I mean, airports are huge. Airplanes only take up about a 20th of them. The rest is just tarmac. So I think they could all fit. I mean, again, if you're a pilot or a millipede, do right in if you think that's not right. It would be an act of confidence to build in deliberate undercapacity in all the airports in the world. Like Ryanair booking more people onto a flight than actually,
+
+[00:14:57] because some people won't turn up. I think they probably built the airports and then made more planes. Rather than thought, well, this is the maximum number of planes we're ever going to build. Now let's start on the airport. So your fact is about lots of people going out and doing something at the same time. Yes, it is. So I was looking at a couple of things that all humans could do at the same time that might make a big difference to the world.
+
+[00:15:21] Okay. So Car and Driver magazine worked out in the course of a really quite long article, a lot of maths, that if everyone in the world got in their cars at once and put their foot on the accelerator all at once, pointing in the same direction, then the opposing force that that would create from the earth would cause the rotation of the earth to speed up by 0.0.0.0.0.0.0.0.0.0.0.0.0.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1. would be really bad because everyone is out on the road. It's a good point. It's a flawed plan again. So Monaco is famous for its Grand Prix. Yep. And this fact is about Monaco and cars. Actually, the second ever Grand Prix was held in Monaco.
+
+[00:16:07] The race was marred after a large pile-up on the first lap when an enormous wave from the harbour flooded the course. Oh, my God. I know. It's not amazing. So were they all just going in and then they all just left there covered in seaweed? That would be amazing. A mermaid and a squid in the car next to them.
+
+[00:16:24] Yeah, it's very like wacky races, isn't it? Was that the one? So there was a guy called William Grover Williams, who was the winner of the first Monaco Grand Prix. Was it in 1929? Anyway, I think the first Monaco Grand Prix was in 1929, and the winner was this guy called William Grover Williams. And he went on to become a spy
+
+[00:16:43] because I think he was employed for the French resistance in World War II as a driver, and it turned out he had quite a lot of other talents. What was his name? William Grover Williams. It feels like he's a spy and they've gone, what's your name? And he goes,
+
+[00:16:55] William, Williams? It sounds also, it scans exactly the same as Bond James Bond. So to be fair. Oh, great. The name's William. Grover Williams. Anyway, apparently, so he was allegedly the Nazis claimed captured and executed. But there were a lot of sightings of him afterwards.
+
+[00:17:16] And rumour had it that he became a grocer in Surrey. The name's William. Grosser Williams. Just going back to the Monaco Grand Prix, in 2004, when Oceans 12 came out, they did a publicity stunt where the Jaguar cars in the race were fitted with a new nose cone, each of which had a diamond worth in excess of $300,000 inside the nose cone. During the first lap, Jaguar driver Christian Klein crashed his diamond-en-crusted car. they weren't allowed to go straight to kind of sort out the car because they had to do it after the race finished and by the time they got there they couldn't find the diamond and no one knows where the diamond is to this day
+
+[00:17:59] I bet one person knows okay time for fact number three and that is my fact my fact this week is that the town of Centralia in Pennsylvania has been on fire since 1962 so people aren't entirely sure how the fire started but it's thought that people were burning trash. So there's just a heap of trash or garbage in Centralia.
+
+[00:18:29] And they set fire to it. And the thing about Centralia is that it had a huge network of mines sort of underneath it and largely towards the outskirts of it. And the fire kind of fell down into one of the mines and their coal mines. And so obviously coal sets fire quite easily. Pretty far. I've heard. Yeah.
+
+[00:18:47] And so the cold has caught fire and it's been going ever since. and they keep trying to put it out, or they kept trying to put it out up until the 80s, and then they just gave up. And, yeah, it used to have a population of over 1,000, and now its population is 11, I think. Oh, I've heard seven. Has it gone down?
+
+[00:19:03] In 2010, there were 10. How did why somebody moved there? Come to Centralia. It's on fire. It's an incredible story. It's so weird, and it's not unusual these things across America. There are hundreds of, oh, what, across the world? in fact. So I think there are over 200 other mine fires in America.
+
+[00:19:24] There are thousands in China where there are lots of coal mines, obviously. Apparently, in total, these coal fires account for 3% of the world CO2 emissions. Wow. Which just is insane. And so they're not all people chucking stuff down and things. Sometimes it's natural and there are all sorts of other occurrences of underground fires, but mainly coal produced at CO2. 3%. I read that the ones in China alone are 1% of the world CO2.
+
+[00:19:48] Wow. A couple of years ago, the Chinese government. government said that they'd been putting them out and they were just lying and all these journalists went around saying I can still see the fire down that hole it's not out but the main one is the one in Australia you guys must have all seen that one right yeah it's the burning mountain which has been going for 5,500 years yeah it's mad I don't think we can blame that on us that wasn't trash burning well I read about the possible explanations for burning mountain and apparently scientists think it may have been caused by a lightning strike or
+
+[00:20:19] spontaneous combustion, which is very much science speak for, we don't know. Also in Pennsylvania and Texas and some other places, you can get flammable water. Petrol. I want me some of that flammable water for my car.
+
+[00:20:39] It's water. It can even be drinking water that's just got high levels of methane trapped inside it. And if you put a match to it, it will go in flames a bit. And if you've got sort of level water, you can sort of set fire to the surface of it. A bit like when you set fire to brandy on your Christmas pudding. And there are videos online. You can watch this woman just lighting, setting fire to the water coming out for her kitchen and taps. Very interesting. You do watch some odd stuff on the internet.
+
+[00:20:59] Yeah. That must be really dangerous though, because surely if it, if the fire travels along the pipe, it's, it never really catches that much because there's not enough methane in the water and it is water as well. Oh yeah, true. Here's the thing about coal fires. When the Titanic set sail out of Southampton, she was on fire. In the coal bunker, because that was what the Titanic's fuel was, a huge bunkers of coal. There was a fire in there, which had been burning
+
+[00:21:25] possibly since the 2nd of April, which was eight days before. A fire that wasn't supposed to be burning that wasn't being used to fuel the... Exactly, yeah, yeah, just in the coal bunkers there was a fire happening, and the crew took a day to put it out. I can't know if they didn't spot it for a week.
+
+[00:21:39] The whole sinking thing is starting to make sense. It was a very slap dash. Negligent crew. Maybe what they were thinking is what we need as in the enormous amount of very, very cold water. Be careful what you wish for, Frank. Fires are really important in nature, aren't they?
+
+[00:21:57] Especially in America, some of their big trees like the sequoias, they rely on forest fires to kind of keep them healthy and keep them regrowing. But because in America and everywhere, really, they have this kind of anti-forest fire thing, which is essentially to stop people from throwing cigarette butts around, but actually kind of says that all fire is bad. Whenever there's a fire, they try and put it out really, really quickly, which actually can be quite bad for the ecosystem. Because you do need these fires for things like Sequoos to grow.
+
+[00:22:27] Yeah, you do, because they have its pine cones, isn't it? There are certain pine cones which are held together really tightly by resin that relies on fire to get hot enough that the resin melts and its seeds are... I'm not saying we should set fire to every forest, but, you know, the odd little fire is quite important. The occasional tree wouldn't hurt, guys. Other forests where they have managed fires sometimes. them burn sometimes. It's amazing that they need fires. The idea that there's a type of pine cone that has fire
+
+[00:22:52] as part of its natural. I find it incredible as well, yeah. But there are controlled fires. You see them a lot. I can't remember where. I think you see them in Spain. But I think it's often to prevent other fires from actually how it's to preempt the fire. This will show that fire. It is literally fighting fire with fire. I've got one more thing about fire,
+
+[00:23:08] which is the record for the longest distance run while on fire, which is 200 metres. which is pretty good How on fire was this person? At the beginning he is so on fire I mean he's really really really a flame By the end of it
+
+[00:23:24] It's just his back which is on fire Because I think a lot of it is put out Over the course of the run But he's an Austrian stuntman Called Joe Tudling And he already had the record For the longest time on fire And then he broke this one
+
+[00:23:38] And then they said What are you going to do next And he said well I've got three more records to break Which is the furthest distance Being pulled by a horse while on fire. And then the furthest distance being pulled by a quad bike while on fire. And then a small motor vehicle while on fire.
+
+[00:23:53] So he's found his niece. Take some time off, get married, while on fire. Maybe retire, do some gardening, while on fire. Okay, time for our final fact. And that is Alex. My fact this week is that the first recorded traffic casualty was a Roman pig who was run over by a chariot carrying an ornamental phallus. Okay, let's start with the chariot.
+
+[00:24:24] Why was it carrying a massive phallus? Well, because it was probably part of the Dionysiac Festival, which was basically just this big festival where they had loads of fallaces. It was all to do with kind of fertility and generally being a bit ruckus. So we're sure it wasn't a metaphor and that it wasn't just being driven by the Roman Piers Morgan. This fact is from the Pigs Deliavelde of Odessa. which is basically a headstone, a tombstone,
+
+[00:24:49] which had a little poem on it in Greek. It's Roman, but the poems written in Greek, and also an engraving, a picture of the pig being run over by a cart, which has a huge dick on it. And it's basically a sort of satirical, slightly funny headstone because it's eulogising a pig rather than a person. But the pig was supposedly on his way, on the Via Ignatia, which is the road he was on,
+
+[00:25:10] and was kind of all very excited about having a great life and then got run over by a chariot. It's very sad. Rough. And pigs were symbols of fertility, I think, as well at the time. Everything was a symbol of fertility, yeah. Oh, no, in ancient Greece, I think ancient Greek swore oaths over the testicles of pigs because I don't know why they would do that actually, just because it's a symbol of fertility.
+
+[00:25:35] Really? Yeah. Is that right? They always say that the word testimony comes from putting your hands over your genitals, which I'm pretty sure isn't true. Yeah, I think that's a lie. But it'd be nice if instead it was the pig. testicles where it came from. It would.
+
+[00:25:48] It's not true either, is it? But it would be nice. I was kind of just looking at generally Roman pigs and what they got up to. There's accounts of the Magarians, apparently dipping pigs in oil and setting fire to them, and then driving them towards elephants, and then the elephants would trample them and get very scared and trample everyone, and there would just be general chaos. I was going to ask about that, because I remember, half remember reading a thing about setting fire to pigs and thinking they were dragons or something, because they were screaming and there was fire and stuff like that. I think it's the noise that made them so scary.
+
+[00:26:17] Yeah. Definitely. Oh, and then the enemy elephants trample their own people to death, don't they? You have the elephants at the front of your army, is that the idea? So when they see the picks coming, they turn around and trample the enemy army. Yeah. This is something really, really 100% completely not related at all. But I was reading this yesterday. In Covent Garden and around here, they had some riots when they changed the prices of
+
+[00:26:41] theaters and they're called the Op riots. and people shouted op, op, and op meant old price, or it could have been an O.P. But one of the things that they did was, as soon as their play had started, everyone would turn their backs to their play and then start doing these chants and stuff like this. And another thing apparently they did
+
+[00:26:59] was kind of prod pigs to make them squeal at like inopportune times to put off the actors. I just like the idea of, I don't know, kind of sneaking a pig into the theater. Do you dress it off as like a white? I like the idea that. it wouldn't be distracting enough for an actor if just a person in the audience started shrieking
+
+[00:27:18] you actually had to go to the trouble of smuggling a pig in. Someone else who prodded pigs was Louis the 11th I think when apparently when he was depressed he liked to get pigs dressed up and have them poked so that they danced for him and he constantly kept with him a dancing troop of pigs to entertain him. Is that
+
+[00:27:37] Louis the 11th King of France? Yes. Okay cool just checking. Yes. I think there's such a thing as too much power When you're doing that for entertainment. Yeah, you'd think he would sit back at one point and go, oh my gosh, what have I become? What am I doing with my life? But on the other hand, look at these great pains.
+
+[00:27:53] You know, we've talked about cat pianos on QI. So you have like 12 different cats, and they all make a different tone, and you press a key, and it hits the cat, and they squeal at a different tone. And it was invented by a guy called Anastasius Keatsha. Yes.
+
+[00:28:09] There is also a Piganino. There was a Paganino. which is the pig equivalent. Oh, I thought it was a sandwich with a pig in it. But just one sandwich, might. It wasn't. It was a piano with a pig in it. It was a musical instrument.
+
+[00:28:25] I think this might have been conceived by Louis XIth as well of France, because he liked the idea of torturing pigs for his own entertainment. And the idea was conceived. I'm not sure if they ever made one, but he challenged someone to make one. And the idea is that, yeah, you pile a load of pigs in a piano, and then you bash them with keys, which is a pretty big piano.
+
+[00:28:43] It's a grand. I mean, it depends on the size of the keyboard, I suppose. If it's an 88 key piano, then yeah, massively. And does it hit them or does it pull their tails? I'd just make them squeal. However way you want to make them squeal is the idea. I don't know. You could do a number of things, I guess.
+
+[00:28:58] Pig Olympics. Yeah. There's a pig Olympics. It's organized by the Sport Pig Federation. And there's pig running, pig swimming, pig jurgles, pig jumping. Pig hurdles. I'd better watch pig hurdles. Yeah, yeah, no, it's just, you know, pigs jumping with little hurdles.
+
+[00:29:12] I think none of these sports, you watch them and it's actually just pigs running around in a thing that we put in. The football works, but they cover the football in fish oil. So they run around looking at a little. I've seen pigs playing football. Are you not supposed to give pigs
+
+[00:29:23] balls and stuff to play with because they get bored otherwise? It's a law. You law, you have to give, farmers have to stimulate pig. Okay. Farmers have to give pigs. Stimulation.
+
+[00:29:35] Yeah. I've done a bit of research on penis festivals. Of course you have. To go on from ornamental fallacies. So there are some which still exist all over the world today. Where's the closest one to hear, do you think? Oh, the closest one to hear is in green. Is it in 10 minutes time?
+
+[00:29:52] I think that's in Greece. Okay. In a place called Ternavos. But in the Japanese city of Kawasaki, they have an annual festival of the steel phallus. And they parade an enormous pink statue of a penis through the streets. And you can ride a battering ram, which is shaped like a penis. You can buy sweets, which are shaped like a penis. like penises. You can dress as penises. You can, I mean, just take any normal activity and replace
+
+[00:30:19] the main noun with a penis. You can dress as penis while on fire. Also, the massive effigy that they carry through the streets is called Elizabeth for no discernible reason. In 2003, Cabinet magazine held a world's most phallic building competition. The winner was the Yipsilanti Water Tower in Michigan, which is nicknamed the Brick Dick. There's a lot of contenders for that like every skyscraper. Yeah. So just about phallic looking buildings, do you all remember seeing that picture on Google Earth
+
+[00:30:51] of a church that looked like a penis? No. It was in Dixon, Illinois, and it kind of did... It kind of did the rounds a few years ago. And it really, it does, you know, you can see where they're coming from, really. But a spokesman for the church said,
+
+[00:31:07] the church was not designed to be seen from above. Hang on, when they say the building wasn't designed, to be seen from above all buildings have architectural plans which you will be able to see that's so true that's a really good point one more thing on penises I found a cabaret event that was held in March of this year which was specifically four men with small penises it was established by a fellow called aunt smith
+
+[00:31:33] who says he has a small penis he'll be very glad you name checked it I'm sure but he was in all the papers at the time I mean he was trying to publicize this he was trying to get the word out there saying this is something that really worries a lot of men and just come to terms with it. And it was to help men come to terms with it. And the entry fee was that you had to pay 50p per inch
+
+[00:31:55] of declared penis. That's really good. I'm glad he's doing that. Yeah. And it is kind of ridiculous that we make fun of that and keep on stoking this ridiculous fire. I think we're celebrating it. Small penises.
+
+[00:32:07] Well, this kind of event. Yeah. Yeah. I think we're all saying well done, Ed Smith. Yeah. Definitely. But if I got along, I would have had to pay six quid. No, I'd have paid one pound 50.
+
+[00:32:21] I'll just round it down. Okay, that's all of our facts for this week. Thanks very much for listening. If you want to get in touch with anyone on Twitter from this podcast, you can contact James on... At Egg-shaped. Alex on... At Alex Bell underscore.
+
+[00:32:36] Andy on... At Andrew Hunter M. And you can email me on podcast at QI.com. and we'll be back again next week with another episode of No Such Thing as a Fish. Thanks very much for listening. Goodbye.

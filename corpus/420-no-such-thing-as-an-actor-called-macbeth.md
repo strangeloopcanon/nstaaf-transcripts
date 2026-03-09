@@ -1,0 +1,329 @@
+# No Such Thing As A Fish - 420: No Such Thing As An Actor Called Macbeth
+
+- Episode date: April 1, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/420-no-such-thing-as-an-actor-called-macbeth
+- Slug: 420-no-such-thing-as-an-actor-called-macbeth
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from four undisclosed locations in the UK. My name is Dan Schreiber, I am sitting here with Anna Tyshinski, Andrew Hunter Murray and James Harkin and once again we have gathered round the microphones with our four favourite facts from the last seven days and in no particular order here we go. Starting with fact number one and that is Anna. My fact this week is that logs used to be carried around the Andaman Islands by swimming elephants.
+
+[00:00:50] There's a lot of information to unpick in that. Okay, here's the first one, in fact you've actually answered it with your fact but I was going to say can elephants swim? I'm not going to dignify that with an answer, James, it's like you're questioning the veracity of my fact. What? Yes, they can swim. I see, I do see what you're saying, is it just these elephants or all elephants?
+
+[00:01:13] Oh, I thought he meant are the logs like a floatation device and they were just using that to… That's a great point Dan, that's exactly what I didn't really mean but let's pretend I did. I mean you don't get swimming lessons for dogs do you, but if they jump into a pond they're fine. Well, interesting you say that, my mum actually has a dog which can't swim, it's very embarrassing but yes, largely I think four-legged mammals can instinctively swim and elephants can
+
+[00:01:35] broadly and these ones particularly can but they can swim incredibly long distances, these particular Andaman elephants and so what happened was the Andaman Islands, Andaman and Nicobar Islands in fact are territories of India, about 572 islands altogether and in about the 70s they started logging there and they brought a bunch of elephants over from mainland India and they sort of pulled down trees in the jungle and then they'd load up the elephants with trees and they'd take them to the beaches to be shipped off in barges but the elephants had to block trees in various different islands and there was no way of transporting them between the islands and so they just sent them on their way to
+
+[00:02:15] swim it and they'd swim like 30 kilometres, 20-30 kilometres between islands to do some logging and drag the logs out to barges out to sea and load them up. That's incredible. That is an incredible distance to travel as an elephant, are they getting guidance in terms of direction, do currents take them out and are there lanes for them to swim in? They're heavily signposted and I think humans would accompany them between the islands on small rafts and boats that couldn't accommodate the elephants. I'm not sure maybe they had memorised various routes but I think that might be a step beyond
+
+[00:02:53] a lot of elephants. An elephant could remember any route it was given, couldn't it? Because an elephant never forgets. Exactly, yeah. Right, yeah. I didn't know that we were doing a common erroneous phrase-based fact now. The thing is about the elephants is I've read an article called Problems in the Land Vertebrate Zoo Geography of Certain Islands and the Swimming Powers of Elephants by David Lee Johnson
+
+[00:03:17] from 1980 and he says, I'm sure you've all read it, but he says, I'm sure all the listeners have read it, but he says that elephants have such good eyesight and sense of smell that even kilometres and kilometres away they can see another island that most animals wouldn't be able to see. What? They could smell food on another island and because it could smell the food it could find its way there. Yeah.
+
+[00:03:44] So you're saying the logging humans make a phone call to the next island saying, look, get a polo man, leave it on the beach, I'm sending the elephant over now. Can I just say, I'm not saying that, Donald Lee Johnson is saying that in his paper Problems in the Land Vertebrate Zoo Geography of Certain Islands and the Swimming Powers of Elephants from 1980. He was saying that, I wasn't saying that. That's so good. You just need to, I don't know, James, you're quoting him pretty extensively, I think you
+
+[00:04:07] are now saying that. That's such a good idea, but as long as all you have to do is coordinate, right, the elephants are moving today. No one's allowed to open a banana, it's a key. Within a 50 mile radius. But that's how you poach then, right? That's the best poaching tactic. Yeah, absolutely.
+
+[00:04:25] All the elephants just fuck off this way. Where are they going? He's opening the banana. The thing is that according to this paper, until the 70s and 80s a lot of geographers assumed that elephants couldn't swim. And so when you found elephant bones on an island, even if they'd gone extinct or something, or even if you found living elephants, then there must have been a land bridge because otherwise there's no way they could have got across.
+
+[00:04:48] And that meant that a lot of geographers had these ideas of certain islands around the world that must have been connected by land at some stage because they assumed that elephants couldn't swim. Really? That's interesting. That's amazing. I thought I didn't properly know that elephants could swim actually. I did know that they could walk underwater.
+
+[00:05:05] That was a thing I knew at certain depths because I've seen footage where they use their trunk as a snorkel. And so, yeah, that's really fun when you see that bit of footage. But that, yeah, that's amazing that they can. James, was it Donald Johnson, you were saying? Yeah, it was Donald Lee Johnson and his paper Problems in the Land vs. Britsu Geography. No, no, I don't know if we need to. Sorry.
+
+[00:05:27] I don't know if we need to. But I didn't read that paper. I'm probably now the only person listening to it in the podcast who hasn't. But I think that I read a reference to it because there's a debate about how elephants got to Sri Lanka, isn't there? And it was because it's about, how far is it from the Indian coast? Quite a long way. 30, 50 kilometers.
+
+[00:05:46] It is quite a long way, but it has elephants. And lots of other places used to have elephants like Malta and Crete and Cyprus. None of which I think have elephants now. I've been to Malta and it's quite a small island. You would struggle to hide a wild elephant population on it. The elephants on Sri Lanka, I think they're still swimming there. They're still making the journey over to Sri Lanka because every few months, it seems like there's a story where a Sri Lankan elephant is caught at sea and is being swept around
+
+[00:06:12] in the waves and has to be rescued because there was one that, you know, in the media like gets a theme and like reports on every instance of it, it turns out it's happening all the time. And it happened once in 2017. A Sri Lankan elephant was found being washed around about 16 kilometers out to sea. And you know, they all had to get a raft and come and pull it in again. And then two weeks later, two Sri Lankan elephants were found stranded at sea and had to be dragged back in.
+
+[00:06:36] And it looks so funny. You should look it up. There's all these people around with rafts and then bobbing under the water, just these two vast elephants who look so stupidly out of place in the middle of the ocean. They look really kind, they're really struggling aren't they? And the first one anyway, the 2017 one, the elephants really, really struggling to swim. And National Geographic emailed the co-founder of Elephant Voices, which I think is a charity called Joyce Pool.
+
+[00:07:00] They emailed her and asked her about elephant swimming. And she says she wasn't surprised that the elephant was swimming out there because she said elephants are considered the best swimmers of any land mammal, perhaps excluding trained human swimmers. And then they showed her the video of this elephant really, really struggling to swim. And she said maybe the elephant was tired. Wow. It's so funny.
+
+[00:07:23] It's 16 kilometers out. If you've swum 16 kilometers, pal, you'd be tired, wouldn't you? I certainly would. That was, there was the theory at one point that the Loch Ness Monster was a swimming elephant. Wasn't there? Was there? Yeah, because there was a story that there was a circus in town and they thought, let's
+
+[00:07:38] bring the elephant out for a swim. And the very famous photo that was seen, I think it was the famous photo, the surgeon's photo it's called, the thought is that that's the trunk just coming up through the water getting breath as it's going along. It's not like humps going up to the, to the trunk. That's what I think. Yeah. So I think they think that that's the, the head coming out from the back.
+
+[00:08:01] Maybe it was giving the circuses camel a piggyback in the water. Yeah. And then the snake was at the back. Yeah. I guess it's not the stupidest theory ever given that it only requires us to believe in the existence of a badly managed circus rather than the existence of a dinosaur in a lake. It's not a badly managed circus taking your elephant out for a swim. I think if they've, I think if they've left the elephant in there and it's being photographed
+
+[00:08:24] by the public, that's what I thought you were saying. No, I'm not saying that there's a, an abandoned elephant swimming Loch Ness. That's what you're saying. If you're saying a Loch Ness monster is an elephant, then that's... No, I'm saying the photo, the thing, there was a thought that the, the photo was an elephant. Yeah. Yeah. But if they put it in, then they took it out.
+
+[00:08:42] I see what you're saying. I thought you meant like Andy, there's been this elephant living underwater in Loch Ness for hundreds of years, which is almost more ridiculous than the Loch Ness. If you look at that photo, actually, if you look at the surgeon's photo, you can just see in the corner of the shot, a clown getting out of a little car. Yeah. And you can just see that it actually looks like water, but it's actually confetti that he's swimming through.
+
+[00:09:02] And the clown's got giant shoes and has been mistaken for Bigfoot, actually. So... Well, we've moved down to the realm of facts, haven't we? Do you want a real fact about elephants? Yeah. I've got one. Yeah. I'm going to put it in James's special Donald Lee Johnson tongs for quoting without saying
+
+[00:09:25] this is definitely true. I think it's an amazing theory that the theory is that Cornwall's first road network ever was created by elephants. Okay. It's one of my favorite facts. I can't believe we've never mentioned it before. Uh-huh. Uh-huh.
+
+[00:09:39] Go on. This is according to researchers at the University of North Cornwall, who should know, frankly. And I quickly debunk their theory before it's even sort of found. No, no, no, no. I would like to get my thing up in the air before you take a pop at it, if that's all right. Okay. Up to 115,000 years ago, Cornwall had elephants.
+
+[00:09:57] Okay. Okay. It was a bit warmer. It had them. All right. Now we're... Okay. There's a fossil record and all of that stuff.
+
+[00:10:06] Sorry. Just a check. So, we're going to listen to this knowing it's wrong. We're just going to sit here and listen to this. We're not because I know it's right. Okay. And Anna may know something different. Let me tell you what I know.
+
+[00:10:16] Right. So, you know how Ice Age is kind of retreat in advance as the millennia go by. So, the most recent glacial maximum covered most of the UK, but it didn't cover Cornwall. Right? It didn't get that far south. That's definitely true. So, most of the elephant tracks across the UK will have been covered by ice sheets and are raised, but the ones in Cornwall were not.
+
+[00:10:34] And what the theory is by these researchers is that herds of migrating woolly mammoths and elephants who came to the UK, they came to England basically on their summer holidays when it was a bit warmer up there to eat. Those tracks that they had, their roots, which were used by them and by hunters, kind of map onto the road network in Cornwall today. Ironically, it's the smaller roads that they created and not the trunk roads, which were created in modern times for modern needs, but the smaller road network in Cornwall is created by elephants.
+
+[00:11:07] Right. There. There. I've said my bit. Now, please, Anna, get out of your... Just going to say, it doesn't make any sense because the roads in Cornwall are so sodding narrow that two elephants could never pass each other on the road. Actually, in the Ice Age, these elephants, they got stuck behind tractors so often that
+
+[00:11:25] they ended up trumpling loads of extra roads. When I was looking into elephants moving logs around everywhere, I discovered that they actually move trees and poo them out eventually. They're not smuggling trees in the rain, it's a big session on the toilet, an oak. What I mean to say is... As a mugger, you'd pay more, wouldn't you, if the trees that hadn't been through the elephant ate us. So what I mean to say is there's the African savanna elephant and what it does is it basically,
+
+[00:12:03] through eating, it transports seeds further than probably any other animal around. This is including a lot of birds. It can go as far as 65 kilometres in delivering seeds and that's because its intestines are so long for the seeds and the food to get through that it takes something like 33 hours, I believe, for it before they actually start defecating the seeds that they might have swallowed. And the last one will come out 96 hours after they've first swallowed a seed. And so they've been spreading plants and trees all over, you know, different parts at greater
+
+[00:12:42] distances than, as I say, a lot of birds in the area and certainly any other land mammal. I wonder if they know they're doing it, like they pick up a seed and eat it and then they sprint for 96 hours straight. Some kind of conservation project. Exactly, just open a banana in that area, they come running. Yeah. It's clever. You know, we talked a while ago about sort of elephant trunk uses.
+
+[00:13:05] Oh yeah. And there was a bit which sort of came after that, which, because we'd already recorded the podcast, it didn't go in, but Anna found this website which had all the uses of an elephant's trunk and as observed by scientists. And there are about 200, you know, there are so many different things and they've all got a different name by the scientists. So I don't think we mentioned this. One of them is mating pandemonium is one way they use their trunk.
+
+[00:13:30] One of them is dust with semen. Okay. So let's go back to the first one. Mating pandemonium. No pandas involved, I assume. I hope not. What does it mean? What is it?
+
+[00:13:43] Must be just like, I mean, how do you make mating chaotic, introduce your trunk? I can see how that would cause pandemonium. Yeah. What? Trunk up the bum? No. That's not what it could mean, is it? I know.
+
+[00:13:55] No. Sounds like pandemonium to me. Dan, do you want to have a guess? Oh, do they form a heart like you would with your hands? You know, it's just to let people know. There's some sex going on over here. What a tame definition of pandemonium. Romantic, frankly.
+
+[00:14:15] Maybe like, could it be like loads of males attacking each other to attract a female maybe? It's much less fun, actually. When a female has had sex, her relatives and companions join her and they have a party, basically. So they shout and they rumble and they trumpet. Like a baby shower. It's like a baby shower, except it's a sort of post shag. So I'm just quoting from the website here.
+
+[00:14:43] Females may turn towards the male, reaching their trunks to touch his penis or his semen on the ground or to touch one another and then turn rapidly outward in a kind of pirouette. It's a bonding ceremony after one of your female friends has had sex. Why don't we do that as humans? I think that is a ceremony that should translate across species. Every time someone loses their virginity. Andy, you could have yours quite soon. If the semen's on the ground, we could all pirouette away from you.
+
+[00:15:17] OK, it is time for fact number two and that is Andy. My fact is that there is a French parliamentary manoeuvre which involves MPs hiding behind a curtain and then bursting out to vote at the last minute. Why? It's really fun. It's not used often. It's not a weekly feature of the national. Well, you couldn't because then people would just check for feet sticking out.
+
+[00:15:45] How often? Eventually people forget. I found a reference to it being done in 2014 and I don't know if it's been done since then. So this was a fact that a writer for the New Yorker called Lauren Collins put it on Twitter and she reads a lot of French websites as well as English ones. And the National Assembly is their parliament basically and it's got these enormous red curtains. And if you think, as the opposition, that you're close to defeating the government, sometimes you can try the coup de riteau which is the curtain blow
+
+[00:16:13] and you hide your MPs behind a curtain, you hold the vote, the government gets all its votes in and then they burst out from behind the curtain and vote against the government and the idea is that they defeat them. It's a way of lulling the government into thinking that your side doesn't have the votes. Does the government ever say, it's so weird there are only six of us in here because I swear I saw about a dozen other people come in. Well, the one main time when it happened in living memory was with Sarkozy, wasn't it? He had some kind of internet bill that he wanted to get through.
+
+[00:16:44] It was like just trying to ban people from the internet if they copied too many things or whatever. And everyone was so certain it was going to get through that hardly any of his party turned up. And so that's how the opposition managed to do something. The final result was 21 to 15 in the vote. And if you think about how many hundreds of MPs there are in the National Assembly, it's like they literally didn't think that it was a problem at all. And then suddenly behind the curtain there were 21 people. When they were behind those curtains, you could have said to your mates behind it,
+
+[00:17:20] we're all getting Sarkozy behind here, aren't we? That's great. And it would have made sense. But then everyone laughing so loud that your amazing joke would have given the game away. I was just reading some random stuff about French politics and mostly I just really enjoy it when they conform to stereotypes. So I enjoy that. Felix Foray, who was president of France at the end of the 19th century,
+
+[00:17:46] died just while having sex with a 30 year old mistress, obviously. That puts a real doubter on the party that you have in afterwards, doesn't it? Well, you can... The dusting with semen is going to be a pretty somber affair this afternoon. From dust to dust, from semen to semen. He died doing what he loved. I think everyone could always say that. Just one or two more things on French parliamentary shenanigans.
+
+[00:18:15] One thing caught my eye and it's just incidents that happened outside the French parliament. In 2013, there was a group who launched a protest by releasing a flash mob of chickens outside the French parliament. They had 450 chickens in the back of their van. They were a slightly aggressive group, I'd say. They were protesting against gay marriage and so they bundled 450 chickens into a van. Their plan was to release them all outside the French parliament. As part of an incredibly weak pun, Anna, you would have loved it. Basically, they wrote,
+
+[00:18:43] Ne plume pas le family, or don't pluck families, which also means don't rip people off with family taxes. So it's a very convoluted trap shot. I mean, the French for chicken is a cock. Yeah, you're right. You're absolutely right. Feels like they missed a trick or two there. I don't know. Huge open goal missed. And surely a headline must have run at some point.
+
+[00:19:03] 450 chickens, that is enough. Brilliant. Just to give a little coda. Only about 40 of them got out of the van, the chickens, before the police noticed why all of these chickens out here started chasing them so then they closed the van and bundled off. Very sadly, two of the chickens were then killed crossing the road. Oh, no. But, presumably, they were the homophobic chickens who got out to protest.
+
+[00:19:26] So not too big a loss. Can I tell you about a very exciting article page on Wikipedia that I read recently? So just take us into the world of curtains for a second. Curtain Rings really, really brought the thunder, I thought, when I was reading it. So there's a very interesting fact, which is that Lewis and Clark, when they went out on their expeditions, they brought a lot of curtain rings with them as presents. Lewis and Clark, were they traveling across America?
+
+[00:19:55] The North American interior, yeah. I suppose they were interior guys. That's the curtain rings. So if they'd been exploring the exterior, they would have taken the patio furniture with them and the fire pit. So there's that little fact there. And then there's this little paragraph of other uses and it says... Shall we just quickly say, because I think they will have carried them like to trade, right?
+
+[00:20:23] Yeah, they were to trade and they were gifts as well. They were really popular and new innovations back then. They didn't have incredibly elaborate tents there every night with 400 pairs of curtains. But what, they're just a good thing to trade? I mean, if you're taking them to people who by and large don't have curtains. They use them as rings and earrings, apparently. Which seems odd, as they were specifically meant to be large enough to go around a human finger. Which I mean, old curtain rings.
+
+[00:20:51] Yeah, so that's the thing. It says in this article, other uses, for example, they may be used as a wedding ring in a marriage ceremony. So that's one use that they could have. What do you mean one? People are getting married, that you could use a curtain ring as a wedding ring. It's what this Wikipedia page says. But then the next thing it says is, or it can be used as a ligature to prevent nocturnal urethanes,
+
+[00:21:15] so bedwetting, right? And I thought, okay, this suddenly sounds like someone's just taking the piss here. They're just, someone's hacked this Wikipedia page. I clicked on the link and it took me to a book that's written by a guy called Robert Liston, who was a big surgeon, and yeah. Okay, so check this out. This is the extract from the book about using it as a ligature. AR, when eight years old, passed a brass curtain ring over his penis
+
+[00:21:44] to prevent incontinence of urine during the night, and thereby escaping chastisement to which he had been frequently subjected. Great swelling soon took place round the ring and he was unable to remove the jugum. He experienced much pain and difficulty in- Sorry, can we go back to that word you casually used there? Is it not jugum? I've just not heard that word. What word do you say?
+
+[00:22:10] How do you spell it? J-U-G-U-M. Wait Dan, when you say is it not, what do you think it is? Well, I assume it's an old word for a curtain ring. It's another word for it. Imagine if the word odd word all one day was jugum. The internet would go fucking apeshit. It's a very rare word, that jugum.
+
+[00:22:30] You can't not acknowledge you just casually dropped the word jugum into his penis. He's put something on his penis and then this is the same thing he can't take off. It's obviously just another slang word for the item. It's irrelevant to the story. So, he experienced much pain and difficulty in voiding his urine. The ring gradually ulcerated. The ring appeared to sink into the substance of the penis and the swelling subsided. Oh.
+
+[00:22:57] Yes, except that this guy kept it on there. It says that he then, after a while, became the father of a fine family. So, he was eight years old when he put this on. When between 50 and 60 years of age, he applied to me, and then this doctor, Liston, then has to remove this curtain ring that's been around this man's penis since the age of eight, which has fused into the shaft of his penis. So, you're saying it sort of migrated into his penis.
+
+[00:23:28] Exactly. It kind of just through the skin. Exactly. It migrated through the skin and it became infused. He had a curtain ring. His penis was the rod to this curtain ring. And he had kids. He never thought to take it off.
+
+[00:23:45] If it's fused into your penis, I would just live with it. Well, that's what he did. Can I just say, we're filming this on Zoom today. We don't usually at the moment. Dan is in a bedroom. Can anyone else not turn their eyes off the curtain that's behind his left shoulder? Actually, you're right.
+
+[00:24:02] One of the curtains at the end is sort of hanging off a bit. Like there's a ring missing. Yeah. I thought Dan was getting slowly more and more purple as this went on. Just because you said it, I had to know. A jugum is not an old word for a curtain ring. A jugum is specifically a forceps for compressing the penis
+
+[00:24:25] in olden days using an anti masturbatory device, apparently. Apparently, you needed a word that specific. Okay, so great swelling took place around the ring and he was unable to remove the jugum. It seems like they're using it metaphorically because that's how he was using it, right? He was almost using it like one of these medical things. Anyway, his penis worked again.
+
+[00:24:49] Like it worked normally again. He was like, wow, my piss is flowing nicely. This is in his 60s. Yeah, but he always got an erection whenever he heard a curtain being moved, which is very embarrassing. Can I tell you an anecdote about politics, which is not French, but I kind of like it. It's about a vote, so it is kind of related.
+
+[00:25:08] So this is in 1872 and there was a vote against the New Zealand government and it looked like it was going to come down to one vote. So this is like, what do you call that, when it's like in confidence of the government? So if they lose this, the government could fall and it was going to come down to one vote. And one of the governing party called Edward Wakefield was a massive drunk. So his colleagues locked him in a room
+
+[00:25:32] and they took all of his alcohol away from him and they kept him in this room and they said, right, we're going to leave you there, we're going to keep you sober, and then as soon as the vote starts, we'll let you out and you can vote and then you can do whatever you want. So they put Edward Wakefield in this room and the opposition learned about it and so they lowered a bottle of whiskey down the chimney
+
+[00:25:52] at the room that he was in. He drank the whiskey and he was unable to vote and the government of New Zealand fell. Oh, wow, brilliant. That's incredible. Wow, you really do have a problem then. I think the next trip when you let out that room is a trip to the AA. He must have thought it was Christmas, right,
+
+[00:26:12] when the bottle of whiskey comes down. Santa's changed, hasn't he? Can't be asked to come down the chimney himself anymore. Oh, that's great. Well, do you want to, look, do you just want to impress your curtain-loving friends? Always. Yes, please.
+
+[00:26:32] Yes, you do. Do you know what you call a curtain's helmet? I didn't even know a curtain had a helmet, Anna, embarrassing me. Well, when I say helmet, what I mean is, you know, on quite old-fashioned curtains or on eight curtains, you get like a fabric or sometimes a wooden border at the top. Or a skirt, like a top skirt for the curtains. Like a hem skirt.
+
+[00:26:52] Yeah, but an upper and sort of a high hem. I'd call it a skirtan if we were starting from scratch with the language. That's actually better, and that wouldn't have forced me into saying do you know what you call a curtain's helmet when it's clear? Not a helmet, but it is called a pelmet. A pelmet, okay, yeah. Oh, that's quite good,
+
+[00:27:11] because isn't a pelmet slang for an extremely short skirt, like a racially short skirt, is a pelmet. Is it? Oh, yeah. Is it? It might be. And that's why if a curtain was analogous to a pair of legs, that little bit at the top would be a pelmet, wouldn't it? Yeah, yeah.
+
+[00:27:24] Dude, I did not know that, but that feels like one must be named after the other. It is like a pelmet, yeah. Do you know what kind of pelmet though a lambrokin is? No, I don't. A lambrokin, no. Or a lambroquin is a pelmet with such deep sides they extend to the floor. Just if you're ever at anyone's house, you can say,
+
+[00:27:42] I love your lambroquins. I think you're more likely to say, have you considered having some lambroquins here because they're not likely to have them themselves. A pelmet which goes all the way to the floor? On the sides of the curtain. Yeah, yeah, not all the way down, because that would be a blind.
+
+[00:27:57] That's a curtain. Wow. Is it to conceal? It's like a square curtain, so it would come out on the sides and then it would be kind of flat in the front and you'd have your pelmet at the top, but then on the sides it would come all the way down.
+
+[00:28:10] I see. So you're framing the curtain. That's quite nice. I might get that. It is, in answer to your assumption, Andy, it is to conceal the embarrassing bits like the curtain rings and the pole. But now we know they are functionally cock rings.
+
+[00:28:22] I think it's probably quite a good idea to hide them. Okay, it is time for fact number three, and that is my fact. My fact this week is that one of the biggest theme parks in China has a ride that puts visitors in a coffin, rolls them into a chamber, and then simulates their cremation.
+
+[00:28:46] This is the Sad Mahi game. It's the experience of death. The cremator goes by many, many names. It is a very bizarre 4D virtual experience that supposedly, according to reports from 2014, costs roughly 26 pounds, and the idea is that you go into a morgue, you get into a coffin,
+
+[00:29:08] and they push you through on a conveyor belt all the way to the crematorium, where then you are burnt to a cinder, at least that's the sensation that you're going to get. Lots of hot air, lots of weird lights, and it just prepares you for your inevitable death, is the idea. I mean, first of all, it's not the sensation.
+
+[00:29:30] They claim it. It's not the sensation of being burnt to a cinder, is it? Because that would be a much less pleasant ride. It's a sensation of being a bit worn with some weird lights. Well, there are two people who came up with the idea who are Huangei Wipeng and Dingrui. They're two people from Shanghai. When Huangei went into it, he said,
+
+[00:29:49] I couldn't breathe and I thought my life was over. That was the first time he ever tried it. So to him, he thought he was dying, didn't he? Yeah. Although, I think to prepare for making this, they asked to be sent through a crematorium, right? And they asked the control of the crematorium to let them experience cremation
+
+[00:30:06] with the crucial difference that he turned off the furnace. It does say it heats you up to about 40 degrees Celsius, not Fahrenheit, which is, that's warm. That is very warm. I would feel pretty uncomfortable in that. Yeah. I think it depends on also, you know, if you're claustrophobic, if you're, you know, so many senses are going to come into play.
+
+[00:30:25] But they do say it's an authentic experience of burning. And I think that sounds quite fine. So the idea is it's not a ride like, let's say, the big one or oblivion or something like that. It's basically like an escape room. And there's a load of challenges. And let's say there's us four are doing all the challenges. After each one, whoever does the challenge worst
+
+[00:30:46] will, in inverted commas, die. And then when you die, you get put into the coffin and they do this kind of cremation thing. And then there's three people left. And then whoever comes last out of those three people then does the cremation. So each kind of challenge, you're trying not to die. And the worst person does die.
+
+[00:31:05] And then in the end, the last person, they actually make them die anyway because all people die in the end, that's the idea. So everyone gets to do the little ride at the end. But yeah, it's like challenges that you have to do to get to it. I would love, by the way, if anyone's listening to this, who's been to the cremator, to please let us know what it was actually like.
+
+[00:31:25] Because I can't find anyone really who's properly done it. Like, I went on Trip Advisor and it says that this is part of the windows of the World Amusement Park in Shenzhen. So this is a pretty amazing place where they've replicated some of the biggest landmarks in the world. Some to sort of quite a nice big scale, like the Eiffel Towers, the third of the size of the Eiffel Tower. They've got a life-size Mount Rushmore.
+
+[00:31:50] You can do anything that's a sort of landmark around the world. They most likely have it. And then supposedly they have this random cremator game that you can play. No one on Trip Advisor has mentioned it. I can't see anyone who's been to it, so I would love to know. Well, do you think, is it possible that they keep forgetting to turn off the furnace?
+
+[00:32:15] Thank God they don't survive to leave the one-star review. It's funny, because I'm not really worried about the being cremated a bit, because I don't expect to be. If I am conscious for that, something's gone so badly wrong that even the brief preparation I've done at this escape room I think is not going to be enough good to see me through it with a calm mood. That's a tricky one.
+
+[00:32:40] Do you guys have anything on cremation? I can just say a little bit more on this particular thing. Yeah, let's do it. So this ride escape room thing, it comes from something called the Coffin Academy, which began in South Korea. The idea was that it's trying to prepare people for death, and if you prepare for death,
+
+[00:33:00] then it makes you able to live your life more freely, because you're not worried about something that might happen. And it was founded by a guy called Jung Joon, and Samsung in South Korea. They required 900 of their employees to go to some of these sessions so that they could learn about what might happen when you die, and you write your own epitaph, you compose last letters to your loved ones,
+
+[00:33:25] and you're placed in a coffin for 10 minutes at the end, and that's supposed to be like this memento mori of reminding you to live your life, because one day you might die. That's really good. I hope they don't post the letters, because that's a distressing experience for their families, if they accidentally mix up in the post room.
+
+[00:33:43] It does work though, thinking incessantly about death. It's actually good for you, apparently. I think it was about South Korea's soaring suicide rate, wasn't it, that they wanted to combat, because it got the highest suicide rate in the world, I think. But there have been studies that show, if you think about dying for 5 minutes a day, apparently 5 to 10 minutes a day,
+
+[00:34:04] you will be happier. And they did a study where they got people to write emails or respond to emails about dying and death every day, for about 10 minutes, and they found that the people who had done that, had increased positive mood, better self-esteem, increased intrinsic motivation. Whatever that means.
+
+[00:34:24] I suppose they felt like they had a reason to live. And so it does work. You can get apps as an app called WeCroak that my husband has, which is very annoying, because it reminds you 5 times a day that you're going to die. Hang on. And it says, and it's quite annoying, because he rarely uses his phone,
+
+[00:34:40] so it's always the latest message that came up, because it comes up 5 times a day. So whenever I'm walking past it and I move the phone, I forget you're going to die. Why does he have this? Because of this psychological thing we were just talking about? Does your husband actually have this, or do you text him this 5 times a day?
+
+[00:34:57] I've been leaving constant threats. But yeah, planning your own death, people do. People plan their own funerals. It's becoming more and more popular, and actually attend their own funerals now, which is another way of reminding yourself you're going to die quite on the nose. But this is a tradition that started in Japan,
+
+[00:35:14] apparently, in the 1990s, and they're called pre-funerals, or Saisenso in Japan. And I think they started out in response to, funerals were being really commercialized, and people were being ripped off for these just off the conveyor belt out of the catalogue funerals,
+
+[00:35:32] and they thought, look, we want some more personalized funerals, and I don't want to fork out so much cash, or I don't want my poor family to be forking out so much cash after I die. So pre-funerals have become a thing, and it's when people plan and then attend their own funeral,
+
+[00:35:48] say a few words, say goodbye. It's usually older people. It's quite rare that you get like an 18-year-old having a pre-funeral, and then that's nice. Saves your family having to do it. And I guess you get to go to your own party at the end of the day.
+
+[00:36:04] That is cool. I guess people must know that they're attending your pre-funeral instead of your funeral. Surprise! Provide the curtain. That'd be great use of your escape room coffin. You'd finally get to use it
+
+[00:36:20] instead of it just being a thing for post-death. Good point. I do think it's a good idea, and I think it's a good idea from your perspective as the person who's having the pre-funeral, if you want to do all the mindfulness and remind yourself of your potential and experience life properly.
+
+[00:36:36] But I don't think it's a good experience because everyone knows that you're not really... you're in the front row, you're sitting there. They'll say nice things, but you'll think... Yeah, but in fairness, Andy, no people don't go to funerals in general and say, oh, he was a complete idiot. Thank God I can let loose now
+
+[00:36:52] that he's not spotless anymore. If he was here, I wouldn't say this, but what an asshole. It's probably pretty similar before and after, and they're both lies, I think is what we're saying. You've definitely read, and this... I might have said this before. I've definitely read a funeral director say
+
+[00:37:14] that it's really common when bodies are cremated that you end up with metal implements that have been left in their body during surgery. And I've always been so skeptical about the fact that surgeons are so careless. They're just dropping things in our bodies left, right, and centre. But apparently that's quite a thing.
+
+[00:37:30] You pop in, you get a scalpel and a knife, pair of scissors. Really? It's called, isn't it? Supposedly. Gossipiboma. If someone leaves stuff in your body during surgery, that's the technical word for it. And it comes from gossipimus, which means cloth or something.
+
+[00:37:48] Which word do you think is rarer? Gossipiboma or jugum? I've never heard of jugum before today. I must admit. I think you might be right, yeah. You know when you're being cremated? Yeah. And you go through the curtains.
+
+[00:38:04] There's a lot of French politicians. Nightmare. What's the next thing that happens? Fire. Well, I didn't... Yeah, I didn't think there was fire. I thought it was deep heat. They rub you with that thumb?
+
+[00:38:20] Yeah, there's just a muscular masser on the other side of the curtain. I told you it was just a sprain. What are you all about? What are you all about? Dan, what is... I thought it was an intensive heat, which instead of a physical fire...
+
+[00:38:36] It turns out that you don't automatically immediately go into the furnace. Just to be clear, it is not deep heat, whatever Dan means. It's flame. Oh, it is flame. But legally, they have 72 hours
+
+[00:38:52] before they have to cremate you. What does that mean? Do they do fun stuff with your body in that three days? No, they're not allowed to interfere. They're not allowed to interfere, but they aim to do it on the same day. But sometimes, it's busy and they don't get around to cremating you.
+
+[00:39:08] I suppose they might want to do a few people at once. I don't think they're allowed to. Well, I think because they're getting your remains for your family. Yeah, I didn't mean just put everyone in the same box, but I thought maybe just not turn
+
+[00:39:24] the fire on and then turn it off again and then turn it on. It's energy intensive. I mean, it uses so much energy. In fact, you guys have heard of redditch? The town. Relatively large
+
+[00:39:40] conurbation. Yeah, well, there's a swimming pool in redditch which is heated by the local crematoriums spare heat. They voted for it in 2013 and the council voted for it. They won an award for it from some green group.
+
+[00:39:56] It's time. Ironically, whenever I use deep heat because I seem to be allergic to capsaicin I get a redditch. That proves something, doesn't it? It's hard to tell what. It shows that the whole universe is connected in some way.
+
+[00:40:20] OK, it is time for our final fact of the show and that is James. OK, my fact this week is that the actor Peter O'Toole once smuggled a pair of earrings out of Greece by hiding them in his foreskin.
+
+[00:40:36] Right. And I must say, I came up with this fact before we talked about all the, you know, curtain rings and penises and stuff. That's just a coincidence that those two things came up in the same show. Yeah. I completely forgot that I had that fact
+
+[00:40:52] in relation to this fact. What an extraordinary thing, an outer and inner ring in one show. What an object to smuggle under your foreskin? A pair of earrings, traditionally quite sharp. Well, unless they were they clip on? I think that would actually be more painful. Oh, yeah.
+
+[00:41:08] I think not. Because these were ancient so I think before the invention of clip-on not that I know when clip-ons were invented but I assume they're more modern. The Etruscans didn't have clip-on areas. We'd have to rethink a lot of our assumptions. Seems unlikely. So we are currently
+
+[00:41:24] just coming to the end of the T-Series of QI and we're doing a section on tools and I thought when I was looking at the scripts I would flesh one of them out with an anecdote about Peter O'Toole so I thought if I'd find any anecdotes about him and I found this one in the telegraph and then it was also
+
+[00:41:40] in a biography of him by Nicholas Wapshot and he said that while Peter O'Toole was filming Lawrence of Arabia he developed a love of exotic antiquities and so knowing that he wasn't
+
+[00:41:56] allowed to take these things out of Greece legally he thought work and I hide them and no one would think of looking and he said Nicholas Wapshot says it was an act of daring which caused him pain for weeks afterwards. Wow, okay so this wasn't a classic
+
+[00:42:12] this wasn't like how we got the Elgin Marbles here this is a very unique smuggling use That's a big brag isn't it, if you say oh I smuggled the Elgin Marbles out of mine. They were smuggled in an elephant's foreskin all the way through the roads
+
+[00:42:28] of Cornwall. Do we know if he weaved them through or just tucked them under? I don't know for certain but it can only be tucked under. It gotta be tucked under. He didn't pierce his walls. Did he pierce his walls? You would not do that.
+
+[00:42:46] The only other way I can think of doing it is you kind of sellotape them to your penis and wait for the foreskin to grow over them over many many years That's the only other possible. Well he was out there filming it for two years, maybe the filming
+
+[00:43:02] only took a month but he had to wait the remaining year and three quarters for the skin to grow. There is scant more information about this that I managed to find. I don't know if you guys did that in his anecdote filled life. Actually I do have a related
+
+[00:43:18] anecdote just before we get into Petro Tool. I do on this subject have a similar story, a friend of mine I don't know if I should say this but in the dressing room before each show one of his colleagues would play a game with all of them called Guess What's Under the Foreskin where
+
+[00:43:34] he would hide something beneath his foreskin, show everyone the foreskin and the rest of the cast would have to guess what it was. Okay and so the idea is you can see the outline so if it was like a mountain bike you'd be able to tell the shape of the wheels and stuff. That's a fucked up Christmas.
+
+[00:43:52] That's how your presents are wrapped. So I asked for the kind of things he said once it was an old fashioned penny, once it was seven jelly beans. How are you supposed to identify an old fashioned penny? You can't read the date and it's inscribed on a penny through a foreskin.
+
+[00:44:10] That's too much to ask. You can tell which monarch is depicted. That is a hell of a brass rubbing to work that out. He was extremely eccentric. There are so many stories about him. For example, his wife got him some ping pong balls to throw at the TV screen when he didn't like it. That doesn't sound very rock and roll
+
+[00:44:32] but apparently she only did this because he broke their previous TV set by throwing a smaller TV through it. That's amazing. That's impressive. That's like one of those kids games where you have to fit the appropriate shape into it. He's done it right.
+
+[00:44:52] We should say really quickly because a lot of people will be a lot younger, might not have even heard of Peter at all but this guy was a ginormous actor in the day of old Hollywood so Lawrence of Arabia probably has seminal role. The big epic, some three hours
+
+[00:45:08] and a bit long. He played the role of Lawrence and he was part of that crew of Hollywood that were the sort of hell-raisers these people that just didn't care about what they were doing but he was nominated eight times for best actor in the Oscars
+
+[00:45:24] so he was a huge player. I never won an acting Oscar did he and that's I think the record with Glenn Close both him and Glenn Close eight times nominated, no wins. At least Glenn Close can say oh so close.
+
+[00:45:40] He doesn't even have that. He was quite pissed off about that I think. In fact he was offered an honorary Oscar in 2003 and that was when he had seven nominations for best actor and he didn't want to take it. He said I'd like to defer that for at least 10 years
+
+[00:45:56] because I might yet win the lovely bugger outright he said and the only reason he did go was because his daughter wanted a jaunt in LA so he went and did it and then he got nominated an eighth time in 2007 didn't win that either. Poor guy. There are worse fates.
+
+[00:46:12] He was friends with Samuel Beckett who was mentioned before yeah there's a story, it's not much of a story really that he kind of had a big night out with Samuel Beckett and Soho sitting in the doorway drinking whiskey until the early hours
+
+[00:46:28] getting the policemen involved and having drinks with them his second Oscar nomination was for Beckett the movie Beckett in which he played Henry II so that was about Thomas Beckett so he was friends with Samuel Beckett
+
+[00:46:44] he was nominated for the movie Beckett and he was born on Beckett Street in Leeds. Wow Amazing. He had lots, I suppose who's been a jobbing actor for ages had lots of other jobs to actually
+
+[00:47:00] pay the bills but I think quite a good expression of his personality was the fact that he worked as a steeplejack and he worked as a demolition man and this was in his early twenties I think when he was in Leeds and he loved it he said blowing things up and knocking things down
+
+[00:47:16] with a bloody great hammer nobody gave a flying shit for health and safety in those days it was glorious and he loved that and I think he also loved being in the Navy didn't he? Yes. What were you going to say? A steeplejack That's somebody who climbs up very tall buildings isn't it? A steeplejack
+
+[00:47:32] What do they do when they're up there? I thought they kind of fixed them although this implies that he's knocking it down so it sounds like he's doing it wrong It's one of those old jobs. Yeah, old jobs Yeah. The robots can do it now Just
+
+[00:47:48] an irrelevant thing about climbing up tall buildings. I learned the word flaunching the other day. Oh yeah. Is it launching yourself off a floor? It's um it's actually extremely boring but you know the chimney pot at the top of the
+
+[00:48:04] there's a chimney stack and then there's a tiny bit right at the top with the round chimney pot the little layer of cement mortar between the stack and the pot is called the flaunching. Quite a niche thing to have a word for really. I know but if you have a roof around
+
+[00:48:20] you can knock him dead by saying have you considered the flaunching? Is it maybe a problem with the flaunching? That was like when I learned that brickwork had to be pointed. I still don't know what it means but I used to whenever a builder came around I was like oh I think these
+
+[00:48:36] bricks need to be pointed Yeah. That is a useful word Anyway, what do we learn today? We've learned juggum, flaunching and what was the curtains one? The lambroquin. Like a harlequin
+
+[00:48:52] who's drunk on lambrini. That's how you remember it. First there's a problem with my flaunching then the lambroquins fall over I tell you if something happens to my juggum next that's going to be the full set. When they were delivering that bowl of whiskey to that New Zealand guy
+
+[00:49:10] was the flaunching an issue in getting the bottle down? Great question. I don't think the flaunching usually gets in the way. Sounds like. Unless it's very badly done. You don't want bad flaunching on a house that will ruin the value.
+
+[00:49:26] Yes, I'm so sorry we weren't talking about Peter O'Toole I'm sorry for distracting you. In 1980 he did Macbeth, the old Vic and it was absolutely hammered. The critics hated it. They said he was as subtle
+
+[00:49:42] as a battering ram. The Observer said there are chances that he likes to play but his performance suggests that he is taking some kind of personal revenge on it. So he's like really really really hated but the people loved it because it was Peter O'Toole
+
+[00:49:58] he's very famous. It was almost kind of fun to go and watch something that was so bad it was good kind of thing. But it could have been so much better because originally he was the director and he was basically allowed to do what he wanted and so he decided it was going to be an inflatable Macbeth
+
+[00:50:16] and he had a friend who was working for a company called Labuta Limited which was making inflatables that you could keep in the boot of your car and he decided that he was going to commission this person to do all of the scenery
+
+[00:50:32] in Macbeth and it was going to be a massive inflatable Macbeth and in the first time they tried to do the rehearsals and someone said that the curtain rose to reveal a dimly lit collection of black plastic fallacies swaying in the wind.
+
+[00:50:48] And on top of that no one could hear what anyone was saying because these were inflatables that had to be constantly blown up so it was just like the air compression was just like the whole time no one could hear anything that they were saying and so in the end he scrapped the inflatables but it was still a terrible terrible play.
+
+[00:51:04] Peter O'Toole sort of started acting by mistake he he was steeple-jacking one day wasn't he and there was accidentally an audience at the top of the flaunching he was climbing up towards it flaunched his career didn't it
+
+[00:51:24] no it wasn't that he was doing he was in Leeds, he was doing a poetry course he actually always wanted to do something in poetry he loved literature and poetry he was doing a poetry course in Leeds and there was a professional production of Fathers and Sons going on down the road
+
+[00:51:40] and the lead actor in that production fell down some stairs and broke some bones and in fact O'Toole remembered his name was Gordon Luck so ouch doubly painful for him paroled Gordon I suffered some bard luck
+
+[00:51:56] Gordon unlucky fell down some stairs and they'd seen Peter O'Toole do some sort of little skit for fun on an amateur stage in the area so they said look do you want to play the lead in Fathers and Sons and he said yes and he played it for two weeks so I played it for two weeks and then I got the bug
+
+[00:52:12] and there was no going back what's interesting is that it is bad luck to say Gordon Luck in the theatre isn't it you're not supposed to say that you're supposed to say break a leg oh my god of course he should have changed what could you change your name to that sounds like break a leg
+
+[00:52:28] if you change your name to Macbeth no one will ever call you for anything in the theatre at all you're just going to get kicked he once took a double bed on the northern line Peter O'Toole where did he take it to a different stop on the northern line
+
+[00:52:44] why did he just not he thought the seats weren't comfortable he had to move the bed from one place to another it was in 1954 and it was an anecdote in his autobiography I think the interesting part about the anecdote is he didn't pay right and he sneaked it on and sneaked it off
+
+[00:53:00] and he managed to sneak it through the turnstiles a double bed without anyone noticing I think there were no turnstiles at the time he says at the start of the anecdote this is before the bad days of turnstiles but still it's very impressive yeah I mean how big was his foreskin extraordinary
+
+[00:53:24] okay that's it that is all of our facts thank you so much for listening if you'd like to get in contact with any of us about the things that we've said over the course of this podcast we can be found on our twitter accounts I'm on at Shriverland Andy at Andrew Hunter M James at James Harkin
+
+[00:53:40] and Anna you can email podcast at qi.com yep or you can go to our group account which is at no such thing or our website no such thing as a fish.com all of our previous episodes are up there do check them out but otherwise come back next week because we will be back again with another episode and we'll see you then
+
+[00:53:56] goodbye

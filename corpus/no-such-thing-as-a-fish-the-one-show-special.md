@@ -1,0 +1,179 @@
+# No Such Thing As A Fish - No Such Thing As A Fish: The One Show Special
+
+- Episode date: November 19, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-fish-the-one-show-special
+- Slug: no-such-thing-as-a-fish-the-one-show-special
+
+## Transcript
+
+[00:00:00] Hey everybody, welcome to this special bonus episode of No Such Thing as a Fish recorded in the BBC during a live broadcast of the one show, a massive BBC show if you haven't heard of it overseas. We were in another room doing a live recording and all of our subjects matched what they were talking about live as the show was going out. You can actually go on to BBC iPlayer and watch that episode. You'll see footage of us, you'll see us giving them facts to talk about during the show, but here's what we did during that show. Have a listen. If you're listening to us, please go and listen to all our other episodes. If you're a regular,
+
+[00:00:33] tomorrow there will be a normal episode and yeah. Okay, on with the bonus episode. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the BBC Studios in central London for our one-off The One Show special. My name is Dan Schreiber, I'm sitting here with James Harkin, Anna Chazinski and Andy Murray and we'll also be joined for a quick cameo by hosts of The One Show, Alex Jones and Matt Baker. So here we go, we've once again gathered around the microphones this time to discuss topics featured on tonight's episode of The One Show and in a very particular order, here we go. Starting with you,
+
+[00:01:21] James Harkin. Okay, my fact is actually about The One Show and it is that the total number of hours people spent watching The One Show this year is the same as the total number of hours that have passed since humans left Africa. That's amazing. Wow. That's a lot of hours. How many hours? Yeah, how many is it? Oh, come on. Right. And what's that in minutes, sorry. So this is a bit of the back of the envelope kind of work that I did based on the idea that it's a half hour show and... Would you say it took you more or less long than that to work it out? Well, that's what I have been doing all day. But yeah, about
+
+[00:02:00] 4.2 million viewers isn't there per show and it's on almost every day and that's the total number. It's crazy. About 60,000 years. That is astonishing. I got told a slightly similar thing a while ago. So John Lloyd, for those who are listening, that's the creator of QI, he used to make a show back in the day which starred Rowan Atkinson called Not The Nine O'Clock News, a bunch of other people, but Rowan Atkinson was in it. And they basically, they did four series, 27 episodes and every episode had about 32 sketches in every episode. They were asked to make eight new episodes compiling all the best episodes. So John wanted to find
+
+[00:02:38] out how many permutations there could be of that. So he asked a mathematician friend of his and the guy came back and he said, listen, it's quite a big number. In fact, the number I've come back with exceeds the number of particles in the observable universe. That's how big that number was. That's why you never ask a mathematician anything. Yeah, it was just for the actual working out was 10 to the power of 82. Oh, it's only just over the number of particles in the known universe, which I think is about 10 to the 79.
+
+[00:03:06] Oh really? Do you just casually know that? You just happen to know all the number of particles you counted them. That's awesome. So TV facts, I think that's Well, I wanted to. So I believe one of the presenters of the one show today used to present blue Peter and I read a really good thing about blue Peter. And I can only find it in one book that's called TV's strangest moments. But it's a blue. It's about blue Peter in the 1970s. It was when it was being hosted by someone called Ben Folk and
+
+[00:03:38] Hang on. I'm just going to cut you off for a second. We were about to go live to the one show with the hosts, Alex and Matt. Well, listen, if you do like a fact, you are in love tonight because watching the short live from the depths of the BBC are the researchers from QI, also known as the QI helps. Now they're obsessed with facts and will spend the next half an hour adding their own weird and wonderful trivia to tonight's program. And you'll be able to listen to what the elves actually have been up to
+
+[00:04:04] via a podcast that will be on the one show Facebook page. So we're going to interrupt them right now. James, if you can hear me, can we have a one show fact, please? Hi there. Yes, you can. My fact in our podcast, in fact, is that the total number of hours people spent watching the one show this year is the same as the number of hours that have passed since humans left Africa. OK, so I believe before that I was talking about Blue Peter.
+
+[00:04:38] So there was an episode of Blue Peter in the 1970s and the special guest was an eagle owl and the piece was about how an eagle owl pet got along really well with this mouse and it befriended it and how like if you have an animal in captivity, then what you would have thought were instincts are overcome. And so the owner of the eagle owl brought it on and there was this, apparently the script went, the host was saying, amazing, so the eagle owl sitting there and it was playing with the mouse between its claws
+
+[00:05:05] and the mouse was running around underneath its feet and the eagle owl was just looking down and the host said, that's amazing because in the wild of course they would be natural enemies and then he was interrupted at that moment by the eagle owl throwing the mouse up into its mouth and swallowing it, at which point apparently the producer just said, OK, take two, Blue Peter eagle owl without the mouse this time. I think this recorded it saying the mouse couldn't make it today but he's very good friends.
+
+[00:05:31] There's an outtake, a very famous David Attenborough outtake where he's talking about the incredible sonar of bats and that it's impossible that a bat would ever fly into your head and literally as he's saying it, a bat just smacked him in the face. Can I tell you a very favorite recent TV fact of mine that I read? So a fan noticed this when they were watching TBS in America so one of my favorite shows is Seinfeld. So obviously when you're doing TV shows,
+
+[00:05:56] adverts are the thing that makes your channel money and they decided very randomly to subtly speed up episodes of Seinfeld so they could fit more ads into the show. So they sped it up by 7.5% and they managed to get two more minutes of ad space into it. Wow! But Seinfeld sounds like he's on helium the whole time, presumably. Exactly.
+
+[00:06:19] Very, very timely. I am currently watching Seinfeld and Veep at the same time and I'm getting Julia, Louis, Dreyfus, Whiplash because she's in both shows for about 20 years apart. Hang on. So you're not watching them at the same time? Do you have to mute one while you watch the other? I'm not watching them at the same time. I'm watching an episode of Veep and then one of Seinfeld.
+
+[00:06:37] I have a fact about early television and early development of television. So the first ever TV show was in Selfridges in London. It was a demonstration by John Logiebert who invented the television in 1925 and the images that they depicted were called Shadowgraphs. How cool was that? He said the device was called a televisor. There are all sorts of amazing names from the early days of television
+
+[00:07:03] that we don't have anymore. That Shadowgraph is cool. We should still use that. Watching Shadowgraphs on the one show today is what we're doing. Actually, on that Selfridges moment, I love the fact that I think that was in 1928 and he was selling his televisors at the time and there was nothing to be watched on them because the first broadcast wasn't until 1929.
+
+[00:07:20] But a bunch of people bought them. So a bunch of people just bought televisions, going, I bet these will come in handy one day. It's a bit like when you used to buy 3D TVs back in the day when they first came out and there was nothing on TV that was in 3D, just like one... Yeah, really? thing or Sky or whatever.
+
+[00:07:36] Just about old TVs, you were just saying, the oldest British television that still works is called a Marconi Phone. It was made in 1936 and they've got one version of it. They found one. And the great thing about it is it's got a volume up and down button.
+
+[00:07:52] It's got a kind of, you can move the picture up and down, but it has no channel changing button. And that's because there was only one channel in those days, which was BBC One. Yeah, and so there was no need for a channel changing button. That's amazing. Guys, we're going to have to move on. We're keeping at pace with the one show that's going along. And right now, as we are talking,
+
+[00:08:09] they're live talking about sinkholes. So we're going to move to our second fact, and that is you, Chuzinski. Yes, my fact is that the largest object ever discovered is a hole. It's a hole what? It's just a hole, a hole, no W. It's a hole in space, isn't it?
+
+[00:08:27] It's called the Supervoid and it's 1.8 billion light years across, which is a size that makes absolutely no sense to any of us. So isn't the universe 14 billion years across? Is that how we know how old the universe is? Yeah, as in the distance from here to the edge of the observable. Oh, is that how it works? How big is it? 1.8 billion light years across.
+
+[00:08:48] So more than a tenth of the width of the universe. It's large and it's sort of confounded science because it shouldn't scientifically exist. So it doesn't accord with our theories of the shape of the universe and how it works. Oh, and also the universe is infinite, isn't it? So it's not 14 billion years. It's just that old. We're getting really deep here.
+
+[00:09:04] And we've got half an hour for me to explain how the size of the universe is going to be a bit much. But anyway, it's this empty space. It has far fewer galaxies than it's supposed to have in it. So it's not completely empty. It's just much less densely packed than it should be. And physicists don't understand why it's missing an estimated 10,000 galaxies.
+
+[00:09:20] So there are 10,000 galaxies missing if anyone knows where they are, right into one show, I guess. Much like Somerset in that respect, in that it's so lovely there should be a lot more in it, but it's still very unpopulated for how gorgeous the place is. It's exactly like Somerset, yes. Are you saying that Somerset's a hole? No, I'm saying it's really nice.
+
+[00:09:39] I'm sure this bit of the universe is really nice. I have a fact about sinkholes. Oh, yeah. So sinkholes, they open up under the ground when the ground underneath is eaten away. Sometimes it's by acidic rain or sometimes there's another collapse underground. Sinkholes, there are about 32,000 in the UK.
+
+[00:09:57] And in 2011, a woman from Florida, basically all of Florida is sinkholes up and down. It's so prone to it. A woman in Florida called Carla Chapman fell into a sinkhole for the second time in two years. Oh! Such bad luck. Was it the same sinkhole?
+
+[00:10:12] No, different sinkholes. And she survived both times. This is the nice thing. Because they're really dangerous, you know. I was googling interesting holes on Earth. And he's now been added to a government list. Well, I've discovered a really exciting one which is located in Oregon in America. It's called the Deluxe Mystery Hole.
+
+[00:10:33] Now, according to the owner and its promoter... Is the owner an advertiser? Actually, he sounds amazing, the owner. He said that it's buried beneath his backyard. It's an amazing archaeological site. It's been explored via psychic archaeology. He reveals wonders down there with names like the black obsidian mirror of a higher truth
+
+[00:10:56] and the door that's never been opened. This actually, you just found some fiction, haven't you? No! I swear, this is a pastor. He's called Pastor Baron. What's it called again? It's called the Deluxe Mystery Hole. Is there an economy mystery hole? Which is just a slightly smaller hole.
+
+[00:11:12] This guy, he runs a... He calls himself the leader of the tunnel people. And he's the head of the Universal Church of Oh Fun. Have you heard that? The Church of Oh Fun. You know what? It sounds fun. It does, doesn't it? Yeah, so that's... To me, that was my biggest interesting hole.
+
+[00:11:30] I have a massive sinkhole. There's one on Mars, which is 5,000 metres deep and it's 200 miles long. And Mars is a lot smaller than Earth, so actually, it's a really big proportion of the planet. It's bigger than the Grand Canyon. But you wouldn't fall into that, because you could definitely see it coming.
+
+[00:11:47] I think if you were that woman in Florida... Carla Chapman, if you're listening, do not go to Mars. I find this really incredible. The deepest man-made hole on Earth is only 9 inches across. I love that, I think it's so... That's not true. What about mines? This is much deeper than a mine.
+
+[00:12:05] So this is the Kola super-deep borehole, and it was made by the... So very few people know that during the Cold War there was a space race, but there was also, as importantly, some would argue, the digging race. And we were competing. The US was competing with the USSR
+
+[00:12:18] to see who could dig furthest. And the Soviet Union won, and they dug this borehole that was 9 inches diameter, but it was over 12 kilometers deep. And if you go to it now, it looks like a little manhole cover. It's just a rusting metal manhole cover, 9 inches wide, because 12 kilometers deep.
+
+[00:12:33] So do not fall into that. You ain't getting out. You'd struggle to fall into something that thin, wouldn't you? But if you're out walking... Well, speak to yourself, James. If you're out walking, you'll pet Weasel. Be careful. I actually find it totally extraordinary
+
+[00:12:48] that, speaking of that, the man as a species, we've reached 20 billion miles beyond the Earth, but only 7.5 miles in but only 12 kilometers in. Well, they're trying to go down now further, aren't they? They are. But it is tougher to dig through Earth than it is to go up. There's not a lot of molecules in the way.
+
+[00:13:04] Yeah, a lot more molecules down than there are up. Do you know if they're going to start doing it? They're going to start doing it through the ocean. So they're going to go to the bottom of the ocean and then start going down. But they're only going to go down, like, thinner than a pencil's thickness to go down to the mantle.
+
+[00:13:16] Because the crust is a lot thinner down there. Oh. Yeah, it makes it a bit easier. That's clever. It makes total sense. Yeah. Did any of you guys... Sorry, go on.
+
+[00:13:25] No, no, no. Did any of you guys see... I mean, this is just a silly news story, but that woman in Fulham a few months ago who fell into a sinkhole, but it was outside a cafe and they'd surrounded it with cafe chairs and tables to warn people that the sinkhole was present.
+
+[00:13:36] And she walked in. The QI research team, a.k.a. the QI elves, are listening in to tonight's show. Yes, so the idea is that they're using the one-shot inspiration for an online radio program which you will be able to download later via our Facebook. Yeah, they're sort of part of our show,
+
+[00:13:55] and we're part of theirs. So should we interrupt them, do you think? Yes. I think it's a sinkhole. So has John given you any inspiration in any way? Yes, he has. So you were saying that his new DVD is called Super Sonic. Now, did you know that every time you pop a party balloon,
+
+[00:14:11] you are going Super Sonic? As in you are breaking the speed of sound because the speed at which the latex retracts is faster than the speed of sound. So the bang you hear when a balloon pops is a Sonic boom. That's the reason I called it Super Sonic. So here's the thing. So sinkholes can come at any time.
+
+[00:14:31] They could just arrive. Another thing that could just come at any time is a kimberlite pipe. And this could happen anywhere in the world at any time. It's more likely to happen in certain places, admittedly, but it could happen in your front room. And it's just a little pipe that comes up from the middle of the ground,
+
+[00:14:45] and it's where diamonds come from. Most of the world's diamonds come from these things. Wow. Theoretically, one could pop up from the ground any second. So keep an eye out, everybody. Look at your feet at all times. Who's putting them into the pipes? It's a very eccentric way of giving away your wealth.
+
+[00:15:03] James was planting them there just so he could say that fact years into the future. No, they're like magma, little holes of magma, which put a lot, a lot of pressure, and they get the carbon, make it really, really tight, and turn it into diamonds, and they pop up through these pipes. I have one more really quick sinkhole fact.
+
+[00:15:18] Okay, yeah. Which is that their thought, the sinkholes in Yorkshire, in Rippon, is it? A thought to have inspired Alice in Wonderland, how she gets down to Wonderland. Oh, really? She falls into a hole by the base of a tree. It's thought that,
+
+[00:15:31] because of the landscape around there, it's really sinkhole-y. Wow. Wow. And then if you remember the book, they call the fire engine, and there's a rope put down, and she is held down together.
+
+[00:15:39] I think there was a cafe, table and chairs around the outside of the tree. A lady from Florida, she first met. Okay, it's time for the Kestrel's VT that they're about to do on The One Show, which brings us then to our third fact about Kestrels, and that's my fact. And my fact this week is that in 2012,
+
+[00:15:56] a Kestrel was arrested in Turkey on suspicion of spying. So, it was a... Amazing. What happened? Well, I remember reading about this, and it was in Turkey, they thought it was an Israeli spy, didn't they? And then they...
+
+[00:16:11] I think they kept it in the cage for a little while, and then decided just to let it go. We've covered this a number of times on our show of inappropriate arrests on being the coconut in the Maldives, which was arrested. Arrested is the wrong word, actually, it was detained,
+
+[00:16:25] and it was held in a cell for two hours, where it was then... Yeah, because where would you put the handcuffs? Exactly. But it was visited by a country's leading investigator, slash magician, and he came in,
+
+[00:16:38] and he questioned it for two hours, came back out afterwards, and went, nah, he didn't do it. And they released it. They released the coconut back into the world. He could have said he's a tough nut to crack. Yeah.
+
+[00:16:48] I wish he had done. Oh, that coconut's very shy. Oh, my God. I've wasted so many wasted opportunities. Kestrels, their name means little bell-ringing falcon. It's so sweet. The latter name is falco tinunculus,
+
+[00:17:04] because it makes a little ki-ki-ki cry. That's what it sounds like. So it sounds like little bells ringing. Well, do you know where the word Kestrel comes from? No. So it's very similar. So Kestrel comes from the French word crescelle, and that used to be the word for a leper's bell.
+
+[00:17:18] So, you know, in medieval times, lepers used to carry bells, and at first it was so that it was for sort of begging purposes. But then, when things like the Black Death came, then it became legal that lepers had to carry bells to sort of warn people to stay away from them, because it was thought that even if you looked at a leper, you could get leprosy.
+
+[00:17:36] Some people think that that might not be why they had bells, but lepers' bells were a thing, and Kestrels are named after lepers' bells because they make that sort of shrieking bell sound, rattle sound. That's very cool. So in the VT that they were showing about Kestrels, they were showing how gliders were using their gliding,
+
+[00:17:52] their planes up there, and how the Kestrels kind of similar to it. I was looking a bit into pterodactyls. The biggest of pterodactyls was so large that they couldn't fly. So what they could do, though, was go to the top of a peak or a mountain and glide off. Jean Parf. Do you know, sorry, just speaking of gliders,
+
+[00:18:09] George Cayley, he was a British guy. He is like the father of aeronautics. When he was practicing flying his glider, rather than put himself in it, he put his coachman in. This guy called John Appleby, and after the glider had successfully flown, and John Appleby became the first person to fly in a man-made machine and landed safely,
+
+[00:18:24] he approached his boss and said, please, Sir George, I wish to give notice. I was hired to drive and not to fly. And he quit his job. Wow. Yeah, because he didn't realize. And then he put a small boy in a glider about 20 years later. I have a fact about gliders as well.
+
+[00:18:39] Oh, yeah. So Second World War, in Colditz, the prisoners there built a glider in an escape attempt, and they never got to fly it. I think the war ended before they got the chance. But it was an incredible thing. They built a false wall in the attic, and they were in a castle with only one exit,
+
+[00:18:55] which has three heavily guarded gates. So they think, well, we'll just fly out. It's fine. And they made it out of bedsheets, and the struts inside were made of floorboards that they ripped up. And they also had to coat the bedsheets in porridge to give it starchy qualities to make it stiffer.
+
+[00:19:09] Are you sure you're not describing the sequel to Home Alone? No, I promise this is true. And they built it, and they were planning to, if you like that, they were planning to build a runway on the castle roof. And then to get up speed on the glider, they were going to fill a bathtub with concrete and run it down the runway building up speed
+
+[00:19:26] so the glider could get up enough speed to fly. And a team at Channel 4 in 2012 recreated it, and it worked, but then the dummy pilot inside was decapitated. Right. So maybe. He gave his notice immediately. Just back to Kestrels.
+
+[00:19:43] Yeah. There are five, in 2012, there were five babies in America given the name Kestrel, who were male, and eight females who were given the word Kestrel. There are a few others in 2000, but no other year on record have there been five people, because I only have records of up to five people with that name.
+
+[00:20:01] But no other year, so just 2012 and 2000. Wow. Big year for the Kestrel. So it's still a for grabs, whether it's a male or female name. Yeah, exactly. I did see a list called The Great Big List of Bird Names for Girls, and Kestrel was very low on the list,
+
+[00:20:16] so maybe it's rising. 2012, though, that was topping that list. Yeah, exactly. Listen, as we're talking live, we are watching live footage from the one show of a VT about vans, the transit van, and that brings us to our fourth fact, our final fact of the show, and that is you, Andy Murray.
+
+[00:20:37] Okay, my fact is that the phrase van man predates the van. So we're just walking around going, what am I going to drive? They had no idea. Is this like when they bought those first televisions that they had no use for? This is the same. I'll be your van man.
+
+[00:20:54] You can put me up whenever we have a van. If you need a shadow graph moved, I'm available for that. So the word van used to mean a covered truck or a wagon. Oh, like a caravan. Exactly, it comes from caravan, and the first use of the word van is in 1829, and van man, a mere 50 years later, 1881 is the first use of the phrase van man.
+
+[00:21:18] So that's definitely before vans were a thing. Yeah, but the phrase white van man, that famous sort of social trope, is only in 1997 that was invented, really late. I actually have to say, I've never heard the phrase van man. Is this a well-known thing people have been talking about behind my back? Van man, man with van, yeah.
+
+[00:21:35] It's often used for group lists and people with vans. Plural is men with van, which is fun to say. I've heard of that, yeah. I've seen a diagram that explains who they are. So I was on Ford's website, and they said that there are 3.4 million vans in the UK, and they travel a total of 63 billion miles during 2014. What?
+
+[00:22:04] Which sounds ridiculous, doesn't it? That would get them to Pluto and back six and three-quarter times, according to my calculation. But loading is 10 pounds extra. And you have to pay the fuel. And the other thing, which I found, which is 63 billion miles, is if you could uncoil all of the DNA within an adult's 100 trillion cells,
+
+[00:22:27] it would extend to over 63 billion miles. Wow. Just some enormous numbers that are very difficult to comprehend. That Ford website is amazing, actually. If you have a penchant for transit vans, go to look up Transit Van Facts. It'll take you to the Ford website. It has the most amazing list of fan facts,
+
+[00:22:44] and about 2,000 of them. So they include the fact that baby elephants were once transported in transit vans at Regent's Park Zoo. They needed to move some baby elephants, shove them in the back of a van. And there's a hilarious photo from 1973 where a Transit Van had to carry a 49-foot-long fake dinosaur model from Kent up to Scotland, and it's going on the motorway.
+
+[00:23:06] In the Transit Van, the van is about an eighth the size of this dinosaur, which is just hanging over it. That's great. That's amazing. There's been some big news in Ice Cream Van news. Oh, yeah? Ooh. Yeah.
+
+[00:23:22] Well, I didn't realize that there was any Ice Cream Van news to be had, but there is, apparently. They've had an extension on how long they're allowed to play their little chimes when they're coming to towns. I think it was about four seconds before, and they've extended it to 12 seconds now. Oh. Yeah.
+
+[00:23:38] That's why it always cuts off after four seconds, because you're just getting into green sleeves or whatever it is. I've never known that before. I think it was like a copyright thing or something. They don't have PRS on Ice Cream Van. I had no idea what the reason was. I just knew it cut off. Like, you know when a pigeon cuts off really suddenly,
+
+[00:23:54] you think it's about to go on. I think that's the same reason, yeah, because legally they're not allowed to chirp for more than... Yeah, they've had the time between chimes on Ice Cream Van's reduced as well, haven't they? Every two minutes now, rather than three. It's a big, exciting time in Ice Cream News, yeah. Do you know the third most popular Ice Cream Van tune?
+
+[00:24:12] So I think the most popular is Green Sleeves or something, and the second most popular is another famous old classic tune. The third most popular tune they play is the match of the day theme tune. Isn't that weird? Isn't it? I think I've heard the teddy bears picnic a lot. Have you? Yeah.
+
+[00:24:26] Is that from Ice Cream Van's or you just play that in your bedroom? No, that's the only one that is local to me. Wow, match of the day. That's great. Yeah. There you go. Did you know that Tommy Cooper used to help his parents run their Ice Cream Van as a kid? Oh yeah, his dad used to be a...
+
+[00:24:40] Yeah. Yeah, and they used to go to fairs at the weekends, and he'd be flogging Ice Creams. Is it not true, just speaking about Ice Creams, about the Margaret Thatcher thing that she helped Mr Whippy in the creation? That's not true, right? It's kind of true. She was working for the company at the time,
+
+[00:24:56] and she was a chemist working with Ice Cream. Wow. But whether she actually did the specific Mr Whippy thing, probably not. That's amazing. Calling back to gliders, there was that thing about Barbara Cartland, the author. She wrote, she helped design a glider that got towed into the air, and that she did like a 200 kilometre trip in it. Wow.
+
+[00:25:17] Yeah, that's amazing. Yeah. Can I go back to transit vans? Yeah, of course. Yeah. Okay, so when Ford are testing a transit van, they put it through an accelerated aging process. They plunge it through mud baths and salt baths,
+
+[00:25:31] and the transit vans are forced to do figures of eight for a month. For a month? Ford driver must get very... They swap the drivers. Yeah, they swap the drivers. Right. Because that's putting the drivers through an accelerated aging process. So I just want to say one thing about a strongman called Salt Zinka,
+
+[00:25:52] who set a world record for pulling cars with his bare hands. He pulled 12 Ford cars, including a transit van. It took him two hours, and he had to pull it at just five metres. And then once he pulled it, they said, well, we won't give you the record until you turn round and pull it back the other way. And the reason was they wanted to not think there was a slope there, and they thought if there was a little slope that way, it'll be the same slope this way.
+
+[00:26:16] Ah, I thought they just really wanted it parked back where it was originally. We're about to be interrupted one more time by the host of the show. Let's just quickly go to them. And John's stand-up DBD Supersonic is out now. And thanks to the QILs, the one-show special edition, although no such thing as a fish podcast, will be available to download later on. Yes, and there are over a thousand more facts in the latest QI book.
+
+[00:26:41] Yeah, and we'll see you tomorrow with Andy Hamilton. Bye. Good night. OK, they're wrapping up our show. We should wrap up ours. OK, that's it. That's all of our facts. Thank you so much for listening. If you've heard us for the first time on the show, as we say at the top, please listen to any of our previous episodes and future ones to come. If you'd like to get in contact with us about any of the things we've said over the course of our podcast, we can be found on our Twitter accounts.
+
+[00:27:05] I'm on at Shriverland, James at Eggshaked, Anna. You can email podcast at qi.com. Andy at Andrew Hunter M. Yep, and you can also go to know such thing as a fish.com. That is where all of those previous episodes will be. We'll see you again next week. Have a good one. Goodbye. .

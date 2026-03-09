@@ -1,0 +1,363 @@
+# No Such Thing As A Fish - No Such Thing As Whistling At A Fact
+
+- Episode date: August 3, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-whistling-at-a-fact
+- Slug: no-such-thing-as-whistling-at-a-fact
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Things a Fish, where we were joined at the Soho Theatre in London by the incredible Carriad Lloyd. Now, if you are a regular listener to No Such Things a Fish, you will know, of course, who Carriad is. She's a very good friend of her. She's a comedian. She's an actor. She's a podcaster. She's just an all-round genius, let's be honest. She has a book out, which you definitely should check out. It's called You Are Not Alone. It's about death, but that sounds like it's going to be depressing, but it really is. It's extremely uplifting that book. And there's loads of facts in there as well. It's definitely one that I think you'll really, really enjoy. And the other thing to say is that Carriad does an improvised show called Ostentatious.
+
+[00:00:44] Now, this is a really amazing show. What happens is you turn up. Someone in the audience gives them a hitherto lost, let's say, Jane Austen play title that they've made up. The guys have never heard it before. and they do an entire Jane Austen play completely improvised. It is absolutely stunningly brilliant. If you haven't seen it, you can't miss it. If you have seen it, go again because it's different every single night.
+
+[00:01:09] And they are about to do another run at London's West End at the Art Theatre. Now, the best way to find out about those tickets is to go to ostentatiousimpro.com. That's A-U-S-T-E-N-T-I-O-U-S-I-M-P-R-O.com. But let's be honest, who types in URLs these days? Just go to a search engine, search for ostentatious, and you will find all the information there. Anyway, really hope you enjoy this week's show with Carriad Lloyd. All that's left to say is on with the podcast.
+
+[00:01:41] Welcome to another episode of No Such Thing as a Fish, a weekly podcast. This week coming to you live from the Soho Theatre in London. My name is Dan Schreiber. I am sitting here with James Harkin, Andrew Hunter Murray, and Carriead Lloyd. And once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, and that is Andy.
+
+[00:02:28] My fact is that the maximum PDF file you can send is bigger than Belgium. Can we replace Belgium? Just with a PDF? Of Belgium, yes. Again. Okay, in fact, it's bigger than that. It's imagine, okay, right. The maximum PDF size you can send is a square with size that are 381 kilometers long.
+
+[00:02:54] That is bigger than Belgium, Monaco, San Marino, Liechtenstein, Malta, Andorra, Luxembourg, Montenegro, Slovenia, Albania, and Moldova combined. Wow. It is huge. That's massive. It's mega. Has anyone sent something that big? Unclear. Unclear.
+
+[00:03:14] I worked out that if you wanted to print it out on A4 paper, it would take 2.3 trillion pieces. Oh, what? And if I did it on my printer at home, I could have started it off at the time when the first human fossils were appearing in the fossil records, and it would be just about finishing now. No.
+
+[00:03:35] Subject to jams and cartridge replacements. That's brilliant. That's so good, yeah. I should say, where I got this from, I saw a guy called Steve Bobrick, put it up on Twitter, and basically, and we should say, this is only, this appears to only
+
+[00:03:49] be an Adobe Acrobat limit. I'm controlling us as always. Theoretically, there could be a bigger PDF out there. What? I know. So this is what, in the Adobe rules, it says that this is the max for me or allowed or something. Yeah, it's the Adobe Acrobat, it's 15 million inches
+
+[00:04:07] by 15 million inches, you know. Oh, okay. Yeah. Well, it's just the rules. It's not even... No, it's their internal limit, but the, the, the fire format itself might not be bound by the... They would probably just have to click and write 25 million and maybe we'd be able to get even bigger. Maybe, maybe.
+
+[00:04:23] But I don't think anyone's ever actually sent one that's this big. No, why would you? It would be insane. Is that an email attachment or are we talking weed transfer here? We transfer. Oh, I think that's a Dropbox. I don't think you can we transfer it. So PDFs.
+
+[00:04:40] Yeah. Pretty dry. Pretty dry. Right. It's amazing. When we send each other our facts around, we have to then go and research them, of course. And Andy sends us the PDF and said,
+
+[00:04:54] maybe it's the most boring fact you've ever sent. Yeah. And James said, it's not even close. Not even top ten. But, I mean, we can get on to more general stuff. But I do just want to say that Adobe, you know, Adobe acro about the program that do the PDFs, is named after some mud.
+
+[00:05:13] Named after some mud. Some mud. Adobe, it's a building material, isn't it? It is. You make it out of, like, poo and wool, I think. Here is mud. James, don't attempt poo and wool. And be like, this is it, we can make a house.
+
+[00:05:30] That's the worst three little pigs ever, isn't it? And the fourth little pig made his house out of poo and wool. And the wolf said, I'm all right, actually. You guys, you stay in there, it's fine. I should just explain the mud thing. Sorry, I want to pull them. Because otherwise I could feel the tension in the room. Oh, they were waiting.
+
+[00:05:49] They were just desperate to know. The founder of Adobe. I'm sorry. You thought you come to live podcast. This is a conference for Adobe. And this is how they get their employees in. There's a creek which goes past the home of the founder who's called John Warnock and it has this mud in it.
+
+[00:06:06] It's this very malleable clay. I did go on a little while Goose Joste trying to find out who the original Adobe Acrobat actually was. There wasn't one. That wasn't. Right. That would make it an interesting story. Okay, and so he named it after the...
+
+[00:06:21] Some mud. It's a mud. Yeah, exactly, yeah. But it's malleable, but PDFs are... Famously inflexible, you're right, completely unchangeable. Ah. And he's just like, I'm just sending you paper. Like, why did he think, oh, yeah, this clay, this reminds me of my...
+
+[00:06:34] An acrobat's so flexible as well. Yeah. Everything is completely wrong about this. The rules, the idea that this is what they would say, this is the limits to what you have. I find it kind of funny when there are computer rules that just are just so makeshift and sort of seemingly why would you ever say that out loud?
+
+[00:06:53] Apple 3, I don't know if anyone is old enough to remember Apple 3 but so it was their third No way, Apple 3 was the third? What? This is crazy. So yeah, it was a hard drive basically that suffered because there was no fan on it And Steve Jobs had this thing where he just hated the sound of fans. And so he was like, let's not include going.
+
+[00:07:18] Yeah. And so it overheated all the time. And when it overheated, it meant that any disc going in would suddenly just melt. And so you're pulling out the hard drive disc and so on. Yeah. So it was a big, big problem. And one of the employees of Apple was so angry with it that he slammed it down out of frustration onto his desk and discovered that that made it work again.
+
+[00:07:37] So if you called up Apple saying it does not work, their official line was lifted it up, lift the computer up by two inches, and just drop it on the table, and that's what fixed it. That was the official line that came from them. Percussive maintenance, they call that, don't they? What's that? Just whacking something and hope it works. Oh, yeah, right, yeah, yeah.
+
+[00:07:57] I don't think we've mentioned this before. We might have done. Do you know what the longest a computer has been left running is? Or the longest running computer? I haven't turned my laptop off since 2016. Period, seven years? You don't need to. It's asleep, then it wakes up again. Yeah. Nothing works.
+
+[00:08:11] closing the lid? I reckon this one might not even have a lid. Whoa. Right. James is right. I didn't, and I was about to say, the longest, like, running computer on Earth, but then I didn't say that.
+
+[00:08:26] Clue. So it's not on Earth. That's right. Right. Is it in a spaceship? It's in a spaceship. It's the Voyager ones. Voyager, really?
+
+[00:08:35] Which have been on since, what, more than 40 years now. The 70s, I guess. Yeah, since the 70s. And they're still working? They're still working. It's a pair of link computers on board Voyager, which are just sent towards the edge of the solar system,
+
+[00:08:48] and it's still going, each one has 70 kilobytes of memory. I mean, they're really tiny. Are they like 1970s computers, though? Are they like old-school? They're not huge, they're not room-sized. Oh, no, no, they're much smaller than that. If they start working, they'll slam them into Pluto, won't they? They've got a big monitor, and you have to run, like, CS-Doss on it.
+
+[00:09:05] Yeah, yeah. Thanks. I know some things about computers. They had this really big problem in 2015 because the last of the original programmers was a guy called Larry Zottorelli and he retired. And they were stuffed because you need to learn
+
+[00:09:21] ancient cuneiform of computer languages to get it. To get this. Like no one is teaching these computer languages. He's still alive, you're not dead, just call him up. He's retired. He doesn't want to be... Getting to write out a handover sheet. But people know.
+
+[00:09:37] I'm sure NASA know about... He's like, no, I'm done. That's it. You have my time. It's hard. It's hard to learn the systems required. No. Okay. Yeah. Fair enough. There was a computer that analyzed 4,000 computer science papers, and it came up with what they call the best computer scientists in the world.
+
+[00:09:57] They describe them as the Michael Jordan of computer science. Do you know who it is? No. It's Michael Jordan. Is someone with the same name or is it the actual... The Michael Jordan of computer science? Computer science is Michael Jordan. Everyone, call your kids Michael Jordan.
+
+[00:10:14] That's clear. It's nominative determinism. Just Michael Jordan. That's really fun. Yeah. Yeah, yeah. Do they refer to Michael Jordan as the Michael Jordan of basketball?
+
+[00:10:25] Have you heard of Fernando Corbato? I can't tell until you pronounce it properly. I want to be the Fernando Corbato of something, though. Yeah, well, he was the Fernando Corbato of... He died in... In 2019, he was 93 years old, and he invented something we all have, and we've got loads of them. Personalities. Daddy issues.
+
+[00:10:59] But, nud yourself closer to the topic it had. I'll go for transistors. No? Passwords. Oh, did he? This is the man who invented the computer password. What was his mother's maiden name? Michael Jordan.
+
+[00:11:13] But with the numbers changed for the letters. I think it was the 50s that he invented it. And it was because most computers worked on one thing at a time because they were the size of rooms. And they were, you know, they had processing power, but not much. And he was trying to work out a way like a timeshare system so lots of people could work on the same computer different tasks. And so he just reasoned that that's the best way of hiding your files
+
+[00:11:35] from each other inside the computer. And invented that, yeah. In 2003... That is... You're right, it was a sexy fact. But the thing is we don't whistle at facts anymore. Well, wait, I mean... It's just... It's not okay.
+
+[00:11:52] I'm sorry. I don't want to be a downer. Actually, Carriad, it made me feel empowered. There's always one working against the movement. What can I say? In 2003, a survey found that 90% of office workers passing through Waterloo Station would give away their computer password in exchange for a biro. Really?
+
+[00:12:15] Just a bio, not even a chocolate. Well, another one, another survey in 2003 found that 70% of people would do it in exchange for some chocolate. 100%. 34% of people just gave their password without even needing the bribe. So what's your password? They just told them.
+
+[00:12:30] That's so good. But that was in the past when you only needed like four, right? Yeah, yeah. I know, yeah. There's no way you can even remember them. Yeah, that's amazing. I've got a quick story about a Microsoft laptop that there was a mystery.
+
+[00:12:43] It kept crashing. This is 2005. So the culprit of the problem was Janet Jackson. Is it the real Janet Jackson? The real Janet Jackson. And it was her song, Rhythm Nation. And what it was is that the frequency of it was at such the same level of which the disc was spinning
+
+[00:13:03] that it would send the disc into a wobble and it would crash. And even if Rhythm Nation was playing from one laptop but being heard by another laptop, Oh my God. That would crash as well. Like dog whistles. They've just been like, is it me?
+
+[00:13:16] Yeah, yeah, exactly. So it was, yeah, so Janick Jackson was responsible for a whole software update or whatever of a Microsoft laptop. She's constantly innovating. She is. Do you know the, you won't know this, but can you guess? What is it? What is it? No.
+
+[00:13:33] We need more. We need more. That was almost a sentence, but not quite. Sorry, sorry, sorry. So the picture, which has the most pixels in it. So the image that has the most pixels in it. So the image that has the most pixels in the world has 102 terapixels.
+
+[00:13:46] Okay. Security, security. No. No, come on now. No, no, that did not feel nice. That was... That fact was just minding its own business. Okay, get ready to whistle.
+
+[00:14:02] Can you guess what the picture is of? Belgium. Like Tetris, just in your t-shirt? Or is it's like very pixelated? No, it's pixelated in the fact that it has a lot of pixels in it. It's not like, oh, okay, okay. But basically, if you made it really small, it would be really clear, that's the point. I'll say a big telescope thing, like the universe.
+
+[00:14:23] Mona Lisa. Oh, gosh, no. It is the world's biggest penis. Wow. Well, welcome to the whistle. This is your perfect partner. Wait, do you mean it's the world's biggest picture of a penis or the world's biggest penis? It's not clarify.
+
+[00:14:38] We need that. It's a picture of a normal size penis, but it's the world's biggest image. And what's a normal size? She's not a penis. So, so many issues. If they made each pixel one inch... That's not a normal size penis,
+
+[00:14:53] isn't you? That also wasn't really an inch, but we'll not go into that. If you made each pixel an inch, it would wrap around the earth 2.7 times this image. And if you... If you...
+
+[00:15:13] If you printed it out to the same specs as a billboard, it was be as tall as 16,408 Empire State Buildings. And if you 3D printed that, you would be able to poke the International Space Station. Permission before you do that. Okay? It was invented by a former NASA intern who does not wish to be identified.
+
+[00:15:46] We need to move on to our next that, guys. It is time for fact number two, and that is Carriad. During the 17th century, when you died, your relatives were legally forced to bury you wearing wool, whether you liked it or not, and there was for no other reason than to support the ailing wool industry. I love this fact, okay? So basically there was an act by Parliament in 1666
+
+[00:16:12] that overnight said everybody has to be buried in wool, and it sounds like oh okay but previously to that nobody was buried in wool ever ever that was like an unusual thing to happen you were buried in a linen shroud like Jesus in the Bible and no coffin no coffin right
+
+[00:16:29] sometimes they did have coffins sometimes they had coffins yeah it was unusual but it was very on you would mostly be wrapped in a shroud and just shoved in the earth and because the wool industry was so important and they were so worried about linen coming from France basically classic fucking French linen
+
+[00:16:45] coming over here taking our coffins the government basically said, I know. How is your G.B. News show coming on, very well. Listen, the British wool. I am sweating, but I am British. So many people employed in the wool industry. 12% of the population worked in the wool industry. And it bought in a huge amount of money.
+
+[00:17:08] So they said, well, we'll just make it a law that you have to be buried in a wool suit, in a coffin lined with wool. And if you weren't, you were fined, £5, which is the equivalent of £550 £5.50 today. Yeah. So, and you had to then because, so basically, initially everyone was like,
+
+[00:17:25] no, fuck you, why would we, where are we going to get this from? No one has this? We'd have a history of this. And like, the linens they used to wrap them in would be like your family linen. You know, so you would have something that's been like a tablecloth and you would keep it or night, and then you would sew them together. The women would sew it together and wrap everybody up. So it's like a very like nice thing.
+
+[00:17:42] And so people weren't following the law. So then they made it that you had to go, to the keeper of the peace, two members of your family had to sign an affidavit saying, we have done this, otherwise you'd be fine. So you had to go to the church and swear, like based on the Bible, go, we buried them in wool, sorry, young. Yeah, there was an oath.
+
+[00:17:58] You had to read, right? Yeah, it was a special oath, which I've got here saying, um, no corpse or any person, except any person that shall die of the plague. Fuck them. That's because they thought it lived on in the wall. Shall be buried in any shift, sheet, or shroud, or anything whatsoever made or mingled with flax, hemp, silk.
+
+[00:18:16] hair, gold or silver in any stuff or thing other than what is made of sheep's wool only. That's... Yeah. And they had to save it. But the fine that you mentioned, the five-pound fine,
+
+[00:18:28] if you grasped someone up as being buried in non-wool, then you could get half of the five pounds. Yeah, you get two pounds. And this is the really clever thing. If you had buried your relative in linen and you knew that you were likely to be caught anyway, you could go and grass up on your own relative, get half the fine,
+
+[00:18:46] back into the family, you've only paid half the fine. Did they do that? Yeah, they did. So, rich people did that. So some people who, like, there were certain areas where it was very much
+
+[00:18:55] didn't, they didn't approve of it. And so rich people would be like, well, fuck it, it was just paid too fine. Well, you said that, like, one of the rules was you couldn't bury in gold. Yeah. So I think if you're burying someone in gold, probably you can afford the five pounds.
+
+[00:19:07] Yeah, yeah. Yeah, exactly. So there was a study that was done between 1678 and 1707, less than one percent, and this was in Hensstridge, Less than 1% of burials in the churchyard were in linen, so following this rule. But then when you went inside the church itself, it was between 9 and 13% that were then...
+
+[00:19:26] And they're the richer people who are in the church. Yeah, yeah, exactly. One interesting part of this is that, okay, so you started to have loads more extra linen and extra cloth around because you were using the wool for the burials. And newspapers were made out of recycled cloth. So that's why you call it a rag now, because... used to use the rags, turn into paper and then make newspapers. Wow.
+
+[00:19:49] And so they had all of these extra bits of linen, which meant they could make more newspapers, and there was a huge boom of newspapers around that time, and this sort of fed into that. They were pleased about it. Everyone else was pissed off. And there's amazing, have you heard of Decker Mittford? I know I've talked to you guys about her before.
+
+[00:20:06] Yeah, one of the, Jessica Mifford. She's one of the Mifford sisters, who are like these socialite 20th century British figures who were involved in every single thing that happened. She went to America. She was a communist. She went to America, kind of disowned her family.
+
+[00:20:20] In the 60s, she wrote this book called An American Way of Death. Okay. It was very odd because she was a British socialite that had, like, gone to fight in Spain and then moved to America. Very unusual story. But the book that she wrote basically changed
+
+[00:20:32] the American funeral industry. Because what was happening was they were just basically rinsing people for money. And when someone died, they used to kind of perform plastic surgery on them. And it bombed them. and so make them look, I mean, or she describes, like basically, nip and tuck the tissue across the body
+
+[00:20:48] with implants, pins and fillers to mask blemishes and swellings that come with age and illness before sowing the face into the most attractive and youthful expression possible. Sewing it. Teeth were whitened, makeup applied, and the corpse was dressed in its final outfit. Yes, I would like all of this.
+
+[00:21:04] And then there was a special kind of bra designed for post-mortem form restoration. I'll pass on that, but... So she wrote this book, Why is Andy in a brunch? It was part of the package. She wrote this amazing book that exposed. Basically, they were praying on the vulnerable.
+
+[00:21:23] So these poor people who had no money would end up paying like thousands of dollars for what was considered like a proper funeral. And her book was like in the bestsellers for years. David Bowie listed as one of his favorite ever books, top 100 books, because she changed everything. And they were putting so many chemicals in at that time. It was so dangerous.
+
+[00:21:40] And that's why funeral makers were dying of cancer from inhaling all the formalities. died. Grim. There's one kind of fun thing they used to do. Sure, because I bought it down as I do.
+
+[00:21:49] Bring us back to the fun stuff. This is in ancient Roman funerals. You could pay an actor, and a lot of people did this, you would pay an actor to dress up and wear a mask as the person who died. Yes.
+
+[00:22:02] And then in the party, they'd kind of mingle with everyone. Yes. Pretending that they were still alive and like parodying the things that they did. Oh, wait. Wait, is it?
+
+[00:22:12] I don't want to be parodied, but I would love someone to be doing some of my good stuff, you know, like some... I'd even write some lines for them to... I think that's a great idea. How are you making this... I know. Some dude walking around going,
+
+[00:22:24] did you know the largest PDF file? God, thank God. Thank God he died. That's amazing. Look, wool. I'm sorry, bring you back to wool. We went off to death. Wool is an amazing...
+
+[00:22:39] It's an amazing material. It's like a super substance that I had no idea about. Have you not? of wool before now. I didn't know how good wool was, basically. So it's covered in scales. If you zoom in, you look at it with a microscope, it's covered in scales.
+
+[00:22:53] So liquid water slides off the outside, right? So it's very hydrophobic, I guess. So it's good at protecting you from water. Yeah. But it not absorbs, it adsorbs water easily, right? So if you have water vapour near it, it kind of makes its way into the wool, like underneath the scales. So once the water gets in, that it keeps you nicely cool.
+
+[00:23:13] for example. Wait, so sorry, it's pushing off water. It pushes off liquid water, but it takes in water vapor, okay? And that releases heat. So if you're supposed to wear like a wool jumper in summer and then in winter as well. Oh, sorry, yeah, yeah. Ah, okay.
+
+[00:23:26] It releases heat, so that can also warm you up, even if it's got water vapor inside it. So that's a way of keeping you warm. So if you fall in a river that's freezing cold and then you get to dry land, be wearing wool. Like, don't wear cotton if you've done that. Right. Basically.
+
+[00:23:40] It's like, because you'll be much less harmed if you're wearing wool, which has repelled the outside water, it's not wet on the inside. That's a top tip. Yeah. It's a top tip. If there's two of you on, like, a raft, and only one of you can stay on the raft, the one who's wearing wool gets pushed in, is what you're saying. Yeah, exactly. Right.
+
+[00:23:58] Note yourself. Don't be on a raft with James. They've invented a new kind of sheep this year. That's exciting. A new kind of sheep. They've bred, they've bred a multifunctional sheep for the first time, which is very exciting. Let's go for the functions. Does it do your diary, organise stuff? It just does wool and meat, basically.
+
+[00:24:16] And have the two been mutually exclusive before that? I think this is the most multifunctional sheet they've ever come up with. Wow. The sheep three. It's the sheep three. Is it not working? Just drop it. Drop it from a short height.
+
+[00:24:31] Well, yeah, that's incredible. I knew shakes. That's amazing. Oh, I saw an amazing picture online, which I want to go see in person. If you go to which museum is it? I think it's in the science museum. Yeah, it's a science museum. There's a jumper there made of wool, which is on display.
+
+[00:24:46] Can you guess why the Science Museum would have a notable jumper of wool? Did you go on an expedition? That's good. No, no, so it's no. Not been to the North Pole. Not been to the North Pole. Knitted by Einstein. It's knitted by some famous scientists.
+
+[00:25:01] No. Was there a famous sheep? Dolly. There we go. It is wool from the first mammal ever clone, Dolly. The sheared wool turned into a jumper. And they've only made one. They've...
+
+[00:25:13] Idias. Yeah. And it's got sheep on it. It's really beautiful. Well, that's not beautiful, but it's, you know, it's... It's a bit cartoony. Pretty cool, though, eh? It's very cool.
+
+[00:25:24] The wool industry was so important for Britain that they had to do loads of laws for it. So there was this thing with the burials. But there was another thing where they tried to get rid of all the wolves because obviously the wolves were killing the sheep. So Edward I paid one guy, Peter Corbett, to destroy all the wolves in Britain, which he managed.
+
+[00:25:47] Wow. We don't have any wolves anymore. Pete, what are you up to? I'm just killing all the wolves in Britain. And William the Conqueror would grant land to people in Northumberland and Cumberland on the condition that they would defend the land from any wolves and any Scotsman. He doesn't mean putting them second in the list.
+
+[00:26:07] Yeah. Did you know, I sure you knew it's about the wool sack that is in the House of Parliament? Oh, that has a lot. It's a giant, it looks like a sort of giant cushion called the wool sack, and it's where the Lord Speaker sits. And that is, was introduced by some, I had it written down, I lost it.
+
+[00:26:24] Some king, basically a long time ago, to commemorate how important the wool trade is. And now it's stuffed with wool, a blend of wool from Britain, and the other wool producing nations of the Commonwealth, the ones we stole. Common wolf, more like. Jesus.
+
+[00:26:38] A slow hand clap of water. Yeah. I don't feel empowering. I didn't feel. No, just on the wools like, they, I think that it was, it's centuries old. Like, it's really, really old. And in 1938, they opened it up and they found, oh, it's horsehair, completely full of horsehair.
+
+[00:26:55] What? Full of wool. Scandal. That is scandalous. So now they filled it with the Commonwealth wall. Do you know where we almost had wool? Where? It's such a, like, on our bodies.
+
+[00:27:07] Do you mean like humans used to have? On our bodies, yes. The legs. No. The arms, running short. The teeth, the teeth woman. No, no. Inside the body.
+
+[00:27:18] Yes. Oh. What? How drunk are we? We used to have some kind of... No, no, no, we didn't used to. We almost had. Didn't we almost have the wool inside?
+
+[00:27:31] We almost had wool in our... In lungs? Harts. Boobies. We almost had woolen boobies. Extraordinary claims require extraordinary evidence. So, in the 1950s, there was a lot of experiments going on. In the 1950s?
+
+[00:27:50] Yeah, we didn't get boobs in the 1950s as a species. Oh, we did, we did. But what we did have was plastic surgery where people were having their breasts enhanced, and there were many materials that were tested out as what we would be using for breasters. That is an itchy tit. You do get itchy tits.
+
+[00:28:10] If that is made a wool, that is... Itchy on the inside. Oh, that's... That's... They tried wool. They tried sponges. They tried ivory balls. They tried...
+
+[00:28:21] Yeah, they tried a lot of stuff. And then eventually it was the silicon implants that they worked in... Sponges? So you could maybe decrease and increase them, depending how much water you put? Yeah, yeah. Sounds good.
+
+[00:28:31] Anyway, I need to move us on to our next fact. Do you want to say one more thing before we do? Well, I was just going to talk about the wool factories that we had. So a lot of the wool factories in the north, they would have families who basically lived in the shadow of them. and their factories would kind of look after them, feed them.
+
+[00:28:47] They would go to church with the factory owners, all that kind of stuff. And I was reading about one called the Fox's Wollen Mill. They invented Karkie, the stuff that you... The Karkie? The Karki. The thing you used to get into your car. Yeah, yeah. That's not what I thought you said, so.
+
+[00:29:04] No, the khaki material. Cool. And they said that the children would get free woolen clothing, and they would be sewn into their... their woolen underwear in September and then let out again in May. Wow. I think they must have had an opening. Yeah, there's an engineering problem there.
+
+[00:29:25] I think so. Wow. But yeah, imagine that. Put a tube in. You stay warm. Yeah. But being sewn into your underwear for six months of the year. Liv of Newton-John was sewn into those trousers in Greece.
+
+[00:29:36] That's true. And they had to unpick her every time she needed to go. There was a story, wasn't that Franz Ferdinand, when he was shot, he'd been sewn into his uniform. You meant the band. I was like, what? They're going, take me out, take me out. It is time for fact number three, and that is my fact. My fact this week is that in 1914,
+
+[00:30:06] women were only allowed to visit the Natural History Museum if a man agreed to sign a note promising that they would behave themselves. So this is, yeah, this is, as I say, in 1914. I got this fact, by the way. from Dr. Fern Riddell. She's a historian. She's written in books about suffragettes
+
+[00:30:27] and the history of sex and all that sort. She's brilliant. You can find her on Twitter. And she put up this link, which was for one of the museums, by an author called Kerry Lottvas. And it was the story of suffragettes. And during 1912 to 1914,
+
+[00:30:41] there was so much damage that was going on in the name of trying to get their message out, much as the way that we see modern protesting, that they would take, they would do quite sort of big acts when they of destroying things. And museums were a particular target. And so museums basically had to shut down for a while. You had to go by appointment in some cases.
+
+[00:31:01] But women specifically had a note that was presented to a man and they would have to hand in at the door that then gave them access. And if they did damage something, the man would be liable for the damage that they did. And the woman. Yeah. Obviously.
+
+[00:31:17] Yeah, it was wild, wasn't it? The natural history museums weren't sure exactly what they might target. The head of the museum said that unless explosives are used, the large mammals are not likely to suffer very seriously. But they were bombing things at the time. So there was a chance they might. They're not worried about women's rights. They're like, fucking out, those elephants.
+
+[00:31:36] Oh, yeah. They need protecting. Well, they were mostly bobbled about the coral. Apparently. Famously, the order of priorities. Men, coral, women. Yeah. But it was such a big deal.
+
+[00:31:47] Lloyds of London actually started. started issuing household's comprehensive insurance policies that covered damages by airplanes, riots and suffragettes. No. Yeah. Like that was part of your insurance. If, as a woman, you did go to a museum, you had to surrender your parcels, your muff,
+
+[00:32:01] and your umbrella at the door. Because they were all, they were all used to conceal objects. You did, come on, stop getting you. They actually, but... The suffragettes came out saying that we're gonna put hammers in our muffs. Yeah. Like... You'd be amazed what some women can do.
+
+[00:32:16] Yeah. Must Hammer is a good, cool nickname for a suffragette, isn't it? WWMuffhammer. Making her way to the ring. She's got a note from her husband. But he hasn't signed it, sack! Oh, also, we should all be saying suffragettes. Oh, really?
+
+[00:32:38] Because they were very, very initially, the word was coined by a newspaper writer, and they were originally referred to as suffragettes, and they took it on because they said, we're going to get the vote. It was the Daily Mail. The Daily Mail coined the word suffragette, jet, where everyone said. But as a slam of a word. It was a slam because they were not the nice ones,
+
+[00:32:57] distinguished from the women's social and political union. The suffragists were the ones who campaign. They were being peaceful. Peaceful campaigners. But then it became like, yeah, we are suffragettes. Fuck you. Yeah, yeah. Just on the museum, it's just one last thing.
+
+[00:33:09] The assistant keeper of the National Portrait Gallery who was called James Milner said that if women are to be admitted into public galleries, there seems to be no alternative but to handcuff their hands behind their backs and to put up a grill in front of all the pictures to stop them headbutting them sensible policies for a safer Britain
+
+[00:33:32] wow wow isn't that amazing they really really got up people's noses that's what I'm trying for it do you know that Emily Wilding Davidson yeah Davidson the one who threw herself under the King's Horse so famously she was the first human casualty but I was reading about her, and she was actually like super violent
+
+[00:33:51] and had been for a very long time, was like throwing rocks. She kept trying to throw rocks at Lloyd George, but kept mistaking someone. And she was so violent that Pankhurst was like, get her out. Like, this is too much. We think she's going to do something nuts, yeah, because she was just like attacking people, throwing herself people. Because they all did jiu-jitsu, didn't they? They were trained in jiu-jitsu by one of the suffragettes.
+
+[00:34:12] Edith Gerold, Gerold, led the teaching, because she knew how to do jiu-jitsu. and the idea behind the training was that appointed bodyguards would surround leaders like the pancurs basically so that they had people in front of them to do juditsu. But they also had big wooden clubs concealed about their person.
+
+[00:34:29] In their muff hammers. Well, I don't know. Like, no muff is big enough to hide these clubs. They had to hide them in their dressers. Oh, baby, you don't know. I was reading about the slow pace of female emancipation. Just that Saudi Arabia
+
+[00:34:43] gave women the right to vote in 2015. leaving Vatican City as the only place where women's suffrage is still denied today. Right. Yeah, well Switzerland only got it in 1991 as the whole country. So it was in 1971 that the country had universal suffrage,
+
+[00:35:00] but all the cantons were allowed to vote on it themselves. And they're like the sort of counties. They're like the counties, yeah, but they have a lot of things that they can kind of decide by themselves. And there was one canton, the Appenzel-in-Hodon canton, that voted against women's suffrage
+
+[00:35:15] in 73, 82 and 1990. Fucking hell. Come on, Canton, get with it. I know. And the thing is, it's slightly weird because the way that they vote there, they don't like go into a voting move. They all go into the town hall square
+
+[00:35:29] and kind of shout. Fuck women. I said it 15 years ago and I stand by it. Shut up, Sandra. Yeah. And then in 1991, the federal government had to step in and say,
+
+[00:35:45] this is the rule. Guys, you're embarrassing us. You're an embarrassing uncle. He's getting really embarrassing. Have you heard of the board game Suffragetto? No. Have you heard of the board game Panker Squiff?
+
+[00:35:57] Yeah, they came out roughly at the same time. Really? Yeah, yeah. What's yours? My one is a game whereby it kind of looks like a chessboard and you have all these pieces and on one side you're team suffragette
+
+[00:36:08] and then the other side, your team police. And you need to get as many... I want this game. This sounds amazing. Yeah, well, there's only one. remaining copy of it and it's in the Bodleian library. I'm going to go with my muff and steal him.
+
+[00:36:20] Before I headbutter painting. I think it used to be able to like download I was going to say PDFs but I think you could like download the board and stuff and yeah right, cool. Yeah but Pankaswit because it was Asquith the Prime Minister. So Asgwit was the Prime Minister at the time and this was 1909 and it was a board
+
+[00:36:36] game you had to you had to get across the board and avoid arrest. It was the same kind of premise yeah yeah. But the violence of the suffragette movement was part of this game of suffragette, because if you caught one of the suffragettes, they went to prison, and if you caught one of the policemen,
+
+[00:36:52] they went to hospital. Yes. Yeah. And this was made by the suffragettes, I think the board game. Yeah, so it was their own issued game. Marketing, merch. They had a load of merch.
+
+[00:37:03] Women love merch. We'll buy a tote bag. We don't care what's on it. We do not care. What other merch did they have? Oh, they had sort of scars, and they had badges. There were lots of post-cote.
+
+[00:37:13] Well, the big thing was the color, the purple, white, green. And they put that on jewelry as well, and you'd have it on rings. And it was like a secret. You could wear the colors separately, and everyone would be like, oh, I know what you vote for. That was one of the things of the 2012 Olympics, they had a suffragette display as part of the opening ceremony. And someone came out as Emily Davison wearing the purple sash that was Emily Davison's. That's the genuine article.
+
+[00:37:38] Yeah. Which is pretty cool. We should probably say there is a bit of a debate about whether suffragette tactics won the day in the end because they suspended all militant activities at the start of the First World War and then by the end of the war women were so integrated in industry, factories, all of that.
+
+[00:37:54] Are you saying war's good? Is that where there's going? Or are you saying the suffragettes are bad? Yeah. Which one, Andy? Because the live audience and the people listening at home would like to know. Well, actually, I'm probably saying both. Welcome to GGB News.
+
+[00:38:14] But no, there is a debate, isn't there? Yeah. Actually, did they achieve anything? Because they made themselves very, very hated at the time. And then the impression was that by the end of the war, that women had just, were just so much more in society. And then would that happen without them doing that movement in the first phase? Don't know, yeah.
+
+[00:38:29] Or you don't. Yeah, yeah. But it's definitely, like, the tosses argued, isn't it? Yeah, yeah. Can I quickly, just speaking of people hiding things in their muffs, just reminded me in my favorite headline of all time. So the author Cormack McCarthy died. earlier this year.
+
+[00:38:45] And it was a headline that I saw years ago. This is the headline. So he only just makes a cameo and this is not really to do with him. Cormac McCarthy's ex-wife pulls gun from vagina during argument over aliens. Tell me you're clicking on that link immediately.
+
+[00:39:03] The Daily Telegraph has changed, doesn't it? Where was that? It was in a newspaper. Oh, great. Yeah. In Iraq. Yeah, by Vince Mancini.
+
+[00:39:14] Yeah. Checks out. Anyway, yeah. I've been wanting to say that for years on this podcast. Okay, it is time for our final fact of the show, and that is James. Okay, my fact this week is that a designer from Indonesia who recycles cow dung has found a way to make stools from stools. Very nice. Thank you.
+
+[00:39:44] Yeah, it's just a joke that. Stools and stools are the same thing. This is a thing that happened. This was a display from the last Singapore design week, which I read about. It's all about upcycling. So they made lighting from old washing machine pipes. They made rugs from dog hair. And this guy called Adhi Nograha has his team, basically, at his university, has taken this dung. They remove the water. That gets rid of the smell. They add a load of wood glue and stuff like that. And then they mould it into anything you want. You can get speakers, you can get stools, you can can get flour pots, all sorts.
+
+[00:40:21] That's very cool. That's interesting. It's a good way of recycling poo. A lot of it is burned, isn't it? Cow dung in India, which is really bad for the environment. I mean, cows themselves are very bad for the environment, and the dung is full of methane, and it just burning it just is a bad idea. But it can be used to coat walls. Yeah.
+
+[00:40:38] That's another thing is used to. Adobe, for instance. Adobe. Pooh and wool combined. Well, so I was reading a thing about astronaut poo and what it might be useful for. Oh, yeah. This is an exciting development. So it might be in future that astronauts are able to power their own spaceship
+
+[00:40:55] using polymers from their own poo. So that's thrilling. As in you can send astronauts to Mars and be like, make your own way home. Here's some fruit and fibre. See you in six months. And the other thing is they might be able to grow their own... This is a bit of a gross out factor, but trying to disregard it. So they might be able to grow their own food.
+
+[00:41:18] from... No, I said, control the effector. No one's ready. There were scientists at Pennsylvania in 2017. They researched this thing, a bioreactor, right? Uh-huh. So, effectively, you poo in the tube, and then...
+
+[00:41:33] Pew tube. Pooh tube. That's a good name for it. That's actually going to make it much more palatable to people, I think. And it produces gas, it sort of gives off various biological gases, and that fuels a microbial goo... Oh, God, that is the worst.
+
+[00:41:48] word you've used so far. We were all on board until microbial goo arrives. That's not be squeamish. Come on. Microbial goo chie. And they create a reactor and the good news,
+
+[00:42:00] good or bad news is I suppose it works. And so that... So what is the reaction? Is it power or is it... What are they getting out of it? This is to produce the vegemite-like microbial goo. Oh, you're going to eat it.
+
+[00:42:11] You're not... And I should stress, you're not eating anything that you have... Yeah, yeah, yeah. It's completely safe. You're filtering. It's like... If I go to a restaurant, I don't want to go.
+
+[00:42:20] It is completely safe. Yes, it was once your ship, but it's not anymore. People change. I thought it as well, when you said about smearing stuff on walls, I thought that was a thing that they were talking about deep space exploration. Because one of the problems that you have when you're flying further into space is that you go into these radiation bands where suddenly you're just getting smashed by it.
+
+[00:42:41] And if you put poo all over your walls... On the outside of the spaceship. Oh, is it on the outside? I believe so. Who's doing that, John? I thought it was on the inside. Yeah, who's doing... Who's doing...
+
+[00:42:52] You can go on a spacewalk. You can go on a space walk. You can go to... What does your son do at NASA again? Penis, PDFs, actually. Just tell them... Arthur. He smears shit on the outside of a spaceship.
+
+[00:43:05] And we should be proud of him. Jesus Christ. You can imagine slowly you're sort of like 30 years into an intergalactic mission. You're outside your spaceship. You're smearing your laid a batch of... of shit on the outside guy.
+
+[00:43:20] They're taking the fucking piss, aren't they? I should have done that drama degree, man. Like, this was not worth it. Go to space, they said, see the universe they said. I like the usual way it was on the inside. That was normal, you were like, yeah, yeah, living in like a shit hole. Well, it makes more sense. It's more sense.
+
+[00:43:41] Then going on a spacewalk to smear shit all over your ship? Yeah, I think it does. Or I can just imagine NASA checking in with you A few months into the mission. Sorry, sorry, Astronaut Schreiber. We lost control and have you been... Dan, what that? Okay, send him home.
+
+[00:44:01] Send him home. All right. Astroneral Schreiber, you're going to need to turn your entire spaceship inside out. No, Dan, you need to poo into the tube. All right. Wait, I meant to filter it before eating it? The video on poo tube isn't loading.
+
+[00:44:19] I couldn't see it. Recycling. Recycling. Recycling. Paper, right? If... Paper. Well, this is insane.
+
+[00:44:31] Like, okay, you recycle paper. Sure. And then... If you don't, shame on you. If you don't, and then you have recycled paper. It's one of the easy ones. You recycle it again, right? It's one of those things that you can just keep recycling. It turns out that you can only recycle paper seven times.
+
+[00:44:44] The same number of times... You can fold it. Isn't that spooky? That is spooky. That is spooky. The tree knows. The tree is like, no more. Wrap me in wool and put me in the ground.
+
+[00:44:59] It's kind of like the sort of Doctor Whoey regeneration limit, isn't it? Can I ask a question, though? When you're recycling, sorry, I want to recycle this paper. I put it in my recycling bin. How do I know if it's been recycled seven times, and I'm wasting, just wasting more recycling? This is nice paper, as in the paper that you gets... It gets a bit rougher, doesn't it?
+
+[00:45:17] It does. The sort of rough-low-quality, pulpy paper. Cheap notebooks will be made of that. then there are probably some industrial uses. Yeah, but then if you got a cheat note, but should you put, what should you put in there? Not the only one he's stressed about this, right? No, no, no, absolutely.
+
+[00:45:29] Because you put so much in there, then you go to the big bin on the estate, right? And it's full of fucking plastic bags because no one reads the sign properly. And then is it worth me doing it? Yes. Someone contaminates the bin. I don't think we're saying, don't recycle.
+
+[00:45:41] I think I was... No, no, Karen, I'm going to really bite down on this. No, you should do it. And I do it, but it's frustrating. I know. I know. You have to be careful what you really. recycle.
+
+[00:45:52] Wind turbine blades, they wear out sometimes. Yep. And they're really difficult to recycle. Okay, because they're made of lots of different polymers and stuff. Controversial? Yeah, they've got a new one, a new kind of material that they might use for turbine blades. And you can recycle it by eating it. Oh, wow.
+
+[00:46:12] You just get some microbial goo. And then you spread it on top. And so what's it made of? It's made of fiberglass. Yeah. But as well as fiberglass, it's got some. plant-derived polymers, it's got some synthetic polymers in. And once it's been working for ages and you need to replace it,
+
+[00:46:27] you can kind of dissolve it and all the constituent parts separate. Wow. And you can reuse all those different bits. And the plant-based ones, you can turn into gummy bears. And the guy who invented it has made a wind turbine, then dissolved it, turn it into a gummy bear, and eaten those gummy bears. I mean, I like gummy bears already. If I find out that I'm eating gummy bears,
+
+[00:46:49] which are made from renewable energy turbines are going to be over the fucking moon. That is so good. One thing that can be recycled that has been a bit of a bane of the recycling industry for a while is nappies. Oh yeah.
+
+[00:47:03] Because sometimes they contain lots of different components and it can be hard to separate them. This is a really good study from this year. It's researchers from Indonesia. Actually, just where your original fact is from, James. And it's researchers have found a way of taking nappies, use nappies,
+
+[00:47:16] washing, drying, sterilizing, shredding them, right? and then putting them into concrete and mortar. Wow. And they have successfully built a home that is 10% old nappies. Wow. And it's completely sterile.
+
+[00:47:29] It's completely like it's, and it can use two cubic meters of used nappies, one single story home without any weakness of structure or integrity or anything like that. And it's completely safe. It uses up a load. I think that is about the amount
+
+[00:47:41] a baby gets through in a year or two. Not my baby. We can build half of Milton Keyes in that actually gets through. And so that's just a trial so far. That's amazing. Even in the UK, half of the Welsh A487 road
+
+[00:47:55] is made of 100,000 nappies. Amazing. And they would just recycle. I know, plastic pellets. They're then part of the road material and then he tarmac over the top. So when we were talking about the three little pigs earlier blowing down a shit house,
+
+[00:48:06] that actually could be a reality. Not far off. Yeah, yeah. We're going to have to wrap up in a sec, guys. We are at the end of the party. Yeah, so sorry. It's time. It's time.
+
+[00:48:18] Yeah. Anything before we do? You can recycle rare earth metals using fish sperm. We're done, we're done. No one can talk, that's it. Is that the stuff you get those in your phone, don't you? The rare earth metal, yeah. This is a thing, it's, you know, milk.
+
+[00:48:37] Milt is the technical name for fish sperm, basically. So scientists use some, again, it's at the experimental stage, it's not widely used. But they made a powder out of some salmon milk, because that is largely composed of DNA which largely is made up of phosphate, right? And that is, it's charged in a way that it attracts rare earth metals to it.
+
+[00:48:57] Cool. So if you put it in a solution with some rare earth metals because obviously they're very important to recycle and you want to recycle as much as you can keep it in the system going around. And if you put it in a solution with some salmon sperm, then it can be extracted. How much sperm do you need?
+
+[00:49:11] Like, are we going to have to farm fish and make them ejaculate millions of times? I think that is the problem of scale in this. You're absolutely right, because it's like a salmon is quite small, and it is a waste product for the fish industry, but it's not... Not if you're a Mrs. Salmon. How you get in the milk? Like, how do you collect milk?
+
+[00:49:29] I'm just asking for a friend. I don't know. The milkman just comes round, doesn't he? Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things we have said over the course of this podcast,
+
+[00:49:49] we can be found on our Twitter accounts. I'm on at Shriverland. James. At James Harkin. Andy. At Andrew Hunter-Ram. Carriad. At Carriad Lloyd on Instagram. And you can also get us on our group account on Twitter, which is at No Such Thing. Go to our website as well. No Such Thing is a fish.com. All of our previous episodes are up there. And you can also join Clubfish.
+
+[00:50:07] We got any clubfish members in it. Yeah. Very nice. Very cool. It's a secret society for dorks. And it's awesome. So do join that. Otherwise, join us again next week for another episode. We'll see you then. Thank you so much, Soho Theater. That was awesome. Goodbye.

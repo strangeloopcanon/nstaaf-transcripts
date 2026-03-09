@@ -1,0 +1,187 @@
+# No Such Thing As A Fish - No Such Thing As A Good Gift For Gordon Brown
+
+- Episode date: October 24, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-good-gift-for-gordon-brown
+- Slug: no-such-thing-as-a-good-gift-for-gordon-brown
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. You're in the No Such Thing as a Fish. No, Seriously, it's in the Oxford Dictionary of Underwater Life. He says it right there. First paragraph, No Such Thing as a Fish. And welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to me from the QI office in Covent Garden.
+
+[00:00:27] My name is Dan Shriver. I'm sitting here with Anna Chazinski, James Harkin, and of fact-checking duties, Andy Murray. And joining us as well is a very special guest. It's Ash Gardner, the lead singer of Emperor Yes, the band whose song we uses our theme tune. And they've just got a new album out. It's called an island called Earth. And throughout the show, during the interstitial moments, instead of our regular stings, we're going to be using extracts from songs from that album that you should definitely buy.
+
+[00:00:52] Also, at the end of the show, we're going to play a full track single from the album called Monkey King. Hello, Ash. Hey, what's up, guys? I'm Ash. Good evening. All right, let's begin with fact number. number one, and we're going to start with you, Ash. Cool.
+
+[00:01:05] So my fact that I have today is that in 1060 BCE, the Egyptian city of Pye Ramsey's was moved 20 kilometers to the north, including obelisks, sphinxes, temples, steely. Why did they move it? Well, their tributary of the Nile that they were on dried up, as the Nile is carrying so much sediment, it's constantly filling itself up and they're in the Nile Delta. So yeah, they're a bit of the river move.
+
+[00:01:38] Their fresh water left them. So they... They chased it? Yep. Did they wait? I mean, because, you know, you don't wake up one night and go, oh my God, there's 20 kilometres of silk where there was a river. So they must have waited and just gone to and from the Nile until gradually it was just
+
+[00:01:50] that bit too far. And then one day, they thought it's gone just a centimetre too far for me now. So let's go 20 kilometres up that direction. Yeah, carrying all this shit. There is a river that changes direction in the year. I think it's a Tonle sap, is it, in Cambodia, and it goes towards the lake for half the year, and then it changes direction and goes away from the lake for the rest of the year.
+
+[00:02:12] And that's because the Mekong River has so much water flowing down it that when it reaches the sea, it can't get the water into the sea quick enough. So it backs up and fills up a lake. I think in the wet season, that lake is 10% of the size of Cambodia. So the Nile was really important, of course, for the Egyptians. so much so that their new year began at the flooding. So whenever the flooding was, that was when their new year was. Their maps were orientated so that the source of the Nile was at the top.
+
+[00:02:40] So the north was in the south, and the south was in the north, as we would imagine it. Which, of course, Upper Egypt is the southern bit. Yeah, it's upriver. Yeah, that's Upper Egypt is the bit that heads towards Sudan and Ethiopia. And so important was it that it flooded every year, that Egyptian pharaohs would ritually much. masturbate into the Nile to ensure an abundance of water. Does that ensure it?
+
+[00:03:06] I believe so. What was the belief behind it was giving birth to more water? Is it just literally to provide more liquid? They think that tiny deposit is going to tip it over the edge. Well, who knows how big the deposit was in those days. But yeah, no, it was
+
+[00:03:21] like because it was a bringer of life, etc. Wow, did they do that to other stuff? Their ill friend. Apparently Cleopatra had the first a vibrator and apparently it was a wooden box with a bee on the inside of it. What the bee was got, that was the vibrating element. I believe the vibrator was the fourth electronic thing to be powered by electricity when electricity was first invented.
+
+[00:03:45] I can't remember what the other three were. Weirdly, that's the only one I remember. Got to be lights. So the guy who moved the town, it was Ramsey's the second who... Ramsey's the second was the one who built the town. He was also the guy whose body, we... transported to Paris in 1974, didn't we? And he's the only dead person who's ever had a passport, I think. Oh, really? And on his passport, his occupation was listed as king, brackets,
+
+[00:04:09] deceased. Wow. The only other thing I know about the city that was moved is, so I think we thought for ages that it was in a location which is now Tannis, didn't we? Yeah. And then they realized that all the objects that they could date back to Pye Ramsey's were actually located in Quantier. Quantier. But Tannis is where they set like Raiders the Lost Ark, isn't it? Yeah, exactly. Yeah, that's where the Orca the Covenant was supposed to be taken to in Indiana Jones. Yeah.
+
+[00:04:37] Now we're getting into Dan Territory. Dun-da-da-da-da-da-dan. Apparently they were saying that Tannis would be up there amongst the most famous of discoveries and exitututin Karmun had it been found in a different period of time, but it was found just as World War II broke out, I think. So as a result, no one really talks about it, but it was, they found so much there. everything from their pottery to their, as you say, temples and... And huge structures, right? How big was the biggest one?
+
+[00:05:03] Really big. Two hundred tons was the biggest obelisk that they moved. Yeah, so how much are we talking here in terms of the stuff that they moved? So, multiple sphinxes, all of the temples and buildings, they took apart brick by brick and moved those, but the obelisks and stuff were moved whole. Sphinxes? Yeah, they had more than one sphinx, right? Did they? The thing about the sphinxes, is it...
+
+[00:05:26] right that it was under sand for like hundreds and hundreds of years and then they just kind of found the top of its head and then they dug down and yeah that is pretty right that was like around Napoleon and his lot when they turned up they've got photographs from around that time period where just the head of the sphinx is sticking out that's so cool wow so have we actually dug to the bottom is you like on a tricycle maybe or is there more yeah you can see his feet but we can't see the bottom of the bike yeah what could he be on or she is it she so they think that the sphinx is the face of Kufu, which is the person who the Great Pyramid was built for. So maybe the Sphinx is a guy. I thought the Sphinx was a woman. And when she's riddling, then she's female.
+
+[00:06:07] I'm pretty sure. Is it true that Napoleon actually shot off the nose or not? Question like. No, we don't think so. Really? Yeah, we think there's photos of it without a nose before Napoleon came along. Right. It also had... Yeah, hard to sketches and stuff from before Napoleon. Yeah, probably not photos. Photos. It also had one of those, um, um, those things that come off the chin. It had a braided beard. A braided beard, which is in the British Museum. There are cases throughout history of us moving.
+
+[00:06:32] Just great structures, aren't there? Like, when we moved Tower Bridge, that's what it reminded me of, is when we took apart Tower... Sorry, London Bridge. That's the myth that it was Tower Bridge. We sold London Bridge to the Americans, didn't we? And it was the guy who sold it numbered every brick. So it was taken apart bit by bit, and then could be put back together exactly the same.
+
+[00:06:50] Oh, wow. I once read that the windows of Lincoln Cathedral, the stained glass windows, they took them apart piece by piece and then labelled them all and then put them back, wanted to put them back as a jigsaw. This was during the war because they didn't want them to get smashed. And then someone lost the picture of what it was, so they had to do it painstakingly and just work out where everything was.
+
+[00:07:10] And I emailed them and it's not true. Oh, thanks. I know. This is a bit off topic, but the way that Talking Heads recorded Remain in Light is that every percussive instrument would play constantly throughout every song. And then when they came to mix the album, they mutated, they automated the mutes for on-off for the different percussive section. So they're like, ooh, we want a cowbell here.
+
+[00:07:35] That is. That is. Insane. So when they went back to remix it or remaster it about 10 years ago and they listened to it, they went. Oh, wow. Oh, oh. It sounds like they played it before they'd written it. Like they just got everyone to play everything.
+
+[00:07:50] And then we didn't have time to write anything, guys. Yeah. We'll write the song through the mute button. Yeah. So Ramsey's had, he apparently had over 200 different wives. And with these 200 different wives, he had 69 sons and over 60 daughters. He's done quite well to get so many kids considering he was masturbating into the nile every single day. Maybe they were swimming in it.
+
+[00:08:19] One tiny thing which I really like. Because speaking of moving buildings is that, Master Turk was a big fan of nature and he had his Yalova mansion. He was told by the people who built his Yalova mansion that there was a tree in the way of it and they were going to have to cut down this tree. It was a plain tree and instead of letting them cut it down, he made them move the entire mansion four meters to the left. Wow.
+
+[00:08:43] Yeah, dedication to his nature. A bit annoying for the construction workers. Also, the biggest stone to ever be moved, this is a bit random, but it was moved in Russia and it was moved out not that long ago like 200 years ago they just decided to tug a massive stone and it's bigger than any stone humans have moved ever
+
+[00:09:03] any of the Egyptian why did they do that just for a smash right a strong man contest yeah it was Putin wasn't it just grabbing it and pushing it no there was a bigger stone actually and this was the Romans
+
+[00:09:19] they cut it but they couldn't move it so they cut it out it was this massive rock. They were going to move it to a city as a big temple thing, but it was just so big they couldn't move it, and it's still there where they cut it. You couldn't be good at everything, Romans. Okay, Andy, anything to add?
+
+[00:09:36] Yes, so you're all doing very well. Interesting thing about the sphinx, the Greek sphinx was a woman, but the Egyptian sphinx was typically shown as a man, which is called an Andro's sphinx. On rivers changing directions, actually the Amazon once flowed in the old, opposite direction. It used to flow from the Atlantic Ocean to the Pacific.
+
+[00:09:57] Wow. Yeah. Until at least 65 million years ago, which is cool. The, okay, so vibrator stuff, I have found a source which claims that the vibrator was the fifth household appliance to be electrified, and the fourth one was the clothes iron. But the first mechanical vibrator was actually steam powered and was called the manipulator. And on the... You couldn't silently get away with that one, could you? I'm just going to go to my room again Early night
+
+[00:10:24] Like, why are you going down to the coal shed again? It was massive. It had to be kept in a separate room. The vibrator room. They come up in Jane Austen novels. It sort of pokes through into the next room, basically. It's pretty in elegance. The beginnings of the glory hole.
+
+[00:10:38] Wow, yeah. Okay, we should move on. Let's have a quick burst of an Emperor Yes song. Okay, that was Paramee's Titanus, that little extract you heard just there from Ash's album. That was exactly the subject that we were just talking about for his fact. Okay, time for fact for fact is that in 1864, one of Charles Dickens' friends had a flat-packed Swiss chalet delivered to his home as a Christmas present. And that wouldn't have fit in the stocking. No,
+
+[00:11:18] didn't. So it was Charles Dickens' actor friend, and he had it delivered to Hyam Station near Dickens' house. It arrived in 58 boxes and were split into 94 pieces. And yeah, Dickens. out to go pick it up, loaded onto the carriage, multiple trips, I imagine, and erected at home. Was it wrapped? Was it like every, was it disappointing every time he opened one of it? What is this? What is this? I wonder if it came with instructions. Well, because they do... It came with someone who knew what they were doing, probably in those times. Instructions was probably a human.
+
+[00:11:49] Oh, if only McConnell did that now. Yeah. Every box came with just a human being. But you can buy a flat pack IKEA house now, right? And you assemble it, has instructions. I mean, I think they come and assemble it for you. I'm guessing. I don't think it's like one Alan Key and some instructions. The one loves out online are all from Germany, and they have guys that come and install them for you.
+
+[00:12:08] So I think that's quite a risky present to get somebody. If they don't like it, how do you return that? Gift vouchers is definitely safer, isn't it? Yeah, Swiss Alley gift vouchers. Get that. But fortunately, he absolutely loved it, and he built it in a road ran through Dickens' property, and he built it on one side of the road,
+
+[00:12:26] and his home was on the other. So then he had to build a tight, tunnel that ran from his house to the Swiss chalet because he didn't like having to cross the road because, you know, he liked privacy. So he erected this entire tunnel, which still survives, where he used to escape his writing chalet. So it's more like a shed, really, isn't it? It was two stories. Can a shed be two stories? No.
+
+[00:12:46] He seemed like a really fun guy as well. He basically had a secret writing room, a secret area in his house that was hidden behind a bookshelf, which was a fake bookshelf. And so he had fake books on the bookshelf. And he actually, he came up with names. He even designed the books. Yeah, so some of the titles include Noah's Architecture, was Shakespeare's Mother Fat, and he had a nine-volume set titled Cat's Lives.
+
+[00:13:11] Yeah. Yeah, I don't know if it's true, but that's... It is true. It still exists. Where is the house and the tunnel? It was in Kent. The Garden of England. There is a village in, I think it's in Kent's where they have a load of Charles Dickens,
+
+[00:13:24] memorabilia and stuff. and he never lived there. It was just a place he used to go on holiday sometimes. And there was a counsellor who was so annoyed that everyone was calling the shop like Charles Dickens shop
+
+[00:13:35] or Charles Dickens' pub. He had a plaque put on his house saying, Charles Dickens did not stay here. Really? Yeah, apparently, I think... I think this is the same town that very recently
+
+[00:13:45] there was a school there which was the Charles Dickens primary school or just Charles Dickens' school and they've taken Charles off the name now and put another title on. I can't remember what it's called,
+
+[00:13:54] but the town is, furious about it. Oh, really? So they've taken Charles off, but they've kept Dickens. Yeah, so it's the Something Dickens School now. Maybe Frederick Dickens, his brother. He was an alcoholic who used to borrow money on his brother's name just to get alcohol and then died in a, he died of alcoholism or something.
+
+[00:14:12] And Dickens supported his family for the rest of his life, didn't he? Did he? Yeah. Good guy. He's, it's very funny, I was looking into his great grandson who performs a lot of his books now as live one man plays or maybe, maybe. Maybe there's a cast, but his name's Gerald Charles Dickens. Oh, yeah.
+
+[00:14:29] And what's very funny is if you look into all the great, great, great grandsons of all the Dickens, they've all somehow decided to keep Charles in there. Just to really drill at home. There's a middle name in there of Charles in there of Charles in there of Charles. Wasn't Charles Dickens' sons have weird names like Alfred Tennyson. He used to give them really weird names because he was kind of fun. So he nicknamed his kids. So his daughter was called Lucifer Box because she had a stormy temper.
+
+[00:14:51] He called one of his sons Chicken Stalker all his life. And one of his sons was called Plawn. Wasn't there skittles as well? Skittles, yeah, I think there was. I didn't know those skittles around back then. There was no way to taste the rainbow. The best Dickens' story, I think, is when Hans Christian Anderson came to stay with him, and he was supposed to stay two weeks, and he stayed five,
+
+[00:15:09] and the Dickens family hated him, I found a complete bore, and Dickens had, as soon as Hans Christian Anders had left, he left in the guest room a note on the mantelpiece that just said, Hans Anderson stayed in this room for five weeks, which seemed to the family ages. That was erected in the game. It's true. Anderson never knew.
+
+[00:15:28] Anderson used to write articles saying how what a great time he'd had with Dickens and how close they are, and Dickens just shunt him from then on. Some stuff about gifts, seeing as we talked about that before. During World War II, obviously there wasn't much stuff around. And so Women's Weekly magazine pointed out that anything is worth giving us a gift. And they said, a box of matches now makes a very welcoming gift. And you can make it more important looking by, dressing the box up by sticking a scrap of pretty wallpaper or decorative Christmas paper on
+
+[00:16:01] the front and back of it. That's nice though, isn't it? Isn't it? Yeah. Well, gifts, I've been reading lately about economists estimate that when you give someone a gift, there's on average a 10 to 30 percent financial loss that you're making because obviously when you give it, if you give someone a gift, if I give you a gift, James, then you give me a gift, then that was something I decided was too expensive to buy with my own money. This isn't going to cut it at Christmas. When you go to your family and they say, where's our gift? And you go, economists estimate that this is. Yeah.
+
+[00:16:31] So I don't think they're taking into account the emotional effect of the gift, but certainly from a value perspective, gifts aren't worth it, guys. In Japan, they have an amazing gift-giving culture where if somebody gives you a gift, you need to give them back a gift of half of the value of the original gift. And then the original gift giver gives a card, and that finishes the gift cycle. Yeah What a nightmare So you kind of have to have like a five pound book token on you at all times
+
+[00:17:03] In case someone gives you a 10 pound one Which is why all the candies and all of the stuff in Japan It all comes individually wrapped So you can buy a big box and give one to everybody in your office and stuff And they have to give you half one back And then you've got to get them all cards Oh, it's terrible Absolutely hell
+
+[00:17:19] Also you have to ask the really rude question When someone gives you a gift of So how much was this? I reckon they deduce that. That's all within the such all majesty. What do you get when someone gives you a flat-packs with chalet? Yeah. Do you remember when Barack Obama came to visit Gordon Brown,
+
+[00:17:37] and Gordon Brown gave Barack Obama a penholder carved from the timbers of the sister ship from which the White House desk is made? Oh. And the first edition of a seven-volume biography of Winston Churchill, and Barack Obama gave Gordon Brown a 25 DVD box set, that didn't work on British DVD players. Oh, what was it of? It was just of the 25 top films of all time.
+
+[00:18:00] And I had the AFI list. He'd just gone through the top 25. It's like a mixtape. Yeah. When Donald Rumsfeld went to Iraq, he gave Saddam Hussein some medieval spiked hammers. And Saddam Hussein gave him back a video documenting Syrian atrocities. Oh, wow.
+
+[00:18:19] It was people stabbing puppies, wasn't it? There's an amazing thing on life. So if an American president is given a gift, if the gift is under $350 American, the president gets to keep the gift. If it's over that, it belongs to the people. And recently they did a list of all the countries are given him presidents, and the worst one they decided was from Poland, who gave Obama when he visited it in 2012. They gave him a computer game called Witcher 2, a DVD called Best of Witcher 2, a Witcher 2 gift box set. three golden witcher two coins, a Witcher two book,
+
+[00:18:57] Witcher two stickers, and an ivory-colored Witcher-2 bust of one of the characters. Wow. That was his present. Andy, anything to add before we move on?
+
+[00:19:06] Gordon Brown's presence to Barack Obama cost £10,000. And the DVDs in return were just, yes, the 25 best films of all time as judged by one online firm. The following time that Gordon Brown had to give
+
+[00:19:17] Barack Obama gifts, he gave him two books, a Carnegie Anthology about the Scottish American industrialist, Andrew Carnegie, and Scottish Estate Tweed. So he kind of learned his lesson about giving the president really good presents. Okay, we should move on, guys. Here's another MPRIAS song.
+
+[00:19:35] Okay, that song was called Cosmos, and it's now time for fact number three. James. My fact is that neuroscientists could tell if you are a musician simply by looking at your brain. Wow. So this comes from a book called Musicophilia by Oliver Sacks. It's a great book, all about music and the brain. And he's basically saying that, yeah, the brain just develops differently from people who spend their whole life playing music. I think it was Oliver Sacks that said that he reckons everybody has perfect pitch as a baby, but you learn to disregard it.
+
+[00:20:25] And it's only the practice of music, which keeps that up. So he argues for the fact that you cannot learn perfect pitch as an adult. Also, as a baby, when you're two, you have more brain cells than you'll ever have again, don't you? Yeah, they could, they say that... And you can remove a large portion of the baby's brain. Yeah, half and it can still function as a full brain. Of anyone's brain, I think. What? Well, not in adults.
+
+[00:20:47] No, no, you can move half of anyone's brain and it still works as a brain. I think you want to do it quite carefully. With like a clean knife. Yeah. So, music and the brain, there's been lots of studies about that. There's been a study quite recently that looking at brain waves of musicians, and they found that when two musicians play a duet, their brainwaves synchronize, which is quite cool.
+
+[00:21:10] Wow. Yeah. And there's another one that they looked at jazz musicians as they're improvising and found out that they turned off areas linked to self-censoring and inhibition as they do that. And then there was another study by Harriet Watt University that looked at the kind of music people liked and then gave them personality tests and found out what kind of personalities they had. And they found that blues fans had high self-esteem. their creative, outgoing, gentle and a tease.
+
+[00:21:38] Jazz fans have high self-esteem, a creative, outgoing, at ease. Oh, I thought you said, and a tease? And a tease. Classical music fans have high self-esteem, they're creative, and they're a-tees. And rock and indie fans have low self-esteem, are not hardworking, not gentle and not outgoing. Excellent. That's Ash.
+
+[00:22:04] Oh, your fan. What's up? Sorry, I was just having a nap. Couldn't keep up with all this. You can't tell amazing things from looking at people's brains, can't you? So it's a really reliable way to predict someone's political affiliations. If you look at someone's brain function, you've got an 82... Not you personally.
+
+[00:22:23] If you're a brain surgeon, you've got an 82% chance of predicting someone's political affiliation, whether they would, like, how they would actually vote. That's extraordinary. If they've had half their brain removed, they're a UKIP supporter. Yep. Wow, politics. Oh, my goodness. This is new.
+
+[00:22:39] This is new for us. Oh, my God. Another quite cool thing you can tell is you can predict if your relationship's going to last. What? Yep. So they looked at couples at the start of a relationship when they said they were falling in love. And the couples where their brain function showed that they were suppressing the area of the brain that usually is judgmental and the area of their brain that's selfish. If they're more suppressed, then the relationship lasts.
+
+[00:23:02] So surely let's all like a. There needs to be an app for this, right? A brain scanning app, yeah, as soon as you meet someone. Man, that's weird, isn't it? It's too, it would be too scary for people to do. Here's another thing that explains how little we know about the brain. There was a case of a guy called Mr. B, we don't know what his real name was. He had bad OCD, depression and anxiety.
+
+[00:23:23] So he had shock therapy. They gave him electric shocks. And the theory was that they would change his brain waves or whatever. So the treatment worked actually quite well. His OCD went, his depression went, anxiety went, but it had a strange side effect. It turned him into the world's biggest Johnny Cash fan. Before the surgery, Mr. B was a casual music listener who liked Dutch music, the Beatles and the Rolling Stones, but after the treatment, he bought every
+
+[00:23:49] Johnny Cash CD and DVD he could get his hands on, and he wouldn't listen to anything else. That's amazing. Okay, Andy, you got anything to add? This is interesting. On a perfect pitch, it's also more common among blind people, for whom, if you have a perfect pitch, it's more handy to work out whether a car is moving on which direction or footsteps it sort of gives you more of an idea of your surroundings and also for people who speak other languages because a third of the world's language is a tonal and to understand yeah Thai Vietnamese and and lots of Chinese languages that you need pitch to work out what someone's actually saying to you so it's interesting that a pitch is not as powerful in our brains as rhythm and that you can
+
+[00:24:33] lose through head traumas and disease and stuff, you can lose your ability to differentiate pitch but it's really, really difficult to lose your idea of rhythm and your sense of rhythm. That's weird. Yeah, so it goes
+
+[00:24:48] back way further. Okay, we need to wrap this one up. Here's another preview from the MPRES album. A song was called Cosmic Cat and now it's time for the final fact of the show and that's my fact And my fact this week is, during World War II, Jack Warner, who was the head of Warner Brothers Studio and the founder, he realized that from the air, his Hollywood studios were indistinguishable from a nearby aircraft factory. And as they were worried of bombing happening at the time, he had a giant arrow painted on the rooftop with the words, Lockheed that away.
+
+[00:25:35] Taking that a bit further, what everyone in America should have done was painted on their roof White House this way. So no one got bombed apart from the White House. That's true. Wait, why do they want to bomb the White House? If you're Jack Warner, you don't want people to bomb your studio, so you paint an arrow on it. So surely everyone should paint an arrow on their houses. Asking them to bomb the president? Or just away from my house, please.
+
+[00:25:55] That's not like patriotic. Yeah, I think the president would have been like, guys. I saw an interview with the next head of the US military a couple of years ago. I think it was on Vice magazine. And the interviewer posed the question whether if the whole world got to, together and attacked America whether they could land a single troop on American soil, and he reckoned no. Really?
+
+[00:26:19] They'd stop us before we even got to the boundary. He reckons if the whole world got together, not one troop would get landed on American soil. That's really funny. Yeah, but surely Canada's on our side. And Mexico is really close. Yeah, exactly. He was like South America and America, he was like accounting for them. Well, I think we should try it.
+
+[00:26:39] I'm free tomorrow. Okay, let's do it. Can I just say to the NSA if they're listening, I don't think that's a very good idea at all. And when I say if they're listening. I just with the thing of Jack Warner painting a massive arrow on the roof, the thing that I liked about it, though, was the idea that if there was a Japanese bomber flying over, they would look down to it and they'd be like, oh, directions. And I've always wondered about directions.
+
+[00:27:03] Like, how do you, in back then, how did you get flight directions if you didn't have a map for the area or whatever? There are big concrete arrows in America. That's what, yeah, that's an extraordinary. Extraordinary thing that I had no idea about. Yeah, the post in America, the way they used to direct the postman was to have these huge concrete arrow slabs on the ground and they would just bring you from the east coast to the west coast and back again. So like in a plane. Yeah, in a plane, you'd look down and you'd see an arrow going that away.
+
+[00:27:29] All right, things about roofs. Oh, yeah. Seeing as that was the point at the start. Apparently there are churches in the UK that have a thing called the voice of God, which is a microphone on top of their roof, that when you're trying to steal meth, or steal lead from the roof, then it'll say, stop doing that, you terrible person, you're going to hell, kind of thing. And there seems to be a lot of news articles about people painting penises on the top of roofs.
+
+[00:27:54] I've seen at least two or three of those. There was one in Hungerford in 2009. A guy called Rory painted a large phallic symbol on his parents' roof. And his mother, Claire, 49, said, we don't want any more children. so the idea of sleeping under a giant fertility symbol is rather worrying. She's kind of missing the point, isn't she? I think the journalists must have pointed out to them that it was a fertility symbol,
+
+[00:28:20] because she said that, and then the husband said, we don't want to lie in bed at night and hear couples at it above us, which is a really confusing quote, but I think he's implying that randy couples are going to come and go to their roof. Oh, like they're doing the CERN Abbott swan. Exactly, exactly. But I did like that story because they only found out that he'd done it when he was away on his gap here.
+
+[00:28:39] So they wrung him up and he was in Brazil at that time. So he just said, oh, you found it then. Jack Warner, just very quickly about this character, because I didn't know much about him. It's one of the biggest movie studio names we all know, Warner Brothers. Originally they were called Wonskulezer. That was their surname, so it could have been Wonsklazer Brothers, but they changed it to Warner.
+
+[00:29:01] They initially started as three brothers who were just getting into the movie business. They started the business as a result of their dad, his gold watch and them selling their horse called Bob. And Jack Warner was a really interesting character, very hated. He outdid all of his brothers. He got them to sell their shares, saying that all of them were going to share. And then he bought them all back the next day on his own.
+
+[00:29:22] And they never spoke to each other again. Even to the point when they fell out that he was, when his brother died, Harry died, they asked the press were like, hey, or, you know, any response. And he said, I don't give a shit about Harry. I mean, that's intense. He said, if you look at quotes of his online, all the quotes are just, One was to an actress where he said, you were very good playing a bitch heroine,
+
+[00:29:44] but you shouldn't win an award for playing yourself. I mean, that's harsh. And he also apparently met Albert Einstein, and when he met Albert Einstein, he said to him, I too have a theory of relativity. Don't hire them. But him and his older brother, Harry,
+
+[00:30:00] had a terrible relationship, and there was one account of them, Harry running through the studio, chasing Jack, wielding a lead piping, screaming, I'm going to kill you, which is just so, seems like it was the inspiration for a lot of cartoons that followed it. Yeah. Did a lot of people get killed by lead piping in the old days? Maybe they'd just play Cludo. That's why Cludeau was a really insensitive game when it first came out. All I know about Warner Bros is they used to make cartoons. Yeah, it's weird that they made all
+
+[00:30:27] these, all those big films, and now we associate Warner Brothers so much with cartoons. But they made quite a lot of politically incorrect, I'm going to say, cartoons. There is a group of films called the censored 11, which are the 11 Warner Brothers films, which had to be suppressed from the 1950s onwards. Did you know when Jack Warner was young and his parents ran this movie theater, he used to be a chaser, which is somebody who would come on in between the movies and sing to clear out the audience. Oh, to get a second audience in.
+
+[00:30:57] Maybe that's where all his bitterness comes from, is the fact that he was employed to be a shit singer. He was, yeah, he was a vaudeville performer when he was younger and totally failed at it and was really well known at just being a bad comic and always having really bad jokes. But being quite keen and trying to make people laugh, just failing. Just on Warner Brothers. Yeah. Do you know the, was Flintstones of Warner Bros production?
+
+[00:31:20] I started looking to all sorts of... Hanna Barberra. Hanna Barbera. Oh, on Hanna Barbera, actually. I was reading about Tom and Jerry the other day. The last Tom and Jerry cartoon that Hannah and Barbera directed, they commit joint suicide at the end of it. So they both get dumped by their respect.
+
+[00:31:36] prospective girlfriends. And so I think Tom gets, which one is the cat? Tom's the cat. So he gets dumped first, so he's sitting really depressed. And then Jerry gets dumped, and they sit on a railway line, and it ends with them sitting, waiting for the train to come and mow them down. That's so dark. Yeah, it's really weird.
+
+[00:31:51] They committed suicide. Yeah, they did. Together, but it's quite sweet because they did it together. They finally realized. Suicide packs are never sweet. So the Flintstones used to be sponsored by Winston Cigarettes, and so it used to have adverts for Winston Cigarettes at the beginning and the end of it. and there was a public outcry about this
+
+[00:32:08] because one of the most famous was when Fred and Barney sneak around the back of the house when the women are doing the housework and they sit down and have a cigarette and they talk about how great it is that they're smoking these great cigarettes while their wives are doing all the hard work and Fred Flintstone said Winston tastes good like cigarette should and there was public outcry because that's a misuse of the word like
+
+[00:32:30] and it should be as cigarette should We're pretty angry about that. That's wonderful. Okay, Andy, anything to add? On American military might. America spends more in its military than the next 15 countries combined. And the total amount of land area occupied by U.S. bases and facilities is bigger than Washington, D.C., Massachusetts and New Jersey combined. Wow.
+
+[00:32:55] And on Ruth Pinesia, I've just found two headlines from the metro that I want to leave you with. man surprised by massive roof penis and school surprised by 20 foot penis. So there you go. Okay, that's it. That's all of our facts. Thanks everyone for listening. If you want to get in contact with any of us about the things that we've spoken about
+
+[00:33:20] in this week's podcast, you can get us all on our Twitter accounts. I'm on at Shriverland, James, at Eggshade, Andy, at Andrew Hunter M. And Ash, at House of Strange. And also Ash can be got on at Emperor underscore yes. So you get next week with another episode of No Such Thing as a Fish,
+
+[00:33:38] our Halloween special. Goodbye.

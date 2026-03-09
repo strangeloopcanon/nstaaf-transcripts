@@ -1,0 +1,291 @@
+# No Such Thing As A Fish - No Such Thing As Tom Cruise In A Manger
+
+- Episode date: November 1, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-tom-cruise-in-a-manger
+- Slug: no-such-thing-as-tom-cruise-in-a-manger
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from our Book of the Year 2018 tour in Nottingham. This is Dan Schreiber. I am sitting here with Anna Chisinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Anna Chazinski. Yes, my fact this week is that old European malaria remedies included throwing the patient headfirst into a bush in the hope that he'd get out quickly enough to leave the fever behind. Yeah, just got tangled up in there, can't get out, and you scarper. That was how you did it.
+
+[00:01:14] And this was used all the way up until the 17th century, basically until the 1600s. No one knew how to cure malaria. And so they just made up a lot of wacky, wacky shit. I wonder what they thought happened to the malaria in the bush. Does it stay there? Like if you went through, walk through the bush, we'd then pick up. It is a bit like that.
+
+[00:01:31] So it's called passing through. And it's kind of an old folklore thing. They did it for lots of different diseases. Sometimes it would be a hole in a tree or a hole in a stone or something like that. And you would pass through the hole. And the idea is you would leave the disease behind you. And actually, it happened in America. Perhaps they didn't have trees or stones.
+
+[00:01:49] But they used to climb under the belly of a donkey. Okay. And the idea is you would leave your disease behind. And is it that it gets so distracted by the, the inside of the tree or the belly of the donkey, then it goes, oh, look, and it loses sight of its... I think so. I don't think they really knew what was going on, but... Yeah, malaria's not like me.
+
+[00:02:06] Just distracted by any idiotic thing. Ooh, what's hard? But, yeah, so of course, as soon as the tree that has quinine in it was discovered, suddenly everyone could be cured of malaria, and that was in... Well, this is by Western Europeans, it was discovered in the 17th century. So they went over to Peru,
+
+[00:02:23] and they found the indigenous people were just using the bark from this tree called the Kintana tree. I think that's how you pronounce it. And that just cures it. And so they started using it. And then all their problems were over, no more running in and out of bushes. But yeah, it was a tough time up until then.
+
+[00:02:38] It was, because there was quite a few other things they tried as well as the bush thing, wasn't it? Yeah. It wasn't just the bush thing. So eating an onion with the word amen on it. With the word, amen. Was this for malaria to get rid of it? Wow.
+
+[00:02:49] Well, it didn't work either. But you can't, I mean, very few onions have the word amen on them. So if you can find one of those, I think you deserve to be cured. Yeah, you were allowed to write it on yourself. Oh, fine. Smearing cow manure on your body, drinking opium-laced beer.
+
+[00:03:06] That was quite a good one, actually. There was a guy called Albertus Magnus. He was the Dominican scholar, and he said, allowing insects to devour 77 small cakes made from a dough prepared by mixing flour and the patient's urine. Right.
+
+[00:03:22] Nice. Just on the beer one that you said, No, hang, no, no. You kind of glossed over. Allowing the flies to eat 77 small cakes. Can't be any insects. Oh, fine, okay. Do you have to open a tiny Greggs for them,
+
+[00:03:40] which says we have urine cakes inside? Can I just say, for the people at Greggs, I'm sure you don't sell urine cakes. They've never... They're never sponsoring us, James. We can say what we like. Actually, cake guy was a guy called Albertus Magnus, wasn't it? who was this guy in the 13th century
+
+[00:03:57] who came with loads of wacky cures and another one of his for malaria was that you could cut a chip off a block that a criminal had been executed on and then rub it all over your body if you were suffering from it. And that scared off the malaria because it reminded it of the penalty
+
+[00:04:11] for being evil. It reminded the evil malaria that maybe it'll be hanged one day if it doesn't go away. And that's where we get the phrase a chip off the old block on which a criminal was executed. Exactly.
+
+[00:04:24] Yes. I've got a real cure for malaria. Okay. Viagra can fight malaria. Did you know this? Yeah. So, okay, the malaria parasite, it gets into your body, and it goes into red blood cells for a while.
+
+[00:04:38] It spends a while in there in your bone marrow, and the spleen's job is to filter out, you know, old or dead or stiff red blood cells. And so the malaria normally, sneakily passes through. However, and that means it spreads through the blood. However, if a patient takes Viagra, the infected blood cells themselves stiffen up. It literally makes your blood cells go stiff. We all know that about Viagra.
+
+[00:05:08] I knew that it made other things go stiff. I just didn't know that it made the actual blood cells in your body go stiff. I think it's true. If you dilute Viagra and put it in a plant pot, it makes the plant go stiff. Get away. It's true. I didn't know individual cells getting individual little erections. Exactly.
+
+[00:05:24] But it does. It will present the mosquito. with a big target as well to go for. How come when you eat Viagra then it doesn't make your tongue stiff? I think that no in fairness that's quite a good point I mean it's a great point. How come basically
+
+[00:05:39] anyone who's taken Vagra the whole body just isn't completely stalled? I don't know. Walking in is a starfish all right I'm ready! But starfish have got five limbs and you've only got... Oh no yeah. Anyway.
+
+[00:06:04] Dr Butler There was a famous doctor called Dr. Butler And his way of treating malaria Was by dropping people through a trapdoor on London Bridge Into the Polluted River Thames There used to be a trapdoor in London Bridge I mean that's I didn't think of that
+
+[00:06:21] But yeah that is weird isn't it? Wow So would he have to lure them onto the trap door Would they know they're going to be dropped Through the trap door Or does he say pay me the money And I'll show you where the cure is Yeah
+
+[00:06:33] It's just over here I think he... It's a really good question. I really don't know. Because this guy wasn't great. He had a habit of treating epilepsy by firing a gun beside the victim's head. Whoa.
+
+[00:06:45] He was the position to James I first. So he was like, you know, he's a real deal. Well, no, he wasn't the real deal, but... Yeah. But you say that like James I first, who famously lived for 700 years. How did he die? 26, malaria.
+
+[00:06:58] Hey, do you know the oldest example of malaria that we found in a human that we have now? No. It's Tutankhamun. Is it? Yeah. They've recently discovered a few years ago now that Tutankhamun actually had types of, not even one type, a few types of malaria inside him and that would have contributed to his immune system
+
+[00:07:19] going down. So they don't think it's what killed him, but they think it's what, you know, added to his problems of his feet being bad and whatever it was, we don't actually know what killed him. I think he was possibly crushed by a hippo, but it's possible that the malaria Not back the reflexes. It's possible. It's possible. Everything's possible.
+
+[00:07:40] You know, maybe in the sarcophagus, he was very, very flat. He also had syphilis, didn't he? He had everything Tutankhamun. He was the first try. He had the first socks and sandals, I think, in the world. He just, always on it. In fact, malaria can cure syphilis. So maybe he had malaria to cure his syphilis.
+
+[00:07:59] That's possible. So this is a genuine thing. Yeah, someone won the Nobel Prize for this. This was in 1917. that it was discovered, and it was an Austrian physician called Julius Wagner Jolreg, and he realised that the fever that could be induced by malaria was hot enough to cure syphilis,
+
+[00:08:17] and so yeah, he got the Nobel Prize, and that was used until 1940. If you had syphilis, then you would be infected deliberately with malaria. And don't worry, we've got some gonorrhea for the malaria. And then we've got some dengie fever for the gonorrhea. It's like the old woman who swallowed a fly. That was infected with malaria.
+
+[00:08:36] There's a town, a city in fact in Australia called Townsville, and 7,000 families there have been nannying mosquitoes recently. This is within the last year or two. So they've all hosted a tub of mosquito eggs in their backyard, and they've watered them and kept them nice and cool and moist and nurtured them because those mosquitoes have all been infected with a bacteria, which means they're less able to transmit Dengi and Zika viruses. Oh, are they the ones where you're going to try and get
+
+[00:09:06] them to mate with the other mosquitoes. Exactly. Yeah. Oh, really? So they're breeding millions and millions. And everyone in the town has agreed to it. They said, yeah, great. Bring on the good mosquitoes. That is good. Yeah. It's a rubbish pet. If you ask for a dog, you've got a thousand mosquitoes.
+
+[00:09:23] You're really pissed off. And it's wrapped up under the tree in the shape of a dog. But in fact, it's a thousand mosquitoes. I mean, you're never going to wrap a dog, are you? Well, people are trying to find malaria vaccines still, and it seems to be habit to infect yourself with malaria to work out what works. But also in the past, people infected other people. So, you know, we often talk about self-experimentation, and it's kind of these heroes who poison themselves so they can work out how to cure themselves. But there was a guy called Dr. Grassy in 1898 who really wanted to work out, or really wanted to prove that malaria was caused by the Anopheles Mosquito, which it is.
+
+[00:10:04] and no one will believe him and so he got a volunteer called Mr. Sola to be locked in a room in a tiny box for 11 days filled with malaria-infected mosquitoes until he got malaria. 11 days? Yeah, it took, yeah.
+
+[00:10:18] I mean, oh wow. And the sad thing is we know that he got malaria because it was a successful experiment so this guy, Dr. Grasie, was thrilled. He was like, now I've proven that the mosquito cures malaria and in his case notes he writes the rest of the history of Mr. Sola's case has no interest for us,
+
+[00:10:33] but it is now certain that mosquitoes carry malaria. So, did not care. Wow. I was looking into the idea of all these old suggestions for how you cure things. So outside of malaria, there's everyone, every single disease seem to have an eccentric thing assigned to it. And one of my favorite ones is if you had swollen eyes, the way that they suggested, doctors suggested that you cure it,
+
+[00:10:57] was that you tied a live crab to a necklace on your chest and you just let it live there and no I mean nobody will notice your swollen eyes ever again you just tie it around your neck and you just have a live crab and that will cure it cool
+
+[00:11:15] I didn't know swollen eyes was really a thing like around the eyes not swollen eyes that was so successful that's why everyone's got normalised we wiped it out yeah yeah I was just saying before about these mosquitoes in Townville
+
+[00:11:31] they're going to send them out to have sex with them the mosquitoes. And I looked into how mosquitoes have sex. And one interesting thing I found is it's the females that bite you. And so what some male mosquitoes will do is they'll find a human and then just hang around the human waiting for females to come. Wow. So like the human is just like a singles bar or something. That's so cool.
+
+[00:11:55] So you might just have a little mosquito flying around you and like, oh, for God's sake. And he's just waiting for a bit of lady mosquito. Wow. It's quite risky them landing on you though Going to that bar is a risky affair Because I didn't realize That's the dating scene
+
+[00:12:08] Well you've got to put yourself out there And they do But the reason they suck our blood Is to feed their eggs So that's why it's only the females But as soon as they've sucked it They're so full they can't move anymore So every time a mosquito is sucking on your blood
+
+[00:12:23] It's risking its own life Because if you spot it and spot it in time And that's why you often can It can't really fly away It's got this giant sack of blood now inside it It's actually really worse for them than it is for you. We're going to have to move on in a second or next fact. Do you want to say something, Andy, or no?
+
+[00:12:39] It's just a follow-on fact from that, really, but it's not relevant enough to end this section. No, no, no. Bring it home, man. Bring it home. Oh, God. It's not good. It's not good. It's just that mosquitoes are victims as much as we are because they're carrying the malaria parasite, but there's a theory that mosquitoes are actually made a bit crazy by having the parasite inside them,
+
+[00:13:01] and it makes them extra keen to suck blood. So they would do it anyway, but the parasite makes them basically like vampire mosquitoes. And the other thing is they get sick, mosquitoes get sick, so it's a bit harsh on them. If they've got this malaria parasite, they're sick. And also, we blame them for kind of spreading it, but mosquitoes don't get on airplanes and fly around and stuff like that.
+
+[00:13:21] Mosquitoes stay near their little place where they live. What happens is humans get bitten, humans go somewhere else, and they get bitten again and make a poor, mosquito sick and then that mosquito gets loads of other people sick. So it's the humans who are doing all the spreading around. The pole mosquitoes are just flying around getting sick and then getting squashed. Ah.
+
+[00:13:39] The real enemy is man. Okay, it is time for fact number two, and that is my fact. My fact this week is that, instead of commissioning new waxworks for their exhibitions, the Bible Walk Museum in Ohio, repurposes discarded wax works from around the world instead. as a result, Abel is played by Prince Charles, King Solomon is played by John Travolta, and Jesus is played by Tom Cruise. And I encourage you to go online and look at these photos,
+
+[00:14:22] because Tom Cruise makes a good-looking Jesus. Is it baby Jesus, like nativity scene in his manger, and then you pull his little rug down, and it's Tom Cruise's face beeping out? Yeah, it's top gun Tom Cruise with the helmet's odd, Yeah, like a Mission Impossible, the way he always pulls off the rubber mask, and it's Tom Cruise underneath. You thought I was the baby Jesus. Well, you were wrong.
+
+[00:14:47] Really good point. Yeah, so this is a very almost famous in America Museum, the Bible Walk Museum. It was started by Pastor Richard Diamond in 1983. He was inspired after he visited another wax museum. Not the greatest origin story. Sort of expected, almost. And he wanted to do it and tell the story of the Bible. but he realized how expensive it was to make new wax work.
+
+[00:15:11] So he thought there's a lot that are closing down all the time. There's a lot that are selling them off at auction. Let's just buy these. And they tend to be celebrities. So, yeah. That's the thing. Like, no one knows what Abel looked like, do they? He might look like Prince Charles.
+
+[00:15:24] I don't know. Yeah, that's true. They gave Prince Charles, when you see that photo, a sort of pudding bowl haircut. So they mess with the hair. They don't leave the head untouched. They still dress them up. And it looks really good.
+
+[00:15:36] And Steve McQueen is there. and George Harrison is there, and Marlon Brando, and Bert Lancaster and Clark Gable. It's, um, yeah. That's an unbelievably cool selection of people you just listed. What a lineup? I don't believe you open with Prince Charles
+
+[00:15:47] and you've got your Clark Gables and your Steve McQueen's. Are they all the wise men? No, they're all just random bit parts. There's no, they've got no starring roles. Surely Jesus is a starring role at a biblically themed walk-through Waxwell Museum. There are also, there are quite a few Jesuses in there
+
+[00:16:03] because it's all of Jesus' life and stuff like that. So at one stage, Prince Philip is being resurrected, Prince Philip. They've got the age of Jesus at resurrection wrong. So do people not mind that? No, they actively love it. And that's the problem that the Bible Walk Museum has is that they don't like people liking that.
+
+[00:16:23] They think it takes away from the story of Jesus. So if you call up, if anyone wants to visit them, don't call up and say, hey, can you give us the celebrity tour? They will not let you into the museum. They actively say, you're not coming now. I think so I'm pretty sure I read that but they don't encourage that at all
+
+[00:16:42] and they do think it takes away I think they want to make up their minds either be so stingy you're going to repurpose tacky old waxworks for your museum or for cow and don't complain about I think if you're going to do it embrace it like they did in fact so
+
+[00:16:56] Madam Two Swords did a nativity thing in 2004 and they deliberately put loads of their Madam Two Swords icons in the nativity and so it had the three wise men were Tony Blair the Duke of Edinburgh again and George Bush so it's all relevant people it was an ironic thing I think
+
+[00:17:15] Joseph and Mary were Posh and Becks but this was really unpopular so people... I was going to say did the Catholics and Christians not like that very much they did not like it at all no the Vatican spokesman in Britain said it was really disrespectful to Christianity and the exhibition actually closed before
+
+[00:17:32] Christmas because someone got in so queued got their ticket, then went straight up to Joseph and Mary and punched them in the face. Oh! Yeah. Wow. Do you know, just speaking of Madam to Swords, do you know what the wax work Tom Daly, the diver,
+
+[00:17:47] has that most other waxworks so anatomically what he has that most other wax works don't have? Well, he's very strong, isn't he? Does he have a six-pack? I'm sure he does. But some others do. But so does Prince Philip, so that's not. I'm just trying to not go for the obvious, basically.
+
+[00:18:04] Does he have a lunch pack? No, no, he doesn't. Lunch box, I think this is what it's called. Are you sure? I'm pretty sure, yeah, yeah. You confused me, I thought you actually meant someone packed a lunch. I don't mean, does he have a packed lunch? No, it's feet.
+
+[00:18:19] He has feet. What, the others don't have feet? Most waxworks just have the shoes, and they have a very good sort of metal inside, almost like what you put a shoehorn into a shoe. So, yeah, Donald Trump's waxwork, for example, definitely no feet. It's just his shoes. Most of them, I think, you can get by just with head and hands.
+
+[00:18:38] So after they finished with... So, for example, what happened to David Cameron after he stopped being Prime Minister was, his Madam Two Swords wax work, was decapitated and had its hands chopped off, and they were kept in storage because... Oh! Some applause.
+
+[00:18:54] I don't think we're in that divided a country yet. So they never... The thing is, they never melt anyone down. melt down a head or hands because those are the most difficult fiddly and the most personal bits to do. Yeah, so it's kind of cheating. They're not making wax models. They're just making hands and a head. Wax heads. There is
+
+[00:19:13] an amazing book about Madam Two Swords, which is by Pamela Pilbeam, and I read a bit of it. In the 19th century, Madame Two Swords had a live orchestra playing as you walked around, and it was a really classy thing to do. You could touch anyone you liked. Do you mean the models?
+
+[00:19:31] Because it's going to put off the violinist, isn't it? Fondle the orchestra You're still allowed to touch them on you I think that's the whole point Are you? I think so I don't know, I haven't been for years When I used to go you weren't allowed to touch them But I think more recently they've allowed you
+
+[00:19:47] To kind of put your arms around them and take selfies and stuff Yeah I think we've mentioned before That they know that Brad Pitt is the most groped Of the wax works at Madam Two Swords Yeah How do they know? They have someone watching No, the reason they know is because it's the one that they need to replace most often
+
+[00:20:04] because people keep touching it, so it keeps needs, like, their trousers need replacing and stuff like that. Oh, well, well. Like I say, I haven't been for years. Because I'm banned. But Tom Hardy, for instance, the Tom Hardy model at Two Swords,
+
+[00:20:23] he has a beating heart and a soft, warm torso. What? So, like, if you weren't allowed to touch him, there'd be no point having that, would they? Yeah. Is it actually Tom Hardy? Because he is very still in a lot of his shows anyway, isn't he?
+
+[00:20:37] He's just had a lot of Viagra and it's stiffened him up. Arnold Schwarzenegger actually did that. Arnold Schwarzenegger, there was some thing he was promoting. And for a stunt, he just stood in Madison's dressed up like The Terminator, you know, with the sort of metal showing through and injured, and then he would move and freak people out. Some of the religious kind of things that you can go and see. Yeah.
+
+[00:21:01] The world's largest wooden construction, so the largest wooden construction in the whole world is Noah's Ark. Wow. And it's a Noah's Ark in America. It's called the Ark Encounter. And it fits over 16,000 people simultaneously inside it. But they're only supposed to be two, I thought. What of space.
+
+[00:21:23] They have a load of space. Well, actually, there were a few more humans on Noah's Ark, wasn't it? So there was Noah and his wife and Noah's his sons. So there was Shem. Ham. And the third one who has the more complicated name. Wait, someone knows it? Jedwood.
+
+[00:21:41] That was two by two as well, Jedward, wasn't it? I'm sorry, I heard Jedward because apparently in the Dublin Wax Museum, you can have a Jedward made, and they're on a two-for-one deal. Who was it again? J-Peg. J-PEG. Okay. So it was J-Pham and J-PEG.
+
+[00:22:03] The amazing thing is that this massive Noah's Ark was made by a guy called Ken Ham. Wow. Which is the same name as someone on Noah's Ark. He's quite famous in America as being an extremely pious, Catholic, anti-evolutionary kind of guy. And Bill Nye, the science guy, he went to see this Noah's Ark. And he said on the third deck of the Ark, every single science exhibit is absolutely wrong. Not just misleading, but wrong. so yeah it's completely
+
+[00:22:34] Ben Ham by the way is trying to this year and last year trying to put the Jesus back into Halloween he's suggesting that people should go reverse trick or treating where you bring a basket of goodies to bless your neighbours and what if they don't want one
+
+[00:22:49] you have to do something nice to them I suppose so well good luck with that Mr Ham did you know that baby Jesus theft has its own Wikipedia page. And there's so much on it? It's jam-packed to the rafters.
+
+[00:23:07] Yeah, so Jesus is always getting stolen at Christmas as it happens. And then there's this list that always getting Nick from nativity scenes. Marilyn Manson once stole a whole bunch of them. He admitted later he stole a whole bunch of Jesus and actually, oddly, replaced them with hams. So maybe that was a tribute to Ken.
+
+[00:23:26] Wow. I was thinking Marilyn Manson, did he not have a song called Personal Jesus? Did he? Yeah, he did, didn't he? So he's just going, that's my personal Jesus, my personal Jesus, my personal Jesus. And actually, this is related to what you said earlier. I read a quote from a historian of Baby Jesus thefts, who he may have other strings to his boat, who's called Daniel Sillyman.
+
+[00:23:50] Genuinely, sorry, Sillyman. What's your very serious paper about this time? Anyway, he said, baby Jesus thieves literally. take the Christ out of Christmas. Oh. Which I think is worth reflecting on. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that a giraffe with breathing problems can be treated by using a leaf blower.
+
+[00:24:21] Is it on suck or blow? I think it's on blow. Oh, they're always on blow, aren't they? Leaf blowers, generally. Yeah, yeah, yeah. Otherwise, they'd be leaf sun. Suckers. My leaf blower sucks.
+
+[00:24:37] So, Andy was the only person in the room who found that funny, which... So, so... So this is a 2007 paper by Sittano et al.
+
+[00:24:51] And what the thing... And what did Al contribute to proceedings? And what happened was they had to anesthetize a giraffe, but as anesthetized in it, it meant that it had trouble breathing, and they managed to...
+
+[00:25:05] fix it by getting a gas-powered leaf blower and then attaching it to a few other parts and managed to artificially ventilate this giraffe. By blowing it into its mouth? Through its tracheer and into its lungs. Wow. Cool. Wow. And got all the leaves out of its insight. Yeah, it woke up. It's like, is anyone else hungry? The thing I've always find weird about giraffes is that I think we've done this on QI years ago,
+
+[00:25:31] is that when they were first spotted by the Romans, they called, than the camel leopard. So someone saw a giraffe and thought, what's the striking thing about this? Well, it looks like it crossed me in a camel and a leopard. And in fact, he noted, this animal is like a camel in all respect, except that its legs are not at the same length.
+
+[00:25:55] The skin is spotted like a leopard. I mean, what about the neck makes? Is it someone who wasn't looking up? You know, it was only until recently that we found out there was more than one giraffe. That was a... You mean more than one species of giraffe? Yeah.
+
+[00:26:09] Because actually, they were all stood in a line and you could only see the one right next to you. No, yeah, I mean, there was more than one species. So we thought up until now that it was just giraffe and there was subspecies within giraffe, but now there's four. Wow. And there's always been, but we've just suddenly been like, whoa, there's three more.
+
+[00:26:28] So there's a thing about their nerves, and it's a really annoying thing for them. It doesn't affect them too much, but so most vertebrates we have these things called laryngeal nerves and they help to send signals to all the organs in your body and in all mammals they branch off the vagus nerve, that's how it's pronounced?
+
+[00:26:46] Vegas nerve Oh, that's good to know because we mentioned that in this next episode that's going out. And you're not going to like how we say it. So they branch off the vagus nerve and then one of them loops under the aorta and then back to the, is it larynx? So then it loops back to the larynx, and it's a bit awkward,
+
+[00:27:14] but it's only a few inches longer in almost all mammals. Unfortunately, in giraffes, they've got these really long necks, so the nerve has to go on this massive detour all the way down. So in humans, it's six inches long, or it should only be about six inches long for giraffes, but in giraffes, it's 15 feet long, because it has to go all the way down the neck and then back up. Wow.
+
+[00:27:32] Wait, and that's the nerve? That's the nerve, yeah. So does that mean if you slap a giraffe on the chest, then it won't feel it for ages? Well, actually, that is kind of true. So this is not the vagus nerve, but one of the other nerves. So it takes a rat 4.5 milliseconds to respond to stimuli. If you stand on a rat's foot, it would take that long. But a giraffe, it takes them 100 milliseconds to sense and respond to something.
+
+[00:27:56] So, like, if you stamp on a giraffe's foot, it would take what, I don't know, 25 times longer. Wow. So it'd be very dangerous drivers, wouldn't they? very slow reactions and also you'd have to cut a hole in top of your car I think the first giraffe that came over here the really famous giraffe that came to Britain
+
+[00:28:17] in 1827 I think it was came apparently in a boat where they had to have a hole drilled in the deck of the boat so that it could travel but it wasn't that to France wasn't it there was three and they were given by the viceroy of Egypt weren't they and it was sort of like dealing cards
+
+[00:28:33] he gave three giraffes one, one, to Britain, one to France, and one to Austria. And bizarrely, they were transported from Egypt over to Western Europe on the backs of camels. Yeah. What? They were strapped to camels. They were small when they started. They were young giraffes
+
+[00:28:50] when they were started. So for the first stage, they were put in a camel. So how long was the trip, though? That's a long trip. It's so long. It took two and a half years to get them from Sudan to... No wonder. So they tricked the camel to begin with by going, this guy's tiny, he'll be fine. One year in, this guy's, what the fuck is this? This guy's just like me, but with slightly longer legs. It was amazing, though.
+
+[00:29:18] So the one that went to France was called Zarafa, and Zaraffa had three nannies who were all cows. Yes. Because he needed six gallons of milk every day to keep growing. Wow. So these cows all went along for the ride as well. So wet nurse nannies rather than, it wasn't nannies who played with him with rattles and stuff.
+
+[00:29:37] stuff. No. They suckled at the cow's teat. They must have had a massive identity crisis by the time they arrived. How do you suckle at the cow's teat?
+
+[00:29:45] If you're a giraffe, how do you suck a lot of cow's teat? Is it a cow really, really high and stilts or something? The cow is on the back of a huge donkey. Yeah, maybe they put a cow on stilts, I don't know. It sounded like a lot of effort to go to, but they
+
+[00:29:59] suckled the cows. Wow. Yeah. We think that we thought until recently that giraffs were loners, and now apparently it turns out they just see each other from further away. And they, genuinely...
+
+[00:30:11] But they couldn't talk to each other from that distance, could they? They can communicate from a fair... I think from about 100 feet away. They can... Because they have infrasound and stuff, do they? I think they can hum at volumes that we can't... Well, no, they've been... Yeah, we've been, for centuries, I've been trying to work out
+
+[00:30:27] how they communicate through voice, because they don't really hear giraffs communicating. So they think, how's it done? And in zoos, they did a study to see whether or not they could capture them talking to each other and the conclusion is that they have found them talking to each other at night and it is through, as you say, hums. So they hear these hums and they're done in different patterns and so on so they think they're talking to each other. There's a slight thought that it could also be them snoring. They're not sure because it's curious that they do it only at night. Maybe it's one of them
+
+[00:30:57] snoring and the other one's saying, can you just turn over please? That's it. Do you know the weirdest thing about girasses, of all quadrupeds, they're the only known ones that can't swim naturally. So every single four-legged animal you've ever seen is a natural swimmer. And so not like we are, we have to learn to swim. If you drop a baby in the water, it will sink. Same with an ape, which actually they did, I think, in the early 20th century. They retrieved them, but they dropped lots of monkeys into water. Watch them for a while and they all flailed and then sank quite quickly. Then they got them out again. Do any live by the ocean, as in I'm just wondering
+
+[00:31:35] if they live inland, it's only lakes, they're probably tall enough they've never had to learn to swim because they're next route. Maybe. Crossing a river, you can just walk across the river bed, can't you? Well, you don't know until you try. As in you don't know that a giraffe can't tell the depth of a river by just looking at it.
+
+[00:31:51] They'll come a point where you're walking into the river and you think, this is fine, this is not fine. Yeah, yeah. But then you're the exciting explorer, and then the rest are going, all right, Mike didn't make it, let's find another way. We're going to have to move on shortly. Just quickly, I found a fact about leaf blowers and animals.
+
+[00:32:12] So your fact was a giraffe with breathing problems can be treated using a leaf blower. I have to admit, and this is genuinely true, right until you said it tonight, I misread it. I thought you said a giraffe with breathing problems can be used as a leaf blower. Honestly, as you read it tonight. They're the one giraffes that can't be used
+
+[00:32:30] to blow leaves. I thought that's what it was. So I looked into other animals that can be used as a leaf blower. I think we do need to interrogate for a second how you thought a giraffe was going to be used as a leaf blower? Was it like when you play wheelbarrow at school in races,
+
+[00:32:48] you hold its legs and put its nose to the ground? Yeah, I don't know, because the only... I thought it was a bit of a cruel fact, to you to be honest. Because I thought they must have this sort of push with a break in between because it's like a wheeze and they probably lean over because it's hurting. So they're going, and they're like, wow, this is really effective in zoos, let's walk the giraffe around
+
+[00:33:06] with the breathing problems and let's clean this place up. Anyway, so elephants also use their trunks as a makeshift leaf blower, as it were. Don't say also. So elephants, they have this thing where if they're in vicinity
+
+[00:33:27] of inaccessible food because a bit's too tight for them to get to the food, what they do is they blow at the food if there's some sort of tree or wall, let's say, that's in the way, and it bounces the food off it and back towards them, and that's how they can get their food.
+
+[00:33:42] And this is something we've been observing about elephants for a very long time. In fact, in the descent of man by Charles Darwin, he writes about the leaf blowing that wasn't invented then, so way ahead of his time, Charles Darwin. It's interesting because it's a bit like them using tools, isn't it? Because they've basically solved a problem to be able to get food closer to them, which I think is really cool. Yeah, it's really amazing.
+
+[00:34:02] I was looking at a few other weird things that vets had done. Oh, yeah. Just this one thing I found which I really liked It's not quite that, but there was a spiny anteater called Matilda who had inflamed skin, bold patches and bulging puffy eyes and it turned out that she was
+
+[00:34:19] allergic to ants. Wow! She was an anteater allergic to ants. Oh no. She had puffy eyes? Puffy eyes, yeah. They should have just put a live crab around her neck. Problem solved. They made a vaccine for her, that's it.
+
+[00:34:37] Oh, okay. Okay, time for our final fact of the show, and that is Andy. My fact is that when 3,000 British teenagers were surveyed in 2008, 20% said that they thought Winston Churchill was a fictional character. They can all vote now, can they? Yep. So, and this is just sort of, you know, things that get thrown up by opinion polls. So the same poll found that 27% thought that Florence Nightingale had never existed,
+
+[00:35:08] and that 47% thought that Richard the Lionheart was fictional, which I can kind of understand, because that sounds like a... Yeah, it sounds madey up. Richard the Lionheart, yeah, sure. But 47% thought that Eleanor Rigby was real. So... Wasn't there was a real one, wasn't it? Yeah, I mean, in a way she was because Paul McCartney did see the name Eleanor Rigby on a tombstone.
+
+[00:35:29] He didn't know her or her story, but there was well. 47% of British teenagers in 2008 knew that Beatles' arcane anecdote. It was a month later they did another survey, and one in three primary school pupils thought that he was the first man to walk on the moon, Winston Churchill. Cool. I think a lot of these things,
+
+[00:35:48] it must be like they just give you a name of a person, they go real or not real, and you just go, I don't know. Especially at primary school, you don't care what you're crossing, you're just excited someone's giving you a felt tip. But so, just bringing up Moon, it's not as if they think he's fictional, as in it's a conspiracy that he was invented as an idea,
+
+[00:36:08] Because you know there was all that stuff about the fact that we will fight them on the beaches was said by someone else, a voice actor. Which is not true, I don't think, but there was an idea that he had never done. It is true. It was a voice actor. The famous recording that we have, or many of the famous recordings that we have, in fact, of Winston Churchill, I think we're recorded after the war. Churchill himself did a few in a studio, but there are broadcasts which were done by a voice actor. Okay, right. You know, he has been a fictional character in some respects.
+
+[00:36:35] I went on to Comic Vine website. and found that there's 164 comic books with Winston Churchill as a character in them. Wow. He's been in Star Trek, comic, Eagle, Justice League, Superboy, Captain America, Green Lantern, and Santa Claus versus the Nazis. They're the main ones?
+
+[00:36:56] He wasn't very good in studies. I mean, I know it's a thing that's often said about Churchill, but I do think it's quite reassuring when you realize how bad he was at school. So he failed basically everything that he didn't like except history in English. He failed his entrance exam to university twice or to the Royal Military College,
+
+[00:37:11] which I don't think was that hard to get into. But he failed that twice. He failed everything except history and English. Oh, he did it very badly in it. Yeah. Okay, but history and English were his two best ones. I think so, yeah. And then later on, he won the Nobel Prize for Literature
+
+[00:37:24] and Defeated Nazis. History and English. So what we're saying, kids, is specialize. Yeah. If you know good of French, fuck it. Is that... Is that what we're saying?
+
+[00:37:44] We are that divide in the country after all. You know, in Roosevelt, FDR, first met him. He first met him in 1918, so that would have been just after he'd come out from fighting the First World War, and they were on a diplomatic mission. And he met Churchill as a soldier and called him a stinker, hated him.
+
+[00:38:03] So they obviously became really close in the Second World War, but the only thing he said about Winston Churchill was, what a stinker? What does stinker mean in that? Does it mean just a bad person? Or, like, actually smell? Oh, really?
+
+[00:38:13] You're a stinker, you know, like in a playground. If you call someone a stinker, then... I know that only too well. Oh. So Churchill first became famous in the Boer War as a reporter, didn't he? But then as a correspondent, he got captured, and he had to escape, and then the tales of his escape became really, really famous. But when he did escape, they raised the alarm,
+
+[00:38:40] and they gave a description of him so they could find him. And they said, Escaped Prisoner of War Winston Spencer Churchill, Englishman, 25 years old, about 5 foot 8 inches tall, medium build, walks with a slight stoop,
+
+[00:38:54] pale features, reddish brown hair, almost invisible small mustache, speaks through his nose, cannot pronounce the letter S, and cannot speak one word of Dutch. Wow. Wow. And that's your great Winston Churchill.
+
+[00:39:08] Wow. Almost invisible small mustache. Wait, you there, stop. No, that's too visible, a small moustache. You're free to go. That was Hitler, wasn't it? And that result? Can I tell you just a really quick Churchill thing
+
+[00:39:27] is quite tangentially related? But this was actually one of our researchers sent me the book with us in the other day. And it's that Winston Churchill had a son-in-law, Duncan Sandis, who was a minister for a brief time in the 60s. And basically, Winston Churchill's son-in-law was forced by Harold McMillan's government to go to the doctor to have his penis
+
+[00:39:48] compared to a penis in a salacious photo to prove that it wasn't the same penis. And it's just such a good story. So there was this huge ruckus in the early 60s because someone was caught having a blow job given to them by a duchess and their head wasn't in the picture so you could only see the nether regions
+
+[00:40:06] and it was going to be this huge scandal and everyone said it's this guy, it's the Minister of Defence, Duncan Sandis. And so he eventually had to go, he was made to go to Harley Street by the government with this photo in one hand and this Willie in the other how did he ring the bell
+
+[00:40:22] anyway they confirmed it wasn't the same penis we should talk as well about surveys because surveys they always bring up the weirdest of revelations about what people think around the world I really like that there was a survey done about what we think sci-fi things are real
+
+[00:40:48] and not real that we hear about. So, for example, over a fifth of adults, and this was in Birmingham did this as a survey, over a fifth of adults incorrectly believe that lightsabers exist as a real thing. Nearly a quarter, 24% of people believe that humans can be teleported. That's quite cool.
+
+[00:41:09] 40% believe that hoverboards exist. I think they did invent a hoverboard. I thought they invented the world's first hoverboard a couple of years ago. They also had those really, rubbish kind of things on two wheels that like a segue without the stick and they were called hoverbods. Maybe I'm thinking of that.
+
+[00:41:25] They did invent when I think it might have been a bit rubbish. 11% of teenagers think that fruit pastels counts as one of your five a day. Which colour? Any colour? Any colour. They're all fruit. They're all fruit. There's not fruit and meat pastels, are they? Although I've just had an amazing idea.
+
+[00:41:48] Well, 11.5 tubes of fruit pastels would give you about as much vitamin C as a piece of fruit. So, UGov do, obviously, loads and loads and loads of poles, and they build up these huge, you know, crunching amounts of data based on, you know, just they pick one thing that people divide into, like right-handed or left-handed, and then they can find out massive amounts about the tendencies. So the UGov surveys have found, and they've sort of crunched a load of numbers together, that a quarter of leave voters, like their stakes well done, but only 12% of remain voters like that.
+
+[00:42:18] their stakes well done. More leave voters than remain voters think that Doctor Who votes conservative. Remain voters think you'd probably vote green. She. Oh! Thanks a bunch, James. I've got up to Chris Eccleston. Well, get ready to be angry.
+
+[00:42:49] I found this amazing. There was a survey done last year that found 35% of French people cannot name the French Prime Minister. What? Which, I mean, can you? No. The French Prime Minister?
+
+[00:43:04] The President is Macron? Yes, indeed. Is that worth a half point? You don't get bonus points for naming Macron. This is the worst pub quiz I've ever been to. So who is it? It's a guy called Edouard Philippe. I have to say, I'd never heard of him.
+
+[00:43:17] I could have guessed that. I would have said two random French names. It got pretty close. Incredible. More than a third. I don't know their own prime minister is. Apparently on the survey, a lot of people put Gerard Philippe, who I think is an actor, or Louis Philippe,
+
+[00:43:31] who's obviously an early French king. But, yeah, they don't know their PM. And I think probably Britain might be in the same position at this stage. But, yeah. By the time this goes out next week. There was a survey done in America about the cloud, or cloud computing putting up in the cloud, and 51% of the Americans answered to the survey
+
+[00:43:52] said that they thought that if it was a stormy weather situation, outside that would affect them getting access to their cloud information. It's fair enough. There was a tech poll a few years ago where 11% of people believe that HTML was a sexually transmitted disease. That was a
+
+[00:44:10] survey, a study that was looking into how many people understood techie sounding words. So as well as that... How many people thought that JPEG was a character in the Bible? So as well as HTML is sexually transmitted disease. They found that 27% of the people doing it
+
+[00:44:33] thought Gigabyte was an insect commonly found in South America 18% thought Blu-ray was a marine animal and 23% thought MP3 was a Star Wars robot To be fair, in five years time no one's gonna know what an MP3 is
+
+[00:44:51] and almost no one now knows what a Blu-ray was so they were just ahead of their time Oh, thanks, I just put all of Doctor Who on Blu on Blu-ray. All right guys, we need to wrap up. Okay, that's is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found
+
+[00:45:09] on our Twitter accounts. I'm on at Shreiberland, Andy, at Andrew Hunter M. James. At James Harkin. And Chazinski. You can email podcast at QI.com. Yeah, or you can go to our group account, which is at no such thing. Or you can go to our Facebook page, No Such Thing as a Fish, or our website, no such thing as a fish.com. We got everything up there from upcoming tour dates to our book, a link to buy it to everything. It's got all the previous episodes. And Before we wrap up, we're going to very quickly read out the winner of tonight's prequel book. Wow. So, James, you've picked a winner.
+
+[00:45:40] Okay, yes. So this fact is from Becky, whose friend Chris Lemon has a birthday today. Happy birthday. Happy birthday, Chris, if you're here. Thank you. Well, Becky's fact is that in 1974, a research scientist, Dr. Summerlin, announced that he had successfully transplanted skin from a black, mouse onto a white mouse. It was later discovered that he had actually
+
+[00:46:07] coloured the white mouse in with a black pen. That's an amazing fact. Okay, guys, we're going to be outside signing these books if you want one. Thank you so much for being here. We really appreciate it. We'll be back again next week. Goodbye.

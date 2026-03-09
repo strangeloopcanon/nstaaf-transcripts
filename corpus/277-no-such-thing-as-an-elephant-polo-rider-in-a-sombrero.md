@@ -1,0 +1,207 @@
+# No Such Thing As A Fish - 277: No Such Thing As An Elephant Polo Rider In A Sombrero
+
+- Episode date: July 12, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/277-no-such-thing-as-an-elephant-polo-rider-in-a-sombrero
+- Slug: 277-no-such-thing-as-an-elephant-polo-rider-in-a-sombrero
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Stockholm! My name is Dan Schreiber and I am sitting here with Anna Tysinski, Andrew Hunter Murray and James Harkin and once again we have gathered around the microphones with our four favorite facts from the last seven days and in no particular order here we go. Starting with you, Andy. My fact is that Sweden has more than 4,000 cyborgs. This will be a thing that I'm sure a lot of you know about. Are there any cyborgs in tonight?
+
+[00:01:04] Oh my, really? All 4,000. Genuinely? Yes, there's one over there. With your massive metal hand you just put in the air. What have you got? A chip implant. So you have a chip implant in your hand, an RFID chip implant.
+
+[00:01:24] Cool. I need to trash a lot of the abusive stuff in my hand. That's so cool. Wow, so we've got cyborgs in the audience. This is a different gig to any gig we've ever done before. So this is it. Sweden is going cashless. A fifth of people in Sweden don't use ATMs anymore and so more than 4,000 people in the country have these little microchips and it lets them pay for rail travel and for food and official rail firms register your hands and you can just pay with your hand.
+
+[00:01:58] And you can order DIY kits and sometimes people do it at parties. They have implant parties. It's chip and beer parties they're called. Fish and chips party. I don't know if that happens. I just made that one up. If it doesn't, please start it. You, cyborg, get on it. It's been around for a while, hasn't it? People have been trying to make this catch on and it feels like it is happening.
+
+[00:02:24] So I think there was a girl called Left Anonym and I can't remember where she was from but this is in about 2010 and she realized that a lot of the technology that people were advertising to have sort of implanted was quite expensive because of the underquid and so she was one of the pioneers of sort of biohacking yourself and she just started inserting random things under her skin. At one point she said she inserted some device that she sort of made using a vegetable peeler and vodka to sterilize herself. Wow.
+
+[00:02:55] But now she's quite famous. Sorry, she didn't put a vegetable peeler inside her body. Because it wouldn't work if it's inside your skin. No, you wouldn't be able to peel anything with that. The first thing that's peeling is your own skin. No, I guess she opened up her skin with a vegetable peeler and then inserted a little techie device. Wow.
+
+[00:03:15] Well, look, desperate times. That's amazing. I almost became a cyborg myself, did you? Yeah, back in England I did a TV thing where I was talking about cyborgs and they said would you be up for having the rice-sized little RFID chip implanted in my hand. And I said yes and I went there and the guy came and he had it with him and I got a call from my wife and she said if you become a robot man you are not coming home tonight.
+
+[00:03:41] Yeah, but you could just bash down the door probably. I imagine. So I had to fake the thing so I still got the injection. It's a big scary injection. It's like a straw and it goes in between your forefinger and your thumb and I had it pushed right in and I still have a scar from where I should be a cyborg. Okay, so what you're saying is your wife said you couldn't do it. You still have a scar but you really didn't do it.
+
+[00:04:12] And what powers was it going to give you? You can get on a bus and tap it like a Jedi and it will just go... But it doesn't work in the UK, does it? It wasn't work in the UK. It's not officially recognised in the UK. I think if you cut out the whole chip from an oyster card it might... Yes, it does. There was a guy who took out the chip from an oyster card.
+
+[00:04:31] He didn't put it in his body but he put it on the top of a wand and he dressed like a wizard. So, yeah. He used to walk up to the oyster and go... Wingardian Openiosa! But there are lots of risks. It can't go wrong. So obviously it's very safe to do but there are risks with the human factor. So this last November a writer for the website Vice, he got an implant and he wrote it up.
+
+[00:04:58] And one of the first things you have to do with the one he had, you have to secure it with a pin number. Unfortunately, he was at a party at the time and he said... He woke up the next day, hung over and he couldn't remember the pin number for his own hand. But luckily he had it tattooed on his other hand. That is amazing. But actually some people think that it is the mark of the beast to have these things. You know from the Bible the idea that there's a mark which tells you if you're the devil or something. And apparently the passage in Revelation 13.15 says...
+
+[00:05:49] And that's kind of the idea that these people want us to have everyone to have these things and you will be able to buy things without it. But what Satan's come to earth to do is make sure we can get a free bus ride with our fingers. And also... He's got to start small. Also I haven't seen evidence of anyone paying with their forehead. I mean you'd feel pretty stupid. Well that's why I was reading an FAQ by someone called Kyla Heffernan. Because this person was talking about a...
+
+[00:06:18] It was a company that was getting the people to have these chips. And one of the questions was do you have to lose your hand if you lose your job? Which the answer is no. But then she also said to this thing about Revelation it says it's in your right hand or your forehead. But she says that actually many people get the microchip in the non-dominant hand. So it can't be to do with the devil. Well I'm glad we finally cleared up whether or not it's the mark of the beast. You do get some hacks in the head though.
+
+[00:06:48] There's one of the... Another sort of pioneer of this biohacking is a guy called Neil Harbison. And his device is mostly in his head. And it's actually quite useful. So sometimes these things can correct problems that people have. And so he has acromatopsia which is like extreme color blindness. He can't see color at all. He sees everything in grayscale.
+
+[00:07:08] And so he's had this antenna sort of implanted and then it kind of comes over his head. So it looks like he's wearing one of those big reading lights or something. It's called an eye borg. And it's mounted into his... Very clever, yeah. It's mounted into his skull. And basically it receives signals from the visible and the infrared light spectrums. And then it translates them into sounds that he can hear.
+
+[00:07:31] And so then he can... Because he's an artist so he needs to be able to paint in the right colors. And so he can match up the colors that he's got labeled with the exact colors that are around him. And it's very cool. And he also says that seeing in grayscale is more of a gift than a curse. Because you see much better at night, apparently. So he sees better at night. He has a good memory for shapes.
+
+[00:07:51] And they're very useful in the military, he claims. Because they don't get fooled by camouflage. So they actually get employed sometimes in the military to be able to detect stuff. Because you can't... You're not fooled by camouflage if you're not seeing color. Because you can't see that green leafy colored thing. Looks a lot like all the other leaves. But surely absolutely everything looks like absolutely everything else.
+
+[00:08:16] I don't know if I trust Neil at all, but that's his claim. There are smart gravestones these days. So in Johannesburg, sometimes thieves will steal slabs of marble. Because they can be very valuable. So these days the smart graves, they have a microchip in them. And if someone tampers with the smart grave, it sets off an alarm. It calls security and it texts the relatives of the deceased. I think I would just make it go...
+
+[00:08:49] Get off my gravestone! You can't text the robber. That only works if the relatives have turned up. Or you mean as soon as it gets tampered with. That's even better. That's even better. It couldn't be that hard to rig up just a single hand about a foot below the soil to just go... That is a brilliant idea.
+
+[00:09:18] So good. Although it's going to freak you out every time you visit your grandma's grave. Oh God, I knew I shouldn't have stepped on that bit. It's very hard to put a microchip of this kind into a starfish, bizarrely. And are they crying out for this biohacking as well? That's why you never see a starfish on the train. It's because it doesn't have the chip, very sad. That's because you can't get the oyster in there, is that what...
+
+[00:09:50] No, so this was in... It was in a university in southern Denmark and they put a microchip inside a starfish and they came back to the tank a few days later and it was laying there at the bottom of the tank. And they thought, that's so weird, it's expelled the chip from... How did this happen? So they put chips into 53 other of these starfish to see what would happen and they monitored it and they noticed that it took days but it just moved it slowly out the body but not through the point of entry
+
+[00:10:17] which is the most obvious place for it to go back out. It went almost in the opposite direction and it would move 10% of the distance from where it was put in every day to be expelled and it has no problems doing it, no pain as far as they can tell. Maybe they thought the people who put it in were guarding the entrance. Gotta go out the back. I have a really quick fact about microchips and about the inventions of microchips so this is a fact from The Times newspaper and it's about transistors,
+
+[00:10:45] the tiny switches that you get on microchips. So they used to be able to get thousands on, then you could get millions. These days you can get 30 billion switches on an area of microchip the size of a fingernail, 30 billion. So this is the fact from The Times because transistors have had to get a lot smaller over the years for this to be possible. The fact is if a house had shrunk at the same pace that transistors have you would not be able to see the house without a microscope.
+
+[00:11:14] That's how much they've shrunk over the years. And that is actually a lot like the most expensive flats in London these days. One tiny thing I wanted to say about biohacking is that it really serves a purpose for people who have had certain problems as I said before and it serves a particular purpose if you've had legs amputated or arms amputated and you have prostheses and this kind of smart technology means that they can be really advanced. So I was looking at some people who've had smart technology implants like that
+
+[00:11:46] and there's a personal trainer called Jack Ez and he was talking about the different prosthetic legs he has so there are these companies which provide prosthetics for every occasion so you can buy a whole bunch and he said I've got my water leg that I wakeboard in I've got my sports leg which is just a roughy-toughy smash it up and it won't break he said he's got an electric leg which is just for walking but you don't really run in it I've got a spare mechanical leg and then there's a pause
+
+[00:12:12] and then he says of course I've got my most important leg I've got my wooden pirates leg. Okay it is time for fact number two and that is James. Okay my fact this week is that Queen Elizabeth the First's ladies in waiting would try on her underwear every morning to make sure it hadn't been poisoned. What a quick thinking excuse from that maid when the Queen came in. I wish I thought of that when my wife called me that time. That didn't happen.
+
+[00:12:52] But how would that work? How long would they have to wear the underpants for before they knew? Ah good question so first of all it's quite controversial what kind of underwear Queen Elizabeth wore because it wasn't very common that women would wear underwear in those days especially not very wealthy women but we do know we we know according to her accounts that she did have some draws or you know knickers but she definitely had stockings she definitely had corsets
+
+[00:13:19] and in 1560 there was her secretary of state who was called William Cecil she was worried that the Catholics were coming to poison her and he realised that the back doors of the chambers were kind of places where servants came in and out and no one really paid attention to the laundresses and to the tailors and the wardrobes so he thought this was a perfect way that someone would be able to poison her and so they decided that they were going to do this and so the ladies in waiting would try on the royal underpants
+
+[00:13:46] and they would wait to see if there was any burning sensation. They didn't know about Thrush back then so... That would be the worst thing wouldn't it? You know if they had Thrush and then just someone gets executed. Some laundress. Actually I always think that with food tasters. Well if you get your food taster who's allergic to peanuts or something. Well this was the weird thing.
+
+[00:14:12] The food tasters they went way further than we would think of a food taster now just trying it a bit so they would sometimes kiss and lick the plates and the cups and the cutlery of the king. All his cutlery was pre-licked. All his plates, everything. Apparently they would have to go kissing everything. They had to kiss the tablecloth, the seat, the cushion on the seat, everything. So I think yeah, Louis XIV employed 324 people specifically for that didn't he?
+
+[00:14:41] No. It takes a big team of people if you've got to lick every bit of cutlery. Yeah that's true. Dinner's going to go cold if it's one guy. Edward VI of England had servants test his chamber pot to see it was poisoned but I don't know how they tested that. Was it splash back that's going to get him? How did that work?
+
+[00:15:05] Maybe contact, no. I think it was that you sneak in, you powder a toilet lid with something. Henry VIII had a similar thing. So the idea is that there are poisons that can leech into your skin if you get your bare skin on them so he might sit down on the chamber pot and it might come in that way. Yes. I remember ages ago on the podcast we spoke about a, I think it was a king who sat down on the toilet but there was an assassin underneath who put a sword up his bum.
+
+[00:15:28] That's a slightly different thing. Like you're not going round. The king has been poisoned. You're not getting like a taster who goes around and then he's got a massive sword through his tongue and he's going, oh try to lick the toilet again, did you? It's true that's why they call it arsonic, I think. That's it. But she was paranoid.
+
+[00:16:00] Actually she wasn't paranoid but it was Cecil who was paranoid and so he was the person who looked over her final years and he does sort of sound like a pervert and I'm sure he wasn't but when he makes this rule... He's not going to sue us now. He's bloody pervert. So yeah, he ruled that all garments that touched her body bare would be circumspectly looked into
+
+[00:16:23] and he used to warn her about all these poisoning threats which there were coming from all around the continent because she had lots of enemies. At one point he warned her that they'd been threatened by the prospect of a poisoner who was going to be a burly Italian man with a black beard called Stefano. Just look out for that. So do you know the method that they had to detect poison? Because as well as testers and the King's 300 official liquors
+
+[00:16:52] they had unicorn horns or what was supposedly unicorn horns, obviously they weren't but you would wave it over your food like a wand at an airport or a security wand. Or a tube station. Imagine a... Yes, I got it. Nice. So they would wave it over food and allegedly if there was poison in the food
+
+[00:17:17] the unicorn horn would sweat and start shaking. And we now know what these were. They were the tusks of gnarls. You know, the gnarls. And Pope Boniface had a stash of knives allegedly made from gnarl. Well they were made from gnarl and so if you touched your food and had poison in
+
+[00:17:38] then your cutlery would start to sweat. Yeah, and they would fully disintegrate if you poured something into them and they just fell to pieces or exploded then it was thought that was signified that something was poisoned. But they were sought after and royalty loved them so there was a British explorer called Martin Frobischer and he did a big expedition
+
+[00:17:56] and he came back in 1577 with a six foot long tusk and he said it came from a unicorn of the sea which again was a gnarl. And the way he tested if it had the ability to neutralise poison is he put a whole bunch of spiders inside it and he said all the spiders had died and therefore it's a poison tester. Very cool.
+
+[00:18:17] But Queen Elizabeth kept it next to the crown jewels as like she valued it that highly. You know Cleopatra, she killed herself supposedly with an asper, a snake biting her but the story about her death is that she experimented first with the idea of poisoning herself with deadly nightshade, the plant and apparently she asked a slave to try the juice and she then observed the slave
+
+[00:18:42] and found that the death was not as quick and painless as she would like so she then went with the snake instead. Okay, it is time for fact number three and that is Chazinski. My fact this week is that the world champion polo player builds swimming pools for his horses whenever they get injured and it's so sweet actually. Sorry, he builds a new swimming pool every time it gets injured.
+
+[00:19:08] I think he builds one for each new horse that gets injured because you can't share a swimming pool as a horse. So not to contradict you but I do think it's just one swimming pool that he gets them to swim in because he has a lot of horses. He in fact I think has the most privately owned amount of horses. He does although you do have to have multiple pools and in fact so this is a guy called Adolfo Cambiazzo
+
+[00:19:33] who's this amazing Argentinian guy who's been the world leader in polo for 22 years. Actually I was just wondering do you think he has misunderstood how to play water polo? Another team drowned again today. Amazing, he's world champion yet he's never understood the rules but yeah he loves his horses and so he like breeds them all the horses that he competes with he breeds personally and he grows special grass for them and feeds them this special diet on his massive farms
+
+[00:20:08] and he says if they have a little bit of pain or if they have a pulled muscle then I dig a swimming pool for them where they do laps. And in fact I emailed today our producer at QI who is called Piers Fletcher and he is very into polo so I was asking him about this and he was saying this is actually quite common to give top end horses hydrotherapy so it's kind of these small pools which are basically like a lock in a canal and with a treadmill at the bottom of them and they just walk along them and they exercise against the resistance of water.
+
+[00:20:38] Or in Piers's case he used to just pull horses through the middle of a river because that's the poor man's first. This guy also he's very big into cloning horses. He's done it many times. He's got one horse that he's cloned 14 times because he loves these horses and what's amazing about this it's said that this particular horse that he's had done 14 times is that during matches he'll even swap to a different cloned horse.
+
+[00:21:04] That's like a tennis player changing a racket for the exact same racket. It's with horse swapping. So I didn't realise that in polo you just swap horses constantly so it's split into these sections called chuckers and it's sort of between four and eight about I think it's about seven and a half minute periods that are called chuckers that constitute a match in polo and if you're a professional you'll use at least one horse per chucker sometimes two
+
+[00:21:27] and you'll just quickly go and swap a horse. So yeah he's got all these clones and he's constantly like you know number one, number seven, number five of the same varieties. He's supposed, what was his name that guy? He's called Adolfo Cambiazzo. Oh yeah he's supposed to be, is he the best polo player in the world? Yeah the last 22. I read that sometimes he can gallop at 40 miles an hour
+
+[00:21:50] for the entire length of the polo field bouncing the ball on his mallet with no one able to get anywhere near him before he just hits it into the goal. Wow. And the other players like him so much I think he's so great that they'll just watch him play instead of tackle him. That's incredible. Imagine playing against Federer and just standing there and be like that's fantastic sir. That's incredible.
+
+[00:22:13] This guy Cambiazzo, he's quite humble because is he Argentinian I think? Argentinian. He grew up on a farm in Argentina and he was interviewed by the Financial Times in 2011 and he said I will never be a millionaire and I don't want to be. And then the reporter pointed out that he is a millionaire. Many, many, many times over. So there is another kind of polo where you I don't think can change your animal halfway through and that's elephant polo.
+
+[00:22:44] So I spent a bit of today, this happens a lot, particularly in Southeast Asia. So it's different in some ways. The mallets have to be a lot longer. That's one element of the game. Of course, of course. All the bowl would have to be massive. Yes. Or the elephant's tiny.
+
+[00:23:03] Yeah. So they chose that workaround, the long mallet, probably simplest. But I just, I started reading the rules, the official rules of elephant polo today and they're just quite nice, you know. So they obviously have to have a rule for what happens if you fall off your elephant halfway through. They just stop. But also, you have to wear a traditional hat while you're playing elephant polo. That's really important.
+
+[00:23:29] Can it be any traditional hat? No, we know it's like some people in a sombrero. No, they're really strict. It has to be a solo topi or, oh sorry, or any other polo hat. There you go. It could be any hat. You just have to wear a hat. You've got to wear a hat.
+
+[00:23:45] But if you're, it says here, should a player's or elephant driver's hat fall off, the game is not stopped, but the hat must be recovered immediately. Players and elephant drivers must not continue play without a hat being worn. I don't know why it's so important. What are you joking? You don't know why you need to wear a hat if you're riding in a quite violent, very fast-paced game on the back of an elephant. I think it's a protection.
+
+[00:24:09] It's like a helmet, isn't it? I think it's like a hat. I didn't realise that. Okay, yeah, yeah. Are you going to look like a right dickhead when you come up with your sombrero? So they stop play if they come after they, because in horse polo, you don't stop play if you fall off, but you did used to.
+
+[00:24:33] So this is actually something that our friend Piers told me, that it used to be that as soon as someone falls off, you have to stop. In 1936, a British player called Humphrey Guinness, so he was playing a match and he thought they were literally about to score. The opposition was about to score a goal. The ball was heading towards the goal, and so he just hurled himself off his horse, and you have to stop, so they had to disqualify the goal.
+
+[00:24:54] And then after that, they said, maybe we should change that rule because these fucking British dickheads are involved. We're going to have to move on in a second, guys, to our final fact. If you really wanted to reclaim the traditional polo image, you could play Kokoburu, which is Kyrgyzstan-y traditional polo. So the ball is a dead goat. And the whole game is basically, everyone's on a horse, and it's really tiring to play, obviously.
+
+[00:25:25] Especially for the goat. Most of the game is just you and your team trying to pick up the goat, and the other team is also trying to pick up the goat, so you're just wrestling. He's about 40 kilos, this goat. You just have to pick it up and carry it on your horse to the... You have to sort of shove it under your leg in the saddle. That's a hard... That's...
+
+[00:25:46] That's a real sport. That's a really silly idea. There's also, you can, if you want to stay in the UK, you can play Penny Farthing polo, which is actually quite a hardcore sport because the world leader, I think, in Penny Farthing polo, is a guy called Neil Lawton, and he's the guy who trained Bear Grylls,
+
+[00:26:06] so he went up Everest with Bear Grylls. He's been up Everest a few times, I think. He's gone around the whole of the UK on a jet ski. He's flown a June buggy from London to Timbuktu. He's been on a Shackleton Memorial expedition to Antarctica, and now he is competing in Sussex in Penny Farthing polo championships. Sad decline. Okay, we need to move on to our final fact of the show,
+
+[00:26:31] and that is my fact. My fact this week is to prevent spoilers getting out, some Game of Thrones scripts were built to self-detonate. Yeah. That's why they all have such bad injuries if you watch it. It exploded in their hands. Yeah, this was revealed by the guy who played Jamie Lannister in the show. The idea was, unfortunately, it's not as exciting
+
+[00:26:55] as a Mission Impossible explosion of a script. Oh, I haven't seen that. I'd say that. Ah, damn it. Yeah, that's the big bit of the movie when Tom Cruise's script explodes. He didn't know any of his lines after that. Yeah. Yeah, so it is a digital script that they all get,
+
+[00:27:21] and as soon as the scene has been shot, a button gets pressed somewhere, and every single copy disappears, explodes into the cyber web. Yeah. Sorry. Wow. I'm in a room full of cyborgs, and I used cyber web. Cyber web.
+
+[00:27:36] Cyber web, low down. Yeah, you're right. It is all digital now, isn't it? So it means that the only paper on set is Starbucks cups. I assume... I assume that's some sort of spoiler, but I can't work out how. They have a real problem with their stuff being spoilered. So people fly drones very near where they're filming,
+
+[00:28:01] and this is a massive problem because they can just spot scenes being filmed, and, you know, they can find out that way. So what Game of Thrones did when they were making it, they filmed some of their scenes. They were in Northern Ireland. They filmed some of their scenes very close to Belfast Airport because it's a designated no-drone area. But surely it's also a designated no-dragon area.
+
+[00:28:23] That's true. Wow. Is that so? Are there some shots where EasyJet just comes flying past? They also do have drone zappas for when they can't fly near Belfast, so it's a drone killer that can intercept... Like, it's a digital thing. It can intercept drones and immediately force them to land.
+
+[00:28:41] Wow. That's scary. I've had... So I haven't seen... Game of Thrones has now finished. I have been trying desperately to avoid spoilers. You both have seen it, James and Andy, and I thought... It was amazing at the very end when...
+
+[00:28:53] No. Well, so today, I was, again, looking... We're talking about Game of Thrones and spoilers. Had to be very careful looking. And I found that, in fact, in America, there is a thing whereby if you don't like someone, you can have this website called spoiler.io send a spoiler anonymously to someone that you hate.
+
+[00:29:15] Yeah. That's terrible. Yeah. It costs 99 pence... Sorry, 99 pennies, American, to do this, and you give them the number. And there's an FAQ that I read on the page for, you know, how does this work?
+
+[00:29:30] And so, you know, what inspired you to do this? They said that it was a lady who had done this with an ex-boyfriend who she hated so much that she just kept texting him Game of Thrones spoilers. And he thought, that was amazing. I just need to do that. And the final question of the FAQ is, how do you sleep at night?
+
+[00:29:48] And the guy wrote, pretty well, actually. I have a machine that simulates the sounds of the ocean, so he's fine. Now, here's the shit thing. I went to check out the site, and right at the top was the spoiler of how it all ends every now and then. Why would you do that? It serves you right.
+
+[00:30:05] I didn't set up the site. And I guess you weren't going on to the site in order to spoil your... You know, that's fair enough. That's on them. The worst people for spoilers are the actors in these shows, aren't they? Yeah.
+
+[00:30:18] They are not to be relied upon. So, apparently, Robert Downey Jr. is a particular bad one. So, he was involved when he was writing on a film a couple of years ago. And they actually made fake scenes for him to help write without his knowledge so that he wouldn't give away the actual plot spoilers.
+
+[00:30:35] Yeah. There's a guy called Tom Holland, who I think plays Spider-Man. And, well, you're not going to like him so much after this. He's so not trusty, because he's given away so... He's leaked so many plot twists in the past that he's never given full scripts to act out.
+
+[00:30:51] He's just given the scripts bit by bit. And he's also made to act out a whole series of fake scenes so that he doesn't know which is real and which isn't. No, but it's not even that. Even in the real scenes that they're filming, a lot of the people that he fights are CGI characters. They don't tell him who he's fighting in the CGI, in the real scene.
+
+[00:31:09] He'll be like, who am I fighting? They're like, you don't need to know. Well, what shall I do? Just make some kick-moves and stuff. But how big is he? They'll give it away, we can't tell you. So he has... He says that he has to act opposite a tennis ball sometimes. That's just what they use to show him where it is.
+
+[00:31:29] They're all terrible. The Avengers, they're basically terrible at spoilers, aren't they? So Mark Ruffalo, for instance, complained that he had to do five different endings for Avengers Endgame so that he wouldn't know which one was the real one. Although in fairness, he did once accidentally livestream the first 20 minutes of Thor Ragnarok on Instagram. So, you know, am I allowed to spoiler Star Wars?
+
+[00:32:00] Like, the original trilogy, guys. You've had time, you've had time to see it. So, this is the really weird thing. About two years before the second Star Wars film was released, Dave Prouse, who was the huge guy who was the physical body of Darth Vader, he was speaking at a fan event. He was speaking to over a thousand fans, and he started just imagining what's going to happen in the next few films.
+
+[00:32:25] And he joked that at the end of the third film, it would be revealed that Luke and Darth Vader were father and son. He revealed this two years before the film came out. No one knew at this point. Wait, so that wasn't a coincidence. He had been told. He didn't know. He didn't know.
+
+[00:32:41] He had no idea. Wait, so was it possible that they stole that idea off him? Probably. Amazing. He wrote an autobiography which was called Straight from the Force's Mouth. Which is good. But I thought a better title would have been The Empire Strikes Hardback.
+
+[00:32:56] That would have been. And I told that to someone who met him, and he went, apparently. Yeah. So good attempt at being polite with him there. Spoilers, obviously, can be, it's hugely irritating if you follow something
+
+[00:33:13] and you have a spoiler get told to you. And it can really bring up anger. And in fact, there was a story that was in the paper a few years back where in Antarctica, two Russian science researchers who were living there, there was a stabbing incident. And the reason was because one of the science colleagues kept revealing the ending of all the books
+
+[00:33:31] that this guy was planning to read. And it got so aggravating that he stabbed him. The guy survived. But yeah, that's... Well, things get pretty tense on Antarctica, don't they? Yeah. On spoilers, the first use of the word spoiler to mean what we mean it today, what it is today,
+
+[00:33:50] was in 1971, it was in a magazine called National Lampoon. And the idea was they were going to put the spoilers of horror movies so it would reduce the risk of unsettling and dangerous suspense in their viewers. So if you didn't really want to be shocked by a movie, you could read these spoilers and it would tell you what was going to happen. Oh, really?
+
+[00:34:09] So you're actually doing someone a favour? Yeah. That was the idea. Well, there have been studies which have claimed different things about whether spoilers affect your mood and your enjoyment of the thing. Some studies say that spoilers make you enjoy a story more because you know what's going to happen,
+
+[00:34:26] you don't know how they're going to get there. And another study has claimed that it makes you enjoy a story much less and that you get really consistently, you find it less fun if you know what's going to happen. But the ones who say that you enjoy it more I think are complete bullshit, I have to say, because they make you read a short story and they just tell you at the start what the end is,
+
+[00:34:44] whereas the whole thing is that it's something that you've been invested in and built up to over weeks and weeks in it so you can't really simulate that. Then you love Dickens, of course, and they have spoilers at the start of every chapter, don't they? They tell you what's going to happen. They do, yeah, but it's not. I don't love him for the thrill,
+
+[00:35:00] I don't love him for the big reveals at the end of every chapter, although that used to be such a big thing. So spoilers, sort of the idea of a spoiler came about in the mid-19th century, really, and the concept that that might be a really bad thing to reveal the ending. But just before that, Dickens was writing the Old Curiosity Shop and I'm really sorry if you haven't read this, but I'm afraid you're too late.
+
+[00:35:21] So this little knell is perilously ill at one point in the Old Curiosity Shop, and you probably know it was released in instalments, and the instalments got to America after they had been released in Britain, and people were so desperate to know what happened to little knell because they just knew that she was ill, that whenever the British people arrived in the New York docks
+
+[00:35:40] and started disembarking the shit, they would riot. They would literally riot at the docks, begging them to tell them what had happened to little knell, and they'd be screaming, is she alive? Is she alive? Wow, and you actually, you didn't give anything away about whether she was alive or not? No, I didn't. You're right. You're right, she dies.
+
+[00:36:01] We're going to have to wrap up very shortly, guys. Oh, just a couple of really quick things about Game of Thrones. Yeah, yeah, let's go for it. So this is, I can't quite believe this, but a lot of it's filmed in Northern Ireland because it has the right kind of terrain and stuff. According to the LA Times, almost 1% of the population of Northern Ireland
+
+[00:36:19] has been an extra in Game of Thrones. Wow. And there's 1.9 million people who live there. I've got a friend who was in Game of Thrones and he was there the whole time and literally you cannot see him at all in the movie because they just have so many extras and the battle scenes are so massive.
+
+[00:36:36] Yeah. So I've seen him dressed as a Dothraki but we just never saw him on screen at all. Right. Believe me, we tried. In China, it's very common that people will download it illegally and that's because you can watch it legally
+
+[00:36:52] but China disapproves of all sex, violence and supernatural horror. So in 2014, one internet person said that, okay, they've caught all the fight scenes, all the nude scenes, all the dragons. I guess that's okay if all you want to watch is a medieval European castle documentary. That's so good.
+
+[00:37:17] And you're playing it pretty fast and loose with the word documentary, I think. I like that initially it was meant to be a short story. No, really. When he started writing it, he thought this is going to be a great short story and then he said, oh, this is still going. What's going on here?
+
+[00:37:31] And here we are all these years later. One of my favorite things is that during the filming, this is just a little filming fact about it, Amelia Clark, who played Mother of Dragons, she was doused in so much fake blood during a scene where she has to eat a horse's heart that during a break, when she went to the toilet, she was so covered in this blood
+
+[00:37:52] that she couldn't get herself off the toilet. She was stuck there as a, yeah, the blood had sort of just congealed. If only she'd had a toilet tester. Yes. Does she die in the end via sword up the band by any chance? Don't tell me, don't tell me, don't tell me. Imagine if the answer was yes.
+
+[00:38:16] That's how they all die. That would be amazing. That would be incredible. There's just one character that you'd never see, but he's just a serial sword of the bug murder. The liquor. He's the only other guy who survived. Never see him because he's busy licking shit all over.
+
+[00:38:38] Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter M. James.
+
+[00:38:56] At James Harkin. And Shazinsky. You can email podcast at qi.com. Or you can go to our group account, which is at no such thing. Or you can go to our website, nosuchthingasafish.com. We have all of our previous episodes up there.
+
+[00:39:11] Yeah, we have tour dates, all the links to our upcoming tour dates, and we also have a few bits of merchandise. Thanks so much, Sokko. That has been amazing. That has been awesome. We'll see you again. Good night!

@@ -1,0 +1,379 @@
+# No Such Thing As A Fish - No Such Thing As Kimchi Pirates
+
+- Episode date: July 11, 2024
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-kimchi-pirates
+- Slug: no-such-thing-as-kimchi-pirates
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Things of Fish. Very quickly, just to remind you, we are going on tour in the very, very near future. So if you are in Edinburgh, Bristol, Dublin, Glasgow, Newcastle, Cardiff, London or Manchester, we are coming to your city. We'll then be going off to Australia and New Zealand. Almost all of those tickets are sold out. But if you are in the UK or Ireland, then do get your tickets as soon as you're going off. you possibly can. It's going to be a whole load of fun. We're going to do a podcast. It's going to be an all new podcast every night. But then there's also going to be loads of extra fun stuff
+
+[00:00:38] happening, which you would never get if you only listen to this free podcast. And the hope is that we'll be there afterwards to say hi to everyone and sign whatever you want signing and take lots of selfies because actually one of the main fun bits about doing these shows is getting to meet you guys. So we can't wait to be on tour and we hope that lots of you come to join us to find out more about that and to get your tickets, go to no such thing as a fish.com forward slash live where you can get links to all of the venues. Okay, not much more to say apart from buy My Nana's book, buy Dan's book, by Andy's book, you know our names, just go onto your book selling place of choice and type them in
+
+[00:01:18] how you'll find all the very lovingly made books by the four of us that are just right for you to buy and read over your summer holidays. But that's enough selling. Back to our bread and butter, the four of us doing our thing in the QI offices in Holborn. Really hope you enjoy the show and hopefully see lots of you on our talk. Okay, on with the podcast. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hoburn. My name is Dan Shriver. I'm sitting here with Anna Tashinsky, James Harkin, and Andrew Hunter Murray.
+
+[00:02:07] Once again, we have gathered around the microphones with our four favorite, facts from the last seven days, and in no particular order, here we go. Starting with fact number one, that is James. Okay, my fact this week is that if you like kimchi, you're a victim of government propaganda. So does anyone here like kimchi? Yeah, not anymore. No. What?
+
+[00:02:30] Well, you know, I don't know what kind of weird political messages I'm propounding, although I quite like South Korea. They're not doing too badly these days. Do you like BTS? Do you watch Squid Game? Did you enjoy Parasite? at the movies? I don't know what BTS is, but the other two things I did.
+
+[00:02:44] Wow. Did you dance to Gangnam style when it came out? Every day. Every day. Yeah. All these things are part of Hal Yu, which is a South Korean government
+
+[00:02:53] promoted push of the country's culture. And this is all about diplomatic cultural exchanges between countries. And at the moment, Korea are especially good at it. Yeah. So what are they doing? Are they sort of responsible
+
+[00:03:09] for kimchi advertising world, white and stuff. Yes. So, in front of me. Absolutely. So they might pay TV broadcasters in Europe or in the US to have documentaries about Korean dishes.
+
+[00:03:20] They might get newspapers to write about Korean dishes. They might provide assistance to restaurants that are going to have Korean food on the menus. This is crazy. Because I'm obsessed with Bibbinbap. Oh, yeah. Yeah. I love it.
+
+[00:03:34] Same. I love it, but it's only in the last few years. Well, that's why? Because they started this around 1996. That's perfect. is the timing matches up, I did.
+
+[00:03:43] So what had happened was Korea had had a problem economically. There was a big crash in around the mid-90s. And the government had to ask the IMF for an emergency loan. And it was a big embarrassment to the whole country. And around the same time, Japan
+
+[00:03:58] was making its own kimchi and they were selling that around the world, much to the chagrin of the South Koreans, because the only good kimchi comes from South Korea. And they put those two things together and a couple of presidents decided that they were going to rebrand the nation. I completely understand that.
+
+[00:04:17] I completely get. I mean, countries do it all the time. I can also see who the propagandas worked on. The only good kimchi in the world. Imagine if France started making pork pies. I'd be furious. Would you? Yeah. And then you went and you traveled to China and they were like, oh, have you heard about the
+
+[00:04:30] French pork pies? Amazing French Melton Mubri. I'd be, I would feel patriotic suddenly. Yeah. So South Korean kimchi, it's all this particular kind of cabbage, isn't? called a nappa cabbage. Yeah. So I should quickly say what kimchi is.
+
+[00:04:43] It is a fermented vegetable and fish relish. You kind of get loads of vegetables and fish paste and stuff like that. You put it in a big bundle of cabbage and then you put it in brine and you leave it to ferment. And then it becomes, to some people, delicious. I personally can't stand it. Really? I actually, I have a problem with fermented food in general. Interesting.
+
+[00:05:05] I don't know why. It's the national dish of North and South Korea. There are two million tons of it eaten in. the South alone every year. Over 60% of people in South Korea eat kimchi at three meals a day. It's a lot. And even this is, I love this.
+
+[00:05:21] There's a ritual where a traditional thing where every autumn families make their own kimchi, right? And I think it's called Kim Jang. Yeah. And it's a sort of, it's a traditional thing. Obviously not everyone does it. Some people just get this from the supermarket. But Samsung, the electronics giant,
+
+[00:05:36] make special kimchi fridges and thousands of people. in South Korea have a fridge that's just for the kimchi. I don't think thousands. I think it's 98% of the population. It's literally everyone in North Korea. I just mean many thousands. Thousands of thousands. But I just think that's stunning. And there's supposedly, it feels like a massive swiss to me
+
+[00:05:56] because all those special kimchi features are things like, it stays the same temperature. No, no, it is important because your fridge at home is going to be around three or four degrees. But if you put kimchi in that fridge, it'll go off in a few days. Yeah, it needs to be colder. It needs to be colder. And there needs to be less airflow going around.
+
+[00:06:12] That's a freezer. It's got less moving in air. No, no, it needs to be warmer than a freezer. No, I can't think of a single temperature. Warmer than freezing. Let me tell you, one degree, which is the exact temperature. Because the traditional way to keep it is you'd bury it outside. Right.
+
+[00:06:26] So you'd make it in the autumn. You'd bury it outside and during the winter it would stay at one degree. Do you think there's lots of buried kimchi still in South Korea? Is it like squirrels, do you reckon? And they're just, they can never find it again. Kimchi pirates. Just going around trying to find the lost bits. buried treasure, Mr. Kim.
+
+[00:06:42] And then you open it and it is just rotten, fishy vegetables. Is it the thing that it never goes off if it's at the right? As in if it's... It can. It can. But it lasts many more months, but I think it would eventually.
+
+[00:06:54] It would eventually go off. Can I tell you what kimchi saying? Yeah, please. Don't drink kimchi soup thinking that someone will give you rice cake. Translation, please. Don't do that. So it's don't do something
+
+[00:07:08] expecting something else will happen. Yeah. So it's like look before you leap. Oh, that's quite good. Say one more time. Don't drink kimchi soup thinking that someone will give you rice cake. Or is it just literal?
+
+[00:07:22] It's just, this is bad etiquette. No, there's a pretty exact analogy, actually. Is there? So is there a reason you'd want rice cake after kimchi soup? Is it like... It comes next in the traditional form of the meal. Right. So that is what you would expect.
+
+[00:07:36] So don't... Like, don't do phase one of a process, assuming someone's going to help you out with the next bit. Right. So what's a British phrase that does... Is it not that? That's a very common phrase one that just said. It's like my old grandma used to say, don't do phase one of a process. It's just don't count your chickens.
+
+[00:07:56] You know, don't assume. It's not guaranteed that you'll get rice cake just because you've got kimchi soon. But in that case, it sort of is guaranteed because you're having a traditional Korean meal. Yeah, I don't think that is quite exactly the same, is it? Why are you not counting your chickens? Boy, you have to go, don't count your chickens. So it's like if you have 10 eggs, don't think that's definitely going to be 10 chickens because one of them might not turn into a chicken.
+
+[00:08:17] Okay, cool. I feel like that phrase needs a little caveat at the top that says prior to hatching, don't count your chickens. Oh, it does. He didn't do the full saying. The full saying is don't count your chickens before they've hatched. Oh, right. Dad, you never heard this saying?
+
+[00:08:29] No. You've never heard don't count your chickens. That's stunning. I've heard that bit of it, weirdly. You've heard don't count your chicken. That's because everyone knows the second bit. And what did you think it meant when you just heard go count your chickens?
+
+[00:08:41] It's bad luck to count chickens. Oh, yeah. So we went to the petting zoo today. Oh, how many chickens were there? Well, you know what they say? That's so weird. Only 7% of kimchi in Korea is commercially produced, as in that you buy it in shops.
+
+[00:08:59] Wow. 7%. And the rest is sort of artisan. The rest is made. Homemade, yeah. And it's part of this festival that one of you mentioned, Kim Jones. Yeah, Andy mentioned.
+
+[00:09:09] Basically, at one time of year, everyone just makes kimchi. And it lasts the year, right? It lasts the year. And it's huge because it's like everyone does it at the same time because it's like kimchi season. So one has to buy cabbage at the same time. So the price of cabbage goes through the roof every year. It's harvest time, I guess.
+
+[00:09:27] And then you buy it. But it's always in the news at this time every year saying, don't forget to get your cabbage before it's, don't count your cabbages. That's so cool. Apparently at the moment, there's a bit of a worrying time for kimchi in South Korea because they're actually importing more kimchi now than they're exporting. They are, the world has woken up to it.
+
+[00:09:45] China particularly has woken up to it. And so if you buy kimchi in a market, let's say in the UK, it's probably more likely from China these days than it is from South Korea. But the Chinese say it's fine because actually they invented it. I think that, yeah, they sort of claimed that a similar Chinese pickled cabbage fell under the bracket of kimchi, didn't they? I know. It's like saying, oh, our pot. roll is actually a pork pie. Yeah, exactly.
+
+[00:10:09] It's like saying that, isn't it? It's rubbish. Fementing, huge deal at the moment, very trendy. Yeah. Because apparently it's the answer to all our health problems. And I'm so looking forward to in 10 years time when everyone realized that that was complete bullshit. No, what?
+
+[00:10:22] We're all going to live forever because of that. Because of the microbiome suddenly diversifying. It's good for you, isn't it? I'm sure it is good for you. It is obviously really drummed into us how good for you it is. And it is such an interesting process. So I didn't quite realize that the only reason fermenting happens is because it's dead. So the bacteria that eat the cabbage or anything that fermentes,
+
+[00:10:44] the cabbage is spending its whole life fighting them off. And it's just as soon as you chop it, they can suddenly go for it. That's great. And then it can't just be any fermenting. I think this is why you add salt to it. You can't just let any bacteria eat it. Because that's just rotting, right? Yeah.
+
+[00:10:58] Don't just leave cabbage out and wait for it to... I was a bit confused about what is fermenting and what is rotting. I thought fermentation involves the particular, is something to do with the brine and the salt and that. It is, but I agree. I didn't know either. And it seems to be it's just about the type of bacteria that are doing it. And as long as you use the salt,
+
+[00:11:17] so you sort of feed the right type of bacteria, they turn it, they ferment it properly. But the thing is, like, there are lots of types of bacteria that do this. And I don't want to get all antibacterial and pro-bacterial phage, like I always do. But there are some bacterias that do, fermentation that are really bad for you. And so sometimes people who do like homemade fermentation, like where you're making your sourdoughs or you're making homemade kimchi or artisan cheeses
+
+[00:11:45] or whatever, any kind of stuff like that, if you get the wrong kind of bacteria, it can make you sick. I bet. And most people would be fine. Like for the four of us around here, it would probably be fine. But, you know, if you have underlying health issues, it can be a problem. Yeah, yeah, of course. I didn't even consider that. I really like it with this fact is it's, it's basically what's known as gastro diplomacy as well, right? Because they're using food in order to spread culture around the world. And this started. There was, in the early 2000s, Thailand really were leading the way with this. There was this thing with people going, why are there so many Thai restaurants in America? We don't have that bigger population of Thai people here. It doesn't make
+
+[00:12:22] sense. And that's what it was. It was a government program where you were able to get a loan for millions of dollars from Thailand if you were going to open a restaurant over in America. And you had different packages. So there were different styles. of Thai restaurants that you could set up. The sort of more McDonald's-like fast food, chainy one, which was just not that good food, all the way up to the high-end Thai, which, you know, golden leaf kind of thing.
+
+[00:12:44] And all the arts that you might see in those places might have been created by government propaganda people who wanted to just push. It's so weird. I think we said before that they invented Pad Thai for that reason. Right, yeah. I think it is like a really important thing and not to get too political,
+
+[00:13:00] but our government slash our government and till last week. We'll see what happens. Like, the idea of them kind of taking money away from cultural stuff, which is what has happened over the last 10 years or so, is such an own goal. Like, because Britain has, over the last century or so, had so much
+
+[00:13:18] soft diplomacy through, be it the Spice Girls or, be it, like, Downton Abbey. They were there to promote Pepper and Tunis. The original draft of the Spice Girl. It was before then we had the Opium Girls, of course. But yeah, I mean, like, to take away money
+
+[00:13:37] and to like make the BBC World Service and stuff lose money and all that kind of stuff. Are you just trying to get government funding for the podcast, James? Well, we are. We deserve it. We're a cultural jewel in the crown of the nation, I would say. But there's so many countries do it. It's really, it's not just the Thai government, the USA.
+
+[00:13:54] They have the diplomatic culinary partnership and they have the American Chef Corps who were recruited, teach you to flip burgers. What is that? So in fact, that's almost the opposite of it, because it was specifically sort of, it's more than just burgers and hot dogs guys. And it was about all the great American cuisine that there is and all the different kinds of American cuisine. I've got to be honest.
+
+[00:14:16] They're very good in a lot of ways of propaganda, but that element hasn't worked on me so far. Fair enough. But you would get a special jacket with an American flag and your name embroidered in gold if you were part of the chef corps. And you would travel around the world, cooking for foreign diplomats, traveling abroad. You know, it was a sort of crack unit of... chefs and they did some sort of Native American cooking or different from all the different parts of it. Grits. Probably some burgers as well. Grits. Yeah. Movie industries are often used as sort of that kind of soft diplomacy and in fact there are kimchi westerns. No, like a spaghetti western.
+
+[00:14:49] Exactly that. Really? Kimchi. So the spaghetti Western was a Western filmed in Italy right? Yeah, yeah. Yeah. Yeah. Actually usually filmed in Spain by Italian directors. Yeah. So is this a Western that's filmed in Korea? just what you think. Yeah, it was a specific decision by the Korean government in the 2000s. The film industry was going quite badly. I think Hollywood was swamping all of their homemade films, so they thought, let's make our own
+
+[00:15:13] westerns, and they'll be called kimchi westerns. And the first one was called The Good, the Bad, and the Weird drawing very slightly on American traditions. Is it a proper, like, Western cowboy plot? Absolutely, yeah. So it seems very much based on the good, the bad, and the ugly.
+
+[00:15:29] You know, there are three protagonists who are after the same treasure, who are all sort of after each other. Is it buried kimchi? That film is actually sequel to for a fridge full of kimchi. That's based on for a fistful of dollars. Yeah, yeah.
+
+[00:15:45] Dan was looking in very much a don't count your chickens. That's why I've been silent for the last 10 minutes because I've been trying to think of a South Korean Western title and I couldn't think of one and I'd argue you didn't really do. Okay, it is time. For fact number two, that is Andy.
+
+[00:16:08] My fact is, there is an entire railway tunnel in Derbyshire, which was constructed so the railway could be hidden from the Duke of Rutland. No one wanted him to get on the railway? He never paid, he never paid, despite being very rich. He's a fair dodger. So this comes from a great website called peak rail.com.uk, which is about the peak district rail. It's not about like this, it's peak rail. And it's about the Duke of Rutland who there is still a Duke of Rutland, I believe. It's a, you know, like in the way there always is.
+
+[00:16:41] There's always another one. And he was a big old landowner. This is the middle of the 19th century. And it was when the railways were going gangbusters across the whole UK. Hundreds of railway companies were springing up, building lines, going out of business, consolidating. It was just a railway fever had gripped Britain. It was a great time. I wish I'd been there.
+
+[00:16:59] And the Duke had point blank refused a railway to go. across his estate, not through his house or anything, just across some of the many, many acres he owned. And the Royal Company had to go underground. And there's a long tunnel. It's about a thousand yards long. It really is quite a big railway tunnel.
+
+[00:17:14] And it's 12 feet deep because they just needed to hide it very slightly from the Duke. You could do a cutting, couldn't you? They could have done a cutting, which is basically a sort of V-shaped trench and you just have it going along that. That would have preserved the view. Like a ha-ha.
+
+[00:17:26] Like a ha-ha, exactly. But the Duke apparently did not want to see smoke and steam rising above his gardens. So they had to just cover over It's a thing called cut and cover Where you dig a little bit And you cover it back over So it's the most pointless railway tunnel
+
+[00:17:40] It was probably really expensive And it's all for the Duke of Rutland And they don't use it anymore right It's like it's out of Yeah they don't use it anymore Did it get beaching? Oh as in Mr Beeching I can't recall actually
+
+[00:17:53] Whether it was part of that But anyway that line doesn't use that tunnel anymore And they're thinking of opening it So cyclists can go through it Oh, cool. It's really nice because it's always nice and flat when they sort of use an old railway line for that kind of thing. Just for, sorry, for any international listeners who are...
+
+[00:18:09] Yes, the beaching reference. I feel like Dan went into his chickens glaze again. I think the Duke of Rutland probably dealt with the confusion. What? For international listeners as well, Rutland, it's a small county which is in... A Duke is a member of a nobility. For any Americans listening, a train is a kind of thing.
+
+[00:18:30] We've got. No, it's in the East Midlands. It's got population about 41,000. And it's got this really interesting fact about it, which is that it is the smallest county in England, but only when the tide is out on the Isle of White. So when the tide's in, that is the smallest county. It goes out. So it becomes the smallest county once every day and then loses that award. The Duke of Rutland, he was a sixth Duke, the one we're talking about. He was also a Tory MP for or Stanford. He won Stanford with 200 votes versus his liberal opponents at one vote. Oh, no. In 1837.
+
+[00:19:08] And according to the Oxford Dictionary of National Biography, and I quote, his present wealth and future dukedom meant that his Tory colleagues had to bear with him. It is idle to pretend, wrote Robert Blake that he was anything other than a stick. Apparently he was absolutely useless. Because he was so rich, they were like, oh, well, you're going to have to be part of the party now. I couldn't find evidence for, but I would like it to be true, for the fact that, so he never married and he had a couple of crushes, apparently. And there seemed to be claims that when he died, he left his friend's wife, Lady Miles, a yacht, his yacht in his will. Which I really like as a move, but I don't know if it's true.
+
+[00:19:50] But yeah, that's... It's reported in multiple places, isn't it? Yeah, it does seem to be. And I like the idea of being the husband, because are you happy that you now kind of co-own a yacht? that was left by a dead person. Are you suggesting that he fancied this woman? I don't know if you leave someone a yacht if you're just friends, do you? I think there was suggestion to why it was left.
+
+[00:20:09] It was 120 feet. All right. All right, I'm just saying, like, if you've got a yacht, you have to give it to someone. Yeah, yeah, yeah, yeah. Like, you've got no airs, so. You know. You might just be mates. Why specify the lady rather than both of them, though?
+
+[00:20:21] That's true. I think if my spouse got left a yacht by someone. By James, when James died, for instance. Yeah, you're not having any of our yachts. I'd narrow my eyes across the breakfast table. Can I just say, if anyone listening to this podcast would like to give my wife a yacht, I could not a yacht. Scandal-wise, it was interesting, I was reading about the current family,
+
+[00:20:42] and I found an article which is all a bit sort of gross when you see the wealth, the amazing kind of, just, it's a bit odd, but there's all these tiny details that are so bizarre. So one thing is that him and the Duchess are no longer together, but they're both living with new partners in very very important. separate bits of this giant beaver castle. I mean, it's pretty easy to do that when you've got a castle, isn't it? Yeah. If you live in an apartment in Tottenham, it's pretty hard to still live with your ex.
+
+[00:21:08] Yeah. It's all these... Like, you get reports of all these little details that have been added to this castle. So, like, there's a button that gets pressed, which opens a safe behind the bed that brings out a giant erection jug set. That's just... What do you mean? What? An erection jug set?
+
+[00:21:24] It's kind of like... It's like a penis erection, done as a jug. But it's... It's hidden in a safe behind the bed that you can sort of have reveal. It's very odd. It's just the way you said an erection jug set. Like we all knew what that was. That's a phrase back in Australia.
+
+[00:21:38] It's like the counter chickens of ours. You clarified a penis erection. Oh, a penis erection. Oh, dear. I did not know that. Who installed that? Have you seen this? No.
+
+[00:21:53] It's just reported in this article. The interview was sat down to chat to him. He sat on a sofa with a photo next to him that was framed and signed that says, Dear David, looking forward to the time when I can completely cut off your head. Love from Rambo. From Sylvester Stallone to David, the current Duke. Yeah. They got their Earl ships slash Dukedom slash all that kind of stuff in the Wars of the Roses,
+
+[00:22:15] I think. And they became Earls. And then during this time when they were becoming politicians with the Whigs, that's when they became dukes. Right. So for American listeners, an Earl is less than a Duke. And for ordinary British But the fifth Earl of Rutland
+
+[00:22:33] supposedly wrote Shakespeare's plays Oh good Who was that then? He's the fifth Earl of Rutland Okay, yeah He will have been called something manners Because they're all called manners, aren't they? A lot of them are James Manners
+
+[00:22:45] Right And the evidence is that he had a close relationship With the Earl of Southampton Who also didn't write the play I think they were interested in each other's penis erections but the poem Venus and Adonis was dedicated to the Earl of Southampton and we don't have much evidence that Shakespeare knew him but we do know that this guy knew him but also Rutland went to Italy and taught
+
+[00:23:09] and two of his students were called Rosencrantz and Gilder Stern what then actual names were those they're definitely 100% were students when he was teaching in Padua well you should have led with that evidence that has to be a resistance no wait were they I thought they were sort of made up words by Shakespeare, who, as it turns out, is this random duke? Can I tell you about a member of the manor's family?
+
+[00:23:37] It was a slightly more recent one. I think it was late 19, 30, 20th century. So Ralph Ptolemack was his name. And he was very fond of history. He had 15 children. The names included, his first names, Plantagenet, Saxon, love it.
+
+[00:23:53] Idwolo, Leoness, Leolf, Leona. Leonella Leonetta and a boy who was he became a captain in the
+
+[00:24:03] first world war right his name was Leoné sextus Dennis Oswolf Fraudatifilius
+
+[00:24:09] Ptolemack Tolomac tolemack Tolomac de Oralana Plantagenet Ptolemack Wow Imagine shouting that under a hectic
+
+[00:24:15] situation where we're being fired at Doug you should have just said duck He didn't need to say my whole name Very much the Elon Musk of his day
+
+[00:24:27] in fact. I mean, he's the Jacob Rees-Mogg of his days. Yeah, he is, he is, yeah, yeah. More up is it? God. Wow. There was also around that time
+
+[00:24:35] Lady Diana Manners who was useful because she could be nicknamed Bad Mises Bad Manners. Very good. But the reason I raised her is because she was part of a group that I didn't know existed
+
+[00:24:45] called the coterie or sometimes the corrupt coterie. Have you guys heard of this? No. No. It really sounds like one of those groups that you kind of want to be a member of but it's also awful.
+
+[00:24:55] It's like a Bullington Club for the pre- First World War generation. And she was really the lynchpin of it. They were incredibly glamorous. They were basically took all the aristocrats in the UK and all the cool ones who went to all the fun parties were in the coterie.
+
+[00:25:08] And they were wild. They were just spent their whole time like gambling drinking, but just also injecting heroin a lot, snorting a lot of cocaine. They love taking chloroform. And she, throughout her life, apparently she'd go to parties and liven them up all the time by taking heroin.
+
+[00:25:23] And no one really minded because, you know. When was this? This was just before the First World War because sort of sadly, does taking heroin livened people up? If you're Lady Bad Manners, I think maybe it does. And they were all, and this is what you get for being a spoiled aristote with bad habits, pretty much all wiped out in the First World War. So she married almost the last remaining one who returned, who was called Duff, Duff Cooper.
+
+[00:25:51] Because there's one other thing about one of the daughters of the current manners family, so this is Eliza. She recently was fined half the normal amount that you would be fined for a speeding ticket because of cash flow issues. Oh, can you do that? Because I've had two speeding tickets in the last month. Really?
+
+[00:26:11] Although I did get mine halved as well. Cash flow issues. No. Okay. Just paying promptly. That's what you do. If you pay within 28 days, you get a half? No, mine happened within two minutes of each other,
+
+[00:26:21] so they said it was the same lapse of judgment. If you just stay speeding, that's what that film is about, Kianni Reese. I just don't avoid getting two tickets. Can I tell you an aristocratic railway thing? Yeah. Oh yeah.
+
+[00:26:32] Back to the old Duke of Rutland. So, Duke's loved opposing railways. It was for a while their main hobby. I mean, they were being built on their land, right? Completely. I don't want to take their sides, but actually the whole country was being dug up for railways at that time. Yeah. Which is a good thing, of course.
+
+[00:26:49] But they owned most of the land, so. Exactly. And there were lots of clashes, because you could have your land compulsorily per. And railway makers wanted to build straight normal routes over relatively flat ground, because that's obviously why you build a railway. And Dukes would sometimes, or landowners would sometimes hire thugs to stop surveyors surveying the land for a railway. As then they would hire gangs of heavies to go and beat up the surveyors who were just trying to say, oh yes, it could go over there, couldn't it? And they had to do it at night or they had to have decoy teams of surveyors, the railway companies. It's quite hard to survey at night, I would say.
+
+[00:27:24] You're right. It does rely on vision quite extensively. But it was such, it was a violent time. One railway company was warned, we have barricaded the towing path and have in readiness a few cannons from Lord Harbourer's yacht. But it was like genuinely a perilous time.
+
+[00:27:41] All except the third Duke of Sutherland who built his own private railway line and loved it and would drive it himself. Yeah. And he was one of the, I admire this guy so much. He had a cab built with a four person upholstered seat at the back, right? So that the Duke could sit
+
+[00:27:54] in the cab while the driver was driving it. So you literally up front in the engine. Oh, in the train. Yeah, yeah. Right, right. So guests he had on his upholstered seat have included King Edward the 7th, King George the 5th, King George the 6th, King Alfonso of Spain. And was this the original format for that where a famous person gets a celebrity in their car
+
+[00:28:12] and interviews. Kaiser Wilhelm I was in this train. Winston Churchill. A lot of the key pro-tags of the World Wars have been in this one train. Did it go anywhere or was it just a little stretch of rail outside? his house. It is far, far northern Scotland. Right.
+
+[00:28:28] It's really, really far up north. But he had the power to drive his own train until the killjoys at British Rail revoked it in 1949. Okay. And that for me is where the rot set in. If it can't drive his own train. Yeah. What kind of a world of we're living it.
+
+[00:28:48] Okay, it is time for fact number three. And that is my fact. My fact this week is that legendary guitar maker, Les Paul, had his arm permanently fused. at roughly a 90 degree angle so that he could forever strum a guitar. It's magical. Yeah, it was an interesting moment in his life.
+
+[00:29:07] That's what he said, by the way. He's like Robocop, basically. Not really, no. Well, no, but let me hear me out. What did Robocop do? Was he someone who sculpted his whole body to perform certain tasks? Robocop was whereas they tried to save a human
+
+[00:29:20] by creating a mechanical body, whereas this guy just had a little bit of bone put into his elbow. Robocop was based on Les Paul. That's what I said. I feel like he said, hey, Doc, can you fuse my arm at 90 degrees so that I can forever masturbate? And they said, what?
+
+[00:29:36] He said, I strum a guitar. Strum a guitar. Oh my God, imagine if it was that. One day a doctor will say, well, you want to know what really happened. Yeah, so, okay, what happened? This is the story of Les Paul's horrible accident. He was out driving on a long trip to California with his partner at the time, who became his wife called Mary Ford,
+
+[00:30:01] and she was at the wheel. He was getting rest. He was laying down on the car seat when suddenly the car swerved, and they were going off a bridge, put his arm on her, he said, this is it. They both thought they were going to die. But fortunately, because it was a convertible car, they were able to fling out of it and they survived.
+
+[00:30:16] So actually, the very fact that he was laying down, didn't have a seat belt on. She didn't have a seat belt on meant they kind of were able to survive. I read that claim that he said, Actually, it was a good thing we didn't have seatbelts. Are we sure? That was a theory at the time, actually, because there were motor racing drivers who didn't want to wear seatbelts
+
+[00:30:32] because they wanted to be thrown away from the wreckage if it was ever a crash. I just feel like, obviously we're saying seatbelts are good. Yeah, yeah, it was a belief at the time. At the time, there was arguments that seatbelts might trap you in wreckage. You want to be as far away as possible from that car crash. Yeah, yeah. Now, they survived this, what was said to be a 20-foot plunge into a ravine, but they shouldn't have then survived
+
+[00:30:54] because no one should have known that they were there. But it just so happens that as they careered off the road, they crashed into a telephone and telegraph pole. And they phoned. On the way down. 9-9-1. No, so when those lines went down, the lines of the area went down,
+
+[00:31:11] so some emergency services came to rectify that. And then they saw this car down there. This was eight hours later. They're like, what's that? And they found them. So he was seriously injured, broken nose, punctured spleen, broken vertebraes, pelvis was done, and he'd shattered his elbow, his right elbow.
+
+[00:31:28] So the plan was, they were going to amputate his arm, but a doctor said, no, I think we can fix this. And so what they did was they decided to take some of his leg bone and they put it in place of the elbow. But in doing so, they needed to fuse it into one position. So usually someone who is having that would have it in an arm out position. He said... What would they? Or maybe a slight... What would you go for?
+
+[00:31:50] What would you go for? Hand on the hip. Peace sign. Peace sign. The peace sign's just your fingers end. It's all about where it is. I get to move my arm. Okay.
+
+[00:31:58] It's about arm position. No, you get to move your fingers. You don't get to move your arm. I will go for a salute in that case. Patriotic. Salute position. That could, facing the wrong way, look like a Sig Heil. I will never be facing the wrong way.
+
+[00:32:09] I'll always be facing the king. Yeah. I don't know. The correct answer is for the four of us to do Y, M, C and A. So what he ended up doing was he said, to his doctor, put my forefinger in my belly button when you set it. That's how I hold the guitar and I'll still be able to play. That's what they did. And so, yeah. But thank God he did do this because he was a genius of guitar creation. I think actually that's why they did it. I read that
+
+[00:32:36] he overheard the two surgeons, one of them saying we're going to have to cut his arm off. And the other one saying, well, he's a guitarist, so maybe we should try and save it. Wow. Yeah. I mean, thank good. I just, I'd never heard of Les Paul very, very vaguely as a brand before. Yeah. But in the same. saying that you've heard of a Gibson or a Stratocaster or whatever, but I don't really, I don't know any of the stories about them. Yeah. And he was amazing. I mean, he invented the modern electric guitar. Yeah, he kind of, he innovated. He advanced it. There were, there's other claims to earlier models, but he's the one who basically was a combination of an artist and an inventor and just got it
+
+[00:33:11] out there and people saw it. His one went forward. Yeah, his one that got developed. One of the reasons was when he had his accident, he couldn't play guitar for a while, of course, because, you know, it's getting better, but while he was waiting, he was reading electronics manuals, and he was learning how to be an electronics master. So he did this other thing. There was a brilliant essay about Les Paul on this. I think it was called The Quietest. It's a great website. And it's about how the fact that Bohemian Rhapsody is partly thanks to the Nazis. Okay? I hear me yet. Okay. I knew he had to thank him for something. Okay, so he did these experiments with multi-track recording, right? Yeah. And he was working with Bing Crosby.
+
+[00:33:50] Friend of the podcast, I'd say. Is he? Acquainted. Acquainted to the podcast. He's popped in. He's popped in. And he, because he wanted to pre-record his radio show. And one of his staff found a guy called Jack Mullen,
+
+[00:34:02] who'd been in the US Army Signal Corps, and who had acquired, probably Nick, to real to real recorders from Nazi Germany in 1945. Oh. You know, there's a lot of moving objects about. And he'd come across them somehow. And he had worked. It was a time of moving stuff about.
+
+[00:34:19] It was a time of that. Borders. Yes. And he'd worked out the design. He sort of backformed it. You know, he'd found these real to real recorders. He'd backformed it. And Crosby invested that. And he notified Les Paul, who comes into the story here, and he added an extra playback system to this real-to-reel thing, which meant you could hear what was on the tape as you recorded it. That was the brilliant innovation. Yeah, the eight-track recorder. Absolutely. Just revolutionized music. And one extra thing. And you can suddenly hear and sing and it. So, and Bohemian Rhapsody is possible because of that, basically.
+
+[00:34:50] that bit with all the voices in the middle. Oh, I see. That's the point of that. Sort of every song is thanks to that, really, of modern music. Well, that makes you think when you're next listening to something, you know, you're basically collaborating. Anyone who likes pop music, according to Andy, is a Nazi. Which coincidentally is, I've already thought.
+
+[00:35:11] He used to do a show with his wife on TV as well with Mary Ford, and it was from their house. And the thing was is that he was inventing so much stuff. so quickly that was so impossible really for a layman to understand that he'd created a fictitious invention called the pulverizer, which he said, I'm just going to press the pulverizer, and it's going to make this work. And that's where he was playing pre-recorded multi-track and so on. But it sent the whole industry into a kind of, what is this pool verizer? We have no idea what to say. What was he claiming it was doing?
+
+[00:35:42] He was so, let's say he was using a pre-recorded multi-track that he'd already recorded and they were singing on top of it live for the TV show. Rather than having to explain this new technology of what was going on or every little innovation that he was making, he would just say, the Paul Verizer has invented this. Yeah, because I always, you know, you hear about multi-track stuff and recording over it being an invention, and I always think, I reckon of the few technological things,
+
+[00:36:03] I could have invented that. I always think, it's not piss easy. You just get a bit of music, you play it and you play something else over it. Come on, guys. It was thanks to him innovating it. I read someone saying, it could have been done, but he was the one who thought to do it, as in his genius was, it wasn't technically an impossible thing
+
+[00:36:18] do. Got it. It was the idea. Exactly. Actually, I heard him in an interview with the New York Times. He said, the only reason I invented these things is because I didn't have them. So he knew there was a thing he needed. He knew it was quite an easy thing to invent, but no one had invented it.
+
+[00:36:32] So he's like, oh, I have to make it. So cool. You said that he did the show with Mary Ford, which is true. And that he was in the car crash with Mary Ford, which is also true. But she was originally called Colleen Summers. And he changed her name to Mary Ford. because he thought it was better for their showbiz life. He found the name in his phone book.
+
+[00:36:53] But she wasn't even known as Colleen Summers in the car crash. She was known as Iris Watson. And that is because, and this was in all the newspapers, he was in a car crash with Iris Watson. And that's because he was having an affair with Mary Ford slash Colleen Summers. And they wanted to keep it out of the newspapers. And so they gave a false name. So there's some poor old biddy named Iris Watson somewhere
+
+[00:37:15] who everyone suddenly thinks is shagging. guitar man. That's amazing. He almost died another time, in fact, didn't he? He almost electrocuted himself in the 40s. In 1941, he was jamming around with some friends, and he stuck his hand in the transmitter. I don't even know how you stick your hand in a transmitter,
+
+[00:37:33] but I guess it was more janky then. And it electrified him really badly, and I think he was only saved because his basis threw himself at him and got him away from it just before he died. He was, I think, fully unconscious, had to be entirely immersed in a tub of iron. immediately afterwards, which apparently helps. I don't know if it does, but that's what they did anyway, I guess.
+
+[00:37:53] And then he spent weeks in full head-to-toe comedy bandages. I don't know if that helps either. That's amazing. Very nearly died then. Wow. Must have been hard for him to wank when he was in that. Oh, God. You got the tissues already made, though, haven't you?
+
+[00:38:12] Guitarists are so innovative with, like, the engineering side of their instruments. Like Brian May made his own guitar, which he still uses. Hendricks just used to walk around with a broom handle, just a big broom because he couldn't afford a guitar, but he just wanted to practice the movements and shapes on it. So everywhere he went, he just had a mop, basically. And then when he got a guitar, he was left-handed, but there was only right-handed guitars around him.
+
+[00:38:36] So he had to learn it both upside down, or then he would have to take someone's guitar, unstring all the strings, re-string it backwards. Did he have a left-handed broom, or... Good point. It might have been the were only right-handed ones, yeah. Did he restring, is it like putting the toilet seat down? Did he re-string the strings before he gave it back to the person?
+
+[00:38:54] Oh, you'd like so. You would. That's that really annoying. Yeah, one of the most influential guitarists of the 20th century was someone I hadn't heard of called Libber Cosson. So she was born in 1893, and she was a folk and blues musician. And lots of people say that they were influenced by her.
+
+[00:39:10] So she was a big influence in like bluegrass and jazz and stuff like that. And it's very plinky, plunky, plucky, plucky, the way she plays. But she was left-handed. And again, so she was, I think, about 12, when she saved enough money from a job she was working to get guitar. But yeah, had to flip it upside down as you do. And so she would always play the high notes with her thumb and finger and then the low notes with her little finger.
+
+[00:39:30] And she was amazing. So she played from age 12 to 17. She wrote a couple of songs, but people didn't hear about her. She then got married, stopped playing until her 50s. And then she bumped into in a department store. In fact, she rescued the daughter of a woman called. Ruth Seeger, who was a kind of famous musician, and she became their housekeeper and retaught herself for guitar from scratch. Again, still playing it back to front. And she released these
+
+[00:39:55] songs that became huge influences and they like shot into the charts. I think Bob Dylan says he's massively influenced by her. Because she just sounded different than any other guitarist, right, because she was playing it in this different way. Yeah, the plicky plucky way. It is amazing. And it's often necessity as the mother of invention because you don't have teachers in those days. You would just learn it. Yeah, you're just self-taught. Yeah, right. Have you heard of Carol Kay? Yeah. Yeah.
+
+[00:40:18] So the Beach Boys. Yeah. So she was the bass player in Gov Vibrations, for instance. But not just the Beach Boys. She was the bass player for these boots made for walking, La Bamba, I'm a Believer, the theme for the Batman TV show, Suspicious Minds, Ridingstow Cowboy. Wow. Like pretty much any song you can name from the 60s and 70s,
+
+[00:40:38] she was the bass player in it. And she had a different way of playing, just like this woman you were talking about Anna, because she started off as a normal guitarist, an acoustic guitarist, and so she would play with a pick. And she then turned up at a session, and the bassist hadn't turned up. And they said, oh, can you play bass? And she was like, okay, fine, it's just pretty much the same.
+
+[00:41:00] I'll be able to do it. And so she always played bass with a pick, whereas normally you would play bass with your fingers. But her sound was so different than anyone else, and she just became the one bassist that everyone wanted on. It's what I mean. Easy technology. All you need is that idea.
+
+[00:41:15] Yeah. But if you do watch any old Beach Boys documentaries of the making of that period, the sort of love that comes out from Brian Wilson watching her play is pretty phenomenal. It's amazing. It is extraordinary. All these names that kind of disappear, yet what a massive influence they've had. Like, Les Paul is a really good example, Anne Mary Ford, them as a double act. They had 36 gold records, 11 number one pop songs. They were huge. Yeah, that's a lot. That's huge. They sold millions and millions. And I only know him as a guitarist. and I hadn't heard of Mary Ford. Yeah, but like in 50 years time, will people remember who Jewelie was?
+
+[00:41:50] I don't now. And he hasn't heard of BTS. Biggest band on the planet. Exactly. BTS, like. Behind the scenes. Yeah, that's what he should do as his thing like, BTS, BTS. That's what he should do.
+
+[00:42:03] Amazing. Is it banned? There you go. Did you know that spiders play guitars? Oh, they'd be good. They are good. Because they got eight hands. They got eight hands.
+
+[00:42:12] Be like dueling banjos. But they could do it on their. I think that's exactly what they do. Yep, they play their webs as guitars. So this is amazing. They adjust, they tune their webs and they adjust all the different threads on their webs to different tightnesses. So they're very aware of exactly what the tightness is that they've adjusted it to. And that means whatever lands on that thread, they're going to know what it is. So if it plays like an A-sharp, they're like, ah, that's a mosquito. It's exactly that. That's incredible. And they can tell things. Other spiders gather around and go,
+
+[00:42:44] Oh yeah, nice web, nice web. Who's made that top radio bit for me? Yeah, they do. And then they eat them. Okay, it is time for our final fact of the show, and that is Anna. My fact is that firefighters are allowed to scoop water out of people's swimming pools to put out fires. I should hope so. As in, I would be furious if I found out they weren't allowed to do that if there was a fire nearby.
+
+[00:43:14] Oh, yeah, really? I don't know. If I was a duke. And I had a big swimming pool. That's true. And I went out to dive in from my big diving bar and there was no water in. And it would be taken to put out some fire in the Peasant's Village. I'd be furious. You're right.
+
+[00:43:29] You're right. James, were you the one Tory voter in last week's election? Well, exactly as you say, Andy, it's one of those things you're like, I'm glad that's true, but I'm sort of glad they've laid down the law at some point. And this seems to be true. Firefighters know it worldwide. There are slightly different rules. So in California, the fire department says,
+
+[00:43:47] you can take water from any safe source and it's completely up to the discretion of the pilot what you use. So if you are a socialist pilot who hates people with swimming calls, you can't go there first. So they're doing it via helicopter, which we should point out. Sorry, yes. Yeah, sorry, you're not just wandering over with a bucket. Yes, so there'll be a firefighter in a helicopter
+
+[00:44:05] and they've got a bucket underneath which are called Bambi buckets. For reasons I couldn't assertion and you lower... I imagine that once you've got a big bucket of water underneath your helicopter, you're probably moving around like a deer on ice. That's nice. Oh, maybe it's that.
+
+[00:44:21] That's good. I was thinking because it looks a bit almost like an upside down deer because it's got like wobbly leg bits tapping it to the helicopter. Anyway, these are some of the biggest buckets on the planet. I'm very excited. Are they? Honestly, I spent a fair little bit of time trying to find out the biggest bucket on the planet.
+
+[00:44:38] And there's not readily available data. Okay. So these helicopters. Yeah. So they're pretty cool. Yeah, and they don't call ahead. you know, you could be just getting a road to go out in your swimming pool and you'll see a giant bucket descent from the sky. Has anyone ever been lifted up, scooped up?
+
+[00:44:54] That's my child. Yeah. They have to do a proper safety scan before they descend. So you'd hope that would include. You never know. That's interesting, though. Could you see? I was reading a blog and this guy says we can see very well and we will see you.
+
+[00:45:11] But if you run out and start waving your hands at the helicopter, so they're saying, no, please. I want to have a sweat. He's like, we do take that into account. But also, what I love about it is that the house is tracked. They mark down where it is. And then, if you ask them, they will reimburse you your water. They don't bring back water.
+
+[00:45:29] They will reimburse you the money to fill. Or if any damage was done in the process of lowering the big bucket. Which almost never, sorry, I want to say in defense of human beings, based on, in fact, two separate firefighters, they said, no one's ever done that. Except there was one person, I think there was one company where it was completely destroyed like a nursery school where the whole thing. But yes, I think people don't tend to call the fire department and go,
+
+[00:45:49] you know when you rescued a hundred people yesterday, well, my swimming pool's a bit shallower. But just hear me out, right? Yeah. The fire department have scoped out of the swimming pool. They've said, yes, we're good to go. Right. The bucket is descending.
+
+[00:46:00] Meanwhile, I walk out. I've got my, I'm probably reading my book, and I've got my headphones in, so I don't notice. The helicopter above you. I don't know. Have you been near many low-flight helicopters? I've got very big surround of headphones, you know, like over ear. BTS.
+
+[00:46:16] Trying to catch up on this great stuff. I think it's possible. I would like, that I'll be scooped, that I'll end up in the bucket. I've been underneath helicopters at various heights, and I can tell you you would 100% know there was a helicopter if it was within, you know, 20 or 30 meters of you. Also, you're jumping in the pool with your big noise-counseling headphones on. I've invested in special waterproof headphones, and it's a windy day already, so I don't notice the down draft. Waterproof buck.
+
+[00:46:43] It's one of those bath books. You always say those on holiday, don't you? I've got the bath and a Karenina. It's really big. Do you remember there was that story about, and it was definitely fake, but for a long time before the internet really snopes and all that, it went out there at schools where a scuba diver was found in a tree. Do you remember that?
+
+[00:47:04] It was always told us a riddle, I think. It was like scuba divers in a tree in a forest, how did they get there? It's that there used to be a sea here, but over time, you know, like coastal erosion and stuff. Think what we're talking about right now. It's just a real idiot scuba diver that doesn't realize that you're supposed to go in water. He's like, I'm here to see some wildlife.
+
+[00:47:26] It's Lockham's Razor, that's it. He's going to the beach in the afternoon, but he's going to the forest in the morning, but he doesn't want to go home in between the big of his stuff. These helicopters, by the way, some of these helicopters, they don't do the bucket system. I love this. And this is the big ones.
+
+[00:47:41] I think it's the, there are some chin. Nukes which do this. They are big ones. Maybe it's some of those. Maybe it's a different helicopter. But they have, they have snorkels. They have retractable snorkels, which they drop down like an elephant's trunk. Right.
+
+[00:47:53] Into your pool and suck up into the body of the, they can suck 4,000 gallons in a minute. Wow. Which is quite, now that sounds fast, right? It sounds fast, but I did a little bit of maths. It would still take that helicopter 122 minutes exactly to empty an Olympic pool because of the size. That's two hours and two minutes it would take to suck up an Olympic pool, which is the same duration of some like it hot. So you could watch the whole thing in the cockpit while you did that.
+
+[00:48:24] Yeah, yeah. And then when you're going to part out the fire, they're like, I actually like it hot. But the weight must be insane. Yeah, so they couldn't suck up an Olympic pool. But they could do a few thousand gallons. Oh, that feels heavy, though. I know, I know. It is.
+
+[00:48:39] Wow. So as well as being able to take your water without asking from your pools, Another thing that firefighters can do is they can smash the hell out of your car if they need to, right? And this does happen a fair chunk and it's often in the news It's a long day fighting fires
+
+[00:48:56] So one example was I was reading about a guy Who parked his new BMW Outside a house in East Boston And he parked it in front of a fire hydrant This is a big, big problem You shouldn't obviously do that, highly illegal But people do do it And if a fire breaks out
+
+[00:49:13] and the fire engine gets there and they need the hydrant, what they'll often do is if they don't have enough people to literally pick up and lift the car out the way, they'll smash through the windows so that they can thread the hose all the way through there. That's interesting that the hose just can't go over. Yeah, right. Why do you need to take it through the windows?
+
+[00:49:30] It might be tight, as in the angle on the other side. That would have to be really tight. What they say, yeah, is it's all to do with if you want the ultimate amount of water to seamlessly come through, you can't have any kinks. The reason we often hear about these stories, is the car owner's say, you smashed up my car, you need to pay for this. And any time it goes to court, the judge will throw it out and give them a fine.
+
+[00:49:50] So in this case, this guy was fined $100 for his two-day-old new car that he parked outside. Wait, he was fined for making a bus. So it's like not only you're not being reimbursed, but we're also fining you for what you did. I love it. Great stuff. Have we talked about Feynman's polls before? I'm not sure we have. Not sure.
+
+[00:50:08] Oh, interesting. So it used to be that you'd have the fire out. engine on the ground floor. Yeah. And then you'd live one floor above that. Yeah. And then you'd have another floor above that. Guess what's kept in that? Um, like, just old stuff that you don't need around the house anymore, but you don't really want to throw out. Yep, that's right. The strippers? The strippers? No, it's not the strippers. Um, it's... The horses, though. Because the horses would live in a fire station. They live on the ground days. But they live on the ground floor. This is in the old. This is in the days of horses, though. Right.
+
+[00:50:42] The hay. The hay. It's the hay loft. Wow. Cool. And you would have, you would have poles to, I think, transport the hay. It's apparently a binding pole which helps you move the hay right. You could just drop it.
+
+[00:50:54] You can just drop it. It feels like the pole's not necessary in the... Well, there was a Chicago firefighter who dropped down the pole. Allegedly, this was his Fosbury flop moment, where he slid down the pole to responding quickly. And the captain of that company, David Kenyon. Oh, my God. So they're basically like, we've put this pole in for literally no reason. We can't just drop the hay down, completely pointless.
+
+[00:51:18] And then this guy actually finds a use for it. Yeah. And then their crew was suddenly arriving first at every fire in the city because they're doing their poll stuff. And get this. Only one cat has ever been able to use a fireman's pole. Wow. Okay.
+
+[00:51:31] Is that, am I... It's not a riddle, guys. It surprised that it's so many or so few. Yeah. It would wrap itself around and go down. Yeah. Wow. It was called Sam the Cat.
+
+[00:51:40] And it was the mascot. got for the Long Beach, California Fire Station in the 60s, and the crew taught Sam to use the pole. I reckon tons of cats can. They just choose not to them. What I think is nice is that Fireman's polls are still going, despite many articles over the last 30 years, that keep claiming they're being phased out.
+
+[00:51:55] I've read they're being phased out. I'm surprised Europe hasn't gotten rid of them. EU, Brussels. No, it's woke, isn't it? It's because of woke. I'm trying to build on my character of being a pro duke. Of course. Yeah.
+
+[00:52:10] Yeah. Brexit it, got it. I think there have been a few less. And from what firefighters say, I think there are accidents. So I think there was one person who said that two of the people I've worked with have ended up in hospital from going down a pole ill-advisedly. Is that slide injuries, as in you burning yourself on the friction, or is it you've hurt yourself because you've done it upside down for a laugh or whatever? Or you've fallen. Someone did fall in the hole of Seattle firemen.
+
+[00:52:35] Yes, I did like, well, there was one person. What most of them say is it's members of the public because now that, fire stations are often open to members of the public or partners, they don't know that this is the fireman's poll box. How can you not know? Because, well... Maybe this goes to the back cave. I don't know. One story that kicked off a big campaign to get them phased out was in, I think, 2002. And the poll is, you open a door on the second floor, and that's the pole door.
+
+[00:53:03] I did not. And you go in, I think, often. I thought it was totally free range. Yeah, I thought to just be careful. In which case, you could understand. stand someone falling down. Absolutely. Someone went in, thought they were going to the loo.
+
+[00:53:14] They thought it was a toilet cubicle. Oh, God. Fell straight through the hole. That's quite funny. That's incredible. Quite an awkward moment because you will have chat yourself by the time they get you off. Just want to go to the toilet.
+
+[00:53:29] Just as you're recovering, a bale of hay crashes on top of your head. But they're still going. They're around a lot, yeah. A lot of them in America. And apparently I think some firefighters don't use them and some firefighters do. And some, one of them said to his chief, uses it, like, literally he'll come down
+
+[00:53:45] with a cup of coffee in his hand, just uses it to get up and down. That's what you would. I got a little riddle for you guys. Great. Okay, why in Germany... That's not riddle, it's just a question. Why in Germany are firefighters
+
+[00:53:56] having to fight fires in tanks? Oh. Okay. Is tank German for fire engine? No, that's a lovely thought. Do they have lots of spare tanks? Because they're not allowed to use... any of their military weapons because Germany has a famously paired down army.
+
+[00:54:13] So they've accidentally made too many tanks and they don't have enough fire engines. They're going along to the fires in tanks? Yeah. Shortage of fire engines? No. Using the big sort of cannon in front of the tank as a hose. They probably are using it like that. Put a big sponge on the tank's barrel.
+
+[00:54:31] Put a big sponge on the front of the tank and just sort of squeegee the fire out of existence. Lovely. That's, okay, good thought. No, it's not that. It's much like Bohemian Rhapsody, very closely connected to the Nazis. Putting tracks on top of each other. No, it's a World War II thing. What this is is that there are tens of thousands of unexploded bombs that landed during World War II
+
+[00:54:52] that are still out in forests and so on. They're buried underneath. You know what? I don't want to be on the Nazi side. I think those bombs were probably not dropped by the Nazis. I was saying it was dropped to get rid of it. Nazis are connected. It's related.
+
+[00:55:06] It's related. I think you're allowed to it. They started it. Yeah, yeah. So basically, fires would start and bombs would be exploding, set off by the fire. And so because you don't know where they are, it's too dangerous to go in, they would often have to use a tank. And this is recent. This is only a few years ago.
+
+[00:55:22] Is this happening on the regs in Germany? Because I feel like unexploded World War II bombs every couple of years, maybe you get one. But is it that a lot? There are definitely areas where there are more, aren't there? I think there's some areas of France that you still can't go in. And is the tank, the idea is that a tank is that a tank is more? bomb proof. Because I still be nervous in a tank. It gives you a bit more protection. It gives you a bit more than
+
+[00:55:41] say just walking or a truck. Imagine there's a fire in this room. God forbid. We are on what floor? The third floor? But we need to get out to the building, maybe out of the windows. We can't go down the stairs. What are we hoping for on the ground? A big
+
+[00:56:00] trampoline? Oh, like a mattress? A big trampoline or mattress? Exactly. So this is the Broder LifeNet. which is this thing that you see in old movies where you get a load of firefighters all holding a big trampoline, and it's got a little target in the middle of it, and you jump out and hopefully you're fine. And that really was a thing. It existed from 1887 when it was invented, and it was still being used as late as 1960.
+
+[00:56:30] Wow. But the reason that they don't use them anymore is because they quite often went wrong. Of course. I mean, it must be so hard. It must be terrifying jumping onto one of those things. Yeah, there's a lot of problems. Basically, you're probably in a place with lots of smoke. So being able to see the trampoline is hard enough.
+
+[00:56:49] And then quite often people would be like, oh, we need to save the safe in the corner with all the erection vases in. So let's throw that out first. And obviously they would throw heavy things out and then that would mean that the trampoline would break. Or quite often more than one person, person would jump out at the same time, like two or three people would hold hands and jump out. Yeah. And that would be too heavy and that would break. Or quite often you would just miss and
+
+[00:57:15] you would hit a fireman. Right. Yeah. Yeah. Like it was really the reason that they don't exist anymore is because they did save some lives, but actually their hit rate was quite low. But wait, surely, I'd rather a trampoline than nothing. Yeah. Yeah. Yeah. So when you say, why were they faced, was there something better to replace it? Yes, there was. It was like these big sort of cherry picker machines. Oh, right. Yeah. So it can pluck you out of your wind Yeah, yeah. So once you get over like six, seven stories, these things don't work anyway. Right. And they managed to get these kind of cherry pickers that would be able to get that high.
+
+[00:57:47] So you didn't need the trampolines anymore. I'm imagining a situation where someone's on the fourth floor. The whole building's on fire. They've looked out their window. Their swimming pool is below them. I think, yes, they leaped out to safety, landed it. A giant bucket comes down, picks them up, and trumps them back into the fire. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can all be found on various social media accounts. I'm on Instagram with at Shreiberland. James. My Instagram is No Such Thing as James Harkin. Andy. I'm on Twitter at Andrew Hunter. Yep. Or you can get to us all by going where, Anna? You can get us on Twitter at No Such Thing or Instagram at No Such Thing as a fish or you can email podcast at QI.com.
+
+[00:58:38] Yep, or you can go to our website, no such thing asafish.com. You will find all of our previous episodes up there. You will find a link to our secret club, clubfish, and you will also find links to our upcoming tour, Thundernerds. There's lots of gigs to come to. Please come along. We're starting in the autumn. It's going to be amazing.
+
+[00:58:57] Otherwise, just come back here next week for another episode. We'll see you then. Goodbye.

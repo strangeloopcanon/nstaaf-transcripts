@@ -1,0 +1,183 @@
+# No Such Thing As A Fish - No Such Thing As Russian Hacking in the Cockroach Election
+
+- Episode date: October 13, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-russian-hacking-in-the-cockroach-election
+- Slug: no-such-thing-as-russian-hacking-in-the-cockroach-election
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Things A Fish, a weekly podcast coming to you for the QI offices in Covent Garden. My name's Anna. I'm here today with Andy, James and fellow QI elf Alice Campbell Davies. And once again, we've gathered around the mics with our four favourite facts from the last seven days. And in no particular order, here we go. Starting with you, Alice. So my fact is, humans. should be able to sense magnetic fields. Should be.
+
+[00:00:46] Should be. So there's been a little bit of research into this. Not that much, actually. But we have cryptochrome in our retinal cells, which is what's responsible for pigeons, migration, and that kind of thing. And we also have magnetite in our brains, which is a magnetic nanoparticle, which helps direct other animals like bacteria.
+
+[00:01:04] So why the disappointing lack? Why can't I say where I live from here? Well, Andy. You live south. Can you point south from here? Yes, I can actually. But only because you know where the river is. I know where the river is.
+
+[00:01:17] Well, they have actually done some studies on this. There's a really controversial study from the 1980s done by a guy called Robin Baker, where he took a bunch of students out on a minibus, drove them on a really circuitous route all around Manchester, and then blindfolded them and told them to point to home. A bunch of them that didn't have magnets strapped to their heads could point home, and a bunch of them with magnets strapped to their heads couldn't, which suggests that magnetic fields were interrupting their ability to point homewards.
+
+[00:01:45] But then no one else has managed to replicate this study, have they? No, in fact, it's been disproven multiple times. But he has said that he has replicated the study, so in a sense. Maybe all of these people lived in that massive tower on Dean's Gate in Manchester, which you can see from pretty much the whole city. I think they were blindfolded on the journey, weren't they? Yeah, I'm not sure if they were blindfolded on the way home. That might have...
+
+[00:02:06] Takes it too far. It's an amazing beginning for a horror story, though, where you have to put on a blindfold and get on the professor's bus and then it goes away and you don't know where you're going. I thought, I mean, I would have assumed that there was a really exciting surprise awaiting me like a hen party or a big champagne picnic if I was blindfolded and put on a bus. If I was just strapped to a magnet and told the point at something. Would you not think you were being kidnapped, maybe?
+
+[00:02:27] By my professor? I don't know. I had perfectly normal professors. But still, what normal professors who take you on head parties? So there were two people who tried to represent. replicate this called Max Westby and Karen Partridge. And they were at the University of Sheffield. And they were unable to do it.
+
+[00:02:46] And they quite sniffily said, maybe it depends which side of the Pennine Hills you're on. That's an academic slam and a half. It is. But I think maybe people from Yorkshire just aren't as good. It's ironic, considering that a partridge, a real partridge, probably would be able to sense which side of the Pennines it was on.
+
+[00:03:06] That's irony for you. Right there. There are a lot of different kinds of Anna, and sometimes actually weak jokes can just qualify as irony. Irony being particularly appropriate because they use iron to sense where they're going. That's ironic. You've got to admit that, Anna. It's still not ironic. So some humans are magnetic, and they can literally pick things up that I can literally pick things up.
+
+[00:03:34] With my hands. I can't. That's why I always have to ask you to do it for me. Can you pour that coffee into my mouth? Do you mean they can just hold their hand hovering over a magnet and the magnet will fly towards their hand? They are people who've had magnetic implants in their fingertips. Wouldn't that get very problematic though, you know, opening a fridge or something?
+
+[00:03:54] Yeah, you'd just be stuck to the fridge the whole time. Absolutely. Fortunately, you're by the fridge, so you're all right. So these implants are quite weak. You wouldn't actually stick to your fridge. But people are getting them, biohackers. And there's a lot of interviews with these people saying they really don't regret it. They think it's fantastic.
+
+[00:04:08] because you're finally able to pick up tiny metal objects and determine whether metals are ferrous, which is something that we've all always wanted to be able to do. And you can feel electric fields if you have one of these little implants. So if you go near a microwave, then your finger starts vibrating. I think I also can tell when I'm near a microwave. You have visual clues, don't you? It's true.
+
+[00:04:29] It's only useful if you're worried about being near a microwave and you have hidden microwaves in this environment. Or if you don't know if it's a prop microwave, Like if your house is also a film set. So it is a useful implant to get. Unfortunately, it has to be done by like a tattoo artist or something. So you can't get an anaesthetic to have it done. And it is relatively painful, according to one of the people who's got it done.
+
+[00:04:53] They put a massive syringe in your finger and then they fire a magnet into it. What? Is it in the fingertip? Yeah. They could put it anywhere in your body, I guess. No, James. I'm just saying they could. I'm not saying they would.
+
+[00:05:05] If you're suggesting a world of which my magical penis tells me where the migraine, Like a pointer. It would be like dousing for water, isn't it? Dowsing for microwaves. Imagine being near a branch of curries. There are people who claim to be magnetic but who aren't really. You know, you see pictures of them online and they've got spoons attached to them. Yes, like circus performery type tricks.
+
+[00:05:34] Well, often it's just people and they get into like the local tabloids. don't they? Yeah. Because they're magnetic, but they never are. Like a lot of the skeptics kind of go there and try them out. And it turns out a lot of people are leaning back in the pictures. And if they lean forwards, the spoons would just fall off. Also, if you've got kind of greasy skin, then it will stick to the kind of sebum in your skin.
+
+[00:05:58] So that everyone's kind of sticky in a way. So not only are you a liar, but you're kind of a greasy, sweaty liar. Yeah. James Randy, the famous skeptic from Australia. He would douse people in talcum powder and suddenly they would not be magnetic anymore. But surely you could just disprove it by putting a magnet next to them
+
+[00:06:16] and proving it didn't stick. Yeah, although they would be able to make it stick. How sweaty are these people that random fridge magnet? So I've got a little pen here and I can kind of stick it on my head if I kind of lean back a little bit. Yeah, we do need to get aircon in this room, don't you? I remember reading that humans have magnets in their nose
+
+[00:06:37] that maybe we want to use to navigate, so they found magnetite in our ethnoid bone in our nose. Oh, sure. And so there's lots of speculation about the fact that we might have been able to use this at some point to navigate, isn't there? Yeah, I think the theory about there being magnetic stuff in the nose was disproven by a guy called Joe Kershvink or something, I can't pronounce his surname, at Caltech,
+
+[00:07:00] who is the biggest critic of Baker's work. And he has just, I conducted an experiment last year, where he set up a big Faraday cage in a Caltech basement to block out other magnetic waves of sorts and put people in it, and then subjected them to magnetic fields from different directions. And he has actually shown that when you have magnetic waves coming from one direction, there is a massive change in your EEG spec, so your brain waves,
+
+[00:07:27] so that it does show that there is something in your brain that is responding to the direction of magnetic fields you're exposed to, which is really interesting. Does it have any effect on, Not your thoughts, but is it... It's not mind control, Andy. No, it's not mind control, but I'm just trying to work out how that could have been useful. I think in the past, when we were maybe migrating over larger distances,
+
+[00:07:47] it was something we could have relied on, but now we don't really need it. So maybe in the past we could sense magnetism. Perhaps, yeah. Well, also the cryptochromes we have in our eyes, because they're in our eyes, which is the same as with birds and other animals, suggests that at one point we did use it to see magnetic fields. And basically what we're saying is loads of animals can see magnetic fields and can sense magnetic fields, but we just can't, right?
+
+[00:08:10] Yeah, maybe. Do you know which animal has some magnetite in its tongue? A little mollusk, isn't it? It is, it's a mollusks. Mollusks have magnetite-capped teeth, but when I say teeth, their tongue is made of teeth. Radula. Radula, exactly, yeah, yeah. So they can do that.
+
+[00:08:28] And this is very cool. There are some bacteria which contain magnetite in them. And at Baker, the scientists we're talking about, it's either him or. another, it's either him or someone else. There is a theory that the very earliest bacteria were magnetic. But get this, some bacteria are aligned towards the North Pole, and some bacteria in the southern hemisphere are aligned towards the South Pole. Do you know what I found about bacteria, actually, looking this up,
+
+[00:08:52] which I think is quite cool, is that one of the things is when bacteria multiply, then they split in half, and they keep splitting in half. And when they're magnetic, that's really hard to do. And the reason is that normally the way they do that is by belt tightening. So literally when a bacteria splits in half, it just tightens. They spend a bit less money that month. Yeah, absolutely. They just cut down until a bit of them starves to death and it falls off.
+
+[00:09:15] No, they literally, around their middle, they squeeze their membranes tighter and tighter until it just kind of chops them in half. Oh, but that's terrible because if a bacteria family thinks, oh, we have too many kids, we're going to have to tighten our belts, then suddenly they've got twice as many children all of a sudden. Another animal that has magnets in it very often. Young children. Possibly. Also, cows. So cows, there's this problem that they don't actually chew their food. So what are they doing when they're doing that chewing thing that they do? I think they're chewing their previous meal, aren't they?
+
+[00:09:50] They're chewing a meal that they've regurgitated, I think. So first time round, don't chew. And often there's little bits of barbed wire or metal or nails in the grass until they swallow them. They end up in their stomach. usually go to their second stomach, their reticulum, I think it is. And then that's really bad for them because it can poke through the stomach lining and damage them in various ways. And so you tend to have to feed a magnet to a cow. And so this is very common. A lot of farmers give their cows magnets when they've got what's called hardware disease,
+
+[00:10:17] which is literally when they've swallowed a nail. And you just literally feed it to the cow on a little tube and it sits in your second stomach and it will attract all the metallic stuff to it. And then it stays there for the rest of the cow's life and it stops. But doesn't it just end up with a cow with a large lump of metal in it, a large lump of barbed wire and stuff like that? I guess it's not floating around. Exactly. But if it gets big enough, surely it would sort of form a blockage.
+
+[00:10:40] Yeah, I think there comes a point where that cow deserves to die once it's eating, you know, 100 coils of barbed wire in a row. But the way they check as well that the magnets still in place is they use a compass and then they can work out that way, whether there's a magnet in their stomach. So what we're saying is actually quite a lot of cows are magnetic. and you could stick like children's drawings on them like a fridge, right? Yeah, absolutely.
+
+[00:11:04] God, why don't we try that? And presumably, if we actually could sense magnetic fields, we'd get incredibly disturbed and disrupted by large fields of magnetic cows. Yeah, whenever Andy walked past a field of cows with his penis magnet, he'd be immediately arrested. But I'd have a cast iron case. But then you'd be attracted to that cast iron case as well. Now on to fact number two, that is my fact.
+
+[00:11:35] And my fact is that the army has tanks that carry fold-out bridges for when they meet a river that they can't cross. And I think this is so cool. I saw this on Popular Mechanics website this week, which is a great website. And there's been an exercise that's been done in America, in California over the Colorado River, where the army's built a temporary bridge over the Colorado River.
+
+[00:11:58] and I didn't know that they did this. And this is a crucial part of being in the army is that you have to have these, you have to get these tanks which don't carry any weapons. They just carry a little foldable river. And then another tank carries a bridge to go over that foldable river. Yeah, sorry, they carry a foldable tank.
+
+[00:12:17] They carry a foldable tank. And inside that tank is another tank. There are actually Russian tanks, these ones. Inside them, they have a foldable bridge. And when they get to a river, then they unfold the bridge, pops out, and they cross it. So when you cross over the bridge that you've been carrying, then do you pick it up back up and put it on top of your tank again,
+
+[00:12:37] or is it there forever? It's not there forever. It's temporary. So the last vehicle to cross over the bridge is the one that was carrying the bridge and that is attached to the bridge. And when it's crossed over itself, as it were, it rolls itself back up into its body and goes on. It's amazing.
+
+[00:12:51] It's so cool. And the US Army has one of these things that can make a bridge in, what was it, they were saying 98 seconds. And it can still travel at about 30 miles an hour. It can't... What, the bridge? No, yes. No, it can't travel at 30 miles now while it's doing it.
+
+[00:13:06] But it is awesome. It is. And if you watch, you should watch the video on it because it shows exactly how they do it. So there are lots of different types. But this one that crossed the Colorado River, a tank goes up to the edge of it and these folded lumps of bridge
+
+[00:13:20] kind of spurt out of the tank, like a projectile. They spur into the water. And then they pop open. It's like one of those blow-up tent things. like pops open in the river and then boats hook onto the popped open bits of bridge and then they tow them into the right place and they slot together like Lego and then everyone slides over it. So wait they have boats. Why are they not going over on the boats? Because they need to carry like huge numbers of tanks and like a whole battalion across. That was a problem with tanks
+
+[00:13:46] for a long time wasn't it? They just kept getting stuck in holes. Yeah. It was. Like in the early days of tanks in World War I you get loads of pictures of them just stuck in a trench. Yeah you do. There was one that was designed so that it could go into a trench and then it would spur little... Why is everything spurting all the time? It's very perfect. Have you heard of Hobart's Funnies? No.
+
+[00:14:12] No. Good, great. So these were tanks that were used in D-Day, and there was this whole range, like a range of superheroes, basically. They all each had their own special superpower. Everyone's rolling their eyes, but it's true. So there was one called the Swimming Sherman, right? This was an amphibious tank, which could operate in water and on land. It had a massive canvas screen all around its middle, like a skirt,
+
+[00:14:36] and it would just inflate the skirt when it was in water, and that would buoy it up enough for it to go with the propeller. And then as it got out of the water, it would just drop its skirt to the ground, and then roll off onto land. Wow. That's really impressive. It was very cool. Oh, there were loads.
+
+[00:14:50] There was the crab. There was the bobbin. So the crab could go sideways? The crab could not go sideways. It was a terrible crab. It had a massive flail on the... end of it, it was used for clearing mines on beaches and things like that. Oh, like crabs do. Exactly. They're all perfectly named, right? What about the bobbin? What did that do?
+
+[00:15:07] The bobbin, well, it was a bit like this bridge one in that it's got something on its front, this massive rig on its front, but instead of a bridge, it's matting, it's like rush matting, it sort of lays down a path up the beach. So if the ground is too soft or if the sand is too spongy, sinking sand, you just have this one track laying tank which makes a road as it goes. I couldn't find if they used it. We'll seem so. Yeah, I think you wouldn't go to the expense of building that and not use it. Even in fact, after the invasion was over, you'd probably still say, can we just use that to see if it works?
+
+[00:15:40] And the other thing is you don't lose anything by using it, do you? Even if there's no sinking sand, at least you've got a nice little path to drive it. Yeah, he designed the flamethrower one, I think, as well, didn't he? The Churchill crocodile flamethrower. Again, crocodiles don't throw flames. So he wasn't great at naming things. You know, that wasn't the focus in the Second World War. No, the flamethrer could fire flames 100 metres, over 100 metres.
+
+[00:16:04] And it looks incredible. It's like robot wars. It genuinely is like a real-life robot wars. Yeah. I can't believe it took so long after this to make robot wars a thing. You would have thought that the TV commissioners who were watching a Normandy landing sort of. But the Imperial War Museum has an amazing page all about the various different Hobart's Fonies and all about the different weird things they could do.
+
+[00:16:26] It's very cool. Wow. Hey, I read about another bridge and no one seems to know about it except beachcombing, which is this weird block. But I mean, literally no one else has picked up on this thing they found, which is in 1850, there's an article that I found it in the English Civil Engineering Architects Journal. And it states that the Academy of Sciences in France was considering an idea for a suspension bridge between England and France, so going from Dover to Calais. and the idea was that it would be four barges would be sunk at equal distances apart across the channel and then they'd have chains going up from the barges to the surface and then the chains would be fixed to the bridge which would run from England to France
+
+[00:17:09] and then above the bridge would be these huge balloons it described them as giant balloons of elliptical form and firmly secured which would support in the air the extremity of these chains and so we'd have these balloons floating in the air, attached to the trains, and then also attached to the abutments at the end of the bridge that would keep the bridge over the channel. I think I can see why no one else has picked up on this
+
+[00:17:34] because it's a pretty stupid idea. Do the balloons have to stay in the air forever? Yeah, of course they do. There's a problem one. Why? I think these are these puncture-safe balloons. Entropy, that's a problem. That's what you always say, James.
+
+[00:17:47] Whenever anyone proposes any idea. Do you want a cap of tea, James? Wow. What's the point? It'll only be cold by the end of the universe. Okay, moving on to fact number three, and that is James's fact. Okay, my fact this week is that a new law in Oregon has banned a game called Big Injun. There is no evidence anyone has played Big Injun since the 1950s,
+
+[00:18:16] and no living person appears to know the rules. Sorry, they have just banned this. Yeah, they banned it this year. Sorry, I didn't twig that. I just thought you were saying that there's this crazy. the old law that bans a game that we don't know about this year they have banned it. So this year they had a new gambling rule that came in and they had a whole list of things you're not allowed to play, including things like Chinese Chukukuk, and Wheel of Fortune,
+
+[00:18:41] Shemin de Fair, don't know what that is, panquinkui, red dog, acy juicy, and one of them is this thing which is called Big Injun. And as far as we can see, no one has ever played this in the last 50 years. and I found this in an article on Williamette Week, which seems to be a local newspaper in America, and they have a column called Doctor No, and he looked into it, and he couldn't find any evidence of it either.
+
+[00:19:05] But I mean, it's good to take the precaution, isn't it? Exactly. So he says, quite rightly in this column, if they did decide to get rid of it, then it's just going to set up a load of big engine kind of card games in the whole state, and everyone will just start gambling on it, won't they? That's so true.
+
+[00:19:22] Oh, it'll be a loophole. Oh, it'll be a loophole. But we don't know the rules. Yeah, but they could just make them up. Well, can't you just make up another game and play for money on that? Yeah, that's true. Actually, it does say any other gambling-based game is banned. So I don't even know why they did the whole list.
+
+[00:19:35] Why did they include Shaman DeFair, for example? But do you remember at school when you weren't allowed to play British Bulldog anymore? You would just give it another name and play it. I don't remember that. No. We used to do that. We were always allowed to play it. Did yours get a bit out of hand?
+
+[00:19:50] Oh, yeah. It's very violent game, British Bulldog. Yeah, I think they like us to pick each other off sometimes Keep the numbers down So where have they got these game names from? So it appears to be that they were in an old, very, very old law Maybe in Nevada or something like that And then they've been picked up by the next law
+
+[00:20:10] And they just basically copy-paste The rules from another law Okay That's really slack Yeah, I agree Yeah, I want bespoke artisan laws handcrafted by masters. Just for you.
+
+[00:20:25] For the state game. Yeah. Do you know you weren't allowed to gamble in libraries until 2005? And we've just re-legalized it. Are you really allowed to? We've got to. We've got to know.
+
+[00:20:35] Re-legalized gambling in libraries. We sure have. So in 1819... What do you bet on like what book is going to go out next or what? You can do whatever you like, James. That's a really good idea for a bad. Because the odds of you winning are astronomical.
+
+[00:20:47] You could have a lottery, frankly, at those odds. Well, you would just go for a popular one, 50 shades of grey or something, wouldn't you? True. You wouldn't choose an extremely rare book. If I got better odds, I would. Would you? But then I'd try and game it somehow. It's too open to corruption, James, because you could just ask your friend to go in and get out, you know, a book about the Merovingian dynasty or whatever.
+
+[00:21:07] I think you could clamp down on that kind of thing, and I'm sure they have now that they've legalised it. You see a lot of armed guards outside libraries these days. But it was banned in libraries in 1898. And when was it legalised? 2005. You're not allowed to, like, put a casino in a library, aren't? I don't think if you walked and dragging a slot machine behind you. It's going to be more like just playing cribbage or something, is it?
+
+[00:21:27] I think it's just poker, yeah. But if there were more slot machines based on 19th century novels, I would certainly gamble more. You could have to get all three Bronte sisters in a row. That would be fun. And would you lose if you got Bramwell. Yes, you would. You lose everything.
+
+[00:21:42] This is very niche banter guys. What a niche show about the fourth Bronte. So on things being banned. Oh yeah? I was looking into computer games being banned And there was a game in Australia Called Getting Up and it was banned For the reason that it glorified graffiti
+
+[00:22:00] Okay Because it was it again involved grapeting Well it was Yeah it wasn't that mad at a decision Is it a bit like Grand Theft Auto for graffiti? Not really, it's a really wholesome graffiti game Basically it's about a youth who uses street art To take down a corrupt mare who murdered his father
+
+[00:22:18] And then the mayor launched as an anti-graffiti campaign To try and cover up the fact that he killed the kid's father But the authorities thought Oh well this will encourage tagging and graffiti So they banned the game So it's like street pictonery They should call graffiti that actually And I think people wouldn't get in so much trouble
+
+[00:22:36] Is it cock and balls? Yes, it's cock and balls South Korea banned video games Between midnight and 6 a mm That's a very short ban They woke up and they immediately repented their decision. What are we thinking? Get back to the chamber before anyone finds out.
+
+[00:23:00] What was it? Midnight to 4 a.m.? Midnight to 6am every day. Every day you weren't allowed to play video games from midnight to 6am. And it was to combat the video gaming problem, which is kind of a thing in South Korea because a lot of people are addicted to it. It's called the shutdown law.
+
+[00:23:15] And it was under 16 so you couldn't do it because they were staying up all night and playing. But they recently, sweetly, they amended it in 2014 and the law can be lifted as per request of the children's parents. So I guess you call up the government and you say, look, my kid's fine, he just needs it to concentrate. He just hasn't finished level four yet. He needs to finish it.
+
+[00:23:36] Yeah. So I've got something here about porn star Ron Jeremy says that Nintendo bought the rights to two adult film parodies, Super Hornio Brothers and Super Hornio Brothers 2 in the hopes that they would never see the light of screen. So they made the movies. They didn't make the movies. Well, the movies were made.
+
+[00:23:54] This is what's confusing. These exist, but... But they were never released. I do have the plot of Super Hornio brothers, and it's shockingly unsexy. I'm not going to read out the whole thing. But basically, it stars Squeegee Horneau, who's Rhondermi, and his brother, Orneo Horneau.
+
+[00:24:10] And they're trying to save Princess Polina from King Pooper. Well, my wife's called Polina. My pet name is Pooper. What was it? King Pooper. Your love interest is Orneo Horneo. Arno, horneo, yeah. Wow.
+
+[00:24:27] Also on Nintendo, I learned that Nintendo was very close to releasing an accessory and game that let players create their own knitting patterns. During its market research period, all seven of the beta test volunteers died of old age. Okay, on to the third. Final fact, and that is Andy's facts. My fact is that African wild dogs have a sneeze-based voting system. I swear to God.
+
+[00:25:01] It doesn't sound particularly true, does it? It doesn't, but researchers from Brown University have looked into this. And so African wild dogs, they're a kind of dog. They live. Any guesses? Oh, in the wild. In rural. They live in Africa, southern Africa.
+
+[00:25:17] and they live in packs of between about 10 and 40 animals and there are not many left, they're only about 1,400 left in the wild. And basically they have these, what they call rallies where they just spend all day sleeping. Sorry, what the dogs call rallies. They, the dogs have what they call them. They the dogs have what they, the researchers, call rallies.
+
+[00:25:39] It basically just means they spend all day sleeping next to each other. But they get up after a while and they sort of say, Shall we go hunting? And they get up and sneeze. And if the more sneezes there are, the likelyer it is that the pack will go hunting. Wow. And it's them basically voting to do it. And also different votes carry different weight.
+
+[00:26:01] So every pack has an alpha pair who are in charge. If those two sneeze, it's much likelier that the pack will go off hunting than if two junior dogs sneeze. That is so weird. Yeah. Do they know, have any idea why they do this? to decide whether to go by sneezing. Yeah, there are other ways of making noise. I guess it's, yeah, your option's
+
+[00:26:25] limited when you're a dog. They can't bark, actually, can they? Can they not? Oh, there we go. They can kind of scream. That would be a very upsetting voting system. Imagine if you went into the voting booth and you had to just scream.
+
+[00:26:39] I always do that. Oh God, these guys again. Especially the recent elections. It's been a tough time. I always thought that sneezing, was a thing that you did without doing it on purpose, as in you can't make yourself sneeze, you have to have some kind of input.
+
+[00:26:55] I think these guys can. Yeah. Yeah. That would make sense. I guess so. Otherwise, just like a little bit of pepper goes across the African plains and suddenly they're all off somewhere. Or never goes across and they all starve to death.
+
+[00:27:07] Where's the pepper guys? They're very cool animals. They're amazing, yeah. So they might be the nicest animals that I've ever studied. There speaks someone who's not a zebra. Old statement. They're very altruistic, aren't they? So the way they operate is that they really care for each other.
+
+[00:27:29] So, for instance, if a wild dog becomes ill or injured or gets older, the rest of the pack really cares for them and will sacrifice a lot of food for them. And similarly, if there are a lot of young wild dogs around, African wild dogs around, then the older members of the pack will bring them food and sacrifice food for them. them and sometimes that all the members of the pack will die prematurely because they've starved themselves in order that younger members can thrive. Wow. And they regurgitate meat into each other's mouths throughout.
+
+[00:27:58] So some animals do this to their young. So when they do it, they're altruistic. And yet when I do that, I'm apparently a really creepy boyfriend. Your girlfriend's vegan, Andy. It really is unfair. Yeah, so they'll go and hunt and then they'll bring back some food in their stomachs and then they'll vomit it up into their fellow pack members' mouths if the other pack members were just too lazy to hunt.
+
+[00:28:26] We have previously mentioned, I think, that Buffalo vote. Oh, yeah. With a sort of standing up and sitting down system. Yeah. But loads of animals vote. Go on. Cockroaches. Do they?
+
+[00:28:39] How do they vote? Mostly Lib Dem. But at least someone votes for them. At least when the whole of the planet is blown up by the nuclear war, the lived ems will be the... They'll have a majority. Exactly. Finally.
+
+[00:28:58] No, so they vote by movement. And there was a scientist called Jose Halloy from Brussels. And he did an experiment with robot cockroaches in 2007. And he made robot cockroaches, which were not what you're thinking of robots with sort of implants in them as they've started doing these days. He just made little machines which could move around. They just look like cockroaches. No, they didn't even look like cockroaches.
+
+[00:29:21] So why are they called robot cockroaches? Because he covered them in paper, which was infused with robot pheromone. Covered them in paper infused with cockroach pheromones. So they smelt like cockroaches. Honestly, they look nothing like cockroaches. They're just little white boxes with wheels. And then, so he infiltrated their society and got them to be accepted by the cockroaches, right? and then he managed to screw the cockroach election
+
+[00:29:47] by moving all his robot cockroaches to the wrong place where they were going to build their home and they were all voting to build the home over here even though the actual cockroaches have previously considered and rejected that site. I tell you what, if the Kremlin are listening to this. Okay, that's it. That's all of our facts. Thanks so much for listening.
+
+[00:30:11] If you want to get in touch with any of us, these guys can be found on Twitter. James is on. at James Harkin Alice is on At Alice scrambled Andy is on At Andrew Hunter M
+
+[00:30:21] And you can email Podcast at QI.com to get in touch with me Or you can go to At No Such Thing Which is our group Twitter account Or go to no such things Afish.com Where you can book tickets
+
+[00:30:32] For our tour that's coming up Or you can buy our book Okay, that's all for this week We'll see you again next week Goodbye Goodbye

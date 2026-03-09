@@ -1,0 +1,223 @@
+# No Such Thing As A Fish - 2: No Such Thing As Death By Aardvark
+
+- Episode date: March 14, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/2-no-such-thing-as-death-by-aardvark
+- Slug: 2-no-such-thing-as-death-by-aardvark
+
+## Transcript
+
+[00:00:00] We ran it on QI a few years ago, which was, there's no such thing as a fish. There's no such thing as a fish. No, seriously, it's in the Oxford Dictionary of Underwater Life. It says it right there, first paragraph, no such thing as a fish. Oh, and welcome to the second episode of No Such Thing as a Fish. This is a QI Elf podcast coming to you from our offices in Covent Garden. We want to say, first of all, thanks to everyone who listened to the first episode that we put out last week, got huge numbers.
+
+[00:00:34] We weren't expecting it and really great feedback. There's a lot of technical hiccups that we are sorting out. We're going to get on with this second podcast now. My name is Dan Schreiber. I am sitting here with three other QILs, James Harkin and Anitcha Zinski and Andy Murray. And once again, we're huddled around our microphone. And these are the best facts that we found out from the last seven days. So in no particular order, here we go.
+
+[00:00:59] OK, first fact. And let's go with you, Anna. Yeah, I found out this week that the first ever sandwich that we know about contained wine. Yeah, but it was a wine sandwich. So bread with wine? It had other stuff in it, but wine was one of the ingredients. Yeah, so the first recorded sandwich was actually more of a wrap. It was called a correction.
+
+[00:01:20] It was invented by Hillel, who's a Jewish religious leader from like 100 BC. So the Jews have been like at this festival eating wine and figs and spices and stuff were mixed up together for about a thousand years. And he decided to just shove it between some flatbread. And part of the concoction was wine. So this isn't the Earl of Sandwich's invention. I'm doing the inverted color sign there when I say that. So this is way before that.
+
+[00:01:46] This is way before that. The Earl of Sandwich claims credit where it's not due. Really? Yeah, I never heard that. And that's actually probably, I don't think we've done that, JenagonQI, who invented the sandwich, have we though? Yeah, but what did the Earl of Sandwich do, if anything? I think he was the first person to, I mean, he probably wasn't,
+
+[00:02:02] but he was known for shoving meat between bread in the West. People say it's because he was like a gracious gambler. Yeah. There's no way that he invented the sandwich anyway, is there? 00:02:12,320 --> 00:02:18,080 Because like you say, forever people have been putting things in between two slices of bread. Yeah, it's so obvious. I think I like this idea of people just putting their name to something
+
+[00:02:22] which has been invented for so long. Like in 1999 in Japan, someone patented curry. Wow. Yeah, what happened was then very next year, 80 people tried to patent pizza after this happened. Really? Yeah. Well, there was a guy in Australia who successfully painted in the wheel, right?
+
+[00:02:41] Oh yeah, what was that? Successfully. Yeah, successfully. But that was actually the first wheel in Australia. It was just 20 years ago. 00:02:50,640 --> 00:02:52,240 Yeah, he did, he successfully did it, and it made it past and he did it as a kind of parody protest to show
+
+[00:02:59] how things were getting through the net when it came to patents. Oh, thank you. Because I think too, a lot of people are getting stuff stolen in Australia as an invention. And so, yeah, he successfully did it. I remember the guy in the 70s who patented the comb over. Oh yeah. That's another one. Like obviously that's been happening forever, but yeah.
+
+[00:03:17] This is from the Wikipedia about the sandwich, full disclosure. But what it says is, before being known as sandwiches, this food combination seems to simply have been known as bread and meat. Or, or, or meat and bread and cheese. Hang on, I just thought that would work for all fillings. Yeah. You just bread and, yeah. Bread and cheese and mayo.
+
+[00:03:41] Can you imagine? I'm just going to go and have a cheese and ham, bread and cheese and ham. I was thinking about, because the idea of wine going into a sandwich, it's a nice thing about what else goes into a sandwich that you would not expect. But then I started thinking, I bet there's a lot of stuff that goes into wine that we don't expect. But there's a nettle wine. So nettle being those stingy, yeah. Yeah, so you can get nettle.
+
+[00:04:07] That's it. There's cannabis wine, which is available, which has become really popular in the US. This is my favorite one. It's a Chilean wine. And it's been created using meteorite form during the birth of the solar system. What? Yeah. So it's a, it's a, it's been developed by a guy called Ian Hutchin.
+
+[00:04:22] He's an English guy working in Chile. It's a meteorite that's believed to have crashed in the Atacama Desert in northern Chile, about 6,000 years ago. And it submerged in the wine during the fermentation process. Yeah. So it's a, it's a meteorite wine. I mean, that's, that's extremely cool. Yeah.
+
+[00:04:39] I really want to taste that. In China, you can get something called three penis wine. Can you guess what's in that? Two penises. No, three penises. It does contain, yeah. It does contain three different penises. Of what?
+
+[00:04:53] Okay. So deer. Yeah, deer is one of them. And it's supposed to be like a general pick me up kind of. Deer, maybe a bird. One of the birds with a penis. Yeah. Most birds don't have penises today.
+
+[00:05:03] 97% of bird species have no penises. But the other three, some of them have very, very. Poverty players. Yeah. The Argentinian lake duck. 45 centimeters and curled. Wow. And that's just a blue tit.
+
+[00:05:18] Yeah. If you, if you're listening to this at home, Google Argentinian lake duck penis. And you'll see exactly what Andy's talking about. It is epic. Wow. Well, what's the third penis? I can't remember.
+
+[00:05:32] Mystery penis. Mystery penis. I don't know. Lucky dip penis. Penis du jour. There is one other wine. It's a Japanese wine, which is called Japanese feces wine. It's known as tongsol.
+
+[00:05:47] And it's primarily made using human or animal feces. What's the third kind of feces? Okay, I'm going to give you one. I'm going to trump that even for a disgusting wine. In 1495, it was reported that the Spanish were mixing the blood of lepers with their wine and feeding it to the French. It's an early kind of biological warfare.
+
+[00:06:12] That's pretty rancous. Were they at war at the time? Yeah. It wasn't in pre-emptive. Okay, so leper, sorry, leper what? Leper's blood. But it probably wouldn't have done any harm. No.
+
+[00:06:22] Because 90% of people, 95 are immune to. Hansen's disease. Hansen's disease or leprosy anyway. And a lot of people will probably misidentify leprosy even then as other skin conditions. I'd really like to quickly say a word about the Earl of Sandwich because I love him. It's actually the current Earl of Sandwich
+
+[00:06:41] I wanted to mention, the 11th Earl of Sandwich who's direct descendant of the Earl of Sandwich because he, so he's obviously thought I'm the Earl of Sandwich and I've got this son called Orlando. So he's got Orlando who's going to be the Earl of Sandwich. So what I'm going to do is I'm going to go and set up a sandwich shop and go into business with this guy called Robert Earl and it's going to be in Orlando.
+
+[00:07:02] And so that's what he did. So the current Earl of Sandwich owns a sandwich shop in Disneyland Orlando called Orlando Bloomers. It should be. It's called the Earl of Sandwich. The good thing about the Disneyland in Tokyo, you'll know this better than me, Andy, but didn't one of the North Korean Kim Jong, you know this guy?
+
+[00:07:23] One of Kim Jong Il's three sons was disinherited for going to one of the Disneyland's. Really? Isn't that great? He had three sons and the first two botched it and I can't remember how the other one did, but Kim Jong Nam is the eldest son of Kim Jong Il and he was detained in Japan with a fraudulent passport in 2001.
+
+[00:07:43] He was trying to pass himself off as a Dominican named Pang Xiong which translates as Fat Bear in Chinese and so they deported him, but he was trying to visit Tokyo Disneyland with his family. I got told the other day that, who was it? It's someone I know went to South Korea and they stood at the border of South Korea and North Korea
+
+[00:08:05] and apparently what you see when you're at the South, looking at the North, is a huge cardboard cutout of a city that North Korea has put up to give the impression that they're a huge metropolis from South Korea. Yeah, absolutely. Oh, okay, they're called Potemkin towns, don't they? Yeah, yeah, but it's just,
+
+[00:08:21] it's like literally like, imagine the Hollywood sign, but done as a ginormous looking city. So that's what you see when you look at North Korea. What happens when it rains? What's made of like, I'm sure they laminated in it for some reason. Oh yeah, okay, yeah, sure.
+
+[00:08:33] What's proof of that? So there is an industrial area at the border where they both work. That was where there was a lot of recent tension and they shut down what's called the Kaesong industrial area and actually workers from both countries go into it, every day thousands of them work together. So there's this one weird point of contact
+
+[00:08:47] between the two countries. Well, my favorite fact about that part of the world is it's called the demilitarized zone, isn't it? Yes. But it's the world's most militarized zone. Yeah, that's what I'm saying, isn't it? Why isn't that an Alanis Morissette zone? God save you.
+
+[00:09:03] You missed out on so many opportunities. Didn't scan. We should have rewritten QI version of Alanis Morissette. Okay, let's move on to fact two. James, this is your fact. Yeah, I like this one. It's in 2003, three people in Mexico died of acne. So, I love that.
+
+[00:09:26] I'm pretty sure you can't die of acne, can you? I know. I don't know how they died. This just came from a list of the ways that people died. So it's on nationmaster.com and it gives all of the mortality stats for all the different countries. And so if you looked for people dying of acne,
+
+[00:09:44] there were seven deaths worldwide, three of which occurred in Mexico. And what I think it is, is just the way that they do their stats and other countries might have people dying of the same thing, but they don't say it's a acne. They just died with acne. Let's just say it's that.
+
+[00:10:01] Because I can see that. Other than they have to cut a weapon. It looks to me like he died of being a five foot six male. Yeah, maybe they just have to tick a box of what they died with and acne is right to the very top. And they're just like, oh, it's the first. It's true. That's the worst thing that ever is there.
+
+[00:10:18] It's an ailment right at the top. Is Aardvark a disease? No. So yeah, it's going to be acne. We killed by an Aardvark. Yeah. Death. They do have a list of people who were killed by animals.
+
+[00:10:28] 27 worldwide in 2003. People killed by contact with millipedes, which is pretty cool. Poisonous millipedes or? Yeah. Venomous ones. And I think five of those were in El Salvador. I seem to remember you telling me ages ago
+
+[00:10:42] that in Australia no one's died. Of course. No one's ever died in Australia. It's really interesting. But we don't have acne in Australia. That no one bitten by spider or a snake has died in the last 50 years. It's certainly been a long time since a spider
+
+[00:10:58] bite killed anyone because they have very good anti-venom now in Australia. I think it was the 1980s. And I just remember looking this up because I got paranoid that I'd been bitten by a black spider in Tasmania. Pretty sure that I was going to be the next case.
+
+[00:11:13] Wow. What we do a lot on QI is find people with funny deaths. And I don't think that's bad because death is just a part of life. And we all die. And if it can be quite a funny thing, then that's good. So you could have been in one of those lists of...
+
+[00:11:28] You could have been a fat. Famous fat. You would have liked it. It would have been announced in the QI office and you would have been like, that's awesome. That's great. That's going on series L. I almost had a death which I thought if it happened
+
+[00:11:40] it would have made a nice list for you. Well, when I was living in Hampstead we got evacuated from our apartment one day because police were outside. They didn't even tell us. But we went outside and then they didn't let us back in. And I was like, what's going on? And they said, we found in the basement of your flat
+
+[00:11:54] an unexploded World War II bomb. And so they had people inside detonating the bomb. But it struck me that had that had gone off, the person calling my parents, the police officer, would have had to have said, your son's met with a tragic accident. And so how'd he die? He was blown up.
+
+[00:12:11] Who did this? We believe it to be the work of the Nazis. I'm going to become a victim of World War II. I mean, that's Hitler would have killed me. I have an even worse one than that because there was a Russian psychic in the 80s who wanted to prove that he was psychic. And so he stood in front of a moving train
+
+[00:12:28] and tried to stop it with his mind and was killed by the train. Oh, my God. I have one death, which I'd like to share. Please, wow. This is the man who introduced the camel to Australia. His name is John Ainsworth Horrocks. And he died in 1846.
+
+[00:12:44] And he brought the first camels there because they were used to build the railways. And the result is now that there are a million feral camels in Australia. But anyway, the man who introduced them, John Ainsworth Horrocks, was killed by his own camel. What? He trampled to death?
+
+[00:12:59] No, he was riding it. And he was reloading his gun. It sort of lurched a bit as he did so. And the gun went off, blasted him in the arm and in the body. He lived four days during which he ordered the camel to be shot. What a bit of a thing. I looked at them so acne, just because I was so skeptical
+
+[00:13:22] about the idea of acne killing you. So, and then got really caught up in theories about acne from the 19th century, what caused it. So for like 150 years, they were referred to as chastity postules because it was thought that the reason you had acne was because you weren't having sex. And so like doctors wrote, so I got this quote from a doctor in about the 1830s,
+
+[00:13:43] it is a fact that this affection disappears in young girls immediately after marriage. And that it is especially seen in young men who observe rigorous chastity. And so they thought, well, so first of all, doctors recommend that you marry as soon as possible to get rid of them. And then they thought another way of like alleviating
+
+[00:13:58] it was to give people laxatives. Because that I guess like, I don't know, it spells purges you in a similar way. But weirdly, they do actually work to cure acne. So they try laxatives and laxatives do work. Okay, acne comes, can I tell you about acne please? It comes from the Greek word knaeon, meaning I know or I scrape.
+
+[00:14:17] Oh, really? Yeah. I have another cool death here. This was a guy called Morton Norbury. And in 1910, all I know about him is he was killed after an argument over who possessed the most handsome mustache. That's such a good death.
+
+[00:14:33] That's wonderful. What's his name? Morton Norbury? Morton Norbury is a great name. He sounds so like a guy with a huge mustache. I'm on his side. Okay. Okay, time for fact number three.
+
+[00:14:47] That is my fact. This week, I bought a copy of, there's a new book out called This is Improbable Two by Mark Abrams. Mark Abrams is the founder of the Ignoble Prizes. He's also a good kind of QI family friend. Yeah, we love him. He's been on Museum of Curiosity.
+
+[00:15:01] We often do talks at his Ignoble tours. One's going to be happening this year. Yeah, if you go on to, if you check out Mark Abrams, he's at Mark Abrams. I'll check out my egg shape. We'll post up when we're going to be appearing in that. So he's, so this book is basically a collection. He runs as well as the Noble Prizes magazine,
+
+[00:15:20] which is called The Annals of Improbable Research. And it's a kind of a collection of all the greatest research projects that have been undertaken by scientists around the world. He collects them, rewrites them. And so I'm reading the book at the moment. And there was one story which it's not so much a fact, but I really like the idea of it.
+
+[00:15:34] It's all the other notable Einstein's out there. His point being that it's very hard to have the surname Einstein if you work in science because there's quite a famous one who worked in science and he often overshadows the rest of them. So the most notable ones that are out there is Emmy Einstein who has set an equation that predicts the composition of a pork carcass.
+
+[00:15:56] There's also a lady called Rosemary Einstein who she and two other colleagues at the University of Leeds investigated the use of cannabis and alcohol and tobacco by 300 young persons at the university. So these are two people who've published reports that have been quite successful in the scientific community.
+
+[00:16:13] But it did get me thinking about other namesakes, the other people with incredible shadows to jump over. Yeah, it must be hard. Maybe it opens some doors, or maybe it just puts a lot of pressure on you. I think you're right. I think it does open doors. So are there any other Obamas out there at the moment? At the moment, not really.
+
+[00:16:33] I mean, there's a prime minister in... I can't remember what country, but he's Obama and he's currently in power. Really? Yeah. Oh, wow. Yeah, I don't think he's related, but I'll see if I can find his name. It's not actually Obama just secretly running a thing on the side. I have one found an Obama which I think is better than Barack Obama.
+
+[00:16:52] Then the current... Yes, Obama. Norway. Yep, it's the city of Obama in Japan. Oh. Oh, yes. Don't... Come on. Okay, I'll give you a chance. It's got a population of 32,000, so already that's pretty good.
+
+[00:17:04] I imagine they'll be quite productive, and they make 80% of Japan's total lack of chopsticks. Oh, that is great. That is great. Yeah. So when can... When can the president say he's done that? Made 80% of Japan's lack of chopsticks? He can't.
+
+[00:17:17] I don't know. He's working two jobs as it is. But yeah, I mean, it's... It is one of those things. We all have namesakes. So you, James Harkin, had a James Harkin. Yeah, there is another James Harkin who writes for the Guardian, I think, or some other newspapers,
+
+[00:17:33] and Molly from QI met him at a party once, and apparently he doesn't correct people when they think he works for QI. And he said that if I ever want to claim any of his articles, which I'm sure are very good that I can do that as well, but... That's nice. That's like going into a cooperative with someone else. Yeah. I should do that with the other Amy Murray.
+
+[00:17:55] With the other Amy Murray, yeah. And we just do a straight split of everything, you know, the money and... Start a company. I mean, whatever, you know. I think that's it. Andy, if you're listening to this now, just please, please get in touch.
+
+[00:18:06] Well, he needs to listen, because people are coming up going, hey, great, work on the podcast. Thanks, cheers. Yeah. My thing about the etymology of acne. This week, I've been trying to come up with some new facts for our book.
+
+[00:18:21] So we did one, three, three, nine QI facts over Christmas, and we're selling it to America, and we need to come up with some facts that work for an American audience to replace the ones that were for a British audience. And the one that I really liked was that the first ever player drafted by the Pittsburgh Steelers NFL team
+
+[00:18:39] was called William Shakespeare. Oh. Isn't that great? That's such a great fact. Really love that. And it's great. And it's great as well, because you can imagine that any of the journalists
+
+[00:18:48] who really struggle with running out of cliches, basically, that's just a gift. Like, you suddenly got Shakespeare as a baseball player. Yeah. And he was a football player, NFL player. Uh, not so good.
+
+[00:19:01] Don't have a string of baseball toys ready. That's what I'm saying. I try to actually test out the theory of someone who is great, like, do my own kind of collection of Einstein's, as it were. So I try to think of the most impressive person alive. So I picked who I think is sometimes pitted
+
+[00:19:20] as the greatest living mind at the moment. So the actor James Franco. James Franco is consistently, if you read a paper on him, treated as some sort of great god of the intellectual. For example, this is a quote, this is someone from an interview.
+
+[00:19:33] He has an unusually high metabolism for productivity, a superhuman ability to focus. So anytime people write about him, they write about with these huge kind of descriptions. Wow. So check this.
+
+[00:19:45] Okay. But, okay, I'll justify why people think he's so impressive. He's not only an actor, he's an author, he's a director, he's a poet, he's a painter. Despite having an acting career, which he's constantly doing,
+
+[00:19:54] he's doing postgraduate courses and got permission to take as many as 62 course credits per quarter compared to the normal limit of 19. While continuing to act, he has an IQ of 140, which is considered to be genius level, although when I was looking into that,
+
+[00:20:10] I know it's a bit, it's very dubious because the graph I saw had Mozart, Beethoven, James Franco. Stephen Hawking, no, Shakira. It's a bit dubious. But so I kind of, I started thinking, okay, that's the best Franco we have.
+
+[00:20:27] I want to see more of that. A lot of back general Franco. General Franco. I mean, is he better than James Franco? Well, definitely, he did more. Maybe he did fewer movies, but was in charge of more countries. Yeah, I think that's fair.
+
+[00:20:40] I did find one other guy who is his name, he might be a better Franco, he's called Jesus Franco. So he's a Spanish director, he was born in 1930. Actually, he died late last year, rather sadly. He made over 180 movies.
+
+[00:20:53] So he made a cult movie in 1961 called The Awful Doctor Orlaff. But then his career kind of took a side where he was turned. So he made a movie called The Two Female Spies with Flowered Panties. A Penis for Three. Not a free penis, right?
+
+[00:21:10] Night of the Open Vaginas adds Lulu's Talking Bunghole. And he was named by the Catholic Church as the most dangerous director out there. So he was called Jesus as well. Jesus, yeah, Jesus Franco. And then Franco is the first name of the first Italian in space, so we have an astronaut who's...
+
+[00:21:29] The Jesus guy, he was originally called Terence, but as they saw his film, they kept saying, Jesus Franco! For God's sake! But I think it's interesting, that's suddenly, you know, take one name, Franco. Lucy's Talking Bunghole. Lulu's Talking Bunghole.
+
+[00:21:44] Lulu's, sorry. Night of the Open Vaginas. I don't even know what that means. Is it like Night of the Living Dead? Yeah, I don't know. It's a zombie vagina. Walk the Earth at night. Yeah.
+
+[00:21:56] Well, did you know that used to be the theory about vaginas? They moved around the body. They would disappear into the middle of the night to go get food. I read a book called... I should be here. It should be here.
+
+[00:22:09] It was called... It's a blind Jesus friend. It's called The Story of V, and it was all about vaginas, the history of vaginas. Um, okay. History of vaginas. The first notable vagina.
+
+[00:22:17] It was invented by the Earth of the West. Who got hungry when he was playing cards. The best thing I saw about people's names is I went onto Facebook, and NPR had done this post on Facebook saying, Do you have a name which is similar to someone famous?
+
+[00:22:36] If so, how has it affected your life? And there are 1,100 comments on there. I read through them all. But there was a girl called Sharon Stone who said, If I had a book for every time someone said, Are you wearing panties? I'd be as rich as the actress.
+
+[00:22:52] Oh, a buck. I think he said a book. I've had a book for every time. I'd be able to have a very successful secondhand bookshop. And there was a guy called Dave Apps who had to get special permission from Facebook to have an account,
+
+[00:23:07] because his name was Apps. Yeah, which is pretty good. And there's also a guy called Nicholas Dragon, and he said, I don't think there's anyone famous with my name, but anytime I meet someone new, they say, Well, that's a cool name. And a cool story, Nicholas.
+
+[00:23:27] Did you guys know that Samuel Johnson, I know we've got, so we found one and found the other Samuel Johnson, but actually there was a third Samuel Johnson. So can you give a repeat of what that is? Yeah, of course. So one of the other QI researchers found that there was another Samuel Johnson
+
+[00:23:40] alive at the same time as Samuel Johnson, you know, the guy who wrote the dictionary, who was a sort of a dramatist and entertainer, performer, who was also known as Lord Flame. What a great name that is. Yeah. But there was a third Samuel Johnson who,
+
+[00:23:55] so Samuel Johnson, the one we know about the dictionary man, was asked to do a translation of this great work by Fra Paolo. I can't remember what it's called, but anyway, it was this great historical work. It was big cheese at the time. It was like the Harry Potter of its day.
+
+[00:24:07] And so Samuel Johnson was like, yeah, I'll do that. Started translating it. Then found out that they'd also asked another guy, also called Samuel Johnson, to do it. And so he kind of was affronted. He was like, not only has someone else been asked to do it, but it's someone else called Samuel Johnson.
+
+[00:24:21] And then there's this series of exchanges in newspapers where Samuel Johnson, one, is getting really angry with Samuel Johnson, two. And eventually, nine of them translated the work. They just got into this big skirmish and they both went, I'll sort it then. Fine, I'm not doing it. And then Lord Flame came along with it.
+
+[00:24:34] Hi. Watch me do it, Somersault. Oh, dance your translation. Let's move on to our final fact. So, Andy, welcome to you. Andy, what's your name? Yes. OK, the fact is the first contact lenses cost as much as a car.
+
+[00:24:55] Wow, what year was this? Well, they were invented in Germany in the late 1880s originally. And Britain was a bit late to it. That was in the 1930s. But even in the 20s and 30s in Britain, so even though they'd been invented for 50 years, they were still that expensive. Wow.
+
+[00:25:08] Yeah. So they weren't presumably things that you would change every day. No, no, no. These were hard contact lenses, proper sort of shell-like ones. And they were very thick as well. So they could only be one for two hours max at a time. Wow.
+
+[00:25:22] And then the irritation in your eye was so great that you had to take them out. And initially, you had to have a mold taken of your eye. There are great videos. If you look up on British Pathé news, there are photos of people's eyelids being pulled apart, this big mold being stuck in their eye. And they're sort of the promotional videos.
+
+[00:25:38] And the lady's saying, look, you look at how not so much you look at how nice my eyes look now. I don't have to wear spectacles. And she's in the horizon watering. Clearly in great little veins everywhere. She's clearly in great pain. Off the marches with a gun to her head. I just don't know.
+
+[00:25:53] You're such clever and ease. Wow. It's really funny. You should look them up if you're listening. That's amazing. Maybe you could post it on your Twitter. Yeah, I will. I'll put it on my Twitter, which is at AndrewHunterM
+
+[00:26:04] and you'll be able to see. So yeah, that was the first contact lenses. So you actually found this out because you went to a museum, didn't you? I went to the Museum of the British Optical Association, or British Ophthalmological Association. I didn't remember the name of it, but I did go to it. It's in Charing Cross.
+
+[00:26:21] Oh, OK. It's great. Just on the same street, five doors apart, there's Benjamin Franklin's house from when he lived here and this amazing museum. But you can only go around it by appointment. So you have to email the curator and say, I'd like to see all your cool stuff.
+
+[00:26:34] And there's so much amazing stuff there. So not only that, the first ever soft contact lenses, i.e. much thinner and more comfortable, you had to, they came in a glass tube. And to get access to the lenses, you had to break open the glass tube. So there are now shards of glass near your contact lenses. The first I'm promoting them with just crying blood.
+
+[00:26:54] So I can't breathe. I can't breathe. Clamour. Yeah. They were invented not to help you see, they were invented to shield people's eyes because there's a medical condition called kericotonus. Kericotonus.
+
+[00:27:08] But very close. It's called kericotonus. And it means you have a very, very sensitive, it's the cornea, is it, at the front of the eye. And it also becomes pointed. And so they were invented to help people just over their lives without the intense pain irritation. So yeah, they were initially a medical thing in that sense
+
+[00:27:28] rather than an eye sight thing. Yeah. Did you guys know that Abraham Lincoln's contact lenses were made of wood? That's just not true. No, it's not. I'm sorry. I was talking through all that.
+
+[00:27:45] I read about supposedly Renee Descartes made some contact lenses that were made out of what, they were fluid inside that would magnify things. But they stuck so far out of your eye that you couldn't blink when you had them in. That's great. I'll tell you about that. The early snow goggles were made out of caribou
+
+[00:28:07] antler, weren't they? Really? Yeah. And they weren't see-through. They just had a very small slit that you would be able to see through and it would protect your eyes when you were skiing. That's great.
+
+[00:28:17] I guess that would work. I was surprised to read that 64% of people, supposedly it's an estimate, wear glasses. Have you got contacts? Yeah, yeah, I've got them in now. Oh, you wear contacts? Of course you do. They're made of wood.
+
+[00:28:28] I don't want to take them out an hour and a half though. You've got to pay that loan off. Okay, that's it for this week's episode. That's all of our facts. Thanks so much, everyone, for listening. I hope you enjoyed it. We're going to be back again next week with a special edition of No Such Thing as a Fish.
+
+[00:28:50] We've got two special guests, Greg Jenner, who's the historical consultant for the Horrible Histories show. And we've got an American comedian called Alex Edelman. Until then, if you want to talk to us individually about some of the stuff that we said on the show, you can get me on At Shriverland. James can be gotten on At Egg Shaped.
+
+[00:29:07] And he can be gotten on at Andrew Hunter M. Anna is still not on Twitter, but if you want to get hold of her at Quickopedia, she answers all of those from there. Or you could head straight away to our new podcast page, which is on qi.com slash podcast. We're going to put up videos. We're going to put up pictures from this episode,
+
+[00:29:23] extra facts, links to show you where we got some of the information on. There's a lot to play with. So again, send us your feedback. Hopefully you enjoyed it. And we'll see you again next week. Goodbye.

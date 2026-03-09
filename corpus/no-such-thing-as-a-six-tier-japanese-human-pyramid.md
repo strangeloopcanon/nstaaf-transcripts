@@ -1,0 +1,213 @@
+# No Such Thing As A Fish - No Such Thing As A Six-Tier Japanese Human Pyramid
+
+- Episode date: March 25, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-six-tier-japanese-human-pyramid
+- Slug: no-such-thing-as-a-six-tier-japanese-human-pyramid
+
+## Transcript
+
+[00:00:02] Welcome to another episode, a No Such Thing as a Fish, a weekly podcast this week coming to you live from Bristol. My name is Dan Shriver, and please welcome to the stage. It's Anna Chisinski, Andy Murray and James Harkin. Once again, we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with me, my fact. My fact this week is that the frog, whose Latin name means blue frog, is actually green. This is very exciting. This is the Australian green frog. And basically when it was sent from Australia to England for scientific purposes, because of the preservatives and so on, inside the glass that it was kept in,
+
+[00:01:04] it turned it blue. So they named it blue frog. And then it was not until they saw a living one that they realized, oh, actually, this thing's green. But it is still, its Latin name is still blue frog. Oh, that's good. Is it not some idea that it might always turn blue when it dies? I think that it is true
+
+[00:01:21] because there was a study done wasn't there last year and it was about how certain animals make themselves look certain colours when they don't have the right pigments and I think it was looking at birds and the shape of their feathers and how it's actually often about the shape of it,
+
+[00:01:34] the structure of something, and then how it makes the light reflect off it without using pigments. And it said that that's why the Australian green frog turns blue after death is because I think the shape of it kind of changes and it gets floppy once it dies. It could also be that all these scientists are colourblind.
+
+[00:01:50] To me, it's kind of like a computer game where it's game over. Just a frog suddenly just living is green, just... Wow, wow, wow. And it's blue. It's just a really good way of letting you know that, okay, that's a dead green frog. Did you not think? Because frogs, okay, I was reading about other frogs. This is not necessarily the Australian green frog.
+
+[00:02:11] But I went on a website about frogs, and I went to a section of it called Frog Quintley Asked Questions. Labored. Very labored. And they wanted to know about how much sleep frogs get. And the reply on the website was that frogs and toads will sit very still with their eyes closed. The assumption is that they are asleep, but it is not clear how long they sleep per day. So we don't know. They'll just sit looking like they're asleep, and they might just be hanging out.
+
+[00:02:42] But they deny it. They deny it afterwards. I wasn't asleep. They're very much like dads in that respect. So I found out about a frog which changed its colour called the Moor frog and it's brown but during the mating season all the males turn blue so that they can tell which ones are males and which ones are females because the males are very enthusiastic and they will just get mounting any frog which looks different to them
+
+[00:03:07] so they think it's evolved because they're so stupid they can't tell whether they're talking stupid what would you know if you saw two brown frogs If I would have sex exclusively with brown frogs. I'm more excited by the term you used, get mounting. That's an insight into your private life there. There's a tortoise that turns red as it's having sex, isn't there? Yeah, which kind of humans do as well.
+
+[00:03:36] Again. In my experience. I think it turns redder. I just think, again, very useful because you're like, I'm just going over to see Barry. Barry, oh, okay, you're busy. How close do you usually get to people before going, are you guys having, you are having sex?
+
+[00:03:52] Okay, if you could put a flag up or something next time. Jesus. Wow. But that is, that's, that's cool. It's really cool. Sorry, did I say it was a tortoise? No. Cool.
+
+[00:04:08] It's the golden tortoise beetle. And it turns about having sex. And it's, you can see where I had trouble there. Yeah, it's sexual signaling apparently, but I would have thought it turns red as it's having sex, and apparently it turns red to say, I am ready to mate now. But I would have thought by the time you're doing that,
+
+[00:04:25] you don't really need the signaling anymore. So there's a frog as well that is red, and it's often called the tomato frog. Literally, its color is meant to warn predators that it's not safe to eat, because it is quite toxic. There are lots of frogs. Aren't those little tiny Amazonian frogs?
+
+[00:04:41] The very, very brightly colored yellow and blue ones, they're really toxic. Right. Yeah. Yeah, loads of frogs are toxic. And so there's one that Ezra Frog, when it's young, it's black with bright yellow spots, and it does look poisonous. That's something we were recognised as being poisonous.
+
+[00:04:54] But when it gets older, it completely transforms. And look it up. It's amazing. It transforms into this lovely kind of translucent orangey peach color with these big green eyes. And so it doesn't look toxic anymore. But if I would want all predators to think I was toxic throughout my life, it's kind of like saying you can handle yourself now. Because what if no one wants to hang out with you anymore?
+
+[00:05:13] Because you look scary. You might have other prog species friends. you want to chill out with and they're just like, we don't want the toxic lad over here. Okay, good point. Yeah. Well, you say a good point, Anna. And I think you say it as a reflex.
+
+[00:05:27] Okay, green tree frogs. Yeah. They're an interesting species. They respond to sounds of other green tree frogs, so the males respond to the female coals, but they'll also respond to other things that sound a bit like the females. So they found that they would respond to a washing machine,
+
+[00:05:43] a popcorn popper, a dog lapping water, cannon fire in a civil war movie, and Scott Joplin ragtime music. And they think that's all a female going, yeah, I'm ready to have sex. The most optimistic of all the species. The sound of a cannon firing in a civil war movie.
+
+[00:06:06] Either Ulysses S. Grant has just won another battle or I'm about to get lucky. Let's get mounting. Do you know, something really cool that frogs can do, which they've just found out. No. They can urinate out anything that's stuck in their body. So this was originally found out because a scientist planted little radio transmitters
+
+[00:06:29] under their skin because they wanted to track frogs. And they realized that they'd all, like, they went to find the radio transmitters and they disappeared. They couldn't track the frogs anymore. And it turned out that is because they can slowly transport foreign objects anywhere in their body into their bladder and then get rid of them. So if they're stabbed or something, if they get a splinter, yeah.
+
+[00:06:50] Actually, starfish do that as well, I think. Something in the back of my head says that when they get something stuck inside them, they can force it out to the end of their legs and they can kind of poo it out there. That's impressive. There's an octopus that can, it's called the mimic octopus
+
+[00:07:03] for reasons that will become obvious, if you keep listening, that can change their colour, but can also change their shape and they can mimic 15 different species. So they can change their shape by morphing themselves into the shape of sea snakes, lionfish, starfish, giant crab, seashells, stingrays, flounders, jellyfish, anenemes, mantis, shrimps.
+
+[00:07:23] They can disguise themselves as all of these creatures. But not even, so not even to the shape and the colour, but they can change the texture of their skin to match the texture of the thing they're mimicking. So if they're mimicking seaweed, their body literally turns into, there's an amazing video, go on YouTube, put in octopus, camouflage, maybe seaweed, and it's insane. Where is Octopus Man as a superhero? That is the best superhero. What, Dr. Octopus is a supermanority. We need to move on to our next fact. Does anyone have anything before we do?
+
+[00:07:59] People can turn blue. Prove it. No, I think it's very rare, but some people have a bad reaction to a colloidal silver, which comes in, I think, like health drinks and tonic drinks. There's a guy, I think, he died a couple of years ago, but not from this, just because he was getting older. But he was perfectly healthy,
+
+[00:08:23] except he's completely blue from head to turn. Was he an American politician? Is that the one you're talking about? Oh, no, I think different guy. Oh, well, there was an American politician who thought the colloidal silver, which is, it's like a drink with silver inside it or something like that.
+
+[00:08:36] And he thought it would kind of solve every problem that he had. And it kind of did, apart from that he turned blue. Wow. Was he Republican or Democrat? Because that... And also, the... there was a family in, I'm going to say they're in Kentucky, but they were certainly around there somewhere,
+
+[00:08:52] and they all turned blue, but that was a genetic thing. Wow. And they were called the blue fugates, and they were quite famous in America. Or the smirms to their neighbors. Should we move on to our next time? I think we should. Okay, it is time for fact number two,
+
+[00:09:06] and that is Chazinski. Yes, my fact is that you can surf on mushrooms. This is true. What do you mean by that? As in, you're on a surfboard, and there's lots of mushrooms, there and you're going along on the surf bar. Oh, no.
+
+[00:09:20] Or you've had some mushrooms and you think you're surfing. Okay, that can happen, but this is no time of personal anecdote. No, this is so cool. So there's this company called it's ecovative, and so the pronunciation is quite difficult. It's spelled eco-voitive, and they say it's the same as the pronunciation of innovative. So it's eco-vative.
+
+[00:09:44] And they've realized that mycelium, which are these kind of threads at the bottom of mushrooms, and their fungus are like they act like glue and then they can expand it to make a kind of foamy substance which can make a really good surfboard or in fact loads of other substances and they have been quoted as saying mushrooms are the new plastic and I believe them. Wow. Yeah, I think you boil it up, don't you?
+
+[00:10:08] And then they become kind of a stretchy substance. Yeah. But for hundreds of years they've been making hats in Transylvania out of mushrooms in this way. No way. It sounds made up, doesn't it? It really does, but it's genuinely true. Everyone in Transylvania is wearing a mushroom on their head.
+
+[00:10:24] Is it? No, it is. They're like little Piff helmets, but they're made out of mushrooms. Wow. When I started looking into this, scientists are saying that we are entering the age of the fungus. They really think that it's going to take over with... Our cars are going to be made of mushrooms.
+
+[00:10:40] Our insulation now... Like in Mario cars. Like in Mario cars. Yeah, insulation. This company makes insulation. They make insulation. So they put mushrooms into your walls now. They really think that mushrooms are now going to be used in a way that we never realized they could be used before. That is absolutely disgusting. Well, so James has a phobia against mushrooms.
+
+[00:11:03] Because they grow in dead things and they reproduce with spas and they're just horrible. And if you guys are going to make a world out of them, I don't want to be in that world. Well, okay. Good luck on the Mars program. Actually, that is a thing, isn't it? I was reading an interview with a guy who's obsessed with mushrooms, who's like my nemesis. And he reckons that when humans go to other planets, that they will be kind of taking mushrooms there to terraform it
+
+[00:11:32] because they can make soil and that kind of thing. Yeah. Because millions of, I mean, many, many millions of years ago, the Earth was much more mushroom-heavy than it was now. I think it was before the tree had evolved, or before vegetating plants. and flowers and things like that had evolved. So there were lots of very, very tall,
+
+[00:11:49] they think up to 24 foot high mushrooms. And they, some reason, was it the mycelia? They got in, they can sort of break down rocks and they make soil. Yeah. So it's thanks to mushrooms, James, that you've got your vegetables,
+
+[00:12:02] which are not mushrooms. Also, I reckon you're like this because you like coffee, right? Oh yeah. Mushrooms like coffee. Okay. Something in common. Yeah.
+
+[00:12:13] It's not exactly match.com. There's a problem with soil at the moment. We're depleting the earth's soil much, much faster than we're replenishing it. And it's genuinely, along with global warming, scientists are saying it's like the main environmental threat to us. And so there's these companies that, instead of feeding soil to mushrooms, feed coffee to them. And so they're planting mushrooms in it, and they grow really fast, and they love it. I found a mushroom, which is a bright orange Hawaiian one, which they tested in 2001. and it was found to trigger orgasms in women.
+
+[00:12:45] And then... Okay, that's one thing we don't have in common. But sadly, it was a very small study and they think it probably doesn't trigger spontaneous orgasms in women. So there you go, Jeremy. Larch.com, here we come. It was reported in a lot of newspapers, but it seems to be sadly untrue.
+
+[00:13:13] It has a fetid odor. So there you go. That's something. It's looking more and more meant to be. Can I take it to surfing for a bit? Yes, please. I was looking into famous surfers. Okay.
+
+[00:13:30] Because we've spoken about the fact that Agatha Christie before was a surfer, very famously one of the first surfers in England. And also, so Mark Twain surfed. Did he? Yeah, he wasn't a professional. But he did try it a few times, which was really exciting. And he really enjoyed it. Barack Obama in 2008 went surfing in Hawaii, where the mushroom...
+
+[00:13:55] He's from Hawaii, no? Yes, exactly. So he went back and he went surfing, and he went surfing on a beach called Sandy Beach Park. And it was such an event to have him surfing, although I think it turns out he was just body surfing, so without the board. But they decided that they wanted to rename the beach after Barack Obama. So they were changing it from Sandy Beach Park to President Barack Obama, Sandy Beach Park. We can't lose the sandy bit. That's such a good name.
+
+[00:14:23] But there was too much controversy, so they ended up not giving it to the president. Oh, really? Yeah. Wow. Would you say you think his main regret over the whole course of his tenure is that that beach was never named after him? Number two, Guantanamo. There is.
+
+[00:14:37] He wants that named after. I found a study about surfing, which is looking into surfers' rectums, literally, looking into them. there's a study about antibiotic resistant bacteria and surfers are being asked to volunteer rectal swabs because they swallow a lot of water when they go surfing and the water that is around the coast
+
+[00:15:04] might have antibiotic resistant bacteria in it we need to study the effects of these bacteria if we're going to defeat them and get better antibiotics at which work so the project is called beach bums and it feels a lot like like the name happened, and then they had to back for me a reason. They're amazing. They're saying, send us your rectal swabs.
+
+[00:15:29] Send us. Oh, so it's not like they're waiting at the shore. It brings a new meaning to the word wipeout, doesn't it? Wow, that's incredible. Yeah. You know that barring one, none of the beach boys ever surfed. Yeah, famously. Famously.
+
+[00:15:48] They hated. So Brian Wilson was actually petrified of water. They actually, I can't remember there were two musicians who'd force Brian Wilson to surf once. Because I think everyone used to take the piss out of them quite a lot because I think it was quite a known thing. Everyone was like, you know, most of your songs are about surfing and none of you surf. It was Saturday Night Live. Was it George Harrison or someone? No, no, it was Saturday Night Live and I believe it was Dan Aykroyd and John Belushi.
+
+[00:16:09] That's who it was. Yeah, they got them to surf and you just basically are watching a man on a beach petrified of water. And it was on television. And it was on television. Yeah. And then afterwards they swapped his anus. surfing US anus. All right, we need to move on to our next facts.
+
+[00:16:33] Okay, it is time for fact number three, and that is Andrew Hunter Murray. My fact is that if you're allergic to cats, you're also allergic to lions. You might think that everyone's allergic to lions. You're not watching an approaching lion going, oh, I'm going to get a cold off the back of this. That's my inhaler.
+
+[00:16:50] Where's my inhaler? So the main thing that causes it is a thing called dander. So it's these tiny cells made of hair or fur or feathers, and it's the things that animals give off. And humans have dander as well. I think that must be related to the word dandah. It is dandruff. It's the same thing, I think.
+
+[00:17:07] Okay. So it's a bit complicated, but basically the dander contains this particular protein called fell d1. And cats have it in their skin and in their saliva. And when they groom, it gets airborne, basically. and if you're sensitive to it, then you have an allergic reaction. And so obviously there haven't been many studies on testing allergic reactions to big cats. But there was one in 1990, which tested eight different species, tigers, lions, snow leopards, that kind of thing.
+
+[00:17:35] And found there was a link in general. You know, sometimes it's weaker, sometimes stronger. But yeah. Wow. Amazing. People have been, scientists have been making some wild assertions lately about, there was a study done at the University of Edinburgh, I think, with the Bronx. zoo which compared the personalities of house cats to the personalities of
+
+[00:17:54] big cats and they tested them on extroversion, agreeableness, conscientiousness, neuroticism and openness and I don't know how they test, they questionnaires were sent out or whatever and they found out that they had the same inclinations domestic cats as big cats
+
+[00:18:12] so they had high inclinations towards dominance impulsiveness and neuroticism which then a lot of articles reporting about this said if they were bigger or you were smaller, your cats would kill you. Which I don't know, I think that's a leap. But, yeah, your cats would kill you as what... If you were the size of a mouse.
+
+[00:18:31] Yeah. And the shape. And the shape of a mouse. If you were a mouse. One of the signs that cats are not the same as big cats and that they're subservient to us humans, and I didn't realize this, is that they bury their poo. So I can't believe I've never thought about this.
+
+[00:18:46] Wow. The fact that cats bury their poo and dogs just shit everywhere. That's their way of saying. So a big cat will not bury its poo, and that's it marking its territory, and that's it saying, don't come near this, this is mine. And a sign of submissiveness in small cats is burying their poo. And so saying, it's okay, I'm not marking this territory.
+
+[00:19:03] You don't need to smell this. This is all yours. And so they're saying to you, the owner, I've buried my poo. You can have this house. I'm not taking a bit. So you know that dogs could be allergic to cats? Really? Dogs can be allergic to cat dander. Wow.
+
+[00:19:16] And cats and dogs can both be allergic to humans, can't they? Yes. Yeah. Piers Morgan is allergic to meerkats. Is he? No way. What? Says who?
+
+[00:19:27] Says Pierce Morgan. I read it. I was looking at people who are allergic to things and it came up on a... And Pierce Morgan sent a tweet where he was linking to like a really important thing about people who suffer from mere cat allergy. And he was like as a fellow sufferer of mere cat allergy. And then RT and then read this link. Let's all send him a mere cat. We can do it.
+
+[00:19:55] Cats and dogs used to be very good friends. It's very strange that they've developed this antipathy towards each other, but nine million years ago, so, you know, the blink of an eye ago to some of us. Just one of them said something to the other and they never got over it. We know this because, so we've got, because of archaeology, so we've got foursets of nine million years ago of the saber-toothed cats and bear dogs, which are a combination of bears and dogs. So they've looked at what they would eat
+
+[00:20:25] And they've looked at their areas that they inhabited And it shows that even if they inhabited the same broad area They divvied up between them So they wouldn't hunt animals in the dogs area, Bear Dogs area, and the bear dogs wouldn't hunt animals in the Sabretooth cats area And they just got along fine. They didn't compete at all,
+
+[00:20:40] which animals usually would. They could be that their friends are really scared of each other. Right? Could be that, but they're natural predators, aren't they? They're not scared of anything. Okay. I was, so on the subject of people being allergic to things, I went on to...
+
+[00:20:53] I continued my search. And I went to Yahoo! Answers because people often ask questions. The best side on the internet. This was the question. So my girlfriend is allergic to almost every animal you'd find in a petting zoo. If she inhales air that is around a horse,
+
+[00:21:16] she can be hospitalized. Now, she loves giraffes. Does anyone think she'd be allergic? to them too. I was thinking of surprising her on a birthday with a trip to the local zoo to pet a giraffe. And the reply, the top-rated reply, because that's how it works on Yahoo! Answers, the most votes for a reply. If she's allergic to almost every animal, I guarantee you the zoo will contain more than just giraffe. Why don't you do something less stupid? So where did you take her in the end, then?
+
+[00:21:55] Sorry. No, please. Just on allergies, I was Looking up hay fever, because I wanted to know how long it's been around. And generally, allergies just haven't, they weren't reported until the late 19th century. So in the 1870s, food idiosyncrasy was referred to for the first time, which I really like. And that, you know, I'm idiosyncratic about certain foods. And I guess that's like wheat intolerance or whatever we have today that's made up. And... If you're listening to this, India, uh, celiac, don't listen to Anna.
+
+[00:22:25] What you've got is real. Do you know, just going on celiac? Do you know that the first person to realize that celiac came from wheat was Dr. Willie Dick. And it was during the war. And he found that there was a Nazi blockade against bread. And everyone started eating potatoes. And they stopped having the problems with their stomachs. And he realized that that was what was causing it.
+
+[00:22:50] Yeah. That's amazing. And yet, every time he's ever referred to, it's always going to be in the context of people laughing about his name. Life is cruel. But just on his... hay fever to, so yeah, it was very late, given how prevalent it is and how widespread it is, it was only in 1819 that one doctor who had hay fever decided to investigate what hell was going on. He spent nine years trying to find fellow sufferers. He only found 28 other people in nine
+
+[00:23:14] years who had it. So we don't know why there was obviously much less of it. He called it summer Qatar, but eventually it sort of caught on and it became kind of fashionable because it was thought that it was people of high society who had hay fever and, and, So New York heard that all these posh British people were hanging out with hay fever. So it became a fashionable thing to do in New York to have hay fever. And they were referred to as hay fever rights, which became kind of a, like a piss-taking, oh, you're trying to be posh kind of term. And there was a doctor who said that sufferers from hay fever may, however, gather some crumbs of comfort
+
+[00:23:47] from the fact that disease is almost exclusively confined to persons of cultivation. Hence, as already hinted, our, as in Britain's national proclivity to hay fever may be taken as proof of our superiority to other races. Whoa! That's a leap. That's a leap. I mean, mad. You can be allergic to sex.
+
+[00:24:09] This is a real thing. So they tested a thousand women who complained of sort of pain or irritation after sex, and they found that of those thousand women, 13% were allergic to their partner's semen. But there is a cure which involves
+
+[00:24:25] injecting those of it. No, because it's exactly what you're thinking. So it involves injecting increasingly high sperm samples into the vagina every 20 minutes. What, every 20 minutes? Wake up! No, no, no. What?
+
+[00:24:50] But the thing is, the cure only works if followed by frequent sexual contact, which is defined by them as two or three times a week. So there you go. We need to move on soon. Does anyone have anything before we do? You can be allergic to euros. To what?
+
+[00:25:04] You can be allergic to euros, the coins. They give off loads of nickel, and they tested it on human sweat. And this is weird. They couldn't test it on people, because it only really reacts after about 48 hours in constant contact, unless you're constantly touching your money. But they found that after 36 hours dunked in artificial human sweat,
+
+[00:25:25] that a one euro coin will visibly be eroded. But I want to know what it's made of it. of artificial human sweat. That's true. I guess salt and water or something. But yeah, nickel is common allergy, isn't it? Yeah, yeah.
+
+[00:25:37] And human sweat, actually. You can be allergic to exercise. It's a true thing. Really? Yeah, and you're allergic to people are allergic to their own sweat. They come out in hives when they go for a jog, and, you know, that's... I'm allergic to exercise, okay? And 1% of Kiwis are allergic to Kiwis.
+
+[00:25:54] Oh! So that's people from New Zealand, allergic to Kiwi fruits. Oh, wow. Oh, sorry, I thought it was the other way around. All right, listen, let's move on to our final fact of the night, and that is James Harkin. Okay, my fact this week is that it's illegal in Japan
+
+[00:26:12] to make a human pyramid higher than five tiers. So this is a new law that's just come through. There's a thing in Japan called Kumitaiso, which literally means group body maneuver. And it's a kind of thing they do in sports days and stuff at school. and there's lots of different things they do, but one of them is a human pyramid, and apparently it's incredibly dangerous,
+
+[00:26:34] and people always get injured with it. According to the Japan Sports Council, insurance payments for injuries relating to human pyramids have been made in more than 8,000 cases per year since 2011. So this is a real major problem in Japan. People are just getting really badly injured from human pyramids, and so they've decided to put a stop to it.
+
+[00:26:55] I remember that if local politicians in any... India, if you get a really good human pyramid, they give you up to $200,000 as a prize. Yes, they do. I'm not sure if I'm being scammed here. But again, I say this, guys, we could do it. I should warn you that every, so in the India one, every year a few people are killed, the article's reading casually said. And it's like a lot of children climbing up to the top, isn't it?
+
+[00:27:20] And so they've cracked down a little bit in India now, I think, and they've said people have to wear safety harnesses above a certain height. And the height is capped at 20 feet. and there was a quote from a participant who's enjoyed this festival for many decades who said, such rules have killed the fun out of the whole festival. We used to just kill the participants,
+
+[00:27:39] but now they're getting the fun. That reminds me of the thing, I think it's in India and also in Pakistan where they did kite flying. Remember that? They did kite flying and they would take the strings for the kites and they put glass on them. And the idea is that you'd fly it along
+
+[00:27:56] and then when your enemy's kite is going near yours, you try and slice it open. And so the kite would fly away and you'd win the kite. It's a bit like conquers kind of thing. Sky conquers. Yeah. Afghanistan as well, I think. Yeah, Afghanistan.
+
+[00:28:09] But they banned it, didn't they? Because people were just getting sliced. Oh, did they? Really? People were getting really badly injured for it. Wow. What are they doing all the way up there? Well, the string goes all the way from the ground to their things.
+
+[00:28:23] Nice, pers. So on things that are Japan has cracked down on. Okay. So dancing was illegal in Japan since World War II, wasn't it? What? Sorry, not dancing overall. Dancing in most nightclubs was illegal in Japan. Oh, really?
+
+[00:28:40] And I think it was because clubs have become prostitution hotbeds, people believed, after World War II. And hotbeds is a very good word for what happens with prostitution. But no, this is quite interesting. So it was dancing with ban in nightclubs because it was. seen as kind of like a, like, sentious type thing to do. And then the ban was sort of relaxed towards the end of the 20th century.
+
+[00:29:00] And then it was really cracked down on in the start of the 21st century, because I think there were a lot of scandals happening at the time, celebrity scandals in clubs and people were getting a bit too raunchy. And so there was a petition signed by 150,000 people in Japan to lift the ban. And I think it's just been lifted. I don't think it's
+
+[00:29:17] coming into action yet. But it's just been lifted. But yeah, you weren't allowed to dance. If you would dance in a nightclub in Japan, you were escorted out of the building. Wow. And locked up. People, yeah, they definitely were dancing. It was one of those laws where people just kind of let it go because it was not... I think until more recently,
+
+[00:29:34] which is why they signed the petition. Yeah. I almost got kicked out of a nightclub for being asleep, right? But I was... How did they know you were asleep? Yeah. He was just squatting on his haunches with his eyes closed. Could have been anything. No, I was...
+
+[00:29:50] It was New Year's. It was my first New Year's in London. It was a big club that was going, it was just past New Year's. I got really tired, so I fell asleep on the floor, on the dance floor. And it was a big dance floor. There was space for me. People could go around. They could see a person there.
+
+[00:30:04] It was fine. So I just laid down. I went to sleep. And then I got woke up by the security guard. He's like, hey, you can't sleep in here. And I literally looked around. Everyone was snorting coke, doing ease, everything around me. And that was fine, but sleeping on the floor of a dance floor.
+
+[00:30:19] Yeah, they always hate sleeping. You always get kicked out of sleeping in nightclubs. You should know that by. now down. Okay, some of the illegal things in Japan? Yes, yeah. Okay, so it's illegal in Japan not to take any holidays from work. Really? Or they're about to make it illegal.
+
+[00:30:32] Yeah. Wow. And that's because of the culture in Japan where people just want to work and work and work because, especially with the recession, people think you know, if I take time off, then I might get fired or whatever. And so they're saying you mandatorily have to take your holidays. You have to take five days of holiday every year.
+
+[00:30:49] Wow. Yeah. Not a huge amount of holidays, is it? Whoa, what? Five of days? But if you take six, you're fired. No, obviously you're supposed to take the right amount, but if you take any fewer than five, then that's a problem. Should we move back to human pyramids quickly? Yeah, sure.
+
+[00:31:06] Why you finish? The guy who invented the human pyramid was called John Astley, and he was the son of Philip Astley, who was this huge... Philip Astley basically invented the circus. And so the original human pyramid was called the Force D'Arcule, the force of Hercules, or the strength of Hercules, because that was what they thought it took to make a human pyramid.
+
+[00:31:28] But my favorite thing about Astley is what his wife's best trick was, because she was a circus performer as well. And her best trick, apparently, or one of her tricks, was marching bees across a table. Yeah, and she could also ride a horse while wearing a flock of bees. Swarm of bees. Swarm of bees. As a muff on her hand.
+
+[00:31:54] The word flock used to mean just a group of anything. So they used say a flock of lions. Did they? Yeah, they used say a flock of anything. So you can have flock of bees. She had a flock of bees and she wore them on her hand as a muff while riding a horse. Wow.
+
+[00:32:08] How cool is that? Yeah. Yeah. It's kind of, it's like a self-fulfilling thing, isn't it? Because her hand was presumably looked so repulsive by the end of that day. She'd have to wear a muff the next day to conceal it because it was swollen and bloodied. And then you've got to keep the bees on forever.
+
+[00:32:21] Absolutely. So the bees have got a good gig going on. Wow. We should wrap up very soon. Do we have anything before we go? Just on Japan. Japan health and safety I was looking into, and there's Tamazoo in Japan,
+
+[00:32:36] and it wanted to check that it had the right health and safety things in place if an animal escaped. And so they have snow leopards there, and so they dressed up a staff member like a snow leopard. Like if you remember when you were eight and you got costumes of leopards and lions and stuff, it's like that. Like a ridiculously unrealistic snow leopard costume.
+
+[00:32:58] And he had to run across the park's ground as 70 members of staff tried to capture him using Nets, poles and tranquilizer darts. Tranquilizer darts. Yeah. Whoa. This is the quote. It's reported in so many papers.
+
+[00:33:10] And you've got to assume that the guy, the zoo park director, was being a little bit tongue-in-cheek when he said it. But he said, we focused on making this drill as realistic as possible, one of our staff being knocked down, injured, and then being knocked unconscious and going into cardiac arrest, was part of that. Okay, that's it. That's all of our facts.
+
+[00:33:34] Thank you so much for listening. If you would like to get in contact with any of us about the things we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland. James at Egg-shaped. Andy at Andrew Hunter M. Chazinsky. You can email a podcast at QI.com. Yeah.
+
+[00:33:50] Or you can go to no such thing as a fish.com. That is our website. You can also go to At QI Podcast. It's our group Twitter account. And thank you so much for listening at home. Guys, Bristol, thank you so much for being here tonight. That was awesome. And yep, hold deep applause.
+
+[00:34:04] Yeah, I can see you there. And we'll see you again next week. Good night.

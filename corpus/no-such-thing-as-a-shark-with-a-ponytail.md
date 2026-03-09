@@ -1,0 +1,347 @@
+# No Such Thing As A Fish - No Such Thing As A Shark With A Ponytail
+
+- Episode date: October 16, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-shark-with-a-ponytail
+- Slug: no-such-thing-as-a-shark-with-a-ponytail
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish, where we were joined by the wonderful Sarah Pasco. Now, there is no one, I don't think, in Britain who doesn't know who Sarah Pasco is. And probably if you listen to this show around the world, you'll know her as well, because she has been on fish before. But just as a quick reminder, she is an incredible stand-up comedian and TV presenter, who is a good friend of ours. She does a podcast as well. She does a show called Weirdo's Buck Club with fellow. Fish alumnus Carriad Lloyd. But she is on all the panel shows. She's been on QI a million times. She's absolutely brilliant. We love having her on all of our shows. But one important thing to say about
+
+[00:00:42] Sarah is that she is currently on tour. If you would like to see her show and you live somewhere in the UK, there is an extremely good chance that she will be coming to your town in November or in the spring next year. And to find out the shortest amount of travel you will have to make to get to her shows, you must go to sarah pasco.com.uk-l-U-K-S-T-O-U-K. Her website is S-A-R-A-P-A-P-S-C-O-E dot-C-O-D-U-K because that is how you spell her name. So go to SarahPasco.com to get tickets for her show, but in the meantime, please enjoy our show. On with a podcast! Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you
+
+[00:01:38] from the QI offices in Hoburn. My name is Dan. I'm sitting here with James Harkin, Andrew Hunter Murray, and Sarah Pascoe. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Sarah. My fact, and I'm underlying the word fact there, for reasons that will become clear. My fact is Saturn's rings are younger than sharks. Do, do, do, da, da.
+
+[00:02:09] No, it's durda, durda. So when you say fact, and you underline it, weirdly, we've never had a guest to underline their headline fact before, and it makes me instantly suspicious. Yes. Well, age is but a concept. And when I looked into the inverted commas,
+
+[00:02:26] proof of both of the ages, Saturn and sharks, I felt like, well, there's lots to debate here. Okay. So do you stand by it or not? Like, if you had to bet your life on it? I would have to do more research, probably. So let me tell you where the whole aging of Saturn's rings comes from. So there's a Cassini spacecraft, combination of NASA, the European Space Agency,
+
+[00:02:49] and also the Italian Space Agency, which means they're not in the European Space Agency. And I thought there's a sitcom. It's a deciding, nope, we'll have our own one. Our spaceships will be the shape of boots. Are the Italian astronauts stereotypical Italians? Are you thinking a lo-a-low style? Yeah, all of the other spacemen are eating the tubes of paste food and they've still got spaghetti Pomodoro.
+
+[00:03:14] It's creating a big mess in the spaceship. All the Italian astronauts typically like to stay in the mothership. Yes. To talk about Italian men. And here's mine about Marianne Luigi. They're fixing the spaceship. There we go. The ship needs plumbers.
+
+[00:03:30] Yeah, exactly. There's something for everyone. So the Hasini spacecraft did analysis for a really long time of what the rings were composed of. They're mostly ice and that ice is made of water, which then, of course, I had a question mark, what is other ice made of that they kept calling it water ice? But then I realized I'd gone too far off the facts. Okay.
+
+[00:03:49] Come back. One percent of them is dust. And they've measured the rate of accumulation, how dusty they're getting, and then worked backwards from that 1% to say they can't be any older than 100 years, 100 million years, I should say. And they could be as new as 10 million years old. Wow.
+
+[00:04:07] Okay. So that's from the amount of dust accumulation. The reason, and I'll sort of stress this straight away, that they could be a lot older is because they could be cleaning themselves because there's a pull from the planet, which takes a lot of debris away from it. So basically, when micrometeoroids hit the rings of Saturn, they are either vaporized or they've pulled towards Saturn's magnetic field,
+
+[00:04:31] which would explain why there would be less dust there than you could completely just age it. All the dust that's ever been collected by Saturn's Pool hasn't stayed in the rings, essentially, which is where aging them that way could be slightly contentious. Okay. And what about sharks? Okay, so sharks, they're saying, they're claiming, I don't know what you've written down, that they are 450 million years old. Yes, okay.
+
+[00:04:55] Right, okay. And their evidence for this, some scales, no teeth. They've got some fossilized scales from 450 million years old, which they're saying is the earliest fossil of a shark-like creature, which is not a shark, is it? That's a shark-like creature. And then no teeth. So are we thinking a gummy shark, like no-tee shark?
+
+[00:05:20] Or a big-scaley fish. Which I know is what a shark is in lots of ways. But hang on, Sarah, all of this smacks of a woman who submitted a fact and then researched it. Yes. Yes, your honour. What's the accusation there, Andy? As I say it, she's doing what we asked her to do.
+
+[00:05:39] No, because some people, it's like their actual passion. Is that what you mean? No, no, no. Some people are like, oh, I wrote a book about the rings or Saturn. It's funny how honest you are. I just like it. Because, you know, a lesser researcher might have just said, yeah, I'll just sort of fudge that.
+
+[00:05:53] I would have done that. Yeah, I would have gone in and said, so the fact is that the rings are this old and sharks are this old. One's younger than the other, and that's it. No. Actually, what I did write down was that Cassini spacecraft, born on the 15th of October 1997, so it's a Libra. Oh, that is good.
+
+[00:06:10] Getting my astrology and astronomy all in the same. Very nice. All in the same explanation. So sharks have survived what an... Five, yeah, the five known mass extinctions that we've had on this planet. Are they involved somehow? It does seem suspicious. Always there.
+
+[00:06:27] I think it was after the first mass extinction, that teeth suddenly became a part of their life. Yeah. Although the jewels were different. in those earlier creatures. Yeah. Yeah. Because now they have drawers that open really widely, which means they can swim faster and they can eat prey bigger than themselves. So that's exciting, but that's much more recent.
+
+[00:06:45] We're talking 150 million years ago with those recognisable actual sharks. And like 10 million to 100 million with the Rings of Saturn, what are you saying is the closest scale than 400 plus milking? Here's the timeline I wrote down. So I wrote sharks, the earliest fossil. So the earliest fossil was the late Odovian period. So basically that would make them older than dinosaurs and older than trees. Really fun. Trees are 360 million years old, which is fun.
+
+[00:07:14] Would they know anything about trees? As in like they're not seeing trees anyway, right? So that's irrelevant to their world. Oh, damn. You get like tree fall in the... Absolutely. So they might see a fall. They'll see a log for sure.
+
+[00:07:25] But they can't fall before they exist. That's the thing. If a tree falls before it exists? Does it make a note? Does it need by shock? Does it splash and go on. What was that? They've famously got good hearing sharks, so that would be good distances.
+
+[00:07:37] Or is it smell? A smell. Can they smell trees? Very few people say, shh. There are sharks me by. They tend to say, don't bleed into the water. There are sharks. So we've got a mass extinction event in the Permian period.
+
+[00:07:50] That's 252 million years ago or around then. That 96% of marine life was wiped out. So we had bigger sharks. And there is fossil records, just teeth of these massive sharks. No, you're saying just teeth. Earlier on, it was like, oh, they don't even have tea. Exactly. How suspicious is this? I forgot, Pasco's case book, you always find crimes
+
+[00:08:09] and then investigate them on this show. Do you know why they keep surviving all of these mass extinctions? It's really interesting. It's because they're so varied as a class of creatures. So you get sharks that live on the bottom, you get sharks that live in the main water column, you know, higher over the ocean. You get small sharks, you get big sharks, you get sharks that are, some sharks that are even mostly vegetarian.
+
+[00:08:29] Yeah. You get just sharks of every different kind. And that's why always a few of them will fit through the keyhole of whatever life survives the mass extinction of them. Which is amazing, isn't it? So I did go down. One of my tangents was the Greenland shark, which grows incredibly slowly, which is a really good example of what you're describing. They don't become sexually active until they're over 100. Yeah.
+
+[00:08:50] She's really inspiring. But here's an amazing thing about them. It's been estimated that they can live probably up to 500 years. There's one that's been found that definitely is around 400 years old. Now, the rings of Saturn, the first observation through a telescope was Galileo in 1610. Arguably, there is a Greenland shark out there alive that was born before Galileo first looked at them through a telescope. I thought you were going to say that could have seen the rings of Saturn through that telescope. Unless it fell into the water.
+
+[00:09:21] Unless they could hear it, I don't think that's going to happen. It's amazing, isn't it? Potentially, there's one out there that was, yeah. We've got up the topic. Sharks, yeah. Give us a shark, Dan. Favorite shark. I'll tell you mine.
+
+[00:09:36] Yeah, okay. Wow. Let's guess. I'm going to guess Hammerhead. No. James? Yeah. Hammerhead.
+
+[00:09:42] I do like Hammerheads. They're really good. They're the youngest species, apparently. The newest one. Really? Well, I found another one that's been quite new. I think it's maybe not quite as new as hammerheads, but the walking sharks that you get off the coast of Australia.
+
+[00:09:56] And they live on the bottom. The one of Andy's bottom sharks. But they walk on the, Bottom Sharks is my Channel 5 series of the future. People who want to watch a show about animals are going to be very disappointed. It's very much an urban dictionary thing. No, these are like walking sharks, yeah, and they use their fins and they walk like geckos on the bottom of the ocean. I think that's really cool.
+
+[00:10:26] Can they swim? They can swim, yeah, but not very well. I quite like the thresher shark. Oh, yeah. But it's just, it's an odd move that they use, which is, it's been described as extreme yoga. Basically, if they're coming up to a fish, rather than directly eat it, they'll bring their tail up back around them and slap it and stun it. Wow. Yeah, that's great.
+
+[00:10:45] That's great. Because usually a lot of them, they'll eat by opening their mouths and just swimming with their mouths open and seeing what goes in there, right? Yeah. And there's a big problem with that paper I read just this morning, which was that basically because the water is more acidic in the oceans now, it's rotting their teeth. And so they have quite crumbly teeth now sharks compared to what they were 100 years ago. So later people think we didn't have any sharks. There's no evidence. Yes.
+
+[00:11:12] Yeah. They all crumbled away. Yeah. Can I give you guys my favourite shark? Yeah. It's from this morning. The program. Philip Scalfield was a shark.
+
+[00:11:24] No, this is a listener email from Alison Mullencamp, who sent us an email this morning on the day we record this. Headlined, Ghost Shark Sex Teeth. Okay. This is crazy. And you opened it? Oh, yeah. It's been great for Andy's bottom sharks. Basically, there's a thing called a ghost shark.
+
+[00:11:43] It's also known as a spotted ratfish. I suspect it prefers to go by ghost shark. I'll take the other name, but you're so fast. Someone trying to push a cool nickname on themselves, right? Spotted ratfish. No, it's ghost shark, actually. Yeah, that's what they call me at university. So it's not a true shark.
+
+[00:12:01] But it looks a lot like a shark, you know, and it gets called it. So, and it's got a thing on its forehead called the tenaculum. It's got these tiny protrusions on it. And scientists have just today published a paper about what this thing is. And what it is is, this little thing sticking out of its head has these scales on it. It turns out they're not scales. They're actual teeth. The literal teeth sticking out of its head, which it uses to grip onto the female during sex.
+
+[00:12:25] Okay. It's got a head hand. It's got a head hand, which it uses for sex grips. and just to hold on to her fins. Does the feeling have one on her head to like hit the other guys one away? She has nothing, just a ponytail.
+
+[00:12:37] I think she's got no. Yeah, and so one of the scientists responsible, Carly Cohen, said, this feature flips the longstanding assumption in evolutionary biology that teeth are strictly oral structures. I thought that their skin was teeth as well though.
+
+[00:12:53] I think it's shaped like teeth. But I think the teeth evolved from the skin. So it was scales around the mouth got harder and harder and harder Which seems to be the same as this other idea. It's just utilising, oh, they're also good for this. Imagine Sabrina Carpenter's album cover, because everyone was really sort of ante it and say, you know, it's been done before we've moved positive. Imagine if it had been this ghost shark holding onto her hair.
+
+[00:13:13] She's sort of on her knees with, like, but she's sort of being held by, you know, looking up at her. But I think next album. Yeah, next one, that's true, actually. Or maybe Chapel Rhone. I've still imagining your TV program. I've imagined lots of the dancers at the beginning, because it's got this like Euro-Trash, And they've all got like big, big shark heads, and then they're all wearing chaps. So when they turn around, you can just see their bottom.
+
+[00:13:37] So do you remember that superlull when they had the dancing shark? Yes, yes. Like that, but a bit sexier. Yeah, that with chaps on. And is it just me enjoying these dances? You just speak to camera at the beginning, like, hi, I'm Andy, and here every week is shark week. And then it's just like a bouncy castle and stuff like that. I'll do it.
+
+[00:13:58] Yeah. I will take that job. Okay, it is time for fact number two, and that is my fact. My fact this week is that because he didn't like the name of the novel that he was adapting into a movie, director Ridley Scott bought the film rights to a William Burroughs novel called Blade Runner just so he could steal that title instead. Amazing. Brilliant. Yeah, really good.
+
+[00:14:24] Yeah, it's quite fascinating. So I've just read Do Androids Dream of Electric Sheep, which is a book by Philip K. Dick. And it's a great title. It's a great title. It's a solid commercial title for a movie. If you don't know Philip K. Dick, he was a pretty extraordinary sci-fi writer. He was writing in the 50s and 60s, and he has had so many of his books that have gone to the big screen. So you might have seen Total Recall with Arnold Schwarzenegger, the Adjustment Bureau Minority Reporter,
+
+[00:14:53] Scanner Darkly, and Blade Runner, probably the most famous of all of those, starring Harrison Ford. And so initially, Ridley Scott was brought onto this project. and there was a screenwriter on it called Hampton Fancher, and Hampton Fancher decided that while he was writing it, he'd put in the draft the name Blade Runner, which he'd seen from another book. And it was just there, and Ridley Scott, who took on the project,
+
+[00:15:16] started reading Do Android's Dream of Electric Sheep, but didn't like it, so put it down. So he didn't end up even reading the book he made into a movie. He saw that title on the screenplay and said, this is way better, let's use that. But obviously, it was connected to another book. So he literally bought the movie rights to that and used nothing but the title. So can I ask a question?
+
+[00:15:35] Yeah. You said it was by William Burroughs. The, yeah. But he didn't write the original. So what's going on there? So, okay. So this, it just gets so complicated, this story. The book that William Burroughs had written was called Blade Runner the movie.
+
+[00:15:50] Movie, yeah. So William Burroughs had read a different book by a guy called Alan E. Norse. And that was called the Blade Runner. And so Burroughs' book, was a treatment for a movie that he wanted to have made. But was his book based on Norse's book? Or was a different story? Yeah, it was actually a movie treatment.
+
+[00:16:12] So Norse's book was, the reason it's called Blade Runner is because it's about a guy who takes medical supplies across America. So literally scalples and smuggling them. Yeah, because it's basically an anti-NHS book, isn't it? Basically, in America, if you've got money, you can't pay for your own healthcare. You have to only go for the government thing, and the government thing isn't very good. And so you have these sort of dodgy private doctors who will do your stuff for you, but they need the scalples, so they need the blade runner. And the main protagonist in that book is called Billy Gimp.
+
+[00:16:45] Just a good character name. It's a great name. Striking name. It's hard to think of names for characters, isn't it? Absolutely. You've got to say what you see. Look around you. Whatever you see first.
+
+[00:16:54] So the thing we've all glossed over, there have been a lot of names flying about, Hampton Fancher, Ridley, Scal. None of them very likely, right? The original book that used the title Blade Runner was by this guy, Alan Norse, I pronounce it, Nurse, and he was a trained doctor. Oh, lovely. And do you remember there was a scientist about 20 years ago? He won the Nobel Prize for Medicine. Paul Nurse.
+
+[00:17:17] Paul Nurse. What's all these doctors called Nurse? I have tried to find a nurse whose name was Doctor, but I haven't succeeded yet. But I'll keep looking. He wrote some of the name Dr. Rex, didn't he? Did he? Yeah, yeah. He didn't really use his name because.
+
+[00:17:30] He didn't want people to know he was writing. Claver. Dr. X, but he mostly wrote abusive, 140 character messages. So Blade Runner, I actually bought it the other night to watch. Well, film. Yeah, because I haven't seen it in years. So this is the other fascinating thing about the movie Blade Runner. There's been, since its release, seven different versions of it that have come out.
+
+[00:17:52] It's constantly being revised by the director and by the production companies. So there was a director's cut that came out, which actually wasn't a director's cut. because someone else puts it together. Ridley Scott just gave an approval, but the official one, according to Ridley Scott, is the final cut, which doesn't have the narration. The 25th year anniversary one. It was the only one that he was allowed to do the cut that he actually wanted. And also, the story of it is quite interesting in that. So it was made for about $30 million, and it made about $40 million at the cinema. So it did fine, but it didn't do that well. But when they re-edited it, it was amazing. And it was the first thing they brought out on DVD.
+
+[00:18:27] Oh, was that? And then it did so much better with a sort of slight. re-edit. Yes, it wasn't popular at first and it got some really bad reviews. One of the reviews said Blade Runner is a suspenseless thriller, which I think is to a certain extent true. It was sort of slow. Was it intentionally slow? It is quite slow. For anyone who hasn't seen it, it's about Harrison Ford who has to chase down a load of robots running around dressed up as humans. And the main point of it and the main point of Dick, I think. And I haven't read that or seen the movie. But I think it's like, can an Android tell if they're human and if so, how do you, how do you Well, this is the Voigt-Campf test, which I've got the questions of if you want me to
+
+[00:19:05] have you? Have you? Oh, is it like a personality test to see if we're robots? I don't need the test. I'm well aware. Make a lot of sense of a lot of things in your life. In the book itself, do you know what they're called, all these replicants? I thought they were called replicants. That's in the movie. Is it? Yeah. In the book, they called Andy's.
+
+[00:19:21] Love. Are they? The plot thickens. Stop finding crimes. So this, so here we go. Let me find you. Let me find. So some of them actually sort of a little bit upsetting. You have a little boy, and he shows you his butterfly collection, including his killing jar. Oh, dear.
+
+[00:19:41] Yeah. So, I mean, it doesn't have a question mark on it, but I guess it's testing. Do you have an emotional reaction to that? Okay, here go. We can all go around. Describe in single words, only the good things that come into your mind about your mother. Killing jar. Single words.
+
+[00:19:58] Fun, sexy. I'd also like to enter the word sexy for down the mark Sigman Freud says you get full marks So this one, my briefcase, nice, isn't it? Department issue, baby hide, 100% genuine human baby hide Okay So I guess, yeah, it's supposed to make you feel If you're upset about that, you're probably a human
+
+[00:20:22] Yeah, I have a strong reaction You don't just take it on face value You have an emotional reaction, I think that's the test. And in the movie, in the movie, and in the book, they have a machine that specifically is looking directly into your eyeball. So it's the dilation of the pupils. Exactly. It's monitoring. The question is answered by your body, I guess, isn't it?
+
+[00:20:39] Exactly. It is a good film and it is a good book. The book's great, yeah. Yeah, but I think they are quite ponderous. Come at me in the comments if you disagree. Tell us a film you like then that you prefer in this sort of genre. He likes Pacific Rim. What's Pacific Rim?
+
+[00:20:57] Well, big monsters have started coming up. through the cracks in the ocean floor from another dimension, we've got to build giant robots to fight them. Wow. That's an exciting episode of Andy's bottom shots, isn't it? I'm saying this. In Pacific Rim, everyone knows who isn't a robot, and we can crack on with the real meeting of the film,
+
+[00:21:12] which is beating the monsters, the kaiju. So, you know, do you sort of mean? Like Harrison Ford isn't interrogating the robots. So you don't like subtlety. I'm saying I like obviousness. There was one of the reviews of Blade Runner when it came out that said some of the scenes seem to have six subtexts, but no text and no context.
+
+[00:21:29] either. Wow. So I think it's so interesting because the questions that they were asking then about what are the capabilities of these machines that are working alongside us are the questions that we are continuing to ask. The only thing that's changed is the technology. We're still asking those same things, aren't we? It's really, when I read it, it's incredibly poignant for what's going on right now in the world of AI. It's extraordinary. I guess that's the thing of a good sci-fi writer like Philip K. Dick. It's looking forward and seeing the problems we might run into. But it's also worth saying the book is incredibly different. from the movie. So there's an idea that you're asking the question, is Harrison Ford a
+
+[00:22:04] replicant himself? Harrison Ford said he wasn't, Ridley Scott said he was. So we don't even know from the filmmaker's side, which one is which. Which one of those two people wrote the... Neither. We need to ask the person who wrote the script. Yes, exactly. Call Hampton Fancho. Quite clearly a robot panicking to try to think of a human name. Have you guys seen the movie Taking Tiger Mountain? No, what happens in that? I think so. What happens in that is what happens in the Blade Runner, the original book, because it eventually was adapted into a movie. And that was starring Bill Paxton. So the novel that William Burroughs wrote, Blade Runner Brackets, a movie, was off the back of the original Alan Norse novel novel.
+
+[00:22:49] And it was a pitch for it to be a screenplay. And then he realized it probably wasn't going to be adapted. So he turned it, Burroughs turned his work into a novella. What that means is that he wrote the... the novel of the pitch of the film of the novel. Interesting. And then Philip K. Dick was asked to write the novel of the movie. Oh, wow.
+
+[00:23:09] Of the book that he wrote. Of his own book. Yeah. But he refused. Brilliant. Because he thought that if he did that, people would stop buying his book. Yeah. Wouldn't that been amazing?
+
+[00:23:19] It's so weird. It's so strange. It's just the whole, I mean, this is probably the most confusing section we've ever done for an audience trying to piece these together. We need a big wall chart. don't we with lines. Even that movie that I just mentioned, taking Tiger Mountain,
+
+[00:23:32] which was the adaption of the Blade Runner original book. Pre-Barrows. Yeah. There was a movie that was made, which was based on a art film by Albert Camus, his book called The Stranger. They filmed the whole thing, but they didn't do any dialogue for it
+
+[00:23:49] because they thought they'd do that post. A new director came in, used all that stuff, but applied the Blade Runner to it. Oh, guys. Well, you think of the, editor please. Well, you're saying these facts. It's so confusing.
+
+[00:24:02] What's going to happen, James, is this section of the podcast, in years to come, there are going to be seven or eight different cuts of this section of the podcast. There'll be the Harkin cut, sure, but there'll be the Shriver cut. But people quite often listen to podcasts to fall
+
+[00:24:18] asleep, and this bit they'll think is their subconscious, chopping it into different pieces and making it confusing so they're not really listening properly. That sort of makes you think, we must have enough stuff filmed by that we can basically make everything new. Let's just use our existing stock. I think in the future they're going to say,
+
+[00:24:32] do you know the famous TV show and these bottom sharks was actually based on a podcast? Yeah. And bizarrely, Andy, what you just said with having extra footage that we can just reuse, that actually happened for Blade Runner the movie itself. Because in the final scenes, they used shots from the shining
+
+[00:24:51] that weren't used in the main movie. Yeah, and included it as sort of background shots. So the shining is in the Blade Runner. movie. It goes deep, doesn't it? It really does go deep. Isn't it true that the alien world
+
+[00:25:04] and the Blade Runner world are one world together? My wife told me this, but she's watched them all and I haven't. Interesting. I think there's like one mention in like the second alien that says yes they're definitely the same world.
+
+[00:25:18] That's terrific. Because it might be things like the same company operates across reality because in Alien the whole thing is the Wayland Utani Corporation and that might get a mention in BladeR, I don't know. That's brilliant. Can I tell you a thing? about William Burroughs, the author who wrote...
+
+[00:25:32] Played one of the movie brackets. One of these things. Yeah, yeah. So he was a big generation writer. Very interesting person. I didn't really know anything about him. The only thing I'd vaguely heard of, which is the awful thing in his life, which is that he and his wife once had taken a huge amount of drugs, and he tried to do a William Tell Act shooting something off her head, and he missed, and he shot her and he killed her. That's his version.
+
+[00:25:54] Yeah. He was a really strange guy. Oh, yeah. He was very eccentric. He was on huge numbers of drugs his whole life. He said that he could just stare at his shoes for eight hours a day and frequently did. But do you know how Burroughs had this lifestyle and was able to just sort of muck around? So where his money came from?
+
+[00:26:12] Yeah. Rich parents. He got an allowance from his parents until he was nearly 50. Right. But the reason he got an allowance from his parents until he was nearly 50 is that his grandfather, William Seward Burroughs the first, our William Burroughs was the second. he had invented the Burroughs Adding Machine. It was a calculator and pretty much every business in America bought one of these adding machines.
+
+[00:26:35] It was incredibly useful. Is it one of those ones that you see in old movies where it's like a big calculator and they go, blah, blah, blah, and it pretty much. And it prints out.
+
+[00:26:45] Yeah, exactly. And it was one of the biggest American computing companies in the 50s and 60s. And what is this? It's a robot, a thinking machine. Oh, I see. And it's sort of allowed Blade Runner to, right? Yeah.
+
+[00:27:01] Yeah. Yeah, sure. So Philip Kay Dick took loads of drugs as well. Yeah. Into the same things. And apparently the end of his life, he sort of sort of like a rosy mist and all these kind of. Wow. He had, he, in his final period of his life, it was in 1974, he saw a fish symbol, a necklace on a woman glow red.
+
+[00:27:20] And he felt information suddenly just was transmitted to him. and he believed that it was from an alien species. That's quite an excuse when you're staring at a woman's breast. Sorry, there's information coming. Okay, this is time for fact number three, and that is James. Okay, my fact this week is that most people wouldn't wear a sweater owned by Hitler, but they might if Mother Teresa wore it for long enough in between. So has she won this in like an eBay auction?
+
+[00:27:55] Like, how did she get her hands on this? She's bought it. She's bought it, right? bit high for it. Did she dry clean it after Hitler? Has anyone cleaned it ever? Well, this is a study called the Contagion Concept in Adult Thinking in the United States by Carol Nemeroff and Paul Rosen. And there's lots of different things that they did with this imaginary jumper. So they had different people wear it. So it might be Hitler, but it might be a lover of the person you're interviewing. Or it might be someone they really admire. Or it might be that they rub it in dog.
+
+[00:28:28] poo or various different things. And then they try and ameliorate the effect by giving it to a nice person or they might clean it with detergent or just with water or boil it or deodorise it. This is all imaginary. This is all made up. And did they ever show you a picture of the jumper? Yeah. Or have you imagined it?
+
+[00:28:49] You imagine it. It's simply a question of would you wear this jumper if this had happened to it? And then they took all of the different. of what everyone said and then generalized to the entire world. So, but actually they generalize to people in the US. And the reason being that there's this kind of thing called the Law of Contagion, which is a folk belief that you get all around the world, where if you've been in contact with an object,
+
+[00:29:15] then people think some of your attributes go into that object. It happens in Papua New Guinea, it happens in Africa, it happens in medieval Europe, you get it quite a lot of, but this study was to see if it happened in the US as well. And what they found is the basics is that people would not wear anything that was worn by Hitler, but they might wear it if someone good like Mother Teresa or someone sexy had worn it in between. And they would probably know. Are we saying Mother Teresa is not sexy?
+
+[00:29:46] She looks so much like Dantamara. Yeah, so Princess Diana, someone else who's sort of seen as good. Sure, absolutely. Yeah. Because at the start, they interview people. said who do you think is good, who do you think is sexy, who do you think is trustworthy? And with the sort of washing and stuff like that, basically if you wash it or if you deodorise it or if you air it out, people are slightly more likely to wear it. But if you boil it, then they're really
+
+[00:30:15] more likely to do it. So if you get Hitler's jumper and you give it a good old very hot wash, then people are more likely to wear it after that. Right. Shrink though. I mean, do we know what, is it wool? Is it wool? Yeah. Because I did, I did try to find evidence of any of Hitler's jumpers going up for auction. Oh, yeah. He doesn't seem to have been a big jumper guy. No. It's, there's very little.
+
+[00:30:36] His jacket, wasn't he? He was more jacket. Well, one of his jackets did. In 2016, there was a buyer who spent 600,000 pounds at a single auction on Nazi memorabilia, including things like the brass canister that contained the hydrogen cyanide that Goer and killed himself with. I mean, quite abstrue stuff and quite gory stuff.
+
+[00:30:53] But one of the things was 210,000 pounds on Hitler's jacket. Right. And the buyer was a nameless man from Argentina who declined to give his name. It's a joke, isn't it? No. What? No. No.
+
+[00:31:05] He said, I'm not going to tell you my name. I am from Argentina. Oh, my goodness. I know. So we can only speculate. Yeah. Crakey. There was a thing, this guy, Paul Rosen.
+
+[00:31:17] Paul Rosen. Very interesting character because he's sort of known as the leading authority on disgustingness. He spends his life studying disgusting stuff. And he was saying, if you. were put off by the idea of Hitler, to what level would that bleed into your life? Because, for example, any glass of water that you drink in Europe will contain a few molecules that would have passed through Hitler. And so, if you found that out, does that put you off drinking?
+
+[00:31:44] Like, to what level are you not wanting any association? That's why I have my watershipped in. From Argentina. Yeah, no, you're right. And did it, sorry, just to ask. No, I think, no, I'm not sure he's put that to the study yet. He was sort of talking about the extremes of where you could take the association with Hitler as a contagion. And this one's done a few years ago, wasn't it, the study, James?
+
+[00:32:07] 1994. Yeah, yeah. So, I mean, I don't know how Hitler's reputation has been in America over the last few years. How fashion has changed. Kim Kardashian and a Hitler jumper. Everyone will want one. She'll be stretching that out. I'm sorry, but she and Adolf did not have the same characteristics.
+
+[00:32:24] So this is relevant in real life. It's not just an academic thing. So things like drinking water. So you mentioned the Hitler water thing, Dan. So Hitler never went to Singapore. But Singapore, as far as I know, I mean his allies got there. Never mind.
+
+[00:32:41] The point is, Singapore purifies water from sewage water, right? And people drink it and it's fine. I mean, it's absolutely fine this water. It has been treated. It doesn't contain any contaminants, anything that you make you ill. It is clean water. But in lots of other.
+
+[00:32:57] other places around the world, places which don't have like the space constraints of Singapore, people object massively to this. And it's to do with this contagion theory. So that is relevant to how we run our society. I don't like the idea of it. It's the idea. I mean, the water effectively has been boiled. Yes.
+
+[00:33:11] But our brains are just never going to keep up with something that high concept. Like we're always going to add one and one together and go, that's the sewage. Yeah. Yeah. What if Hitler's jumper was turned into a scarf? So he unraveled all the wall and made something different. Yeah. Yeah.
+
+[00:33:26] Well, does that make a big difference? It makes a little bit of a difference. So they ask people if it had been re-knitted, gashed, unravelled, cut up and burned. Would you wear it afterwards? And burning had the best effects, although it's not going to look good about it. What would have been wearing? Yeah. If it's re-knitted, some people are more likely to a little bit.
+
+[00:33:46] But burning and boiling seems to be people will forgive any ice-moving if you do that. The area of this I found interesting in disgust is disgust. is disgust and arousal. Okay. Did you look into that? No. Andy? Too busy living it?
+
+[00:34:02] What? I don't know what that means. Well, it is really, really, really interesting in human psychology. So it's a bidirectional psychology. So the two things coexist, disgust and arousal. I knew about this because I had read probably in Mary Roach's book, Bunk, about the fact that when women are aroused, they will do things that they consider disgusting when they're unaroused.
+
+[00:34:28] And that just makes such basic sense for evolution in that sexual... Well, but Sarah, do you mean like if I got my wife aroused? And then I suddenly say, great, take the bins out. Well, this is what they do in tests because you can't... But this is a thing. So I don't know if your wife... It's a really good example. It's a really good example.
+
+[00:34:50] It's cruel. So, so basically the really common sense thing is, if you ask a woman, what do you think of the idea of this sexual act? And let's say something really, quotidian, like oral sex. Okay. That's quotidian? Sorry, go on. So very soberly, most people don't really like the idea of it. But when they're around, that goes out of the window.
+
+[00:35:13] And it only seems to happen with women. But I look into, I've had three studies, and they're all university students. And I worry that that's because 22-year-old students are just disgusting anyway, like the men. So they're very difficult to study, but what they do, they make them watch arousing videos, and then they get them to do different tasks. And some of them are like, have a bite of that biscuit, and it's next to a living worm. And people who have watched a sort of soft core erotica are more likely to bite the biscuit and say they didn't disgust them.
+
+[00:35:41] Wow. It's amazing. And they're much more likely to touch what they're told is a bowl of used condoms. If they've watched this sort of soft pornography, than if they've watched a video of the Olympics, they just show them physical activity or sexual activity or obviously a control group. Yeah, and this is men or women, or both.
+
+[00:35:58] Both, but the results seem to be showing a lot more for women. It's giving me an idea for a restaurant. Doesn't matter how good the food is, but you just put porn on the TVs all the time. Yeah. And people will enjoy the food more. Yeah. Welcome to Andy's bottom feeders.
+
+[00:36:16] Did you read about these studies that have shown that conservative people, things more disgusting than liberal people. And it's to such an extent that if you put a scanner on someone's head and you look at their brain, you can show them one single image of, say, some food with maggots in, and you can measure their brain activity and you can tell with a 95 to 98% accuracy whether they would vote conservative or liberal. Yeah.
+
+[00:36:45] There's lots of reasons why they think it might be the case. Obviously, we don't really know. but it's basically conservatives are a bit more trusting of their natural reactions and liberals are more likely to do something called cognitive reappraisal, which is you see something disgusting, but then you think, well, actually, it's just natural that maggots eat food because they're animals as well. You kind of think about it yourself and come up with reasons about it
+
+[00:37:08] rather than just trusting your initial reaction. So can we run elections based on this? Do we need to bother with all the bits of paper and the boots? Can't we just all get our heads scanned and be told Lib Dem or whatever? Yeah. Like a sorting hat, but it's full of maggots. It's fair for trying. We've sorted it up.
+
+[00:37:26] People will save the government billions. One of us here is likelier to be disgusted than the rest of us. Who could it be? I love Tories. Is it me? Is it someone from the north of England? It's not about being from the north of England. Gender?
+
+[00:37:46] It's not gender. Oh. Oh, is it... Glasses wearing glasses? It's not glasses. It's like guess who now? Is it people who like golf? It's not even like golf.
+
+[00:37:56] It's something one of us puts in their mouth on a regular basis. Oh. Smoking? No. Being vegan. Oh. Being vegan. If you come off meat for a month, you are likely to catch disgust.
+
+[00:38:09] So the more people cut out meat during, say they're doing veganry, the more their meat disgust will grow. Oh. So, I mean, it's actually not, I mean, because you've been a... vegan for ages. Well, I've been vegetarian since I was seven. I was talking to someone recently. And actually when I speak to people who, you know, give up meat and come back to meat, they have such a different response because for me, it's like cannibalism.
+
+[00:38:28] And obviously I don't talk about this when they're eating their food and it's just a personal, I actually don't say it out loud because it's not a moral judgment. I do understand that people get to choose their own food. But for me, there's no difference between a beef burger and, oh yeah, this is a human child. A man burger. Yeah, a man burger. Yeah. Long pig.
+
+[00:38:47] as they call it. Why are you saying it's such creepy Randy? I was trying to keep crazy. He does this all the time. Just a lot of these words
+
+[00:38:56] come out very, very creepy. As they say. I think Elizabeth is creepy and I'm not afraid of saying that. So Paul Rosen, I mean, he's done so many studies on this and all of them are interesting. I find it's so fascinating
+
+[00:39:10] what he's done. So here's a really interesting one. This is all about food, right? And this is, I think, from 1986. and he's just been doing it decades. He reported that most participants showed a preference for a normally shaped
+
+[00:39:22] piece of fudge over fudge shaped like dog feces. Now I would say so far so obvious, right? Many were far less willing to hold fake vomit made of rubber in their mouths than a clean new rubber sink stopper. Again. Yeah. But I know he's telling people it's clean.
+
+[00:39:39] That's the thing. It's the association. If you go to any tourist shop in England, you can buy poo-shaped candy. Can you? I've had a version of this in my life where my son, he got really obsessed with the toilet brush. And so obviously there's two things we had to do.
+
+[00:39:56] One is I had bought a brand new toilet brush with a toilet and I bought him his own toilet brush and it's from the same place. And no one's comfortable with him playing with it because it's a toilet brush. And it's never been used in the toilet until he did start using it in the toilet because he wants the reaction.
+
+[00:40:12] But at the beginning it was just Christmas and everyone was at tonight I was weird. No, I get that completely. I understand. But it's just a brush. The first ever Christmas tree was made out of toilet brushes and painted green. So in a way, you were being very festive. Very Christmas in. This year, everyone's getting one.
+
+[00:40:30] We're the fun fact attached. Okay, it's time for our final fact of the show, and that is Andy. My fact is, there is a spider in Norfolk which can catch fish. Do you know what the creepiest thing is? anyone can ever say to you. That's what Carrie had said to me yesterday. She said, Andy text me, is Sarah scared of spiders? That's a creepy thing to hear, isn't it?
+
+[00:40:59] I asked her not to pass that on. She told me that as well, which made it creepier. He said not to tell you I've asked. Oh, dear. And you're not too scared of spiders? I'm not scared of spiders, no. Some people are very funny about them, obviously. So I just wanted to check that before we...
+
+[00:41:14] Are you asking just to see if we could even talk about the concept of spiders? Yeah, yeah, yeah, yeah. Okay. And this is the Queen of the Marsh, the Fenraft Spider, Norfolk, and Suffolk as well. Sorry to any Suffolkers who are listening who thought I'd been missing you out. And it's just a really cool spider. It's just about the biggest in the UK thing. How big is it?
+
+[00:41:33] Show me your hand? About that big. Great. Okay. It's massive. It's broad. It's broad. It's broad.
+
+[00:41:40] And it's another great story of reintroduction. They got down to a very, very few left. And then the people who live around there who are working conservation have restored their habitat load and they've been breeding them up and the RSPB recently announced not so incy-wincey spider makes incredible comeback. They're really cool and they're not interested in your house. They don't like you. If you don't like spiders, don't worry.
+
+[00:42:02] They're not coming for you. Yeah. And they can basically sit on top of the water, which is the most fascinating thing if you watch a video. Fen raft spider, they are the raft. Yeah, it's extraordinary to do it. It's the hairs, isn't it, on the legs that allow them to do that, I think. And that also helps them to feel.
+
+[00:42:18] vibration so if a fish is going past they can just feel the vibration on their little hairs and go and they run across the water and eat the they grab the fit I mean there's sticklebacks obviously it's not salmon or anything that they're catching but they are they're pretty cool but this slightly big relative to the size of the spider itself you know because the spider can go underwater as well so it will go down on the branch of a of a vine or whatever that's going into the water it will just hang out there it can stay there for about an hour and I've seen videos of you know little creatures coming up and launching
+
+[00:42:48] like a spider would and bringing it back in and consuming it. And they're close to the same size as the spider. Can we talk about Helen Smith? Who's the heroine of this whole story of bringing the spiders back into the North abroad? So she hand-reared 3,000 baby Fenraf spiders in her own kitchen. And these were the first ones that they put into the water. And eventually some other charities got involved and they eventually put 30,000 in.
+
+[00:43:17] But she definitely started it. And she would line up every single one of these spiders in an individual test tube because if you put two of them in a test tube, they'd just eat each other. So they had to be all kept separate. And then she had to personally feed them flies for a full year so that they would grow big enough to let them go. 30,000 of them? 3,000 she did.
+
+[00:43:38] And then eventually it was 30,000. Wow. And she had to collect the flies herself because they eat fruit flies. There's things I want to make fun of her a lot. But I'm also really scared of her. I think there's a kind of person you don't want to make an enemy of, some with access to 3,000 spiders and with that kind of attention to detail. That's what you should have asked Carrie had to ask.
+
+[00:43:59] Are you scared of Helen? Yeah, I'm really scared of Helen from Norfolk. She had to get these fruit flies, and apparently the best place to get them was from compost heaps or horse dung. And so she said... How aroused was she? She said she spent a lot of time with a sweep net following ponies and waiting for them to poo
+
+[00:44:24] just so that she could get the flies when they first arrived on the poo. Isn't that mad? Good Lord. The neighbours, the people who didn't know what she was doing, all of her behaviour. Do you want to come in for a cup of tea? She's a hero. Yeah, what a don.
+
+[00:44:38] So cool. And you now get spider tourism. People visit these nature reserves. because their webs are, I mean, they are massive and their webs are massive too. The webs are apparently the size of a normal pizza. Yeah. Wow. And then obviously when they give birth, there's thousands and thousands more.
+
+[00:44:53] Oh, yeah. So little baby ones. Yeah, right. In the sacks. They're really good mums. The female fendums. Which not all spiders are. Not all spiders are.
+
+[00:45:01] Well, female, she has an egg sack. Yeah. Which is just a big bag of eggs. And she carries it round for three weeks in this bag. And if it gets too cold, She will lift the bag up towards the sun and if it gets too hot she will dunk it in the water to cool it down a bit
+
+[00:45:16] and she goes that whole time without eating because you're busy and then she spins this nursery web as it's called the size of a pizza and suspends that above water and if you go to the Norfolk Broad's to see these things you can see these discs just off the path in the water
+
+[00:45:32] these nursery webs full of the spiderlings but yeah spiders well these ones just one more thing about these ones they're one of only two spiders protected in UK law. Really? Yeah, the ladybird spider. It's the other one.
+
+[00:45:47] It's the Wildlife and Countryside Act of 1981. So if you intentionally kill, injure or take a raft spider, then you are guilty of an offence. And if you say that you're intending to sell one as well, that's illegal. On the dark web, brilliant. Very, very good. Other animals that you are not allowed to kill. in the UK, the wart bite of grasshopper, the trembling sea mat, the slow worm, the glutinous snail, the small blue butterfly and the large blue, basically any blue butterfly.
+
+[00:46:22] That's why we can't do, I'm a celebrity, get me out of here in this country. Yes. You have to go to Australia where we could eat everything. Did you say the glutinous seamat? No, I said the glutinous snail. Oh, there was a seaman. It was trembling or something. Trembling se mat.
+
+[00:46:37] That's an amazing. I'd never heard of that. They live in the sea. around the United Kingdom and they're basically algal mats they think Tremunds slats
+
+[00:46:46] kind of knock off SpongeBob Squarepants is what I'm hearing yeah I'll give you that Are they just terrified the whole time they shouldn't be because they're protected
+
+[00:46:55] yeah I know it's rising sea levels global warming yeah they're the only people that are worried I think they're scared of Andy's bottom sharks
+
+[00:47:04] just to bring that back again you know that spiders can envenate you after they've been squished What? So this was a story from this year in California. There was a 37-year-old woman who went to the emergency room because her eye was all swollen and goopy and felt like it was burning.
+
+[00:47:22] And apparently 20 minutes earlier, her husband had killed a Western black widow spider with a hammer. It splattered in all directions and some of it went in her eye and she got invanimated. Oh, my God. How closely was she looking at the spider? Before we hammered it. There's so much of that story that's horrible. Oh, yeah. I'm a spider to death.
+
+[00:47:41] It's an awful story. I think what I'm saying is don't squash spiders. No. Yeah. No. There's no need to. No, they're our friends. Well, Black Widows spiders are not our friends.
+
+[00:47:52] But they're still important to the ecosystem. Absolutely. But so am I. I'd say human beings, there's too many of us. Not you personally, but in terms of the ecosystem. No, no, that's fair. If we're going to start with anyone, Andy, we might. Yeah.
+
+[00:48:09] I feel like I've had a good run. I always say to my daughter whenever there's a spider I'm like spiders are our friends and they're really important and I am actually terrified of spiders so I don't really believe it when I say I mean I do believe it but I'm like hiding my own fear
+
+[00:48:24] You have to show that you're not afraid Which is tricky Do you find that it helps you That it's helping your response to spiders That you now can't Maybe I suppose so I can't show fear in front of my daughter Yeah because it's a reinforced fear
+
+[00:48:37] So actually I think it's really good for lots of people you know, lots of people, so when they have children to then temper it and then you go, actually I am less panicky about it. And if you have to be the person that puts it safely outside,
+
+[00:48:48] you do realise. My wife does that. Yeah, yeah. But that's only because you're trying to arouse her. Did you do, Dan and James, did you get the photo I sent you recently, not long ago, I've a big spider.
+
+[00:49:00] You mean the one we didn't reply to? What was it, mum? It was a big spider? On email. No, it was WhatsApp. Oh yeah. I don't recall. How big was it?
+
+[00:49:09] It was big. It was a house spider, but it was a big one. It was in my house. It was not only in my house, Sarah. It fell onto my naked shoulder as I sat in bed. Andy, I've got an experience very, very, very similar where I was once counselling a dentist appointment and I could feel a little thing of hair in my face like this.
+
+[00:49:26] And I was just brushing this hair off. It was why it was interesting what you were saying about the hair is balancing on the water. I was just brushing this hair off my face. So first in the morning. And then I pushed and then I heard it hit the floor. And it was so massive. And there's a mirror there.
+
+[00:49:38] And I think if I'd actually see. seen it on my face, I would have died. If I'd actually seen it on my face. But I just felt it there. So, like having just got out of bed, they do come on us in the night. They do come on us in the night. And I did see the photo now that you say it, Andy.
+
+[00:49:53] I do remember your spider. A glass couldn't fit over it. Well, yeah. I have very narrow-necked glasses. But still, you only drink champagne. I shouldn't have started with a flute. I should have gone with the Mary Antoinette, but that was my fault.
+
+[00:50:07] And it was just from a clear blue, guy, from the ceiling, basically. What the heck? Yeah, I find it so as someone who spent my teenagers in Australia, I don't, they're friendly here, comparative to Australia when they kill you. So it's, I don't find them in any way scary here. There's a few, there was a great incident I read about were a guy called Matthew Stevens. He was a chef. And he was cleaning behind a freezer at the Quantock Gateway Pub in Bridgewater when suddenly he was, yeah, we've all been there. And he was bitten twice on his hand. by what turned out to be a Brazilian wandering spider.
+
+[00:50:43] And that's... Oh, those very dangerous. Yes. They come in like bananas, don't they? And this is where this came from. It traveled in the bananas overseas, made it to him. And this is how intense a spider, this kind of spider is. Once he knocked it off of him, he knocked it into an open freezer,
+
+[00:51:01] and then he drenched it in boiling water, and it still was just fine. Well, that's because you've got hot and cold. It was just a very pleasant temperature. You're right. He thinks he's on a spa retreat. It's like a lukewarm bar. The spider's thinking, I will review the quantops well.
+
+[00:51:19] Yeah, and so they collected the spider in the jar and they brought it to where he was at the hospital. Why did they do that? I guess if you're supposed to. Yeah, you're meant to show what bit you because you're like, we need the antivenom. Sorry, I thought you meant he was recovering in hospital and they found it and brought it to him like,
+
+[00:51:34] like, you'll get you again. To apologize. The worst is when I was attacked by a bed. and I had to bring the bear into the hospital. This is why it was a tech man. Yeah, but so they brought it in and it was in a jar. And then someone who worked in the hospital saw it and thought, oh, I should put this back out and let it back loose and out of the wild.
+
+[00:51:50] Yeah. And they said, we probably shouldn't worry because it was probably going to die a couple of days after. I think it wouldn't like it in Bridgewater. Yeah, exactly. Temperatures. Yeah. But yeah. Good grief.
+
+[00:52:02] Should we have a positive spider effect? Yeah. As opposed to all this scary stuff. Some people think, I want to say people. I mean scientists, consider that a spider's web should be considered part of its mind. Right. Okay. That's weird, isn't it?
+
+[00:52:16] So it's an externalisation of, not of consciousness, but of thought. Is that why? Because I guess the web, if it's as far away from, if it heals the movement, therefore your brain is registering. Exactly. Right. And they have foresight, they have planning, they change their web structure based on how much they have left in their silk glands. So if they're running a bit low, they'll make a simpler web.
+
+[00:52:36] So it's kind of an external brain in lots of. ways. So it would be like antennae going off what Dan said in terms of, or, you know, like animals where they can feel whether they're going into a space that's too small. That there's an externalisation of sense, isn't it? Like whiskers, yeah, yeah. Although they'll do like market research on what's hitting their web and sticking. So if prey is hitting it and bouncing off, they'll rejig the web so it's got more sticky pads on
+
+[00:53:00] it to catch more. Or if the local prey is a different size to what they're expecting, they'll change the web based on that. It's so cool. It's really good, isn't it? They are good. Yeah, they're clever. The male Asian hermit spiders become better at fighting if you cut their penises off.
+
+[00:53:16] Yeah. Like what they're getting in the way or what is it that's... No, so they're one of these spiders where after they've had sex, they usually remove their penises and keep it inside the female's reproductive tracks. Oh, yeah. No other male can... Yeah, as a plug. Oof.
+
+[00:53:32] But they also get... It's not really common. It's not really common. In nature, yes, because it's one of the best ways of sperm competition. Yeah. but the other thing they do to make sure that their sperm is successful is they become very, very aggressive and they start fighting off any other spiders
+
+[00:53:47] who come and try and mate with the female. And so that means if you just cut their penis off, then they still get all these hormones or whatever they are to make them really aggressive, and they'll just get really, really fighty. What are you proposing? There's no proposal here. What are the ramifications to the British army?
+
+[00:54:09] Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can all be found online. I'm on at Shriverland on Instagram. James. My Instagram is no such things James Harkin. Andy. Mine is Andrew Hunter M. and Sarah. At Sarah Pasco on Instagram. Yeah. And you're on tour now, yeah? Yes. Yeah, I'm on tour until March 2026. If anyone like to come, I'm going to put in some facts about spiders. And Helen, you've got a free ticket if you want to go. Yeah, or you can get to us as a group by emailing us on podcast at QI.com. All of those emails make their way over to Andy. Andy often picks out some of them to include in our bonus show that we do called Drop Us a Line, and that's part of a thing called Clubfish. It's a very exciting private members club that we've set up that has all sorts of bonus material that you can get access to.
+
+[00:55:05] So check that out, and you can check that out by going to our website, no such thing as a fish.com. There's also merch up there. Otherwise, just come back here next week, because we will be back with another episode and we'll see you then. Goodbye.

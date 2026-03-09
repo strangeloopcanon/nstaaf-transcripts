@@ -1,0 +1,199 @@
+# No Such Thing As A Fish - No Such Thing As A Game Of King's Footsie
+
+- Episode date: November 21, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-game-of-kings-footsie
+- Slug: no-such-thing-as-a-game-of-kings-footsie
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. You're in the No Such Thing as a Fish? No, seriously. It's in the Oxford Dictionary of Underwater Life. He says it right there. First paragraph, No Such Thing is a Fish.
+
+[00:00:16] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast. Coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here with Andy Murray. Shazinsky and James Harkin. And once again, we've gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here they are. Chazinsky, fact number one.
+
+[00:00:43] My fact is that if you got into an argument in 18th century Abyssinia, you could resolve it by blaming everything on the camel. The camel? On the camel, yeah. Were all arguments about who had eaten the hay. I think it turned out that all crimes were put, yeah, perpetrated by camels. If you blamed it on the camel too much, he's bound to get the hump. Hey, how long have we been planning that? Yeah, so this was first recorded in Bruce's travels into Abyssinia to discover the source of the Nile.
+
+[00:01:12] And this book was written between 1768 and 1773, and it was his travels around Africa trying to find the source of the Nile. And he observed this tradition. Wow. So what exactly does it involve? So what he said was he came across a town where the townspeople had been fighting for several days when it was agreed upon by the elders of both parties that nobody had been to blame on either side, but the whole wrong was the work of a camel. And so the townspeople rounded up this camel. They chose a camel at random, I guess. You can't round up one camel. Well, it was a very
+
+[00:01:46] clever camel. It was a criminal camel. It was seized, and everyone in the town gathered around, and one by one, they speared the camel. And he records that they upbraided the camel with all the wrongs done. So they told the camel everything he had done wrong, shouted at it for a while. Each one of them speared it and then apparently retired, fully satisfied as to the wrongs they had received from the camel. So yeah, there's quite a long history of blaming things on animals, isn't there like scapegoating for instance? It's a famous one. There was a case in St. Kilda, I think, where a great orc was accused of being responsible for a storm that had ravaged St. Kilda. It was captured and put on trial and found guilty and stone to death. This is a real
+
+[00:02:26] animal presumably. Ork is like a bird, right? A.U.K. is a bird. It's now extinct. That was one of the first things I ever researched for QI was the Great Hawk, because I joined during the G series. They used them for everything on St. Kilda, didn't they? Yes. They used fulmers and Gannets and orcs, and they ate porridge for breakfast, which was sprinkled with Great Hawk shavings, and they had, yeah. They used to go and kill them in their thousands, and they would just walk around because they're flightless. They would go to the islands where they flocked, and they We'd just go around clubbing them to death because it saved ammunition. So you didn't have to waste bullets killing them.
+
+[00:02:59] And then the last one was seen, you know, floating out at sea in the mid-19th century. And that was it. It's never been seen since. Wow. Awkward. Oh. Oh, my God. Ancient Egyptians used to, when, like, they felt they've been particularly sinful,
+
+[00:03:14] used to sacrifice an animal and lump all their sins onto this animal and sacrifice it. And then they'd sell it to foreigners. They'd sell it to creak to other foreigners because they didn't want to eat the sin. done. Classic. To use the foreign joke. So is that this was where we
+
+[00:03:27] get the scapegoat from? Is that right? No, the scapegoat is from the Torah from Jewish folklore, I think. And what they would do
+
+[00:03:33] is on the Day of Atonement, the Jewish high priest would lay his hands on a live goat, confess all the sins of the children of Israel, and then send it away into the wilderness.
+
+[00:03:43] It's like a Santa Claus who just gets the naughty list, but then has to deal with it. The ancient Greeks used people for this kind of purpose, didn't they? So they would have a person.
+
+[00:03:53] I think it was often a disabled person who they would, again, they'd pile all their sins upon this person and send him into exile and that would be that person taking their sins away. And he was called a pharmacos, which is where we get pharmacy, pharmaceuticals, is from, because he would remedy the sins of a community. Yeah, it's amazing. Yeah, it's quite a cool word origin and sort of unpleasant. Was there a reward for it beforehand? Did you live quite well before you were cast out? Yes, you did. You used to be treated as kind of blessed and cursed.
+
+[00:04:23] So they'd be preserved and they'd be like they'd be hosted around the village. Does that not make it worse? Because like the difference between being sent into the wilderness and just having a normal life is one thing. But the difference between that and having a really great life is even worse. Yeah. Well, Tom Hanks explores this theme in the film Joe versus the volcano, I believe. If you remember that one. I've seen that, no.
+
+[00:04:46] I didn't know that was a great philosophical. Oh, yeah. Free size of a film. And the QI's gain was News Night Review's last, wasn't it? Camels? Does anyone have anything about camels? I do. Go on.
+
+[00:04:59] Google, you know Google Maps. I do, yeah. So, Street View? Yeah. They've had one camel with a camera on its back walking the Liwad Desert. That's good. Yeah, it's basically a camel has mapped
+
+[00:05:11] one of the deserts, one of the great deserts. Just one camel. Just one camel. That's a lot for a camel to do. Yeah. His name's Raffia. That's a great name. 150 kilometers southwest of Abu Dhabi.
+
+[00:05:22] And, yeah, just a lot. It's on its own? How are they directing it? Well, in the picture that I've seen online as a dude walking it. You can train camels to go in certain directions by giving them food if they go in one way and then they'll keep going there because they think that's where they'll find food. And that's a way that they transport drugs across the Sahara. Oh, yeah.
+
+[00:05:42] They train these camels to walk from Western Africa all the way up to the Mediterranean. They train them and train them and train them. And then they put the drugs on the back of the camels and they don't need any human assistance. at all. So if they get caught, if the camels get caught by the police, then there's no humans to. No, but again, camels getting blamed. Because they're the camel's going to be the one that takes the wrap. Camel milk is more nutritious than cow milk, isn't it? Is it? Yeah. I don't know why they don't drink it in Australia, for instance, where they've got more camels than anywhere else. Well, they're all feral. They started selling it in America. Why wouldn't you? Yeah, they do, and I think
+
+[00:06:13] they're trying to make it into a baby milk as well. Australia, um, sells camels to Saudi Arabia. Does it? Yeah. Saudi Arabia also imports sand for use in construction. Exactly. So the Saudi sand isn't good for construction, whereas the Australian one is, and also the Saudi camels are for breeding and racing, whereas the Australian ones are good for meat. I was looking into just general excuses, because I do like that. That's the scapegoat, but it is also just a fantastic excuse to sort of say, let's no longer argue about this stuff. And so, okay, some of my favorite sporting excuses. This one comes from U.S. sprinter Le Sean Merritt. Oh yeah. He was banned because he did a drug called D-H-E-A. I'm not going to try and pronounce the longer version of that word.
+
+[00:06:58] But he claims it wasn't to improve his performance. He claims, there's a quote, I was trying to make my penis bigger. He didn't realize that they had this kind of drug in it. It was to improve his performance, but just not his sporting performance at all, would it? Still, it could be worse. It could be a high jumper. This is an interesting one.
+
+[00:07:19] I don't think you know how high jump works. You leave that. Behind, yeah. Here's another one. So, okay, there's a cyclist called Tyler Hamilton, who, do you know about this one? I know him. Okay, so he got busted because they'd found someone else's red blood cells in his blood, which suggested that there was all this thing about replacing your blood and stuff.
+
+[00:07:42] His claim was that it was his unborn twin. Oh. He said that his mother had a twin who died. Weirdly, medical authorities have said that that's plausible. That could definitely happen. Yeah. It's called chimeraism, isn't it? Oh, is it?
+
+[00:07:55] And the idea is that you had two babies and then at very, very early stage, one of them was enveloped into the other one. It could be even just when it's a few cells. And it means that you can sometimes people who have one eye, which is different color, that could be due to chimerism. But also, yeah, it's really interesting, actually. Yeah. Okay, so blaming people. Blaming your mistakes on other people is socially contagious in the same. way that a yarn is.
+
+[00:08:23] So they've done studies and they found that when you watch someone else blaming someone, then you will blame someone yourself. And that's more likely to happen. Wow. So there can be a culture of blame? Yeah. That's amazing. Also, you're just mentioning yawning has made me yawn now.
+
+[00:08:38] So thank you for that. Actually, I think it was probably damn talk. Okay. Time to move on to fact number two. And fact number two is my fact. my fact this week is that in ancient Greece they used to play with yo-yo's now I know that everyone in this room
+
+[00:08:58] is not as surprised by that as I am but I just find that's amazing it's great yeah okay because James and Anna seem to know that but I saw this I went to a Wikipedia page yeah I thought they just played with Xboxes there's a vase they actually call them Kai boxes
+
+[00:09:11] exciting very good there's a vase and there's an illustration on this vase of someone from ancient Greece a boy playing with a yo-yo and I looked at that and I was like what the hell is that doing there's really weird it's so out of place in time for me I'll say no james earlier I feel like that's like if I was looking for evidence of time travel and I didn't you know I didn't know stuff about history which now I know it's not time travel but I didn't know that that was like I think
+
+[00:09:36] that's the only one there is that jar I think and I don't think we have written evidence of it so and I don't think yo-yo has reappeared until quite a lot later so maybe he was a time traveler. Wow. And he made onto a vase. It makes you think as well that if you did get put back into ancient Greece as a time traveler, then I know I have no uses, but I do know how to walk the dog and rock a cradle in yo-yo's. It would instantly be Mr. Popular.
+
+[00:10:03] You'd be on all the vases. I'd be on everything to be. To be fair, though, we only have that one vase because almost all the vases in the world have been smashed from that time. By yo-yo's. By yos. So maybe it's that maybe every single us in ancient Greece, had a yo-yo on it. Yeah. But they do think, they do think it appeared in ancient
+
+[00:10:23] China way before. There's three locations that they kind of say it could belong to, ancient Greece, ancient China and the Philippines. The Philippines is less so of a strong argument, except for the fact that they call it the yo-yo, and that's where America adopted the word yo-yo from. But in Philippines, they used it as a weapon. We thought on QI, certainly, that yo-yo's were never used as weapons. And we got quite close to running it as a general ignorance on the show, and I don't think we did in the end. But then I read something by President Aquino the Third of the Philippines, and he reckons that they do have evidence that it was used as a weapon after all. So according to the president, it's true, but we still really don't think it. He said that their
+
+[00:11:04] version that they used was large and with sharp edges and studs and attached to thick 20-foot ropes for flinging at enemies or prey. I've heard a different etymology for yo-yo, which which is the, it was known in France in the late 18th century as the Jujou de Normandy, which just means a little toy. So that's another possible one. Okay. It's one of those, again, you look into the history of it, and suddenly it starts appearing everywhere.
+
+[00:11:29] Napoleon's army, it says online that, you know, fought with yo-yo's. No, he just used to play with them in the kind of downtown. Yeah, I remember Wellington. I read that Napoleon played, I mean, surely that's a myth. There are paintings of, yeah, the Napoleonic army, aren't there, with yo-yo's. Almost all pictures of people playing with yo-yo's in the 18th, 17th centuries are adults. And it was a really fashionable thing to do.
+
+[00:11:49] You get Parisian ladies in the 18th century playing with yo-yo, don't you? As they're walking along with their little parasols and their smart clothes, I think it was quite trendy. I just didn't know it was such a big deal, the yo-yo. It was a big deal when I was a kid. Yeah. Me too. In the 80s, late 80s when I was a kid, it was massive in school. We all had yo-yo's.
+
+[00:12:07] Same in the 90s. Well, it was voted the biggest fad toy of the 20th century because every childhood has had a yo-yo being a big part of it. Yeah, there was a massive one in 1988, and the company that made this particular type of yo-yo sold a couple of hundred in 1987 and more than half a million in 1988. Wow.
+
+[00:12:27] How come? It just became a massive fad, and everyone in every school had to have one. The company that made them was called PMS International. It's a really pissed-off woman, looking for something to all get by our kids. You used to be able to become rich and famous for Scalextric in America.
+
+[00:12:45] Really? Yeah, it was massively popular. In the 1960s, they used to show live tournaments on US TV. And there were more slot car facilities than there were bowling galleys in America. That's in the 1960s. And today, there are none. No way.
+
+[00:12:59] Yeah. What's a slot car facility? So it's like, so do you know, scale electric? It's the same thing. It's just like. It just slots in or a little sort of plugs into the track. Another famous toy car. Oh, yeah.
+
+[00:13:10] The most famous toy car. Yeah, go on. Brum. Brum. Oh, wow. It's a cartoon from the 19th. Brum, the little car who goes on adventures. He's not a toy.
+
+[00:13:23] Yeah, it's a cartoon. What about Hot Wheels? They were quite famous. Yeah, Hot Wheels are massive. I was going for bigger. I was going for the cozy coop. You know that, you know the one I mean, right? No.
+
+[00:13:30] It's the red and yellow car. Oh, yes. All kids have that as a kid that you sit inside. Life size for a kid. Oh, yeah, yeah, yeah. Yeah, one of those. So that has been the best-selling car in the year. It was throughout the 90s.
+
+[00:13:44] And the last time, the last I have was from 2008. In the US and the UK it sells more than any other make of car. That's great. Wouldn't that be great if that was the rescue plan for General Motors? Well, we've actually got a new model. We are very excited and it's going to reinvigorate the American car industry. Well, it's not a long way from smart cars, are they? No, that's true.
+
+[00:14:00] Yeah, but they're closer to Flintstone cars as well. Well, that's similar to the fact that Lego is supposed to be the largest tire manufacturer. Yeah. Yeah. art isn't it? You know you can buy a Lego Nazi concentration camp? No way. Yeah, you can.
+
+[00:14:15] Yeah, it was designed by an artist and I think it was bought by the Warsaw Jewish Memorial Museum or something and so it's not meant to be. Right. So it's not a commercial product. I don't think so. They've said that Lego people are getting angrier as the years go on, aren't they? Yeah. Expressions. Can I tell you about Twister?
+
+[00:14:32] Yes, go on. I love Twister so much. Is it an ancient game? This is not an ancient Greek game. No. That would be great. On the other side of the vase, where they've never looked. Oh, they have ancient Persian rugs with the circles on there.
+
+[00:14:44] That'd be great. So, okay, the inventor is a guy called Reing Goya. Rangoya, I think is his name. I don't know how to pronounce it. But he wanted to call it pretzel, although one of his initial names for it was Kings Footsie. But the thing is, it tanked when they first sold it, because people thought it was risque.
+
+[00:15:02] Did they sell it as sex in a box or something like that? Well, other people complained, supposedly, that other manufacturers, or possibly the bosses at the... other firm which made it. And they were going to give up. Sears didn't want it for their catalogue. And the one last ditch attempt they had was to get it on a TV show. And the PR firm, pushing twister, got it onto the Tonight Show with Johnny Carson.
+
+[00:15:22] And he played a round of it with Eva Gabor, who was a sex symbol at the time. And the next morning, the queue was 50 deep. And they sold $3 million that year. Wow. And it was just, it suddenly took off because of that one appearance on TV. It's weird because toys, if they take off, they really take off. Yeah. Especially toy helicopters.
+
+[00:15:48] My little, I went to see my little niece recently. It was her birthday, and I was shocked that there's a whole new toy that's dominating everything, and it's looms. Looming is the biggest thing. Is that loom bands? Giant waving looms? And you use rubber bands, and you loom bands go around your wrist, you make necklaces, all that. It's the biggest. Walk by any kids shop at the moment.
+
+[00:16:10] Look in the window. It's all looms on display. Get this. In 2008, the National Toy Hall of Fame awarded oldest toy to the stick. Isn't that great? Also, the cardboard boxes in that Hall of Fame as well. Is it?
+
+[00:16:28] Imagine at Christmas and your parents go, Good news. We bought you something from the Toy Hall of Fame. Number three, and that is Andy. My fact this week is that most honeybee hives in the USA live on trucks, on flatbed trucks. They do not live in fields where you might think or in stationary apiaries. Most bees in the USA are driven around and rented out so that they can pollinate plants. They never find a home.
+
+[00:16:57] They just, the truck is their home. I think sometimes, I don't know about how it happens during winter, but I think during the summer season, there are billions of bees being driven all over America. And they stop and they're released to pollinate a crop. and then they go back to the hive in the evening or whatever it is they finish doing all the pollinating and then away they go. That's because of colony collapse, is it? It's partly because of that, yeah. Although colony collapse has slowed down.
+
+[00:17:22] They're not sure why. But even so, a third of all bees in America die each year. They think it's because of these chemicals used called neonicotinoids. I thought bees would die within a year. The lifespan, well, the lifespan is really variable depending on how hard they work. So I think in. As with people. We're all in our late 80s.
+
+[00:17:40] I think worker bees in hot weather where I think they have to work harder and have a lifespan of about six weeks and then if it's a cold year, then they can last about 10 months. They move around slowly, don't they? They're sort of sluggish. The other thing I read about old bees is if you give them a job that normally young bees do,
+
+[00:17:58] then their brains stop aging or even reverse aging. They get younger, don't they? It's like doing Sudoku for them. Yeah, apart from I don't think the young people are doing Sudoku these days. If you started playing with looms, then you're her brain with. Or if you teach an old bee to play Call of Duty advanced warfare.
+
+[00:18:14] Yeah. Yeah. Cool. And their brain chemistry can change, can't it? So I think honey bees do lots of jobs. So there are certain, like, worker bees are just workers and drone bees, etc. But honey bees do lots of jobs. And when they switch from one job to another, their actual brain chemistry changes.
+
+[00:18:31] And I think they're one of the only animals that's known to do that in order to adapt them to their other job. But they do. So we do need them to pollinate our crops, do you? I think they pollinate a third. third of the world's crops. They're responsible for $20 billion worth of food production in America alone, I think. Don't flies pollinate flowers more than bees do?
+
+[00:18:51] No. Well, lots of other things do as well. So there are 20,000 species of bee, which no one. And the honeybee is the one that gets all the press. So the agave plant, which tequila's made out of, is pollinated by bats. Yeah. The cocoa plant is pollinated by midges. Are we about to go through all the plants?
+
+[00:19:08] This is my part of the tree. This is my part of my tree. moment. Never been invited to a party again. Or he's drinking tequila. Oh, I can't help but noticing you're eating an almond. I wonder if I can tell you about the pollination of the almond. It's a peanut, fuck off.
+
+[00:19:28] There is a bat. If you're listening to this, stop what you're doing and Google the tube-lipped nectar bat because it has the longest tongue proportional to its body look of any animal. It's longer, I think, than the animal itself, or it's longer. two-thirds of the animal's length. And it has such a long tongue. It has to keep a bit of it in its rib cage. And they specialize in pollinating and drinking the nectar from these flowers with
+
+[00:19:50] incredibly long trumpets. So that's what they have to do. They have to have this unbelievable tongue. Wow. I found a great headline to do with the trucks carrying all the bees. Oh, yeah. And the headline is this. It's someone who made a connection.
+
+[00:20:02] Why are so many bee carrying trucks crashing? Apparently, in the last few years, there's been serious problems with these trucks that carrying the bees, overturning on the road, smashing down and releasing millions of bees into the road, just millions swarming everywhere. Presumably, that happens mostly not on motorways, but on bee roads. I enjoyed that. So they crash, they crash. Yeah, they crash, and they release all these bees.
+
+[00:20:29] It causes hell for them. And there was a really funny thing of there's been like two to three of these major crashes, millions of bees go out. And then one time, another truck came along that crashed. but it wasn't carrying bees. It was carrying honey. And it spilled something like 200 gallons of honey, which attracted just thousands of swarms of bees.
+
+[00:20:49] And so they had another bee crisis on their hands. And then you have to get the right ones back onto the truck when you fix the truck and you have to separate them. Pliny had a theory that if honeybees were caught outdoors at night, and they had to camp out, basically, and they would sleep on their backs to protect their wings from the dew. Ah. But in many ways, it was rubbish, right?
+
+[00:21:07] It was rubbish. Yes, it was and remained rubbish. Oh, God. See, that's how impressionable I am. I was like, but not true. Have you heard of the superhero, the Red Bee? No.
+
+[00:21:18] He's one of the worst superheroes of all time. I just, I love him. His identity is Rick Raleigh. He's an assistant district attorney in Oregon. And his modus operandi is to put on a red and yellow costume, and he has trained bees with which he fights Nazis. And this is from the Wikipedia page for the Red Bee. His favorite bee is named Michael and lives inside his belt buckle for use in special
+
+[00:21:39] circumstances. Okay, time for our final fact. And that is James. Okay, my fact this week is the Sacramento Police Department get at least one call a week from people stuck in the world's largest corn maze.
+
+[00:21:55] That's really funny. Wow. I could tell by the way you laughed. No, I just like the thought of it of just the phone ringing in the station. So how big is this corn maze? It's 63 acres in size. So what do the police do when they're called?
+
+[00:22:11] Often, the people, police will get into the maze and then they themselves will have to call the bigger police until it's kind of like a conga line that they eventually find them. I think they just calm them down really because it's mostly that people are like freaking out a little bit because they're stuck. Okay. And then presumably the owners of the maze and can then go in and sort it out. It must be a nightmare of being like, okay, we shut at six.
+
+[00:22:34] Nine o'clock now. There's something there. We shut at six, but last entry is at 9.30 in the morning. That's when you know you're in a night. as serious means. There was a guy in England who had a maze. It was quite, it wasn't like a big, like corn one. It was a smaller one. And he was mowing it. He was mowing the paths. And he got to about halfway through. And then he realized he had to go to his daughter's school thing. And so he had to leave, but he couldn't get out of his own maze. And so he just used his lawnmower and just plowed
+
+[00:23:05] straight through and gave himself an exit. Oh, it's the world's one maze now. Yeah, exactly. He said, I've just found the article. He said, I don't. already had feedback suggesting the maze was tricky to negotiate before I became lost myself. Next year, I think I'll make it a bit easier. Next year, I'll listen to the bloody feedback. But yeah, mazes in general, they're pretty good, aren't they? I love mazes. I haven't been a maze for ages.
+
+[00:23:28] I don't think I've ever been to a maze. Really? Let's all go to Hampton Court. In Germany, mazes are called Irgarten or Error Gardens. How good is that? Yeah, that's good. But there used to be, so mazes grew out of labyrinths, is that right? Yeah, so a labyrinth is a maze with only one entrance and exit
+
+[00:23:43] so you can't get lost in it. You just go straight and you come straight back out again. Lots of mazes have surely got only one exit and entrance. Do you mean one path? There are no dead ends. Yeah, so you walk in and you keep walking, you get to the middle and then you get back out again. And there's no way, you can't turn left or right.
+
+[00:23:58] You just have to go in that direction. I see. Because, yeah, there's all the stuff about the labyrinth at Crete with Theseus and the line at all. But you wouldn't get lost in that. You wouldn't even need a thread. So was a labyrinth just effectively a more complicated, walk? Like, what was the purpose behind it?
+
+[00:24:13] So actually, it does look nice, but people used it for, like, religious reasons sometimes because it's a very particular pattern. One way that you could do it is you would, you would walk in and on the way into the center of the labyrinth, you would be thinking about your problems and then the way out you would think about your solutions. That's good. That's good. a contemplative thing. Apparently, like also, Norwegian sailors would go through these mazes just before they went and it would be good luck.
+
+[00:24:40] So they used it as a charm thing sometimes as well. I read another theory, either symbolising the hard life of an early Christian or showing the entanglements of sin, or, my favourite, it would be like doing a mini pilgrimage if you had committed a small sin. How good is that?
+
+[00:24:58] Go to Hampton Court. But that's cheating. because labyrinth is quite fun, or mazes are quite fun. But I think it's like go and have a long walk and think about what you've done. Oh, I suppose so, yeah. Go on a long walk, but stay within this, stay within sight of me. Yeah. We close at six.
+
+[00:25:17] I think they've found a maze in Peru that's more than 3,000 years old, I think. So it's in the Peruvian Andes, and it's beneath Charvin de Huantar, which is this ancient site. and the whole maze is underground and they think that it acted as a ceremonial, like massive and disorienting acoustic chamber because if you go down into it, the way that it's built
+
+[00:25:39] means that when your voice bounces off the walls madly and like if someone else in another part of the maze you can never find them and you think they're coming from a different direction and if you're above the maze it sounds absolutely terrifying and they found at this site all these kind of trumpet things and if you blow the trumpets it sounds off all the walls.
+
+[00:25:55] It's like a torture thing. Yeah, I think so, yeah. So you get lost in this maze and also sounds are coming from everywhere. There's an old Scandinavian punishment called the Cave of Roses and that was you would go into a dark cave and then they would throw a load of poisonous animals at you
+
+[00:26:12] and you just have to stay there for a while and then come out and hopefully not be bitten. Really? It's a bit like I'm a celebrity kind of. Cave of Roses is a misleading title. They all have misleading names, torture equipment because you very rarely get one called the excruciating foot cutter off a thing.
+
+[00:26:28] There's one called the Pairor. of anguish. Oh yeah. Which is a piece of metal, right? And it gets put into your mouth and then I think it's expanded and it hurts your daughter
+
+[00:26:37] or it's heated and you know it's all but the pair you know, oh I'll have a pair of anguish. Not so good. Yeah. If a judge has a bit of an eye
+
+[00:26:45] for the amateur dramatic side of things he sent, I sentence you to eat a pear. Oh, of anguish. People make mazes into weird things. I think I said you something recently down of
+
+[00:26:55] Brian Blessed's face was turned into a maze slash crop circle. thing. That's right, yes. It's pretty great. Yeah. In the November 2004, election in America, a farmer carved giant faces of John Kerry and President Bush into his cornfield in Pleasant Grove in Utah, which I just think when farmers do that, you're ruining your crops, right? Yeah. They do it for, um, to bring in tourists and stuff, don't they? Do you reckon they make that back? I mean, let's all go and see John Kerry's
+
+[00:27:21] massive face? Yeah, in a massive draw. In a place formerly known as Pleasant Grove. Yeah. By studying sheep in mazes, they found that when left to their own devices, sheep tend to turn to the left. That's so interesting. When left to their own devices, when they're not constantly being bothered. Would you just leave me alone for a bit so I can think? Okay, I'm going to go left. You can make an infinite maze in a finite room if you use virtual reality.
+
+[00:27:56] And they've made these particular types of... It is, but it's quite clever. They've made these particular types of virtual reality, and the illusion is so strong that people keep walking around, and they don't realize they're going around in circles. So you're walking around in one room, but it feels like you've walked miles, but actually you haven't. Okay, that is really cool.
+
+[00:28:16] That's really cool. That's because I saw a thing online about a Japanese janitor who had drawn a maze. Did you read about this? Yeah, I do kind of remember it. His daughter dug it up amongst his papers just found it. It was a piece of paper, and she put it online, and everyone listening, if you want to see something amazing, just go look at it. It's the most intricate. And she sells it now. She sells prints of it because it's so beautiful. And when you said infinite and it was in virtual, I kind of thought, oh, no, when you look at this, this looks like it just goes on. You know, when people say, like, the coastlines are... It's the idea of fractals, so that the closer you look in at something, it just gets more and more complicated. So it's just infinite in terms of, yeah.
+
+[00:28:56] Wow. But to be fair, I bet that the... corridors were pretty dirty No one can find anything in the school anymore I found out about ways you can navigate if you are lost just in an urban area One great way of doing it Satellite dishes almost all point in the same direction
+
+[00:29:17] In Britain they almost all point to the southeast Wow Also going downhill is normally towards a river Or the coast if you're on a coastal place And if you're lost in the morning You can find a station by going against the flow of people because everyone's going to work from the station
+
+[00:29:33] if you're in the centre of town. Or you might be going towards a huge fire. Yeah. It's not a perfect system. Let's end with some stupid reasons for calling 911 or 999. Okay. There was a man who received a letter asking him to attend a hospital appointment on Tuesday the 6th of February
+
+[00:29:52] and he called 999 to tell them that Tuesday wasn't the 6th. Yeah, so I think the Cornish police force released a top 10 list of the most ridiculous emergency calls they'd have and I think three of them were bird related and so one of them was a woman saying I can see a really rare bird sitting on top of a telegraph pole Who shall I ring? I read a thing on, it's doing the rounds on the internet at the moment
+
+[00:30:17] It's not particularly funny because it was a lady in distress But it was a really interesting thing where She called up 999-9-1 and she goes Hi, I'd like to just put in an order for a pizza the ham and cheese. She said something. Pepperoni. And they go, sorry, ma'am, this is the police. She goes, yep, I know. I'd love to get
+
+[00:30:35] a ham and cheese, please, so please. And they go, sorry, you know this is the police? Yep. So can you, can you, do you need me to tell you my location or do you know have you got it? And they go, do you know, is there something going on there? Yes, there is. Yep. How long will that be? Okay, ma'am, we'll just find your location.
+
+[00:30:51] We'll be there very soon. Yep, quick, hurry. We're very hungry kind of thing. Oh, really? It's become a famous phone call that the guy who took the phone call released. It was a domestic abuse call. And they tracked it and they worked out that that guy had got in trouble before twice for domestic abuse. So they were like, this is definitely a sincere call. That is really...
+
+[00:31:10] And well done for the operators, realizing... Yes, yeah. In June of this year, a woman in Birmingham phone 999 because she was unhappy with how many sprinkles she had been given on her ice cream. And they were all on the wrong side as well. Maybe she fell 99. Okay, that's it. That's all of our facts. Thank you very much for listening. If you want to get in contact with any of us about the things that we've said over the course of this show, you can find us on at QI podcast. You can also get us individually on our Twitter handles.
+
+[00:31:42] I'm on at Schreiberland, James. At Egg-shaped. Andy at Andrew Hunter M. And Anna. You can email podcast at QI.com. And yeah, that's it from us. We're going to be back again next week with another episode. No such thing as a fish. We'll catch you then. Goodbye. can do you

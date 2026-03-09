@@ -1,0 +1,359 @@
+# No Such Thing As A Fish - No Such Thing As A Short Dalek
+
+- Episode date: July 13, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-short-dalek
+- Slug: no-such-thing-as-a-short-dalek
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of No Such Thing as a Fish, where we are joined by our very good friend, Jenny Colgan. Now, Jenny Colgan is, well, she's done a bit of stand-up, but she is mostly well known for being a writer, a writer of romantic comedy fiction and of science fiction. If you are a fan of Doctor Who, then you may well know her. She's written all sorts of spinoffs and audiobooks and stuff for Doctor Who. We might get into that in the first fact today, spoiler alert. But what we'd like to let you know about most of all is that Jenny has a brand new book. It is called The Summer Skies. And if it is anything like Jenny's other work, it is going to be absolutely fantastic.
+
+[00:00:41] Just perfect for a summer holiday. And you can get that wherever you buy your books. On top of that, the usual stuff, do join Club Fish if you want a bit of extra fish in your life and some ad-free episodes. And if you go to no such things of fish.com forward slash podfest, then you will find that there are one or two. two, really not many at all, tickets left for our show at King's Place in September. We are on the verge of booking, an amazing guest for that. I promise you, you will not want to miss it. If you can't get down to London, then there are streaming tickets available.
+
+[00:01:15] Okay, really hope you enjoy this sweet show, and all that's left to say is on with the podcast. Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hobern. My name is Dan Schreiber. I am sitting here with James Harkin, Andrew Hunter Murray, and Jenny Colgan. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Jenny. There is, on dot who, a Dalek named after Dickens character. Wow.
+
+[00:02:08] Hi brow. I learned this fact for money. I'm not actually for points, really, because one of my kids' teachers, is a great Dickens fan. And he said to the kids, if you bring me a Dickens fact that I haven't heard before, there's something in it for you.
+
+[00:02:22] So I kind of put it out to the world, which was kind of fun. And actually, the most Dickens Facts that everybody knows, one, he's the first person ever to talk about dinosaurs in fiction. I did not know that. There's a reference to a dinosaur
+
+[00:02:35] on page one of Bleak House. And then the other thing that most people know is that Hans Christian Anderson came to stay with him on holiday and was the worst guest ever and they both wrote about it in their diaries with hands going oh I'm feeling so weary and Dickens going how do we get this guy
+
+[00:02:52] so these obviously the teacher knew these very famous Macs but what he did not know is a friend of mine who's an actor plays a Dalek on Doctor Who and they tend to keep the same people because obviously it's quite skilled and you tend to be in the same Dalek casing because they're really small and it's not a very pleasant
+
+[00:03:13] spend 10 hours in a really small space. So you have your own Dalek and the Dalek is named after you in the props covered. And my friend is called Barnaby and he's named after Barnaby Rudge. And so there is in the BBC Dalek Barnaby. Dahlick, Dain Sir, I must exterminate you. Yeah, that's amazing. So yeah, so for anyone that doesn't know Doctor Who James, I'm looking at you. Yeah, I'm afraid I don't.
+
+[00:03:40] You know what the Daleks are though? Yeah, they're like little. robots, have they? They're a tall villain. Tall. They're tall. They're not little. When we say little, they're about... Yeah, but if I had to describe a dialogue, the first word I was going, it wasn't...
+
+[00:03:54] Oh, they're quite... The guy over there, can you describe him? Yeah, he's tall... No, he's got a sick punch coming out of his tall. Can you tell me anything about the criminal who came up to try to exterminate you? Well, yeah, first of all, he was tall. I was simply addressing your first point
+
+[00:04:09] to say, they're small. I was simply hitting that off as a busted myth straight away. Okay. So they're... It's like Jenny do it. She knows up to here. For a paper pot they're tall. Ah, right. And they're kind of... They have a kind of plunger at the front
+
+[00:04:23] and they are, in fact, they look like they're the monsters but they're not... They are kind of strange creatures inside. Used to be people. So they're like a tank for a... That is exactly what they're like. When you say pepper pot, I read that when they were designed, the person
+
+[00:04:39] who decided how they would move, use the pepper pot to kind of move around the table and say this is how they'll move. Is that true? I think it is. Was it Ray Cusick who designed the look at the... It's really weird the story of how they were come up with because the creator was Terry Nation who was involved in working on the very early scripts
+
+[00:05:00] and he just described them in the script but he didn't really describe them very much. And then Terry Nation was... He just said tall. He said just didn't call only at it. And then Ray Cusick took the job to design them and he worked with a model maker called Bill Roberts and they actually, they're the ones who built the look as far as I understand
+
+[00:05:16] it. Is that fair? Yeah. Yeah. And Terry Nation though holds the, as it were, the copy-wise. They belong to him. Well, he became hugely wealthy because he owned the copyright to Daleks. And so... And to the point where when the new series came back all those years ago with Russell T. Davies, the first one with Christopher Eccleston, we didn't know if we were going to get the Daleks back because the Terry Nation estate said, well, we don't know if this is going to be... So they had to consider that the Daleks would not return. with Doctor Who? And what is the very first thing
+
+[00:05:44] the Daleks do when they come back? I know this one. I actually know this one because that's one of the very little bits of Doctor Who I've seen. They go up some stairs.
+
+[00:05:52] They fly up this stairs. It was in such a lovely moment when Rosa escapes up the stairs and the whole country's going, aha! The one thing I know about Daleks and then they're levited. I'd love to know if your friend Barnaby,
+
+[00:06:05] if he's been in the same Dalek for all these years, whether or not it's like when you go into a small biplane and, you know, the person's got a picture of their kids up on the, some dice, you know, is the inside. Have they got all these little lady dialects? This is not the only literary reference that made its way into Doctor Who.
+
+[00:06:27] The very first companion of the very first series of Doctor Who was Ian Chesterton. And Ian Chesterton was named after G.K. Chesterton, because the original script writer for the show, Coburn, was a devout Catholic and a massive fan of Chesterton. And so gave him that name. Yeah, so Chesterton made it in as well. And Dickens is the first historical figure that turns up in New Who. He's in the second episode, I think. Of the original series?
+
+[00:06:52] Of the new series. Of the new series. Of the new series. Which, of course, isn't new anymore. Yeah, yeah, yeah. It's like really old. As played, of course, by Simon Callow, who has played Dickens so often. I get them very muddled up in my head.
+
+[00:07:03] Yeah. Dan, you just had the first companion was named after who? G.K. Chesterton. Yeah. So I've got... I thought the first assistant was the doctor's granddaughter. Are we confusing companion and assistant?
+
+[00:07:17] I'm sorry. That's the one who does the inbox. I just feel like, because I did a pub quiz quiz quiz recently, and the quiz master, she said, we had a Doctor Who quiz in here last week, and I barely got out alive. Famously the quickest way to end a punch-up
+
+[00:07:31] in a pub quiz is to ask how many Doctor Who is the bean. Luckily, your inbox is bigger on the inside. Yeah, that might be a technicality Because the granddaughter is the granddaughter Right, right, don't she count The brief was really interesting for the casting It was she had to be at with it girl of 15 Reaching the end of her secondary school career
+
+[00:07:53] Eager for Life, lower than Middle Class Avoid dialect, use neutral accent laced with the latest teenage slang That was the gig Hickat me! Yeah, exactly And then she was made his granddaughter because it was it William Hartnell The first one? It was him?
+
+[00:08:08] And it was to avoid any suggestion of, this is a bit weird, isn't it, his old bloke traveling around with a 15-year-old girl, what's going on? They were really careful with that for so long. In fact, right up until I started writing for it and I started... Did you change it? But no, when I went to see them, they were really, because I write romantic comedy and they were really quite funny, like, you know, we can't have any kissing or anything like that. And I was like, fine, I promise you I'm a debut.
+
+[00:08:32] I will not do any of that. Then the show completely changed. And actually, Matt Smith spends pretty much his whole time, being naked or getting married to folk by mistake or, you know, they suddenly became a massive romantic overtones all the time. It's faking interesting. Can you get his hearts broken?
+
+[00:08:53] Oh, I get your knowledge, yes. I just kind of slip in anything that I know. Oh, dear. I did read that there have been Doctor Who top trumps over the years. This is interesting because I do know about top trumps. and Pax 6 has a lot of bad guys in, including Adolf Hitler. And if you put Pax 6 against Pact 7, you can fight Adolf Hitler against Queen Elizabeth I first. So I want you to guess who is the bravest out of Adolf Hitler or Queen Elizabeth I, according to top Trumps.
+
+[00:09:29] Oh, Elizabeth. Yeah, agreed, everyone. I'll say, I'll say the minority folk. Are you voting for Hitler? Just checking. I just want you to say out loud that you think Hitler. I think it was braver, braver. Not better.
+
+[00:09:46] I'll say Hitler to provide us part. In fact, bravery was his lowest possible thing. He was good in lots of the things, but the bravery was the worst. Who do you think is the strongest out of Hitler or Queen Elizabeth I first? I got completely ambushed last time. I'm going to say Elizabeth I first. Stronger? She is a strong.
+
+[00:10:06] and Hitler wins on brains and terror. Okay. Just a thing. Red victory for Hitler. He does spend his entire episode locked in the cupboard. Does he? So I could have got you to the bravery thing, but the brains one slightly defeats me. What's Hitler's episode of Doctor Who?
+
+[00:10:24] It's called Let's Kill Hitler. Oh, wow. Really? Gosh. One of the first people involved in the BBC side of things, who was a guy called Sidney Newman, who was the head of drama. He was a really interesting guy. So there was a play that was broadcast
+
+[00:10:40] in his career called Underground, right? It was about a group of nuclear holocaust survivors living in the London Underground. I think this was early 60s or late 50s. Like it was quite, you know, it sounds very terrifying and dramatic. But it was a live broadcast, and one of the actors in it died
+
+[00:10:56] of a heart attack halfway through the television screening. Wow. Off stage, so he wasn't on camera, but it was in between scenes, He was in costume and makeup and he died and the play had to Improvise its way through and Newman was kind of in charge of it. He said just treat it like a football match just play on Wow Adjust yeah oh so it wasn't like there's been a murder like they they didn't shift the whole thing to I don't know
+
+[00:11:21] I don't know really death full kick Can I just say if someone dies in the middle of a football match they do stop the game That's a very good point That's a very good point Well that's the then that's the weird thing the character was meant to die of a heart attack later in the play the character Not the actor. Yeah, yeah, yeah. Right.
+
+[00:11:37] So I guess they just have to shift in. The gig to agree to. This will require you dying. It's going out on BBC One, so you kind of think of your career. Peter Capaldi, I think, auditioned for Doctor Who and got the role, but he got it 20 years later. So he auditioned in 1996 when they were casting for the, they made a film, didn't they then? And that was... Yes.
+
+[00:11:59] Yeah, yeah. And lots of people auditioned. Michael Palin, Eric Idol. Rick Mail. Oh, wow. Rick would have been crazy. Although you need to be kind of kind to be the doctor and I think he was a very
+
+[00:12:10] kind man in real life, but on the screen he was terrifying at all times. Others who are just in Brian Blassett? No. Do you know what? I think it's about English tolerance for Brian Blessed and I have not inherited
+
+[00:12:24] the gene. I can't you know, I get it. Everybody loves them. It's one of those English things that I don't get like freaking Tim Henman. Do you think Candy would make a good doctor I think he was. I think you... Yes.
+
+[00:12:38] Let me see your fingers. Hold out your fingers. Yeah, okay. Sorry, what are you looking for, though? They've all got really long fingers. Are they? Is that? A requirement.
+
+[00:12:49] Wow. Maybe that's why Capaldi got the gig 20 years on. He was older. Taller. Fingers. Actually, the very nice thing is Shitty who is the new Doctor Who
+
+[00:12:59] is also Scottish, so we've had the most sensational run of it. Yes, that's right? in Fife. One of the most famous things about Doctor Who is the fact that during the 1950s and 60s, or even to the 70s, about 60 to 70% of all BBC video that had recordings of shows were deleted. And so we're missing.
+
+[00:13:19] It was over 100 episodes of Doctor Who. It's slowly going a bit slow. I think it's under the 100 mark now purely because there is a dedicated group of fans who are out there in the world trying to track down all of these missing episodes. And it's fascinating. Every few years we get a message that comes through from fans online saying, another's been found. The BBC will say, nine found in Nigeria in the cupboard of a random TV, local TV station.
+
+[00:13:44] And they just find the reels to they? Yeah, they find the old. Yeah. Because what they used to do is they used to send out all of these reels to different countries. But explicitly would say, once you've had it for this many months, there's an expiry date on it. Yeah, yeah. I have at home, I have a vinyl record of a Goon Show episode called. called Yeti, which says on it, smash this in three months' time.
+
+[00:14:05] Here's the expiry day. And someone just hadn't smashed it. Is that where the Mission Impossible films got this message with self-destruct in five seconds or whatever? Could be? I don't know. Yeah. I don't know either. It might be.
+
+[00:14:16] But yeah, but so we still have like 97 episodes that are still missing. So they keep getting fanned. If you find one, is it worth like a million quid or something? Hmm, that's interesting. Yeah, I don't know. Not really. No. It kind of belongs to the BBC still.
+
+[00:14:29] And also, also, it's such a kind of proper Indiana Jones sluble. You know people have dedicated it's extraordinary amounts of time to this thing And it would be seen as bad if you put it on eBay straight away and Yes, they would be seen as bad but also I think they've kind of glory and honor of finding it They're missing ones there they've kind of animated them Ah, do they have the scripts then they've got scripts right okay, cool When you think of Doctor Who largely it's the villains of the the old Doctor Who the Daleks and so on that and Cyberman, thank you well done James but then there's also James the weeping angels that's right so Stephen
+
+[00:15:06] Moffitt who created that for the show created a monster that was so iconic to the new fans of Doctor Who that when there was a poll done in 2012 it came on top as the best villain of Doctor Who above the Daleks which is very rare it's first time I think that's ever happened so the weeping angels for anyone that doesn't know it's basically angels that are effectively weird aliens or there's something and if you turn your gaze away from them or you blink they get closer to you and they get closer to you and get closer to you until they capture you Like grandmother's footsteps.
+
+[00:15:35] Yeah, exactly. Yeah. What time is it, Mr. Wolf? Yeah. And if they capture you, they don't kill you, but they send you to another time on earth and you're just stuck there and there's no way of getting back. So it's basically a death to some extent. Also, if you're playing top trumps, then they have the same terror as Adolf Hitler. Wow.
+
+[00:15:54] Well, that puts them in context. I've always had a problem with the weeping dangerous as a monster. Oh, yeah. Because I think if we had them now, there'd just be a queue of people closing their eyes in front them saying, could you send me back to when I could buy a house? I had about 1981. Manhattan is fine.
+
+[00:16:10] Yeah, exactly. But so Stephen Moffat was actually inspired by an original statue that he saw that looks so scary, and he had this idea of what if that kept encroaching on me. So years later, he decided, having told his son about the story, to go back and show him the Weeping Angel that had inspired this. And they went there to the exact spot, and it was gone. Was it of an old slave trader or something? Okay, it is time for fact number two, and that is James.
+
+[00:16:44] Okay, my fact this week is when the atom bomb was dropped on Hiroshima, George Bernard Shaw wrote to the Times in disgust. He was upset that there was an unnecessary bee at the end of the word bomb. Thank you, George, for your contribution on this horrific day. I know. It's like, you know, Churchill said it was going to save a million lives. Gandhi said it was a potential suicide of mankind. But George Bernard Shaw wrote,
+
+[00:17:11] I can scribble the word bomb barely legible 18 times in a minute, and bomb without the bee 24 times in a minute, saving 25% by dropping this superfluous bee. And he reckoned that it would save 131,400 seconds per year in the entire English-speaking world. How soon after the bomb was dropped did he send this? It was a few weeks after. Jeez.
+
+[00:17:36] Oh, okay. So he waited for the initial... I think that was more the post. Right. God. I mean, yeah, talk about missing the point. Yeah, it was. Well, he was one of these people who really wanted to improve the language, so to speak, by making, spelling simpler.
+
+[00:17:51] Pick your moments, though, mate. What the hell? That's never... Has anyone ever written B-O-M for B-O-M? Was he trying to call back to something, or was he trying to... also, no, because it feels like it's an Italian-ish word. I think it comes from the Latin bombus, meaning it's on a matapaeic. It's just like a noise.
+
+[00:18:08] Bomba. Yeah, yeah, that's how it works. But anyway, I thought we might talk about the Manhattan Project because Jenny, you are something of an expert. Is that fair to say or not? I would say it's not really fair to say because that is a hostage to poison. However, I did mastermind and I picked it as my specialist subject. Wow.
+
+[00:18:26] And I don't really get nervous very often. I have never been so nervous. And I wasn't nervous about the subject, which I thought I knew. And I wasn't nervous about being... I'd already lost pointless, and I'd already lost, you know, whatever that other chasy one is. So I wasn't nervous about that. I was really nervous. You know how every year there's one person that gets zero points?
+
+[00:18:50] And it goes on YouTube. And, you know, and I just... That was just right in front of my eyes. In particular, I was like, oh, they look at me and they go, oh, my God, there's a girl on, you know. she thought she'd pick this stupid topic. Oh, the headline would have been Colgan Boms. I think of that you were.
+
+[00:19:05] And I would have written to the newspapers going, how are you spelling the word bun? You could have saved this much, honey. Who was your host? It was one of the tall, white-haired, pointy guys. Humphreys. Yes. Because everyone who watches Doctor Who has their doctor, don't they?
+
+[00:19:21] Who they grow up with. For me, it's a Magnus Magnus and is my mastermind. Well, he did, you know, you did a bit of chit-chat. Yeah. And he said, you write about cakes. And I was like, occasionally. And he said, why aren't you fat? And I was like, what kind of a question?
+
+[00:19:35] Where are we going with this? So I think. That's the today program training kicking in. It's brutalized the guest before you ask the questions. I can't help Andy, but to notice that Jenny's description of toll there to describe the host was very useful. Actually, no, you're right, Dan. I don't think it was. Sorry, Jenny.
+
+[00:19:53] You want a rubbish road describing Humphries. He's sitting down. Great point. So, the Manhattan Project. Yeah. Yeah. But Oppenheimer. He was an interesting cookie, wasn't he?
+
+[00:20:05] Oppenheimer. He was someone who was a bit of a troubling kid. I keep running into stories where his dad kind of has to bail him out at various different times to sort of save the career that he's hoping to have. He at one point was at Cambridge University. He was studying there. And he was furious with one of his teachers who was called Patrick Blackett. And Blackett, who would go on to win a... Nobel Prize himself. And Blackett was forcing him to do things that weren't theoretical physics.
+
+[00:20:32] He was taking him away from his interests. Not applied physics. Fucking out. In a bit of fury and a bit of rage, Oppenheimer, and this is the story. There's lots of different stories, but roughly this is it. He poisoned an apple and left it on Blackett's desk for him to eat. Like proper will kill you. Proper poison, yeah. There's a lot of murky sort of territory to the story. What we do know is definitely the dad stepped in and said, if we promised to send him to a psychiatrist, can we keep him going on? And if he keeps his meetings, can he stay?
+
+[00:21:02] And they said, yeah, sure. And so that's the only reason that he... Lean in those days, wasn't it? I know. And they wonder why people who go to these posh schools grow up to think that the rules don't apply to them. Yeah. It is crackers.
+
+[00:21:14] Wasn't that the way that Alan Turing killed himself as well, with a poisoned apple? It was, yeah. Supposedly. That's the story. Cyanide into the side of an apple. A lot of poisoned apples around, yeah. No, Oppenheimer was very odd.
+
+[00:21:25] So Oppenheimer is the person who, when they were setting up the Manhattan Project, they came to him and they said, we want you to head this up. And the location, Los Alamos itself, was picked by Oppenheimer when he was on horseback going off around and he went, this would be perfect. But even though he was given all of this high clearance and he was the head of this very secret operation, he was under constant surveillance because they also thought that he was a communist because he was very pro-communist. He was never card carrying, but he'd said enough stuff that they thought, this guy's going to be stealing our secrets and sending them out. Well, the guy that did, there was a guy called Fuchs, who was there, who ended up, and is possibly, depending on how you look at it, guilty of one of the worst crimes that has ever been done,
+
+[00:22:07] who did go and sell the stuff to the Soviets or you took it to the Soviets. How would he compare against Hitler and the top Trump's, please? That's an excellent question, James, when you want to get back to him. Sorry. And nobody suspected him. Not only that, they all really liked him because he had a, car and he used to give them a lift into town all the time because obviously they'd chat he'd be like yeah come on I'll give you a lift to the airport and he caught all of them not a single
+
+[00:22:31] one super nice guy would he would he say oh just throw your briefcase in the back of the car while we drive exactly and there was someone in the back of the car like under a blanket who would then read through the stuff can someone go pick up in ricoh fermi I'll do it yeah that was another dad rescue moment for old openheimer he um he once gone in a car crash because he tried to race a train and failed. Yeah. What do you mean by racing a train? Are they going alongside each other?
+
+[00:22:58] It feels like he was trying to outrun it and outgun it. As opposed to sometimes it would be like you're trying to cross the track. Yeah, yeah, yeah, yeah. I think he was just racing. I think he was just trying to get ahead of it. And it left his girlfriend unconscious. And in order to make up for this and turning into a big story, the father had to go over to the family of the young woman's house
+
+[00:23:17] and gave a painting and an original Cézanne drawing as well. Yeah. I do that, by the way, that racing after the train on the M1. You know, the last bit of the M1, the train goes alongside the road. I didn't know that. Okay. Yeah, yeah. But my car, like, it's electric car, so if I go up of 70 miles an hour, I lose all my batteries.
+
+[00:23:34] So I tend to lose the race quite quickly. That's so funny. I really think that this film should probably be about his dad. Yeah. Oh, the new one in the film. Yeah. Well, it's a comedy if it's about a dad, isn't it? It's like, oh, Robert.
+
+[00:23:48] It's like a Dennis the Menace movie then. Yeah, in this flat when he was growing up, there were three Van Gogh paintings and some Picasso's too, and clearly some Cizerns as well. I mean, there were very, very, very wealthy people when he was growing up. But his, Dan, you mentioned he was suspected of, you know, being a communist or being suspect.
+
+[00:24:07] He was approached by Soviet intelligence in 1943, and he said no, he said, no, I'm not going to show you the secrets. But it still wrecked his career anyway because he didn't tell anyone. so he lost his clearance, his security clearance in 1954. Feels like his cats have of the bag then. I mean
+
+[00:24:26] they've got the bomb. Anyway, but it was over ties to communism. It was in the whole McCarthy witch trial period. But the US Department of Energy did reverse their decision in 2022. Just 55 years after he died, they said you know what? You can have your security
+
+[00:24:41] clearance back. I mean, it was a gesture, obviously. Maybe he's still alive. You don't know what these atomic bombs are going to do to your... I would say there was a movement on to stop people smoking on film because it wasn't very nice to watch. And it was kind of poo-pooed down. And then I watched Casablanca because I'd never seen it. And everyone is chugging on fags 100% the time and it's disgusting. It was so disgusting. And Oppenheimer never ever took a breath that didn't have a cigarette on it. So I'm feeling quite sorry for the actor.
+
+[00:25:11] Killian Murphy who's playing down the movie. Because he never, he was a chain smoker. He never took a without a cigarette. That's what he says part of the prep of trying to become Oppenheimer was basically cigarettes and cocktails
+
+[00:25:23] with the yeah, cigarettes and martinis. Oh no, I'm going to have to go method. Gosh. It's really weird because when I think about the atomic bomb and I think most people
+
+[00:25:36] obviously we see it as one of the worst moments in history and there's obviously the arguments that people make that it may have saved more lives like Churchill and so on but to sort of actively
+
+[00:25:45] celebrate it feels quite an odd thing to me And if you do go to Los Alamos now, that is very much what they do. Like, it's their tourism trade, isn't it? So there's a supermarket there with an atomic bar. You can get atomic salsa that you can buy and purchase. There's atomic bumper stickers. There's a, you can buy clothing for babies where there's a mushroom cloud on it. That says the words, I've been dropping bombs since day one.
+
+[00:26:07] There's all these merch things. And it feels a bit out of taste, except I guess it's not to them, right? Well, I don't know. I mean, I grew up in a world where we went to a big room on Sunday, there was a guy with nails in his hands. That's true. I went to Hiroshima. I don't know if I've said this before,
+
+[00:26:22] but if you go to Hiroshima, you can go where the bomb was dropped, the exact spot. And there's a sign on the wall, and it says the first nuclear bomb was detonated something like 100 feet above this point. And then you sort of look upwards and you can imagine the exact spot
+
+[00:26:39] where the bomb would have gone off and they detonated and killed all those people. It's really amazing. Do you know about, Triniteite? Trinotite. I think it's Trinotite because it was the Trinity test. The Trinity Test.
+
+[00:26:52] Oh, okay. So it's not got three nitrogen atoms. That's why it's called. No, sorry, no. I just said it wrong. Yeah, Trinitite, I'm sure. And it was... Is it a type of stone?
+
+[00:27:02] It's a type of glass made... From the sand... Fused... The sand turned to glass when they tested the first bomb. Wow. And it's also called Atomsite. It's light green glass.
+
+[00:27:15] And it was just left there. Is it radioactive? I think it is not very anymore, but it's still a little radioactive. So most of it was bulldozed by the US Atomic Energy Commission and buried, you know, but some of it's still there because ants will bring it to the surface, these tiny beads of glass, because there's some of it's under the soil and they're digging their tunnels and so it just gets pushed up. It's crazy and it's illegal to take it away now. But for a while, it was just thought, oh, it's just, you know, sand. It's just sand turned to glass. And so there was a period in 1945 and 46
+
+[00:27:48] Where it was marketed in jewelry You could get Trinotite jewelry There was a designer who made some earrings And there was hairpins from it And there was an actress called Merle Oberon She wore some of it to a fundraiser Supposedly to this is quite dark
+
+[00:28:03] To discredit Japanese claims about radiation injury Which I say you know Well I mean an actresses wearing some of the sand fused glass So it can't be that dangerous But obviously That's terrible Yeah. Supposedly, I don't, just because you've mentioned this, I haven't gotten this written down,
+
+[00:28:20] but using one of these bombs is one of the methods that they've been thinking about it to try and get deeper and deeper and boring into the ground. It can get something like 18 miles really quickly just through an explosion. But because of the, I don't know, as I say, I sort of like for instance, the Soviets were going to use nuclear bombs to open up waterways in the north of Russia, for instance. So that has been thought of in the past used nuclear for. Norman tell one of those stupid billionaires they're just going to. And what would happen, though, is that the surrounding casing of the hole would have fused into this glass-like substance as well.
+
+[00:28:55] So it would be like a really amazing slide, like almost immediately. You've been spending too much time as soft playwrights as town. Not coming to your soft place, right? Will six birthday at most out or not? Okay, it is time for fact number three, and that is my fact. My fact this week is that the actor John Candy was born on Halloween. Brilliant. Okay, it's time for that man, born.
+
+[00:29:27] And his name's Candy. His name's Candy. What do you get on Halloween? There you go. Was he called John Skeleton Candy? Terrifying ghosts. I wish. Yeah, so John Candy, most of you should know him.
+
+[00:29:42] The Candy Man. Well, no. John Candyman. The man, John Candy. Yeah. He was in cool runnings. He was in cool runnings. He was in plane trains and automobiles.
+
+[00:29:52] He was in Uncle Buck. He's one of the greatest comedy actors that Canada has ever produced. And I found this, by the way, in a really great book I'm reading at the moment called Wild and Crazy Guys, which is all about that period of when S&L in America exploded. So he had Steve Martin and Dan Aykroyd and Bill Murray and Eddie Murphy and John Belushi and Chevy and Chevy Chase and so on. And John Candy, obviously, a big player in that area. And yeah, so it's just a little detail in that book. and I thought I'd love to talk about John Candy.
+
+[00:30:19] Great. Well, we're not going to. Yep, let's move on to other types of candy. Also born on Halloween, John Keats. Just... Yes. Who in that episode, I think I might have mentioned, was possibly a grave robber, John Keats,
+
+[00:30:32] because he was a medical student, and at that time, they needed bodies to do their experiments on, and possibly he could have been one of the body stealers. Ad Rock of the Beastie Boys. Oh, yay. Beastie Boys. Nice. Yeah.
+
+[00:30:49] Sydney Park, who's an actor from The Walking Dead, born on Halloween. Born on Halloween. And Kirk Noble Bloodsworth, who was the first American census to death to be exonerated post-conviction. So was supposed to be executed and then it turned out DNA testing meant that he hadn't done it. So he got off. And the Halloween link is that he's got blood in his name? Death. Oh, yeah, blood.
+
+[00:31:13] Come on, I was really stretching. Yeah, I felt the stretch. afternoon's work. But it's unusual because fewer people are born on Halloween than on other days around the year. Do people kind of hang on or push through or try to wait? It's just really miserable in February. It seemed the obvious. Same to January and I'm really miserable.
+
+[00:31:34] Do you want to have sex? I'm not really nice. I'm like, Jimmy doesn't know when Halloween is. Well, actually in February, that is the one of the most common days. Valentine's Day is a very common day. for births, which is where my daughter was born actually on Valentine's Day. But there's a 3.6% increase on births in Valentine's Day and a 5.3% decrease of spontaneous births on Halloween.
+
+[00:31:59] Is that like the Christmas thing where it's just that hospitals are a bit quieter? I think it's a bit of that perhaps. The other thing is that cesarians is a big difference. Right. You wouldn't not book a caesaridine for Halloween, would you? Well, you might not. If you were given three dates to choose, you might decide not to go for Halloween. They'd have to do emergency ones, obviously.
+
+[00:32:18] Also, don't forget that in some places, not necessarily here, but in some places that's quite a big drinking night. So you may not possibly want a bunch of student medics. Fang fangs. So, yeah, that's a thing. Wow. That's very cool. I love it. Yeah.
+
+[00:32:35] Can we talk about candy? Yeah, okay. No, Dan, you've got a lot of stuff on junk. No, I just want to quickly just say, because he died very young. He was 43 when he died of a heart attack, and he was, you know, he was in home. Malone. He was in, and there's so many seminal movies of the 90s that he was in. He was known as Sweet Tooth when he was a kid, so he did love Candy as well as he was growing up.
+
+[00:32:55] All kids love Candy. All kids love candy, but he was called John Candy and he was called Sweet Tooth. Are they all called Candy in Sweet Toad? No. He wanted to be a sports star. That was his big thing. And so he had an injury which meant that he couldn't do that. He played American football, right? Yeah, he played American football. So he had the physique, which was trained to be someone who was going to play that game. all the cast members of Saturday Night Live and all the other things he did always used to say that if you saw John Candy and you approached him people like Dan Aykroyd say this he would lift you up with one hand vertically and spin you around like a pizza like was being prepared yeah he used to every one said that if you saw John Candy he would lift you up with one hand hold you above his head
+
+[00:33:35] and spin you around American footballers don't do that no but the point is is that he he had a physique whereby lots of other people say that one of their favorite things things to do was, was to act like an NFL ball. And if John Candy came into the room, 300 yards. What is the... No, they would run at him, jump at him, tuck, and he would catch them as if they were an NFL ball. Come on. These are growing adults, you know, acroids six foot three. He was an offensive linesman in American football I read. So that means that he's basically a blocker. You give the ball to your quarterback who's trying to do something and he's trying to stop everyone from coming towards him. So he must have been big. He was. He was a, yeah, he was
+
+[00:34:13] I mean, he was six foot three himself. He, um, he was a big guy and, but he was also just, he was physically ready to catch humans. I just don't think any of that stuff happened. He did. Every and he did. Multiple people said it. Like, it's not, it's not like it's a, yeah, like a fan saying it. I did actually, to be fair, I was looking a little bit of drunkeny.
+
+[00:34:32] I did read that if, like, if you ran at him, he would put you on a big wooden pallet and he'd slide you into an oven. Horrible. Just like, I think they're exaggeration. stories. These are the stories. These are the stories they say. Maybe it was gingerbread now. Should we talk about Camby? Yeah, yeah, John Candy.
+
+[00:34:53] Oh, my God. Well, I'll just say one really sweet thing is that when he died, again, he was very young. He had a heart attack while he was making a movie in New Mexico. Did he die from the atomic bomb? Oh, was he in that movie that Andy was talking about where people had a heart attack, can't they? Oh, yeah, yeah. Wow. Lots to chew on. But he had a funeral at Sunset Boulevard and then they went down to the cemetery and they took the 405 three-way and it was completely clear.
+
+[00:35:22] They had no idea why it was completely clear. And what it turned out was is that the highway patrol had stopped all road access to anything but this. And it was their choice to do that. And it was then tipping their hat to say, we loved you and we miss you. And it's because in 10 of his movies and, you know, he didn't live that long. So it's a short time he made these movies. He played a law enforcement officer in 10 of these movies. so they felt like there was a friend that they'd lost, you know, one of them.
+
+[00:35:47] Yeah, anyway, RIPA John Candy. I know I'm a bit late in saying it, but, yeah, condolences to the family. All right, do you get candy now. Andy, give us some candy. I was just thinking, Jenny, you're from a great confectionery nation. I am, yes. We have some tunics on the table. We have some tunics in front.
+
+[00:36:06] It's very exciting. We'd be making it not diving in, I feel like. Yeah, it's one age. I'm opening one now. Yeah, I might do as well, yeah. Okay, when everyone's finished, okay, so get this. This is a sort of scientific thing about sugar. People who are from Northern Europe are some of the most sugar sensitive people in the world.
+
+[00:36:24] And there might be a proper, an evolutionary reason for this. Do you mean as in it's bad for us? No, as in, can detect it. Can detect it more easily. So this is really interesting. There are particular variations in a sugar sensing gene, and people from northern latitudes have that, more than people who live in tropical areas.
+
+[00:36:45] And the theory is, one theory is, it's not certain, obviously, but in higher latitudes, really sweet fruit and veg are a bit less common. And they're necessary to survive. It's not like in tropical regions where you have really sugary, sweet things, and it's easy to find them and survive.
+
+[00:37:00] So maybe if you move north, you will benefit from having that sensitivity. Like, if you ate... Like, carrots and parsnips are quite sweet. But if you can't detect that, then you might not realize and you might not grow those, foods or you might not seek them out and you'll be less likely to survive.
+
+[00:37:15] So Jenny, you're from further north than the rest of us around this table. Do you feel that that's true? Do you know, that does? I'm very wary of things that feel true. But that does actually kind of feel true. And whilst it's kind of touching in a way, it's also horrendous that the number one operation performed in children in Scotland is tooth extraction. Oh, wow.
+
+[00:37:35] I read that, you know, like, how dogs are good at detecting things? We might come onto that later. Oh, yeah. But everyone thinks that, you know, like dogs have got amazing smell compared to humans, which they do, but it's for certain chemicals. And for certain chemicals, humans are better. And I think, like, for instance, if you were to put a bar of chocolate in the middle of a field and train the human to look for it and train the dog to look for it, the human might come out on top. Wow. Because we're really good at looking for sugar and looking for fats and stuff like that.
+
+[00:38:05] That's so cool. I don't know if that's true. We might come on to that later. Do you know, I was looking for what's the most popular. candy. I hate that word. Do you say sweets? My husband says lollies because he's from New Zealand and my children say bonbo
+
+[00:38:20] because they're from France. Sorry, can I just stop and I think the way that you're eating this tonnex tea cake, you do it upside down too. That's why I have it. This is basically what my only fan is. So Jenny has taken, if you know what a tea cake is, it's marshmallow
+
+[00:38:38] with a bit of biscuit on the bottom of cake covered in chocolate. Jenny has sort of separated the cake and the marshmallow and it's starting to... I'm now terribly self-conscious. You're like turning it into a naked burger where you just take the buns off and leave them on the side. Well, you know, just shoving it all of my go up
+
+[00:38:56] doesn't work very well. No, Jenny, I do the same thing. There we go. Do you? Same method, yeah, yeah. You've just bitten into it. No, I haven't. I've done it carefully.
+
+[00:39:04] I know what I'm doing. I debase it. And by the way, Andy's family are from Scotland as well. Yeah. Exactly. The old skills, they kick in. Genetic. Yeah.
+
+[00:39:13] You were speaking about teeth stuff, Shelley. This is an interesting thing. Candy floss was popularised by a dentist. Interesting. Actually, do you know when you were talking about John Candy, you know nominate determinism how tedious it is because it makes us all look like really boring humans. Literally made us our fortune on this podcast.
+
+[00:39:33] We get a lot of correspondence about it, so please be careful. The inbox will just be recovering from the Doctor Who on the floor. I was only going to say, and I think, I hope this is not too controversial because it is true. Dentists, first names are vastly overrepresented by, for women, Denise and for men, Dennis. That's so good.
+
+[00:39:52] Oh, it's so nice. It's just such a kind of, you're a big meat sack. It takes the easiest route out of it than you can possibly think of humans. It was called Fairy Floss at the time. Yeah. I just have to say, it was William J. Morrison teamed up with a Nashville confectioner in 1897. And despite being president of the Tennessee State Dental Association, no small thing
+
+[00:40:14] was he trying to drill up more business drill up very good gyms sometimes you're gonna you gotta be the one to acknowledge how good it was drill up in that sense no do you
+
+[00:40:26] god I don't know what came up and be then you didn't even give us time not to laugh drill up did do you know what candy floss is in Greek
+
+[00:40:39] oh no I don't actually Well, it translates as old woman's hair. Oh, because it's wispy. Yes. And in Afrikaans, I love this. It's ghost breath. Lovely. Do you know what the Mexican term for eye candy is, if you say,
+
+[00:40:56] and there are a bit of buy candy? No. I taco. Stop it. It is. It's I taco. That sounds like a new apple product, isn't it? The revolutionary I taco, after just six hours of charging, you can enjoy the taco.
+
+[00:41:12] for 10 minutes. I was reading about my favorite confectionery, which is popping candy, which I genuinely think is completely underused in the world. And I think you should really pretty much put it on everything. And it was invented by a guy who was trying to make an instant soft drink. This is amazing. So he's trying to make something like, let's say, Coca-Cola. And what his idea was, he wanted some, like cordial, you would have something and you
+
+[00:41:40] would pour the water on it. and then when the water comes in, it turns automatically into a fizzy drink. And so he got some sugar, and he heated it up really, really high, put it under a load of pressure, added a load of gas into it, and then cooled it down. And in theory, what a great idea. As soon as you put the water in, the gas will get released and it'll be really fizzy. It didn't work. That's so cool, though.
+
+[00:42:02] But he started eating it, and it gave him these sort of explosions in his mouth. So his experiments went wrong, and he went, I'll just stick it in my memory. good science and then everyone all of the other people in his office saw this was happening they used to have competition to see how much they could put
+
+[00:42:23] in the mouth of this stuff they got bigger and bigger rocks of it and see how much they could do but immediately as soon as they went on sale pop rocks they called in America there was rumors that children's stomachs were exploding
+
+[00:42:37] I was going to see the first fatality was yeah it was all over the place and the Pop Rocks company had to take out full page advertisements in more than 40 publications around the country to say these will not make your child explode
+
+[00:42:51] honestly and the head of the company wrote 50,000 letters to school principals saying can you please stop banning these things? That's marketing genius. Yeah, that's amazing. Almost certainly won't kill your kids. Bring it! Does anybody want to hear my worst Japanese kicket flavor? Yeah.
+
+[00:43:11] Yeah. You know there's now over 300. Yeah. Okay. Wow. And I was looking down the list and there's some pretty bad ones in there. I think, European cheese. Oh. Wow. What is European cheese? There's no such thing as European cheese. I believe the Dutch would like a word with you. Well, no, sorry, there are European cheeses.
+
+[00:43:31] But there is not one archetypal European cheese. No. But I guess in Japan, you might lump a sort of yellow pungent cheese as a European cheese, right? Like dairy's not that big in Japan, right? Or China. Well, American cheese comes in single shrink-grap slice form. Yes, but it's different types of cheese. But that's, but what? But no, no, sorry.
+
+[00:43:53] No, no, I'm not having it. Here's a thing. This is something interesting, I think, and I might butcher this, but I'll try my best. So when cheese first came to Japan, because it's not, wasn't traditionally eaten over there, they called it something like dairy tofu. Okay. Something like that. And when tofu first came to France, they called it
+
+[00:44:14] Sawyer cheese. Brilliant. I think that's right. That's really good. That's distracted me from my anger about the other things. James always managed us to find a fact to calm you down. It's really dramatic. Get two on top of it.
+
+[00:44:27] Well done, James. Have you guys ever had an aniseed ball? Yeah. No. What's that? What's that tiny bit in the middle? Right. Is that what you're going to tell us?
+
+[00:44:38] No. That's an aniseed seed. I think it is, yeah, yeah. Can you describe it to me or I don't know? So it's a small, round, purple ball, very, very hard, and it's layer after layer of slightly flavoured, licoricey, boiled. Yeah, they're very unpopular with lots.
+
+[00:44:53] They're quite 1930s. Not gobstoppers. No, it's like a very small gobstopper, but it's quite strong tasting and an acerede, right? So, okay, this is very cool. They slightly helped to win the Second World War, aniseed balls. Brilliant.
+
+[00:45:06] In 1939, the war office, they wanted to build a limpid mine that you could stick to the hull of the ship, swim away from, and it detonates later, right? Yeah. And the war office, they contacted a science magazine editor called Stuart McCrae, and he contacted somebody he knew, an inventor called Cecil Clark, who was also a caravan maker. Detail. They started working together, right? They had the details of the mine, and they had the explosive, and they had the way to attach it to the ship. So they were doing really well. But what they needed was something to keep apart the hammer and the detonator, right?
+
+[00:45:38] So that when you're swimming up, when you're a frogman swimming up, you attach the mine and you prime it, it doesn't go off immediately. So you need something that slowly dissolves and separates the hammer and the detonator. And Clark's kids were eating aniseed balls and they tried them out and they found they dissolved in about half an hour in water. But you didn't have to suck the grenade. Yeah, it's a mouth activated. So Clark and McCray they bought every aniseed ball in Bedford, right? And they just, because of their experiments. But the problem was they also needed something to keep the aniseed ball dry
+
+[00:46:16] until the mine was in place, right? So they also went around buying all the condoms in Bedford. And they got it. Imagine getting to the supermarket checkout. You've just got a trolley full of condoms and anisee balls. Clark said we got a completely undeserved reputation as sexual athletes because we were and then anyway the
+
+[00:46:36] but they worked the anisee ball worked in this mine and the MAD commissioned them the war office commissioned them and they started buying anisee balls directly from the manufacturer and I love this Clark also commissioned some miniature condoms from a rubber factory to cover the firing mechanism imagine about the pharmacist to begin with going
+
+[00:46:54] do you have any smaller I like smaller I'm smaller than that I love how we've gone from like the biggest bomb the world has ever known Yeah. Yeah. Okay.
+
+[00:47:11] It is time for our final fact of the show, and that is Andy. My fact is that there are only three newt detecting dogs on the planet. Brilliant. Yeah. This is a woman called Nicola Jane Glover. Sorry, one of the three socks. She's a dog owner. All right.
+
+[00:47:28] And she's got a spaniel called Freya and another dog called Nuky. And this was in an article in The Guardian recently, but it's actually. actually be going on for a few years. So I think at least in 2018, Freya was detecting newts. And the reason you need to detect newts is that there's a species called the Great Crested Newt, which is protected. And if you're developing land, you have to show that there are no newts there. Because, you know, they don't want to endanger them. And it's really hard to find them because they spend a lot of their time underground and in the water, because they're amphibious. So Nicola Glover, she and her colleagues, they trained Freya, the Spaniel,
+
+[00:48:03] to detect live nukes. And Freya can do it really, really well now. 90% detection rate. Wow. And it's a good method of... Saving the newt. Saving the newt and saving a lot of time and fuss and, you know, newt detection work. And the other thing about the story,
+
+[00:48:18] although there's a third one, who's Rocky from Flintshire, who was also trained separately in 2020. There was a correction in the Guardian article about the dogs, which I think you saw, Jenny. This article was amended. An earlier version said that Great Crested Nutes reached an adult overall length of 17 meters. I did
+
+[00:48:36] That's the one I read and I thought Well why do you need to do? It should have been 17 centimeters Yeah I read an article from 2011 That said that they were starting to do this With the crested news But also desert tortoises Kiwis, cacopos, bats, cheetahs
+
+[00:48:57] I don't show why Brown tree snakes, seals and bedbugs So dogs were being taught to look for all these things for various different reasons. The cheetahs, I think, they're looking for the scat for the poo. Not actual. Not actual.
+
+[00:49:11] Oh, one went past about five minutes ago. Who's a dog person? Who's a cat person? I'm a dog. You're a cat person? It's not a bit embarrassing when someone goes, oh, my dog just discovered the ancient caves at Lesoth. And you're like, yeah, my cat ate a curtain. Yeah, my cat doesn't give a fuck.
+
+[00:49:30] Yeah, I mean, I would say I'm probably not really either. But I've had cats forced upon me, so. But don't, don't. I went following the story in terms of things dogs do. Unbelievable stuff all the time. Yeah. You're a dog, you're a dog personally. Yeah, but my dogs are crappy.
+
+[00:49:47] They're absolutely rubbish. You've got dogs. I've got two dogs, each idiots, who fight seals on a regular basis. Fight seals? There's a lot of seals where we live. Wow. Yeah. Well, it's not cool because the seals just go, see you later,
+
+[00:50:00] and swim off, and then you have to go and rescue your dog, who's a moron. But maybe you've not given them the chance to work out if they're like semen-sniffing dogs or if they are... That's on my list. That's on my list. Why would you get that the first on your list to say? That just was fast. Can we back up a little? Is that what you say to anyone who's walking a dog in the park?
+
+[00:50:23] Have you ever given it a chance to be a semen-sipping dog? I've got a pocket full of anter soup, balls. I've got another pocket full of mini condoms. You've got a semen-sniffing dog? Let's talk It's that with an A Are you spelling that with an A? No, I don't think that is, no
+
+[00:50:41] Jenny, you write romantic novels, don't you? Have you ever had a seaman sniffing? Pretty much just here for the inspiration. Hang on, type, type. She was a girl from the city with a semen sniffing, darling, heart of gold.
+
+[00:50:58] So, okay. Sorry, Dan. It's used for, you know, I mean, unfortunately it's used for terrible, terrible reasons, yeah, for crimes and so on. But that's an important thing. They need to sometimes have a dog detect whether or not someone might have recently let some semen out because it can find the traces on it.
+
+[00:51:16] And it can detect as little as 0.016 milliliters of seminal fluid. So they're very good at it. And so what I'm saying is your dog might not have been given the chance to show that it could smell semen or find. Find whale poo because they do that as well. They sit on boats and they can find whale. I see clever dogs like Spaniels. Spaniels are like real teacher pleasers.
+
+[00:51:41] Perms and they're... One yard ducks? Kind of just terrifying half cougar things that be found in a layby. But they're mutts? No, they're terriers. Oh, okay, okay. But they're theoretically ratters.
+
+[00:51:55] But they're kind of, they're just a bit rubbish. What does that fit in the awe? I'd need to see a photo. There's a game called Hound Pooch or Mutt. Almost any dog fits into those categories. Oh, they're hounds. They're hounds. Okay, yeah, yeah, yeah.
+
+[00:52:09] When Melvis sang, You Ain't Nothing About a Hound dog. Yeah. He was playing that game, wasn't he? Yeah, yeah, yeah. He'd already recorded a version called You Ain't Nothing But a Pooch dog. Rubbish. There was an interesting story about a man I'd never heard of. Really amazing.
+
+[00:52:24] He was a German diplomat. He was sort of sided on the side of the Nazis at the time. And he was an attache for the Nazis. called George Ferdinand Duckwitz. Duckwitz. Must have a rough time at school. Ferdinand Duckwitz is asking for a spoonerism.
+
+[00:52:41] He's an amazing character. He sits in the world of Oscar Schindler. He was someone who helped to save a lot of refugee Jews who were stuck in Denmark and supposedly 95% of their Jewish population was successfully taken out of the country to a safe place in Sweden because of this guy.
+
+[00:53:00] And he risked as long as well. life to do it. So he's an amazing character. And you called him a fuck-quit, James. Oh. Okay. Sorry, duckwits. Yeah, yeah. I'm not going to trivialize his memory. Not well done, James. Okay, so where's the dog coming in here? The dog comes in here because when they were taking them out on all the boats
+
+[00:53:26] and they were hiding them in the cargo, a lot of dogs had been trained up in order to sniff out any humans that were on board. So this was a problem that they had. So what they did was they came up with an idea that they could deceive the sniffer dogs by placing semen. You're giving me that look like it was heading there. They created what was a mixture of dried rabbit blood and cocaine and they gave it to the fishermen. And they gave it to the fisherman who would coat it in handkerchiefs. Right. And then they would put the, they would hold the handkerchiefs and the dogs would race towards the handkerchief. They would ignore any of the other smells that were on the bell. Wow. Yeah. And so as a result, they would have no other interest in what was going on here,
+
+[00:54:04] and that would become the main focus. Why the cocaine? I mean, rabbit blood, I guess dogs, like, dogs hunt rabbits and rabbit blood. Rabbit blood is to attract them, and the cocaine is to, they're just blast their sentence. Yeah. They're talking about themselves. I can tell me about some rabbits I caught. Come on rabbits. A lot of big rabbits. A lot of great rabbits are caught. It supposedly temporarily would knock out their smell. Wow. God, that's so. God, that's so. Clever. Yeah, yeah, yeah. That's amazing. Yeah, so he's a huge hero. He saved 7,200 Jewish refugees.
+
+[00:54:36] Wow. Can I say something about the Great Crested Newt? Oh, yeah, right? So they have a very colourful belly. No one really knows why they've got a colourful belly. If you're a newt and you're colourful, often it's because you want people to know you're toxic. And it turns out they are toxic. Their warts contain chemicals. And there was a natural. called Eleanor Ormrod who tested it by biting a live newt's tail. Just the tail and the tails will grow back and stuff and then she recorded all of her symptoms. So she was foaming at the mouth. She had shivering fits. And so she proved that they were toxic. It's a lot of scientists putting stuff in their minds.
+
+[00:55:24] So we found out that they are toxic, but the weird thing is they're newts. So they walk around a lot of lot with their belly pointing to the ground. Oh yeah. And so no predators can see their bellies anyway. And so no one knows still to this day why they have a colourful belly. That is so strange. Are you sure it wouldn't malls and stuff come up and eat them? The moles?
+
+[00:55:46] Yeah. They could. They swim? They swim. So maybe fish from beneath predators from me? But you're right. Normally you'd feel like birds would be descending on them. Eleanor Omerod, anyway, she was really famous.
+
+[00:55:59] She was not. agricultural entomologist because she was living in Victorian times so couldn't really be a professional scientist in those days if you're a woman but she found a kind of a role where she could use her skills and apply them to agriculture so you know like if people's crops are dying she could say well you should get rid of these newts or you should get rid of these moles or whatever stuff like that and she was so famous that Virginia Woolf wrote a story about her called Miss Ormorrhoad which is named after her just a pretty cool
+
+[00:56:29] person. That's very cool. Things women had to do to be scientists in those days. I know, I know. Just go and bite this poisonous. We know it's poisonous, but we don't know how poisonous. So, Eleanor, if you could... I'm going to mention one last thing before we wrap up. I don't know if it's useful, but just in case you're wondering, we've been talking a lot about dogs sniffing humans, and I discovered that there's a job whereby you as a human can sniff a dog. Are we looking for the dog or is that the idea? No. Is it a chocolate lamp?
+
+[00:57:02] This is for people who work in factories that are making dog food because one of the things that owners hate about dog food is the breath that it can leave on their dog. And they make a very concerted effort not to make food where chemicals are altering the smell of the mouth of a dog so that it's very pongy. So one of the jobs that if you work in one of these factories is to go up and sniff
+
+[00:57:27] dog's mouths who were experimenting with new tastes and new formulas and so on and then if a dog has ejaculated recently you can no not that I just love the how excited the dogs where to get their drops I'm a taster at dog fit factory yeah the other dogs like oh wow that's awesome that's cool what they they sniff you yeah god that's so that's not a lovely job I think can I ask another question this you aren't know the answer to this but you might it's not just important presumably that their breath doesn't smell you don't want their farts to smell bad oh I guess right
+
+[00:58:04] it's the same thing really good point you don't want that on the other side do you not have someone whose job is to smell all the dog farts I do not you must you must right they're probably it's probably you must I think he's right it's probably the unspoken Astra that's what they tell you once he got the gig that's by the way
+
+[00:58:20] there's a second hatch over there I'll put that one out Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can all be found on our Twitter accounts. I'm on at Shreiberland, James. At James Harkin. Andy. At Andrew Hunter M. And Jenny. At Jenny. At Jenny Corgan. Yep. Or you can go to our group account, which is at No Such Thing or our website. No Such Thing as a fish.com. All of our previous episodes are up there. And just a quick reminder, Jenny, you'll
+
+[00:59:02] latest book is out now. It is. It's called the Summer Skies. The Summer Skies. And of course, all of Jenny's other books are available to buy as well. And so do check them out and also check out her Doctor Who stuff as well. There's numerous Jenny Colgan books that are out there and audio adventures. Jenny M. Colgan is the, Jenny T. Colgan. Jenny T. is the pseudonym if you want to look for those. So yeah. Also, we are playing a live show for Fish on the 14th of September at King's Place, part of the London Podcast Festival, and we're going to be live streaming it. So you're able to buy live stream tickets for that by going to No Such Thing as a Fish.com slash Podfest.
+
+[00:59:41] Check out tickets there. And of course, check out Clubfish. It's our secret members club where we do all sort of bonus extras, compilations, drop us a line, which Andy does, which is a show where we go through all the correspondence that you've sent in. It's a really fun place. But that's it. We'll be back again next week with another episode. We'll see you then. Goodbye.

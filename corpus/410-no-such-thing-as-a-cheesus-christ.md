@@ -1,0 +1,255 @@
+# No Such Thing As A Fish - 410: No Such Thing As A Cheesus Christ
+
+- Episode date: January 21, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/410-no-such-thing-as-a-cheesus-christ
+- Slug: 410-no-such-thing-as-a-cheesus-christ
+
+## Transcript
+
+[00:00:00] Hello, and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Newcastle! My name is Dan Schreiber, I am sitting here with Anna Tyshinski, Andrew Hansen Murray and Jay Tarkin, and once again we have gathered around the microphones with our four favourite faps from the last seven days and in no particular order here we go! Starting with fact number one, and that is my fact, my fact this week is that Harry Houdini's dog was a professional escape artist! Did they call him Harry Houndini? Brilliant, very nice, they should have known, they called him Bobby, and Bobby was Harry Houdini's dog aka the only handcuff king dog in the world and Bobby headlined the 14th annual Society of American Magicians dinner, this is the annual thing that they had, Harry Houdini was the president at the time, and he taught Bobby to be an escape artist so he made him little tiny handcuffs that would go around his wrist Imagine if you were the second on the belt of that dog, you've been invited to the Society of American Magicians, this is your big chance, and you have to warm up for a fucking dog!
+
+[00:01:36] But he could do, I mean it wasn't just the handcuffs, he also had a little tiny straight jacket that was made for him that he could escape from It sounds like an incredible act Apparently, I mean according to Houdini he said he was a dog gone hit from the evening, yeah he wasn't known for his jokes, come on don't give him shit for that He did that and he didn't go for Houdini? Oh my goodness So he loved pets generally, he had a lot of pets, he had a talking parrot called Laura, he had a pet turtle called Petey, he had an American eagle called Abraham Lincoln And my favorite one is that he had a lot of parrots, he had one called Pat Houdini and he taught this parrot how to pick locks And Pat, after Houdini died, according to the story, Bess, his wife, was living in the house with Pat, Pat picked his own lock, got out of the cage and flew away
+
+[00:02:28] Really, it disappeared, wasn't it because of Bess that Bobby came to them in the first place, she bought Bobby from a butcher, it was a butcher's pet and the butcher wouldn't let her give it a bone And so I guess she thought, I really want to give this dog a bone, desperately, I'm going to buy it, so I can, is that true? That's the story Slightly confusing story, but yeah Dogs, magical dogs, just while we're on them, there are so many magical dogs Have you heard of Oscar the Hypno Dog? No Oscar the Hypno Dog was a recent performing dog, he played from 1989 to 2001, then he had to retire, you know, for health reasons
+
+[00:03:07] Apparently his owner said he could no longer hold the penetrating stare necessary for stage hypnosis I think it was a chocolate Labrador and he had these incredibly melting brown eyes, beautiful And the story was that anyone who looked at Oscar the Hypno Dog's eyes will fall into a deep trance And he went missing at the Edinburgh Fringe in 1995 and they put up posters all over the place saying, Oscar is missing, be very careful Do not look into his eyes That was the Edinburgh Fringe that they put that up to? Oscar performed all over and Can you imagine a worse time in the world to put up missing posters than at the Edinburgh Fringe?
+
+[00:03:47] Can you take one of these? No, thank you, I'm alright, take one of these But he was just allowed to wander around the audience, Oscar, and there is this, his owner was the hypnotist, obviously His owner was called Hugh Lennon and was a brilliant hypnotist But there is an account that Oscar was just free to walk around the aisles of the theatre in the interval and things like that And he saw a man eating some crisps and being a dog, obviously he wanted some crisps So he just sat and stared at the man, hoping for some crisps And then the man crumpled over in his chair in a deep catatonic hypnotic trance Wow, cool
+
+[00:04:14] Crumpled like his very crisp packet Yeah, sort of dogs doing cool tricks goes back such a long way It seems like as soon as we decided, a man decided to befriend the dog, we started making them do weird stuff It was really like the 14th century, the Middle East in the 14th century In the marketplace there'd be merchants who'd trained their dogs to put on proper plays and stuff Dramatic performances and they'd dress them up and they'd act out parts I read a thing that in the 6th century, so you know, 1500 years ago there was a Byzantine chronicler Who said there was a showman who, his show, was bringing his dog to the marketplace
+
+[00:04:50] And the dog would collect rings from audience members, I guess you handed over your wedding ring or whatever And cross your fingers and then he'd bury them And then he'd have the dog dig up all the rings and return them to the correct person Oh, wow Impressive In 1670, Philip the Duke of Olion in Paris, he possessed a dog who knew how to sort books alphabetically by author Cool Apparently
+
+[00:05:17] So what do you think there is to the level of truth that these dogs were, I don't think psychically But we're learning to do with things Well here's one, here's a famous one that we do know how they did it So there was a famous dog genius in the 1820s called Monito And they basically, they could spell, they could play cards, they could play dominoes, they could do maths Like with the maths it would be what's two plus three, is it one, is it two, is it three, is it four, is it five And when you said five he would go Like that
+
+[00:05:47] And the way that we know that he was doing it is his instructor would have in his pocket a tiny little toothpick And he would just pring, pling the little toothpick, go bling bling bling No one in the audience could hear it but the dog could hear it And as soon as he heard it he knew he would have to bark That's very clever Yeah There is another thing where people think that dogs are doing this and they're actually not But the dogs are picking up on signals that the humans don't realise they're giving off
+
+[00:06:12] So there was a thing, the Hundsplexkschule Azra Which is also known as the Nazi talking dog programme Which John Bonderson, a friend of the show, has written about before He wrote a book called Amazing Dogs and they were convinced that dogs could be taught to count or talk quite well And what were the Nazis going to do with this information? I don't know, it's such a good question Well because like the British supposedly you know lovers of dogs you know famously Maybe they were going to turn them against their owners
+
+[00:06:42] That's absolutely true Well there were lots of headlines, things like Heel Hitler or The Third Reich J9, yes Anyway, John Bonderson clarified that the Nazis did not have a legion of talking machine gun toting hounds So the programme was a bastard There is famously, I can't remember all of this but there's famously a Nazi monument in London I think there's one Right
+
+[00:07:09] The Nazi dog and the dog died in London, it was like the German ambassador's dog And they give a proper Nazi funeral and they put a little kind of thing up And that's the only Nazi memorial in the whole of London Wow, really? It's still there, yeah That's a bit weird Cool, I suppose the dog's gone Are you proposing, are you proposing we tear it down?
+
+[00:07:29] Maybe you're proposing we get a few more I'm just surprised in the big moment of all the statues going down I went, can we just lob this one? Fair enough The dog didn't know what it was doing in its defence Uncessel Rhodes did, is all I'm saying Fair enough Do you know the movie Air Bud?
+
+[00:07:50] It's a movie about a dog that becomes a basketball sensation Because it can play basketball It's a kids film True story It's based on, yeah Based on kind of, because it turned out that The dog that was hired for the movie It wasn't CGI
+
+[00:08:09] Bud could play basketball This was a stray golden retriever that in 1989 was found roaming the mountains of Yosemite And the person who found him, and I called him Buddy He trained him in a lot of different sports So he trained him how to catch a baseball pitch I don't know how that's possible He then set up a hockey net and he showed him how to block shots coming into the net But then he taught him how to shoot basketball
+
+[00:08:32] And he went on the David Letterman show And he displayed it and how he did it And he became quite a national star I would like to have seen him do pole vault Yeah He might have done But there was no CGI use He was playing real basketball
+
+[00:08:46] He was shooting moves And was it, you know, was LeBron James frightened of his career? Or how could we tell you if LeBron James were like Guys, you're gonna have to get on board You knew what you were coming to You bought the tickets I've just got one more thing on, sort of, the risk to performing Docs now Yes
+
+[00:09:10] Because now people are, you know, motion capture is really good So there is a film called The Call of the Wild Based on a book by Jack London Out last year or the year before Stars Harrison Ford And it's about this man and his dog best friend And they didn't use a dog for it They used a guy called Terry
+
+[00:09:25] Who just wore a motion capture suit Terry Notary is his name And he just would go around on all fours for the whole film Pretending to be a dog And then they CGI'd the whole thing Oh, wow And there's a scene where they're lying together, you know Like, the dog is in Harrison Ford's lap
+
+[00:09:41] And it's very moving And it's just a guy called Terry And the production phone goes Unbelievable And Terry, he's a serious motion capture dude Like, he's an anti-circus-style guy So he said it was about trying to be present for Ford And let him forget, really forget that I was a human
+
+[00:10:00] And be a dog and dissolve into it Harrison Ford said Terry Notary does a great tennis ball Wow Is there a scene in the movie, and I really hope there is Where the dog takes a poo on the grass And then Harrison Ford has to pick up Terry's poo You can see in his face that he's not happy in that scene
+
+[00:10:20] Putting the bag around Oh, fuck, Terry Listen, we need to move on to our next fact It is time for fact number two And that is Anna My fact this week is that in the First World War MI5 employed 90 Girl Guides They tried Boy Scouts at first
+
+[00:10:40] But found they couldn't be trusted So what did they employ them to do? Well, lots of stuff So this was Girl Guides age 14 to 16 And it was very shortly after the Girl Guides had been founded And they were paid tensionings a week They were at nine hour days And they were asked to carry messages between floors
+
+[00:11:02] To carry messages across town And they had to swear an oath That they would never open the messages And read what was inside them And yeah, they tried it with boys first with the Boy Scouts And they found they were too boisterous and too mischievous Not what you want in a spy It's really cool
+
+[00:11:18] The newly formed Girl Guides going around MI5 HQ They were a company, you know, because you get companies of Girl Guides They were the special MI5 guide company And they got quite seriously involved With the war, you know Like back of house capacity But they worked in the
+
+[00:11:34] To begin with But then it was quite sad at the end, wasn't it? The front lines Over the top now Do I get a bunch for this? Just throwing brownies at the enemy Yeah, okay, yeah Boy taken
+
+[00:11:50] But they worked in the Postal Censorship Office And that was also where they Dislodged Boy Scouts from the role that The Boy Scouts had, the poor Boy Scouts I mean, they clearly had really muffed it But they also, this is the most amazing thing The Girl Guides, they acted as messengers For the signing of the Treaty of Versailles
+
+[00:12:06] 16 of them were invited to witness The signing of the Treaty of Versailles The leaders of Europe and 16 Girl Guides Were there But yeah, they were They're very cool, but I think they were A little bit giddy too shoozy, shockingly enough Girl Guides as they were
+
+[00:12:22] There was an MI5 employee who said They used to sort of be always lurking in corners But being useful, but you know Just always there, you can imagine What's this 14 year old girl doing in my office? Well, they had to always wear their outfits, didn't they? Like they had to wear their hats And they had to wear their
+
+[00:12:38] Their skirt was not allowed To be more than 8 inches off the ground And so they dressed in that You wouldn't just see a random 14 year old girl You would know the way But apparently in their breaks This MI5 employee said The Girl Guide retires to her attractive little sitting room
+
+[00:12:54] Where she converses on high topics with her friends Aww So sweet They were quite controversial when they first came about Girl Guides, Girl Scouts So initially it was just Thought to be a boys thing And Bade and Powell had set up the Boy Scouts
+
+[00:13:10] And there were a few moments Where particularly in Crystal Palace In London, where a bunch of Boy Scouts Got together, thousands In order to just do a big display And say we're here And completely unsanctioned These girls came along
+
+[00:13:26] Dressed up in the Boy Scouts costume at the time And declared themselves to be Girl Scouts And Bade and Powell suddenly was like Hang on a second, this might be a thing He just assumed, because any time To do it, the reviews, they got reviews They were bad, they were saying
+
+[00:13:42] Complaints saying that they were mannish girls And girls not being peaceful if they were in a uniform They were worried that it was going to start This whole new different thing So they were really against it And the girls said no, screw you It was very plucky, it was led by a team Of I think six or seven girls
+
+[00:13:58] And this was a huge march, it was the first Boy Scouts march In 1909, the Boy Scouts had just been founded 11,000 boys And apparently 2,000 girls Also turned up and led by these Six or seven girls who just decided We want to get involved with this And pretty much went up to Bade and Powell
+
+[00:14:14] He went up to them and said we want it And to his credit, Bade and Powell was always Really pro, he wrote a lot of stuff Even before this, saying how girls can be Just as brave as boys, over and again They've proved it, it's just not part of their education And within about a week 6,000 Girl Guides had registered
+
+[00:14:30] Well he thought at first he might just let The girls into the Boy Scouts But then in the end he decided They would do the Girl Guides instead One of the reasons that they did that Is because he was always worried About something that he called Girlitis And that was whenever
+
+[00:14:46] His Boy Scouts got to a certain age They started not being very interested In setting fires Oh dear, wow It's a legitimate concern Let's face it Gosh, yeah So
+
+[00:15:02] I need to breathe Okay Can I Why are you drooling, stop drooling Put that woggle away Can I tell you one more thing about Girl Guides Yes please First one was specifically this one
+
+[00:15:22] They were very helpful in both World Wars The Girl Guides And one of the things they did Along with the Boys Brigade The Girl Guides did a lot of Collecting of sphagnum moss During the First World War And it's very interesting
+
+[00:15:38] It was used for wound dressing As I think we may have mentioned once or twice on this podcast before And they were the ones out there In the peak box picking out the moss Collecting it so it could be used to dress wounds And there was even a poem about it What good news We don't have time for that
+
+[00:15:54] We do and we will Mrs. A. M. Smith of the Edinburgh Ward The supply organisation wrote this Very brief poem, alright The doctors and the nurses look north with eager eyes And call on us to send them the dressing that they prize No other is its equal In modest bulk it goes
+
+[00:16:10] Until it meets the gaping wound Where the red lifeblood flows Then spreading, swelling in its might It checks the fatal loss And kills the germ and heals the hurt The kindly sphagnum moss Not upon Not upon
+
+[00:16:28] Oh dear Pretty good There was a concert So it was controversial when they were formed And lots of pushback And one of the reasons that they were separated Is because it was thought that Boy Scouts wouldn't like the idea That girls were joining in their games
+
+[00:16:44] And it made them kind of effeminate And someone wrote to Baden Powell Very shortly after they were formed Saying they thought it was ridiculous This idea that you could have girls scouts Aren't even allowed to run, hurry Swim, ride a bike Or raise their arms above their head
+
+[00:17:02] It was a very strict parenting That that man was enforcing You weren't allowed to hurry You weren't allowed to hurry as a girl apparently In 1909 You couldn't put your hand up in class That's why they didn't do as well in education Couldn't do the YMCA
+
+[00:17:18] Couldn't do the MOBOT Although that wouldn't become a problem for another 100 years I don't think the YMCA dance is much of an issue In 1909 either Well another dance Actually got them into trouble When you read in the news it always seems that Girl Scouts are somehow involved
+
+[00:17:34] In some weird controversy So 1996 The American Society of Composers Authors and Publishers Threatened to sue them over royalties For songs that members would sing During campfires So they said to them you're not allowed to sing our songs
+
+[00:17:50] Unless you're paying a royalty And the idea was Groups would have to pay $250 For public performances For the rights to songs that they wanted to sing They must have been singing pop songs then Yeah it was pop songs and so on Was it the Rolling Stones who were complaining
+
+[00:18:06] Is it Paul McCartney It was the publishing companies And so there were cautions There were copyright infringement penalties that they said They said we'll charge you 100,000 Or you will get a year in prison And it was a dance that stopped All of this nonsense happening
+
+[00:18:22] Because footage was shown of them on TV Dancing the Macarena With no music And there was such a backlash from the public Going don't make Girl Scouts dance the Macarena Without the fucking song At least with the Macarena You never have to put your hands above your head
+
+[00:18:38] Exactly One thing that neither boy Scouts nor Girl Guides Were allowed to do in official literature They were given official books What? They're not allowed to do it in literature Sorry Full stop, in or out of literature
+
+[00:18:54] The Girl Guides guidebook said Don't masturbate It can lead to blindness, paralysis and loss of memory Sorry It said in the guidebook then Really? I don't think it said the word masturbate But I think it was clear
+
+[00:19:10] Because a lot of it was taken from the Boy Scouts guidebook It was pretty much copied directly over Wow I don't recall ever seeing a no masturbation badge On a staff Have you not? You're not trying hard enough to earn it then There was a vice actually
+
+[00:19:26] The Girl Guides guidebook is funny Reading it now So here's a great bit of advice from it It is said that you can tell a man's character From the way he wears his hat If it is slightly on one side The wearer is good-natured If it is worn very much on one side
+
+[00:19:42] If on the back of the head He is bad at paying his debts If worn straight on top He is probably honest But very dull We need to move on to our next fact It is time for fact number three And that is
+
+[00:20:00] Andy My fact is that there is a fictional Victorian detective Who was created to be the opposite Of Sherlock Holmes In the only recent adaptation of the stories The question was played by Benedict Cumberbatch This is the Fictional detective Thorpe Hazel
+
+[00:20:18] And these are the Thorpe Hazel mysteries By an author called Victor Lorenzo Whitechurch And basically he is a railway based detective He only solves crimes That involve the railways And he only solves them through the medium of railway timetables He's incredible That's awesome
+
+[00:20:34] He's a vegetarian Railway detective He is And I'm very proud to say I have a copy here Of Stories of the Railway By Victor Lorenzo Whitechurch The Thorpe Hazel mysteries are in here
+
+[00:20:50] And I just want to read you a brief poem about Moss From That book He's a book collector and a railway enthusiast And it's always his knowledge of train timetables that saves the day So if you want to get away with something Just don't commit the crime on the railway Just drag the victim
+
+[00:21:06] 100 yards from the train track Well that's the problem That's where Sherlock Holmes gets you right If you do something on the railway This guy gets you everywhere else Is Sherlock Holmes Is it like having your own spots of the city With like drug dealers
+
+[00:21:22] Like this guy's fucked up when Poirot has the Orient Express crime It's really charming And the author was also a railway nut Obviously Victor Whitechurch And he was a vicar And so there were loads of vicar Who were very productive around this time
+
+[00:21:38] Maybe because they had cut down the requirement To deliver a two hour sermon on Sundays Suddenly all these vicar had time on their hands Well the other thing about this guy Victor Whitechurch Is he was a vicar in charge of the mission church At Williston Junction railway station So he was well into his trains I really like the way that he wrote his stories
+
+[00:21:54] So like most people would kind of like Think of the end of the story and then work backwards He would get his characters Come up with a murder Describe the whole murder And then go right from here I'm going to work out what happens And he would solve the made up murder in his head
+
+[00:22:10] As he went along That's really cool isn't it You're sort of reading the murder mystery as well as writing it Exactly, great Were they big at the time as in were they To the level of Conan Doyle's They were not as big as they are We would have heard more about Fort Pavel
+
+[00:22:26] The railway detective The book I've got is called Stories of the Railway It was originally called Thrilling Stories of the Railway And at some point Some editor has decided We can't sell these as Thrilling Stories of the Railway They just don't back it up It's false advertising
+
+[00:22:42] He was really like The veggie thing was interesting That he made him vegetarian Not only vegetarian but very fatty So we've talked before a bit about how the turn of the 20th century Vegetarianism started to be a bit of a thing In one of the stories he asked for directions to a vegetarian restaurant Which is like the proper early days
+
+[00:22:58] Of vegetarian restaurants And then he goes there and he lunches on rice pudding and prunes So they weren't Quite up to the standards that we have today But he was Really into this Weird physical fads that came with it So in one book
+
+[00:23:14] White Church writes He carried vegetarianism to an extreme And was continually practicing various exercises Of the strangest description Much to the bewilderment of those around And so I was reading there's one scene where a friend comes upon him To sort of crime on the railway to him And as the friend starts talking
+
+[00:23:30] Thought begins some exercises And as he's been spoken to Hazel thought smiled and went on Whirling his arms around his head I've just read that story It's the story of Peter Crave's cigars And it's not very thrilling But it is a story
+
+[00:23:46] Of the railway And then what happens Anna? Well all I know is that he mentions a timetable And suddenly Hazel thought goes What interests me said Hazel Stopping his whirly gigs and beginning to eat his Plasmon It's nicely written for our language
+
+[00:24:02] Plasmon was a kind of biscuit What it is is there's a cigar smuggling operation And we don't have time for this I really like Fictional detectives all this time Because lots of people were following Arthur Cove and Darwin Trying to come up with a detective with a gimmick So there was a fictional detective
+
+[00:24:18] Called Max Carrados I don't know if you guys came across But despite that he is so talented That he can read fine print By touch alone He can also fire a pistol At targets accurately Because his senses are so good
+
+[00:24:34] In one of the books he can smell When someone is wearing a false moustache That's so cool It's weird because the person wearing a false moustache Doesn't need to be doing it in the first place If the detective is blind That's absolutely true There were lots of rip-offs of Sherlock Holmes
+
+[00:24:52] At the very start In the first ten years or so There was a detective called Sherwood Hoax Another Shylock Obes Sherlock Shomes Sherlock Gnomes Sherlock Combs And Shamrock Jones
+
+[00:25:08] Wow That's so good Have you guys heard of the Detection Club? Yeah, so cool It's a British club for detective writers So Victor Whitechurch of Thor Paysle fame Was a member himself Lots of people remember us
+
+[00:25:24] Agatha Christie was the president for many years And it has these sacred rituals that it enacts It's really exciting So a procession will enter If you're joining the club for the first time A procession will enter led by a figure wearing a scarlet cloak And carrying Eric the Skull Okay
+
+[00:25:40] And you have to swear an oath to join And then once you join the president will say to you If you fail to remember your promises In one of our unwritten laws May other writers anticipate your plots May total strangers sue you for libel May your pages swarm With misprints
+
+[00:25:56] And may your sales continually diminish And the rules are They're strict The rules written down in the 20s Early 30s were Your detective shall detect crimes using their wits And not placing reliance on divine revelation Feminine intuition
+
+[00:26:12] A mumbo jumbo, jiggery pokery And you can't conceal clues from the reader But the skull that you put your hand on It's not Eric They sexted it recently And it's Erica Wow Yeah
+
+[00:26:28] There's a guy called Ronald Knox Who I love He's another clerical detective author And he wrote these 10 commandments Of detective fiction Which are quite fun So one of them is A secret room or passage is allowed
+
+[00:26:44] Per detective story And also twin brothers and doubles Generally must not appear Unless we have been duly prepared for them Wow Anyway he did this really cool thing Ronald Knox as well as being the detective author 1926 he interrupted all broadcasts
+
+[00:27:00] On the one radio channel on the BBC Basically to announce that there was a riot in London It was a spoof People didn't realise it was a spoof And it was bloody terrifying He said things like The crowd has now passed along Whitehall And at the suggestion of Mr Popplebury
+
+[00:27:16] Secretary of the National Movement For abolishing theatre cues Is preparing to demolish the houses of parliament With trench mortars The clock tower has just fallen to the ground Along with Big Ben The noise you just heard was the Savoy being blown up So the awful goose
+
+[00:27:32] Has been intercepted by the remnants of the crowd And has been roasted alive in Trafalgar Square As I speak So the BBC just received Thousands of letters saying What's going on? Oh my god That's incredible We're going to have to move on
+
+[00:27:48] Very soon I just want to quickly mention There's a thing that we wrote about in the book of the year Which was, do you remember that story That Benedict Cumberbatch He was in an Uber with his wife And suddenly he saw a robbery that was happening Outside on the road
+
+[00:28:04] It was a delivery driver There were some four muggers Who were trying to get to him So he hopped out and he went And sort of tried to stop it And it worked and they got away But so he successfully Scared away these muggers
+
+[00:28:20] And helped this delivery person But the thing is that this robbery Was happening on Marlborough and High Street Which is just down the road From Baker Street in London Can you imagine the robbers As they turned around Right next to where he should be
+
+[00:28:36] Looking around at them You feel honoured You'd say, thank you I was just trying to mug a delivery driver I'm not sure this is a homes level crime I was just thinking that This guy was all about His railway time tables
+
+[00:28:52] Like an Uber driver Who would solve crimes Would be pretty cool, wouldn't it? But is it based on the star rating that you have? Yeah It could be Three stars, he drove a bit too fast But he did solve the murder of my wife
+
+[00:29:12] One tiny thing PD James, brilliant Brilliant, brilliant, brilliant crime author Died only a few years ago She was once doing a signing And an Australian woman Came to the front of the queue, said her name was Emma Chizit PD James signed the book to Emma Chizit
+
+[00:29:28] Only to realise this Australian woman Was asking how much the book cost Emma Chizit Emma Chizit Oh no OK, it is time for our final Fact of the show And that is James
+
+[00:29:46] OK, my fact this week is that Himalayan chewing gum Is made out of cheese Mmm And there it is Bugs like sausages a little bit Or ladies fingers maybe What is it chewing gum? It is chewing gum in the sense that it is called Himalayan chewing gum
+
+[00:30:02] And that you chew it a lot It is the world's hardest cheese That we know of It is called chirpy And because it is so, so hard You put it in your mouth And if you are like a yak farmer or something You are just having your daily yak farm
+
+[00:30:18] Then you put it in your mouth And you just chew it and chew it and chew it And the saliva slowly makes it softer And it is hours and hours that you chew this stuff And eventually you can eat it And so that is why they call it chewing gum It sounds nice But it does sound unbelievably tough
+
+[00:30:34] There was a BBC journalist who tried it He chewed his piece for seven minutes Seven minutes, didn't leave a scratch on it Yeah, it is really hard I have had it but I have not had the hard version I have had the soft version Do they ease you in on that? Basically this stuff
+
+[00:30:50] They have kind of dried it out for ages and ages I think they put it in like an animal skin Or something and dry it out for ages But if you have it early on Before they do all that It is more like cottage cheese Like Georgian cheese And it is the national dish of Bhutan
+
+[00:31:06] It is called emadatzi And that is the type that I had And it is basically really, really, really, really hot chilies Inside a bowl of this cheese And it is delicious It is one of the best things I have ever had And they don't usually let foreigners eat it Because it is too spicy
+
+[00:31:22] That is what they say Oh yeah, that is how they flatter every foreigner who walks in Oh yeah Those British people can't handle this one Very impressive It was in Bhutan's Nando's And they put a very nice little flag on the top of it Did it have a lemon and a herb on it
+
+[00:31:38] Is what I wanted to know But chirpy as well Is sometimes used these days as a dog treat Because it is so chewy I think even in America I don't know if you can buy it here In America you can buy this cheesy dog treat That they can just keep chewing on
+
+[00:31:54] I read a very spurious sentence about it I thought in one of the articles Which said, since it is rich in protein and fat It makes a great substitute for vegetables I don't know That is why we are eating our greens Can I tell you about the fight club for cheese? No, you can't tell us about the fight club for cheese
+
+[00:32:14] That is the whole point Oh yeah, oh shit Damn it Yeah, it is the cheese munger international Which happens in the USA This was a description of the FT It involves 50 young cheese mungers Pitting their skills against each other
+
+[00:32:36] In a frenetic battle of curd-nerdery It happens in San Francisco It does sound fun The charismatic founder Adam Moskowitz Is called Mr. Mu And compares in a cow onesie Okay, a bit less cool now I wonder who's called him the charismatic founder
+
+[00:32:54] Sounds like something on his own website Him and his onesie at the top You know Baratta The more delicious version of mozzarella I didn't really know what that was But it came about as a way of using up leftovers And the way they did it, this is the 1930s It's in Apulia
+
+[00:33:12] It's the only place you can make it Cream would be scraped off the top of milk And it was usually chucked away And instead they mixed it With stretched mozzarella curds To make that really creamy soupy inside And then they blew mozzarella Into a bubble
+
+[00:33:28] So they got mozzarella and they blew like a bubble-gum bubble And then they stuffed this cream inside And this was just to preserve it So this meant that when you had Like a day's journey to get to market Then this apparently insulated it from the heat Of the sun and meant that the cream And cheese didn't go off inside
+
+[00:33:44] But I just love that they blew into it Like a little, you know Bubble Like a bubble Liquid soupy stuff from cheese This is an interesting new innovation That's happening around the world And I wonder if it's going to take off
+
+[00:34:00] In Wisconsin, they've been doing this So they make a lot of cheese there And they have a lot of master cheese makers there So as a result of having a lot of cheese They have a lot of excess brine that they need to get rid of What they do is they liquefy it And they pour it on the side of the roads During winter in place of salt
+
+[00:34:16] And it works way better than salt does It's great for them because they're getting rid of A lot of waste and they're using it really efficiently Does it not make the entire State smell of cheese? It stinks like shit I think a lot of Wisconsin smells of cheese already To get there
+
+[00:34:32] But what's really interesting is A, it's just a great way of just recycling The materials in a good way But also, this typical salt That they would use on roads That would freeze at 6 below 0 Whereas cheese doesn't freeze until 21 below 0
+
+[00:34:48] So it's actually even just useful In the sense that the colder it gets It's still useful But that's why you never get cheese ice cream Tragically Oh really? No There was a big story
+
+[00:35:04] A big story in Germany last year And that was that someone was living In a cheese shop And she was very very upset because Her house smelled of cheese all the time She said the smell of cheese Was coming through her electrical sockets And it went to court
+
+[00:35:20] Because she said that they should just stop Selling cheese all the time Basically, she was like putting signs up saying This place stinks of cheese I wasn't cheese, fucking cheese shop But she was putting that He said that she had been hiding cheese Behind a fuse box to frame him
+
+[00:35:36] Anyway So they found in favour of The cheese seller But he's decided ok I want to be a good Naver so I'm going to move away anyway But because of this story No one will let him move into that shop Anymore and he's stuck
+
+[00:35:52] In the place and she's stuck Living above him Oh my god, will you re-home Mr stinky cheese seller We've got to wrap up in a sec guys Anything before we do? St. Hildegard of Bingen Who was a friend of the podcast
+
+[00:36:10] Mystic from the 12th century She always thought That all cheese should be dried She really liked her cheese But she also thought That cheese was Like cheese making was how children was made So she wrote that at first
+
+[00:36:26] The semen inside the woman is milky Then it coagulates Then it becomes flesh And then it becomes the body So it's cheese just halfway to becoming a human Is that what she's saying? I guess it's what she's saying Wow she was a wise woman but she did get some
+
+[00:36:42] Things wrong didn't she? Her restaurant was a disaster But there was a guy called Tertuan who was a father From the 2nd and 3rd century He was like a priest And he thought that the birth of Jesus Was a bit like this
+
+[00:36:58] So Jesus had been born in a kind of Way so like away So like the curds Away in a manger Away in a manger So the curds like cheese The curds like Like cheese
+
+[00:37:16] Jesus had grown Jesus had grown Into his shape And then he kind of got kicked out Of the church because of this crazy stunt That's harsh There was a sex called the mountainists And he kind of became really big
+
+[00:37:32] In the mountainists and they decided That as well as bread and wine and Holy Communion You could also have a little bit of cheese With your wafer Look we need to wrap up I'm afraid Okay that is it, that is all of our facts Thank you so much for listening If you'd like to get in contact
+
+[00:37:50] With any of us about the things we've said Over the course of this podcast We can be found on our Twitter accounts At Andrew Hunter M At James Harkin You can email podcast at qi.com Where you can go to our group account Which is at no such thing
+
+[00:38:06] Or you can go to our website No such thing as a fish.com All of our previous episodes are up there Thank you so much Newcastle for being here That was absolutely awesome We really appreciate it We'll see you again next time Goodbye
+
+[00:38:26] Thank you

@@ -1,0 +1,241 @@
+# No Such Thing As A Fish - No Such Thing As A Sad High Five
+
+- Episode date: September 18, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-sad-high-five
+- Slug: no-such-thing-as-a-sad-high-five
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the Edinburgh Fringe Festival. My name is Dan Schreiber. I'm joined once again by the three other elves. Please welcome to the stage. It's Andy Murray, James Harkin, and Anna Chisinski. And once again, we have gathered round with our four favorite facts from the last seven days. And in no particular order, here we go. So starting with my fact this week. My fact this week is that the current French Scrabble champion doesn't speak a word of French. This was in the news not too long ago, so I feel like some people know it, but I just found that absolutely amazing. Did he just randomly play letters, which all turned out to be accepted French Scrabble Dictionary words? He memorized the French Scrabble Dictionary, and then he just used that.
+
+[00:01:06] And even in the finals, he told the French guy, that's not a word. Yeah, it's an amazing character. Yeah, his name's Nigel Richards. He's from New Zealand. Wow. I read an article about him on shortlist.com entitled, Why Nigel Richards is better than Lionel Messi. Well, they do call him the Tiger Woods of Scrabble, don't they?
+
+[00:01:32] Because we should stress he is not known to be an adulterer. I've read a thing. A guy who's written a book about Scrabble, he's a sort of Scrabble. expert he's called Stefan Fatsis and he said right now Richards is, or I'm quoting here, like Tiger Woods at his peak and then Tiger's saying I think I'll also take up tennis and then winning
+
+[00:01:52] Wimbledon the next year. Wow. Do you think in golf people call Tiger Woods the Nigel Richards of golf? Yes. I saw an interview with him on YouTube and they asked what the secret is and he said I'm not sure there is a secret it's just a matter
+
+[00:02:08] of learning all the words It's not a secret anymore. And apparently he's read the 1,953-page chambers dictionary five times and memorized every single word in the dictionary. Wow. Apparently, you're at more of an advantage. Scrabble players say, when you don't speak the language that you're playing in. I bet it's the French who said that, is it?
+
+[00:02:32] No, it's apparently it's more about memorizing the coding of it, the mathematics of it. You look at it, like you look at a, I don't know, a big, I mean, certainly what you do need to do is know all the two-letter words, because they're the most useful ones, and most of them aren't really real words. They're just like two-letter word. Like the most common two-letter word? I think it's the most common two-letter word.
+
+[00:02:51] It's the most commonly used word in all of Scrabble. Is Chi, which is spelled QI. Do you want to hear a move that Richard's made in 1998? Yeah. You do. Right. It's 1998. I've set the scene.
+
+[00:03:12] So he was pretty new at the time to competitive Scrabble. And he had C-D-H-L-R-N and then a blank tile. Children. There was an E on the board, and he could have played that and used up all seven letters and got a 50-point bonus. Yeah, that's... Like an idiot. Oh.
+
+[00:03:29] Instead, he found two O's and an E, which were all in a line on the board, not connected to each other, and played all of his letters to make the 10-letter, Chloridine. Oh my god. Yeah. That is like a dream
+
+[00:03:43] because you always want to connect all of those vertical columns but it never works. Wow. And he only learned the game at the age of 28 and his mother introduced it to him and she said,
+
+[00:03:53] this is her words, I said, I know a game you're not going to be very good at. Because you can't spell very well and you weren't very good at English at school. Unfortunately he is a mathematical genius so you can see all the... He just sees it, yeah.
+
+[00:04:09] But another Scrabble move that been made was in the first ever world Scrabble Championships in the early 90s. There was a winner but the person who was runner up, the reason he lost was because one of the last words he played. And sometimes, you know, you've only got a few letters left. You take a pun on a word that you hope exists. There are lots of weird words. And the first word he played, the last word he played was the word smale, as in snail with an M, in the hope that that could get him some points. And it couldn't. But now that smale is an anagram of another word, which gets points.
+
+[00:04:41] Males? Yeah. So he could have played males and he lost the Scrabble Championship because he played Smale instead. What a dick. What an idiot. That's awful.
+
+[00:04:53] He's very much the today's Tiger Woods of Scrabble. Do you guys know about the inventor of Scrabble? He was called Butts. Yes, Alfred Butts. Which is just a lovely surname. Alfred Motra Butz was his middle name, not his nickname. Yeah, and he only revealed a few days before he died. He lived quite old.
+
+[00:05:16] He was 93, I think. He said that he was a bad speller, and everyone was like, that's hilarious. And then he died. It was less hilarious. But he... On his tombstone, it said R-P-I. Yeah, he... So he invented Scrabble.
+
+[00:05:34] He called it It, originally. I had another name for it, and then someone bought it off him and turned it into Scrabble. on we use this word and so he had that whole thing of the difficult second album you know and he actually released the game and it was called uh oh sorry i've lost it now i know what it was yeah what's it called alfred's other game that's it's follow-up to scrabble was called alfred's other game no one knew who alfred was to know anything about it because no one's ever bought it as far as i can tell except four reviewers who reviewed it online all of him say it's like solitaire but it involves two players but the two players don't interact with each other at all
+
+[00:06:10] So I think it's basically two solitaire sets, and you're just supposed to sit next to someone while you do them. Right. Yeah, he wasted a lot of his talent on the first one, I think. So he decided the points for Scrabble based on he studied the front page of the New York Times over a series of months, didn't he? And then logged the frequency of certain letters in the New York Times that appeared, and decided the point scores based on that.
+
+[00:06:32] So a lot of people now think we should change it. I wonder if he counted the letters in New York Times, which appeared every single day. That is such a good point. Yeah. And that's why Y isn't worth as much as it should be. Yeah. That's probably why I'm so bad at Scrabble. Yeah, and actually, like, if you're playing it in another language,
+
+[00:06:51] it's not just the words, it's also the letters are worth different amounts, so that must be pretty hard. In Polish, a Z is worth one point. Although a Z with an accent on it is worth 10 points. Really? Yeah, that's weird. In Ukrainian, an apostrophe is worth 10 points. but in Armenian the board is 17 by 17 instead of 15 by 15 because they have longer words
+
+[00:07:16] and they also have loads of letters that I've never heard of so for one point the letters Yek and Ken for two points the letter men for three points the letter Ben and for four points the letter Rar I assume that's how you pronounce it is RRA well did you see the um
+
+[00:07:39] grr has been added to the official Scrabble Dictionary in the last update which was made in 2011. The words gr, thang and blingy have been added to the Scrabble Dictionary. You can now play those. There's this huge war between the Americans and everyone else because... Classic war there. Lovely. So, we'll, as you guys know, use the OSPD, the official Scrabble Players Dictionary when we're playing Scrabble. and we've actually combined that with the OSW,
+
+[00:08:10] the official Scrabble word list, but the US refuses to do that and keeps on using its own dictionary, the tournament word list, which is a completely different list of... I mean, there's probably some overlap. I mean, as long as both have thang, I'm happy. But yeah, people get very angry about this.
+
+[00:08:28] Well, they don't like swear words in the American one. Oh, no, they banned those. Yeah, they've banned all swear words, and ESPN decided to put the Scrabble championships onto their channel. But they had a thing where they said, these are the list. I think it was about 170 words.
+
+[00:08:44] They said, you can't say this on television. You can do this in normal Scrabble competition, but you can't do this on television. But so what they did was the first 30 rounds of the competition. They could use all the rude words that were banned. And then when it got to the televised bit, they couldn't do it anymore. That's pretty bad that they were allowed it for half of the tournament
+
+[00:09:01] and then not afterwards. Because what about someone like me who only ever plays rude words in Scrabble? I'm going to be nailing it, halfway through and then I'm going to be absolutely useless. It's on TV as well. I will be using a lot of those words but not on the board. I'm going to have to move us on in a few minutes.
+
+[00:09:17] So if anyone's got anything else, there's a very cool thing about Scrabble in Senegal, where it's an official sport, and they take it so seriously. And Senegal hosted the French Scrabble World Championship in 2008. So this was before Richards won. But the Senegalese government composed an official song to mark the occasion.
+
+[00:09:34] And I read this in an article about it, that in Senegal, you can buy a set of scrabble on most street corners, which I can't quite believe, but I want to believe, and I'm never going to go to Senegal in case it turns out not to be true. Comes free with your bag of crack. Just some scrabble tiles. I was on some online chat forums, just separate to work. And it was one of those, I was just taking a break.
+
+[00:10:01] And it was, you know, it was like a Yahoo! Answers thing or something. And it was a parent who said, this is literally what it read hmm my seven year old just swallowed a scrabble tile no wait it's a banana grams tile he tells me anyone have any experience with this I mean it is exactly the same
+
+[00:10:20] a banana grams tile to a scrabble tile I guess she meant to specify not I would probably just like make another tile out of cardboard and use that okay it's time for fact number two and that is James Harkin. Okay, my fact this week is that the world's only venomous frogs
+
+[00:10:41] headbut their enemies to death. They're very little known species from Millwall. And you googled violent football team, didn't you? You've got no idea what you just said. And I'll never go in case it turns out to be true. I think that's very safe. So yeah, you get a lot of frogs which are poisonous, which means if you eat them, you would be sick.
+
+[00:11:12] But these are venomous, so they stick the poison into the body of their prey. And they are called Aparasphenodon Bruno Eye and Corithomantus Greening Eye, and they have really flexible necks and really pointy skulls, and they have poison on their skulls. Actually, a single gram of venom from the first one of those frogs would be enough to kill 80 people. Wow.
+
+[00:11:34] So they're proper hardcore. And they're only little guys as well. Wow. Wow. Have you heard of the hairy frog? No. So the hairy frog does this thing that when it's getting to a fight, it will break its toe bones,
+
+[00:11:48] just snap them, which is always intimidating to see someone doing that when you're in a fight with them. When they start breaking themselves before they go for you, so they'll just snap their toes off, and then they push their toe bones through their skin like Wolverine, And they just come out and they go, do you want some?
+
+[00:12:06] And then... That's the most aggressive fighting I've ever heard of. Andy, I don't know if you know this is exactly what they do in Millwall. Also, sea cucumbers, just while we're on the kind of fighting defense thing, they shoot their internal organs out through their asshole. Sorry, Andy hates what I say words like that. That's why you two never play Scrabble together. Yeah, imagine that, shooting bits of your body out through your ass.
+
+[00:12:37] That's quite crazy. They can regrow them afterwards. They can regrow them, and the idea is that the predators will eat the stuff that's come out, and they won't eat the cucumber themselves. But actually, they also have fish that live inside the anus is called slender pearlfish. So that must be pretty bad for those fish who are just sitting in a nice little home, and suddenly everything gets ejected out. A nice little home.
+
+[00:12:59] Oh, we've got it great, haven't we? Look at our anus We've got a nice two up, two down anus We're really hoping to move to a bigger anus In the country, So there's zoologists were in Ecuador recently And they spotted this frog It was obviously new species
+
+[00:13:19] Because it was like covered in spikes So they'd never seen before So they were like, this is really exciting And they spotted it, it ran away So they spent years and years in Ecuador Looking for this frog again And they've eventually found it I think this year or last year
+
+[00:13:30] And they got it and they put it in a jar overnight and I will deal with that tomorrow, you know, classified or whatever, came downstairs in the morning and all of its spikes had gone. And so the zoologist, the female zoologist, um, said, I thought I must have just picked up the wrong frog. And so I was very disappointed, but I just, you know, she said, I laid down some moss so it would be comfortable in there. And then I decided to take it back out into the wild the next day. And then the next day the spikes were back. And it became apparent that this is a shape-shifting frog, the first known shape-shifting amphibian. Wow. Do we know if they can turn into princes?
+
+[00:14:00] I read that in a scientific manual. There was, when Disney released the princess and the frog, more than 50 children were hospitalized with salmonella from trying to kiss frogs. Wow. Just play banana grams with them like normal. Much better. In 2008, some scientists found a frog with no lungs.
+
+[00:14:25] So this is really, really cool. It's called Barbarula Kalimantanensis. Don't write in. And it hadn't been dissected before because they only had two specimens of it and they didn't want to destroy the only two specimens they had. So nobody suspected that it wouldn't have lungs. And then they found another one and they thought, well, let's dissect it.
+
+[00:14:43] Sucks to be the third frog, wasn't it? The early bird catches the worm. The second mouse gets the cheek and the third frog is dissected. But it gets all its oxygen through its skin. It's so cool. And the really, really cool thing is that it actively threw away. its own lungs, as in it used to have lungs, and then it thought, I don't need these. And because it saves space on lungs in its body, it's a bit slimmer and flatter, so it has a
+
+[00:15:12] bigger surface area, so it can absorb more oxygen proportional to its size. Well, that's like there's the scrotum frog, which is quite a similar thing. Yeah, the scrotum frog is called that because it just has incredibly floppy skin, so it's got these really tiny lungs that can't really take much, but you've got way too much skin, and so it's loads of surface area. and so it looks like a scrotum, because obviously far too much skin is kind of gross. Yeah, but it does help it respire. Can I do some stuff on headbutting?
+
+[00:15:38] Yes, yeah, yeah. So a Welsh police force has trained its dogs to disable their targets by leaping at them and delivering a flying headbutt rather than biting them. And this is because people were being bitten by police dogs and kind of getting compensation or whatever and they thought, well, a better way of doing it is just having them attacking the people with their heads. I read that if cats headbut you, this is
+
+[00:16:04] what the scientist report I saw said, that when cats headbut you, it's the equivalent of them giving you a high five. What? And that's science, you say. Yeah. In what way?
+
+[00:16:20] They just come over and they're just going, yeah, man, you're all right. That's a loose definition of the equivalent of a high five. I mean, so they rub against you to express affection. Take it up with science. High fives can signify so much. Joy, sorrow, affection.
+
+[00:16:38] Sorrowful high five. That's the last time I take you to a funeral. Just one more thing about headbutts. Bedfordshire Council, apparently, according to this newspaper article I read, they banned local artists from displaying paintings behind glass. And there were a few different reasons they gave. But one of them was that someone might. headbutter picture and cut themselves.
+
+[00:17:02] Who's going around art galleries, headbutting pictures? The Millwall fans day out to the National Gallery. Oh, my God. I'm sorry I even mention Millwall. Actually, have you read that the headbutting world record has recently been set,
+
+[00:17:19] recently been reset and beaten, and by quite some way. Wait, wait, wait, to do what? Oh, so this is what you have to do. You have to crack walnuts with your head, and so the record previously was 44. walnut, so you lay walnuts out on a table, bash, bash, bash. 44 walnuts held by an American, and then this
+
+[00:17:35] Pakistani guy called Mohamed Rashid has reset the record, and he cracked 155 walnuts within the space of a minute. A minute? One minute, yeah. He's the Tiger Woods. Competitive headbutting. I'd just like to say that Mr. Rashid is not an adulterer as far as we know.
+
+[00:17:54] That's, what, two and a half a second? Is that right? Can that be right? But is he smashing a big bunch of them, Are they all in a line? No, no, they're in a line. You've got to do one at a time. Wow. Yeah.
+
+[00:18:03] I couldn't do that with a hammer. No, I know. That's why you're not even anywhere near the competition. That's why I failed to place. A, turned up with a hammer. B. Did not break record. We're going to have to move on in a minute.
+
+[00:18:20] Any last before we go? Just, did you hear, do you remember reading in 2005 about the exploding frog freakout in Hamburg? Sounds amazing. It's so weird. So there was, suddenly this started happening in Hamburg. Thousands of frogs started exploding and, you know, spattering their entrails all over the streets. And their entrails would spatter up to like a meter wide.
+
+[00:18:43] And people didn't know why they were doing this. And there were these weird theories flying around about what was going on. So some people thought frogs were just starting to commit mass suicide for no apparent reason. Someone else thought they'd caught a virus from race horses. Go on, James. just wondering where the horse racing theory came from yeah the horse exploding scandal in hamburg the week before I can't believe I didn't mention that
+
+[00:19:06] so what actually happened so what happened was it turned out it was crows so crows had figured out that you can't eat the whole toad because its skin is poisonous and so you know you die but you can pierce the skin and the only good bit of a frog any you know food connoes is the liver anyway you suck the liver out and then what happens is the liver of these toes is what's keeping all their other organs in
+
+[00:19:27] and so they end up like, they puff up in defense and all their organs start exploding out of their body. Wow. Yeah. But the crows have a nice bit of foie gras and aren't poisoned, so it depends who side you're on. Okay, we're going to move on to our next fact. Time for fact number three, and that is Chazinski.
+
+[00:19:48] Yeah, my fact is that when the film All Quiet on the Western Front was released in Germany, Goebbels went to see it at the cinema, and within 10 minutes he'd release stink bombs, itching powder and white mice in order to scare everyone out of the cinema. So this was Fungai Gurbles, everyone's favorite clown. So he did it 10 minutes in? He started doing it at the start, but he wrote in his diary.
+
+[00:20:15] He kept 10,000 pages of diary entries, which, my God, and Bonavis pages related how he started doing it. And within 10 minutes, the whole cinema was in chaos. people were running away, itching themselves, you know, fainting with the smell. Yeah, they really didn't like that movie, did they? Because it was the fact that the German soldiers died in a not brave way, and the French soldiers did die in a more brave way. So it got banned.
+
+[00:20:40] But then, ironically, in Poland, it also got banned because it was pro-German. Yeah, so Germany banned it for being anti-German and Poland ban it for being pro-German. What's pretty crazy as well, I was reading the IMDB page for it today, and in the little trivia bit, they were saying that a lot of the extras in the movie were actual German soldiers from World War I who had moved over to America,
+
+[00:21:02] who they said, we're doing this thing and we just want to know about how you would march and so on and the uniforms, can we have a better look? And they all said, I'd love to be in the film. And so a lot of the German soldiers in it are actual German soldiers from World War I. Pretty crazy. Pretty bold casting.
+
+[00:21:17] So the intervention that was kind of, I think he had a lot of brown shirts or the essay with him to disrupt the... Yeah, to freak people out. Yeah. And then it was, I think it was banned shortly afterwards in Germany. It was banned, yes. Before the Nazis came to power, it was 19...
+
+[00:21:32] Yeah, it was. It was 1930. But, you know, they were already a thing. Yeah, yeah. So, yeah, he brought the brown shirts in, and it was banned, and the writer of the original book, who was called... Remark? Remark? Had to leave the country, and then he was in... So he was told he had to leave
+
+[00:21:47] because he'd written this unpatriotic book and turned it into an unpatriotic film. and then Goebbels obviously rethought that and wrote him a few months later and said actually no no honestly come back do come back but at this point you know people were saying to get the hang of the whole Nazis not being good guys idea and so remark wrote back and said
+
+[00:22:03] what 65 million people want to get out of the country and I'm supposed to come back of my own free will not on your life and he never returned which is probably a good move he was nominated for a Nobel Peace Prize for that who was remark for the film so it's quite cool you can go on the Nobel
+
+[00:22:20] Peace Prize website and look at all the nominations that were more than 50 years ago when they've been released and that same year in 1931 that he was nominated for writing all quiet on the Western Front. Also, the government of Finland was nominated. I don't know why. Yeah. Just really peace-loving
+
+[00:22:36] guys back then. Yeah. Not like now when we're all living under the Finnish jackboot. I have a few things about censorship and stuff. Oh yeah. There was a British council who banned the life of Brian, even though they had no cinemas in their boundaries.
+
+[00:22:58] And in 1999, the censors in Bournemouth asked to see a sexually explicit French film with a view to banning it, even though no cinema had expressed any interest in showing it. Wasn't the first everything, not banned, but censored in the film industry in this country, was the cheese board who, sorry, it's not an actual cheese board, it's like a group of people who talk about cheese a lot. And there was a movie that came out where they showed, I think it was a close-up on cheese
+
+[00:23:31] and all the bacteria and stuff. So they asked for it to be censored, and it was censored. It was the first ask and get of censorship in cinemas. What a movie, though. It sounds great, hey. Can imagine ordering the cheese board at a restaurant and you get 12 blokes who just love cheese delivered to your table. wish I had had the pudding.
+
+[00:23:54] On Monty Python's Life of Brian because it was banned in lots of different local boroughs in the UK as James says and in Thannet in Kent the ban was overturned and there were local adverts placed in the newspaper saying have you seen Monty Python's Life of Brian?
+
+[00:24:11] Thanet District Council have because they'd had to see it in order to overturn the ban. I think every film should be appetited. I was looking at pranking, and in the 19th century, electricity-based pranks were really fashionable, because they just discovered how to wield electricity. There were things on sale like electric hammocks.
+
+[00:24:36] You could buy, you lie in a hammock, it electrocute someone, that's quite fun. Electric carpet, so someone's walking over your carpet, and then you could, it's the same idea. I read one that was called the wireless trick, telephone. Did you hear about this one? No. Okay, the wireless trick telephone. This is the description for it. When the candidate attempts to answer this phone, a 32 caliber
+
+[00:24:59] blank cartridge will explode with a loud report, and at the same time, white powder will be blown with a strong blast from the transmitter into his face. That's a full-on prank. And then check this one out. The Pledge altar, right? This,
+
+[00:25:15] if you bought it, is an altar. It's the size of, like... We've all got altars in our home. Exactly. A very practical... practical prank that you would almost do daily. Is it for Vickers making pranks? It must be right. Who's using the pledge altar? Okay, well, let's picture it as there that it is in the church.
+
+[00:25:33] This is what happens. This is the description. The candidate kneels before the altar in a darkened room when low, up before him, jumps a skeleton with large illuminated glaring eyes. A blank cartridge has exploded. A stream of water hits him in the face. An electric shock is shot through his knees. April Fool's Day, pretty wild in the 1800s. That's amazing.
+
+[00:25:57] The original thing was about itching powder, wasn't it? Yeah. And in World War II, the British put itching powder into German uniforms to try and, you know... I think this isn't the early days when we weren't sure we wanted to go all out. I wasn't sure we wanted to pull the full Pledgealter trick on the Germans. Yeah, they called it Itch Krieg, I believe, in the business. No, they didn't.
+
+[00:26:21] did call it that. No way! That's amazing. But how do we get access to German uniforms to put itching powder in them? They infiltrated laundries. So they had members of the resistance in Germany who would go into laundries and then, you know, well, it's obvious from there. But another thing that happened, so in Norway, the Norwegian resistance, when Norway was taken by the Nazis, the resistance coated condoms in itching powder and sold them to the Nazis. Wow. Which I think caused problems.
+
+[00:26:51] Yeah. Be very stimulating for a second. You're so positive about everything. You know the seven-year rich, it's a saying for, after seven years in a relationship, it all goes sour or whatever. It seems to be a thing that a lot of scientists do studies on to see when the actual time is, it's not seven years, it's another time. And obviously, the newspapers pick up on it.
+
+[00:27:18] There was an article in the Daily Telegraph a couple of years ago that said it's actually a four-year-rich, not a seven-year-rich. The Daily Mail seems to go for this almost weekly. They have had various articles over the last few years that say, actually, rather than a seven-year-rich, humans have either a 12-year-ish, a 5-year-ish, an 11-year-ish, a 25-year-ish, a 3-year-ish, an 11-month-month-month-month-and-25-day itch. I think someone has been supplying the male HQ with these condoms that I'm describing.
+
+[00:27:54] It's been a very exciting few years for itch science, I think. I've seen a number of headlines. We've cracked a lot of mysteries in the last few years. 2011, they worked out that itching is contagious. So that's a big moment. And in 2014, they've worked out that scratching makes you want to scratch more. So when he said contagious, do you mean from one person to another? Yeah, so if you start itching, I'll be like, oh, that looks good.
+
+[00:28:18] And then I'll just do it. We've already established your itching fetish. The only reason Dan knows so much about itch science in the last few years is he subscribes to Itch Monthly. Itch good. You know in cinemas, I don't know if anyone here knows about them, but I'd certainly never heard this. Cinemas used to have crying rooms.
+
+[00:28:44] Do you know about that? Yeah, I know. So immediately, I thought it was for any sort of Millwall fans going, I'm not going to cry here. And then suddenly the notebook is really getting. getting to them and they're just like, I'm going to be gone for a minute, and they go into this room.
+
+[00:28:55] It turns out it's for babies. It's mothers with babies. They would go in there if it was crying, so they could continue to watch the movie, and it would be just a soundproof room. They would have speakers coming in, but they could watch it from in there and not have to miss the movie themselves.
+
+[00:29:08] Or fathers, that was really sexist of me, fathers and babies. That sounds like such a fantastic thing. I quite like the idea of just being individual booths for everyone, so I don't have to be near anyone else in the cinema. I think that's called just your bedroom. Yeah.
+
+[00:29:21] Or the seating. your parts of Soho. There are places that you can do that in. We're going to have to move on. We're often seeing in there crying. Okay, it's time for our final fact of the show, and that is Andrew Hunter Murray. My fact this week
+
+[00:29:37] is that defunct sports from the early 20th century include archery golf, boxing on horseback, and competitive flagpole sitting. This is from a book I read recently, and it's such a
+
+[00:29:53] book. I loved it so much. It's called Fox Tossing, Octopus Wrestling and Other Forgotten Sports by Edward Brooke Hitching and it is electric. It is sort of this list of incredible sports that we've forgotten about. An archery golf, just to confirm is archery hyphen golf, not archery, comma, golf?
+
+[00:30:09] Yes. Yes. Yes. This is where you have golfers and archers on the same course at the same time. I read an article word there was one person, the archer was playing against the golfer. Was that the standard you'd have an archer versus a golfer? If you archers take a ten-point handicap against sculptures, because obviously they've got a bow and arrow.
+
+[00:30:30] But, so the archers fire their shots, and everyone tease off from the same spot, except the archers are firing towards the, what is it got, the hole. I don't want to get old technical. And so for archers, the hole, is something like a tennis ball balanced on a tinkan, you have to hit it. And you have three different kinds of arrow that you use. You have a light one for the first drive,
+
+[00:30:51] and then a really heavy one for the putting. Yeah, and people played it until the 1970s was a sport. Sounds great. How about horse boxing? Talk us through that. Is that... Boxing against a horse? Yeah, no.
+
+[00:31:03] There's two guys sitting on horseback and boxing each other, and you lose if the other guy knocks you off your horse and you're unable to get back on within 10 seconds. Well, it's similar to chess boxing, right? People like to inject boxing, I think, into other sports to make other sports more exciting. Like chess boxing, where you play a round of chess and then you do a round of boxing.
+
+[00:31:22] and I think the winner is the person either who manages to checkmate the other person or to knock them unconscious. I don't really, it doesn't sound fair that, does it? Because I'm okay at chess, but probably would get knocked out immediately in boxing. So you have to get checkmate pretty fast. Well, you've got to be multi-talented. And also you probably get increasingly worse at chess the more you are concussed. Yeah, but then the other person doesn't get worse at boxing the more I put him closer to checkmate. If anything, it'll only make him angrier.
+
+[00:31:52] Just on the horse boxing thing, you had to wear boxing gloves, obviously, because they played by Queen'sbury Rules, but that made it very hard to grip the reins. So most of the round involved lining your horse up next to the other guy's horse. Really hard to do with boxing gloves on. So a few other of the sports that was in that book.
+
+[00:32:14] I did have a look through the book, and it's amazing. Ice tennis, which seems really cool, is literally what it says. phone booth stuffing. And the record is 25, just if anyone wants to go against it. Yeah, and flagpole sitting, that's my favorite one. Oh, yeah.
+
+[00:32:32] Yeah, because they produced huge celebrities off the back of it. No, honestly, so there was one guy in particular called Alvin Shipwreck Kelly. So no one's quite sure why he's called Shipwreck other than he claimed to be involved in five shipwrecks. I think that's probably why. Well, no, but...
+
+[00:32:52] He claimed he'd been on the Titanic. Yeah. But people aren't sure about that because the passenger records seem to not indicate him. Yes. Yeah. His...
+
+[00:33:02] I don't think you'd let someone called shipwreck on the Titanic. He probably gave him a false name. John Iceberg Smith? Welcome on board. They're all good, mate. Nice to see you. But Paul Sitting
+
+[00:33:15] genuinely was, I think, a proper fad in the 1920s and 30s in America. People were really, into it and constantly breaking records for it. And so I was looking into the British newspaper archive during that
+
+[00:33:28] time, and we really disapproved of it. Like every single article that references, polls sitting in America, talks about this degrading exhibition has now reached the dangerous stage. So basically, I mean, the competition is you just sit at the top of a pole for as long as you possibly can until it gets uncomfortable and then you come back down. I always thought polls would be quite spiky
+
+[00:33:44] at the top. They often had a platform. I mean, I don't know. I mean, really, really tiny. You know. Yeah, but, you know. Gross and balls, guys. 71 hours was the record in the Dundee Courier that was reported. Well, shipwreck Kelly supposedly sat on it for 49 days and one hour.
+
+[00:34:03] Yeah, that's good. Yeah, that's pretty amazing. He's very much the Tiger Woods at Poles City. He did a 28 city tour of sitting on poles. And he did a tour, and he charged people with roof access so that they could see him at the top of his pole.
+
+[00:34:18] So you bought tickets to the roof of building. and you could watch him doing it. He did it all through his life. It's a bit David Blaney, isn't it? Yeah, exactly. Yeah. And he, for sleeping, obviously, because you would have to sleep a bit,
+
+[00:34:29] he would cut holes into the side of the flagpole and put his fingers in there. And then if he slept, and he started to sag right down, it would hurt his fingers and he'd sort of, you know, stay up there. Yeah. Keep him up there.
+
+[00:34:43] It's an old career choice, isn't it? It is, yeah. He died, you know, broke many years after the glory days. Yeah, he exactly. his career went downhill. He got hit by a car, so he died from being hit by this car, and they found on him a scrapbook of his life. And it was called The title was The Luckiest Fool on Earth. Oh, ironic. I want to know the name of this book was Octopus, something, and Fox tossing.
+
+[00:35:07] What's fox tossing? You have an arena, right? And you get men and women lined up opposite each other, and you're all holding long, long strips of cloth, loose and slack on the ground. You release a load of foxes into the arena. When they run over the bit that you're holding, you and your partner pull it taught, and the fox flies into the air. That was a genuine sport that the aristocracy played
+
+[00:35:29] in the 17th century in Europe, and the fun was in seeing the foxes die. The fun was in seeing the foxes fly through the air. I think that's biased reporting. Well, we're not all as wholesome as you, Anna. I read an article about that, and the end of the article said, it was not unknown for the terrified animals
+
+[00:35:48] to turn on the tossers. There was a sport in ancient Egypt called fishermen's jousting. It was really popular. And you would basically get people in boats, and they would joust against each other, try and knock each other off the boats. And it took place on the Nile. But of course, the worst thing about the Nile is it's full of crocodiles.
+
+[00:36:09] And because the crocodiles were sacred, it was illegal to fight back if the crocodile came anywhere. You'd be in big trouble, mister, if you fight back against the crocodile that's eating you. What legal sanction exactly can be worse? It's true. It's very much a no-win situation. Do you know the national sport of Afghanistan?
+
+[00:36:35] No. Is goat-dragging? Buzz Kashi, which is played in countries across Central Asia, but it's like polo but with, instead of a ball, a headless goat. So the goats, but it's died already, and you've removed the head. Yeah, I'm sure it's died already. once you've removed the head. I know, I said that in the
+
+[00:36:56] right order, I think. It died, then you remove the head, and then you have to drag it towards a goal, and then throw it through a goal. I don't know why you'd use a goat instead of a ball, maybe they're short on balls, but that's the national sport of Afghanistan, they love it. Well, we would have used a pig splatter for soccer, like in the old days. Not an entire pig, though.
+
+[00:37:12] No. It's much more unwieldy. And Millwall, apparently, they do, though, I don't know if you know about that. Can I tell you a bit more about flagpoles. Yeah. The flagpole sitting thing. So I think the all-time champion of flagpole sitting
+
+[00:37:28] was a saint called Simeon Stylites, who lived up a pole for 36 years. And he started with a flagpole six feet off the ground. Sorry, not a flagpole, but just a little platform on a pole. And then he went to a higher one until eventually he was 60 feet up in the air. Wow. And he lived up there. And I read a book about early Christianity about this guy. And as it says, what was he doing?
+
+[00:37:52] there were lots of theories as to why he did it. Either he found the crowds who approached him asking for wisdom and advice too exhausting or he... One theory that he wanted to be physically closer to Christ because Christ is in the sky or he wanted just a more spartan existence
+
+[00:38:09] than you could get in a monastery. And his Wikipedia page says it has been stated that as he seemed to be unable to avoid escaping the world horizontally, he may have thought to attempt to try to escape it vertically. Nobody says what he did with his poo though Because he'd have to drop it off, wouldn't you?
+
+[00:38:26] He just threw it, hold it at those irritating people constantly asking him for advice Down at the bottom Because he still has followers, doesn't he? I think his most well-known followers A guy called Maxime Cavtarazze And he's a 59-year-old monk
+
+[00:38:42] And he's been living on a stone pillar in Georgia And he comes down once a week But he spends basically his entire life up on top of this pillar, he climbs this 131 foot ladder. He has to have staff who pull by a pulley system his food and supplies up to him. So, you know, these people need to be well-staffed. And yeah, he drops down twice a week to give some advice to his following masses and then he pops back up onto the pillar and hangs out there. What a good man. We're going to have to wrap up in a sec. So have we got anything throw in before we go?
+
+[00:39:11] The current sitting up a pole competition record is held by a pole. That's all. His name is Daniel Baraniuk and he is from Poland. 196 days for fans who are in. Okay, we are going to have to wrap up. That is it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things we've said over the course of this podcast,
+
+[00:39:37] we can all be found on Twitter. I'm on at Schreiberland, Andy, at Andrew Hunter, James. At Egg Shapes. Chazzynski. You can email a podcast at QI.com. Yep. Or you can go to no such thing as fish. that's where we have all of our previous episodes
+
+[00:39:51] so you can go listen to them there. We're going to be back again next week. Thank you so much for being here, guys. Really appreciate it. Thanks for listening at home. We'll see you again next week. Goodbye.

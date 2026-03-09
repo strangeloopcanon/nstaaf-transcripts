@@ -1,0 +1,231 @@
+# No Such Thing As A Fish - No Such Thing As A Worthless Doorstop
+
+- Episode date: June 29, 2018
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-worthless-doorstop
+- Slug: no-such-thing-as-a-worthless-doorstop
+
+## Transcript
+
+[00:00:02] To another episode and no such thing as a fish, a weekly podcast this week coming to you live from Melbourne. Dan Schreiber and I am sitting here with Anna Tuzinski, Andrew Hunter Murray and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is that the only known modern day. due to meteorite was a cow who was hitting the neck in Venezuela in 1972. We didn't know about it for a decade because the farmer ate the cow and used the meteorite as a doorstop.
+
+[00:01:08] It's amazing. Wow. So this is a thing that happened in Venezuela, in a town that I don't know how to pronounce. It's T-R-U-J-I-L-L-O. Prohio. Was that a Zoro? Was that a Zorro impression? Yeah.
+
+[00:01:29] It was good. So there was a sonic boom one night, and then the next morning they found the dead cow and the rock. And they kind of thought nothing more about it, but then 10 years later, a doctor came along, and he checked out this rock and realized that it was a meteorite, and he said this is definitely a meteorite that's killed a cow. And that's the only one.
+
+[00:01:48] There's a lot of kind of possible people who've been killed or things that have been killed by meteorites, but this is the only one with an actual certificate that says that's what it is. And did he just look at his doorstop after all those years and go, well, that actually does look a bit like a meteorite? I mean, how does it transpire that someone suddenly decides to take their doorstop to a science museum? I think it was that the doctor was visiting them, rather than them taking just every single bit of rock in the house randomly to a museum.
+
+[00:02:18] Is this one? No. Is this one? No. You get lucky in the end. But then some people are a little bit skeptical about it. it actually because what they realized is because this is now a famous meteorite because it killed a cow, it's now worth 10 times more than it was originally. Okay. So they're thinking maybe there's something dodgy going on here. And then there's another twist.
+
+[00:02:41] So around the same area actually in Chile in the Atacama, there was a large meteorite landed there. And a load of people collected it. And this was a really famous one. And it landed in a dry riverbed called Vakamwerta. Sorry, how do you pronounce that? Vakamwerta. Sorry, yeah. Whatever Andy just said means dead cow in Spanish.
+
+[00:03:07] And so the theory is that maybe these people heard about this famous one, and that they went, that gives me an idea. I'm going to pretend my cow got hit like that. And then when anyone comes, I'll have the rock, but then I can say, oh, no, I ate the cow. Right. But they do test these rocks, right? Yeah, you can tell if a meteorite is a meteorite.
+
+[00:03:25] Yeah, so they test his rock. I mean, presumably they did. Yeah, so the meteorite is definitely a meteorite. But the question is, did it kill the cow or not? That's what some people are skeptical about. Right, okay, I see. Have you guys heard of the Nacla meteorite, which fell on Egypt in 1911? Nope.
+
+[00:03:40] So the story is that it vaporized a dog. Oh, yes. But that is very much the story of it, as in there's no evidence, because obviously the dog was vaporized. Which is what makes people think it's not quite true. Yeah. I read a really cool story that people used to... to think that Venus fly traps were aliens traveling on meteorites that landed on Earth. Because back in the day...
+
+[00:04:05] Dan, what are you on about? No, this is... I read this on the BBC's website. Back in the day, what they used to... Because Venus fly traps would be very unpredictable in where they came up. And they would go to places where they would think a meteorite had landed, and very often they would see out of place Venus fly traps. And it looks like an alien.
+
+[00:04:22] And so they thought it's an alien. It only looks like an alien because we... designed alien things after it you know like movies and stuff like that yeah actually our aliens look like Venus flytraps you're right it's that way around isn't it yeah but they did people used to attribute sorry Dan but we're we're fine with vaporizing dog story over here yeah that was a very sad story poor dog they people would make money out of meet it rights and like so like you were saying people would would pay to come and see various cows
+
+[00:04:59] And like anything that's sort of been touched by a meteorite or experienced a meteorite can then be sold. So there was one that smashed through a car in New York in 1992, smashed through the boot of the car, the trunk of the car. And the owner of the car had just bought it for $400. And she was able to sell it for 25 times that amount straight afterwards. And she was also able to sell the original title to the car from when she bought it and a bulb from the rear tail light that had been blasted out by the meteorite. Wow. That's so cool. I emailed the secretary of the American meteorological society.
+
+[00:05:34] This is the people who look after meteorites and ask them what to do if I find a meteorite. And they said, the protocol for collecting meteorites, ideally a fresh meteorite should be collected immediately without touching it and placed in a plastic sealed bag. How do you do that without touching it? It's the same procedure as for a dog poo, I imagine. And then you hang it up on a tree and wait for the authorities to come in.
+
+[00:05:59] And you don't have the dog anymore because it's been vaporized. Do you guys know there are about 20 full-time meteorite hunters in the world? Very rare career to have. And I think it was National Geographic. They interviewed one of them. He was a guy called Michael Farmer. He has been imprisoned for months in Oman because he went there. He knew a meteorite had landed.
+
+[00:06:22] He went to try and find it. And they locked him up saying you're not allowed to take rocks out of Oman. But he's been nearly killed. but the one thing he said in this interview which I really liked was he said I've eaten a small piece of every moon rock and Mars rock that I have purchased or found not many people can say they have eaten a piece of the moon
+
+[00:06:39] and then he said and I know for a fact that numerous scientists have done the same do you think they're checking to see if it tastes of cheese but I think you would do that wouldn't you give it a lick at least yes I would want to see what it tasted like But I wouldn't eat a small bit of the moon.
+
+[00:07:00] It feels somehow disrespectful. To whom? The goddess Salini. Yeah. Actually, that's what you do, isn't it, with fossils and stuff, isn't it? If you're not sure if you've got fossilized dinosaur poo, for instance, you can lick it, and it'll be slightly tacky to your tongue. Really?
+
+[00:07:20] Come on. It's a long time since it's been in a dinosaur, guys. If you find a plastic bag hanging up on a tree and you're not sure if it's a meteorite, Do not do that. Well, that's like farmers eat their soil, didn't they? Sometimes. Some farmers taste their soil to see if it's fertile. And then the other way is by sitting down with your bare bottom on the soil.
+
+[00:07:43] Yes. What's that for? If it sits just for show. It's like to check if the frost. It's a warm enough. Yeah. So the soil's warm enough if you drop your trousers, sit on it, and it does not sort of sore. Does anyone do that?
+
+[00:07:59] No. So it's not a common practice these days, but... Although I keep a pair of underpants buried in my back garden. We all do that. Why do you do that? This was official advice from someone or other. Not to me, like to farmers. And the idea is you put your underpants in your back garden,
+
+[00:08:17] and then you go back a few months later and you check if they've been eaten away by all the microbes and stuff. And you'll always know, because the microbes can't eat the elastic band around the same. of it, but they can eat the cotton. And the purpose? To see how... I mean, no, like, if the bacteria have eaten them, then what?
+
+[00:08:36] Then you've got good soil and you can plant stuff. And if they haven't, then you have to put some fertilizer in. Also, you've got a free thong at that point. So, I was reading, you know, in movies, how there's always, like a sci-fi movie, or starting in Antarctica and a meteorite has landed. and Antarctica always seems to be associated with finding big meteors, meteorites. And I thought I was like, is that because of the poles
+
+[00:09:06] and it attracts as the meteorites coming in? And then I read this article. It turns out the reason they go there is because they're much easier to find because everything's white. So they just stick out. Is that amazing? I thought there was like some deep, amazing alien life kind of thing.
+
+[00:09:21] No, it's just like, oh, there it is. Way easier. So much more simple than trekking through a forest full of rocks. It's true. Also, not many humans there and other people to disturb it, right? Yeah. Because they're black, aren't they, meteorites? That's sort of lessons on how to spot them.
+
+[00:09:37] And so another place where it's really common for meteorites to be found is Morocco. So for a country of its size, it's got, like, by multiple factors of 10, more meteorite findings than any other country of its size in the world. And this is just because this guy in 2006 decided to start teaching people how to spot a meteorite and it's become a proper career for a lot of the nomadic people in Morocco, they go around finding meteorites. So a lot of them make money out of this and it's actually where the most important meteorite probably ever found, was found. It was one that came from Mars. It was in 2011 and it's like this whole jumble of rocks that are thrown together and also it's kind of full of old Mars water.
+
+[00:10:16] So it's the first kind of evidence that we have of that. But the cool story about this is that it was found by this guy who'd had lessons that they have in Morocco on how to spot a meteor right and he saw it I think it was on sale in a market it's called the black beauty stone now but it was on sale in a market and he looked at it he was tempted and then he said no no I'm not going to buy it
+
+[00:10:37] he drove away he changed his mind he drove back and then he bought it and he was driving he was on his way back from the hospital from having a gall stone removed so he had one stone removed and then he immediately got another stone yeah
+
+[00:10:52] you're saying this in the way that Dan says things sometimes. Is that what I sound like magic? I am so sorry. Hey, we need to move on shortly. You guys got anything before we do? Can I give you a list of other things that have been used as door stops over the years?
+
+[00:11:13] Yeah, sure. It is unbelievable how careless people are. So it's just like everything valuable you've ever heard of. In 2016, a Chinese vase being used as a doorstop were suddenly sold for $860,000. In 2014, a Chinese pot sold for $150,000. A Ming vase in 2012 sold for a million.
+
+[00:11:34] The world's largest sapphire in 1947 was found in Queensland. It had been used as a doorstop for nine years until the owner looked a bit closer. A bronze-age dagger that was worth $50,000. In 1802, a lump of gold had been used as a doorstop for three years until a jeweller who was visiting this house saw it,
+
+[00:11:55] and it sparked America's very first gold rush, so in North Carolina. And finally, a can of tinned veal that was left in the Arctic by William Parry, the Explorer, in 1825. It was rediscovered by another explorer in 1829 and used as a doorstop for many, many years, and finally opened in 1958. Yeah, it got that reaction, I think, from the people who opened it as well. Okay.
+
+[00:12:22] It's time for fact number two, and that is my fact. My fact this week is that there is a unique species of ant that only lives in 10 blocks of New York City. They call it the Manhattan. So, this was sent in to me, actually, by a guy called Justin Hince. And it was that this biologist discovered this species of ant, which lives between 63rd Street and 76th Street in New York, which is in Broadway, in Broadway, Manhattan.
+
+[00:12:55] And yeah, and they were looking at it And they noticed that it was unlike any of the 13,000 other species of ants That have ever been catalogued. They thought it might have come from Europe, But they can't trace it to any known ants. So that is, they've got this one city dwelling That has evolved to be its own species. And Manhattan...
+
+[00:13:14] How do you look at an ant And then immediately access your mental catalogue Of all the 13,000 other ants And just eliminate them all Unless it had something... extremely different. Like it had an extra leg or... It was driving one of the yellow cabs.
+
+[00:13:30] That's what that hasn't said. Get out of you. So they eat so much junk food and the scientists who was studying this said that the pavement ant eats so much shifting their diets to more human foods that it's actually changing the chemical makeup of their bodies to look more like humans.
+
+[00:13:50] Which sadly is not as exciting a sentence as I thought it was. I think they mean internally as opposed to like got a face. Alts have got faces, surely. Oh, but just imagine like my face on an eye. Yeah, so yeah, and they don't get diabetes, though, so that's a thing that separates. Do they? So other ants get diabetes do they?
+
+[00:14:17] No. Oh. Sorry, you say it. Compared to the humans who are eating all the fast food, I think was your point, right? Yes, yeah. Yeah, they're very good at digesting it. Fast food is actually sort of made for ants, it turns out. Exactly.
+
+[00:14:30] Got it. Not for us. The coming human ants don't get diabetes so they can keep eating. The scientist who did that, he was called Clint Pennick, and he was talking about the study. He was interviewed about it. And he said, when he was doing the study, nobody ever talked to me. I basically was walking around and then crouching down on the ground and huffing something off the sidewalk through this ridiculous looking device. And not a single New Yorker was like, hey, what are you doing?
+
+[00:14:52] I guess I was not the weirdest person on the street. Now, that suggests to me that he was the weirdest person on the street. You don't tend to talk to the weirdest person on the street, mate. That's not what everyone does. So New York has a few other species, doesn't it? That's so unique to it. They have a unique centipede. They have a sweet bee.
+
+[00:15:11] They have a white-footed mouse with small ears. They also found in New York in 2014, the first new amphibian that's been found in the state for 150 years. So a frog, a leopard frog. and so for more than a century there's been two types of leopard frog living in New York and people have been arguing over it. Scientists have been arguing because there seemed to be so much variety
+
+[00:15:34] in the different leopard frogs. There was this big debate that went on and apparently lots of discord and backlash from one scientist to another about theories as to how come there was so much variation with these two species. And a herpetologist in 1936 called Carl Cofield said, actually I think this two species
+
+[00:15:51] might be three species. and it caused such massive controversy and there was this bickering and all this strife that people refused to accept it in the scientific literature his theory was absolutely rubbish and that was 1936 and then in 2014 we went oh yeah he was right there was another one so quite sweetly it's called the Rana Calfeldi after him
+
+[00:16:10] but presumably he's long dead long dead yeah but he's somewhere he's happy right I think it's another New York discovered insect so this was This is an insect that doesn't live in New York, but it was discovered by a New York scientist, and it is a new type of beetle, and they didn't know it existed, but they discovered it because it was attached to an ant. And what it does is this beetle, when it wants to get to places, it goes up to this ant, and it bites onto its anus, and it grips on and flips underneath.
+
+[00:16:41] So the thorax, it's in between the thorax and the admin, adminum. Admin. Oh, sorry, I'm going to add. Abdomen. Thank you. So they were studying this ant and they were like, it's got two of those. And they shook it and the beetle fell off. And that's what it did.
+
+[00:17:04] This is beetle has a unique way of transporting itself by biting the bum of the ant and getting transferred. So does the ant just think it's got two bums? The ant doesn't seem to have an issue with it. Yeah, I don't know. So ants are pretty amazing. I really like this ant I'd never heard of. It's called the Azteca Brevis ant. It's in Costa Rica.
+
+[00:17:23] and it catches prey that's more than 50 times as heavy and as large as it is. And it does this by, so they all work together and they nest in a tree, but they build this network of tunnels within the tree with tiny little openings out through the tree bark that are just big enough to fit the little ant's heads. And so it looks a little bit like holy cheese, like Swiss cheese or something. And their heads poke out, and then a big bit of prey will come along like a termite or something and will step on one of the holes one of its legs will fall into the hole
+
+[00:17:54] and the ant will bite the leg with its teeth so it's stuck and then this thing kind of struggles to get away and another leg falls into another hole another ant bites its other leg and eventually all his legs end up in the holes with ants teeth biting into it and then the other ants all emerge and tear it to pieces
+
+[00:18:10] and have it for dinner but so it's sort of spread eagled on this tree is there a happy ending at all to this story? If you're an ant oh sure it's a hell of a nice story. Yeah. That's really horrific. Just stuck there sprawled out. It's like the scene in the
+
+[00:18:26] zombie film where all the hands come through the wall. Yeah. I haven't seen that scene, but it sounds like it is like that. I found an ant called Cericomerex amabilis, and it's a farmer ant, so it farms fungi. It literally makes little scrapings and grows fungi to eat. But there's another species
+
+[00:18:42] which is called megalomermex Semeticus, and it comes in, it comes into the first ounce colony. It doesn't do any work. It lives the colony, it eats the fungus, the first act has made, and it also eats the babies that the host is rearing, and the hosts do nothing
+
+[00:18:58] about it. They don't take any defensive action. That is not much of a house guest, is it? And then he stole their precious door stop and fucked off. Yeah, there was nothing in the fridge. I hope you don't mind, so I ate the baby. But there's a
+
+[00:19:16] reason that it's tolerated, and the reason is that second ant contains a venom in its body which helps to repel an even worse invader ant. What is that guy doing now? What is worse than eating the babies? I think maybe those guys just completely destroy that. I don't know, they might destroy the nest or something. Wow.
+
+[00:19:36] Yeah, so they have to put up with these really difficult guests because they know that it's protecting them against something worse. I was reading an article in Cosmos magazine about ants, and I'll just read the start of that, in a behaviour that finds a broad comparison with human beings. tradition, a genus known as turtle ants, pass on possessions from older individuals directly to younger ones. In a mechanism that does not, however, find a human analogue, they do so through their anuses. Wait, wait, wait. What about that scene in Pulp Fiction with a guy who puts
+
+[00:20:10] the watch up his anus? I haven't seen that film, but... Well, someone must know what I'm talking about. There was definitely one guy up there who got it immediately. Yeah, exactly. Christopher walk in but to watch up his anus then gives it to his son. So actually there isn't analog in humans. So these turtle ants basically, it's like a fecal transplant that the adults give to the babies. And basically, if you don't get that fecal transplant from your parents, then you would starve
+
+[00:20:40] because you wouldn't have the right bacteria in your stomach. So they do need it. Oh, wow. So there's a story with a happy ending. But a gross middle. There was going to be a really exciting game. There was a kick-started game that reached funding, and it was called Ant Simulator.
+
+[00:20:58] And it was a, it sounded really cool. So basically you would manage an ant colony. Like you would be the main ant, and you would be like, get over there. This is one of these New York ants, is it? Yeah. And so it looked really amazing.
+
+[00:21:16] And it had, I think, three people who were like the main people behind it. And unfortunately, it's not happening and the reason is because of they captured it I think perfectly in the headline Ant Simulator cancelled after team spends the money on booze and strippers two of them went off, had a massive night
+
+[00:21:33] and this guy had to make a video going I'm so sorry ad simulator can't happen anymore and we can't give you back your money either that is typical entomologist behaviour you know they're always doing that kind of thing can't be trusted we're going to have to move on soon to our next fact they fake injury
+
+[00:21:50] ants to get sympathy. So they carry their injured home and ants have figured this out. This is the Ronaldo ant isn't it? I've seen this it's amazing. It just it just grazes a leaf and it goes I am so impressed that you knew the name of any footballer. So the Ronaldo ant, ants if they're injured they carry each other home and so some ants really overemphasize injuries so it was found ants have been witnessed moving really, really slowly, or limping or falling over. I don't know how an aunt falls over, but they do, in the hope of being carried.
+
+[00:22:28] But then if no one helps, they look around and then they get back up and they walk on like nothing's happened. Okay, let's move on. It is time for fact number three, and that is Chisinski. In my fact this week is that the slinky business almost went bankrupt because the Slinky's inventor kept giving the proceeds away to religious cults. It's amazing. Yeah.
+
+[00:22:54] So this is it. The Slinky was invented by a guy called Richard James, who was an engineer. It was invented in 1943. He worked on a Navy shipyard, and he was working on a bit of equipment and noticed some springs acting oddly, walking. And so he said to his wife,
+
+[00:23:09] I think I can make a toy out of this. And it was huge, and it sold out, and he got very rich. And then he turned to religion, Christianity, to be specific. and he started giving away all this money and his wife was like oh my God we were almost broke we were almost completely out of money
+
+[00:23:27] because he just gave it all away to various cults and then he ran away to Bolivia to join one of them in 1960 and did not speak to or see his family again or the slinky he did occasionally write letters to his wife Betty urging her to repent so that is something
+
+[00:23:44] yes yeah yeah so the invention was an amazing invention and it caught on quite quickly with his initial batch. He sold something like 400 in 90 minutes. Once, all they had to do was bring it to the front of a store and just show people it going down a couple of steps. And it just, everyone was like, got to have it. And then there was a few years where it just,
+
+[00:24:03] he needed to get it manufactured and people wouldn't buy into it. But he not only invented the slinky, he invented the machine that makes the slinky in a quick sort of like mass product way. So a slinky, and I don't know if it's still to this day the same length, But the original slinkies that he made, if it was the coil was laid out, just straight as a coil, it's 80 feet long each slinky. He created a machine that coiled it up in 10 seconds, and then it was good to go.
+
+[00:24:30] So he has a patent for an invention as well as the toy invention. Oh, that's cool. The patent for the original slinky said that it could be used as both a child's amusement and for parlor games. Oh. Okay, so I couldn't work out what parlor games there might be. But I went on to the internet, and apparently there was once a game. that was sold called Slinkum. And it was like a little ramp
+
+[00:24:53] and it had boxes at the bottom like squares and you would put your slinky down the ramp and whichever square it stopped in, that's a number of points you got. And obviously they weren't that confident about how good a game it was because the rules offers a bounty of $25 for anyone offering a suggestion
+
+[00:25:09] of an improvement of the game. That's amazing. So good. Do you know what the quality control is in the slinky factor They test whether or not they can walk into their own box Wow If they can do that then they're a high quality slinky Down some stairs, right? I think they put them down some
+
+[00:25:32] I think they put the boxes at the bottom of stairs and their final Challenge that is amazing it won't walk if it's too tight or too loose won't walk in What's you know another weird thing is that so he invented this while he was working for the war effort and it was a sort of the side project as Anna was saying found a toy when it fell off the thing. Yeah, so what he was doing just on that is there was a, like a meter which would tell you the horsepower of the
+
+[00:25:56] ship that he was on, and he needed a dampening system to stop it from bouncing around everywhere, so he was using springs to do that, and then this spring happened to be great at doing other things. Yeah, so he saw that, and he made it as a toy. No intention for use of war. Then years later, the Vietnam War
+
+[00:26:12] happened, and Slinkies were actually used in the war, because what they were fantastic at doing was if you were stuck in the of nowhere, you would throw a slinky up into a tree and it could act as a sort of antenna for radio signals that you needed to be sending. So it ended up becoming an actual use for war. No way. That's so cool.
+
+[00:26:33] Way. Wow. Yeah. Here's a use for a slinky. You can use it to get rid of squirrels. You put a squirrel on one and then send it down the stairs. No, you don't do that. And then it goes into its box and you slam the lid shut.
+
+[00:26:54] Now, what you do is you put it on your bird feeder. And then when the squirrel comes along, he kind of grabs onto the slinky and the weight pulls the slinky down. And he's kind of pulled down in like a little elevator ride. There are videos online, aren't there? They are unbelievable. Hours of fun. So when you drop a slinky, the bottom doesn't know that you've let go of the top at first.
+
+[00:27:19] This is... Yeah, this is true. I don't think it even knows it's a slinky, I mean. So, this is my down fact of the show, and I'm playing it now. Check it out. Go home. Go to the slinky cupboard and check it out.
+
+[00:27:36] So it looks like it's floating. The bottom looks like it's floating because it's a tension spring. And when you let... Sorry, you're holding the slinky not scrunched up, right? So you're holding the very tip of it. So it's really dangling down a long way. Your squirrels just come off the bottom.
+
+[00:27:51] Exactly. It's loose at the bottom. And when you let go of the, as you say, the top bands, it takes time for the motion to tell the bottom of the slinky that the top and the tension have been released. And I read that... You're not a physicist, are you, Andy? Well, not by trade.
+
+[00:28:09] But I couldn't quite believe this. I read that this happens even to solid objects. So if you drop a steel rod, the top starts accelerating before the bottom does. Yeah, because the vibrations need to travel down, don't they? It's basically the tension is pulling up at the same rate as the gravity is pushing down. Yes, so the tension, once you've released it with your hand, it needs to travel down the slinky before the slinky nose at the bottom.
+
+[00:28:34] Oh, that tension's been released now, and it is amazing. You should watch it on YouTube. The slinky, it just levitates. The bottom just levitates. There's a very good video on, you know, the Veritasium YouTube channel. Wow, is that... Do you make that channel? And yeah, it's incredible.
+
+[00:28:51] It's magic. It's magic. You just ruined all the signs of it. Yeah. I think we should say about the slinky, but the hero behind it wasn't the guy who made it and then turned to a Bolivian cult. It was his wife, Betty,
+
+[00:29:05] who was the person who saved it. So she became determined to make it work. And she made this 450-mile weekly round trip to the factory and punt all their remaining money into it. She gambled their entire morning. on a toy show in 1963 in New York, hoping that people would go for it. She launched the advertising campaign,
+
+[00:29:25] she gave it a jingle, and she suddenly built from her ruined marriage this great little toy. And I think it might have been her idea to do the dog, because the dog really gave it a boost. Yeah, and a train as well. So the dog is, picture a toy story in your head, and the slinky dog, that's literally it.
+
+[00:29:45] And when the movie came out, they weren't prepared for the fact that it was going to be massively popular. So they just, they didn't have the quantities that they need for merchandise to come out at that point, which seems impossible as a thought,
+
+[00:29:57] doesn't it? Yeah. Well, they did a range of things which were all Slinkies in the middle and then other things at the front of the back. So they did the dog, they did the train. There was also a caterpillar, a hippo, a fire engine, a worm, and several more.
+
+[00:30:09] But they all had the, they were all the same thing. You can buy, at the moment, you can buy sound effects Slinky for $12.99. And as it goes down, it makes a sound splat, boing, and thwap. But I kind of think the sound is quite nice anyway, isn't it, what a slinky makes? You could also, for $153.99, buy a 14-carat gold-plated slinky.
+
+[00:30:34] Just to keep your door open. We're going to have to move on soon to our next fact. Oh, I was just looking at some other toys. Mr. Potato Head, the original Mr. Potato Head, did not come with the potato head. It was just the bits on his face. So it's got, you ordered a miss a potato head, or you went and bought one, and it was just like bits of moustache.
+
+[00:30:59] In fact, I think the original one came with hands, feet, ears, two mouths, two pairs of eyes, four noses, three hats, eyeglasses, and a pipe. But, and some felt for the moustache. But the idea was you should use one of your own potatoes. So you should put it in a real potato. I think I actually remember having one of those. With an actual potato. I believe so.
+
+[00:31:17] Unless you're going to tell me it was in the 1920s or something. I think you might be lying about how old you are, James. Because, I haven't written down the date here, but I think it was in the early 70s when they decided that... I was alive in the late 70s, so... Maybe. Yeah. Do you remember?
+
+[00:31:33] It was what... They decided that the pins needed to jab into a potato were too sharp and contravened health and safety, and so you could no longer stick it into a real potato, so they had to come with a plastic potato. Oh, really? Do you know who invented paint by numbers? I love that, though.
+
+[00:31:49] Yeah, it was Michelangelo. Not the turtle, Dan, not the turtle. He's a party, dude, you know. He used to assign sections of his ceilings for his students to paint. And the way that he would do it is he put numbers there so they knew what to paint. But the modern one started in 1952, and Macy started selling this. And a few months later, it became massive because an amateur painter won third prize a San Francisco art competition
+
+[00:32:21] by doing just to paint by numbers. Wow. And the press coverage just said that no one could tell the difference between real painting and this and then it became absolutely huge. Wow. Oh my God. That's so... I can't believe Michelangelo did that. Yeah. That's really funny.
+
+[00:32:37] He ruined his own profession in a way because once you're painting by numbers, anyone can do it. And that's why there are no artists around today is because we're all just doing paint by numbers. Okay. Should we move on to our final fact of the show? It's time for a final fact of the show, and that is Andy.
+
+[00:32:55] My fact is that when zebras are running away from a lion, they fart loudly with every stride. And who's to say, Andy, that you wouldn't do exactly the same thing in that situation? Sure, I would. Fair play. But they're quite gassy animals, and the motion propels the gases out of their bodies when they start running. Does it push them forward quicker? I think it does, yes.
+
+[00:33:22] And you can hear them from quite a long way away. So there's a new book out, and it's called Does It Fart? And it's by Nick Caruso and Danny Rabayotti, and it's an absolutely fantastic book. So they're scientists, and they started collecting animals and writing little essays about whether or not those animals fard. And it was a spreadsheet that turned into a book, which is my favorite kind of book.
+
+[00:33:49] And they got information about all kinds of things. So there are termites in there. There are dinosaurs. Dinosaurs, the ruling is, not anymore. There's a thing about termites. The amazing thing about termites, termites each produce one half of one millionth a gram of methane per day. Okay, so not very much.
+
+[00:34:10] However, unfortunately, there are so many termites that they produce between... Now, this is a wide range, so steady on, but they produce between 5 and 19% of methane emissions globally. between what and what? Five and nineteen. That's a lot, guys. It is a lot.
+
+[00:34:27] Kill them. This is why the answer trying to kill them. That's your answer to every problem, Adam. Well, I've got a very hawkish approach to termites. Yeah, it does sound like an incredible book. So a couple of other things is sloths don't fart. So most animals do fart. Sloths don't fart because their digestion is so
+
+[00:34:51] slow like all the rest of them, that it would take them so long to work through the farting process that the gases would build up inside them and become poisonous. And so instead, they are reabsorbed through their intestines into their bloodstreams and then those gases are taken up to their lungs and they breathe them out instead. So I desperately want to know what a slow breath smells like. Ah, yeah. The early morning used to be called sparrow fart, which was just the time of day, you know, sparrow fart. It's so early that the sparrows are farting, I suppose. But think about that, sparrows don't fart. Do they not?
+
+[00:35:27] Nope. Is that true of all birds? All birds don't fart, or no birds fart. Why do they not fart? They've got very short intestines, and they poo very frequently. And the main reason is that they... So the reason you fart is that you have a build-up of gas, which is due to gas-forming bacteria in your gut. than that before. So humans and mammals do have those
+
+[00:35:51] bacteria and birds don't. So that's the reason they don't. Okay. I was checking if humans might fart if they're being chased by stuff. And James has been to the zoo today. And I went on to runnersworld.com
+
+[00:36:07] and apparently this is a problem that lots of runners have. They're farting a lot while they're running, right? And they say that the reason is all that... People have told me and people have told me. me that's true, sorry. I felt as I was agreeing with that, that it was too
+
+[00:36:23] enthusiastic. So anyway, apparently what it is, is it's all the heavy breathing. So you're taking in a lot of gas and it has to go somewhere and that's what happens. Really? Yeah, apparently. And you need to poo as well. Runners' diarrhea
+
+[00:36:39] is a serious problem on running forums. Hey. Hey. Hey. Does anyone else feel like they're a help group? Sorry. Sorry, I forgot everyone was here. Okay, I do have a question, and I'm not a physicist, but I do have this question.
+
+[00:36:59] If you're running and you break wind, let's say you're running at 12 miles an hour, and you break wind at four miles an hour out the other way, I presume that the wind that you break is still travelling at eight miles an hour in your wake. Okay, I've got a lot to tell you about relativity. That's correct. We'll do it after the show.
+
+[00:37:21] Okay. I think that works. Yeah. One of the good farting animal is the pup fish. So I think this is in the book as well, but it eats algae. But the algae has such high levels of gas in it that the pupfish's stomach inflates, fully inflates, and it floats the top of the water. And that's a really, really bad place for it to be because it exposes it to lots of predators. So the moment the pupfish has a meal of algae, it has to fart to save its.
+
+[00:37:49] its own life. And so it pops straight up to the top and is desperately trying to expel wind constantly to sink back down again. It's extremely stressful. It's a race to the bottom for then. Maybe some stuff on zebras. Here's an amazing thing about zebras when they're being chased by a lion. Not only do they do what you said, but they only run about half their top speed when they're being chased by a lion. What? So basically what happens is if you're going at your top speed and you're running, it's really easy for the lion or whatever to tell where you're going to be in like two strides time. So what they do is they go at half of their speed and then when the lion gets anywhere near them, they just go in a different direction
+
+[00:38:31] and then they go really fast and then they'll slow down to half their speed again and then wait till the lion gets to them and then speed off really quickly again. Wow. That's smart that isn't it? Very clever. Did you read about this ridiculous story in 2001 where some farmers brought in the UK bought a Shetland pony, you know, a really small pony and then they were surprised when they woke up one morning and they went out into the field and there was their Shetland pony
+
+[00:38:58] in there but also a tiny, tiny zebra. And it was because they hadn't realised they'd bought a pregnant Shetland pony and they bought it from a wildlife sanctuary where it was sharing a field with a zebra. What? Wow. What?
+
+[00:39:12] The women did say, we had thought that she was getting fatter, but it really was a bit of a shock when we got up one morning and we saw that full zebra was there. We realised then what had happened. I have a related fact to that, which is that I think it's in Georgia. There are dogs who are supposed to be guarding sheep,
+
+[00:39:31] and they keep on having sex with the wolves. They're meant to be defending the sheep from. Well, I guess it would put the wolves off what they were supposed to be doing, isn't it? That's true. It's the seduction method, but they keep on, they keep testing the dogs as well and finding out, half wolf because your parents were a wolf and a dog.
+
+[00:39:53] That is amazing. But in the line of duty, James Bond does it all the time. He does. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts.
+
+[00:40:19] I'm on at Shreiberland, Andy. At Andrew Hunter M. James. At James Harkin. And Chisinski. You can email a podcast at QI.com. Yeah. Or you can go to our group account, which is at no such thing. Or go to our Facebook page, No Such Thing as a Fish, or our website.
+
+[00:40:33] No Such Thing Asafish.com. We have all of our previous episodes up there, all of our future tour dates and a link to our books. So please do go there. Thank you so much, guys. We'll be back again next week. Goodbye.

@@ -1,0 +1,243 @@
+# No Such Thing As A Fish - No Such Thing As A Permanently Latvian Bear
+
+- Episode date: August 2, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-permanently-latvian-bear
+- Slug: no-such-thing-as-a-permanently-latvian-bear
+
+## Transcript
+
+[00:00:02] To another episode of no such thing as a fish, a weekly podcast this week coming to you live from Oslo. Dan Shriver, I am sitting here with Anna Tazinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with you, Andy. My fact is that there was once an Olympic sport where you had to dive into a pool and then glide along for a minute. It was scrapped because the main factor was how heavy you were.
+
+[00:01:03] Don't you think, though, like the main factor in the running race is how fast you are, so why is it not fair to how heavy you are? Completely, that's fair. You can train to be heavy in the same way. You can train to run fast, really. I guess so you could see the winner coming along before the game
+
+[00:01:21] even starts, right? He's got gold. Well, this was a thing called the plunge for distance, was the official name of it. So basically, you dived in, you weren't allowed to move, you weren't allowed to swim at all, you had to keep your head under the surface of the water, and then you were timed, and they saw how far you would get in either 60 seconds or until you put your head up above the water. Another thing is, it's not a great spectator spot, is it? It got called competitive floating.
+
+[00:01:54] It's the least... spectatory sport imaginable. It happened once in St. Louis in 1904. Yeah, and there were lots of reviews at the time, which were pretty negative. People said the competitors merely throw themselves heavily in the water and float along like
+
+[00:02:09] icebergs in the shipping lanes. And this was in St. Louis in 1904. Yeah, that's right. Okay, so there was lots of great things that happened in that Olympics. In the water polo, the Americans said that instead of
+
+[00:02:25] having a fully inflated ball, you could have it slightly uninflated, if that's a word. But actually, to score a goal, you had to hold the ball underwater in the net rather than throwing it. And the Germans thought that this was complete nonsense. They called it soft water polo and refused to compete. Two of the winning American water polo team were dead six months later, and they think it might have been because the matches took place in the lagoon that was used as a sump for the animal and vegetable waste from all the other exhibits. Wow.
+
+[00:02:59] Oh, God. And the Germans, they brought their own diving board for the diving competition. It was made out of a special coconut matting. And they insisted that all the scoring be on the acrobatics you did in the air, and it didn't matter how you entered the water. Yeah, that was a massive controversy, wasn't it, in the diving? And this was what was called the Fancy Diving, which is what used to be the name for the high...
+
+[00:03:25] dive basically. And yeah, I think the person who won was an American and the guy who'd made the trophy to present to the winner was German and he refused to hand over the trophy because he was so outraged. This is bullshit. He just landed well. The stuff in the air was useless. It was a very interesting
+
+[00:03:43] Olympics. It was only 12 countries competed in the 1904 Olympics and it largely was because no one wanted to go to St. Louis. They just thought, it's too far away, it's inaccessible. But the American said, okay, well, we'll just put more people in. So 81% of the people
+
+[00:03:59] who competed in the 1904 Olympics were Americans. So there were 630 athletes in total, 523 were Americans. They won 239 medals. Still a record to this day of most medals won
+
+[00:04:15] by a single nation in an Olympics. I think the runner up was Germany who got 13, right? But this is a thing, this is a controversy. In fact, even Norway, so the USA... That's where we are if the listeners haven't realised. So the USA fielded athletes who were immigrants from Europe
+
+[00:04:39] who hadn't actually become US citizens yet. So they really weren't, they shouldn't have been competing for the USA. And the Norwegians were still annoyed about this in 2012. There was still officially requesting that the results were changed. 108 years after these Olympics. We've got to write historical wrongs where we can. You know James, you were saying that I think you said the Germans brought their own dive board. Yes.
+
+[00:05:12] Well, actually, generally people did bring their own dive boards to diving competitions. So this was until the 1960s, basically. So the diving board that we know today, which is the really springy one, and you know when you see them dive, and I always think it's going to snap because it bends so much. And that was invented by a guy called Raymond Rood. And he sort of tried it out. I know, it's a good name. He tried it out in a neighbor's garden for a few years, and it worked.
+
+[00:05:37] And so he brought it to the Olympics in 1960. But before that, divers would just bring their own boards. And then they'd get there, and they'd sometimes do some swaps, and they'd try out each other's boards to see which ones they liked. And it was only when he brought his, and everyone requested his to the extent that he had to, like, telegram back or whatever, to send some moreover, because it was so in demand, that people were like, should we just use this one?
+
+[00:05:55] Did they bring the ladders as well Or is it just the I don't think you need a special ladder so much So I think To get up Yeah No I agree you need a ladder Yeah
+
+[00:06:05] Yeah Unless you're also very good at the high jump Well there might be What an event that would be Where you do the pole vault onto it And then dive off it Do you know how they make those Aluminium boards
+
+[00:06:24] It's very cool So they're made of aircraft grade aluminium, which I didn't know, and they take a massive cylinder of aluminium, and they heat it to a very high temperature, and then they squeeze it through a massive press with thousands of tons of pressure on it. So it's like pushing it through a toothpaste tube, basically.
+
+[00:06:41] Oh, cool. Just sort of very hot aluminium toothpaste. Well, the first one was made of a plane wing. In fact. Sorry. The first one was made of an aeroplane wing. I heard penguin. I heard penguin as well.
+
+[00:06:54] Yeah. I mean, their wings are kind of flat, aren't they? They're almost like diving pods. Quite bouncy, blubbery quality if you get them in the right season. And here are the Antarctica team. Sorry, an aeroplane wing. Wow, it was actually made of an airplane wing.
+
+[00:07:15] That's cool. Somehow less funny than a penguin. I know, I know. That's a long diving board, though. I think he sort of cut it up. Okay. You don't want to be tired by the time you've got to the end of the diving board. No, exactly.
+
+[00:07:31] Ideally, you want somewhere between a penguin wing and an aeroplane wing, don't you? That's the official measurement. There was just another Olympic thing. So in 1896 in the first Olympics, there was the hurdling, and there was a massive difference between the American team who could run and then jump over the hurdles, and the Greek team, who would run up to the hurdles, stop, jump over, and then start running again. Who won? So amazing.
+
+[00:08:01] Was that part of their rules? Because they can't have thought that was the best way to do it. Well, no one had ever really done it before. It's the first Olympics. Wow. No wonder the Greek Empire fell in the end. Wouldn't be your instinct. Just on diving.
+
+[00:08:19] So in Norway, the Norwegians like to dive. And specifically one particular kind of diving called, I think it's Durd Singh. Is this a thing? Yeah. It's insane. So this is, I think the translation is death diving, or deathing, basically. And it's an annual thing. And essentially, it's a belly flop from 10 meters high.
+
+[00:08:40] And so you get on this diving board. Has anyone ever been to one of the competitions? Yeah, quite a few people. It sounds insane. So I was watching a lot of videos of this today. But basically, these mad Norwegian people go up 10 meters high, and then you have to throw yourself off, and you basically do as many impressive things in the air as you can,
+
+[00:08:59] and then you're judged largely on how quickly you scrunch up at the end and kind of avoid literally splitting your body open. But it's really funny to watch because the commentary is just these two guys who are just constantly going, oh, oh, oh, oh, oh, oh, oh, God. Insane. So there's a dive which is theoretically possible. There's a pair of mathematicians in the University of Australia
+
+[00:09:27] They've come up with a dive because you know you have all these different twists and somersaults and turns and all this stuff So they've calculated a dive that they insist is must be possible Which is you have to do one and a half somersaults and five twists and that's in 1.5 seconds Between Stuyves-Fall and thing and so they say they've simulated it and they say it's possible and any diver that has been asked has said no we can't do that It is done by mathematicians rather. Yeah. By biomechanical scientists. It feels like they've just found a perfect sphere
+
+[00:10:02] with no air resistance and just... I don't know. But I so desperately want to see a cue of scrawny, pasty mathematicians being forced onto a diving board to prove they're working. We're going to have to move on in a second to our next fact.
+
+[00:10:19] Oh, just a couple more Olympic things maybe? Yeah. Yeah. So at the first ever winter Olympics in 1924, seven people who won medals were dead. Is that the event where you had to go under the snow for as long as possible? No, the medals went
+
+[00:10:38] to people who had achieved great things in mountaineering. And so the British expedition to Everest in 1920 won, despite the fact that a lot of people had died. Just one more mad Olympic sport that doesn't exist anymore. In 1908 in the Olympics, this was in London, in fact, dueling was a demonstration sport there and it was really great so it used a real gun
+
+[00:10:58] but it was wax pellets so theoretically they couldn't they weren't supposed to kill you they did travel at 87 metres a second so they're going quite fast and then they splat you expand with a splat like an incredibly dangerous paintball and yet they wore some protections
+
+[00:11:15] so they protected like their extremities and they wore big head protection otherwise it would kill them and the winner so they also wore this big black cloak all over themselves. And on the cloak, in chalk, they had drawn out where all the vital organs are. And then they did the duel. And the winner was the person who hit closest, because it made a mark, hit closest to the most
+
+[00:11:37] important vital organ. That's amazing. So good. And I was reading an old newspaper report of it. And there was one pistolman, who I'm going to assume was a Brit, who said, apparently he announced his intention to forego the head protection, preferring to rely on the gentlemanly on a that it was bad form to aim for the head. Just on a similar thing, in 1924, in the fencing competition,
+
+[00:12:03] the French judge and the Hungarian judge really fell out and decided to have their own jewel. That November, after the games, they met on the Yugoslav Italian border and dueled for over an hour until both men were seriously injured and nearby people had to stop the contest. Wow.
+
+[00:12:23] Okay, it is time for fact number two. and that is Chazinsky. My fact this week is that at polar park in Norway you're told not to wear wool clothes in case the wolves confuse you with a sheep. So this is something that's a danger apparently. This is at polar park, which has anyone been? It sounds amazing.
+
+[00:12:47] Okay, so for those of you who haven't, it's this 300-acre wildlife park, and one of their main attractions is this wolf population that they've got there, and I was reading, article by someone who'd been and visited. And she said she didn't meet the wolves, so you get to meet them. They're sort of tame and
+
+[00:13:03] friendly, you're told. But at the same time, the main wildlife keeper says, you've got to be quite careful. So, for instance, they show lots of interest in anyone who is sick, limping or weak. You're told when you meet them to kneel down, not sit, so you can make a very quick
+
+[00:13:21] escape if suddenly they turn on you. And you're told to remove all your wool clothing. Otherwise, so I wrote to actually the main wildlife keeper, who's a guy called Stig Slessen to check up on this with him and I said is this true that you can't and he said yes people are told not to wear wool otherwise you might have naked
+
+[00:13:36] people running around after meeting the wolves is that sheepy smell they can't resist it there are a lot of things that they say you can't do if you're going there so you can't wear fur you can't wear gloves hats earrings you can't be pregnant you can't be under 18 and
+
+[00:13:52] if they knock you over you just have to lay there you can't move why because they might eat you I assume But if they've knocked you over They've got you right where they want you Yeah So you just have to
+
+[00:14:06] A wolf is a kind of animal That chases after its prey So if it knocks you over and you panic And you run away Then it might chase after you Yeah But how far into the process of it eating you If it does start to do that
+
+[00:14:17] Can you deploy Plan B Whatever that is Well it sucks when Plan B is try to outrun a very fast animal With neither of your legs left There was just one more weird thing that the wildlife keeper said to me in his email he said another thing that we ask people not to do
+
+[00:14:39] when they meet the wolves is related to the fact that wolves have very strong senses and they have a very strong sense of smell so we don't encourage people to have sex before meeting our wolves. What? Wait, do you mean... You don't mean ever, though. Bring another virgin for the wolves.
+
+[00:14:57] He didn't specify. Okay. So obviously wolves are a little controversial here because some parts of Norway have a wolf taxi, which is for children going to school in areas where there are wolves. Right, okay. But rewilding is a big thing, and the way that you can rewild the wolf is really cool. So step one is to watch the wolves in shifts to know when they're going to make. This is your... You need to have... Where are they? Sorry, are they in a zoo or something when you're watching the mall? zoo wolves to mate so you then calculate, because I think they're pregnant for about 63 days.
+
+[00:15:37] There are thereabouts. Yeah, yeah. And then you search for a wild pack, which has recently had puppies, and you track them down, hopefully they've got collars on, so you know where they are, and then you need to carry the new
+
+[00:15:50] puppies to the pack that you've found in backpacks, adorable, and you need to get to the wolf's den, and you need to go in, and then need to take your new zoo puppies and roll them around in the urine and the feces of the existing
+
+[00:16:07] wild puppies and you also and you sort of mix them up so they smell completely alike and then you retreat. Wow. Yeah. So you leave the puppies behind and then you hope that they blend in. Yeah. Isn't that weird? Imagine if you though were
+
+[00:16:23] visiting the park and you quickly needed a pee so you went into a cave, had a quick waz and then they shoved their faces into that you're now mummy. Is that how it works? Does it work? That's right. Hang on.
+
+[00:16:37] I thought, isn't that what you were saying? I don't think my urine helps anything, though. Okay. So the rewilding of wolves and birds, especially, around Europe, is quite big at the moment. You have quite a lot in France. You have quite a lot in Germany and Switzerland that weren't there even 20 years ago. I was speaking to my friend from Latvier and was asking him if they have them in Latvian. and I said, do you have any wolves there?
+
+[00:17:03] And he said, oh yeah, we've got loads of wolves now. So do you have any bears? And he said, we have one bear, although sometimes he goes over to Lithuania. So they have 0.5 bears. Bears are now extinct in Latvia. Oh, no, sorry. Great news.
+
+[00:17:22] So they do seem to be controversial here. Norway is split, apparently. We agreed on this over whether wolves are bad guys or good guys? Yeah, okay, so half of you were going to leave after I've said this But in 2009, one man personally offered a reward of 50,000 Norwegian Krona for information leading to a person who'd illegally killed a wolf So someone's killed a wolf, he says here's this reward, and in response to that he was completely, so he was vandalized, there was rubbish dumped in his driveway, like huge piles of garbage, all of his outbuildings and his fences were vandalized, and one night he was out of town and his wife woke up to allow buzzing noise to find a group of people encircling the house, marching around it, waving
+
+[00:18:05] chainsaws. Well, that's because he didn't make his house out of straw or twigs, right? There were licenses given out in Norway to shoot 16 wild wolves. The government decided on a cull, and more than 11,000
+
+[00:18:23] hunters applied for them. 11,000. But we were very into shooting wolves for a long time, weren't we? Back when we had them. Before we did the podcast. It was out on a shoot that we thought, you know, we should do a podcast. Do you know, just speaking...
+
+[00:18:43] Sorry, could you just... What were you talking about there? Yeah, so we were big into hunting wolves. So they are always the archetypal bad guy, the wolf rather than the bear, which is much more likely to kill you. And England had a serious wolf problem. It would kill lots of people's sheep. And eventually everyone got so pissed off about it that in the 13th century in 1281, King Edward I, commissioned a guy called Peter the Mighty Hunter Corbett.
+
+[00:19:08] Andrew Hunter Murray would be so much better if you had the mighty as well. That's a good point. I will consider it. You've got to earn a middle name like that, I think. And he definitely did. So he was told to exterminate all the wolves in England, and he did it. So apparently by 1290, all the wolves were exterminated. He'd earned his nickname.
+
+[00:19:30] England was rid of all the wolves. That was what was reported. There were no more deaths of, you know, livestock by wolves anymore. And he was known from then on as the Unimplied. There are some monkeys which have started domesticating wolves, we think. So this is really exciting. This is like dogs 2.0, basically. There are bits of Ethiopia where there are Ethiopian wolves,
+
+[00:20:01] which is a particular species and Galada monkeys and they're getting on really well and the wolves don't eat the baby monkeys when they're hanging around together and the Galadas don't object to the wolves so this is very similar to the way that humans domesticated wolves in the first place
+
+[00:20:17] and they will just sit next to each other for a couple of hours at a time just ignoring each other so they seem to be deliberately hanging out together okay so when we're traveling from one city to another and yours just sat there ignoring me? I'm... I'm domesticating you.
+
+[00:20:39] No, but... Yeah, anyway. The wolves seem to find it easier to catch rodents when they're hanging around with the monkeys, and we don't know why. Okay. So it might be there's a food reward in it for them. And so that will be the next big thing. Well, they... Big thing in what? In evolution. They're going to be the new humans and dogs, is what you're saying? I'm trying to picture it as the new humans and dogs.
+
+[00:21:04] It works. Well, wolves do team up with other creatures for hunting. So there was a great headline in the Washington Post, which was, wolves and hyenas hunt together. Prove Middle East peace process is possible. Okay, it is time for fact number three, and that is my fact. My fact this week is that this year, doctors in Vietnam saved a man's life by pumping 15 cans of beer into his body.
+
+[00:21:36] Imagine having to do that in Norway, you'd have to mortgage your house. So this is a guy who very sadly was dying from alcohol poisoning. He was, yeah, so not so funny now, is it? 48 years old and he fell unconscious. They took him to the hospital and he had huge levels of methanol in him. He had more than a thousand times what would be the recommended limit. And so, yeah, so basically what they had to do is they had to administer more cans of beer into him
+
+[00:22:13] because the idea was that they needed to slow down the metabolizing process that his liver was doing and by slowing it down and by putting in total these 15 cans one an hour they managed to slow it enough that they could fix him. Yeah, so what it is is that the beer contains ethanol and your body always does the ethanol
+
+[00:22:30] before it does the methanol. So you put all this beer in it's dealing with the ethanol and it gives you a bit of time to get the methanol out. But they did still need to suck the methanol out, didn't they? Otherwise, you just got rid of all the ethanol you've pumped in, and then the methanol comes back. How do you suck methanol out of someone? As in does it gather somewhere in your body? Yeah, it's through dialysis.
+
+[00:22:51] Okay. Yeah. So, the kidney? Yes. Yeah, cool. Sometimes it's just questions and answers. But he survived, so it's a good ending. That's a good story.
+
+[00:23:06] That's great. But don't try it on any old illness. I'm not sure we're recommending it, are we? No, no. Oh, well, some people recommended it. Oh, okay, yes, we are. But there are lots of medicines which used to be just pure alcohol, basically.
+
+[00:23:19] So in the 19th century, Lydia E. Pinkham's vegetable compound for female complaints. It said it was herbal, and it was entirely alcohol, basically. And it was aimed at women. The slogan was, only a woman can understand another woman's ills, right?
+
+[00:23:37] And women were encouraged to write to, Lydia Pinkham, who was the woman on the bottle for personal advice, and Lydia Pinkham had a very large number of typists who just replied for her recommending that these women take higher doses of Mrs. Pinkham's vegetable compound. They kept this going for 20 years after Lydia Pinkham died.
+
+[00:23:56] Wow. Really? Yeah. Eventually, I thought, she's been replying to these letters for a very long time. Yeah. It is effective, though, alcohol in a lot of ways. It's probably the most medicinally and not for easing social situations
+
+[00:24:12] just in medicine but I think it's probably the most effective medicine that existed in humanity for many thousand years in terms of its sterilizing qualities right it's amazing sterilizing if you've got a wound purifying water so the death rates
+
+[00:24:26] in the 19th century if people hadn't been able to drink beer instead of water a tap water in most places would have been much higher it's a relaxant and so there have been all these studies as well. And I might get into trouble for saying this, but it's genuinely, if you look rigorously at the research,
+
+[00:24:43] so there's a guy who looked at hundreds of studies into the effects of moderate drinking, and once you've controlled for all factors, so once you've controlled for like social factors, economic factors, age, weight, stuff like that, even once you've eradicated those, your increased mortality
+
+[00:24:59] if you are a heavy drinker or an abstainer is higher than if you're a moderate drinker. So if you're an abstainer, you have to a 51% higher mortality rate or risk than if you're a moderate drinker. And moderate is two glasses of wine a day. And how many have you had so far tonight, Anna? Right.
+
+[00:25:22] I've got very big glasses. I think it's weird. The recommended daily allowance is half of that. Just on the medical thing about how it was really important over history, one really weird thing is that the ancient Nubians used to make beer, and as part of their beer, they made this thing. called tetracycline. It was just kind of an off product of it. And this
+
+[00:25:43] actually is one of our greatest antibiotics which was only invented in the modern day in the 1940s. And so what loads of archaeologists have found is these bodies with this amazing modern antibiotic in it and they're like, where the hell has this come from? They said it was the equivalent of seen
+
+[00:25:58] an Egyptian mummy wearing Rayban sunglasses. Wow! But it came from their beer. That's very cool. Yeah. Incredible. See? That's very cool. You used to get prescriptions for alcohol sometimes during the days of prohibition.
+
+[00:26:14] So if you were willing to pay $6 for a prescription, you would get a pint of alcohol in America when it was banned. And one of the people who did this was Winston Churchill. Right. So he was in America in 1931. He looked the wrong way when he was crossing the road, and he was hit by a car. And he had some complications, and he had months of medical problems. He was really in pain. And so he got a doctor to write him a prescription.
+
+[00:26:36] and the doctor wrote, The post-accident convalescence of Winston Churchill necessitates the use of alcoholic spirits, especially at meal times. Good. But not beer. You couldn't prescribe beer. There was this bizarre controversy.
+
+[00:26:54] So people were really anti-beer for medicinal reasons, and there was a guy called, he was the Attorney General in America called Mitchell Palmer, and he was under a lot of pressure from brewers. So he said, fine, give sick people beer if it helps them, it often would to relax you. And he said you could prescribe it at any time. And he said commercial drug stores
+
+[00:27:14] should be able to sell it from kind of soda fountains. So there was almost a time where pharmacies across America had a beer fountain during prohibition. And then all those bloody abolitionists got involved and said that he couldn't do it. And he was kicked out. And then prescribing beer at all was banned. Wow. But they do it today still in American hospitals
+
+[00:27:35] from an article that I read where someone was visiting a friend and the food came in, which was just the classic lunch they get, but on the tray was a can of Budweiser. And it's because certain patients, if they're going, let's say, through a withdrawal, that's not helpful in their situation to be suddenly cut off from alcohol. So this same patient was given it for breakfast as well, so it'd be sort of eggs and Budweiser for breakfast. And that goes on still.
+
+[00:27:59] It's not necessarily seen as a bad thing. Mariah Carey had it. not a person who gets a lot of airtime in this podcast, but she was actually investigated by the police, by the LA Department of Children and Family Services because TMZ
+
+[00:28:16] reported that she had been drinking beer while she was breastfeeding. She had newborn twins, and she said the nurse told me to do it, and the nurse had told her that Guinness can help breastfeeders, so it loosens up your milk and stuff. And actually, I was talking to our boss about this the other day, and she was always told that, and she always did it.
+
+[00:28:32] It used to be told, in the past it was always said that you should drink Guinness, I think. Breastfeeding or not breastfeeding, really. That might have been when we were in Ireland a few weeks ago. We're going to have to move on, suit. One alcohol you might not want to drink when breastfeeding or otherwise is an Icelandic alcohol made from a Wales testicle. The guy who made it said, we smoke the testicle by the old Icelandic way with dried sheep shit. and this method gives the beer a really unique smoke flavor. Fancy some of that?
+
+[00:29:11] Unique. Okay, what about this? There's a beer made from elephant dung, and they use coffee beans that are passed through an elephant's digestive system to make the beer, and instead of talking about an aftertaste, they talk about an afterglow. And there is a new whiskey that has been made
+
+[00:29:29] flavored with the anal secretions of beavers, and on the website it says the sack excretion exhibits bright and fruit qualities and rich leathery notes along with a creamy vanilla aroma. You don't want creamy anywhere near anal secretions if you're having to consume them, I don't think. I've got one more prescription that was dished out
+
+[00:29:56] just because this was about prescribing beer effectively. Cambridge University have just published a load of their patient records from the 1590s to the 1630s, and they've got thousands and thousands, they've got 80,000 case notes, but they're incredibly hard to read, because obviously the writing is extremely,
+
+[00:30:13] you know, it's just very different to our writing today. But they've finally put up a batch online, and the prescriptions include things like the broth of the testicles of a boar pig beaten to a powder, and quite a lot of pigeons. So one thing that occurs frequently is pigeon slippers. a doctor
+
+[00:30:32] would frequently prescribe you put a pigeon on each foot and you're just a dead pigeon and you just cut it open pop it on your feet, walk around and what is that supposed to help? I can't remember what
+
+[00:30:46] it was actually helping it doesn't help the pigeon very much but and some doctors like they vary the prescription there's one prescription which says a pigeon on each foot one says a pigeon on the neck and to each foot another one just says half a pigeon to each foot
+
+[00:31:02] It's not like when you split a paracetamol in half It's like the headache's not that bad I'll just do the half pigeon today They did use to I don't even know why I'm saying this Because I think this is what it might be They used to use I think the anus of a pigeon
+
+[00:31:21] To suck stuff out of buboes for the plague Because it has quite good suction Yes I thought it was snake bites as well. It was. I think Pliny recommended take a pigeon, shove it's anus on your bite, and it will suck it out.
+
+[00:31:38] Turns out it doesn't, and then you just die looking like an idiot who held a pigeon. But it wasn't, it was for everything, the pigeon thing. It wasn't just for playing it. It was everything. Samuel Pepys did it at one point, or his wife did, I think. But what I know is it was a last resort.
+
+[00:31:53] So if someone brought in the pigeon, you knew that that you were on, your way out. I was reading a source, which is like a daughter was at her father's bedside, and he was really sick. And he saw the nurse bring in the pigeon. And he went, oh, I see. I'm off, am I? The thing that has never worked. Thank you. Okay, it is time for our final fact of the show, and that is James. Okay, my fact this week is that if you put a bunch of millipedes in a nightclub, all their genitals will glow in different colors. By the way, if you've not been to a nightclub with James, it is fucking awesome.
+
+[00:32:43] If you go to a nightclub with the Milipede, it's like, put your left foot in, and your left foot in, and you left foot in, and you left foot in, and you left foot in. What nightclub are you going to? The under eight? That was the last time I was in a nightclub. But if you're happy if you know it alone. Let's get some row row your boat up there, DJ. Will you give this back some respect, please?
+
+[00:33:14] Why does this happen? Okay, so these are flat-backed millipedes in the genus pseudopolydesmus specifically, and they all look almost identical, regardless of their species, because they're just like two centimetre long little brown things. scientists have found out scientists and find out that if you shine ultraviolet light on their genitals that it's like a disco
+
+[00:33:41] cool it's all these greens and blues and some of them are shinier than others and stuff like that and this is like a really good way of telling the different species because before you would have to probably kill one and get the DNA to see whether it was a different species wow so if you're ever in a nightclub and you think what is that sort of middle-aged nerd in the corner do
+
+[00:34:01] with what looks like a bag of insects. I'm going to stick with a mirror ball, I think, to decorate my discos rather than a rotating ceiling full of millipede dicks. Do we know why this happens? Is it so you can tell species? Is it so they can tell each other apart? We actually don't know why, which is sad.
+
+[00:34:23] Yeah, all we know is that it's still a mystery. But millipedes are basically blind. Yeah. So they wouldn't be able to see... They won't get to enjoy it. They won't get to enjoy it probably ever. They don't know how great they look. Really sad.
+
+[00:34:39] Yeah, very sad. Is it males and females? I think it is just males. Okay. There has been this... And now, I think it's both. And now, I think it's just females. That will edit so nicely.
+
+[00:34:57] There has been this incredible explosion over the last 20 years of people discovering that basically all animals glow fluorescent, right? It's so bizarre, and it's weird that they never discovered it before. So, for instance, just this year, or I think maybe last year, a scientist accidentally discovered
+
+[00:35:12] that flying squirrels, you know, North American flying squirrels glow pink under UV light. And that was just, he was out in the forest. It was a guy called John Martin, a forestry professor, and he was shining a UV light up to look for lightchen and fungi and some frogs that glow under UV light.
+
+[00:35:28] And he noticed that all the flying squirrels were glowing pink. And again, we don't know why. I think maybe it's to blend in with stuff like light in so that predators can't see them. Maybe it shows you're healthy for a mate. But how have we not shown UV lights at stuff before? Well, the thing is humans, we can't see UV light.
+
+[00:35:45] So this has just been a complete mystery for us for so long. There is a way to be able to see UV light. If you have your cataracts removed, some people... If you have cataract surgery, some people conceal ultraviolet light. And Monet had this, for instance. Right. So it is possible that Monet would have been able to see these genitals of the millipedes. Wow.
+
+[00:36:07] I should add, it is very fun to go to a nightclub with James, but you do have to go and get your cataracts removed before you go. It's a bit less fun that bit. Yeah. So they think that after he had the lens out of his eye, he painted slightly different paintings. Yeah, his paintings were a little bit more towards the purple side of the spectrum for that reason. Very cool. Some scientists have started making animals fluorescent as well, which is very exciting.
+
+[00:36:30] So at Imperial College in London, they've started deliberately making mosquitoes with fluorescent testicles. And it's just males again. And there's a really good reason for this, which is that. So they were genetically modified, so there's a glowing protein which only expresses itself in their testicles. And the reason this is useful is you can identify males and females very early, so you can release sterile males into the world at large without accidentally releasing any female mosquitoes. Because female mosquitoes are the ones who spread malaria.
+
+[00:37:02] That's why it's important. But when you said there's a really good reason for this, it did just sound like your professor had walked into the lab. Why the hell are those mosquitoes balls glowing? There's a very good reason for this. Just on things glowing. There's a deep sea worm called tomopteris. And it's transparent, which is very useful,
+
+[00:37:24] because it means it's much harder to see it. if you're a predator, and it can also make part of its body glow on command, and then release that part as a decoy. Oh, cool. No way. Wow. But then it's lost part of its body.
+
+[00:37:40] Yeah. They can only do it so many times. That's very true. Once you're getting down to making your head glow, you're in real, real trouble. Yeah. That is really cool, though. There's a chameleon, which will, if you
+
+[00:37:56] put it under UV light will glow in the dark and like a little blue glow and it's actually the bones that are glowing and you can see them under the skin. Whoa. This is amazing and we don't again we don't know why it happens but it's basically you know like if you go to a Halloween party as a skeleton yeah and all you can see is the glowing bones yeah these chameleons are like that oh maybe so maybe if a predator comes they go oh someone's already eaten that one We're going to have to wrap up very shortly. Do you know how animals that eat bananas tell if a banana's ripe? Best before dates, no.
+
+[00:38:36] Yeah. The colour, I would say. Yeah. So if it's blue. What? If a banana looks blue to most animals that eat you like insects and stuff, then it is ripe. So if you shine a UV light on a banana, then it glows blue if it's ripened. And that's if the chlorophyll is degraded.
+
+[00:38:52] So when it's green and unripe, that's all that chlorophyll as the chlorophyll degrades, then it glows blue in UV. So should you shine a UV light at the supermarket on bananas if you want to really know whether they're ripe or not? I think so, but do you have to get them to turn the lights off as well if you do that? Right, everybody, right, I'm picking my bananas.
+
+[00:39:12] Turn all the lights off, please. You've got to have a good relationship with the store manager. Is it true that here in Norway, you have UV passports? Oh, yeah. That's very cool. I think they might be the only passports. You put UV light and it has a northern lights effect over it. Yeah.
+
+[00:39:33] Did any of you not know that and you can go home and see it? Yeah, it is cool. They're not the only ones, actually. Canada has it too and a few more. But I think maybe the first. Yeah, let's go with that. Let's go with that. So there was a scientist called Sean Davis,
+
+[00:39:51] and he wanted to put bacteria into a rat and see how it passed through the body. but he didn't really know how to do that because it's quite difficult to kind of get the stool samples and work out how many bacteria there are so he genetically engineered the bacteria to glow in the dark which meant that these rats,
+
+[00:40:07] whenever they had a poo, it glowed in the dark. Who doesn't want that? It's not useful unless you keep your poos somewhere and they say, oh, when did I leave that poo? And it's very unhelpful if you're trying to hide a poo. on a dark night.
+
+[00:40:28] And this feeds directly into Anna's experience. And he's there. Turn off the lights because I need to choose my bananas. Wait, what are you doing in the corner? Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, Andy.
+
+[00:41:00] At Andrew Hunter.m. James. At James Harkin. And Shazinsky. You can email a podcast. Ori.com. Yep, or you can go to our group account, which is at No Such Thing, or you can go to our website, No Such Thing as a Fish.com.
+
+[00:41:11] We've got all of our previous episodes up there. We have all of our upcoming tour dates, and we also have bits of merchandise that we've released. That's it. Thank you so much, Oslo. That's been amazing. Thank you very much. We'll see you again.
+
+[00:41:22] Goodbye.

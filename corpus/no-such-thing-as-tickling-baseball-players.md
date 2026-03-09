@@ -1,0 +1,303 @@
+# No Such Thing As A Fish - No Such Thing As Tickling Baseball Players
+
+- Episode date: December 4, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-tickling-baseball-players
+- Slug: no-such-thing-as-tickling-baseball-players
+
+## Transcript
+
+[00:00:00] Hey everyone, welcome to this week's episode of Fish. Before we begin, we just want to let you know, we have a very special guest on. It is the QI main man himself. James Harkin, who is it? It's James Harkin, the QI main man himself. That's right. And the second banana has joined us this week as well. No, it is. And his name is? His name is Alan Davis, and he is the main big banana. He is the biggest banana of all the bunch of people who work at QI. He's our absolute best mate. And he's come along to tell us a load of facts that we didn't already know.
+
+[00:00:33] That's right. Yeah. And we also want to just quickly mention that he has a new book out. It's an extraordinary book. It's called Just Ignore Him. And it is a memoir of which Stephen Fry, former co-host on Q High. Second Banana. The second banana to Alan said it's funny, sad, frightening, sweet, savage and tender. Just Ignore Him will never leave you. And that's what all the critics are saying about it as well. It has had universal praise. and we highly, highly recommend it.
+
+[00:01:01] Yeah, it's an absolutely brilliant book. It's just, I mean, you probably know Alan as just this funny, happy-go-lucky guy, but it really, really gets down to what made him who he is, and I can't recommend it enough. It's just such a great, great book. It's available presumably in all good bookshops, I guess. Even the shit ones. Even the shit ones.
+
+[00:01:20] So definitely go out and get that. But in the meantime, you can hear him doing what he does best, which is being unbelievably funny in this week's show. Okay. Hey, on with the podcast. On with the show. Top Banana. Welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK.
+
+[00:01:56] My name is Dan Shriver. I am sitting here with James Harkin, Anna Tashinsky, and special guest, it's Alan Davis. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Alan. Well, I've found for you from the Lismore Library in Australia, an unusual approach, you can borrow a person. The Human Library, it's called.
+
+[00:02:28] The Human Library was started to create a space, and this is from the founder, Ronnie Appigel. You can walk in, borrow a human being, and talk to them about a very challenging topic. Ideally, we wanted people to talk about issues they normally would not talk about, or don't like to talk about. And so you get a human book and that's a volunteer from a diverse background where they have experiences they're willing to share and they have titles.
+
+[00:02:54] The human books have titles like black activist or chronic depression or survivor of trafficking. I mean, they're not very funny. Isn't that a comedy section? It doesn't seem to be. It feels like you might have had a really, really bad Edinburgh experience. That would be a good one. I would quite like,
+
+[00:03:16] football hooligan, shoplifter, pervert. They're the really interesting ones. COVID denier. That's such a good point about Edinburgh though. Imagine getting that in your review. Have you thought of being a human book instead?
+
+[00:03:33] Clearly. There is a photo here, and you just sit at a table with someone. You sit at a table with a human book, and you borrow them for an, for an amount of time. I mean, I don't know. It may have been that Monty Python sketch, you know,
+
+[00:03:48] when you get an argument. Do you remember that one? Oh, yeah, yeah, yeah. What was that? Someone goes in and says, I've come here for an argument and they go, no, you haven't. But I think it must be really, like, imagine if you're one of these books
+
+[00:04:03] and, like, you're there for a few days and no one takes you out, that must be pretty depressing, mustn't it? Yeah. Bad stick. They have a thing where, so they all sit in a sort of waiting room, which they call the bookshelf, and they have a matchmaker. So someone says, I want to get a human book out, and the librarian match makes you with a type of book. They give you the list.
+
+[00:04:22] But here's an interesting thing. While they're waiting to be chosen, can obviously get a bit boring there, so they can borrow each other out while they're waiting. It's like, like, with the Toy Story toys play with each other. Sorry, I didn't realize. I borrowed this one before. As soon as I got into it, I realized that her. heard it all before. Do they have barcodes on them? I mean, if you try to smuggle out a book under your jacket, will the alarm go off?
+
+[00:04:51] I found it under the bed. It's been there for two years. Oh, he's dead. Yeah, he's dead. He was trapped under there. Spoiler alert for the ending. It is a cool idea. Yeah, it's not just this Lismore Library in Australia.
+
+[00:05:09] So this was launched back in 2000 in Copenhagen by who Alan mentioned earlier, Ronnie and a few others. And it sort of went around to festivals and they had people where you could rent them out at Ross Kilda Festival and so on. And then it's sort of the idea latched on and it's spread out. So it's an over 70 countries now that you can go to certain libraries. And they don't always have them waiting at the back room. They're not just permanently sitting there. It's sort of like on a Friday between the hours of nine and three or something like that. Where you have slots. Since COVID, they have started doing it virtually. So, you You can borrow one.
+
+[00:05:44] It's all about diversity and understanding people from other backgrounds or races or cultures. It's very good. Yeah, it's a good plan. It's challenging your preconceptions, I guess, isn't it? Making new people, making some friends, you know, if you're really lonely. Well, that's it. I mean, we're now recording this in the second lockdown, and everyone's sick to the back teeth of all the people they normally zoom.
+
+[00:06:10] The quiz market's falling off a cliff. I know. It's like you get sick of the people you live with and then sick of the people you zoom. And then I'm sick of my Amazon delivery guy now. Well, it's time to go to the human library. Libraries are really trying to branch out in the modern day, right? You know, because people often don't use them anymore. So they say they're trying to get to grips with the digital age. And now they just hire out loads of random stuff.
+
+[00:06:38] So there's this woman Barbara Stripling, who's the president of the American Library Association. And she says that local libraries are constantly getting calls from people like plumbers or electronic specialists saying, do you want to put me in your books catalogue and you can rent me out, you can hire me out to people who need a plumber or need to learn about how to wire a plug. And so actually you can hire people for practical purposes as well. I think it would be a weird thing to do to go to your library as a first port of cool if your toilet's blocked. But it's worth to try, apparently. I really, I have a lot of faith in YouTube for all of those things.
+
+[00:07:14] Yeah. Yes. Yeah. I had to sew up my five-year-olds, one of his Paw Patrol toys, had split down its back. Oh, God. It was Marshall, for those of you, interested in the detail. The best, Marshall.
+
+[00:07:29] And Mark, great guy. I love him. Accident prone, that's why he's funny. Yeah. And ironically, he's the one who got split down his back. Typical Marshall. And I got a needle and thread for the first time since I don't know when this century. And then thought, how do you finish?
+
+[00:07:47] Oh, I must have been taught this at primary school, I'm sure, but I don't remember. And I found a YouTube video that told me how to sew. Wow. And how do you finish? You do like a little nut at the end or something. You don't put it all the way through. You leave a loop and go in that. And you do another one of those.
+
+[00:08:04] And then you're done. I've proudly left Marshall on the table in the kitchen, I can't wait for my five-year-old to come over. He'll probably just rip him over. When we started talking about Pard Patrol, Dan was so much in his comfort zone that I've ever seen him on this podcast. He was like, finally.
+
+[00:08:23] Fully engaged. Just on, Anna, you were just talking about things that you could take out from libraries, like curious things. So outside of people, you can also get really sort of practical things for your house. Like the Philadelphia Library allows you to get cake pans for if you're baking. That's part so you can get a book in a cake pan.
+
+[00:08:42] Yeah, you can at the Ann Arbor Library of Michigan as well. You can rent out lots of weird tools. And it says we only stock the unusual tools that you might not have in your own house, which is kind of a good idea, right? Because with a cake pan, you know, I'm only going to make one cake every three years or whatever. So I don't want to buy a whole pan for it. Much better to just hire it out. In my time, I've lived with several unusual tools. They know who they are. Guys, this is on books and vaguely this fact. And we just never mentioned on the show,
+
+[00:09:16] and I think we should talk about the fact that Boris Johnson wrote a novel in 2004. Has any of you read it? No, obviously not. I've seen it. It's called something virgins, right? Very well done. It's a certain number of virgins.
+
+[00:09:29] It's not 72. It's 72. 72 virgins. It's littered with racial stereotypes, isn't that right? It is. I think I read about it in the Guardian. The racial stereotype detectives column. Well, you won't be surprised to know the telegraph called it effortlessly brilliant.
+
+[00:09:48] So your view of the book really depends. You're right, Phil. This is genius. This is exactly what I think. Therefore, it must be excellent. It does sound, I mean, it's extraordinary. First of all, it's about a sort of bumbling, gaff-prone, bike-riding MP. who's vaguely in trouble for a sexual indiscretion.
+
+[00:10:12] And so Marina Hyde read it so we don't have to and tweeted a few of the quotes from it. One quote is, Boris Johnson wrote these words. She was looking, this may sound crude, but is no less than the truth, like a lingerie model, only cleverer, and if anything, with bigger breasts. Jesus Christ.
+
+[00:10:29] He just wrote those words in a book. Although it is meant to be a farce, so to be fair. Well, that's what his premiership was turning into. I read an article that suggests that people who are storytellers, like Boris Johnson, as you say, have more children than non-storyellers. Oh, really? This was a couple of anthropologists who were looking at the Agtar people who live in the Philippines. And they're a hunter-gatherer group, and they don't really, they're one of these groups that aren't really affected by the Western world very much. and they looked at the people who tell the stories in the group
+
+[00:11:07] and they found that they are more desirable social partners. They ask people, of all these ones, this guy does lots of finding food, and this guy tells lots of stories, and this guy does a lot of fixing things who would you most like to have sex with. Most of the people said they wanted to have sex with the storytellers. Really?
+
+[00:11:24] Yeah. Is that because they don't have poor patrol to put on for five hours there, so they know when they have kids, they need someone who's going to sit up doing the bedtime story thing? They didn't come up with any idea why it might be the case. They just said it was the case. Interesting. Yeah.
+
+[00:11:39] Well, it does figure it, isn't it? Good old Boris. Maybe the only way to shut the storyteller up is to have sex with them. Oh, that reminds me of another story. Oh, yeah, shut up in a bed. Yes. That's a good point. Yeah, fair enough.
+
+[00:11:55] I was reading about in terms of old storytelling traditions. In China, they have Pingshu, which is... a version of any sort of group that has that one person who knows all of the stories and all the traditions of the people and what led them to this current point, that's their version of it. And for a very long time, these people were so revered that radio channels would just play them and farmers would have the radio out there listening to these long stories. And there's classic Chinese stories that date back from ages and ages ago that they're simply telling over and over. But as far as I can tell, Ping Shoe is a bit different to other storytellers in that
+
+[00:12:32] while they're telling the story, they break off to give commentary about it. And the commentary is their own personal opinion, which they could go on for 20 minutes or so. And it's a tradition that is kind of still going on. So the old stories aren't engaging the kids anymore. So they have to use news stories. So there's a guy who's been going since 2012 telling in Pingchu the entire Harry Potter book series. And he's going to finish it. He's on the Order of the Phoenix right now in 2020.
+
+[00:13:00] So that's book five, I believe. And so these little diversions, in the second book, you've got the three-headed dog in Chamber of Secrets. He'll then go into Greek mythology for 20 minutes to talk about the three-headed dog away from the... It's the worst, to me, kind of storytelling. You want to hear the story, and then you're suddenly getting 20 minutes about Greek mythology.
+
+[00:13:21] Yeah, it's like someone leaning over your shoulder when you're reading, going, oh, I love this bit, love this bit. Oh, this guy's awful, isn't he? You don't want that. You're reading your own book. Does it not sound more like footnote? or something. That's true. Actually, that's true.
+
+[00:13:34] How quickly I've buckled, I'm really into it now. Sounds awesome. James, do all your favourite works of fiction and footnotes? Well, I think the problem is that I don't really read fiction very much. I read a lot of nonfiction, and what Dan's describing sounds more like a nonfiction thing, doesn't it? It sounds more like, okay, now we're going to tell you some facts about Kerberus or whatever. And to me, that's, I guess, I just need to read more fiction. Well, sometimes you can get, like if you're reading a Dickens book, for example,
+
+[00:14:03] yeah. These books are so full of references of the day. Yeah. They're written in, you know, published as they were in magazine form, full of jokes about characters of the time. And so the footnotes in those books, or they're usually notes at the back of the volume, pages and pages in here he refers to,
+
+[00:14:20] and here this is about, and this is a popular song of the time, and this is the writer of the time, and this is someone who thinks hated. Yeah, that's true. You can go to those or not. Yeah, I love the foot. Actually, it's kind of the best bit sometimes, you know. It's full of weird facts.
+
+[00:14:37] I think, James, I think you found something recently about how if people didn't have somewhere to sleep for the night, but they couldn't afford a bed in a homeless house. You could sit up on seats. Can I just say, we shouldn't be saying this to Alan because it will be on QI next year. If it wasn't for the fact that I 100% know that he will have forgotten it by the time it goes out, then we shouldn't be saying it.
+
+[00:14:58] But, yeah. Sorry, what did you say? So in Victorian times, if you didn't have anywhere to live, but you were working in the city, but you needed somewhere to sleep, you could pay one pence and you'd be able to sit on a bench for the night, or you could pay two pence and you'd be able to hang over the top of a rope, right? The rope would go underneath your armpits,
+
+[00:15:17] and then you would kind of sleep there. And that is it Dickens, isn't it? I've heard of that. I read about that in a footnote in one of the Dickens is, yeah. Oh, really? One of the Dickens is. So they're maybe good fiction for you to start with James Full of Footnotes, or David Foster Wallace, if you want more footnotes than actual fiction.
+
+[00:15:34] Okay. Any footnotes in the Boris Johnson book? A lot of very arcane references that, yeah, you need tons of footnotes for those. It did sell more than the last book we wrote. Just want to make that clear. So, do we to criticise? You can get Eddie Isard's written an autobiography, which is a great fun, especially if you're like Eddie,
+
+[00:15:57] but he's got lots of footnotes in it. So in the audio book that I listen to, he reads the footnotes. But of course, Eddie's always digresses in his comedy. It's big part of what it does is digression, digression, digression. But instead of just digressing, he reads it as a book. So he'll talk for a bit, and then he'll go, footnote, and then he'll tell you something. And then he'll say, end of footnote.
+
+[00:16:18] And then he will carry on talking, and then he'll go, footnote. After a while, you're going, stop, save you. Footnote, you just read it out. Digress! You're the single greatest digressor in the English language. And now you're going, for end of footnote. I love Eddie Dealey, but I could not listen to that.
+
+[00:16:42] Yeah, edit those out. Maybe he'll hear this and go back and edit the word footnote. Straight back to Hillary Mantel. Chapter 907. Oh, God. Don't get me started. Okay, it is time for fact number two, and that is Anna. My fact this week is that it's illegal in the UK to tickle a trout.
+
+[00:17:10] Trout tickling. Yeah. They don't like it. No, they do like it. That's the problem. So I guess anyone, have you guys ever, have you guys heard of trout tickling? Are you familiar with the concept? Have you ever tickled trout yourselves?
+
+[00:17:22] Yeah, we have it. Yeah. Can I just check that trout's not a euphemism here. I don't want to be kind of uncool and know that you're all talking about the penis. Right. It's a great point. If it is a euphemism, then I've misunderstood
+
+[00:17:39] all of the articles I've read about it at 9th Street, it says. It's an angling thing that goes back many hundreds of years and fishermen will talk about it, and what you do is you dip your hand. If you're trying to catch a trout without a rod, then you dip your hands in the water. I was actually speaking to someone I know
+
+[00:17:56] who says he's done. done it yesterday, dip your hands in the water and you sort of want to chase a trout under a rock, they'll hide from you under a rock. Then you go underneath the trout and you pull your hands up gradually until you're touching it and then you want to touch it at the tail end and then just sort of tickle its little belly, creeping your fingers up in a weird and purview way until you've tickled it right up to the head and it makes them go completely emotionless. They seem to love it or it at least makes them catatonic. I heard of it. They go into a sort of a trance. Exactly. But that's illegal.
+
+[00:18:27] It's illegal because... On what ground? It's illegal because it's... Well, so there's a lot of angry people online who say it's a hangover from classism of the olden days, essentially, because it's thought of as poaching because if you don't have a rod, then you can easily pretend that you weren't trying to poach fish from a river.
+
+[00:18:45] So it's a way of getting away with stealing fish from someone's river without permission. And so it's illegal, you've got to fish with a rod in line or a net. You're allowed to do it if you're on your own property and you have your own river going through your own property. I think you are a lands to do it, right? It's only in public lands. I can remember years ago I was on holiday with Bill Bailey in Indonesia,
+
+[00:19:09] and we were on this river doing some sort of canoeing or rafting or something anyway. It was idyllic. Mountains and trees and tropical foliage everywhere and floating down the river. And I thought, this is perfect. What a paradise. I understand why Bill comes here all the time. It just really takes you away from everything. He'd always say he never got asthma while he was there.
+
+[00:19:30] There's no pollution, etc., etc. Then we go around a bend in the river, and there's a local gentleman with a car battery slung over his shoulder, connected to a metal pole, wading in the river, electrocuting fish. Oh, my God. I mean, it's suddenly completely removed from the ecstasy of commuting with nature.
+
+[00:19:55] The brutal reality is kind of... The only time I'd ever seen a car battery use like that was in a film about the craze when they were torturing someone. I mean, it's very resourceful. You're going to get more fish that way. Really effective. Yeah. Oh, wow.
+
+[00:20:13] I think they do try to... People who actually have permission to try to kill trout like that, in fact. So I think they're invasive trout in Yellowstone Lake, which are eating up all the trout that are supposed to. to be there. And they've tried to electrify the whole lake by, so electrocuting all the eggs, but the water didn't conduct it well enough, apparently, which is weird, because the water is good conductor. So you've got to make sure you've got the voltage for it. Yeah. And actually what they did, and this is really creepy, is they, so this is Yellowstone Lake and the native trout
+
+[00:20:43] or the cutthroat trout, which is confusing because they're the good guys who are meant to be there. And the invasive trout have come in, they're eating them all up. And so the way eventually researchers have managed to get rid of the invasive trout, one of the invasive trout, one of the the ways, is they suffocate the invasive ones by dumping loads of dead fish in the water. And then that removes the oxygen from getting in and the eggs don't survive. So you see them like tipping all these fish back into the water. So it's suffocated by their own parents. But it's all in honor of saving the cutthroat trout.
+
+[00:21:15] So it's actually sort of a good thing, depending on which side of that fence you're falling on. Sound of the cutthroat trout. Yeah. How do they survive the lack of oxygen though? Or is it? They hang out in slightly different parts of the lake. Oh, right. Okay.
+
+[00:21:28] So you just got to pick your spot. Got it. Right. Trout ticklings mentioned in Shakespeare, isn't it? I reckon if you looked in the footnotes, it would be there. Yes. It's in 12th night when Malvolio walks in and Malvolio's a bit stupid. Maria says, here comes the trout that must be caught with tickling.
+
+[00:21:47] I don't know. That might be one of Shakespeare's weird, sexy jokes that no one gets, but I don't know. Yeah. Oh, can you imagine the riotous laughter at the globe? I actually saw Stephen Frye being Malvolio, and it was genuinely riotous laughter. He's quite a talented man to do that, Stephen Fry. I don't remember that specific line.
+
+[00:22:10] I was reading as well about these methods of unconventional fishing, so electrifying and using car batteries in the water to get fish. And one of the ways that a lot of people do it is using dynamites, So dynamite fishing, you pop a bunch of dynamite in, blows up all the fish raised to the surface and you collect them. And that's a big problem for a lot of places where there's coral reefs because they're absolutely decimating all of these coral reefs. And in the Philippines, it's a big problem in particular.
+
+[00:22:38] So in 2010, a group called the Sea Nights decided to do something about it. Philippines is very, very religious. And so what they did was where the coral reef was, they dumped at the bottom of the ocean a 14-foot-tall statue of the Virgin Mary. So that if anyone came by, they would see the Virgin Mary in the ocean and want to pray to her as opposed to decimate her with dynamite. So they've gone back in 2018, eight years later, and it seems to have worked.
+
+[00:23:06] She's covered in coral. It's growing on her now. And all the coral in the area seems to be vibrant again because no one's blowing it up and it's bringing a lot of tourists in. So if you want to stop, yeah, any illegal poaching, just pop a Virgin Mary into your area. and you should be fine. Popping a Virgin Mary into your area,
+
+[00:23:22] again does sound like a euphemism, but that is ingenious. It's better than popping a Virgin Mary out of your area. Or is it? I don't know. In Scotland, it looks like it's known as gullling. It is. That's what my friend called it yesterday.
+
+[00:23:40] He does it in the Highlands. Guddling. Guddler trout in Scotland. It's like... It's a bit like cuddling, isn't it? Tickling and guddling. guttling and touch it into a trance. It's a wonderful skill. Yeah. I read one person who does it who says you need to be very gentle and with a delicate
+
+[00:23:58] touch, much as though you are caressing your lover. Wow. You then, of course, fry on the barbecue. After you've gutted them. Technically gobbeting, if you ever want to know the term, specifically for trout, if you're gutting a trout or chopping up a trout. It's called gobbeting, according to a book of carving from 1508. So I don't know if it's in common use anymore. Have you watched that program? It's on BBC too, I think, about it's called Scotland from the sky.
+
+[00:24:30] No. Yeah, I think I have seen it. It's really good. And it's a kind of history, history of Scotland from the sky, so aerial photography, but in getting to the sky and there's all kinds of lost history that's rediscovered. and one of the things they were talking about and the last, I'll watch it with my daughter, she loves it. And the last one was the lost herring industry.
+
+[00:24:55] Scotland used to have this huge herring industry and they used to export herring by the hundreds of tonnes to particularly to Russia and Germany and those markets disappeared with the Second World War. But they would have herring girls and herring girls could gut herring. They had footage, black and white footage, of hair. with buckets full of herring, gutting them at a terrific rate,
+
+[00:25:19] gutting up 40 fish in a minute. Brilliant. It's absolutely extraordinary, kind of lost art and lost industry. I wonder why it was the girls who did it. I just didn't know. The boys were on the boats and the girls were doing the gutting, and that's how it worked. I remember reading about those herring girls,
+
+[00:25:36] and they used to, you know, they were up really cleaky, and they would, like, do all the gutting in the daytime, and then they'd all go to the bars in the evening, and they would never go home in between, so they'd go to the bars and they'd be covered in herring guts and blood and whatever. Yeah, it's a really messy business.
+
+[00:25:53] The spell must be unbelievable. That's a human library book you wouldn't want to be in the background. I'll have a herring girl, please. Oh my God! Yeah, Scotland from the sky. It's worth a watch. There's another thing in there about creating, they'd kind of create a figure.
+
+[00:26:13] traps by building a kind of L shape out of rock into a tidal river. And as the tide goes out, fish get caught up here in the L. And then it was incredibly efficient way of catching fish, so much so that they had too many. And then they ended up dead fish were poisoning the locks. It became, it was made illegal sometime in the 19th century. But it was, yeah, genius ways of trapping fish. The Scots are all over it.
+
+[00:26:43] It feels like cheating to me. Oh, yeah. Yeah. You know, we had a conversation a few weeks ago about how did all the fish get in the lakes? Oh, yeah. And this weird mystery. And Alan, any guesses?
+
+[00:26:59] You know, when you've got a lake? I'm just going to stick with basic evolution. I'm helpless other than that. Basic evolution. Yeah, you're basic running the mill. Evolution. Okay. An amoeba, something like that.
+
+[00:27:13] They just used to be amoeba. Okay, thanks for that answer. Cut to 10 million years. Even Darwin doesn't agree with you there. So Darwin thought that the way that the fish had got into the lakes was the little fish eggs had attached to bird feathers and then in the sea, and then birds had flown and sort of dropped them over lakes, which is generally how people thought these fish got in lakes.
+
+[00:27:37] But there's actually no... Christian's just laughing at you now. Yeah, whatever. The eggs were on the wings of the birds, that's right. I mean, it sounds ridiculous. They were created. They've got a point. But they've got a point.
+
+[00:27:54] The thing is, Alan, who made the amoeba? You know, we can all say that it went from amoeba to fish in the lake. Well, you know, you need the perfect conditions to create life, heat and liquid, and you've got to be in the Goldilocksone, James. Okay, got it. It's not Lancashire. Okay. Wow.
+
+[00:28:11] Life on earth did not start in Lancashone. I know you can credit a lot of things with Lancashire. Life on Earth did not begin there. But that is where it reached its absolute peak. In the Harkin Household. We've topped out. We've topped out. Humans are officially going downhill now.
+
+[00:28:35] Anna, are you going to tell us where these fish came from? Yeah, so they don't. We think there's no evidence that this happens. Although it tends to be what everyone still thinks is the cause of fish ending up in lakes. But the latest theory, which a few people sent us after the show, because it was on a podcast that same week when you mentioned it. And I think it was Jim Al Kalili was saying that a Jim Alcalini podcast Inside Science,
+
+[00:28:54] that birds eat, and this is going to sound even more ridiculous to the creationist, but birds eat fish eggs, but fish eggs actually survived going through their digestive tracts with some fish, and then they poo them out when they're flying over a lake, and the eggs end up in the lake. I'll go with that. Also, you know, this is just going to annoy the Christians even more. The reason you've got fish in lakes is acts of God, you know, huge storms where sea creatures get swept up into the air and then rained on land.
+
+[00:29:23] This is always an act of God, right? God's throwing fish down. He must be annoyed or happy or he's got too many fish or he's having a clear out and they land in the lakes. Yeah. Some stuff on trout, maybe. Yeah. Female trouts, fake orgasms.
+
+[00:29:42] I'm sure you guys saw this. So when a female is ready to spawn, she kind of quivers a little bit, and that kind of turns the male on, and then he gives her his sperm. But sometimes she will do that when she's not going to release any eggs, because it makes all the other trout in the area horny. And it's either that then she gets a really good mix of DNA from all the different trout, or that all the males then start fighting each other, and so she ends up with the best possible male.
+
+[00:30:11] Oh, clever. Yeah. So this was a study that was done by the Swedish National Board of Fisheries, a guy called Eric Peterson, and they checked out 117 different spawnings, and they found that 69 were false. They were false orgasms. And I just like, it's a very sexy number to have landed on. Sexy number. Thanks, John.
+
+[00:30:37] All this just makes me think of Mike Trout, the baseball. player. Are you familiar with Mike Trowell? I am. He's like the best baseball player ever, isn't he? It's one of the all-time greats. He signed a contract in 2019 with the LA Angels for $426 million. Wow. At the time of signing, it was the single biggest contract in the history of sport ever. He's an extraordinary baseball player, and I've actually seen him play. Really? I love baseball when I was in Toronto working and I was in Toronto working in a way. to see the Blue Jays play. And there it was, and I went with a guy, a Canadian guy, I was working with,
+
+[00:31:16] and he said, filled me in. And that's Trout. That is Trout. That you are in the presence of greatness. Why? That is. That's so cool. The main thing that I know about him is that they sold a baseball card of his
+
+[00:31:30] for like $5 million or something last year, or this year maybe. And it was the most that anyone's ever spent on a baseball card. Wow. And I think, like, what I always thought about that was he is only in, I think he's in his late 20s, isn't he? So there's so many chances that he gets cancelled in the next five or six years. And that card just becomes complete. It's not like buying a Babe Ruth one where, you know, you know, this is kind of done. You can't not be a fan of anyone except people whose careers are over just in case they cancel.
+
+[00:32:03] I think they're not bought by fans. They're more bought by collectors, aren't they? Like the most money ever spent on a card before that, I don't know the name of the guy, but they only ever made one or two of these cards because he hated smoking and he refused to let cigarette companies sell his card. And so they made one or two of them. And he wasn't even a great baseball player, I don't think. But they, you know, it became really rare and then people paid millions of dollars for it.
+
+[00:32:28] Wow. Mike Trout. You want to tickle Mike Trout. That's the most expensive trout you possibly can. You can tickle Mike Trout into a trance. Yeah, you're winning. He's just one of these people. He'd probably be good at any sport.
+
+[00:32:41] I mean, he could do anything, field any position, hit, do anything better than anybody. If you had nine of him, you'd win every game. So what you need is the keeper, the keeper behind him, just slowly tickling his bump as he's going to hit. I don't know much about baseball rules, but I can't think that for a hard, is it?
+
+[00:33:00] Very rarely do you, it's not really a contact sport in that sense. You're not going to get many opportunities to really tick him into a coma. And if you get one, take it. Yeah. Just one more thing on trout that I really liked is coral trout, which are these beautiful red, spotty fish in the west of the Pacific Ocean. And they are doing this really clever thing,
+
+[00:33:20] which it was previously thought was only possible for great apes and for ravens. You know, ravens are always super clever. And essentially, they recruit other animals to help them hunt. And so they'll chase prey, smaller fish, into crevices. But they are too big and fat to squeeze into the crevices. So they recruit eels and octopuses, because octopuses have tentacles, to get them out for them. And they do that by going up to them and performing this series of signals, which essentially says,
+
+[00:33:47] hey, can you come on a hump with me? Wow. And so they do kind of headstands. They'll flip over onto their head and wiggle around, and they'll do specific head shakes, and then they'll lead an eel or an octopus to where they've chased this bit of prey, and they'll point at where they've got to go to get it out. And they're the only animals, aside from apes and ravens who are known to do referential gestures as in, you know, when you're pointing at something, and they'll point and
+
+[00:34:11] they'll say, can you go in there and get some of those fish out? And in return, the eel or the octopus, which like puts its arm in there, gets a little bit of the fish catch as well, so they get to share it. That's amazing. Like, I'm even quite impressed by the eel in this situation, because, like, if I point at something to my cat, the cat has no idea what I'm pointing at, she just looks at my finger, right? Yeah. So the fact that the eel even knows that that's what he's pointing out. I just... Yeah, you should have got a pet eel. Should have gone eel.
+
+[00:34:39] He should have gone eel. He'd spend all day finding things out. Look at all rainbows. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that all of the cheese eaten on Antarctica is past its expiration date. Yum, yum, yum.
+
+[00:35:06] Why? Are we just sending them our rejected food? Well, this is, well, first of all, I saw this on a video on the PBS YouTube page, and it was an interview with Tom Senty, who's the culinary manager in the McMurdo Galley, and he was talking about how they get all the food in, and he says, basically, all the food comes by boat, and it takes so long to get to Antarctica, and most of this cheese has got an expiration date of maybe one month, two months, three months. By the time it gets there, it's always out of date, but they are in Antarctica, so luckily, it's very cold. They can just freeze it, and it's all fine.
+
+[00:35:38] But technically, if they were in a shop, they wouldn't be able to sell it. And you can always just scrape the mold off, I suppose, once it gets there. Yeah, exactly. It's cheese. Cheese lasts forever, doesn't it? Yeah, it gets better. Exactly. Can't they drop food out of a plane?
+
+[00:35:54] They can. Every now and that, I think, like once every three or four months, and only in the summer, they do have a plane that comes with food. But they can only fit so much in there. And so they always go for the really fresh stuff, like salad and vegetables and fruits and stuff like that, because they can get away with the cheese. They don't bring cheese in there.
+
+[00:36:13] So this is the last place that Deliveroo haven't got to. Let's go on and ask for a wagammer's. Oh, yeah. Your rider has left the restaurant. He'll be with you in nine months. And then you look again and it's 10 months.
+
+[00:36:32] He's nearby. Please go to resuscitate him. He has highbring. It's a really amazing video, this video. You get to see it's a sort of journalist going around and showing you all of the canteens that you meet all the chefs. And basically, as Jabe says, it's not just the cheese that it's expired. Basically, most of the food has expired, and it's all frozen.
+
+[00:36:55] And they have a phraser, which is that expiration dates are a suggestion, as opposed to as a thing that you're meant to take for real. But the way that they have to plan for these big ship containment of food to come in mean that they're making a million meals, and they have to plan that 18 months in advance for every time those shipments come. So it's a huge operation. It's mad level of meal planning.
+
+[00:37:16] Me as someone who decides half an hour in advance what I'm having for dinner, it must be helping the chefs. And they get proper good chefs, don't they? So I think I was reading an interview with the British chef who says it's quite a fun job because it's such a challenge, but he'll make Thai curry and Moroccan Tajid and meatballs and burritos. And this is all with ingredients.
+
+[00:37:36] that arrived sort of eight months earlier. And so he has to put in an order. It's like the most high-pressure Tesco order ever. You put in an order once a year for all the food ingredients that you're going to need to last an entire year. If you forget coriander, that's it. You're done for.
+
+[00:37:53] It says on the YouTube channel that if you don't get a delivery, there's a lot of fish, obviously, in Antarctica, if you can catch it. But other than that, all there really is to eat is seal placenta. Oh, God. Which the penguins laugh, apparently.
+
+[00:38:10] Oh, thank you. What's wrong with the rest of the seal? It must be the best bit. But you couldn't get a seal, I suppose. You don't have to catch the presenter. That's true. They didn't use to bludgeon seals back in the day, sort of when Scott was there,
+
+[00:38:28] and they would take the blubbery bits, and they would mix that into a porridge that they would make to sort of use that, which is disgusting, but they're not allowed to do that anymore because there's this whole Antarctic Treaty, which got set up, which sort of, yeah, the old Antarctic boring treaty that they set up, which means you can't, yeah, you can't do that anymore. You can't sort of beat up the local.
+
+[00:38:51] Yeah. It's political correctness gone mad, I think we'll agree. It does sound like they ate better back in the day. Scott's expedition, obviously famously, he didn't eat very well towards the end. But when he was in Antarctic, before he went to find the South Pole, he lived at Cape Evans in a hut, which sounded like they were living the life of Riley. So he wrote in his diary all the meals they had, and they'd have things like sort of several courses. They'd have turtle soup. They had stewed penguin breast in red currant jelly.
+
+[00:39:21] They were having crystallized ginger and champagne. They cooked, they used penguin blubber as oil to cook it, although apparently didn't taste very nice. So they were really, I mean, before he ended up accidentally going on an X-Pont. where he only brought half the calories he needed, then he was living the high life. Most interesting thing about Scott, though, is that he is the spitting image, the doppelganger of John Lloyd, the reason that we all know one another, the creator of QI. And I know this because I was touring in New Zealand and I went to a museum in Christchurch. because a lot of the Antarctic expeditions set off from New Zealand
+
+[00:40:00] and they had a replica of a hut that they were going to take with them and erect when they got there. And you think of a hut, you think of a shed. But this was really enormous. Several rooms and planks of wood and tables. And then a picture of, there's the biggest double take I've ever done in my life. It was on the wall, dressed in some 100-year-old explorer outfit, standing in a heart in a sepia photograph was John Lloyd.
+
+[00:40:28] It's extraordinary. It's a little known fact that the reason Captain Oates left the tent is because Scott was just telling me all these tedious facts. Another quite interesting thing about penguins. I'm going for a walk. I may be sometime. No, it's quite interesting. Eating penguins can be quite good for you,
+
+[00:40:48] or it was back in the day because it contains vitamin C, which would help you against scurvy. Chocolate. Pots of chocolate. Chocolate on the airtime. I should have taken more penguins on that expedition. 200,000 penguins, they'd have all lived. The Belgica, when that got stuck in Antarctica in 1897, they decided they were going to eat penguins to stop them from getting scurvy. But they needed to catch some penguins, right?
+
+[00:41:18] So they came up with a rule where every time that someone caught a penguin, they would give them some money and just try and encourage people to go and catch penguins. But then they realized that all you had to do was play a tune on your trumpet and the penguins would just come and stand right next to you because they loved the music so much.
+
+[00:41:37] And that became the way that they caught them all. And so first of all, they would play the cornet or the trumpet and then there was one guy who pulled out his banjo and started playing a long way to Tipperary. And apparently the penguins loved that and they would come right up to him and hang out with him And then one Scottish member of the expedition started to play the bagpipes. And apparently the penguins fled in terror and plunged back into the sea.
+
+[00:42:05] I went to the Edinburgh Festival once and stayed in a hotel on Princess Street. And it's pretty busy Princess Street, as you know. But it's very, very, very quiet in the morning. Apart from, 10 a.m., outside Waverly Station, a bagpiper starts up. And that, I've never in my life, wanted an air rifle more than that. I think we can all empathise. I'm about to borrow that from my library. Yeah.
+
+[00:42:32] The Antarctic was known as the womanless continent for a long time because there were any women there, basically. That's a good name. Yeah, there was the first women to go and stay. Further evidence that women are a little bit less stupid than men. Some men just kept sailing to this place, getting out and dying. And then otherwise we think, those men were idiots. I won't die if I go there, then they go there and die as well.
+
+[00:43:02] Well, I want to take credit, but actually women were desperate to go, weren't they? They were. The first women to actually go and spend like a year on the continent were two women called Jackie Ronnie and Jenny Darlington. And they were actually the wives of two explorers. And all the other men on the expedition, signed a petition trying to stop it from happening. And when the two women arrived on the Antarctic base,
+
+[00:43:27] one person who was already there fled in fright thinking that he'd gone mad because he saw two women in Antarctic. That's how surprising it was. Okay. But women were explicitly banned from Antarctica until the 60s and 70s in America and the UK. So as in British and Americans banned them. And it wasn't because we were too smart
+
+[00:43:50] because thousands of women were applying right from the start of Antarctic exploration. And they were bound partly on the grounds that they'd try to seduce everyone's husbands. So I think the first woman who eventually went out with the British Antarctic Survey, Janet Thompson, she had to go around and properly meet and talk to all the wives of the teammates that she'd be going with to convince them that she was an actual scientist and not just going out to seduce all of their husbands. Which was a huge effort to go to. There was another quote from the British Antarctic Survey a few years later. I think, which when a bunch of women apply to go to Antarctica and were turned down,
+
+[00:44:25] they would turn down on the grounds that there are no facilities for women in the Antarctic, no shops, no hairdressers. Wow. And even like these days, there are more men there, but it's getting more and more level, I think. The US Antarctic program is about 60 to 65% men. But in the 1980s, there was so many men there and so few women, that they had something called the Sistine ceiling in Weddell Hut in Antarctica, which was basically the ceiling of this whole hut was covered in naked, pornographic pictures of women.
+
+[00:44:59] And in the 1980s, there was an attempt by some Australians to turn that ceiling into an Australian national heritage site of high significance. So what, you mean they kept it as it is? They wanted to put it back as it was and have it as some special site that was protected. It's a bit of a mystery that they're so important to have a visual stimulus that you have to have the image in front of you. Yeah. You can't just picture somebody naked in your head.
+
+[00:45:31] Some people... I just can't think of anyone. I'm going to have to look at an actual photograph. Oh, there's one, yes. Some people can't picture things in their head. I can't picture things in my head. And that's why your ceiling is covered in porn, isn't it? As I say, the pinnacle of human evolution.
+
+[00:45:47] I keep pointing them out to my cat. She's not interested. No, there's a load of eels lying on their backs on the floor. Okay, it is time for our final fact of the show, and that is My Fact. My fact this week is that in 1990, a British Airways flight landed with one pilot in the cockpit and the other hanging by his legs outside the front window. It's an extraordinary story. So this was British Flight 5390.
+
+[00:46:21] It left Birmingham and it was heading for Malaga in Spain. And they were just under 15 minutes into their flight. They were cruising at 17,300 feet over Oxfordshire, when suddenly there was this huge loud bang in the cockpit. The window on the pilot side, on the left-hand side, suddenly flung away from the plane and exposed the plane to all the air on the outside. And the decompression was so great that the door that blocks off the pilots from the rest of the plane got ripped off its hinges,
+
+[00:46:49] straight into the control panel, as well as the pilot who got ripped out of the window of the plane and only didn't disappear because his legs got caught on the control panel. So he was just being whacked back and forth on the plane, on the outside. And the story goes that there was a first officer
+
+[00:47:08] who came in to see if they needed refreshments, which I don't quite believe. I think when the door is ripped off and the plane is sent into a descent, he comes in anyway. He sees the pilot outside, the front window and quickly runs and grabs his legs and has to hold him. And the story ends with them having to make an emergency landing. They spend 22 minutes from the moment that it happens
+
+[00:47:31] to landing and they successfully land. And he's alive. It's an extraordinary survival story. But that's the other brilliant bit about this story that I liked was two things. One was that the flight attendants were taking it in turns to hang on to him. Because it was really exhausting and freezing cold. The air was thin. There were, but also that they thought he was dead. They thought they were hanging on. They thought they were hanging on to a dead person. And the reason that they kept hanging on
+
+[00:47:59] was because they were worried that if they let go, he might get sucked into the engine and take the whole plane down potentially. Oh, my days. So he was unconscious, right? He lost consciousness. So it's only when they landed and they kind of, I don't know how delicately
+
+[00:48:17] they dragged him back into the winter. but believing as they did that he was dead. If at that point they then just dropped him out the window and he'd landed on the runway, that might have killed him. But to their amazement, he was alive and rushed to hospital. Wow, and that's good.
+
+[00:48:37] I hope they never told him. I hope you woke up and said, God, thank you so much for saving my life. And they didn't say, no, mate, we were just trying to stop you fucking up the engine. It is extraordinary. incredible. When the guy, the one of the flight attendants got frostbite in his eye. Wow. And suffered per PTSD. But there's such a suction that they think that he's the equivalent
+
+[00:49:02] weight of 500 pounds they were hanging on to. So really terrific feet of endurance and strength to save this guy. Really, it's a bizarre story. That's about the weight of sort of four people, isn't it? Yeah. Yeah. Wow. Well, or two large blokes. It's like two Greg Davises.
+
+[00:49:27] And seeing it all, I mean, it's kind of amazing that the passenger's got to see everything. Yeah. I think that's a real perk for the anecdote purposes once you're back on earth. Do you think? The door blew off. Or would you rather not know what was happening, maybe? Certainly at the time you'd rather think everything was fine and handy. Yeah.
+
+[00:49:44] Then you get two weeks in Southampton. What I find amazing is that in 2018, this happened again. So there was a Sichuan, there was a Sichuan Airlines plane going to Tibet. And there was, again, the windscreen went, and the pilot got sucked out. And the co-pilot said, I looked over to my side, and half of my co-pilot's body was hanging out of the window. Fortunately, he was wearing a seatbelt. So they only got halfway out, and they managed to pull him back in.
+
+[00:50:15] But apparently it's a thing that happens. That is an advert for seatbelts if you have a next one. Don't ever take your seatbelt off in a plane. Really, because if something does go wrong, it's not by chance, oh, we'll probably be all right anyway. No, you'll definitely go out of the window. We should say, so the reason that this happened was because the windscreen itself had been refitted to the plane the night before
+
+[00:50:42] and the wrong bolts had been used to secure it. So they were half a millimeter too small. And so it just couldn't handle the intense air pressure once it was up there, and that's why it blew out. So since then, they've changed it so that they've stopped bolting them out, A, from the outside, they now do it from the inside, which it just apparently is a bit more helpful. And they make sure to use the proper bolts.
+
+[00:51:04] This is just for anyone who's currently on a plane listening to us. It's not going to happen again. Don't worry. Okay. Good to know then. sure to use the proper bolts, how long we're assuring. I mean, it's amazing the stuff that can go wrong. There was this 1983 Canada flight where the pilots had to check the, so you check the fuel levels before you take off, so you know how much fuel to put in the tank for your journey. And they were a bit understaffed, so the pilots had to do the checking themselves, and they
+
+[00:51:33] did it. Their electronic system was broken, so they had to use a dipstick. So they just dip the dip the dip stick into the fuel tank, pulled it out. You've got to figure out the volume from that. And then from that, they have to do the calculations to figure out the mass of fuel so they know how much to add. And to add an extra complication, they just switched to the metric system, which confused them. So they used the wrong calculation. They used a calculation as if they were converting to pounds rather than kilos, which, given that 2.2 pounds is one kilogram,
+
+[00:52:01] meant they ended up with just under half the amount of fuel they needed. And because their systems were broken, they didn't get a warning until the plane engine just completely cut off. and they started plummeting out of the sky. And fortunately, the captain was an experienced glider pilot, which always comes in handy. And so he glid them down just about to safety, although he did break the nose off the plane. But it's quite confusing.
+
+[00:52:25] Was that pilot a hero? Or was he a moron? I mean, he did cock up the calculations. Yeah. It's interesting, isn't it? That planes, they can glide down, can't they, really? In theory, an airplane is designed. so that even if both of the engines go, it can glide for quite a long time.
+
+[00:52:45] And actually, the chance of surviving depends on how high you are, because obviously the higher you are, the further you can get, and the easier it is to get to an actual airport. And apparently I was talking to my wife about this, who is a helicopter pilot, as you guys know, and I was asking her, like, if we were flying in a helicopter, and she collapsed, would I be able to land the helicopter? And she reckons that there's about a 50-50 chance
+
+[00:53:08] that I would be able to do it. No way, really? And survive. That's what she reckons. I reckon it seems a lot of. She buys into this whole thing about your family being the peak of evil. She thinks you're an actual genius. She thinks I could jump out and just fly down, but no.
+
+[00:53:24] James, when you say she collapses, is she still telling you what to do? No, no. She said that the main problem, first of all, would be throwing her body out of the helicopter and getting the controls before it went out of control. But if I managed to do that, she actually. Why do you need to throw the body out? What if that is that pilot situation again? She's just fallen unconscious.
+
+[00:53:42] It's quite a small helicopter and, you know, I just want to, look. You want to stretch out. I want to stretch my arms and, you know. I got to say the 50% side of you surviving kind of makes you a dick if you do survive. It's not. There's a lot of unfortunate things you need to do to survive there. Apparently, I wouldn't be able to hover, but I'd be able to probably make quite a hard landing. And that's a crash, right?
+
+[00:54:10] That's a crash. It's a crash, but the survival would be, the survival would be approximately 50%. But I don't know. That's what she says. I had my favorite plane-based story from the year is one that I read about a couple of months ago, but it's that there was a French businessman,
+
+[00:54:28] 64 years old, and his colleagues got him a present, and they got him like an experience present. And what they got him was a flight on a fighter jet. And this was in spite of the fact, as he said afterwards, he'd never expressed any interest at all in planes or fighter jets or desire to go in one. So they got him this fight in his amazing fighter jet. And it took off and he felt really unstable. He said he sort of flew off his seat as it took off because, you know, G-FOS and everything.
+
+[00:54:53] And he grabbed at the nearest lever to try and stabilize himself. And what that lever was was the ejection mechanism. And so he accidentally ejected himself from the plane. So the roof flies up the plane. he flies out of the plane and had to surprise parachute land into a field and be taken immediately to hospital where he was absolutely fine
+
+[00:55:15] but resentful of his colleagues. That's so funny. I think the ejection mechanism shouldn't be that accessible. Well, you do need it if you're kind of... Imagine if it wasn't accessible and you did actually want to leave the plane. Yeah, and then you have to solve a Rubik's Q just to get out of the plane or something that's...
+
+[00:55:35] Yeah, my first is in lemon, but not in... Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have set in the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, James. At James Harkin. Alan.
+
+[00:55:58] At Alan Davis, one. Don't go to at Alan Davis because that bloke's had enough shit to last a lot. lifetime. And Anna? You can email podcast.q.com. Yep, or you can go to our group account, which is at No Such Thing or our website. No Such Thing is a Fish.com. All of our previous episodes are up there.
+
+[00:56:19] So go check them out. Also, do go online to any book buying place and get yourself Alan's autobiography. Just Ignore him, which is out now. And it's available Amazon and that new book repository thing, which is really good. Should have looked that up. But I didn't. Just type it in and buy it. At least you say book suppository.
+
+[00:56:41] Yes, please buy my book from your local bookseller. That's what you meant, Dan. That's what I meant. Do what Alan says. And we'll be back again next week with another episode. We'll see you then. Goodbye.

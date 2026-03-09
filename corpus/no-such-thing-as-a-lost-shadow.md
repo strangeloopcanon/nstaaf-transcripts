@@ -1,0 +1,227 @@
+# No Such Thing As A Fish - No Such Thing As A Lost Shadow
+
+- Episode date: August 23, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-lost-shadow
+- Slug: no-such-thing-as-a-lost-shadow
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Geneva. And Schreiber, I am sitting here with Anna Chisinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go, starting with you, Anna. My fact this week is that jobs that have recently been added to the US census include dosals. scaler, automotive window tinter, and blimp pilot. These are the jobs of the modern world, apparently.
+
+[00:01:00] What is it? Well, we'll come on to that. Blimps are back in, baby. What is a do-scaler? Yeah, it's a really good question. It's something to do with baking. I see. Now I understand. Thank you. There you go. This is, so, the US has
+
+[00:01:17] censors every 10 years, like a lot of places. And then every year they do the American community survey where they still interview lots of people. And the way they find out about the jobs people have got is they just ask, describe what you do, what do your roles in tail? And then if enough people describe a similar thing that doesn't yet fit into a category, they add that category. And enough people that describe the work that goes into scaling dough. It's amazing. To make dough scale, they're a new job. There are a lot out there. There are a lot of these jobs. There's an entire spreadsheet which I've read through, well, I've read through the start of
+
+[00:01:50] The first in the list is Abalone Fisherman. It's all an alphabetical order. You can be an abrasive grinder. I know I am. You have an abrasive grinder profile. There is alcoholic counsellor, which sounds like it's the counsellor who's an alcoholic. Oh, yeah. I'm your local counsellor.
+
+[00:02:16] I just wonder, I can count on your vote. There is some people, in America who describe themselves as an animal killer and also an animal eviscerator. Whoa. I know. And just, just let me do this. This is all things from the B categories, okay? So, baby nurse.
+
+[00:02:38] Now, I'm not sure if that's a baby who's a nurse. Adorable. Ball holder. Ball holder. Ball shagger. Ball point pen. Archerich tester, banana expert, bean snapper, bee robber, beef killer, belly builder, biscuitware brusher, bladder blower, bone puller, bone worker, boring machine operator,
+
+[00:03:11] bottom cementer, bottom filler, bottom sprayer, and breast worker. Breast worker. They're all genuine things that you can do in a moment. Beef killer. Beef killer, yeah. Is that for people who are still not sure if they're cows dead? And they just really want to really make sure. So they've been in it for, you know, some time, presumably.
+
+[00:03:34] They're all, so they have the latest one up there. So I don't know if they're new. I don't know when they came in. Yeah. It's a weird thing because these, the census jobs, it's sort of, there's a lot of, I guess, humor as well in it, where people just write a fake job down. And those have been collected over the years.
+
+[00:03:50] So these are obviously all real. But I was reading, it goes back. So the 1881 census from the British, in Britain, sorry, they have great ones that are on there. And this was tweeted by someone called Jordan Erica Weber. She found these. So on the census in 1881, there was artificial scone maker, body washer.
+
+[00:04:11] Body is in your bum bum. Spar me the medical mumbo jumbo, Dan. Examiner of underclothing. Ferretweaver. fish bender, grape dryer, turnip shepherd, and 52 years an imbecile. I read this list too.
+
+[00:04:31] Because some people just put their sort of status in life as opposed to their job. So one person wrote fatuous pauper. Yeah. Another one wrote very feeble. One person, this intrigues me, wrote drowning. Yeah. I want to know about the circumstances under which then the answer to the next question was,
+
+[00:04:54] I assume when I saw that it was for rabid animals, maybe. Drowning, what? You know, do you have to drown an animal that's going to kill people? Why do you have to drown it? Because I was like, how are you going to kill a rabid kitten? What? Why have you turned this back on me? Why are you going to drown it?
+
+[00:05:12] Sorry, fine, I'll give my rabid kitten to you next time I have one. Thank you very much. I'm actually only qualified as a beef killer, so I wouldn't be able to... They're always doing weird stuff in the olden days with animals, like contorting them into weird shapes. Like, you mentioned a fishbender? Is that before they invented balloons and they just had to do it with the real thing?
+
+[00:05:31] Children's birthday parties were so traumatic. A poodle, but it was a cat before. They had a cow banger. I don't know if you mentioned that. Cowbanger and then the fish bender, which you mentioned. But is a cowbanger an abattoir person? I assume it must be. And maybe they were more fluid between what beef meant in that you can kill it and banging cow is.
+
+[00:05:55] When the census happens in the USA, there are 600,000 people working on it, which means that the act of taking the census alters the unemployment rate by 0.2%. So when they're going through it, is it just like census taker, census taker, census taker. You know, there's a weird thing that happens with the American census, which is on the, it's, it's, it's a, it's, it's, it's, it's, I think it's done on April 1st, weirdly. So it must encourage a lot of people to write bizarre things, except for one place, which is Alaska, where it happens on the 25th of January. And the reason for that is because by the time April the 5th comes around,
+
+[00:06:33] it's too cold there, so everyone's gone. They've just gone to warmer places, and no one's there to do the census. Wait, mate, why do you think it's getting colder as the year goes on? Sorry, do you think it's colder in April in Alaska than it is in January? The reason is. Well, hang on, we'll spend December and January in Alaska when it's lovely. But then we'll get out of there for April.
+
+[00:07:00] 35 years and imbecile. Sorry, I come from Australia. Our seasons are different there. Yeah, yeah. Fair enough. Actually quite a good excuse. It's a good excuse. I've been there for 16 years.
+
+[00:07:16] It's a terrible excuse. I think it's because it gets a bit warmer there. And when it gets warmer in Alaska, then the people who live there go and do things like fishing. They're in communities that go fishing and fishing. hunting so when you go around to take look, do you want my notes? When they go around to take the census
+
+[00:07:33] no one's home. I think that's partly to do with it, right? I'm not so sure. People used to prank the census. This was really exciting. In 1911 in the UK was the first time that people got to actually handwrite their own responses. So that's quite cool for a number of reasons because it means you find
+
+[00:07:49] very famous people in there. Winston Churchill is in there just listing what he does. But there's also, for example, a man who, it was only the head of the household who wrote the responses. So one man listed one of the occupants of his house as Peter Tabby, whose occupation is Mouser and his nationality is Persian. And the census representative has crossed out this line.
+
+[00:08:12] You can see the cross out line and written beneath it, this is a cat. We've got drown it now. We're going to have to move on in a second, guys. Oh, can I just say some things that other things that have been written on censuses? So the people who were taking them my interesting stuff in the 19th century in the 19th century in the UK
+
+[00:08:33] this was the censors takeer would go around and often they'd ask the questions and then write down the answers themselves and it was about taking a census of everyone in the household but sometimes you had a homeless person who was camping out in a barn or things like that so for instance in one census someone was recorded on the census
+
+[00:08:49] but he just wrote next to him drinking slept in shed unclear whether he was a member of the household another one was recorded out at home but dead. Would you want someone to clarify? If you go, oh, it's James in? You want someone to clarify?
+
+[00:09:06] I was like, yes, but he is dead. There was one really snooty one in Hampshire, in the Hampshire parish record, actually, that someone found online, and it was recording the existence of the baptized bastard child of Mary Brown, gotten of John Smith, brackets, so she sayest, closed brackets.
+
+[00:09:30] Because it was often vickers who recorded it and they were very judgmental. So the very reverend Dr. Peter Scrimshaw, Wood, got to go around doing all of his parish's responses and so he found an unmarried mother and he just described her occupation as man-trap. Okay, it is time
+
+[00:09:52] for fact number two, and that is my fact. My fact this week is heavy metal musician Tony Iommi began playing heavy metal guitar with two metal fingers because he lost his real ones while working at a metal factory. This is Tony Iommi from the band Black Sabbath.
+
+[00:10:12] I got this fact, I just have to say, it's one of the best books I've read in a long time. It's called A History of Heavy Metal by a Friend of ours, Andrew O'Neill, who's a comedian, but he's written a proper history of heavy metal. It's just brilliant. Packed with facts, lots of funny jokes. The opening line is one of my favorite opening lines to a book. He says, this is the opening line.
+
+[00:10:30] There are two types of people in the world. People who like heavy metal and dicks. So Tony Iommi, he was working in a metal factory, and he was asked to do a job that he would never done before, and he was meant to quit that very day. And he, in fact, stayed at home, and his mum made him go in to do the job. And he was working, and suddenly, when operating machine,
+
+[00:10:51] the two tips of his second and third finger were chopped off. The bone was still there. He went to the hospital, and they said, we're going to have to saw the bones off. And he was very depressed, and a friend of his brought in a... a record of a guy called Django Reinhart, very famous guitarist, who could only play with two fingers on his guitar because the rest were paralyzed. And he thought, okay, I can do this. So he started experimenting with ways that he could make tips for his fingers so that he could start
+
+[00:11:18] playing again. And the first iteration of that was metal. He used metal to make that. Then he moved on to soldering a cap from a soap bottle down, attaching some leather around it, and using that. And what's extraordinary about this is worth saying, is that, Tony Iommi is credited with inventing heavy metal. Black Sabbath is said to be the first heavy metal album, and it was because of this situation that he couldn't play with regular strings. So he had to buy banjo strings for his guitar. He lowered them down, and by lowering down the notes,
+
+[00:11:49] he started playing the first metal riffs, and that's why we have heavy metal, because he lost two fingers in a metal factory. That is unbelievable. It's almost like he set it up. It's too perfects. Yeah. I think he did it just to get his mum back for forcing him to go to work.
+
+[00:12:07] The only thing I know about Tony Iommi is that he was pretty nuts, I think. Like Black Sabbath did behave in a gratifyingly crazy way back in the day, like you think they did. But he once exploded Richard Branson's prize carp. Carp. They went to stay at Richard Branson's house, Black Sabbath, and he decided to launch some fireworks into Branson's lake, where there were his prize carp, which do cost many thousands of prices.
+
+[00:12:33] pounds and he exploded them all. Oh, occupation. Carp detonator. Do you know that heavy metal has a birthday. Oh, stop it. No, it does. I mean, what is it? Because Black Sabbath's first album was seen as the very first heavy metal album and it was released on Friday the 13th in February,
+
+[00:12:54] 1970. That's the birthday of heavy metal. Really? Yeah. Surely deliberate. So metal probably has more subgenres than any other kind of music, I reckon. There's a big list on Wikipedia. They have National Socialist black metal on the far right and red and anarchist black metal on the far left. They have Viking metal, war metal, unblack metal, sludge metal, pirate metal, space metal, grind core, death core, gore grind, death grind, porno grind, math core. Math core. Math core. Math core. Math core. It's just maths. It's just maths. Very loud, shouty maths.
+
+[00:13:35] They have... Speaking of school subjects, they have Latin metal. No. But unfortunately, it's about Latin American music, not all in Latin. Do they have geography metal? Wow. But I wonder if it's like the people's front of Judea and the Judea people's front, where do you think they all hate each other?
+
+[00:13:52] All of the metal... Because they sound pissed off about something. From the book, I read the suggestion that, yeah, the split groups are... They don't think there is, you know, hardcore as each other. Yeah. Like glam metal, motley crew and all that sort of famously wearing lycra and stuff like that. Oh, glam. Yes.
+
+[00:14:10] Sorry, I thought he said glanned metal. That's another subgenre. Well, they had in The Simpsons once, there was a Simpsons episode where they quoted a Judas Priest song, and they referred to it as death metal, and they got so many furious letters for metal fans saying Judas Priest is not death metal, that in the next episode of the Simpsons, the message that Bart wrote up on the board, what, you know, he writes on the blackboard, the message, was Judas Priest is not death metal. Wow. Some people who are, some things that do like death metal is sharks. Typical, let's face it.
+
+[00:14:47] There was a team from the Discovery Channel in 2015 who wanted to attract a large female great white called Joan of Shark. Do do, do, do, do. And they put this speaker under water and played a load of death metal. And it didn't attract Joan, but it attracted a load of other sharks. So it does seem like they like the vibrations of death metal in particular. Wow. Very cool.
+
+[00:15:12] Oh, I have a fact about, it's related and you'll see why, but it's about Mozart. It's not about metal. But it's about, I was looking at musicians who've overcome impairments, basically. So Mozart started going deaf at the age of 26, which is a huge problem, obviously. But it's... Sorry?
+
+[00:15:29] Beethoven? Yes, it is. Yeah, great. Shall we begin again? So, Beethoven started going deaf. No, stop it! No, come on. How's that going to sound?
+
+[00:15:46] Won't make any sense. Beethoven started going deaf at the age of 26. And it started with tinnitus, and there are lots of theories as to why he had the tinnitus. So the theories as to why include that he may have had lead poisoning, or syphilis, or typhus, or that it was due to his habit
+
+[00:16:00] of immersing his head in cold water to keep himself awake. Wow. Yeah. Wait, and that's so, the relationship to the previous fact, is the sharks are also immersed in cold water. Correct. Got it.
+
+[00:16:15] I couldn't tell you that at the beginning, because it was the end of this fact. Spoiler, yeah. Yeah. Spoiler that. Brilliant fact about Mozart or Beethoven or whoever it was. We need to move on to our next way. I've got some stuff about people who've lost fingers.
+
+[00:16:29] Okay, yeah. So one group of people who've lost a lot of fingers is cavemen and women. So. cave persons So do you mean historical ones? I do. I don't mean people
+
+[00:16:42] live in caves today. I mean... How on earth do we know this? The main physical impression that we have of people who live particularly in caves is handprints that were left in lots of caves
+
+[00:16:53] in France and in a few other countries. So there's the Gargas Cave in France which has 231 handprints left by the people who live there. Of those, 114, are missing at least one finger. Wow. And there are other things.
+
+[00:17:05] caves where it's also 50-50, the handprints that are there are missing it at least one. And we think they were all working in metal factories, too. Yeah. It was the Bronze Age, there was a lot of it going on. There's lots of theories. So one is that it was a punishment or one is that it was a kind of ritual thing. Some people think it was frostbite, and some people think they were just folding down their fingers. They were doing the medal sign.
+
+[00:17:29] Well, the ancient Greeks used to cut off dead people's fingers. So this was, they were paranoid that people weren't actually dead. and they cremate them or bury them when they were still alive. And so to check, they'd cut off a finger. The reasoning being that if you weren't dead, then you'd say something. Wow. Well, we know he's at home, but we're not sure if he's dead or not. You know, if you do the peace sign with your two fingers,
+
+[00:17:50] if you do that and you're photographed from within nine feet on a smartphone, your fingerprints can be stolen, reconstructed, printed out, and used to access your stuff. No. Yeah. Wow. I know. We should say that I don't know if they gave us permission to say this
+
+[00:18:07] but I'm sure they did. When we were at CERN earlier, we were talking about the idea that you get your eyeballs scanned and checked to give you entry to places. I think it came up in Angels and Demons in Dan Brown did it? And so apparently they tested it out. Some scientists tested that out to see if that does work and it turns out
+
+[00:18:23] it doesn't. So if anyone was going to murder somebody to get their eyeball to let them into a building doesn't work no point. In fact, don't use any of Dan Brown's work a way to live your life. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that in 19th century Romania, there were people who sold shadows,
+
+[00:18:48] and they would sell your shadow without your permission. And then you would die less than one year later, according to superstition. So in Southeast Europe, they used to have this tradition where you could use, use your shadow as a sacrifice when making a new building. Okay, so basically you would stand there in the sun, and then they would put where your shadow is,
+
+[00:19:13] and they would put the first block there, and then they would build the rest of the house, and supposedly it would stop the house from falling down. But like I say, unfortunately, would mean that the person whose shadow it was would die within a year, according to superstition. So people didn't really want to do that. And so what they would do is they would sneakly entice people
+
+[00:19:32] to stand over next to a building, sight and say, oh, just stand over there and you're like, you're not going to start building the house here, are you?
+
+[00:19:40] Oh, no, no, no, no. And then they would do it and then they would die within a year, according to superstition. And then people kind of got wise to that and you had shadow traders who would kind of stand next to you
+
+[00:19:54] in the street and they'd see your shadow and then they'd sneakily measure it and then they'd give the measurements to a builder and that supposedly counted that if they put the measurements in their foundations and that would work as well. And so did these people go home and then suddenly look down at the floor and say, oh my God, I've got no shadow?
+
+[00:20:13] No, unfortunately the laws of physics stayed the same. They always, they mostly do. Apologies to the Cern guys who are in. Do you know what the precursor to this was, though, this tradition? This was actually a more humane version of what came before it, apparently, which was that the idea was that you had to ward ghosts and terrible spirits away from this new house so what they used to do was either crush someone under the foundation stone of a house or put a living person into like in between the walls of the house
+
+[00:20:45] so that they would die there and their spirit could haunt it and scare away other spirits now i can see where the dying within a year bit comes down not according to superstition at all that's just you wouldn't you wouldn't want to buy a new build house in 19th century romania would you was that someone at the door no that's just the guy in the He's still dying. You know, whenever any man goes to look at a new house, all they do is kind of knock on the walls, don't they? And no one has any idea why they're doing it. It's a ritual as old as you're just finding the guy.
+
+[00:21:16] So I was looking a bit at shadows. And I was looking at shadow puppets. Okay. So most shadow puppet shapes were invented by the same man. Really? This is amazing. So he was called Felicia Antrui. and the art was called Chinese shadows or ombro chinoise.
+
+[00:21:33] And he popularized it basically, and he wrote a book saying, I can do everything. I can do the elephant, the bird, the cat. And there were a lot of people as well. There was the volunteer, the fisherman, the preacher, the jockey, the rope dancer. He did an entire play, which was just him doing handshadows. Wow. Yeah.
+
+[00:21:49] And this was, it was really, really popular in the 19th century. And he had one other trick as well. His other art was chapography. Chapography. Can you guess what that is? Hair writing? It's hats. He would get a single piece of felt,
+
+[00:22:03] okay, single normal piece of felt. He would fold it into different shapes repeatedly to make different kinds of hat. And this was really huge. This was the most exciting thing. Sorry, this was before the internet, was it? There is actually this footage of very late, like 19th century chapography happening.
+
+[00:22:25] It does sound cool, actually. It doesn't, and he, you know, he takes it off. or it's a later practitioner, he could do 35 differently shaped hats with a single piece of felt. And when he puts on everyone, he does a little face to say, look, this is the nun,
+
+[00:22:37] or this is the fisherman, or this is the other person. But it was not... Again, it's just a precursor to the balloon contortar, isn't it? Children's birthday parties have always been the same. Yeah. Shadow puppetry, there is the reason they called it Chinese shadow puppetry.
+
+[00:22:54] It is because China did it for 2,000 years before this guy's... started. But they didn't, but they but they used actual, they didn't use their hands because they made wooden puppets and then cast their shadows on to walls.
+
+[00:23:09] This is the plagiarist. Oh, here comes the lawyer. In China there's evidence of it happening since the second century BC and the legend always went in China that the reason it was invented was because there was an emperor, the emperor,
+
+[00:23:27] D and his favourite concubine died and he was really devastated and so one of his mystic assistants started shadow puppetry in order to convince him that his concubine had come back from the dead so he just made the figure of his concubine and cast her shadow on the wall and was like
+
+[00:23:43] look she's just over there and she's in the room and apparently that made cheered him up no end and it caught on I don't know if he fully believed that she'd come back no he could never quite have a conversation with her again but They caught on and then it was brought to Europe by Genghis Khan or by Genghis Khan and the Mongols sort of marauding armies.
+
+[00:24:03] That wasn't their main aim though, was it? Spread the shadow puppetry. That's why they did it. He's always painted in a bad light. He was just trying to spread the arts and culture. This one is the invading horde who will burn your village. The invading Mongol armies traveled with a horde of shadow puppeteers to keep them entertained.
+
+[00:24:25] They did not. They did. They had shadow puppeteers in their troop. Wow. Even the Mongols had an off day. Amazing. Do you mean a day off when they'd enjoy the shadow puppetry? I mean a day off, not a bad day.
+
+[00:24:38] Do you know they've invented buildings, skyscrapers, that don't have shadows? No. This is really cool. So using computers, they've done this. And you need two of them. Okay. So you have these two big buildings. And then the light comes on and they kind of reflect off like a mirror.
+
+[00:24:55] But then one reflects onto the other. and the other reflects onto that one. And basically the light just very slowly goes to the floor and there's no shadow at all. It only works if they're exactly on the Greenwich Meridian in London. So you have to build them exactly there in the centre where they're already as a museum. Yeah.
+
+[00:25:14] But in theory it works. Does it have a use? That's the question. The shadowless building. So the idea is like if you were to build it, you could put it anywhere and slavit. slightly change the metrics and you could build it in a different place. These ones only work in Greenwich but other ones could work anywhere. And let's say you want to build a massive building
+
+[00:25:35] near Central Park, for instance, in New York, but you don't want to have a massive shadow over the park because people want to sunbathe, you can put these things there and then they won't be getting in people's way. And the other thing is there's a lot of buildings that are now being built that are solar powered. And so if you've got a solar powered building or a house or a farm, and suddenly a big building is just knocking out the sun, you can't operate. So there's new laws that are being put in place to say that you can't have a shadow come over you if you're... Wow. Because they have a tax on shadows in Italy in some places already, which I thought was absurd, but it's sounding more sensible.
+
+[00:26:09] But this is small business owners in, mainly in a place called Konegliano in Italy, have to pay local tax on the shadows that their buildings cast. And it's like 100 euros per annum. And they didn't really know they were paying it until recently. And then they went, what the fuck? I'm paying for my... shadow. And the idea is that if you're building casts a shadow on someone else's land, then you are occupying that person's land. And so you have to bear attacks on that. That's really interesting. Yeah. You can get a shadow boyfriend in Japan. That's good.
+
+[00:26:41] This is kind of like the Chinese emperor thing actually. So it's a device that was allegedly at the prototype stage last year, although I don't think it's made it very much further than that. But it projects the shadow of a man onto your curtains. It's basically what um it's basically what kevin does in home alone if you remember that he pretends he's hosting a party yeah so is that a boyfriend or a burglar yeah no it's the burglar sees it and he sees oh well there's a big strong man there so i won't try and burgle that home so and you can choose the activities there is a range of activities you can get them to do so weightlifting playing guitar boxing just swinging a baseball bat around feels like overkill
+
+[00:27:23] And there are more realistic ones where they're just sitting at a computer for ages. But if he's on the other side of the curtain, which is right against the window, right? No, no. So you're looking at the building from outside. Yeah. And as the homeowner, you project the shadow onto the closed blinds or the closed curtain. So someone looking from the outside thinks they see a bodybuilder. Yeah.
+
+[00:27:45] Yeah. What's your beef? Well, who hangs out in front of a curtain by their window in a blind? A rubber. Exactly. So you'd probably think they'd probably think they'd. was being burgled and reported. Oh, wait, lots of people hang out. It's been in front of their window.
+
+[00:27:57] Burglars don't break in and just start doing some weightlifting. Not the weightlifting one, but it would be great if you could get a shadow thing to project the image of someone robbing your home. Because then the burglar will see it and think, oh, someone's already got there. Yes. Okay, we need to move on to our final fact of the show, and that is Andy. My fact is that some afids fix their homes by. exploding themselves and plastering their own bodies over the holes in the walls.
+
+[00:28:29] So this is a species called Nipponaphas Monzeni. And this is a scientific study by someone called Takima Fukatsu. And they live in very big lumps on trees, these aphids, called Gauls. And sometimes these are invaded by caterpillars. And these young apids, they're called nymphs, technically, they're dispatched to assassinate it, to stab it to death. And as those guys get fighting, other little aphid soldiers rush there, and their job is to explode. They're just full of fluid, and they get there, and then there are these two holes near their bottom, and they just explode these globules of goo all over the place, and some of them get stuck in the glue as it hardens around them.
+
+[00:29:13] So they're trying to mend the hole in the wall, fix the breach. And others release so much fluid. They shrink to a third of their original size. And then they're just these little shrunken balloon affids who can't do anything. And they die. That is, that's a sad ending to that story, actually. It's a sort of heroic sacrifice, I guess. Oh, yeah.
+
+[00:29:30] You can look at it like that. It's really amazing, though, isn't it? And they think that the way it might have evolved is that originally these fluids would be helped. If they just had like a cut on their elbow or something like that, it was almost like a scabbing thing, like a human wood. But then it's kind of got more and more and more and more so that now it's learned to scab over a plant rather than just the aphid itself.
+
+[00:29:52] Which is amazing, isn't it? Some of them seem to go outside the home So some of them do the exploding And then some of them just secrete the gluey stuff And paste it on But a lot of them do it from outside So then they paste themselves outside their own home That's tragic
+
+[00:30:09] And then they can never get back in Can't get back in, they're buggered, yeah Wow That's the real idiot kind of construction worker, isn't it? What have I done? They also do this exploding against predators some of them. So cabbage aphids, they get chemicals from cabbages, and they can mix certain chemicals, and if a ladybird or something tries to eat them, they can explode. And it's almost like a mustard
+
+[00:30:34] gas that goes into the ladybird's eyes, and then it runs away, and they can, well, they are dead. Oh, they die in the... Yeah, but they've saved their mates. That's the important thing. That's so cool. So they've got these two chemicals in different bits of their body, and when they're attacked, they combine them. Yeah, that's like in Die Hard 3. That's the bomb in Die Hard 3. That's the structure of the bomb in Die Hard 3. Is it?
+
+[00:30:59] Yeah. That's amazing. They're incredible. Aphids. I've never really... Can we talk about Die Hard 3 a bit? Yeah, sorry. Yeah, yeah, yeah.
+
+[00:31:06] No, but they are extraordinary, aren't they? I was reading this thing about them, which is... So, they'll all exist on a plant. A colony of them will exist on a plant. But they don't have wings. So they all hang out there. A lot of them do have wings. Well, no.
+
+[00:31:17] So let's say with the species that don't... that don't have it, they'll be on this plant, and they'll suck it dry or it'll get too overcrowded, and they need to move on. So when that happens, they produce a generation
+
+[00:31:30] of the same species with wings to fly away, and then they land another plant, and then they lose the wings again and just hang out there. They can just suddenly have a generation of winged aphids of their species. They have weird reproduction because they sort of alternate
+
+[00:31:45] between sexually reproducing, and then the women going, we can't be bothered to use men, and then asexually reproducing, which mostly they'd, they do the latter, don't they? But when they're on plants, sometimes there'll be a whole bunch of aphids on a plant feeding on it, and then they see a deer or something coming towards the plant
+
+[00:31:59] and it's going to eat it. So they all need to throw themselves off, like a mass leap. And then they get to the floor, and the little ones piggyback on the bigger ones to escape. So you see the little afids climbing onto the older aphid's backs, and this is when it becomes more individualistic, because the scientists who've watched this say, the old ones are there trying to scrape them off as they're trying to escape. Go off me!
+
+[00:32:20] But they do do it. That's amazing. And you were saying how they can kind of reproduce without males, the females. They could do that up to 41 generations without having any sexual act with a male. But it does mean that if you had one aphid, one female aphid in a room, and no aphids died, then there would be more than 1.5 billion billion, billion aphids at the end of the season. Which means that the earth could be covered in a layer of aphid's 149 kilometers deep within a year. Wow. So they're just, most of them are dying. Well, that's why ladybirds are so great. Thank God. God, that's amazing. Is it true that they, sorry, Andy,
+
+[00:33:01] is it true that they are basically born pregnant? I kept reading the thing. Some of them are, yeah. That's extraordinary. And then, yeah. They give birth to offspring, which already have embryos inside. They're just, like,
+
+[00:33:10] there's a tinier aphid. Yeah. Three times over. Yeah. And they just lift their upper torso off. And out comes the smaller version. So the thing they really like is sap. they love sap.
+
+[00:33:23] They also get called sap suckers. That's how much they like sap. And they excrete this thing as they feed, which is called honeydew. And they have to eat so much plant sap because they need various nutrients and they can only get those nutrients in the quantities they need
+
+[00:33:37] by ingesting a huge amount of sap. So the giant willow aphid produces four times its own body weight in sugar every day that it's excreting. So that's the equivalent of a human leaving behind a couple of bathtubs of water every day with 300 bags of sugar inside. That's what they're doing each day.
+
+[00:33:56] And also other animals love this honey dew, which is their aphid excrement. So sometimes if bees can't get nectar, they will just lick up aphid poo instead. Because it's very high in sugar. It's fine. It is fine. It's fine, but it's not quite as good as nectar, is it? It's not quite as good, but it does, I mean, if honey,
+
+[00:34:15] honey can be made of plants up, but it, that's been filtered through an aphid's bum, and then vomited up. up by a bee. But the reason that their sugary excretions are most important is because of this amazing relationship they have with ants right, that you can't talk about aphos without talking about ants because the ants love
+
+[00:34:30] their honeydew, which is such a weird euphemism for poo. So they have this really symbiotic relationship with ants and it's hard to know who's winning and who's losing in that relationship. And so sometimes ants will bite off aphid's wings so they can't fly away. But they can't kill
+
+[00:34:47] them because they need to keep on licking this honey stuff. And And so that means they defend them. So when other attackers come and they want to eat their aphids, then the ants will fight them off because they'll stop anyone killing them. There's this really cool ant, actually, which is, we think, is the first meat farmer, aside from humans. So it's an ant that farms apis but for their meat, because these are apis that don't actually produce this sweet stuff.
+
+[00:35:10] And so it's called the Melisotarsus, and it's about three millimeters long. And basically they keep all these aphids together inside the bark of trees, and they sort of farm them, and they gradually eat. eat them. But what's quite cool about these ants is they've obviously got six legs, but one of their pairs of legs, their middle pair points up, not down. What? What use is that? I guess if you fall on your back, you can turn yourself over again. No, it's because they're always burrowing through tunnels in trees, and so it helps them get their two feet on the roof while they've got four feet on the ground. That's amazing. It's cool, right? And also, so we're not totally sure they eat
+
+[00:35:45] the aphids because they really hate being spied on. They're very private, like a lot of us. And so we've seen that they keep the aphids sort of farmed inside the tree, but whenever scientists drill holes in the tree, the ants immediately block them up again. So we haven't been able to watch yet. That's amazing. We have to wrap up in a second. Some aphids defend themselves
+
+[00:36:05] by having sex with other affids and getting STDs and they actively seek out STDs because they give them superpowers. What superpowers do they get? Well, it's a very specific superpower. Wasps like to lay eggs inside aphids, and this is a big problem, obviously, because no one likes to have an egg laid inside
+
+[00:36:23] them by a wasp. But the good news is that there are particular STI bacteria which destroy developing wasp grubs in your body. So the only way for a female to protect herself is to seek out a male with a sexually transmitted infection. Well, how does she know? It's on his Tinder profile or something. I don't know how the female knows that the male has it. Wait, so she's been parasitically implanted. I think it. I think it's, I think. I think it's on his tinder profile or something. I'm I think it's before that. She might be. It's like a prophylactic kind of method.
+
+[00:36:52] It's like a condom rather than the morning after pill. Yes. Yeah. It's, except the condom is getting an STD. Yes. Do you know that due to aphids, or aphids had a real thing with wine in the 1900s, early 1900s, and they really started attacking all the wine in the world.
+
+[00:37:13] They were eating all of the roots, and it meant that the French wine industry almost went out of business and actually all of Europe did. And what they found is that the aphids loved the roots of French vines and other European vines, but they really hated American vines. And so these days, almost all French wine,
+
+[00:37:32] even though it's French grapes, they're grafted onto American roots. Oh. And so actually most French wine is actually half American. Wow. We're going to get letters. Glad we didn't do this fact on our Paris
+
+[00:37:48] bit of the tour. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts.
+
+[00:38:01] I'm on at Shreiberland, Andy. At Andrew Hunter, M. James. At James Harkin. And Shazinski. You can email podcast at QI.com. Yep. Or you can go to our group account,
+
+[00:38:10] which is at no such thing or our website. No such thing as a fish.com. Thank you so much, DeNeva. That was great fun. We'll see you again. Good night. Thank you.

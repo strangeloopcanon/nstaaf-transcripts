@@ -1,0 +1,301 @@
+# No Such Thing As A Fish - No Such Thing As Jiminy's Cricket Shop
+
+- Episode date: July 30, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-jiminys-cricket-shop
+- Slug: no-such-thing-as-jiminys-cricket-shop
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Coverns Garden. My name is Dan Schreiber and I am sitting at a very comfortable distance from Anna Tyshinsky, Andrew Hunter Murray and James Harkin. And once again we have gathered round the microphones with our four favorite facts from the last seven days and in no particular order, here we go. Starting with fact number one, that is Anna. My fact this week is that in 1877, all able-bodied men in Nebraska were required by law to spend up to 12 days killing grasshoppers.
+
+[00:00:50] Wow. Wait a minute. I'm always looking for the loophole up to 12 days. It was, well, it was, they had to spend two days, definitely. So you can't get out of a weekend. And then if there was further work needed, then the government, state government could call on you to do an extra 10 days. So it was up to 12 days because some people enjoyed it. much. It started to look psychopathic and it's like, all right, we need to cut you off here.
+
+[00:01:13] Yeah, exactly. It's developed something else. You can't devote 365 to it. How many grasshoppers can be that everyone, I mean, I know Nebraska even though is quite sparsely populated, but that's a lot of grasshoppers to kill, isn't it? Definitely more than one grasshopper per person. So it was a lot. This was the Rocky Mountain Locust, which is a grasshopper. And it was this massive scourge in the 1870s and the 1860s. It basically ruined the kind of great. Plains area, so Kansas, Nebraska, the Dakotas, those kind of areas. And it destroyed crops. It ruined people's livelihoods. It drove the population out. And they had to do something. So the states passed various laws saying, get out and do your duty. Murder grasshoppers. Wow. It's insane.
+
+[00:01:57] There's a sighting in 1875, so two years before this law was put into place, where it was estimated that there was a hundred and ninety-eight thousand square miles of locust swarming. So that's larger than the size of California. In that area of 198,000 square miles, which I reckon is just a little bit smaller than England and Scotland combined, there were 12.5 trillion insects. Okay. And to put that into perspective, if you imagine taking a normal keyboard on your computer and covering all of England and Scotland in keyboard so there's no gaps, each grasshopper would have one keyboard to sit on over the whole of England and Scotland. Wow. Why?
+
+[00:02:38] Why are you putting grasshoppers on keyboards? Grasshoppers given infinite keyboards They actually write out the works of Milton, don't they? They accounts are extraordinary, aren't they? I mean, even every able-bodied men in Nebraska wouldn't have been able to do a huge amount about this because they ate the wool off sheep when they were passing by.
+
+[00:02:55] They're just so desperate of food. They ate clothing off people's backs. I don't believe that. I mean, it's probably true, but like, come on. That is an unsexy strip tease. There was a woman who claimed it, wasn't there? Who said that she was wearing a white and green stripy dress and she was descended on by these grasshoppers and they ate all the green stripes
+
+[00:03:14] at which point I guess all the white stripes fall off but that's where the white stripes got the name from actually the band they were walking past this woman and were like where's the rest of her dress there were stories about how trains came to a halt because they were skidding on locusts oh yeah yeah just so many on the ground that they were just yeah wiping out laura ingles wilder who wrote the little house on the prairie um she was there when this happened and one of her stories on the banks of Plum Creek, they talk about this happening to her family. And she said that her father had to walk 300 miles to find work on a farm that didn't have the grasshoppers on it. Jesus. If you can imagine that. And that she would walk around and they would squish under her
+
+[00:03:53] bare feet and she would hear the sound of millions of jaws biting and chewing. Nice. Wow. I guess, I mean, if you're faced with that, actually, what good can it do to spend 12 days? Twelve days feels a bit under-egged. Yeah, you've got to devote the whole year to it. Wait, how many, how many did you say the word, James? 12 trillion. Okay, so then again, if every, hang on, 12 trillion... No, if the whole of Nebraska gets a trillion a day... Yes, then it just needs one guy? If you have a million people in Nebraska say, they have to get a million each per day.
+
+[00:04:25] They are small, though. It's a shame that we didn't just, you know, Nebraska didn't just allow this to just continue, and there's just one spot on earth where humans are living, just completely covered. Naked, covered in locusts. What? With no food to eat. That is a shame. We send care packages just as an experiment.
+
+[00:04:40] You know how sometimes big experiments happen? What are we experimenting on? Is there a symbiotic life with locusts that we're missing out on that they were trying to introduce us to? They actually only eat your clothes off you so they can become your clothes. Exactly. Well, some people did suggest that at the time, a symbiotic relationship with them, kind of. So Missouri's state entomologist who's called Charles Riley, he just said that why don't we just eat them?
+
+[00:05:04] They could be turned into soup or prepared John the Baptist style. And John the Baptist style is where you fry grasshoppers with honey. Because in Matthew 1st 3 chapter 4 in the Bible, it says his meat was locusts and wild honey. John the Baptist when he goes into the desert. Not sure it's going to take off as the next hit restaurant concept, is it? No. Wild honey, please? Oh, no.
+
+[00:05:31] The portions are going to be massive. Have you guys eaten locusts? haven't, but I do know that in Australia, they rebranded them as sky prawns, you know, to make them a bit more appealing. Very high in protein. Like the North American communities who lived in that area around the time, so for instance, the Shoshone people, and they would eat them. So they would turn them into flour and they would make bread out of grasshoppers and stuff.
+
+[00:05:54] So that's how they dealt with it before it happened to the Westerners who went over. Although I don't think they ever had it quite as bad that we know. No, I mean, eating is not a solution to the 12 trillion, is it? You can't just wander down your field with your mouth open. Well, problem solved. My crop's absolutely fine. So the Rocky Mountain Locust, which we're talking about, which led to this plague, crazy at the time, and we did fight battle with them.
+
+[00:06:17] And the battle was won by the humans to the point that they're now in extinct species. Hang on, hang on, hang on. You're giving us credit for that. No, I'm saying long term, they are no longer on Earth. How did we win the battle? Might not because of us. No, no, no. I'm just saying history.
+
+[00:06:32] They're no longer here on our planet. Who writes the history books, Anna? Okay. I'll say it's because of us. I think you're right, then. Well, it was largely because of us, but also it was animals and it was changing agricultural conditions. It was, yeah. Who changes the agricultural conditions?
+
+[00:06:45] Thank you, James. Who brings the animals? Mr. Mann. There we go. But we didn't do it on purpose. It was an accident. Yeah, we absolutely didn't want to do it. And that's horrible to decimate a species to extinction.
+
+[00:06:55] But they can still be found despite being extinct in glaciers around there. There's this one place, which is kind of. called the Grasshopper Glacier, and it's in Wyoming, where all of them have sort of just been frozen in time inside there. And you can see them when you look into it and people ship them out. Can they come back like Captain America or? There is a theory. Some scientists think there might be a few lurking around somewhere. Not ready to come back. Like the glacier melts and suddenly the grasshopers take over. Not ready to mount the full counterattack, but there are scientists who think they might still be out there somewhere. Well, I thought as in, not in the glaciers,
+
+[00:07:29] but actually out there. Yeah, exactly. Yeah, because so we don't, even though we've said, like it's agriculture or environment or climate change, but really we don't know, right? This is massive mystery. And they just vanished. So it was 1877. It was still pretty bad. Pretty much by the 1880s, they'd gone. I think the last spotting was in like the first 18901 or something or right at the start of
+
+[00:07:51] the 20th century anyway. And they vanished. But it could just be that they stopped swarming because locust just turned back into grasshoppers when they go out of a swarm. And they could just be hiding, as you say, in plain sight, waiting to regroup. When you say they churn into grasshoppers, they don't change, do they? We just change our name for them. It's like literally, one animal is called a grasshopper. When it's with all its mates, we call them locusts. You're kidding. Yeah. It's not like Batman and
+
+[00:08:17] suddenly it's a whole change of outfit. They kind of, they do change outfit. They definitely do. They get stronger, they get darker, they get more mobile. Their color changes. And in fact, until the 1920s, they were assumed to be different species. It's really weird. There were two versions of this desert locust. One is in Hulk mode and one is not. And it was thought that they were completely different. How quickly do they change though? That feels like that should take a while, right?
+
+[00:08:40] It's not as soon as they start swarming, they just all turn blue. Kind of is. It's really weird. So basically, they have wild populations which swell up after rains because there's lots of food, so plants are growing so they can eat lots. But then if the land gets parched, they get pushed into a smaller and smaller area. And then this chemical serotonin kicks in in their brain, which we have to, which is associated with happiness for us.
+
+[00:09:01] I think you. But anyway, not for them, because the serotonin basically turns them into Hulk mode. We don't know that they're not happy. That's true. They can be thrilled. And they just set off and they go for it. And it's very rare for them to switch out of swarm mode once they're in it. Because any offspring born during a swarm are also swarmers.
+
+[00:09:18] Yes, okay. I actually do know how you can turn them into a locust. So the way you do that is you tickle them on the back of the legs. Is that right? So, yeah. And scientists tried this. They had this theory that what happens is they, They are incredibly antisocial.
+
+[00:09:33] Like grasshopers hate each other, usually. But when they get hungry, they go to the same bit of food, and they start rubbing up against each other. And eventually that rubbing stimulates them to suddenly want to swarm. Do they become figmotactic? I think they become thigmotactic. Yeah. Favorite word?
+
+[00:09:48] Fish word. It's really the fish word. Friend of a podcast. Friend of the podcast. We should have her on. That's really cool. So that explains the serotonin thing, right? Because they become, like, more loving to their fellow grasshopper.
+
+[00:10:00] Yes. That's that right. Yeah, or at least want to hang out with them. Although there's also a theory that the reason they're swarming is because they all want to eat each other. Yeah, I don't know how much love that. That's what I read that. If they fall behind in the swarm, whoever's behind will chew them up. I mean, that is a terrible...
+
+[00:10:12] That happens in the Tour de France as well, actually. So one really important thing of this locust swarm in the 1870s and 1880s is what did the farmers do? Because basically all of their crops were taken. They had no way of making any money, but also they had no food because all the crops have been eaten by locusts. And so they asked the state for money, but the state couldn't give them enough because basically everyone was affected. And so they went to the federal government. And there was a real discussion about that because basically they thought that their farmers might be turned soft if they gave them any help, any charity, right? And so they came up with these tests to make sure that you were worthy enough to get aid.
+
+[00:10:53] As a farmer, you had to pledge an oath that you possessed nothing of value that could be sold for food or clothing in order to get any charity at all. Sounds like, is this where Jacob Rees-Mogg started his career? But yeah, I mean, in the end, though, eventually the federal government did step in and kind of gave aid packages and food packages to everyone. And that was the start of what is now the typical response to disasters in America. There was also a fire in Chicago a bit earlier that did a similar thing. But yeah, this was a big step for America as far as state aid was concerned. So they sort of did them a favor?
+
+[00:11:26] Yeah. In the long run. Exactly. Good old locust. Good old locust. another coping mechanism they had actually before that came in was in Minnesota. They had huge vats of boiling water that they kept in the center of some of the big cities there. And there was a bounty of 50 cents a bushel on the locusts.
+
+[00:11:44] And apparently 130,000 grasshoppers equals one bushel. So you've got to get quite a lot to get your 50 cents. And then you bring them to the city and you chuck them in this vat of boiling water. Right. Isn't that called like a cauldron? Yeah. Or just to kill them off. Yeah.
+
+[00:11:57] Not to make a soup. No. No. Otherwise you just got a big locust lolley. When they've tried that in various places around the world, what often happens is people just start breeding the animal, don't they? Yes, exactly. Poor guys at Jimmy's cricket shop, which breed cricket,
+
+[00:12:10] seeing this cloud on the horizon. Well, bango's business. Why is he not calling it Jiminy crickets? You're absolutely right. Yeah, well, it did almost bankrupt the state, actually. They had to cancel it almost straight away, because everyone was bringing in so many locusts. The bushel offer.
+
+[00:12:27] Hence the 12-day thing, yeah, because too many business, new businesses. Yeah, can't afford it. Have you heard of a megacolon? Hmm. Oh, I thought that was you impersonating one. Yeah, it's not a punctuation that I'm apportionally. I think I involuntarily made, it's like I've been hypnotized to make that noise when I hear. That's being said.
+
+[00:12:49] Very obscure. Darren Brown never thought that would come up in your life again. A mega-colon is you would... Oh dear. Okay, so this thing which I was talking about, it's what happens if you get an infection in your colon. And there was a mummy from 1,000 years ago, which had this infection.
+
+[00:13:09] And it was scanned with an electron microscope. And what they found is that for the last few months of his life, he'd been fed solely on grasshoppers. So that's all he'd eaten. And what they'd done is we could tell from the microscope that they'd taken all the legs off the grasshoppers and the heads and just, and the heads and just got the bodies which is really high in protein
+
+[00:13:27] and just kind of squish them together and given them to this guy. And this, as far as we can tell, is the earliest example of any kind of nursing or hospice care that we have direct evidence for. But he had to prove that he'd sold off anything he had a value before. That's awesome. A megacolon. Oh, gosh.
+
+[00:13:56] Okay, it is time for fact number two. And that is James. Okay, my fact this week is that when Henriette Don Javille held a reception to celebrate being the first woman to climb Mont Blanc, one guest was Maria Paradis, who had been to the top of the mountain 30 years earlier. Riddle me that. Okay. She didn't climb it. She swam up because it was underwater.
+
+[00:14:22] Oh, yeah. Oh, yeah, she was dropped on from a plane. First of all, Anna gets half a point, because she was. She didn't climb up, allegedly. Okay. But she wasn't dropped by a plane, so you get minus 10. She was pretty heavy. She was born there.
+
+[00:14:36] She was born there. She was born in the top of the amount of 30 years earlier. That's where her mom gave birth to her. But then her mother would also have had to be there, and so would have then been the first woman at the car. Except she was dropped from a plane. And that's how she got there. What year was this, James? So this was 1838 when Don Javille went up.
+
+[00:14:52] But Maria Parody went up in 1808. And what happened was she was dragged up. we think. Kicking and screaming. Well, not really doing anything because she kind of passed out halfway up the mountain. Wow.
+
+[00:15:06] Is that a really fun drunken night out prank kind of thing? She'll have her wake up at the top of Mont Blanc. You'd usually carry someone rather than drag. That's very caveman, isn't it? Yeah. It was, so basically what happened was
+
+[00:15:17] in 1808, a few people had already gone up Mont Blanc and they kind of talked this 18-year-old servant from Chamonie called Marie Paradie to go up Mont Blanc. And they said, if you do this, you'll become kind of famous and you'll be able to make a load of money and maybe it will help the hotel that you're working in. It'll give them
+
+[00:15:36] some publicity. And so she's like, yeah, fine. I mean, what's the worse that can happen? We know about what happened because she spoke to Alexander Dumas in 1811. And she told him that as she was almost to the top, she felt her legs go to hell, she said. And then the people who were going up with her decided to take her each under one arm and drag her to the top. She was pulled dragged and carried to the top of the mountain. Okay. And then, 30 years later, this high society woman called Henriette Don Javille, decided that she wanted to be the first person to really walk up Mont Blanc,
+
+[00:16:11] and she did that, and then she invited this Maria Paradie to come to her party afterwards. And there was a little bit of kind of classism, because, first of all, Marie Paradis was like, I can't believe that a real lady managed to get all the way up to a mountain. I'm a peasant woman. I know the country. I should be able to do it. I can't believe you would. But then Henriette was kind of dismissive of her. And she's like, well, at least I went up by my own accord and stuff.
+
+[00:16:36] She almost didn't get up on her own accord, did she? Yeah. She had exactly the same moment, actually. Yeah, Henriette. She had the same where she suddenly buckled and she was on her back. And there were questions from the rest of the camp, do we carry her up? And she managed, fortunately, to sort of get her wits about her. And she said, no, I can do this. I can do this. But yeah, almost carried up as that.
+
+[00:16:57] The person who went up with her was called Joseph Kutette or Kutte. And when she kind of got near the top and she felt like falling asleep, she felt really woozy. Kutette said, look at her, asleep again. This is the last lady I take up Montblanc. Although that does sound like a euphemism when I read it, doesn't it? Oh, I took her up, Montblanc. Oh, what if this whole fact is a euphemism?
+
+[00:17:20] It was a really raunchy night. Oh, my God. It was quite raunchy because Henriette Donchville, when she climbed, up, she was wearing a boa. Constrictor or feather. Feather or fur, possibly. But because obviously climbing gear for women did not exist at the time, because there's only mad aristocratic ladies who were starting it,
+
+[00:17:42] she was wearing a petticoat over men's trousers and then a bonnet with a veil and then a boa. The whole thing weighed about six kilos. So it was really heavy to be climbing up. She basically had to wear the men's clothes because obviously that's the convenient way to get to the top. she still felt like she had to wear the women's stuff over the top. Yeah. Yeah. Yeah.
+
+[00:18:01] And there is this amazing picture of her going over a crevasse with a ladder, which I actually didn't realize was the thing that you did in climbing. And it looks absolutely terrifying when she's doing it because, you know, it's this massive drop in the middle of it. The ladder's just going between these two cliff edges. And she's there with these extremely heavy skirts, which you would have sort of scrambling over, which she would have thought is going to tip you over any minute.
+
+[00:18:23] Yeah. Yeah. And one of the reasons that she went up supposedly is, that she was quite jealous of other well-known women that were kind of talking about going up Mont Blanc. So the writer Georges Sonde, who you'll all know, I'm sure, who's kind of mostly famous for wearing men's clothes, but she was kind of a really famous writer
+
+[00:18:41] who at the time was bigger than Victor Hugo and Bolzac and people like that. But she was kind of doing a lot of walking in the foothills of Montblanc and she was talking about how she might soon go up, and Henriette Don Chaville decided no, she was going to do it first. That's great. Was that a prank? That's what I would do if I was trying to trick someone into going at the bottom. Yeah. Oh, I might go tomorrow morning. I know the weather looks a bit dodgy. The clothing, I mean, it is mad that women were made to wear dresses. And there were sort of, you know, there were a few women who were supposedly threatened with legal cases for the fact that they were wearing men's trousers. It was so controversial at the time. And there were systems where they did try to cheat it. So I read about Aubrey LeBlond, who climbed Rotorne, which is a mountain, about.
+
+[00:19:27] 2,000 meters high. And so there was a sort of compromise, which is that you would leave where you were staying. Let's say you're staying in a hotel wearing the dress or the skirt that you had with the trousers on. And then you would take it off while you were doing the actual mountain climbing and maybe no one would tell each other. But so she made it to the top. And then on the way down, realized she'd left her skirt up there. So had to backtrack, go back up, reascend this giant mountain to get home. Wait, so she had to carry her skirt to the top after drop. She didn't just leave it in a bush or something where she took it off. She carried it out with her.
+
+[00:19:56] You would leave it somewhere safe, like, if you're going swimming or whatever. Yeah, you don't swim holding your clothes up in the water when you do. Well, some of us do, you know. My sister once was climbing up a hill in the Lake District and then went to the top. And when she got to the bottom, she realized she'd left her phone at the top. And that's come all the way back up the hill again to get her phone. Hey, have you all heard of Annie Smith Peck? Annie Smith Peck is a mountaineer.
+
+[00:20:21] She climbed the Matterhorn in 1850. and it's just so interesting because she had to do it with total hatred from all the male companions that were taking on again because they just didn't want women doing it she wore trousers they hated that scandalous so when she went up one thing that happened was they would constantly like the guys were just always having temper tantrums there would be strikes but at one point because they kind of just wanted to get rid of her as part of the party
+
+[00:20:45] they said that well it said that when she was going across a crevasse field when she went out of view they cut the rope the support rope I was looking after her. Went back to camp and then she had to make her way back and found them all sitting there and they were like, oh, you're still here. No, did that actually happen? That's according to the accounts, yeah,
+
+[00:21:03] and I think her accounts. There was a lot of, I mean, she was really impressive. She once hung a Votes for Women sign off the peak of a mountain in Peru, just to make a point. Who's going to see that? I mean, good point. No one after her companions cut the ropes from the sign. You want to do it in the middle of Trafalgar Square
+
+[00:21:18] or somewhere where people walked past all the day? That's a really good point. Yep, can't fight you on that. And then another time she climbed another mountain in Peru, the north peak of Huascaran, with some Swiss guides. And it was renamed in her honour. It was renamed Cumbra Anna Peck. But at that point, the record, I think the highest altitude, maybe for a woman or maybe for that peak, but it was held by another lady mountaineer called Fanny Workman. Oh, yeah.
+
+[00:21:45] Legend. Well, another legend, but, you know, there was beef between them because Workman was so annoyed that Peck who was claiming this record. that she paid for engineers to go and recalculate the altitude of the mountain and established that she had actually climbed 600 meters less than she had claimed to than peck had claimed so that she would still hold the record it is a pretty big recalculation so the workman would still have the record that's pretty so just while you're saying annie smith peck having something named after her the matter horn not long after she went up that there was another explorer who had a bit of it named after her so this was a mountaineer called Felicité Carol. And she unfortunately didn't make it to the summit when she was going. She was with her father. And it's because she was wearing a skirt.
+
+[00:22:33] And the skirt ballooned in the wind. And they thought this is too dangerous. You can't go any higher. Your skirt's going to get in the way. So the spot where that happened is named the Matterhorns Cole of Felicitae. And, yeah, after her. But she never got to make it to the top as a result. Because it could have blown her up there like Mary Brown.
+
+[00:22:49] Yes. That's true. Did you bring an umbrella as well? Have you heard of the book Mountaineering in Scotland? No. This is by an author called W.H. Murray, William Hutchison Murray. Any relation?
+
+[00:22:59] No. Not as far as I know. I wish. Because this is an amazing sounding book. It was written on sheets of toilet paper in prisoner of war camps in Germany during the war. So Murray had been sent by his mother the complete works of Shakespeare in the post.
+
+[00:23:16] And that was an earlier time of the war when the Red Cross parcels were still getting through and you could receive post and things like that. There's a lot of postage that, isn't it? It's a lot of posted, yeah. But he noticed that the paper was lovely and soft, and it was actually a lot better than the stuff that they were being given as toilet paper.
+
+[00:23:30] So it sounds like he used the complete works of Shakespeare's loo roll, and he saved his loo roll and wrote his own book about manufacturing on the loo paper. Oh, my God. I know, but the worst thing was, then he was moved. He wrote for a year, presumably getting along quite well with his first draft. What was he writing with? Do we know? No, I don't know, actually.
+
+[00:23:48] Just a pencil, I guess. Was it 2B or not 2B? Oh, my God. God. You walked straight into that one. But then he was moved. He was moved to another camp called Offlag 8F, and it was a much stricter prison camp. I mean, I don't know how lenient the previous one was, but basically the Gestapo
+
+[00:24:07] searched everyone very carefully on the way in and his stash of toilet paper with a book on it was found and taken off him, and he had to write an entire second draft on more toilet paper. No. Oh, my God. I know. He claimed that the Gestapo had done him a favour because his first draft was a bit, a bit of flakened. Maybe. needs a bit of timing.
+
+[00:24:24] Yeah. The most generous prisoner of war you've ever heard. I actually kind of like the Gascarphe. Do you think that when he only had the toilet paper left, that he kind of would hold it in so that he didn't use it? By the end, he would have had a mega col on, I reckon. Oh, my God. Okay. It is time for fact number three.
+
+[00:24:49] And that is Andy. Why fact is that the queen in her garden has a collection of fake rocks. There's a lot of gardens. She has a lot of gardens. She has gardens at Buckingham Palace, though, specifically. I was this in the main garden? Her main garden, I would say. There is a fake rock called Pullamite, and she's got a load of it.
+
+[00:25:09] Sorry, is that specific rock called, did she name it Pullamite? Like, cool, she's got Dave sitting next to it, the real rock. Sorry, yeah, this is a kind of rock invented by, so weird that you can invent a rock. There was a gardener called James Pullum, and he invented this rock, and it became a phrase. Can you explain to us how you invent a rock? Yeah. So he was a gardener and he noticed that there was a bit of a trend going on for when people have been traveling and they might bring plants back with them and this relates to the Victorian fern craze as well. There's a big craze for having ferns and collecting ferns. So the problem is that ferns don't like growing on lawns.
+
+[00:25:48] You know, most gardens at the time were, you know, nice flat lawns of grass. And he was a gardener And also he knew a bit about engineering. And he started offering people their own personal ravines to put their alpine plants and ferns in. And he made this material from his own recipe. And he took the recipe to his grave. And so he started offering people their own personal rocks that you could shape and build and mold
+
+[00:26:12] into the exactly the shapes that you wanted. And this became a craze people. Lots and lots of gardens had these rock in. It's quite environmentally friendly because you don't have to go and dig it out of a mountain or something. Yeah, I guess so. It takes a lot. transportation, yeah. And it was because it does sound like a thing that would be shunted by the rich
+
+[00:26:29] as something, you know, we just want natural stuff. But as you say, you know, the queen has it in Buckingham Palace, many famous family, the Rothschilds and so on, we're all really keen on it. So this was, yeah, it was a big deal. It was a big deal. It's everywhere. I no longer trust any rocks I see. What if this is Pullermite? There's a big list online, isn't there, of all the places you can find it, including Las Vegas. Really? Yeah, the Bellagio. There's like, I think there's a fountain that's made out of it. Wow. Well, the first time that we properly, I think, outside of a show,
+
+[00:26:59] saw each other during the sort of first lockdown having ended, was we were at St James's Park, weren't we? We were sitting there. And the rocks by the Duck Island Cottage are also those kind of rocks. Are they sat right next to it. Exactly. No rock is safe from Pullum. It's really insane.
+
+[00:27:15] Even seaside towns. Like, folks didn't Ramsgate, they went nuts for it. They actually, I think, quite badly damaged the Council finances by spending all their money on Pellamite because they wanted extra rocks for the sea to make it more rocky. Why? This isn't rocky enough. That just makes swimming in the sea more and more unpleasant.
+
+[00:27:30] I think it's not inside the sea. So, for example, Fokston got paths and tunnels to get people down from the cliffs. They wanted a gorgeous natural way to show people down. And so next time you see a rock, check. Yeah, check. So how can you check? Can you give it a knock in its hollow? It's not right.
+
+[00:27:44] It's a rock. Most of the rocks you see day to day will be rocks. Oh, sure. Absolutely. Yeah, but that's just law of averages. But do take a photo and send them to Andy. time you see you're right, we'll go through that. I'll tell you if your rock is... They're a bit lighter, aren't they? They're lighter than normal rocks. And they'll just look
+
+[00:27:59] faker. They'll look a little bit like when you're queuing at a theme park, you know, the rockeries that you have. Not quite as plastic as that. Something towards that. It's a more realistic version of that, you're right. They were incredibly successful, weren't they, James Pullum. He set up this company, which is James Pullum and son. And it was a company that just went on and on. So when he retired, he handed it over to his son, James Pullum. And then when he retired, he handed it over to his son, James Pullum, and then when he retired, he handed it over to his son, James Pullum. I think it was the second James Pullum who invented Pullamite, wasn't it, as opposed to the first one.
+
+[00:28:32] I think you're right. I think. So, okay, minus one of the James Pullums from that list there. He was helped by two of the other James Pullums later in life, but also helped by another brother called Michelangelo Pullum. What a name. He's not living up to that name. It's so good.
+
+[00:28:47] Everyone else in the family's called James, and he's called Michaelangelo. But it's two names, isn't it? He's Michael Angelo Pullum. They've divided Michael Adelow in two. To the untrained eye, he's Michael Pullum. He did all name Angelo. But he did all of the designing, didn't he as well? Yeah.
+
+[00:29:04] So if you haven't needed a rock, but it needs to be in a certain shape, you gave it to Michael Angelo Pullum and he did the shaping for it. That's brilliant. If you ever want a cherub to be emerging from your rock. We should give a shout out to the book about this by Claude Hitching. Claude Hitching. What a man. He is the man on Pullamite.
+
+[00:29:21] So he's written a book called the Pullum Legacy. And I mean, he has spent, I think, decades tracking down bits of Pullamite. Because we still don't know where it all is. That's why I'm saying, you've got to check. It's all over the country, but there weren't, you know, accurate records kept everywhere this company worked. I mean, it's not as urgent as, like, landmines and stuff, is it? Nothing's going to happen if we don't find it. When he started looking into it, he discovered that five of his direct ancestors all had worked for the Pallum company at some point.
+
+[00:29:50] Wow. He had a personal connection, yeah. And so basically he has, as Andy says, spent so long trying to track down where bits of missing Pullamite have gone, sort of historically important bits in the Pullamite world. Where have they gone where Pullamite fans are like, oh, I can't believe we lost this. And some of them have turned up in places like he found there was the Q Fountain, which was made for the international exhibition in 1862. It had disappeared.
+
+[00:30:16] And where is it now? It's where James said earlier, Las Vegas. It found its way there. Oh, that's the one of the Pelagio. Exactly. Wow. That was a famous one in the UK. Pallamite fans, distressed that they couldn't find it anymore.
+
+[00:30:28] It disappeared. That's incredible. One amazing Pullum legacy, one of the biggest projects of James Pullum number three is the landscape garden at Fryer Park. Oh, yeah. Which is, yeah, and you Dan would know about this. It's near Henley, and you'll see why Dan knows about this. It's maintained by a woman called Olivia Harrison, who is George Harrison's widow.
+
+[00:30:47] And they bought it. but it sounds incredible. So originally it was sort of designed by its owner who's called Frank Crisp, this really eccentric guy who basically, why are you looking at me? It's a funny name. It's a funny name.
+
+[00:31:01] He's a Frank Crisp by name. Chris by Nickshaw. He was a crispy eccentric man who designed his garden to look like an alpine landscape basically. So full of these fake rocks that he got done by Pullum. And sorry, just with the alpine thing, he actually had a model of the Matterhorn made out of rock. Not actual size.
+
+[00:31:22] Not actual size. Different scale, yeah. But yeah, the Matterhorn is there. That's incredible. Yeah, amazing. So it takes up, like, lots of acres, that Matterhorn. It's pretty big. And that's Not Pullum.
+
+[00:31:32] That was someone else. But basically it got really overgrown. I think some nuns moved into it for a while. It got dilapidated. And then George Harrison bought it and said, I'm going to take this over. And they cleared it. And they found all this stuff.
+
+[00:31:44] Like the Matterhorn was just sort of sticking out of a bunch of a rubble. They barely even knew it was there. And it sounds like he had this incredible moment, George. There's some sort of fake lakes built there. And at one point, he lowered himself on a rope into this cavern that was below this lake. So I guess his lakes on a, yeah, there's like a cave below the club or yeah. What? The cavern club where the Beatles played in Liverpool. I should know that. Even I know that. Yeah. Come on. Actual beetle hater. Maybe that's what drew him to it. That's how he knew. Because he lowered himself into this cavern and underneath was this whole grotto. So like Pullamite Grotto with
+
+[00:32:21] these sparkling kind of quartz and stuff on the walls, this like crazy magical landscape. And yeah, and now you can kind of row through it and look at all these diamonds glistening on the walls and stuff. And yeah, it sounds incredible. They do keep discovering these places. So even recently in 2000, there was a couple who moved into a house, a Dewstow house it was called. and they started to notice all these weird rocks sticking out of the ground. Okay. And they then started digging. And they discovered this huge labyrinthine underground environment,
+
+[00:32:55] this massive rock garden, magical caverns, water flowing from one to another, tunnel systems, fountains, fake stalactites. The whole thing was this enormous mad Pallamite project, which a man called Henry Oakley had had commissioned. He was a railway director, and he spent years having this incredible, incredible environment built for himself, which just got buried. It got buried under the M4, as it were, because there were all these mounds of
+
+[00:33:18] earth that were excavated to build the M4, and they just got dumped on top of it. And the owners started to notice, and they started excavating it. And then, a few years after that, it won the award. Alan Titchmarsh did a series on Britain's Best Back Gardens, and it came in at number eight. Oh, what a renaissance of that little bit of land. Number eight? Yeah, number eight, yeah, not in the top seven. Top five, yeah.
+
+[00:33:43] Imagine how exciting it is. I honestly think that all our listeners should go home now and dig up their entire gardens in case there's a Pullamite grotto under them. It's worth a try. Such a good idea. You know, Pullamite obviously wasn't the first fake rock. And the sort of the only successful fake rock and the first of the 1700s was Code Stone. So this was the 1770s.
+
+[00:34:06] It was basically invented. And it was the fake rock to have. And there were lots of startups, lots of fake rock startups that tried to make their own. Nothing came anywhere close to Codestone. And it was this business that was run for 50 years by this amazing woman, Eleanor Code, who just decided, I think it was 1771. She met this guy who made some fake stone. And she brought up this massive factory and said, okay, start making it.
+
+[00:34:30] And she fired him almost immediately because decided he wasn't good enough and brought on someone better at making fake rock. And she was amazing businesswoman. So 50 years, she made this stone. which if you've seen the lion on the south bank, that big lion, that's made of code stone. And that is hollow, so you can tell by knocking on it. And if you look inside Code Stone,
+
+[00:34:52] which usually you can't because it's like a statue, if you drill inside, you can see the fingerprints of the people who pushed it into the plaster molds on the inside. Oh, that is cool. Code sounds awesome. Ellen and Code, because she worked with her mum for decades, also called Ellen and Code, and there's a lot of confusion about which code was which.
+
+[00:35:10] Yeah. And have you read about her grandma? No, Helena Code. Her grandma, actually don't know first name of her grandma. Is there a thing about being a person who makes rocks and having no imagination for names? Yeah. And it's very much kept in the family, the rock thing. Yeah, Eleanor Code's grandmother obviously had the business mindset as well.
+
+[00:35:29] She ran a textile business in Tivitan and she sent spies to Norwich, which was very good on textiles, who would then steal all of their tricks, then come back and be successful. And she did things like she got carried around Tiviton. in a sedan chair all the time. She was a good character. Wow. She sounds awesome. Yeah.
+
+[00:35:47] Have you guys heard of gunite? No. No. Can you guess how you make gunite? Fire it from a gun? Correct. No. Yes.
+
+[00:35:55] You get a gun. It's not a like a small gun. It's like a big sort of hose pipe gun. And you fire out this dry sort of concretey material. And then you have a little bit of water at the nozzle of the gun, which kind of goes into the concrete as it comes. out and then you can fire it wherever you want to put a rock. It's almost like a 3D printer for rocks. And it's used on bridges, isn't it?
+
+[00:36:20] If you ever see a bridge really or a tunnel, then it's probably gunite or shot crete. It also gets called the dry and wet versions. Shotcrete gets used in taxidermy, I think. Yeah. Does it? Yeah. It's because it's quite easy to shape. Yeah, exactly.
+
+[00:36:34] And so is it, God, I've forgotten it. Is it you're shaping and then you're putting the scale on top of it? Well, what you can do with concrete is you can make the shape of something out of iron and you can fire the concrete onto it and it'll, yeah, like a mould and it'll go on that. You'd have to make a mould for it. You can't fire it, because what's it landing on? You can't just fire it into midair in a shape like a spark. Of course, of course.
+
+[00:36:55] That makes sense. That's awesome. Ugly rocks are sort of venerated in China. I didn't really know about this thing, scholars rocks, but you'd recognize them. And since the 8th century, Confucians have, Confucians have basically said, ugly, jagged rocks are great for contemplation. And the idea is that they represent Confucianism. They're uncompromising.
+
+[00:37:17] So from the 8th century, there's been a trend for getting the ugliest rock you can find or the most jagged or pitted or misshapen, putting it in your garden and watching it. That's really important. To see what happens. Wow. I know, Anna, I think I know this about you, because I know it about me. You used to collect rocks when you're a kid, right? Yeah, I found in my gravel, yeah.
+
+[00:37:38] Yeah, yeah. Did you like look for the ugly ones or for the attractive ones? I was very shallow. I wasn't a philosopher. I just went for the fit ones. Yeah. Something pink and sparkly. Wow. Are there competitions? There actually should be. Ugly rock of the year. There must be. Because they're judged on certain qualities. So it must be for the sake of something. There are four categories. And these were determined by a guy called Mi Fu in the 12th century who used to when... He was in charge of the Mefu movement.
+
+[00:38:04] He was a great campaigner for his day and he used to bow to rock so when he met royalty he'd walk in and bow to the rock instead of the emperor and people got annoyed. Instead of the emperor? Yeah. What a cavalier attitude he had to his own life.
+
+[00:38:24] Maybe he was just short-sighted. We don't know. I met the queen the other a couple of years ago, but I only really talked to the Pellamite rocks in the fucking palace. Anyway, they're judged. Just to finish that, they are judged on their thinness, their openness, their holes and their wrinkles.
+
+[00:38:42] You want to max out on all of that? Aren't we all? Yes. Okay, it's time for our final fact of the show, and that is my fact. My fact this week is that following a theory that they wouldn't burn up on re-entry, Japanese scientists once planned to fly paper airplanes from the International Space Station back onto Earth. Okay. Very cool.
+
+[00:39:07] Now, why does that mean, therefore, you do it? Because I understand that maybe you wouldn't burn up because you're not going that fast. But even so, is it instead of something? Well, I guess we are always trying to work out different ways of doing space travel, constantly seeing, you know, who knows how important space paper. Lightweight vehicles for re-entry would be immensely useful to have. So if you can start doing it. You're not going to sit on a paper airplane, are you? Well, no, but you might sit inside a big paper.
+
+[00:39:36] airplane, which are treated card or something or, you know, there are chemical compounds. They were, they were, I mean, that's what they said the justification was, was lighter vehicles for re-entry. You don't need a reason for science, Hannah. You can do science for science's sake. Good point. It discovers its own discoveries. Is that what that's what the scientist says, isn't it? Yeah. That's what, that's the, that's the, that's the official line. Cool. In Latin. So how come they never, did these happen? Well, it's a really hard thing to do. It was a really nice idea. So this was in 2008. And there were, researchers at the University of Tokyo who teamed up with Japan's origami airplane association.
+
+[00:40:12] So this was going to be origami paper planes that were put together and put through. And so they did all these tests and wind tunnels at the university. And they managed to show that this plane could actually hold its own at huge speeds of wind passing through it. So it all looked like it could possibly work. The problem is, is that if they did try it and it came back into the earth, it's so tiny without any GPS device on it. We would just know nothing. It would be impossible to tell. in 2008.
+
+[00:40:38] I think another problem is, I would say at least two-thirds of the paper airplanes that I ever make, either kind of go straight up and stall and land where I threw them or go straight down and crash into the ground. So you need to train your astronauts to be proper paper airplane makers, don't you?
+
+[00:40:52] That's true. And they've already got a lot on their plates. They've got a lot of training to do. Well, origami is useful in space in other ways, isn't it? So I guess I can see where they're coming from. Is it? I think it's been used by Japan on solar panels. And in fact, by NASA more recently,
+
+[00:41:06] they certainly had a plan to and they used mirror folds is that how you pronounce it? We've done it on QI. Mirror folds are basically how you fold maps for instance when they fold up really small and flat and then you can spring them outwards
+
+[00:41:18] so that they're really big. It's almost like an accordion like they're in a really small little square and then you pull them out and then you push them back in and pull them out and push them back in and then like a normal map you're always trying to find the folds and stuff
+
+[00:41:31] but these just kind of go back where they should do because it would be so annoying if an accordion was like a normal map where every time you pushed it in, you had to fold it in the right way. What do you think is the world record for folding 1,000 origami cranes? A thousand. Damn it. What time?
+
+[00:41:51] How long do you think it took the person? So do you remember I did this a few years ago? Yeah. It took me about two months. Okay. Yeah, you did it in the office as well because you're hiding it from your, it was a present for your wife. And yeah. I wasn't hiding it from my wife.
+
+[00:42:04] Yeah, it was a present for her. I was really embarrassed and I, you know, didn't want to tell her. No, it was a gift. But yeah, how long do you reckon it takes to do a thousand? Eight hours. Eight hours. Eight hours. I think a bit less than one a minute maybe.
+
+[00:42:16] But this is going to be the record, right? So this is someone who's, I'm going to say, I'm going to go as low as like two hours. What? Just for this? Yeah, just because like, blah, blah, blah. How many seconds are there in an hour? It's not going to take a second to do a crane. Surely a minute to do a crane, a bit less maybe.
+
+[00:42:31] I think it'll take a couple of minutes. I don't know. I think a couple of days. A couple of days. Thank you, Andy, because these two. Sorry, Jay. Poor Evelyn Chea of Colchester, England. Henceforth known as The Slacker.
+
+[00:42:45] What did she did it? She is a teenager from Colchester, and she did it in nine hours and 31 minutes. Well, that's much more impressive than I would have thought, Dan and Anna. I think... Two hours. How good do they have to be?
+
+[00:42:59] I mean, can I just scrunch up lots of bits of paper and claim their cranes? I'll be honest. When I did it towards the end of the fowls, and they got less and less looking like that. Did you hide those cranes at the back of the crowd? You really do, yeah. But she did it as a fundraiser for NHS charities.
+
+[00:43:13] And in fact, I gave her some money for it because I was so impressed because it did take me literally two months to do it. Oh, cool. But yeah. That's lovely. I was reading the Encyclopedia Britannica article on origami and the origins of it. And it's the first unequivocal document that talks about origami is a poem by Ihara psychaku, which was.
+
+[00:43:34] was written in 1680, which talks about these butterflies made from paper. But this guy, Ihara Saikaku, he once composed 23,500 verses in a single day. Wow. Yeah. Does it have a chorus? Is it cheap? Like half of the same? I think they're on different subjects. Are there even that many subjects?
+
+[00:44:01] Apparently. And apparently, in the 20th century. elementary origami was helped by the fact that it was used a lot in Rudolf Steiner's schools. Which Dan, you went to one of those. Yeah, I was a Steinner. Yeah, I'm a Steiner kid. Did you learn how to make origami stuff? Yeah, we did, but we did do Japanese classes. So I don't know if it was integrated.
+
+[00:44:20] We didn't have separate origami. Okay. Because apparently, according to the article, they emphasize kind of hands-on learning for kids, as opposed to wrote learning. And so, yeah, origami was very popular, especially in the German Steiner schools. Okay, yeah. original. No, I mean, we definitely did origami at school. That's very interesting because I think Germany kind of brought advanced origami to Japan via kindergarten. The kindergarten movement
+
+[00:44:43] obviously started in Germany. It's a German word. And this is the 1830s and this guy Friedrich Froebel decided that origami would be a great way of educating children in both maths and art, because it's very mathematical and logical and like very difficult spatial reasoning, but also quite artistic. And he exported this around the world with this kindergarten movement and it was really taken up in Japan where they were already doing quite a lot of slightly simpler origami, but then they started making pigs and houses and sofas and... Cool. So Germany exported origami to Japan, is what you're saying?
+
+[00:45:14] I'm saying Japan had a kind of origami and then Germany exported a more advanced kind. I think probably invented in China, origami because paper was invented in China. Figures. Yeah, probably the first people to fold paper were the first people to invent it. But then went to Japan and became big then. Then came over, picked up by Germany, improved, sent back over to Japan again. And if there are, for German, Japanese, Chinese listeners, we are not denigrating any origami achievements of any countries.
+
+[00:45:44] No. Please don't write in. And if you do, please don't fold it in such a way that we can't read the letters. The person who popularized origami in the West is a guy called Gershon Legman. Was he a breastman or a legman? Well, it's funny you should ask. He did a bunch of other things. So the way he popularized it was he found this origami prodigy
+
+[00:46:07] called Akira Yoshizawa and he put on exhibitions of his work and stuff and it all spread. But the other things he tried, he tried lots of stuff, Gershon Legman. He collected vulgar limericks. So he had a massive collection of obscene limericks. He wrote the book, the rationale of a dirty joke.
+
+[00:46:23] Yes. It's seminal set of books. And it's by someone called Legman? Well, it's also called by what's his first name? Gershon. Gershon, but he uses G. So G spot legman. Wow.
+
+[00:46:33] Yeah. Sorry, G. Oh, as in G. G. Dot. Yeah. So, G. That's a stretch.
+
+[00:46:39] So, you don't call it a spot, do you? You don't say, can you put a spot at the end of that sentence, please? Yeah, yeah. That was, yeah, that was his little gag. Wow. Cool. Wow. So weird seeing the interests of Dan intersect with what we're talking about.
+
+[00:46:51] Not dirty jokes. I just mean jokes in general. I just know, yeah, these books are like cult classics. Yeah. No idea. Is it. Yeah. And he wrote.
+
+[00:46:58] Yeah, because he wrote stuff about how to give good oral sex, I think. Like the best oral sex and gratification. Maybe that's where you know him from. I'm not saying if I have that copy. But, yeah, I've definitely got the joke books. He invented the vibrating dildo. Got that, got that. Okay.
+
+[00:47:14] You can have a spin-off Gershaw and Legman podcast. But, yeah, a cool guy. Wow. The prodigy you just mentioned, Akira Yoshuaza, he does sound very interesting. He pioneered wet folding. Before that, I'm not sure. wet folding was a technique.
+
+[00:47:29] And can you explain what wet folding is? Absolutely. Wet folding is the main, I'd say, division in the origami world. Wet folders dampened the paper so they can get the curves just right. Dry folders, I don't need to explain. Don't do the wetting. And yeah, so Yoshuaza was the guy who, he worked as an origami man from 1937 onwards, I think when he was very young.
+
+[00:47:52] Right. Yeah, and he eliminated cutting from the procedure. So you used to cut the paper, I think. think before you were folding it. And that's another, again, you know, Fosbury Flop moment in the development of origami where, you know, you're not cutting things because that's like making a snowflake when you're a kid, you know, you fold it up and you come from then. Yeah, yeah. That feels like the anti-fosbury flop moment. That's like you've banned the Fosbury flop and you're back stuck with a scissure again. Ironically, because you're not allowed scissors. It's a reverse Fosbris.
+
+[00:48:20] Another very cool origami figure was this guy called Robert Lang. Did you guys read by him? I would say he's an origami figure? Is that a human, in the origami world or was he made of paper? He's not made of paper. He is just into paper. Got it. And a bit like this guy, Andy, he was a physicist. He worked at NASA's Jet Propulsion Lab.
+
+[00:48:41] And then he decided he preferred folding paper. And he was this mass prodigy. He was doing very well in physics. And it was 2001. He finally decided to give it all up because it was taking up so much of his time folding paper things. And he's been very useful with his origami.
+
+[00:48:55] So, for instance, airbags made based on origami principles now. And that's because they went to Robert Lang. And they said, look, we really like the way that you can fall something really small. And then it can expand really big. Like he was able to do that. On that note, in 2013, there was a company which announced it was inventing an origami condom for Bill Gates. Not for Bill Gates.
+
+[00:49:17] Has he got such an unusually shaped penis that he has to have a special condom raid. Bill and Melinda Gates Foundation is what I mean. I was using it on a shorthand and I'm sorry. I'm sorry, please don't see There was a designer called Danny Resnick And he had been He'd worked out an origami condom
+
+[00:49:35] Which apparently was much more comfortable To put on You know, it fit on more easily And it opened up like an accordion I can play the accordion a little bit And when you first open it up It makes quite a weird noise I don't know if it wheezed
+
+[00:49:49] As it was opened up Anyway, it never happened Because Resnick himself Was accused of fraud the next year And had to pay back The Public Fancy being granted so the world is still waiting for the origami condom. It would be great if it did play a tune as you're at it.
+
+[00:50:03] You can't get that little keyboard onto something that size, I don't think. It's just going to sound, every time you have sex, it's going to sound like a sea shunty. Yeah, exactly. Soon will the weatherman come. Well, I hope it is soon. Okay, that's it. That is all of our facts. Thank you so much for listening.
+
+[00:50:24] If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, James. At James Harkin. Andy. At Andrew Hunter M. And Anna. You can emailpodcast.
+
+[00:50:36] At qI.com. Or you could go to At no such thing or go to our website. No Such Thing as a Fish.com. All of our previous episodes are there. Do check them out and do look at our upcoming tour dates. We are back on the road later this year. Hopefully we can see some of you there. If not, keep listening because we will be back next week with another episode.
+
+[00:50:53] We'll see you then. Goodbye.

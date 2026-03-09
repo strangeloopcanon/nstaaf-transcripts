@@ -1,0 +1,329 @@
+# No Such Thing As A Fish - 596: No Such Thing As Dance Floor Book Club
+
+- Episode date: August 14, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/596-no-such-thing-as-dance-floor-book-club
+- Slug: 596-no-such-thing-as-dance-floor-book-club
+
+## Transcript
+
+[00:00:00] Hello and welcome to Hello and welcome to another episode of no such thing to you live from the Crosswires Festival in Sheffield! My name is Dan Schreiber. I am sitting here with Anna Toshensky, Andrew Hunton Murray, and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting with fact number one, and that is Andy. My fact is, in the 19th century, some Hungarian cavalry officers got extra pay,
+
+[00:00:54] specifically because they had to spend so much money on wax for their enormous mistake. So we have on screen here an enormous military moustache. This was the age of the moustache, the 19th century. There was an officer called the Hussar. Very impressive. The Hungarian hussars were, the pride of Europe, you know, amazing. And there was a writer called John Padgett, who was touring Europe in the 1830s, and he was in Hungary.
+
+[00:01:25] He reported they were up to a foot long, these moustaches. They were just incredibly stiff. incredibly stiff and waxed, and there was supposedly a little extra stipend for buying your mustache wax. Do you think it's an advantage of someone shooting at you, because you're a bigger target, they might hit the mustache, and it doesn't hurt so much? Yes. Yes, I do. Interesting theory. You say yes, you do, but I'm not getting that vibe from you. I think it's an interesting thing, because John Padgett was going around and he was interviewing people over there, and they were saying the idea of not having a mustache at all,
+
+[00:01:57] let alone a ginormous one that required wax, was an alien notion to some of them. They were like, that is what men literally have. You are not a man unless you have a mustache. How do you distinguish between men and women in the UK, is what they were asking? There are other ways. They never found them,
+
+[00:02:13] and that's why the Hungarian population has died out since. In the 19th century, around the time this is happening, a lot of people are trying to sort of prove various ethnic boundaries and saying these people are from one race, These people were from another race. It was a big time for that. But a lot of them, I was reading articles. They really struggled with Hungarians because they couldn't compare their mouths
+
+[00:02:32] because they couldn't see their mouths because they had such massive moustaches. There was a quote, the Majas, which is the Hungarians, and not only a mustachioed people, but also one that is proud of a mustache that recognizes it as a basic element of honor and respectability. That's amazing as well because you'd never have to worry about someone lip-reading you, right? There's just a wall of hair stopping. It doesn't grow out of your mouth. No, but Anna...
+
+[00:02:58] Can it grow down over it, really? Yeah, you can get one of the waterfall ones. Those are lovely. Are they? They're like curtains. Yeah. They don't sound lovely, but I think there often is a disparity between what women think of moustaches
+
+[00:03:10] in terms of how attractive they are and what men think of them. But it definitely caught on, didn't it? In military trends, in fact, it was uniform regulation in the British Army from 1860 that every soldier should have short hair on their head no hair on their chin, but hair on their upper lip. And I think it started with the East India Company
+
+[00:03:30] and British soldiers went to India where, as is the case today, they are the world leaders in moustaches, I would say, probably. And it was a real mark of manliness for an Indian person to have a moustache. So they weren't going to respect, you know, British army officers unless they did. And so then I think it spread from there.
+
+[00:03:47] And everyone had to have one. Everyone had to have one. And also, in some countries, it was illegal to have one if you were not in the military because you're basically impersonating a soldier. Are we talking 19th century, or is it? I don't think this is still in force. No.
+
+[00:04:01] Actually, a lot of the rules about wearing mustaches of the army are not enforced anymore, and it was World War I, and it was because you had to put gas masks on. You can't get a proper seal on if you have a mustache. Yes, but this is exciting. There's new news from the British military on moustaches as of last year and beards. So my friend is in the army,
+
+[00:04:21] and I rang him up and asked him about this, and it turns out. April last year I think finally the British Army you're allowed to have a beard Oh thank God I know In the old
+
+[00:04:32] Before last April you could have a moustache That was fine but a beard was absolutely not There were Queen's regs on sideburns Not like they could only come down a certain Proportion of your ear I just imagining that episode of The Simpsons When Mr Burns doesn't know what sideburns are I know I'm just referencing another TV show there
+
+[00:04:51] But yeah But this was, this has been changed and finally. That's really good. The king himself intervened in this matter. Did he? Yeah. Well, he's always always going to bring on the hot button issues, hasn't he? I'm not, I am not sure whether you're allowed currently in the army to have a beard but no moustache.
+
+[00:05:07] You're allowed a full set. I don't know what the rule was there. It used to be that the rules were you basically couldn't do it, but you could get an exemption for religious reasons, right? If you were Sikh, for instance, you were allowed it. A few people in the army that were allowed it, so like drum majors, pipe majors, bugle majors, goat majors, which is people who looked after goats, and pioneer sergeants. And pioneer sergeants are amazing. They're people who would be at the front of a regiment, and they would have a special apron
+
+[00:05:35] that they wore, and their job was to clear the path for anyone who was walking behind them. And if someone's horse was wounded, it was their job, I'm sorry about this, to kill the horse. Oh, boy. And also, they would cut off one of the legs and give it to the soldier to carry with them. because the animals had numbers branded on their hoof and you had to take it back to prove that I haven't just lost my horse look I've got this bit of it
+
+[00:06:02] this all sounds made up doesn't it but it's genuinely true because I was about to ask why does he have an apron if his job is just going ahead of everyone else but now you've said that cutting horses up is part of the job it's good weapon if you need it as well a horse's a leg if you want to have other stuff
+
+[00:06:18] I think if you're in a cavalry charge and you're the one guy on foot with the horse's leg I feel like I would have two of the horse's leg and bang them together like coconuts so the enemy thought I was on my horse they'll think you're a coconut that's a very good idea interestingly the thing you were mentioning
+
+[00:06:33] about gas masks is it was recently in the last few years it was learned that's the reason that Hitler ended up with his Hitler mustache so he used to have a big big mustache and it didn't fit the regulations for the gas mask there's a debate about this yeah absolutely but this is from a biographer who knew him at the time who writes
+
+[00:06:50] So it's a kind of, it's a first-hand account of someone's opinion, but absolutely, it's one of those contentious things. I thought he was harking back to old school Prussian stuff. I should say this fact comes from an article about, why don't politicians have mustaches anymore, in which Hitler plays a key role, I would say. Yeah. So the other thing is, apparently pilots on airplanes have that similar thing about not having beards because they have to be able to get the mask on if they lose oxygen and the oxygen mask come down. So it could catch on fire.
+
+[00:07:21] When they give us the safety briefing at the start, they never say, quickly shave your beard off and then apply the oxygen mask. Is that just like bearded is a goner? I think so. It really struck me that the battle between beards and moustache, they're on opposite sides of the fight, aren't they? Because as soon as a beard becomes popular,
+
+[00:07:39] a moustache is just part of a beard. Or in fact, and I really like this quote, there was a novelist called Frank Richardson in the 19th century, who said moustaches get lost in the general face fungus. That is the popular beard. So I think it was quite good for moustaches when people like Louis Pasteur and Robert Koch in the 19th century
+
+[00:07:58] started to discover that bacteria caused infections because suddenly people were losing their beards, left, right and center because the idea was that lots of bacteria was going to get caught in them. And in fact, there was a 1907 experiment where they made a woman kiss a very hirsuit on the face man and found that he was polluted with tuberculosis and diphtheria bacteria as well as food particles and a hair from a spider's leg. Where did they get this man from?
+
+[00:08:30] It's just an every man. You've probably got all of that in your beard right now, James. I don't deny it. So this is a lot about men in the army and stuff like that because we're talking about mustaches. But there is Manuela Seons, who's an Ecuadorian revolutionary female, who used to wear a mustache.
+
+[00:08:49] A false or... No real. No, no, she didn't grow one. She was at the Battle of Ayakuchko, and as proof she was there, she carried around the mustache that she'd taken off a dead enemy, and she would wear it at masquerade balls,
+
+[00:09:04] so she would come around and wear this mustache has just proof. This woman was one of Bolivar's people, and actually was in a relationship with Bolivar for a lot of the time. Because I was one of the most important Ecuadorian revolutionaries. It's just, it feels very hard to take a moustache off someone you've
+
+[00:09:19] like, that's quite an operation to shave off. I don't think you shave it off, I think it's more of a scalping issue. Yeah, it's got to come with the skin. Otherwise, how do you piece it back together? And it's, I think it's a good move at a dance, because no one's going to refuse to get on your dance card once you tell them the moustache you're wearing belongs to the
+
+[00:09:35] last bloke you refuse to dance with you. Actually, there is some evidence that in the 19th century it was a trend for women to have a whiskery face when whiskers became so popular. There were fashion journals that said women would start wearing their locks of hair down the
+
+[00:09:51] side of their face, where a man's sideburns would be in imitation of men's sideburns because they were so popular. And there were adverts for pencils for women to draw little whiskers on their cheeks. And there was a dye advertised for women's whiskers. Right. Yeah. So this is the thing, why don't
+
+[00:10:07] women typically have as much facial hair as men? What is going on? Because there are all these reasons of why we've got hair on our head, which is some protection. To keep you warm and stuff. To keep you warm, like, again, hair on your head, hair, like when men grow chest hair, that's a warm thing. Armipid hair and pubic hair is to reduce
+
+[00:10:23] friction, you know. Yeah, also where I keep my tuberculosis. Right. So if these were reasons, like friction and heat retention and keeping the sun off and all of that, you would expect women to have full beards and mustaches as well. Yeah. Which means it's either something in
+
+[00:10:39] male-female relationships or male-male relationships, in that it's either to attract and impress and excite women, or it's something to like cow and repel rival men. Do you know what I mean? It's got to be the latter. Because as I say, the number of people I've come across, no offense, I'm trying to count the beard of people in the audience now, quickly.
+
+[00:10:59] I'm literally sitting next to you. I've come across so many people who are, so there's Rod Littlewood, who's vice president of the World Beard Association. There's Steve Parsons of the British-based Handelbar Club, handlebar moustaches, the world record holder who's an Indian man for the longest moustache. all of their wives say I didn't like it I'd rather they didn't devote their entire lives
+
+[00:11:21] I mean the poor wife of the Indian guy Ram Singh Chowhan said you know for the first decade or so I thought this is a really bad idea I'm sort of repulsed and then eventually as I realised he was building a career out of it but these yeah Steve How long is his sorry So his is 14 foot long
+
+[00:11:37] I think it's seven foot on each side That's long Yeah that is long You can be in every room of the house at once But you can send it to the fridge to get a beer for you That's nice Apparently dipping them in beer is good This is according to the handlebar club guy
+
+[00:11:55] Who says dip it in beer to keep it Yeah but what does his wife think Well indeed There was a thing that said He's got a great comeback to his wife Who complains about his facial hair He always says I say kissing a man without a moustache
+
+[00:12:09] Is like drinking champagne without the bubbles And I don't think that is a good comeback I don't think. Well, you also like white wine. That's a good point. Yeah, you're right. I think it is a men-to-men thing. Right.
+
+[00:12:22] There was a piece in 1926 of the New York Times, which claimed, Ivan the Terrible, as Russians are, he liked beards so well that he used to play by the hour with the flowing beaver of Queen Elizabeth's royal agent, George Killingworth. That's something. I'll ask on behalf of everyone. the royal beaver with the flowing beaver
+
+[00:12:47] of Queen Elizabeth's royal agent yeah beaver is just another word for beard oh that's all it is guys and it's overdue a comeback we probably shouldn't talk about moustaches without mentioning our colleague who's been on the podcast a few time
+
+[00:13:01] Anne Miller's one of her favourite facts she's got a huge moustache hasn't she she always likes this fact well and I'm going to ask do you guys think that if you're in the CIA should you keep a fake moustache on hand yeah oh yeah of course you should have no not on your hand
+
+[00:13:16] then you just put it up like that that's going to work great on a podcast we're not going to explain what Andy's doing even you can imagine but your imagination's run wild I'm putting a finger in front to be a flowing beaver that's what I'm doing carry on
+
+[00:13:34] it's working like a charm well so the fact that Anne loves is that in 2008 there was an MI6 officer on the one show whose fake mustache fell off halfway through an interview, which is absolutely cracking. You can't see the footage. It was because they didn't actually broadcast it. Only the people in the studio know.
+
+[00:13:51] But John Mendes, who was the CIA's maestress of disguise during the George Bush era, the George Bush Sr. era, sorry. She says that you shouldn't go for fake mustaches because they are very uncomfortable. So it's always obvious when someone's got one. And the glue does tend to melt and it falls off. which gives the game away. She said instead, horn-rimmed glasses, very effective, because you notice the glasses and not the person,
+
+[00:14:20] and just accessorize. So just carry a nice leather bag and a big cigar, and people will remember those two things. Is it possible that Elton John has been deep cover CIA all these years? Stop the podcast. Stop the podcast. Hi, everybody. Just let you know, we are sponsored this week,
+
+[00:14:41] by Saly. Yes, Saly is that incredible, extremely affordable e-sim plan that is fear of your mobile phone that operates in 190 countries in eight regions, which means you don't pay astronomical prices when you are calling or texting from overseas. Yes, we've all had the moment. We've had the fear. Oh, did I just look something up online and I didn't, oh, I'm going to cost the, I will never recover financially from this. Saly gets rid of all of that. You download it once. The prices are affordable. It works around the world. You can avoid scams, protect your privacy. It couldn't be more convenient. It couldn't. And it's highly recommended. I just the other day had eight minutes of a phone call to Australia and it cost me 10 quid. Ten quid. So get Saly now and save yourselves
+
+[00:15:28] in my case, hundreds of thousands of pounds. Hundreds of thousands of pounds. All you need to do is go to saley.com slash fish. And what you'll get when you do that, you'll get 15% off a Saly e-Sim data plan. It's really simple. Saly.com slash fish. Okay, on with the podcast. On with the show.
+
+[00:15:56] Okay, it is time for fact number two, and that is my fact. My fact this week is that one of the most successful club songs of all time, is mostly used to stop people from wanting to dance. I've got to say, I think that pretty much all club songs make me not want to dance. Agreed. I just want audiobooks. That would be great. 2 AM audiobooks.
+
+[00:16:21] So this is, we'll all know the song, Robert Miles' Children. You know that? So that was a song that was written by Robert Miles. He wrote it in Italy. He was writing under another name. Became Robert Miles because he wanted to go miles in his career. so he had a real destiny thing to his name because he wanted to go far and they do kilometers don't they yeah and that's why a mile is even longer yes well right yeah and so he he wrote this song and he wanted the song to be played at the end of every single club
+
+[00:16:53] night every rave that was happening because a lot of car crashes were happening after raves and it was because everyone was leaving the club of a really pumping song really adrenaline they'd get in the car and they would crash the idea was play this song at the end of the set and it would put a trance like music it would calm the person down and allow them to get into their car a bit safer and DJs globally have been doing it it's obviously not going to be every rave that does that but largely that's what that song became it was road safety basically for the end of a night I didn't think I knew that song and then as soon as I listened to it I thought oh of course I've heard this dozens of times
+
+[00:17:26] yeah it's absolutely massive wasn't it it was it apparently cost just 150 pounds to produce it well and it got to number one in Europe the whole of Europe for 13 weeks and he was the only Italian solo artist to ever win a Brit award. Really? Wow. Wow. So absolutely huge and he died very young. He did 47 very sadly. It's a shame. This thing was called the Saturday Night Slaughter or in Italian Strati del Sabato-era. It was a recognized thing. It was hundreds of young Italian people were dying every year. I think they might have assessed how much effect it's had. Because I've heard this song at the end of things like, you know, roller disco. But I don't
+
+[00:18:04] think that was Yeah. Is that the closest you've been to a nightclub? I think it might Yeah, I think it might Well,
+
+[00:18:11] it's pretty exciting in there, Anna, so yeah. Oh, you're still on wheels so it makes sense, right? Like, that's a good use. Right.
+
+[00:18:19] Yeah. But I didn't think I like dance music and it turns out I do. Do you? Have you ever been to a rave? No. No, okay.
+
+[00:18:25] I mean, some of that roller just go got pretty heavy, but yeah. I don't like you would have been cheering on the Public Order Act of 1994 that kind of
+
+[00:18:34] stopped the raves from happening in the 90s. Yeah, yeah, yeah. I've got that printed out on my wall. I love that one. That law changed the number of people you needed at a rave from 100 to 20. So if you had 20 people in an area and they were all dancing to music, then you could nick them all.
+
+[00:18:51] And it was, you could ban anyone who's playing music, which was predominantly characterized by the omission of a succession of repetitive beats. Right. Okay, so then a band called Otrechtre. They issued a track called Flutter, and in that track, no two bars had the same beat. So it was all the... Oh, my God. Well, I know, it sounds awful.
+
+[00:19:14] Was it? It was awful. It was really awful. But it did the job of that you were allowed to play it in a rave because it didn't have repetitive beats in it. But no, one's not seem to it, presumably. Everyone leaves the rave, so it sounds like it would do the job of... The profits for it went to a liberty. It is crazy that they tried to ban repetitive music.
+
+[00:19:32] Yeah. But the police were really worried. It was in the early. 90s, wasn't it? So this law was 1994. That's right. And that followed a couple of years of national panic, sort of moral panic about raves and rave music. There was a thing called the rave at Castlemorton
+
+[00:19:44] Common in 1992 where people danced for five days and it was a free illegal festival basically for about 20,000 people. And the police was just so worried about it. The same year they broke up a party by using a JCB Digger to smash through one of the walls of the party.
+
+[00:20:01] Wow. I know. It was a properly it was a very, very intense time. That sounds more dangerous than the dancing itself, doesn't it? Especially for people like Andy who's just standing next to the wall not wanting to dance. I just can't roller skate. That's the problem, you know. But actually, at that time, the rave culture was known as the Second Summer of Love, but it was credited for reducing football hooliganism. There's a lot of people who were going to football matches and who might have caused a fight otherwise.
+
+[00:20:28] Instead of taking lots of cocaine, they were taking lots of ecstasy and just hugging each other. Oh, okay. Yeah. Well, that's it. So that's an interesting thing. I read, I've been to a few, I went to a rave four nights ago. No, you did. Yes, I did. It was a birthday party in Margate. I got a lot of trouble from my friends there because I brought a book with me. And I do think like, like, dance floor book club would be an amazing thing to set up. So I went the other night and I remembered what it was like to go to a rave. It was really fun. But one thing I didn't see there, which apparently happens a lot in raves, is a lot of people are sucking on pacifiers, on dummies. And I'd never heard of that, but apparently this is a big thing. And the reason is it's because if you're at a rave, you're often on drugs, MDMA, a big one, leads to a massive amount of grinding of teeth. People used to do that in my world of days.
+
+[00:21:19] Here we go. All right. And I'm not going to go into any further detail. Okay, so pacifiers, dance music. Do you want to play a game of type of electronic music or show on CBBs? Yes. Okay. Okay, so Fidget House. Ooh.
+
+[00:21:38] Is that a show on CBBs, or is it the type of electronic music? I'll say that's CBBs. Yeah, CBBs, I think. Okay, I'll go, just for the sake of variety, house. You are correct, Dan. It is defined by snatched vocal snippets, pitch-bent dirty baselines, and rave-style synth-stabs over glitchy 4-4 beats.
+
+[00:21:59] Wow. And I might as well have said anything at that stage. what about puffin rock oh god yeah clearly how's music dance music audience puffin rock see babies
+
+[00:22:13] we have a very young audience in today we should say they're all sucking on pacifiers on the front round yeah it's an animated children's series about a young puffin named Una okay yeah
+
+[00:22:24] are there any glitchy four four beats baby club baby club I'm going to say music. Is it baby club, or is it baby club music? I think it's baby club music. Yeah, music. You are so bad at this.
+
+[00:22:40] And also, don't you have very young kids? Yeah. I haven't actually locked in my answer yet. I feel like I might give it away. Go up, Dad. Club. No, CBBs, obviously. Yeah, no, it's where all the kids sit around in a circle and sing songs.
+
+[00:22:57] Oh, beautiful. Nice. And finally, squea. S-K-W-E-E-E-C-W-E-C-B-B-B-B-B-B-B. It is a type of music. Yes. So it's a type of music where the aim is to squeeze out as much interesting sounds as possible. From where?
+
+[00:23:18] From the synthesizers, Dan. Ah, okay. One of the things I find quite interesting is that the sub-genres of dance are basically just defined by their tempo, right? So, trance was just it going slower. and so the oldest trance band is a thousand years old and they're so cool they're called the master musicians Is this like collectively? Like how the Rolling Stones are about 400 now?
+
+[00:23:42] No, no, no, it's been going for a thousand years They're all still in fitters fiddles There's been some handover So it started a thousand years ago It's based in Sufi tradition And it's in Morocco They opened Glastonbury in 2023 Which I think just means you play Glastonbury
+
+[00:23:58] when no one's quite arrived yet. But still, and they're incredible. You should look them up. And they're better than anything you see at a club. So performances in their, like if they do a performance, it goes on all night or it can go on for days. They play constantly. It's supposed to induce a literal trance.
+
+[00:24:15] And it's on drums and Woodwind mostly lots of circular breathing. And then it climaxes in this pan like God who comes and dances around flames and quivers and chases children around with olive branches. and he's dressed in the skins of four black goats and he's been played by the same guy for the last 50 years. Anyway, you can go. It's the festival in Morocco.
+
+[00:24:39] You can go and see them perform. It's the smallest festival in the world. Only 50 people can attend. How to attend or want to attend? Yeah, they've never actually set a limit. It sounds great. You stay in the musicians' houses. They have to cook for you.
+
+[00:24:53] That sounds good. Yeah, they cook all your meals and then they go and perform. It's a big deal. Timothy Leary was very into it. Was he? Yeah, William Burroughs, all your guys. Okay, so we're talking counterculture 1950s kind of period.
+
+[00:25:05] That kind of thing, yeah. The guy who's chasing the children, is he trying to beat them? Because normally if you say, I want to offer you an olive branch is a nice thing. No, no, it's scary, it's scary, yeah, he's going for a beating. But I'm sure it's mostly just acted out at this point unless they've been really naughty.
+
+[00:25:20] It's interesting you mentioned beats because I was talking to, so my best friend is Ash Gardner, he wrote the theme tune to know such thing as a fish, so Emperor yes, it's the song called Wasps. After he released that album, they were approached by Super Drug because Super Drug
+
+[00:25:35] wanted to make the ultimate electronic song to make love to. Wait, Super Drug the chemist. Yeah. And yet when I did that in Super Drug, I got picked out. Yeah, they approached Ash and said, we want to commission you to write a song that couples can
+
+[00:25:53] make love to. Was it to sell cummums? It was about to lose weight, it was about being healthy while you were, while you're in bed. So, this is how they described it. What's it talking about? This is Ash.
+
+[00:26:08] How was this never come up? He wrote our theme tune and then he wrote Sexercise, which is the song. This is the description. As written by Super Drug for the release, sexercise is something of a sonic epic at 22 minutes long. But this is a melting pot of ideas and
+
+[00:26:24] experimentation, a synth-laden exploration of pure passion. And there's a few comments underneath that one guy's like, doesn't do it for me dog. But, and it's pretty weird. But they got paid really well for it. Wow. So what they were told was there's the BPM that is best for being in bed
+
+[00:26:41] doing the act. Yeah. And losing what, and that's why the obesity epidemic ended, wasn't it? When everyone started shagging. We said years ago that sex only burns off the number of calories in, what was it? It was one small meringue without sugar. It was one small sugar-free meringue. I think there
+
+[00:26:57] ways of having sex where you can gain calories. It really depends how you do it, isn't it? It is time for fact number three. And that is James. My fact this week is that children could learn to read faster if all lessons were held in a podcast studio. this is a study that was done in Japan and the idea was they got a couple of classrooms and one of them they really soundproofed and the other one was just a normal classroom and they found that the children did much much better in the soundproofed room
+
+[00:27:40] the idea is that when you're trying to learn how to read or learn how to speak you're listening to your teacher and you're trying to work out what they're saying but when there's loads of echoing around you can't really hear it all properly and also with very, very young kids you might get one of the kids gets a bit upset and they start making noise and then the teacher has to go louder and then the kids go louder
+
+[00:28:00] and you get all this feedback of just things getting louder and louder and much more difficult to understand what's going on and so they tried this and they found that actually children did much better and even the teachers found it much easier as well the teachers found their job just way easier because they weren't having to fight
+
+[00:28:14] against the echo. So interesting. Yeah, really good. So when you say soundproof you mean putting soft furnishings and mattresses everywhere and yeah so I mean how many people are in the audience here today 1500 people or whatever probably most of you have a podcast I think
+
+[00:28:28] but when you're doing a podcast you have to try and make it the room as unequois as possible so you've closed your curtains velour cushions all that kind of stuff I thought you guys were doing that to try and seduce me all these years yeah it's very cool the sound quality thing because I just like when you
+
+[00:28:44] there was a study done this year I think about I mean obviously everyone uses Zoom now and if you use Zoom with a bad or a cheap microphone it turns out people literally think you are stupider. You could be the cleverest person in the Zoom, but if you don't have a good microphone
+
+[00:29:00] others genuinely downgrade you. How interesting. And it replies to sort of everything. So you're less clever if you've got a bad microphone or you're thought to be, or less hireable, if it's a job interview, less datable, if it's cool Zoom dating. And it's just
+
+[00:29:16] microphone quality. Really? And again, we should emphasise just on Zoom. Don't go to live interviews with your own microphone or anything. We're not recommending that, are we? But we wouldn't want the kids to learn in these studios because it would put podcasts as out of business and podcasting is a great industry. Cross-Wires Festival, I think we agree.
+
+[00:29:34] Named, kind of named accidentally. I mostly say because Andy likes an accidental invention. So, named in 2004 and named after iPods. Or as a software engineer, Dave Weiner, who started the first podcast for a journalist called Christopher Lidden. And he created a program called iPodder, which was called that because it was made to deliver online broadcasts straight to iPods.
+
+[00:29:57] And then a guy called Ben Hammersley wrote a piece in The Guardian about this new audio medium, which was to be called podcasts. And he went to his editors, they said, it's great, just need a bit of padding and you're shoving in a relevant sentence somewhere. So he said at the top, he wrote kind of a facile sentence saying, oh, what to call this? Audio blogging, podcasting, guerrilla media. And it caught on from there. just a stupid bit of filler. What's interesting is September 28th, 2004, there was a blogger called Doc Searles,
+
+[00:30:26] and he went to track the number of hits that Google would return if you wrote podcast into there. The first time, he says 24 times, reportedly, and then it starts to get bigger. By the end of September, there are 2,750 hits on Google coming back for podcast.
+
+[00:30:42] An exact year later, the 28th of September 2005, over 100 million. And you know who was really pissed? off about it, Microsoft. Because obviously you've got the pod from iPod, so every time someone said podcasting was basically an advert for
+
+[00:30:57] Apple. And so Microsoft tried to use their own name. They all called them blog casts until everyone in the world went, no, we're not calling them that. Right. It's not a good name. You know, a quarter of podcasts have one episode. Oh, okay. Yeah. And I think it's
+
+[00:31:12] 65% have fewer than 10. A lot of people say it should be higher, those proportions. I read an article by a company called Buzz Sprout who's a free podcast host and they said if your new episode gets within seven days 28 downloads you're in the top 50% of podcasts So we can get that one day Yes
+
+[00:31:32] We can dream George Bush was a forerunner in the world podcasting George Bush George Bush Senior weirdly yeah Very rare to have a double bush podcast nice Double Bush and a beaver This was George Bush the Younger and he released his presidential weekly address
+
+[00:31:51] as a podcast in the kind of late-ish 2000 I think 2008-ish which was pretty impressive and he used to sometimes deliver it in Spanish which is like good on him but then I watched a little interview with one of his Hispanic colleagues who remembered that journalists would come up to him all the time and say and isn't it great that your colleague the President George Bush speaks Spanish as well and he said he never wanted to say to them
+
+[00:32:12] he doesn't speak Spanish but he does try He doesn't just making it up He does try to speak Spanish He said And that's good enough There's quite a few podcasts out there When you look into the history of it
+
+[00:32:24] That arguably are the first podcast I tried to look into it Accidentally found out The oldest podcaster in theory As in current age And there's a guy There was an article that went out this year He's a hundred years old
+
+[00:32:38] And he has started making a podcast He's called George Hall And he was Lawrence Olivier voice coach. That's so cool. Yeah, so he's basically dishing interesting anecdotes about Lord Olivier,
+
+[00:32:53] his wife, people that he knew. Apparently in one of the interviews he says that Olivia was going through a phase of being absolutely obsessed about colonic irrigation. This is the kind of juice we're getting from George Horn at this point.
+
+[00:33:08] That's amazing. We should mention the elephant in the room in the podcasting world. Joe Rogan, heard of it? Big deal. Yeah. Big deal.
+
+[00:33:15] If you listen to Joe Rogan, which someone in the audience just said, nope. Well, lots of people do. But if you do listen to it, American women will be less interested in you as a partner. And this was a survey that was done. That's, well... It's another beard and mustache situation.
+
+[00:33:35] Everyone thinks it makes them more attractive. Is it for men or is it for... Yeah. American women between 18 and 34 were surveyed about what was a turnoff for them. So 55% definitely. definite turnoff in a partner if they listen to Joe Rogan. I just thought some of the other turnoffs were quite interesting
+
+[00:33:48] about where we are, like societally. They send green texts. That's a red flag for 7% of women. Is that about recycling? I think it's not having an iPhone, I think. It's sort of that, instead of the blue ones, if you're on an iPhone. Oh, right, yeah, yeah. Then there were some very weird red flags.
+
+[00:34:06] Researching for best deals and rates before buying. 2% of American women said, no, that's not for me. they read 1% said red flag they look better in person 1% said red flag Oh interesting Whereas for when men
+
+[00:34:24] American men at the same age We're asked about women for them The biggest red flag They identify as a communist 64% Red flag You've got to keep those red flags fighting haven't you
+
+[00:34:36] I think it's hard the earliest podcast Because basically before podcast You had distributing cassette tapes around the place. I feel like that was the original podcast was bootleg cassette tapes. Because the thing about podcasting is that you're free of all the constraints of having
+
+[00:34:50] to produce the show which has all this oversight, right? That's why there's so much shit out there is because there's kind of no standards imposed. Again, we want to say that podcasting is a great industry and this festival does really good jobs. Of course, yes, all of that stuff. But
+
+[00:35:06] Russia did a strong line in that. I hadn't realized during the Cold War So there was Samizdat in Russia, which was the quite famous distribution of the written word. It was banned stuff, exactly, like Solzhenitsyn or band authors. You'd type things out endlessly and then you'd send them to your friends and they'd retype them and send them to their friends. And then there was this thing called Magnitistat, which was publishing by tape recorder. And I think this is the original podcasting where basically you record yourself into a tape saying, I'm not a huge
+
+[00:35:38] crushing a fan or something don't like Stalin and then you'd send it to your mates and you'd say can you listen to this and then make a copy of it and send it to your friends
+
+[00:35:47] and for some of these broadcast millions of people would end up hearing apparently which seems that's really amazing Patron Saints are podcasting we have one we do
+
+[00:35:57] well it's unofficial it was organised by some trainee priests in Birmingham but they named St George Pricker as the unofficial patron saints of podcasting
+
+[00:36:09] because he worked sort of spreading the values of the gospel and he would send out lots of books and prayer booklets and he did lots of talking to people and that kind of thing. So he's a real saint? He's a real person. His miracle that made him
+
+[00:36:25] a saint was that he saw a 12 year old boy pushing a cart full of manure and then when he went to help him he put his hand on the cart and felt an extraordinary spiritual sweetness from the manure. Wow.
+
+[00:36:40] Also, I don't know why pushing shit around makes you a patron saint of podcasting, but... Well, also, he did a miraculous thing where he was able to get you 20% off your express VPN whenever you put in an offer code. Do you know there is a thing now? This is a practice that's going on where people are setting up entire podcast
+
+[00:36:58] so that they can secure business meetings. So if you want to get in touch with someone in your industry who you admire, and you might write to them on LinkedIn, you might send them a cold email and you might never hear from them but if you write to them and say would you like to appear on my podcast
+
+[00:37:12] there's a much bigger chance to say oh yeah I'd love to I'd love to so people are just setting up entire podcast which have like four listeners simply because it's a prestigious thing to be asked to do yeah I thought that was why we were doing it I can't even remember who we're trying to meet
+
+[00:37:26] hey guys I need to move us on to our next fact can I tell you one last good podcast name there's a podcast all about the horses in Lord of the Rings Each episode is up to three hours long I just love the name Horses in All of the Rings
+
+[00:37:41] The title of the podcast is Shadow Facts That is good Lovely Stop the podcast Stop the podcast Hey everyone This week's episode of Fish
+
+[00:37:59] Is sponsored by ExpressVPN Yes that's right ExpressVPN is a way of unblocking content around the world. Put it this way. If you are watching TV without Express VPN, it's like trying to travel the world without a passport. You're not going to get very far. You might be able to go to some lovely bits of the UK, maybe perhaps the Channel Islands, but not much further than that. Streaming services like Netflix show you a small fraction of a global library of content. It's exactly that. It's like imagine going to a restaurant where you live, but knowing
+
+[00:38:30] there are amazing restaurants in France and in, you know, America, you can't eat there. It's the same with movies. Often Netflix has all these other movies globally, 18,000, and we only get 7,000 of them. ExpressVPN will unlock all of those magical countries where Adam Sandler movies are nicely sitting, available for public use, but not for us. So it's a highly recommended thing from my side. That's right. And there are about 11,000 Adam Sandler movies that that I haven't watched. I know that. So if you want to watch Happy Gilmore 94 or whatever it may be, All you need to do is go to expressvpn.com slash fish if you'd like to try it. And if you use that link, expressvpn.com slash fish, you will get an extra four months of ExpressVPN for free on a year's subscription.
+
+[00:39:14] That's right. That's EXPR, E-D-S-V-N dot com slash fish. You'll get extra four months free with that code fish. Okay. On with the podcast. On with the show. All right. We need to get to our final fact of the... show and that is Anna. My fact this week is that Second World War bombings were useful for freeing up parking spaces. So every cloud I think you'll find. Yeah it's hard to get the quantity but basically
+
+[00:39:51] in Second World War you may or may not know there was quite a lot of aerial bombing campaigns. The Blitz being a famous example and what that did was flat in a lot of buildings and leaving enormous amount of space in the middle of cities where, well, for example, the big car parking franchise, NCP car parks in the UK, they founded their first car park on a bomb site in Red Lion Square in Hoban, that was in 1948, and lots more followed. And if you watch kind of bulletins at the time, there was kind of a panic in the 1950s, because car ownership was going up and up, that there wouldn't be any parking spaces left. But I was watching a bulletin saying, fortunately at the moment we've got so many massive bomb sites with no buildings on them that we have managed to find space to park all the cars until now but if we don't have another bombing campaign soon we'll have nowhere to put the cars they didn't say that but it was implied it's incredible the story of that first car park okay this is really fun I promise and if you doubt it halfway through just remember it is really really fun okay that one in red light
+
+[00:40:57] Lion Square in Hoban. So 1948, founded by two guys called Donald Gosling and Ronald Hobson, and they were told, this will never work. That's a stupid idea. You can park on the side of the road any time and no one's going to pay one shilling and sixpence for an entire day's parking in central London.
+
+[00:41:13] They were just told, don't do it. Just, sorry to cut you off, but how many cars did we have at the time? Was it a problem parking? It is now, right? They're very useful. You could just park on the side of the street most places. So we didn't really need it. You could park on Oxford Street. They were going up very fast. post-war car ownership was going up.
+
+[00:41:29] Anyway, this is going to get fun, is it? Well, I'm now slightly doubting that. Anyway, they bought it for 200 quid. 100 quid each they put in. They bought this space for a car park. They sold the business 50 years later in 1998. Each of them got 300 million pounds from the sale. Wow.
+
+[00:41:46] And that was more than one car park by that point. That's less good effect, yeah. Well, the whole business was sold for 800 million pounds. They nearly didn't sell the business. It nearly fell over at the very large. last moment because Ronald Hobson, one of the two co-founders, he wanted one particular car park to be excluded
+
+[00:42:03] from the sale because it was on Oxford Street and he wanted it to be excluded from the sale because he would go there at the weekend and park up with a flask of tea and study which parking bays were occupied first. Wow. So he wanted that to be like... That is fascinating.
+
+[00:42:19] I know. Do we know the results? Okay, okay. Okay, sorry. I'm sorry for for finding it so interesting, but I do... I don't think who parks where first? Is it under the tree? Is it closest to the parking meter? I couldn't agree more, Anna, that this is an interesting fact,
+
+[00:42:34] but I feel like I've lost the room at this point. Oh, my God. I think we're locked in. That is an interesting thing, right? So if you go into a car parking place, do you just park as soon as you go in where there's loads of spaces, or do you drive as close to the door as possible
+
+[00:42:48] and then drive around looking for the perfect spot? I do that. Yeah, so does almost everyone. It turns out that actually, on average, it kind of works out. even. But people have found that actually a lot of traffic in towns consist of people looking for spaces. And they did a study in the German city of Freiburg in the 2010s and found that 74% of cars at one
+
+[00:43:11] moment were looking for a parking spot. No. Oh my God. It's mental, isn't it? Yeah. It's bad, you know, a lot of pollution there. People cruising, it's called, which is a much less sexy version of cruising than other version of cruising. No, I'm cruising officer. there are some countries in the world with some really mad parking systems that I don't think we've mentioned before quite a lot of countries
+
+[00:43:35] the cold ones mostly have systems where you have to park on one side of the road or the other so that they can sweep the snow off the non-parked-on side and they have different ways of signifying this but Sweden's is so good it's called their datum parkhering system
+
+[00:43:50] and it's exemplified by a post on Reddit I read from an American tourist saying, sorry for the dumb question, but we really can't make sense of this sign. We're on holiday in Sweden. Can we park here? The sign is a vertical white line on one side of the sign
+
+[00:44:06] and two vertical lines on the other side of the sign. And the answer that a helpful Swedish resident gave was, it means you're not allowed to park on the side of the street with even or odd house numbers on correspondingly even or odd days. Mala? Yeah. So there you go. Yeah.
+
+[00:44:24] So you have to, if it's like the 11th, of July, you have to make sure you're not parking on the side of the street that has houses numbers one, three, five, seven, and nine. Simple, and you should know that with the tiny three random lines on it. That's crazy. In America, they have a lot of things like this. Quite a lot of towns, especially Pittsburgh, apparently. They do this thing where if you go out for the day and you take your car, then you'll put a chair where your car was so that no one can park there. Oh, yeah. And they're not really supposed to do it, but really the local they just turn a blind eye because it's outside your house so yeah so you've you've gone out to the shops
+
+[00:45:01] but you don't want anyone to park right outside your house so you put a chair there and then no one else will park it and everyone kind of knows that that's the way that we do things and then according to the economist in shankai they do the same thing but people get their elderly relatives to sit in parking spaces no chair there is a chair this is a granny on the ground i'm i was reading about UK car parks and I found that in 2004 Focus, the science magazine they were given a brief to come up
+
+[00:45:32] with the 10 most secure places on earth and those places included Saddam's Baghdad bunker, the Mormon church records Fort Knox, Air Force 1 and a car park in Derby called Bald Lane right? And you know how I was
+
+[00:45:49] an ally late for the podcast today? That's where you went? That's where I was. Oh my God! You went to the highest secure place in the UK, basically? Yeah, well, I was driving past it. So, what is it? What is there? It's the most secure car park in the world. What does that mean?
+
+[00:46:03] There's a big sign that says this is the most secure car park in the world. What does it mean? I should say it's in Derby. Not Derby. Did I say Derby? You said Derby. Wow. But it's amazing.
+
+[00:46:15] So you go in and they give you this card, and then you park in the thing, and they have sensors underneath your car. And when you leave, you tell, say which bay you're in, and then the sensor switches on. And if anyone moves your car before you come back, then the whole place locks down. No. Yeah, absolutely. And there are 190 CCTV cameras in the building. They have a huge PA system. They have panic buttons all the way through. So anywhere you go, you could just bank the panic button. Again, everything shuts down. Did you do it? Oh, boom. Why do you think I was an hour late? No, it's absolutely amazing. And what happened was,
+
+[00:46:53] it was in 1997 there was a load of crime that was happening there and there was a lot of drug taking and muggings and stuff like that and the council didn't really know what to do and so they got this guy called Ken Wigley who'd invented a load of security systems and said do you want to take over it and he said well I'll take over it as long as I could do whatever I want and he just basically put all these amazing systems in
+
+[00:47:13] he's like Judge Dredd but for parking this is amazing so if you've parked your car there you're busy shopping you've bummed your partner in town you give them the car keys you say, darling, I've parked the car, can you pick it up? That's it. They're arrested. As long as they've got the card, they're okay.
+
+[00:47:29] Okay, fine. So you can walk around Derby and go to as many vape shops and bookmakers as you want. And your car will be absolutely safe. Wow. I think I know one which is as secure. Okay.
+
+[00:47:42] And I don't think you'll have found this, Dan. Okay. There is a car park in Farnborough that is only accessible on foot. Okay. That's brilliant. This was reported... Is it for the Flintstones?
+
+[00:47:58] This was reported several years ago, and I had a look on Google Images. Certainly the most recent image shows no cars there. It's above the gym. The business is called The Gym. I'm not just being vague. When it was first reported, it had absolutely everything. It's got bays. It's got signs.
+
+[00:48:12] It's got all of that. But the only thing it lacked was access for a car. And that's because it's part of a big development which hasn't been finished yet. So you can go there to this day. but just not with a car Wow Yeah that is secure in the other way Like you can't get in
+
+[00:48:26] I thought it was going to be a clever system Where you had to lift your own car in or something Like I was actually in Spain a couple of weeks ago We went into an underground car park And instead of parking your own car Someone stopped and said I'll park your car for you And the system is you get out of your car
+
+[00:48:39] I fall for that so many times I thought are the number of cars I've been through You've got your keys And you've given your keys And you watch And they go and they go up to a parking space and the parking spaces are so narrow to save space presumably that they then get out of the car before parking it,
+
+[00:48:55] take the handbrake off and push it in so that they don't have to get out of the doors afterwards. So cool. And also reminded me of another cool system they have in Thailand where you are, and I discovered this because my friend lived in Thailand and she came back to pick up her car one day in a multi-story car park.
+
+[00:49:11] There was another car parked in front and a Thai person nearby explained, that's fine, they will have left the handbrake on. And in Thailand, you can park blocking people in as long as you leave the handbrake off so that when they arrive, they can push your car out of the way and get their car out.
+
+[00:49:26] That's amazing. So good. That's very funny. A few things on the Blitz. Oh, yeah. So the Blitz, London gets a lot of the headlines, but the rest of the country was hit, and of course, Sheffield was hit quite badly
+
+[00:49:37] because, according to JBS Haldane, there was half a square mile of Sheffield that was more vital for production of munitions than anywhere else in Britain. Basically, it was the only place in the UK where you made these armor piercing shells in Sheffield and so the Germans were really, really keen to bomb it. It was called Schmitzegel, which means crucible.
+
+[00:49:59] And basically, yeah, the whole city got hit quite badly. There was a woman who was fined three pounds because even though she blacked out her house curtains before leaving, she'd left a light on, which you weren't allowed to do because the bombers would be able to see it. Right. She said she'd left the light on for her cat and the cat had moved the curtains to kind of... It could have been a German cat and picking.
+
+[00:50:21] Sounds like it. Yeah. And the hospital, the top brass, they all had tin hats, but the nurses had to make do with chamber pots on their heads that was held on with packages. There's amazing pictures of doing that. And they would go out to the moors, and they would collect sphagnum moss,
+
+[00:50:38] which they would use... If you know, you know. They would use to sterilize wounds and stuff like that. So, yeah, that was it. I read a couple of headlines about the Sheffield Blitz. There was a fact from the Sheffield Star, which wrote, Sheffield has braced themselves for air attack from the moment
+
+[00:50:58] war was declared. People couldn't understand why Sheffield was not hit sooner. Very much like, come on. And this, I love this line so much. Yorkshire soldiers were reported to have pledged to avenge Hitler's raids on the city. He made a bad mistake bombing
+
+[00:51:14] Sheffield, they said. Like, it's just That's very nice and proud. I do think invading Russia was the bigger mistake of the war. It's on his deathbed. Biggest regret. Sheffield.
+
+[00:51:29] Okay, that is it. That is all of our facts. Thank you so much for listening. Thank you to the Crosswires Festival. Thank you to our very good friend, Alice Levine, for having here, as well as the rest of the Crosswire team. Go to our website.
+
+[00:51:44] You can find lots of fun stuff there. But come back next week for another live episode. We will see you then. Goodbye, everyone!

@@ -1,0 +1,231 @@
+# No Such Thing As A Fish - No Such Thing As A Dangerous Daffodil
+
+- Episode date: August 1, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-dangerous-daffodil
+- Slug: no-such-thing-as-a-dangerous-daffodil
+
+## Transcript
+
+[00:00:00] We run it on QI a few years ago. Yeah. Which was, there's no such thing as a fish. No, no such thing as a fish. No, seriously. It's in the Oxford Dictionary of Underwater Life. He says it, right there. First paragraph, No Such Thing is a Fish.
+
+[00:00:18] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I am sitting at a table with Anne Miller. James Harkin and Andy Murray. And once again, we've gathered around with our favorite facts from the last seven days. And in no particular order, here they are. Okay, fact number one, and that's you, James. Okay, my fact is that the most painful place to be stung by a bee is your nostril.
+
+[00:00:52] Is it? It is. So a bee inside your nose. Yeah, just the inside of your nostril, apparently it's the worst place to be stoned. How do you know this? Well, I know this because there was a Cornell University student called Michael Smith, who decided to let bees sting him on all different parts of his body and find out which was the most painful. When you say all, do you mean actually all?
+
+[00:01:13] Well, the main ones. The main ones. Define main parts of my hands and my feet. Yeah, I want to put nostril on my head, shoulders, knees and toes, obviously. I'd say inside your mouth's probably pretty bad. Yes. Or your ears, like things that are touching your ins. Did he do it on his penis?
+
+[00:01:29] That's what we're all dancing around. I'm not. Well, you might be dancing around your penis. I would be of a beard, stung it. He did, yes. He did it on the number of different parts of his body, and he gave them marks out of 10 for how painful they were, and the nostril was 9.0.
+
+[00:01:49] The upper lip was 8.7, and the penis was the third worst place to be stung, and it was 7.3 out of 10. Wow. He had 1B, which he would hold. beside his body in order to make it sting him. Poor bee. Just put back in the box afterwards.
+
+[00:02:06] Oh, thank God that's over. Then half an hour later, oh, here we go. Is it true that bees don't die after stinging you? Mammals have tougher skin. So if they sting a mammal, there's a higher chance of the sting being left behind and then the bee not surviving. However, if they sting other insects, which is what they normally sting, then they're fine that they can sting them repeatedly.
+
+[00:02:24] Do you know what a bee does if it can't sting you if you're too small to be stung? If you're too small to be stung They're not a human, like an insect Oh, like an insect. Someone invading their nest. Yes, yeah. I know, what does it do? They bite. And their bites have a chemical in.
+
+[00:02:38] They basically paralyzes their prey so they can turf them out of their hives. And it might be able to be used in human medicine for anesthetics. Actually, the theme tune to our podcast, Wasps by Emperor Yes, the song is all about how bees survive a wasp attack when they come into their nest, which is that they heat it up by vibrating inside. and they can sustain within their own body a certain amount of heat which is higher than a wasp heat
+
+[00:03:02] so they literally cook the wasp inside the hive That's awesome We also should mention the least painful places Just in case a super villain says I'm going to make this bee sting for you choose Well soul of your shoe would be Yeah I'll go for that
+
+[00:03:16] But on the body The skull tip of the middle toe Apparently and upper arm They're all very low rated 2.3 I read about this horrible thing in New Zealand where they're selling bee venom face masks. So the idea is that it works like a natural Botox in it. So they need about 20 hives to harvest one gram with this venom.
+
+[00:03:34] And they claim it makes your skin feel firmer. It makes it feel like you've had a facelift. But dermatologist said there's no benefits. And actually it can cause you quite severe medical problems. Bees can fly higher than Mount Everest. We did the thing about landing a helicopter on Mount Everest, which is incredibly difficult and dangerous because the air is so thin up there that even with the speed of helicopters of rotor blades go at,
+
+[00:03:52] it's almost impossible to do. But someone has done it. Someone has done it, yeah. Yeah. But it wasn't a bee. Just to clarify. Well, Edmund Hillary, he was a beekeeper. And actually it was his beekeeping job that funded his trip to get to Mount Everest.
+
+[00:04:04] Yeah, he put it on his passport when they asked what his job was. He said he was a beekeeper. Oh, that's awesome. Yeah. Other famous beekeepers is Sherlock Holmes. Yes, he retired to become a beekeeper. He retired and becomes a beekeeper. Yeah.
+
+[00:04:16] Aristotle as well was a beekeeper. And he made this really odd claim that they survived for seven years, when in fact they survived for seven weeks. So either he thought, well, they've still. here and just didn't recognize that he had newborn bees. Or he was a dog. Oh my God, yeah. Wow. Aristotle. We've just blown this thing wide open.
+
+[00:04:33] I saw the other thing in the news a few weeks ago that Norfolk police are warning people to be aware of bee rustlers. They've been turning up in the night and stealing hives full of thousands of bees. Oh, really? Sounds quite a high risk theft. Yeah. Germany has fantastic bee laws and roughly broken down. They're this. If bees break away from a hive, they are only still your bees.
+
+[00:04:54] if you're in pursuit. So as long as you're in pursuit, they are your bees. So there is nowhere off limits to you. If you have to run into the houses of parliament there, you can because you're in pursuit of your bees. Yeah. You're extrapolating from this law. Yeah.
+
+[00:05:07] If they then land in the hive of someone else's farm. Yeah. And it's an empty hive, then you can break that hive down, collect your bees and bring it back and just replace the hive. If it lands in a hive that's full of bees, then the other owner, he's just acquired some new bees. Now, the best law of the whole thing is that if you're in pursuit of your bees. There's a law that states that if you see someone else in pursuit of
+
+[00:05:28] their bees and your two bee colonies collide and turn into one swarm, you are now the co-owner of these bees. You're in business. With some guy you've never met. Yeah, if he drops out of pursuit, then it's your bees. You're in buzziness, more like. Can I quickly tell you about bee bids? Please do. Oh, yeah. This is an article by a beekeeper on beeinformed.org. Nice. But the article reads, having about 10,000 bees on your face is one of the best ways to demonstrate how calm and fun bees can be. And so the idea is that, so step one, prepare the bees. Step two, prepare the person.
+
+[00:06:05] Step three, add bees. Step four, remove bees. Because it's more detail on how you do all of these things. So basically you attach them to your chin and you have to put Vaseline on your eyes and you have to put cotton in your ears and like a nose. How do you attach them to your chin? Is it like on each hair on your chin or something? You put a queen bee just below your chin and the bees swarm to her.
+
+[00:06:25] How do you get her? You spray the bees with sugar syrup And then assistant will tie the queen around your head So the queen is under your chin And then you just hold a tray on your belly And the assistant dumps all the bees into the tray And they just gather to the queen And you've got a massive beard made of bees
+
+[00:06:41] However, he does point out He's never done this without being stung at least once or twice I want to know what would happen if you were in Germany And you were chasing your bees And they all gathered on some guy's face You get to own him There is a myth about bees according to the internet.
+
+[00:06:56] This is a common misconception amongst some people that bees hate bad language and will sting those who swear in their presence. I heard that if you kill... I think it works with bees andrewasps. If you kill them, you need to get out of their quake because if you kill them,
+
+[00:07:10] they release a chemical to warn their hive mates that there's danger. They can do that even if they're still alive. There was something in the news this week that they found that gorillas communicate by B.O. You mean guerrilla guerrillas, not guerrilla warriors? Philo Castro. Just raised an arm.
+
+[00:07:27] Well, uh, Yasser Arafat used to just fart whenever he wanted to, because that was his kind of thing. It was his intimidation tactic. To clear the room? Just to, it was just his thing. He got so much, he just got so much joy out. Can we have the room to ourselves, please? He does make your presence. I was reading that urban bees, they've completely evolved.
+
+[00:07:47] So there was a study done in Toronto that showed that three out of eight alfalfa leaf cutter bees have nests that are made up of of shredded plastic bags. Apparently they use us as sort of salt licks, like us humans. Lots of insects drink animals tears together. We did on QI a few years ago that there was a company developing bee bomb detectors. Oh yeah.
+
+[00:08:07] You train bees to stick out their tongue at the smell of explosives and things like that. Wow. You know how you use smoke to pacify bees? Do you know how that works? No. It doesn't make them drowsy, as you might think in the normal way.
+
+[00:08:22] They think they're in trouble, and so they eat up all of the honey and because they eat up so much they're so full they can't really do anything and they're just waddling around and they're not attacking people I think that's how the smoke stuff works that's great
+
+[00:08:35] it's good that isn't it I really hoped it would be by getting them addicted to the smoke and so that they just want another cigarette well they have there is a study where they try to get some bees addicted to narcotics to see how it affected bees what could possibly go wrong yeah so they got some bees hooked to cocaine
+
+[00:08:49] and according to the results the cocaine turned good bees productive members of the hive into untrustworthy bees and disgrace for Landropomorphism. How does an untrustworthy bee behave then? I think if I remember this study correctly bees will do a little dance to say
+
+[00:09:06] how much honey they have called the waggle dance and the ones who had taken cocaine would do the we've got lots of honey dance when actually they should have done that we didn't really find much honey we mostly found cocaine dance that's amazing we found more than anyone else has ever found you got to come look what about what about drunk bees do you know about them no no
+
+[00:09:22] So you sit in a corner and get a bit sad. Yeah, it is a bit like that. They have more flying accidents than sober ones, and they can sometimes forget how to get back to the hive and die as a result. And if they do make it back to the hive, then they can be rounded on by other bees who punish them by chewing off their legs. So they're legless. Okay, let's move on to fact B, fact number two.
+
+[00:09:49] Just a call back there. Yeah, okay. This is my fact, and this fact is that Walt Disney used to eat breakfast like all of us, but his favorite breakfast was fresh donuts dunked in Scotch. The national dish of Scotland. Yeah, yeah, yeah. He's one of those people who, when you look into him, just comes up with, there's so many extraordinary little facts about him that you would never have known.
+
+[00:10:14] And I'm surprised that we do know. I'm surprised that we do know that he dunked his donuts in Scotch. I'm surprised that we know that he used to keep. his testicles on ice because he was. Wait, wait, wait, wait, wait. You don't know that. He was his scotch that was on ice. He was his testicles. He used to put his balls on ice because he had a low sperm count and he thought that would help. This is all the cryotics rumours started. Yeah, exactly. Yeah, he, the rest of him isn't frozen. It's just his testicles. But when we regenerate him,
+
+[00:10:41] as an enormous pair of bulls. There's a guy called Josh Schumacher in America and he's patented a thing called Snowballs. And these are pants that come with a special integrated pocket that cools a man's nether regions in an effort to boost his sperm count. Awkward Christmases sorted. Yeah. For the man who has everything. Colder testicles.
+
+[00:11:04] A scare story went around a few years ago that iron brew lowered your sperm count. Really? Basically would staff the Scottish reproduction rates. I think it turned out not to be true. Chinese eunuchs would keep their testicles in a jar in the hope that they would arrive complete in the next world after they died.
+
+[00:11:21] I just moved. house and I, you know, I'm getting rid of a lot of my old stuff. I can imagine finding your testicles in a drawer or something and thinking, I will hang on to these. Yeah, everyone's got one of those drawers at home, haven't they, with just odds and ends, like old batteries, jars of testicles. What happens to Foreskins? What do you mean? Some of them can be used in cosmetics. They're not really supposed to the B-Face mask. I know. They're used as artificial eyelashes. No, they're not, Andrew. No, there was a bit of a bit of a thing a couple of years ago that some hospitals have been taking the removed
+
+[00:11:58] foreskins from children and they'd been using them to make cosmetics without the patient's consent. I did work experience in the hospital when I was younger and I was in an operating theatre and they had a sign on the wall about different kinds of bins and after I read it I was, I think it was the orange bin was for human body parts. Oh. I never saw one but I was wary of. That's like recycling gone mad isn't it?
+
+[00:12:19] You're going to put it in your green bin or your brown bin? or your brown bean or your orange bin. Walt Disney. What do we have about him? Something I didn't know about Walt was that he was the voice of Mickey. There are lots of Mickey Mouse. And one of the actors who played Mickey Mouse married the lady who played Minnie Mouse, which is very nice. Oh, that's good.
+
+[00:12:36] That is good. Cows in Mickey Mouse, there was a complaint that the udders were too big when it first came out. And they said, pictures in the future will have small or invisible udders, quite unlike the gargantuan organ, whose antics of laked have shocked some. and convulsed others. I get a lot of those letters, too. I found that yesterday. This is not really related,
+
+[00:12:58] but from the Mickey and Minnie thing. Do you know Fergie from the Black Eyed Peas? Yeah. Was someone in Peanuts? What? I forgot on the name of the character in Peanuts, the one with blonde curly hair. Her voice was done in the 80s by Fergie.
+
+[00:13:11] It was the first thing she ever did when she was like nine years old. Okay, I've just Googled it. She played Sally. That's right. That's a really good fact. Yeah. Just one other related fact to people
+
+[00:13:21] behind the characters, Ariel and Bell, so Ariel from the Little Mermaid and Bell from Beauty and the Beast, they were both based on a real-life model, whose name was Cherie Stoner, and they used all of her mannerisms. So there's very famously, Ariel does this thing where she kind of blows her hair in frustration, and her hair blows. That was just, um, Shari just improvising in the moment. And Sheree also had the tail of the fish. She did. So, I mean, it was very convenient. But she wasn't just a model because then she became a part of the family and she was the writer and producer for the animaniacs and Casper, the friendly ghost.
+
+[00:13:54] Oh, really? Yeah, she was like a proper... That's pretty good. That reminds me of a fact about the Statue of Liberty. It was designed by Bert Haldi, and I think he based the body of the Statue of Liberty on his mistress and the face on his mother. Oh, that's a little bit Freudian, isn't it? But that's like Justin's mother would be very statuesque, if so.
+
+[00:14:15] Maybe she's wore a big tiara all the time. Maybe. Justin Pollard, one of the other QI elves, in his book Secret Britain, he talks about how the Rolls Royce, the Statute of Spirit of Ecstasy, is based on the mistress of Mr. Royce. Was it? Yeah, well, one of them, it was their mistress who died in a boating accident, and it was his tribute to her to keep her alive forever. Yeah, so that's his mistress on the front of the car. Let's talk about breakfast. There was a study done saying that if you eat cake for breakfast, it's really good if you're on a diet. and they got a load of overweight people and they gave them cake for breakfast
+
+[00:14:50] that was the only difference in any of their lifestyle and they all lost weight and the idea is that if you eat the sugary stuff in the morning you're less likely to snack on it during the day. Wow. So a bowl of special K and a bowl of frosties have only a one calorie difference and it's the special K that are more calerific.
+
+[00:15:08] Whoa! So you're better off eating frosties. Really? The iron that you get added to cereals if you have a good enough magnet you can get the iron filings out of the cereal there's a way of doing that there's videos on YouTube of how to do it
+
+[00:15:21] oh that's awesome yeah Disney World is the second largest purchaser of explosives in the US really fireworks or they take it to terrorism no it's fireworks but after the military is number one or they're planning something really big actually that reminds me of a fact that I almost
+
+[00:15:38] used for the podcast this week I read it on a website called collectors weekly com and they said that before they had fireworks what they would do is they would get two anvils turn one of them upside down put it on top of the other one put explosives in between them set fire to the explosives so that the anvil would fly into the sky well it could possibly go wrong i know and it caused all sorts of problems people getting injured and what have you but so hang on this the cartoon trope of someone being killed by a massive anvil falling on them something that was a real risk yeah the weather's going to be heavy anvils today
+
+[00:16:09] with scattered hammers Okay, it is time now to move on to fact number three, and that is you. Yes, my fact is that the French used to call arsenic pudre de succession or inheritance powder because it was used in so many murders. That was obviously not sort of on the tin. Yeah, and the pharmacy, I would say, inheritance powder. No, it was actually, arsenic was used quite a lot at this point because it was used to kill raps. and they actually also use arsenate to color their wallpaper green.
+
+[00:16:41] So there are quite a lot of cases where people would have this sort of symptoms. And when they went to the seaside, it would clear up because they were away from their wallpaper and this sort of lingering arsenicness was there. Wasn't Napoleon supposedly poisoned? I mean, that was the myth, wasn't it? Yeah, there's a myth. People are pretty sure these days that he died of stomach cancer. Not of wallpaper.
+
+[00:17:01] Weird to fill in on the official form. Cause of death, wallpaper. Wallpaper. That was almost anvil, anvil, anvil, wallpaper. It's like that, either that wallpaper goes or I will. It was that. Oscar Wild. It turns out he didn't say that. He said something like it, but he said it days before he died.
+
+[00:17:17] And I don't think he kind of went, oh, that was a pretty good end line. I'm just going to leave it there. He lived on for another 30 years in complete silence. Yeah. But there's arsenic fact. So I got it from Lucy Worsley's book about murders, which is really interesting.
+
+[00:17:31] It's all about how the British King do you're sort of obsessed about reading about murders. The arsenic itself was problematic because it doesn't have a smell. and the symptoms are very similar to cholera and you couldn't trace it at all until some chemists developed the marsh test which is how you could separate arsenic and prove someone had it. Before that there was no way of proving that you had taken arsenic.
+
+[00:17:48] Is it not supposed to smell of garlic when you heat it up or something? Yes, I read that as well. When you heat it, it's... I don't know if that's true. Maybe they weren't cooking it. Yeah, or maybe they were putting it in garlic bread. One of the best tests for the presence of arsenic was developed by Samuel Hanneman, who is the guy who invented homeopathy. So that was one of his more successful.
+
+[00:18:09] Could his test detect like one part in 10 billion? Well, apparently, you do need a small amount, though, to live. Arsenic, yeah, you have it in your body. Yeah, so they've tested on chickens and rats. They've given them a diet, normal diet, but only without arsenic. And they grow up stunted. So they don't know whether it's essential for humans, because I don't think they've done that kind of experiment. Isn't it in lipstick as well?
+
+[00:18:31] Can be. Can be. Yeah, there's some traces. In the USA, I think. I think it's not allowed in any British cosmetic. In the US, you're allowed up to three parts per million of arsenic in lipstick. Wow. It's like really grim stuff about food, isn't there?
+
+[00:18:45] You had like one hair for however many grams and one dead fly. One rodent hair per jar and three, up to three maggots. One testicle. One testicle, as long as it's Walt Disney's. And your frozen peas. But they used to think it was good for us, didn't they? Because it was prescribed for a lot of medication. Yeah. Diabetes, tuberculosis, malaria.
+
+[00:19:06] Yeah. Tyler's arsenic. Yeah, pretty much everything. It was a pick-me-up. The cure-all. Yeah, there was a medicine called Dr. Fowler's solution, which was used to treat fevers. And it's just a solution of potassium arsenite watered down with lavender water.
+
+[00:19:20] And you would take a few drops with a glass of wine. Charles Dickens had it. It was used acurial, tonic, aphrodisiac, treat snake bites, malaria, epilepsy, morning sickness, diarrhea. You name it. There was also Dr. Rose's arsenic complexion wafers. Lovely. They were appetised. as being simply magical for the complexion.
+
+[00:19:39] I've got another fact from Lucy Worses' book, which I really love, which is Madam Two Soir's Chamber of Horrors, which they originally just called the Other Chamber, was sort of full with models of murderers and you go and look at them. And during the First World War, trainee soldiers used to be set in an initiation test to go and hide in the chamber and spend the whole night there, and it became such a pest that Madam Two Swords
+
+[00:19:58] had to officially ask the War Office to stop them doing this. Oh, wow. Sneaking in. I have a fact that you'll like, Anne, about arsenic, and that is that hedgehogs are immune to arsenic poisoning. Go hedgehogs. Are they? Yeah.
+
+[00:20:11] I like a good hedgehog fact. You can build up a resistance to arsenic if you try your hardest, which is good news. Yeah, there were some peasants in the Styrian Alps several centuries ago who ate massive chunks of arsenic twice a week, and they claimed it improved the complexion. So not far off the complex. Oh, really? And scientists said, no, that's ridiculous. Arsenic's very poisonous. And they're like, well, how come our skin is so good?
+
+[00:20:32] How come I'm going after a day in the fields? But then there was a meeting in 1875 Of the Association of German Scientists At which a peasant ate twice the fatal dose of arsenic trioxide Before a big audience And they tested him afterwards And they tested his urine which is how you tell you Wow, before a big audience
+
+[00:20:49] It's like people were easily entertained in those days Well they didn't have transformers did they Can't watch a man, he might die Yeah, I'd watch that like a shot I think it's like an early version of man versus food Man versus poison That's a great Today man won
+
+[00:21:07] But next time Yeah Poison poison poison Anvil Anvil If you are poisoned with nitric acid The way to tell Is your snot starts to foam
+
+[00:21:20] Wow That's cool That's cool Agatha Christie's novels So Agatha Christie Used to work as a nurse And a pharmacy dispenser During the work
+
+[00:21:28] To which she got a lot of her knowledge About poisons Over half of her character Deaths were from poison and there was one case where she I won't say the book, in case it's a spoiler, but in one novel she is thalium poisoning and she detailed the symptoms so thoroughly
+
+[00:21:40] that hair loss and things that go wrong that they were then used by people to diagnose real life cases of thallium poisoning and she saved at least two lives. Wow, what a great fact. That's awesome. Dogs can be poisoned by eating the feces of drug users. Just a fact. It serves them right.
+
+[00:21:56] I read in the New York Times that 2008 was the first time in 30 years than more people died from poisoning than from car crashes. Oh. Wow. Oh, I see. I found a fact online which I really like, which is that Jack Bauer has killed more people than sharks.
+
+[00:22:11] How many sharks has he killed? Well, the aquatic series is coming up next, so we'll see. Other things that are poisonous, daffodils, all the parts of a daffodil plant are poisonous to varying effects. If I ate a daffodil, I'd die? If you had too many of them, yeah. You can, even if you're trapped in a small space with a daffodil, it'll give you headaches.
+
+[00:22:29] If you're stuck in a lift and the only other passenger is a daffodil I would like to think that after the guy eating our steak It was like, and for our next act It's a man in a box with a daffodil David Blame will be with this daffodil in a cupboard for 90 days Does that mean if you're going to hospital And you're bringing flowers to someone Don't bring daffodels
+
+[00:22:50] You're not meant to have flowers at night They put them out of the wards Why? Do they go off pollen or there's some of the air Well they'll take oxygen out of the air And release cabin outside People in hospitals need their oxygen Yeah, but not.
+
+[00:23:00] They do. They take all hot flowers out of hot words at night. No, I'm not saying they don't take flowers out of wards. I'm just saying I think the amount of oxygen a daffodil can deal with in a night is not going to asphyxiation of anybody. Andy, you think you're so hard. You can sit in a room with a daffodil. He's not afraid. He'll do it.
+
+[00:23:14] I've seen him do it. Get me one now. Get me one right now. We're going to put Andy in a room with a daffodil for the next week. And if he's not on next week's podcast, you know what's happened. All right. It's time for our final fact of the episode. And that, of course, is Andrew Hunter Murray.
+
+[00:23:31] My fact this week is that shouting at drivers improves their driving. That doesn't really work in my experience. Yeah, this is under certain circumstances, I should clarify. If you're listening to this in the car, don't bellow at the driver. This was a study in Kenya. They have a lot of buses. They're called Matatus. And the initiative was basically to put stickers in buses with appalling images of accidents and things like that.
+
+[00:23:57] because they have so many traffic accidents and so many deaths. Right. And the idea was to get passengers on the buses to stand up and speak up against these reckless drivers who caused a lot of accidents. And they said, look, if the driver's driving badly, look at all these horrible accident photos, like on a packet of cigarettes, and speak up. And everyone just started shouting at the drivers on these randomly... Slow down! Yeah! You maniac!
+
+[00:24:20] And they found that my tattoos with these stickers are about half as likely to get into accidents. But... There is a... Yeah, there's an effect. I can't remember when it's cold. There was a factory, and they wanted to see if they could improve the output. And they did loads of different things to these people. Everything they tried, the output would go up.
+
+[00:24:38] No matter what they tried, they would make the lights a bit brighter, it would work. They would make the lights darker, it would work. They would try everything. It would always work. And just by the fact that you're being tested or you're being studied, it makes people try harder because they know someone's watching. But I do think this did generally. Yeah, no.
+
+[00:24:53] It's a really good fact. So I have a news article about shouting, just to say, slip in. A dog walker sparked a major search and rescue operation by calling out for her pet named Yelp. And basically, people had heard her shouting Yelp, Yelp, and thought she was shouting help, help. And there was a massive operation to try and find this woman who's calling for help. Brilliant. People were kind. There was like an open shaft nearby and people thought their voice was coming from the shaft. Yeah. Spike Milligan was put a lost dog. ad in the newspaper
+
+[00:25:29] in the ad just read, Here, boy. That's great. Was there one of the QI panelists who said that they had a dog called Mingus? Oh, it's Ross Noble. It's his granddad's dog, I think.
+
+[00:25:42] Oh, yeah. But, yeah, so his dog was named Mingus. I can't do the accent, but Ross said, and the problem with this dog was that he had the same accent as Ross, so he goes to the park and he's saying, Mingers, Mingers, and all the local girls are like, who are you calling?
+
+[00:25:54] I read earlier that there was an ancient Greek, belief that Basil would grow better if you shouted curses at it while you were planting it. I haven't properly checked this out, but I like the sound of it. Maybe it's because the bees would come and pollinate it. Yeah, maybe they would come to the swearing. It's an ancient secret that we've on earth. The effect where, you know, when you're at a party or something and everyone's talking loud, so you talk a bit louder and then eventually everyone's talking really loud, that is a scientifically observed effect called the Lombard effect. Oh yeah. And it doesn't just happen in people. It happens in animals too. Zebra finches, quails, hummingbirds,
+
+[00:26:24] marmasettes, beluga whales, orcas, manatees. That sounds like a great party. Yeah. Well, they've discovered that there's a certain type of bird that sings louder now in the city. Just back to urban animals. Yeah, yeah, because it's just the city noises and I can't remember what it's called.
+
+[00:26:40] I'm pretty sure Nightingales sing louder in the cities, but I don't think that's what you're talking. I want to know if there's a word for that effect when you say something awkward because it's loud and the music cuts out and then he hears you shout. We should call it the Ann Miller effect. Maybe not. There's not a good one. I want something good named after me. Okay, who's not here? We should call it the Anna Chisinski effect.
+
+[00:27:01] I like, just with this original fact of the idea of being shouted out when you're driving a bus. I read this great story years ago, which this has reminded me of, there was a bridge in China, which famously people would jump off and try and commit suicide. But if the police got there in time, they would block off the bridge and they would have, they'd try to negotiate the guy off the bridge. And this one time They were stuck for like two hours While this guy was on the edge of the bridge
+
+[00:27:28] Threatening to kill himself And this retired soldier was just so sick of the police Not being able to negotiate with this guy He just decided I'm going to do something about this He got out of his car He went past the police They couldn't stop him And he went up to the guy
+
+[00:27:43] And he put his hand out to shake his hand They shook hands And then he pushed him off the bridge What? Yeah Because he was like you're selfish dick You're holding up the traffic You're holding up the traffic.
+
+[00:27:53] Now, fortunately, when he plunged, he landed on a partially inflated big... Bouncy Castle. Bouncy Castle that they make. There was a children's party going on below. You know, when you're committing suicide, they try to learn you down. Yeah, yeah, they always... For a lot of... If you get there in time for a lot of suicide people, like if there's a fire and they'll have a blanket.
+
+[00:28:11] They're like, take off your shoes before you plummet. I have some facts about bad drivers. Okay. I spent some of this afternoon doing a theory test online. Oh, yeah. How'd you get on? I passed. Did you?
+
+[00:28:22] Can you try? I can, yeah. I got the minimum pass mark. But I just love these questions. So here's one. It's a multiple choice. I'll just read out the options. As you approach a Pelican crossing, the lights change to green.
+
+[00:28:34] Elderly people are halfway across. You should. Wait because they will take longer to cross. Yeah, that sounds reasonable. Wave to them to cross as quickly as they can. Or rev your engine to make them hurry. I remember doing these to myself. And they're always retrial things like, read your engine.
+
+[00:28:51] like, wait, you proceed when safe. Yeah. I know. There's another one where, you know, you're at a lunch occasion and you'll have to drive in the evening. Should you drink nothing? Have a hot meal with your alcohol. There was an internet news story a few years ago, and I'm quite sure it's not true. But it was supposedly the Chinese theory test.
+
+[00:29:15] And some of the questions were so ridiculous. One of them was like, you knock someone over. Do you, A, go over? get their intestines and push it back into their body or stuff like that. Or B, ring for help and pull to the side. Yeah, that was it. Well, there's one that's mad which is an accident casualty as an injured arm.
+
+[00:29:34] They can move freely, but it's bleeding. Why should you get them to keep it in a raised position? Is it A, that will help to reduce the bleeding. B, because it will ease the pain. C, it will help them to be seen more easily. Or D, to stop them touching other people. With their blood. That's a real British theory.
+
+[00:29:54] Here's a thing about driving. You can drive fast enough for speed cameras not to get you. If you're driving fast enough on a road. How fast do you have to be going? Only 119 million miles per hour. Top gear. Over to you. Weren't they invented the speed cameras themselves
+
+[00:30:10] to encourage speeding initially? It was a racing driver who invented them to assess how he was doing on the curves and corners. Yeah. I have a fact about car insurance. The very first policy was written by Lloyd. in 1904 and it had never been done before and so there were no guidelines, they were completely started
+
+[00:30:25] from scratch and so all the documents referred to it as a ship navigating on land. Nice. Nice. I like it. I have a fact about that guy Gatso. Oh yeah. He died in 1998 he was caught out by his own cameras all the time and he himself said, I am often caught by my own speed cameras and find hefty finds on my doormat. Even I can't escape
+
+[00:30:45] my own invention because I love speeding. He said all of that. Yeah. Just with the shouting thing, shouting obviously sometimes can just really make you feel good as well. But there was a study that was done, and this did win in Ig Nobel. We've mentioned Ignobeau. One of our previous guests was Mark Abrams, who runs the whole thing.
+
+[00:31:06] An award was given to Richard Stevens and some others at Keel University who confirmed that swearing relieves pain. Yeah, I remember that. Yeah. Yeah, it's called Laluchesia. Yeah. Six percent of drivers will deliberately swerve to kill. animals they see on the road.
+
+[00:31:21] What? Well, that's pretty low. 94% will swerved the same. Yeah, exactly. Yeah, and the way that they worked that out is there was a study done, and they got, like, plastic animals, like a little plastic snake or a plastic scorpion or something, and they would put it on the side of the road where people weren't driving,
+
+[00:31:36] and they would count how many of them swirmed. Oh, you didn't say it was a snake or a scorpion. I thought you were imagining an elk or a puppy or a penguin. I, like with my hedgehog facts. I remember reading about a man, and he would drive around, and if he found roadkill hedgehog, he would take them, make a clay cast of them, then put them back on the road as a permanent marker,
+
+[00:31:54] so people would notice how many deaths they'd be on the roadkill. Wow. Because someone who drives around cooking roadkill and eating it. Maybe they're partners. He's tried loads of stuff. Yeah, he keeps eating this concrete. Harden teeth. I wonder, just thinking about that,
+
+[00:32:08] someone putting a plastic snake on the side of the road, I wonder how many times a day, just even the four of us are being secretly tested by scientists. Like, there's just so many of these experiments going around. What about that Facebook thing? the day? What was that? See, when you log on Facebook, you don't see everything. You see a selection that Facebook chose us to show you.
+
+[00:32:25] And they started skewing it. So you'd see, like, sort of pessimistic updates from your more email friends. And then they'd watch you to see if you then posted a more sad update if they could affect your mood by what they showed you. Wow. It's a fairly uncontroversial finding, I think, that if you see a load of miserable statuses, you'll feel a bit glum. Unless you hate all your friends, which I do.
+
+[00:32:44] You've got the Shalom Friday. Yeah, I was delighted. I posted a lot of cheery status. Great to see Neville's lost his job. At Neville. It is controversial though because they're experimenting on people who haven't given their permission and that's a big no-go. I'm not saying it's not.
+
+[00:33:01] Yeah, but presumably. These snakes on a road isn't. Well, the rubber snake can't give him form of consent for two reasons. For many, many reasons. Sorry, the driver. Okay, we should wrap up. Has anyone got any last minute facts? One last one.
+
+[00:33:19] Yeah, go for it. Which is actually from our first fact book, 127 QI Facts, which is that Schimfloss is a German 24-hour hotline, which allows customers to release pent-progression by swearing at the telephone operators. If you feel things dressed, give them the call. Do you have the number by any chance?
+
+[00:33:33] I don't, but hopefully we can put it on our website. Yeah, we'll put it on our website. 1-800. Ah! Ah! No! Okay, that's it. That's all of our facts.
+
+[00:33:42] Thanks, everyone for listening to this episode and no such thing as a fish. And if you want to talk to any of us about the things that we said on the... this episode. You can reach us all on our Twitter handles. I'm on at Shriverland James at Eggshaped Ann. At Miller underscore M.
+
+[00:33:56] Andy at Andrew Hunter M. We'll be back again next week and we'll see you then. Goodbye. Hi everybody. We've recorded that podcast actually a couple of days ago and since then Andy and Dan have gone to the Edinburgh Festival. So if you find yourself
+
+[00:34:12] in the Edinburgh area you might want to go and watch their shows. They have two each. Andy is doing two improv shows. One is called ostentatious and the other is called Folly Adder. And Dan is doing his first one-hour comedy show called Cockblocks from Outer Space and he will also be producing Museum of Curiosity which is the QI radio show and they'll be doing a live show in Edinburgh as well. So if you're a fan of their voices, why not go along?

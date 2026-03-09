@@ -1,0 +1,229 @@
+# No Such Thing As A Fish - No Such Thing As A Hole In The Bowl
+
+- Episode date: April 19, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-hole-in-the-bowl
+- Slug: no-such-thing-as-a-hole-in-the-bowl
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a Weekly podcast this week coming to you live from Redruth and Shriver. I am sitting here with Anna Chazinski, Andrew Hunter Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that's my fact this week. My fact is, after the author George Elliott died, her family spent 50 years publicly denying that she had a massive right hand. Where to start with the questions.
+
+[00:01:03] Did she? Well, basically, before she was famous, this was in the 1840s, she was talking to a neighbor. She was in her mid-20s, pre-fame, and she stretched out her right hand, and with some pride demonstrated how massive it was. It's like, look how big this is. And it was big, she said, because in her teenage years, she was making butter and cheese on her family's farm. So she was doing all the churning that she needed to do.
+
+[00:01:28] And as a result, she built up this massive hand. So it wasn't even by birth, like she built it herself. And she said that it was so big her hand, comparative to the left hand that she had, that it left her kind of lopsided because the weight of it. Come on. She didn't say that. She did.
+
+[00:01:46] In this anecdote, So this is the problem. It was an anecdote that was said before she was famous. And when she died, 28 months after she died, a biography was released where someone had gone to the local town and so on and had interviewed neighbors. And the neighbor said, yeah, she was this person with a massive hand. It sounds like something that was made up by the neighbor, doesn't it? Well, this is why the family was very furiously denying it. They were saying it was not, she was never a dairy farmer.
+
+[00:02:14] That was more the thing. It wasn't so much the hand. They didn't want her to be thought of. Because it kind of showed that she had a really rural upbringing, didn't it? Yeah, exactly. Well, also, there was a kind of potential rudeness in what she, because... Oh. Well, no, just because dairies were kind of seen as hotbeds of vice.
+
+[00:02:32] Were they? Yeah, because, you know, there are cows and there are udders and there's milk and it's all very sexy. Right, no, right. I did try to find out a bit more about this, but it's quite hard to Google naughty milkmaids and find anything sort of germane. I went into the National Portrait Gallery website and they have a lot of portraits of her and I didn't see a single one
+
+[00:02:56] where she had a massive right hand. Is she always disguising it by wearing one of those big foam fingers from Gladiators? She would have asked them to cover it up though. I think that could be a cover. Like William Gladstone, I think it was William Gladstone and he had a missing finger, didn't he? And portrait artist covered that up his whole life.
+
+[00:03:14] And that was like agreed by the newspapers, wasn't it? All the newspapers agreed that they would never mention it, and the cartoonists agreed that they would never draw about it. It's so weird. Yeah. But he had a dummy finger. Yeah. He wore a fake finger in place of his real finger.
+
+[00:03:27] So maybe she wore a smaller hand. I think you would do it the other way around. You would wear a massive hand on your other one, so they look at the same. So I read a lot about this. I don't know if this is where you saw it, Dan. I saw a review of a book called The Tales of the Flesh and the Age of Decorum by Catherine Hughes. And she wrote about both Gladstone and. about George Elliott. And in this book, she came across George Eliot's glove at the end of one of the
+
+[00:03:53] chapters. And of course, that might tell you what's happened. So she found this glove. It was the right glove. And she looked at it and it was quite big. But of course, the problem was she didn't have the left gloves. And then people have suggested to the author that maybe she threw away the left glove because it was too small for her. We should just quickly say, because George Elliot to me was a name I was kind of familiar with, but not really. She was an author. George Elliot was the pseudonym that she had. Mary Ann was her name. Marianne Evans. And she wrote Middlemarch and a number of books which today are considered by a lot of modern day writers like Mardin Amos and so on to be amongst the greatest books ever written in literature. I think she's
+
+[00:04:40] probably like the greatest novelist ever. She was a genius. Really? And Middlemarch is my favorite book, probably in the world. But it is a shame because she did have people during her life and after it commenting on her appearance. And I know I'm perpetuating that by doing it now, but there were some choice phrases. So she lived this very kind of unusual life for the Victorian era. And she sort of lived in sin with a married man for about 30 years.
+
+[00:05:07] See, you can always tell an ex-milk maid. But people used to be captivated by her, but also weirdly repulsed by her. So Henry James was a huge fan of hers, and he called her magnificently ugly, deliciously hideous. But then said he completely fell in love with her. He said, within her vast ugliness resides a most powerful beauty. And this seemed to be what she did to people.
+
+[00:05:30] It's not prime Tinder chat upline territory, is it? Well, hang on, you've not quite given the full quote there from him. He said all the nice things about how you fall in love with her. And he said, yes, behold me literally in love with the great horse-faced blue stocking. So return to Dick Hadland, right in the final bit of this quote. A lot of people said that, didn't they?
+
+[00:05:51] They said that she was really ugly, but as soon as she spoke, as soon as she engaged you, she suddenly captivated you. So Lucy Clifford, whose novelist, said that she did look like a horse, but it was a strange variety of horse that was full of knowledge.
+
+[00:06:04] What? Wow. It's rude. It's rude. Yeah. She used to take the piss out of herself as well for it. And she sort of ended up with this guy, George Lewis.
+
+[00:06:14] who was also unattractive, I believe. And I think that's why she called herself George Elliot, we assume, is sort of an homage to him. And also there's a weird theory that a biographer came up with just after she died that her surname was also made in homage to him because apparently her surname was... So, L... So his name is George Lewis, starts with L.
+
+[00:06:39] And it's to L I O it. And this biographer theorised that her surname is... is, come on some, L-I-O-E-O-It. It's a stretch, isn't it? It's a big fat stretch. Fortunately, a stress that George Elliott could make with that hand. She was a great writer. I looked at some of the words that she had coined.
+
+[00:07:00] So she was the first person to use the word pop as in pop music. And that was in 1862. She said there was too much pop for the thorough enjoyment of chamber music. She also coined the words, according to the OED, this is, appealingness, beseechingness, closeish, and embrowning. Wow. She less coinages is just putting the word nests after things, isn't it? But she was also the first person to write the words
+
+[00:07:25] Lampshade and Lunchtime. Cool. Lounge time? Yeah. That's a biggie. It is a biggie, isn't it? That's a real one. We should say when she used the word pop, it was in a letter,
+
+[00:07:34] and she was referring to the fact that Beethoven septet had been played. So I think pop was quite different then, wasn't it? So the pseudonym that she used, it was because she wanted to give a word, get away from the fact that people would maybe look down on the novel because it was written by a woman. She was trying to, even though there were a lot of women literature authors at the time, it was not as taboo as it was in the earlier days, but she wanted to get away from that. And so she used George Elliott. But when she released her first stuff and when her first novel, this is 1859, Adam Bede, was published, she did it with the pseudonym and obviously no one knew who it was. So there was a lot of
+
+[00:08:11] questions about who could this be? And a people, like with J.K. Rowling having done Robert Galbraith, they did a lot of searching trying to work out who it was. And they found that the book had a lot of references to a local place called Nun Eaton, which it was such good local knowledge. They thought it must be someone from there. And they pinned it down to a guy called Joseph Liggins, who lived there. And Joseph Liggins, when he first got, not accused, but pushed to say, oh, the author, he was flattered and went, well, I shouldn't really say. And then when it Then when it got really big, he then said, yes, it's me. So he said, yes, I absolutely am.
+
+[00:08:47] So then the publishers of the book, because this guy was living in poverty at the time, he'd had a very rough life, he started the publishers getting all these messages going, why is he so poor? This is a big book. He should be making a lot of money. So then they had to reveal their cards that it was, in fact, Marianne. And she put a hand up and went, it's me. And for miles around, everyone said,
+
+[00:09:08] That's a man's hand if I ever saw one. So it got revealed that he was not the author, and that obviously ruined his life because he was a fantasist, he was claiming something that he wasn't. And he ended up living in a workhouse where he eventually died, and his life just went downhill from there.
+
+[00:09:29] So he died in this place, in this workhouse, and that workhouse is no longer there, but it's been reused as a new building and renamed the George Elliott Hospital. hospital. Oh, gosh. Even in death. Her childhood home is there.
+
+[00:09:43] It's now the Griff House beef eater and Nun Eaton Premier Travel Inn. And I look for ages on the TripAdvisor reviews, and none of them mentioned George earlier. It's quite sad. When she released Adam Beade, I think a lot of reviewers felt quite stupid because a lot of reviewers compared it favorably to women's fiction. The economist, which I know we've all publicly stated we love and we do, but this is a long time ago.
+
+[00:10:07] The Economist compared it very favourably with fiction written by silly women. And another reviewer said it was the work of a brave, manly soul. So everyone thought this is like really definitely written by a man. But actually, interestingly, Charles Dickens was the first person to spot that her books seemed like they were written by a woman. And this is when she released her first book, which was Scenes from a clerical life. And he, he, Dickens, wrote to the publishers saying how much he loved it and how brilliant it was. And he said that definitely originates with a woman, you know,
+
+[00:10:37] this understanding of human nature, this woman's perspective. He said, if they originated with no woman, I believe that no man ever before had the art of making himself mentally so like a woman since the world began. Wow. So he called her out. Give her a big hand.
+
+[00:10:53] How long have you been saving that? Since I sent the fact too recently. She hated lots of other women novelists, though. So the reason maybe that she, or one of the reasons that she might have written under a man's name. We mentioned this very briefly before. She wrote an essay, I think before her first book,
+
+[00:11:13] which was called Silly Novels by Lady Novelists. And she said that women authors wrote stupid plots with pointless characters, and she was clearly determined to do something about that, right now realistically. Although she didn't like some female novelists. She liked the Brontes. She liked other female novelists. Wow.
+
+[00:11:31] Who are good? Well, I'm not sure you proved your credentials there, right? We've got to move on shortlyish. I'm just using an ish that I've just coined there. Megan Fox's thumbs are shaped like toes. What? Just while we're on talented women with weird hands. That's a great fact.
+
+[00:11:50] It's a good fact. I mean, all thumbs are shaped a bit like toes, I guess. Yeah, but hers are really stumpy and small. She's got brachidactyl type D, and most surgeons call it stub thumb. Really? Yeah. And if you'll ever look at pictures of them, and she's not worried about it. she shows them off quite often.
+
+[00:12:05] They're just like about half the size of a normal thumb. I share a birthday with Megan Vox. Oh, good fact. So anyway, so yeah, she has this thing. I'm sorry. Wait, wait, wait, sorry, can we even tell us more? Wow. How did that come about?
+
+[00:12:21] Do you send each other cards? My sons are normal. So who's winning there? Other people with weird hands. Oh, yeah. Oh, okay, yeah. So Rack Maninoff had huge hands. Right.
+
+[00:12:34] Famously, if you ever read about classical music, it's like the first thing that's ever mentioned about him and any article about him is massive handspan. And especially his left hand was particularly huge. So if he had his little finger on a C, then his thumb on his left hand would be able to reach the G of the next octave up. It was so extreme.
+
+[00:12:54] I think what we're all wondering is, when was his birthday? But actually, keyboards, people have found recently that they disadvantage female pianists. So according to a recent study, they disadvantage 87% of female pianists, and they looked at the 12 best pianists in the world, and they all had spans of 8.8 inches or above,
+
+[00:13:19] whereas the average female span is about 7 inches. Wow. So it's really difficult for women to play a lot of the songs. And so they looked at those 12 people, and there were two women on that group, and one had a handspan of 9 inches, and the other one had a handspan of 9.5 inches, which goes to show that it's really difficult
+
+[00:13:37] for women with normal-sized hands together. But it's good that George Elliott's descendants have found work. She could only play the melody. She could never... Just with the family, those 50 years, so, as I say before, it's sort of like,
+
+[00:13:55] were they angry about the idea that she was claimed... They said she had a massive hand, or was it about the fact that she was a dairy farmer? That's a bit blurry. But they made sure that if anyone wanted to do a biography of her, the stipulation was you were not allowed to mention the massive hand or the dairy thing. You just have to actually deny that that was a truth. And so I was thinking about that happens a lot, doesn't it,
+
+[00:14:19] whenever a celebrity is interviewed where they told a PR person says, don't ask the celebrity about this question. Yeah. I found this article by a guy called Jesse Mulligan, who's in New Zealand, and he collected through other journalists things that they've been told not to ask. celebrities. So, for example, when Meatloaf went to Auckland, all people were told not to ask him what he wouldn't do for love is an obvious one, right? When David Ike, the big conspiracy theorist, went to New Zealand, Dom Harvey interviewed him, and he was told, no questions about
+
+[00:14:51] his failed predictions, especially the one where he predicted New Zealand would completely disappear in the late 90s. And then lastly, the killers, the band, were playing the big day out in Australia and the interviewers were told not to ask about Bruce Springsteen religion or beards. And that's because the lead singer is a Mormon. He'd recently grown a bit of a beard and their new album was being compared to Bruce Springsteen. And at the press junket, one of the interviewers asked, who has the best beard, Jesus or Bruce Springsteen? Very good, babe. Okay, it is time for fact number two and that is Andy. My fact is that some grandfather clocks used to use ox testicles for their pulleys.
+
+[00:15:37] Were they still attached to me? That would be silly. No, this is, actually, this got sent to me by a listener, someone called Jenny Wildblood. And it's from a book called Food in England by Dorothy Hartley. And Dorothy Hartley was an incredible woman. She sort of documented all these social customs dating back centuries. And she lived in the 20th century and she died in it. She recorded all these...
+
+[00:16:04] She didn't make it out. Damn it. And so we don't have many places that this fact is written down and it's from her book, Food, in England. And she says that the long testicle cord of a bull, you know, you used to use all of the animal.
+
+[00:16:18] And that cord was used as pulleys in some grandfather clocks because it was strong in texture and it was long. Sorry, can I just ask, is the pulley, the lump at the bottom of the pendulum? You've got the two things hanging down.
+
+[00:16:29] The pendulum, the pulley, you know. The thing that you've been. The long stringy bit that has the blobby bit at the bottom. Thank you. Okay, cool. And it was the blobby bit. No, it's the stringy bit. It's the cord.
+
+[00:16:42] It's a cord. Really? No, in theory, they should have just used the testicle as the bobby bit. Yeah, true. Use it all. Don't waste not want not. There was one other thing it was used for. I tracked down the book.
+
+[00:16:55] And it was also the long testicle cord of the ox was valued by drovers as a lash. so you might as a cattle be lashed by the testicle of your ancestors. By the testicles of your ancestors, sounds like an amazing exclamation. By the testicles of your ancestors. Are you crazy? So, grandfather clocks.
+
+[00:17:23] Let's all start picturing testicles and talk about grandfather clocks, which aren't as old as you might think, or the name isn't. So the name comes from 1876, and it's a song by a guy called, Henry Clay Work. So before grandfather clocks were called that, they were just called something out. They were called floor clocks or they were called long clocks. So I think they had various names.
+
+[00:17:41] But then he wrote this song where he referred to them as grandfather's clock. And it's such a nice song. It's from the perspective of a grandson talking about how his grandfather's clock has been born at the same time as his grandfather. And they've both lived this life together and they're really well bonded. And then when there's grandfather dies, the clock stops working. And then that's, and it was covered by Johnny Cash sometime later. And that's where we got the term.
+
+[00:18:05] I guess you guys know that song, do you? My grandfather's clock. My grandfather's clock. Yeah. I'd never heard it. It's based on an actual clock. On a real life clock in North Yorkshire, it's still there. It's in, I forgot, I'm worried it.
+
+[00:18:18] I think it's near Darlington. And Henry Clay Work was in this hotel, in this restaurant. And he saw this clock and they told him the story of how it had stopped on the day that the guy died. And that's how he wrote the song. He said, by the testicles of my ancestors. What a subject for a song? Historians think that it was a marketing gimmick used by the innkeepers to dress up their inability
+
+[00:18:41] to get the clock repaired. I didn't know that as well as a grandfather clock, you could get a grandmother clock and a granddaughter clock. How cool is that? How is the gender differentiated on clocks? No gender difference, but it's height. Height difference is what it is. They use the vagina of an ox.
+
+[00:19:03] So a grandfather clock is generally agreed to measure at least six foot three in height. So that's a grandfather clock. A grandmother clock is six foot three below. So not six foot three. Sorry, you have to dig a hole six foot three down into the ground. So, yeah, you need to go that way. It's just anything under six foot three is a grandmother clock. No, no, what Andy said is right.
+
+[00:19:32] What's the granddaughter clock then? And daughter clock is exactly six for the three, is that it? Yes, no. It's anything that measures in between three and five feet. So it still needs to be a tall standing clock. Otherwise then it's just a really tall clock, but it doesn't get status as a grand. And you also get the George Elliott clock
+
+[00:19:51] where one of the hands is really big. So clocks have an amazing history, actually. So the first clocks, or some of the first clocks, were water clocks. And the first water clock I could find evidence of, was from ancient Greece, and its whole purpose was to stop people going on too long, in words with their speeches. So what is the water clock?
+
+[00:20:16] So, well, the way it worked in ancient Greece was actually quite different to what came afterwards. But basically, what you had was you had a bowl, imagine a small bowl, and you've got a little hole in the bottom of that bowl. And then you put it in a bigger bowl of water, and then the water gradually goes up through the hole in the bowl, and the time that bowl takes to sink is a certain, you know, a certain passage of time and they would use this to time people's speeches
+
+[00:20:40] in Parliament so if a politician was wangy on too long then you'd be like the bowl's underwater now get off the stage mate and then that was their purpose that's pretty cool that is cool they should put the politician in the bowl of water and just slowly to speak to me
+
+[00:20:55] and I think I'm going to put a woman in like that would be amazing that's a game show I think yeah it's time to play hole in the ball Do you know why we say a clock When if you say it's four o'clock Why we say that rather than just saying it's four
+
+[00:21:13] Because it's not No I don't know why we say that Well it's so this goes back such a long way This goes back to when the So sundials were what we used before Mechanization came into clocks In the West was about the 14th century When mechanical clocks came in
+
+[00:21:29] And in sundials what you had was The day was divided into 12 equal hours and the night was divided into 12 equal hours. And so because the day is longer in summer, then the hours in summer would be much longer than the hours in winter. But with mechanical clocks, all hours are the same length. And so when mechanical clocks came in, then people were sort of living on a half sundial, half mechanical clock basis. And so if you said, what's the time? And someone said it's 12, or 12 is a bad, the worst possible example. That's the only one way it's the same. 12 is the same regardless.
+
+[00:22:07] If you said it's eight, then they say, well, what do you mean? Do you mean eight on the sundial? Or do you mean eight on the mechanical clock? And that's why you say eight o'clock, as an eight on the mechanical clock. Oh, I'm going to start saying it's eight o sundial. Okay, we need to move on. It is time for fact number three, and that is James. Okay, my fact this week is that the first motel was meant to be called a motor hotel,
+
+[00:22:32] but the sign was too small to fit all the letters on. Couldn't you have just written smaller? He could have done, I guess, but he'd already bought the letters and it's all that fitted on that. And also below a certain font size, it's not a useful sign anymore. You're right.
+
+[00:22:48] It's so right. It generally just becomes a notice. Yep. Yeah. So this is the milestone Motel Inn, which was open in 1925. It was in San Luis Obispo, which is exactly in between Los Angeles and San Francisco.
+
+[00:23:02] go and people had started using their cars to kind of drive around and that was a very popular journey. But before that, people had to just kind of park into the lay by and kind of camp. But he started this new idea of having a hotel where people could drive up and they could stay there. And so he wanted to call it the milestone motor hotel, but he couldn't fit it on his sign. It sounded really cool. I've seen photos of it. He was very inspired by sort of Spanish houses. So it's this beautiful.
+
+[00:23:30] I mean, if you picture what an American mode. tellers like now, it's the exact opposite. This was luxury. It looked stunning. It had enough rooms for 160 people to stay there. It had showers, central heating. It even had rooms for people's chauffeurs to sleep in. Like that's how much of an upper class idea it was for him. And unfortunately, I think I'm right in saying he was unable to sort of trademark the idea. So as soon as he did it, everyone leaped in and opened their own. And his idea of franchising it was out the window. That's right. He was called Arthur Heineman. Ah, nice. Is it, and we should say, because everyone's always wondered, what's the difference
+
+[00:24:09] between a hotel and a motel? And I think this is right. A motel basically means you can park up next to your room and go into it, right? And it's all kind of, the motel is in sort of a sea shape usually and it's just all on one floor and you just walk straight into a bedroom. But there's no rules. So you can have a motel that's a hotel or a hotel that's a motel. Yeah. but they had a bad reputation and even before Psycho so imagine what that did for them but the in the so from then in 1940
+
+[00:24:39] Jay Edgar Hoover who was director of the FBI said that most motels were dens of vice and hideouts for criminals and they had this reputation for what was called the hot pillow trade which basically means the shed loads of guests stay there in the space of 24 hours and not because they're really busy so there was a study done which found that about 16 guests per night was staying at one motel because it was a place that you would go with your mistress or your master
+
+[00:25:05] and you have a quick shag you book it for an hour and then you go again and then you leave and a 1935 study which was done by a Texas university found that 75% of motel visits were one man and one woman remaining for a very short stay and they also found that they in one Motel, 102 out of 109 guests signed in under fake names. Wow. Whoa. They were dodgy joints. There's one really dodgy one, which is in Nevada.
+
+[00:25:36] It's called the Clown Motel. And wherever you look, there are clowns looking at you. Oh, my gosh. Basically, every wall, there's a clown looking at you. But it's all right. You can kind of just nip out of the back if you want. But unfortunately, if you do that, you go to the historic miners cemetery where they have hundreds of corpses.
+
+[00:25:54] from people who died in the plague. Yeah. Oh, God. Below ground. Below ground. That's the weird thing. I read up on that as well. They describe it as an abandoned cemetery.
+
+[00:26:04] And I don't know how you abandoned a cemetery. Right. We're going, everyone. Is your last chance for the bus? All right. I'm rather like this. In 2017, there was a man in India who was arrested for stealing more than 120 televisions
+
+[00:26:21] from budget hotels across the country in an incredible four-month crime spree. That was one a day. And his motorcycle brandy was brilliant. He would check in carrying, as the report said, a fairly large suitcase. And if the TV in his room was really big, he would go off to the shops for a bit and come back with a really big suitcase. Wow. And he would just leave with that.
+
+[00:26:41] He was caught. He was caught, yeah. I'm amazed it took that long. I know. I found the worst hotel in the world. Oh, great. Well, there are theories, obviously, because there's not an official title. but one that gets quoted as the worst hotel in the world
+
+[00:26:54] is the Grand Hotel in Pristina, which is the capital in Kosovo, and it has truly atrocious reviews. It's very, very, very bad. And when he was asked about it last year, the actual president of Kosovo said, I don't think it is the worst hotel in the world, but that is because the world is very big.
+
+[00:27:16] There's one more called Hans Brinker, which is in Amsterdam, but they make a very, virtue of how bad it is, they kind of advertise it. They say, unfortunately, most of the reviews are really true. The hotel website, actual website for the hotel, says it's comparable to a minimum security prison. And they also advertise themselves as being environmentally friendly because the curtains double up as towels. Okay, it is time for our final fact of the show, and that is Chisinski. My fact is that a man found guilty of deer poaching has been sentenced to a year in
+
+[00:27:54] prison and been ordered to watch Bambi once a month during that year. This is great. So this was actually at the end of last year and it was in Missouri and a judge sentenced a man called David Berry Jr. And he had been done for poaching. Poaching was, it was like a family thing like his dad was doing, his brother was doing it, I think. And the judge said, look, you've killed hundreds of deer. So I want you to watch Bambi and see what that deer might felt like. And apparently the prosecution said that the judge is hoping there will be some kind of
+
+[00:28:30] emotional reaction. And weirdly, the guy who worked for the prosecution was called Don Trotter. So it felt like he was in the deer faction. I think if he's killed hundreds of deer as he has, I think he might be able to cope with Bambi without cracking.
+
+[00:28:46] I'm not sure who'll mend his ways because of the Bambi. I think it's a good idea, but... No, well, there might be something to the idea. So the person who played young Bambi in Bambi, he was the voice of Bambi, he became a U.S. Marine. So he had to take lives, unfortunately, as part of his career. But he said that experience of seeing what had happened in Bambi's story meant that he never could bring himself to kill an animal.
+
+[00:29:11] So maybe it does affect. Just killed. Shill loads of humans. Yeah. But the one problem is that according to Sheriff Brad DeLay, who is in charge of the Lawrence County Jail, where they sent this guy. they only have one cinema so whenever they put it on
+
+[00:29:27] they have to get everyone else out of the room and no one else is allowed to watch anything and this guy just has to watch Bambi that's amazing do they just run free or no it's like the recreation room where you got a TV screen they just go to the part of the prison
+
+[00:29:39] okay okay they don't go well the cinema's out of use why don't you just have a run around the town it's all right just come back in an hour an hour or two it'll be all right
+
+[00:29:50] he is amazing this actor who played Bamb Donnie Dunnigan. He was five years old when he got the role, you know, because that's what the role called for. But he had been in a few movies already, but his agent at the time hated the sound of the film.
+
+[00:30:07] And he said, I've got a much bigger role for you in a Western, so I think you should take that and not become Bambi. And Donnie Dunnigan heard this agent talking to his mum on the phone, and he was quite rude to his mum on the phone, and so he fired his agent at the age of five. And Variety ran a story saying,
+
+[00:30:24] five-year-old actor fires his manager. Which is pretty cool. You can't see Bambi doing that. But he did say he had this amazing moment and this kind of depends on you having seen Bambi, which I learned to my horror that James and Dan haven't. Presumably you have. I have.
+
+[00:30:39] Okay, good. He fought in Vietnam, Donnie Dundigan, much later on, obviously. And do you remember the scene in Bambi where it's quite near the end and Bambi gets shot and he collapses and you think Bambi's in real trouble here? And then his father, the big scary deal, Sorry, this is a huge spoiler, by the way, guys.
+
+[00:30:55] But the big scary deer comes up over him and suddenly says, you have to get up, looks down at him and says, you know, Bambi, come on, you have to get up. By the testicles of your ancestors, you must get up. It's a very haunting and moving scene. But we all remember it. Yes, he says that verbatim. And anyway,
+
+[00:31:24] Dunnigan, four in Vietnam, and a grenade went off, and bizarrely he was knocked to the ground, and he got a bullet to the leg, exactly like Bambi did in the film, got a bullet to the leg, collapsed, and his sergeant, he woke up to find his sergeant standing over him, saying, sir, you must get up, you have to get up, and they got up. Isn't that amazing? That's crazy. He was shot in a lot of places. He was asked to enumerate it, and he said he was shot in the back of the head, the stomach,
+
+[00:31:50] the left leg, the left lung, the scrotum. he was yeah but he didn't tell anyone else in the US Marines that he was the voice of Bambi because he knew he would have been bullied you're going to say he didn't tell anybody was shot fine it's all good but your testicles appear to be bleeding I just dated them to a clock so Bambi is based on a book not many people know it's called Bambi A Life in the Woods and it's by Felix Sulton and it's very different to the movie so in chapter 12 Bambi has sex with his cousin.
+
+[00:32:25] What? And that's only in the director's cut of the movie, isn't it? In Chapter 12, he has a restless desire. He no longer recognizes his cousin Phelene. She's now a sex object, and he has his merry way with Phelene all night. And he's so turned on and he forgets to eat.
+
+[00:32:44] And then a little bit later, Bambi's father gives him some drugs. What? What? And he says, it tasted terribly bitter and smelt sickeningly, and after many days, in an opium-like days, he heals.
+
+[00:32:58] No. I'm afraid so. What? We should say in Bambi, he does get with his cousin. I don't know, I haven't seen it. Phelene in the film is his cousin, and you don't see a graphic sex scene in the edited version.
+
+[00:33:11] I'd love to see Felix being sat down by Walt Disney going, we love it, we love it, we're so excited to abort it. We've got a few changes we'd like to make. You know the drug scene? I think that's going to go down well with the six-year-olds. In the same year as he wrote Bambi, Felix Salton, Felix Salton, he wrote a book called The Hound of Florence, which is about a man who turns into a dog every other day. It was like they could have done something out of that.
+
+[00:33:39] That sounds quite good. Yeah. Yeah. Well, he wrote also another very famous book, didn't he, which was actually an adult erotica book. Really? Did he? Yeah. It was called.
+
+[00:33:50] Josephine Mutsenbacher, the story of a Viennese whore as told by herself. And it appeared 20 years before his Bambi book. But you obviously can see related themes according to how the original novel went. But yeah, it's still today. It sold three million copies. It was a very big book. What? That's huge.
+
+[00:34:10] I'm just picturing some sort of catastrophic mixup with the two scripts of the films. Actually, weirdly, just quickly, the actor Donnie Dundigan, who played Bavis, Bambi met Thumpur for the first time when he was in his 80s. So they never met. The kids just went in to film the scenes. And then obviously the Thumper kid went in afterwards. And then they met a few years ago when they were both really old men. They guessed it on a TV show.
+
+[00:34:33] And Bambi got to be like, hey, Thumper. That's very sweet. So sweet. There's a character in it that Bambi refers to as man. Is that right? Yeah. Well, it's man. It's man. Yeah.
+
+[00:34:43] So that was a code that got used in the Disney offices. Anytime Walt Disney arrived, all the animators and everyone. would go, man is in the forest. That was the code to let everyone know look like you're busy. Really? And man got voted the number 20 villain in the American Film Institute's
+
+[00:35:01] top 100 villains of all time. Did he? Just man. And also, Bambi was voted the 20th most scary horror film of all time. That was according to Time magazine. Wow.
+
+[00:35:15] They did study a dead deer when they were making the film. Did they? Yeah, the animators, wanted to see exactly how a deer would move and how it fit together. So they observed a deer corpse in various stages of decomposition over several evenings to see the muscles and tendons and how they all fit together.
+
+[00:35:31] I know. They said there was a rich aroma in the air. That was. But actually, according to scientists, if Bambi's mother had died, then really they should have just shot Bambi as well. Because actually, young deer, when they're oftened, they tend to have very bad lives because their antlers don't work properly. and they're very likely to be killed.
+
+[00:35:51] So the humane thing if a deer gets off is I've lost to the audience, I must say. Wait, their antlers don't work properly. Yeah, it's weird. They don't grow properly. They grow much slower, which means then they're less able to defend themselves. Wow.
+
+[00:36:09] We should do a series of no such thing as a fish, factually accurate movies. Tonight, Bambi, four minutes long. Well, here's another thing, then. In 2017, scientists discovered the first instance of a deer eating human remains. We put that in there? Oh, yeah. Yeah, they found this deer in the middle of the forest,
+
+[00:36:32] and it was holding a human bone in its mouth like a cigar. Where did it get the bone? There had been someone who had died, unfortunately. It hadn't killed someone. No, no. Because they do eat meat. I couldn't believe this. I was reading a blog by someone in America.
+
+[00:36:49] who's been hunting white-tail deer in the US and says that they can eat meat and they fish. So first of all, they eat birds. Sometimes they'll catch a bird in their mouth and eat it. And then they go fishing, she said. They don't go fishing. They go fishing. They get a rod.
+
+[00:37:09] And a tackle button. And a worm. No, this is what she said. They use their hooves to disable fish such as trout. They will then grab the fish with their mouths, chew it up and swallow it. I think if you, as a trout, if you can be caught by a deer, you deserve it. You've failed as a trout, tell you?
+
+[00:37:29] You've got cocky. You got too cocky. We're going to have to wrap up very shortly. It is quite common in America or relatively common where they give these kind of weird punishments, don't they? There's a particular judge called Michael Sitchione, who is from Painesville, Ohio. Painesville. This is a great name. but over the time there was a guy who was caught with a loaded gun
+
+[00:37:51] and he was ordered to the local morgue to look at corpses there was a guy who had referred to a police officer as a pig and he was ordered to stand beside a live pig with a sign that read this is not a police officer that's clever imagine if that police officer got involved in like a major crisis where he got involved like there was a car chase and this guy with this massive sign
+
+[00:38:14] is next to him for the whole thing that's a good funny call He was next to a pig, not a police officer. He wasn't... So imagine the pig suddenly gets involved in like this insane... No, that's a Disney movie I want to see. Oh my God. I still think it's a good idea.
+
+[00:38:32] It doesn't always work that thing. Because in 2008, I think it was the same judge. The 24-year-old had been blasting really loud music in his car. And he was said, you can either pay this huge fine, or you can have a very tiny fine, but you have to listen to 20 hours of classical music to sort of show you that listening to music you don't like is not fun and you shouldn't play it for other people.
+
+[00:38:52] And the guy said, okay, I'll take the 20 hours of classical music and he lasted 15 minutes. And then said, I'm just going to pay the fine, actually. Wow. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us
+
+[00:39:10] about the things that we have said over the course of this podcast, we can be reached on our Twitter accounts. I'm on at Shreiberland, Andy. At Andrew Hunter M. James. At James Harkin. And Shazinsky. You can email podcast at QI.com. Yep. You can go to our group account, which is at no such thing. Or you can go to our website, no such thing as a fish.com. We have everything up there. We have links to our upcoming tour dates. We have merchandise. We have all of our previous episodes.
+
+[00:39:34] Thank you so much, guys. We'll see you again. Goodbye.

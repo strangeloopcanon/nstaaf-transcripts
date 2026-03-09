@@ -1,0 +1,345 @@
+# No Such Thing As A Fish - No Such Thing As A Giant Otter In H&M
+
+- Episode date: March 30, 2023
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-giant-otter-in-hm
+- Slug: no-such-thing-as-a-giant-otter-in-hm
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to another episode of No Such Thing as a Fish. I'm quickly here to introduce you to our special guest this week, and that is Athena Kabilenu. Now, you'll remember Athena. She's been on that fish a couple of times, but one interesting new thing to say about her is she has a new podcast. Her podcast is called, Why Does My Child Hate Me? It's absolutely amazing.
+
+[00:00:22] I think she got the name from reading my mind at 6.30 this morning. But it's a brilliant podcast. It's all about how we as parents. are absolutely amazing and it is the children who are wrong. It's so good and you should definitely check that out. If you want to hear any more from Athena, you can get her on social media on Twitter and Instagram. Both of those places she can be found at Athena K-K-B-L-N-U.
+
+[00:00:45] And just so you know how to spell her surname, it's K-U-G-B-L-E-N-U. Not much more to say except we do have a live show coming up. It's at the British Library. That's sold out, but you can get streaming tickets. So if you want to know more about that, go to notice things of fish.com and that's also the place to go if you want to learn about clubfish,
+
+[00:01:04] a place where you get ad-free episodes, loads of extra bonus stuff, and also you get to hear about the live shows first. For instance, the British Library show almost sold out from just the people who listened to Clubfish. There was only a few tickets left for those who heard about it on the Friday. So it's definitely a good place to go if you want to hear all of our news first. Anyway, I really hope you enjoy this week's show. I hope all is good with you.
+
+[00:01:27] Enjoy our facts with Athena and on with the podcast. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I'm sitting here with Andrew Hunter Murray, James Harkin and Athena Kabanu, and once again we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, and that is, is Athena. My fact this week is 15 million clothing items are dumped in Ghana every week. Like someone's come to your house with a cheap bottle of wine they're re-gifting. Here you go. And you've got to re-gift it. And then they re-gift it. And there's a bottle of wine floating around
+
+[00:02:31] the world being re-gifted over and over again because it's vinegoury two-pound rubbish. And it's clothing. It's a good analogy. And it's a good job Anna isn't here because that's the kind of wine she loves. She'd be like, I would drink that wine. But yeah, I mean, it's absolutely huge. It's not a huge amount. And they have huge sort of piles of it next to. There's one river in Accra.
+
+[00:02:52] So it's like literally mountains of clothing. Yeah, yeah, yeah. Yeah, and we've got a massive market where it's traded. Most of it's traded. Most of it's given away. But we don't want it. Like, no one, like, just to be clear, this is unwanted. We want a little bit of it.
+
+[00:03:06] Just the good stuff, really. Yeah, secondhand stuff is great. But it's stuff that we've inevitably bought from. fast fashion suppliers for very low amount for some money. We've worn it once. We've thrown it away. We've gone into our wardroes and we've gone, I don't want all these clothes.
+
+[00:03:21] It's wasteful in my wardrobe. Let me take it to a charity shop, right? Guess what? A charity shop doesn't even want all your clothes. And then it ends up from a charity shop into the back of a shipping container. And it gets shipped off to a country and one of those countries is Ghana.
+
+[00:03:31] Yeah. Wow. Up until you mentioning this fact, fast fashion, I'd actually not heard that term before and looking into it, wow. What a mad thing. we're all involved in if you buy from high street shops. Back in the day, you used to maybe buy four shirts, and that would last you for months on end, but now it's almost like six shirts
+
+[00:03:51] a week for some people, if they go out and want, for younger kids, supposedly, from surveys, a lot of kids want to be seen in different shirts on their Instagram. They don't want to be seen in the same thing. So socially, you are doing a turnaround of shirts that you might only wear once and then chuck away or give back to the shops who then don't resell them. The stuff that goes to Ghana, I think like you say they kind of resell it and reuse it and stuff but 40% of it is such low quality that it just goes straight into landfill and you can't really truck it out of Ghana at that stage so it gets dubbed in Ghana yeah and don't forget there's not a huge amount of infrastructure in terms of like wasting recycling it's not like they can separate it into
+
+[00:04:28] polyesters cottons repurpose it like it's if you want to take rubbish anywhere I swear to gargan is the last place you want to take it to be used in a in a useful way just on your point about how much do we buy in the UK. We buy two tons of clothing every minute. Every minute, that can't be right. Maybe. I got it off the Oxfam website. Wow. I found that we throw away 75 pounds of clothes every year per person. That's weight. That's about the weight of a male giant otter. That does bring it home back. Oh, Otters that big? They're huge. They're big. Yeah, yeah. There's the there's the logo for the campaign against wasteful clothing.
+
+[00:05:11] But it may not seem a lot, but obviously there's 60 odd million people in the UK. Imagine 60 odd million giant otters. Again, James, I do think you've picked one of the worst and least known animals. As in, if people's reaction to that factor is, are they giant otters? That is a problem with the campaign.
+
+[00:05:27] Yeah, you're right. Because then you're immediately talking about the otter, you're not talking about the clothes. And also, do we need to be worried about them? Because, like, you know, they sound kind of aggressive. Yeah. Well, you need to worry about yourself if you're in a room with one. You know, they're six feet long. And if you're in a room with one, it's not in its natural habitat, which is the Amazon base.
+
+[00:05:46] They're Brazilian, aren't they? The giant otter. It's happened. It's happened. We forgot about clothing. We're in the world of otto. It's because the world of fast fashion is so, once you look at the stats, it's so upsetting that if, you know, James comes along with his brilliant campaign and poster, you immediately want to think about the otter because. I would think maybe we can get you a costume, Andy. An otter costume. A otter costume is send you into H&M and fuck things up. I love that. Be like Christ turning over the tables in the temple.
+
+[00:06:14] Yeah, was he in an otter costume. He was never mentioned. Well, three of the scriptures don't mention it, but John is always a bit more out there. He says, and Christ was at the law was dressed. That could be the new saying instead of a bull in a china shop. It's an otter in a Zara High Street shop. No, but you're right.
+
+[00:06:28] The numbers are kind of heinous. And I didn't realize how did it happen in the first place, as in the way that lots of, big high street brands moved from having a few collections of clothes a year to now having new collections maybe every couple of weeks. And there's a firm called Shine who I think if you know about fashion, you will know about them, but if you don't, you won't. And they're an enormous Chinese firm who stock almost all their clothes, 94% of their clothes are stock for 90 days or less. So they basically turn out thousands and thousands and thousands of designs, but they only make
+
+[00:07:01] about 50 or 100 of each one. But in the first form of months of last year, they added 315,000 different styles to their website. It's a clever idea in a way. I mean, it's terrible for the world. But the idea is that one, you don't have lots of waste. They don't have lots of waste in their company because... Because you're only making 50 of this. Yeah, you're only making 50 of them. You're probably going to sell all 50, but also you're creating fake scarcity, which means that people, if you see someone wearing it on TV, you're like, well, there might be only 50 in my local shop, so I'm going to have to get there fast and get one. At which point they'll make another 200,000, yeah. But 300,000 different pieces of clothing, in different designs in four
+
+[00:07:40] months. That's crazy. And this is all the fault of one man. One still alive, possibly very litigious man. Is it? Well, he might be. I'm about to slag of off. Let's name some names. His name is Amansio Ortega, and he is the founder of Zara. The high street shops, that are global. When he invented Zara, the idea was he wanted fashion to be able to mimic fashion that was being seen in the catwalks, at a much quicker rate. There used to be such a long period before anything even resembling what we're seeing on the catwalks would appear in shops. And he thought, what if we just quickly make them, the turnaround?
+
+[00:08:14] We have no name designers. They were all anonymous. They worked for us in the back rooms. And let's get it out within a five-week period. That will make us big. And then let's just make a few of them. We just constantly create demand for new items. And this caught on around the world.
+
+[00:08:29] So it's this one guy who at one point became the richest man in the world took over Bill Gates for like a brief second. So he went from poverty to richest man in the world of this idea of fast fashion. One guy and one woman as well, Rosalia Mirra, who's his wife, who did a lot of the work as well.
+
+[00:08:47] Because they kind of got together, didn't they? She was working in a clove shop. He was a messenger boy and they kind of... Can I make it any more obvious? But yeah, Ortega, he's a really interesting guy, I think, because some of it sounds quite sweet. like he grew up he was the son of a railway worker who would move around the whole of Spain working wherever there were jobs he was really poor as a child he had only potatoes for some
+
+[00:09:14] of his meals and he's very reclusive he doesn't have a computer he does all of his work like in small groups and just kind of tells people what to do and really doesn't write much down and stuff but then on the other hand he's a billionaire yeah we've made a great new enemy on this show you're welcome guys so it was in this tiny town and he wanted to call the company zorba initially but there was a restaurant that was selling beers and so on down the road and greek food it's more of a greek than a spanish name isn't it um maybe zorba the greek but that's what they were naming it after but there happened to be two places that wanted to do it in the very same street and so the restaurant said can you not do that please
+
+[00:09:57] and so he went fine but they had the moulds for Zorber and so they quickly just rearranged it into Zara so I guess they used the A twice out of Zorba I guess that's how that works and threw away the B well they're like waste so it doesn't matter Start as you mean to go on guys Stick it in a bin
+
+[00:10:15] He's very reclusive he's been photographed I think once by the company The company have released one photo of him once In about the year 2000 He is really very very very private But he appears to where only the same items of clothing every day. He wears a pair of trousers, a shirt, and a jacket.
+
+[00:10:34] None of which are sold by Zara. No, exactly. And it's kind of like that thing. You know how all the tech squillionaires, all their children are growing up playing with simple wooden blocks, and they've never seen a computer, and they all go to schools where they don't do any tech stuff. But that also, it makes me also think of,
+
+[00:10:49] do you remember Daniel Radcliffe used to do that after, so when he came out on the West End, at the stage door every night, He used to wear the exact same clothes so that the paparazzi couldn't sell a new photo because that photo could have been taken any night of the run. So that was his strategy. Is that also why he doesn't seem to have aged over the last 30 years?
+
+[00:11:08] He's decided to freeze himself. Right. Yeah, that's why you don't see many photos. Yeah. Okay, I'm just floating his theory. Okay. Because obviously, a lot of fast fashion is driven by high fashion and by red carpets and things like that.
+
+[00:11:20] So if you're only allowed to wear one item of clothing on the red carpet for the rest of your life, that would presumably go a long way to what bit of the way to Are we going to make people Whatever the last thing they wore Like Sam Smith They're going to have to wear that kind of
+
+[00:11:32] Yeah Rubber thing Yeah Whatever a certain date You just freeze And that's your clothes now Yeah like a random bell To just go off on your phone
+
+[00:11:39] Or something Like today's your time And whatever you're wearing That's You know how they gave us alerts When it was COVID We'd get like these text Messing alerts
+
+[00:11:49] And they should be a clothing alert Right this is you now This is your look And it would incentivise those people to always look their best because you might get frozen at any time. Yeah. Yeah. I might not have worn this hoodie with my own podcast.
+
+[00:12:03] But I do think we need to make it slightly less socially acceptable to just I used to have a friend who's wardrobe was just full of clothes with tags on. Right. She was just just shoplifter. Actually. And then like the security tags. Does she have a tag on her ankle as well? Now I think she couldn't.
+
+[00:12:22] She couldn't leave the house office. it's just socially acceptable to just buy stuff. My ex used to work in a clothes shop and the number of times people would come back with an outfit saying, yeah, I haven't worn it because it didn't fit and it would be covered in red wine and vomit. Like, no, no, we haven't worn it, honestly, we haven't worn it. Yeah.
+
+[00:12:43] I know. It's shameless watching the lies of a hungover person. I didn't end up using it. A lot of this, just to go back to it, a lot of this waste is returned items too. So even if you, you return items pristine, they often can't be resold. Because the minute you open the packaging, well, it's not something they can really sell again. So we and our brains think, oh, I'll try it on,
+
+[00:13:03] I'll send it back and it'll be okay. It's not okay. Most of that does get dumped as well. Yes, exactly. And that's the big problem that no one realizes. So it's exactly that. It is literally online ordering. You tried on, no, it's the wrong sides. That is now going into waste. They won't reuse that. It's remarkable as well. I was reading about how Zara defines how they can make the fast fashion, because it's not just looking at the bigger world of fashion, high-end fashion, like catwalks and so on. Basically, the staff, and this is from an article that was about 2012, so I'm talking for, you know, this could have changed since then, but the way they do it is staff have to monitor by listening carefully to what people are making
+
+[00:13:41] little comments about, I hate having those zips on the ankles, I wish they would put them up here, and if they would collate this stuff and all report back, did you hear anyone else say that? Yeah, I heard them say that. They report that back to head office and then they just start designing clothes according to literally customer feedback within the shop because they come up with so many different designs. And then what they do at the big Zara warehouse, which is like an air hanger, a New York Times journalist went to visit it. You would see people talking to the Zaras of the world going red pants. Are they wearing red pants? Okay, we're getting reports of red pants here. Great. We're in red pant business now and they would make pants being trousers, sorry.
+
+[00:14:15] Is that for English men over a certain age in the countryside? Going to the Henley regatta. 14-year-old girls in China, 60-year-old men at Henley. Zara have really been cracking the regatta market. So if I go into Azawa and be like, God, I'd love a panda costume. Yeah.
+
+[00:14:33] And if we all did it. If we all did it. Sorry, we're getting a giant river otter costume. It's pretty clear. Okay, it is time for fact number two, and that is Andy. My fact is that Ford has just got a patent for a car which can repossess itself
+
+[00:14:54] if the owner falls behind with payments. This is... This is quite a dystopian episode, isn't it? Yeah, it is. Yeah, yeah, absolutely. This is just a patent at the moment. Yeah. It may never be billed,
+
+[00:15:09] but it has been granted, as in they applied for it a couple of years ago and it's just been granted this year. Yeah. So here's the plan, right? You've got your Ford. Yeah. You think you're safe.
+
+[00:15:18] You've got it on a payment agreement. Payment agreement. You're doing okay, but then you miss a... a couple of payments. You miss a couple of payments, something happens, and they write to you and you don't acknowledge it. Maybe you miss the message, whatever, right? But anyway, things steadily get worse for you in your car from this point onwards. Firstly, they just make the car a bit less pleasant to drive. In that, you know, they might disable the music or the air conditioning, or the GPS. Some of these things sound a little bit dangerous. At this stage, you might just think
+
+[00:15:45] it's a glitch, right? Yeah, like, oh, my aircon's not working. You're doing your regular thing. it's not especially hot, and you don't like music. So fine. So you're all right. But then it'll make an unpleasant beeping sound whenever you get into the car. Okay, well, that's a bit annoying. Sounds like the music I might have been listening to anyway.
+
+[00:16:02] Yeah, your EDM collection is fine. So great. Then it stops you using it at certain days or times, as in the car won't even function outside, let's say, ordinary working hours. So I think the plan is that you can keep going to your job, so you can afford to catch up with your payments eventually, but you can't, I don't know, socialise. And then, as a very last resort,
+
+[00:16:22] it will either drive to a waiting tow truck to be repossessed, like it'll have an assignation without you knowing about it, or if it's worth very little, it'll just drive itself to a scrapyard and say, take me apart. Drive yourself to Ghana. Yeah. No, that'd be good that we want cars. Oh, yeah, that'd be great.
+
+[00:16:39] So this is the plan. That's amazing. It's incredible. Maybe it'll happen. What's crazy is like this, why can't technology be used for good? if we can control what cars are used and when they're used, what can't we do in the world right now, modal shift? We can't get people out of their cars onto trains.
+
+[00:16:54] So why don't we set these new electronic Wi-Fi connected cars to, like, you can be used for 10 hours a week. Run out of 10 hours, it won't work, and you'll have to just go to a field and touch some grass, right? Right, why don't we use this for goods? They can only take you to the park and ride. Right, yeah. But there's got to be a better way to use this technology
+
+[00:17:14] rather than to just like make people destitute. Yeah, absolutely. I got one slightly better way of using the technology, the self-driving technology. So if you've got a really busy road, it's kind of gridlocked almost, and everyone's kind of stop, start, stop, stop, bad for the environment, bad for everything, right?
+
+[00:17:29] You can put 5% more cars onto the road, but if they're all driverless and they're all smart, and they know exactly how fast to go and which lane to be in, they can stop the gridlock. Does that make sense? You know what I mean? Yeah.
+
+[00:17:42] So, like, the cars will join, the real cars and they'll work out how everyone's behaving and they'll move a little bit faster in this lane a little bit slower in this lane and suddenly all of the traffic town will stop like a dance like a synchronized I used to work in highways and traffic modeling is mostly nonsense well it's not nonsense but it's super it's super vulnerable right to change I worked on this one project yeah and they they spent millions modeling this how this new road would work and everyone was great and then there was some crisis and petrol went up like two p and the model that to put in the bin like the most the smallest change in the most random thing to do of driving you've got to put it all in the bin
+
+[00:18:21] and start again it's a really so a lot of policy and a lot of stuff is done based on these models but these models are so quickly yeah but it is true that driver behavior does cause a huge amount of track so like rubbernecking is a really a really good example you're all familiar with people slow down to look at accidents because we're humans love it or stonehenge or so yeah but i do that the A303. Oh yeah. A3. So you guys are so bad at it.
+
+[00:18:47] They want to dig a tunnel underneath it. Like you guys are so just, if you won't stop slowing down, we're going to have to dig underneath it. Every time you're on the A303 and three. Oh, this awful crash must have happened up ahead. And it did happen like 3,000 years ago. I feel like I would drive underneath and go, oh, we're directly underneath. Let's slow down.
+
+[00:19:03] Yeah, yeah. Let's feel. It's censored. Yeah. Funny enough, I worked for the highway agency whilst I was trying to build it. And I'm like, you're never going to get permission to do this guy. It's like a really old. Did they get.
+
+[00:19:12] it in the end? No, it got stuck in the bin. It's really hard to build tunnels because they're really environmentally unfriendly and expensive. Put on top of that a bloody English heritage site. Yeah, yeah. You've got a recipe for wasting your money, which is a real shame. Yeah. Ford in 2020 applied for a patent to match up passengers with
+
+[00:19:29] things like Uber's, you know, ride sharing. Anyway, matching up passengers in the cars by smell. Okay. So you fit a car with sensors and then if that car smells of, I don't know, vomit, and then And you smell a vomit, then you get that one. Is that right? I think if you've unticked the vomit box, you don't want to be in a car smelling a vomit,
+
+[00:19:51] then you won't be paired up. That's clever. So on a Friday night, 11 o'clock, the pubs are kicking out, really hard to get an Uber. You uncheck the vomit thing, and you're the only one who wants to get a vomit taxi. And so there's more taxis available. Yeah, yeah, yeah.
+
+[00:20:06] I think it's more for people with things like airborne nut allergies than people... Come on. The carth that smell of vomit. But I think there will be advantages for everyone. Yeah. Let's say someone's had a peanut in the car. And it would be very dangerous for you if you've got a very, very bad nut allergy to get into that car. So he can sense peanuts.
+
+[00:20:24] Yeah, yeah. I'm trying to think what other smells can be deadly that are important for this patent. Mustard gas. Yes, that's not good. On the smell thing, there's a guy called Henry Cyril Paget. He was the fifth marquess of Bath. and he was really famous because he got an inheritance in 1904, which was equivalent to £30 million per year.
+
+[00:20:50] And after about five or ten years, he'd accumulated debts of about half a million, and that's $60 million in current money because he just spent it on everything. And he modified his car so that his exhaust pipe sprayed perfume. So wherever he went, there would be a nice little smell of like someone's vaping past you or something. Lovely.
+
+[00:21:09] And it's quite selfless Because I mean it's his car Yeah, exactly It's actually a benefit That he will never really feel himself Well, I think what happened was He thought that all the cars at the time Were a bit smelly
+
+[00:21:21] I'm going to do something a bit different I feel like he's a climate change denier And he's like, What climate change? Is she want she? What are you talking about? Yeah This is how profligate he was
+
+[00:21:34] He was once at a theatre And someone had stolen some of his jewellery and so he needed to get it back so he enlisted the help of Arthur Conan Doyle to try and find the jewels and he paid Conan Doyle to try and solve the case brilliant God that's great isn't that great
+
+[00:21:52] I do like people who spend money well and that's a really good way to spend your money not this fast fashion nonsense 5,000 shirts or do you want to hire Luther Conan Doyle will come up with an incredibly elaborate mechanism by which it would have been done He actually, because he was so famous as writing the Sherlock Holmes books, people used to come to him with mysteries and ask him to solve them.
+
+[00:22:15] Yeah. And obviously, they're offering him money and stuff. And he solved a few. He did. And he used two methods, didn't he? One was real detective science. And the other was spiritualism. So he would get seances and he would try and track things down by just the feeling of where it might be.
+
+[00:22:31] And did he keep two columns of success and failure? And like, which method worked better? I think he's got wins on things. Both. Really? Yeah. Yeah, I wonder if that happens today, you know, if, like, Dan Brown has people getting in contact with them about solving.
+
+[00:22:46] I was thinking who you'd get. Ian Rankin. Yeah. Like a crime. P.D. James. Richard Osmond. Richard Osmond. Oh, yeah.
+
+[00:22:53] Your nan goes missing. Richard. Get Richard in. Do you want to hear something, a theory about cup holders? Okay. I was looking into, correct answer. I was looking into who developed all the different. bits of a car and when they came in and you know cup holders came in properly in about the 80s I think
+
+[00:23:13] they've been done since the 50s but they weren't very good if you were driving you couldn't really properly stash a drink in a and drink from it while driving so like the decent ones came in in the 80s just a quick aside the car with the most cup holders is apparently the 2019 Subaru Ascent any guesses 16 oh no like five uh 12 19 oh my god 19 cup holders where the final three that I wasn't thinking of I'm not so okay why do we like cup holders there is a theory
+
+[00:23:43] by a French scholar Well because you can keep your change in them Well yeah That's kind of I've never put a cup in my cup holders And the keys and yeah The car keys if you Yeah yeah absolutely yeah yeah Okay here's a theory from
+
+[00:23:56] This is printed in a Toronto star French born scholar and marketer G clotere Rapai Who argues that warm drinks as we drive Are a replacement for mother's milk He says, what was the key element of safety when you were a child? It was that your mother fed you and there was warm liquid. That's why cup holders are absolutely crucial.
+
+[00:24:19] I fitted my cup holder with a nipple. I felt it very comforting when I tried. Do you remember, I'm sure we must have said this, but there was a theory that in McDonald's, when you're slurping your milkshake, they make it the exact consistency. So the amount that you slurp is the same amount. that you were like you were breast.
+
+[00:24:37] Is that why it's so thick? Wow. So you have to suck as hard as you did? I mean, I don't think it's true. There was a theory about that. Beautiful. Beautiful theory. I mean, I don't like milk at all.
+
+[00:24:49] Anything to do with milk. I don't like. Even if like if you give me a black tea and you use a spoon to stir it that's been in a milky cup, I swear I can taste. I can't stand milk. And I'm wondering now if that just says something about me and my relationship with my mother. This is, well, I, I think it says everything.
+
+[00:25:06] Yeah. If you don't mind me saying. I have the exact opposite. So last night, this is true. You're still on the boob. Last, yeah. I've been wondering for nine years with that one minute.
+
+[00:25:19] The end of every podcast recording. Yeah. I woke up 2 a.m. last night off the back of having a dream about drinking some milk. Got out of bed and I went downstairs and I had a glass of milk. Oh, a full grown man. Yeah, full grown man. A whole glass. of milk.
+
+[00:25:36] Yeah, 2 a.m. Oh, that's unresolved. Off the back of a dream that made me just salivate so much for it. I wonder if your body was craving it for, like you haven't had enough calcium in your diet. And also vitamin D, right? Milk's got vitamin D and it's been very gloomy in the UK recently. Yeah? Yeah.
+
+[00:25:51] You can get vitamin even with other things than milk, which is vile and lucasy. And smells. I would love to have a, quite offensive a glass of milk, no, actually. I think I'm on the downside of the table. Once you think about it. Yeah. What are we talking about? Cars, cars.
+
+[00:26:08] Have you heard of William Sacciti? No. So William Sachiti is a Zimbabwe and born British entrepreneur, and he has invented something called cargo. And this is possibly going to be the future where they're like little dog-sized cars that go around and deliver things to people's houses. And they're autonomous, like, cars. So you order your milk, let's say.
+
+[00:26:33] Dan fancies a glass of milk. And then he puts in his order and then Tesco puts one in a little cargo and it drives it all the way around. He's basically going against the Teslas and the Googles as the big, you know, who's going to be the big person who does this in the future. And this guy, the first thing invented was an intelligent robot librarian. Cool. Who doesn't want one of those who was capable of holding a conversation or taking commands and would tell you where the books are that you want. So you say, oh, you know what? I really like this Richard Osmond book.
+
+[00:27:04] What else would I like? And they were like, oh, well, there's a Richard Cole's book that's just down here. Come and follow me, and it would kind of drive around and take you to the book. I was sort of picturing an anti-Siri where you'd say like, hey, Siri, and you just said, shh. This guy also invented an autonomous penguin that they use at Milton Keynes University Hospital. Cool. And it kind of takes the medicine around to wherever you need it. So if you need certain medicine in a certain ward, this little penguin will drive around and drive around
+
+[00:27:32] and take your medicines. Is it for children's wards? You know what? It's actually for all wards, but I think, you know, it helps that it is good for children as well because you don't want like this evil sort of. Yeah,
+
+[00:27:43] a T-1000. Liquid metal. And the other interesting thing I found about Suciti is that in 2023, he rescued a zebra from Ukraine and he currently keeps it in his garden in Norfolk. Wow. Yeah, sounds like a great guy.
+
+[00:28:00] Using technology for good. Yeah, rather than evil. I like him. I think those cargoes do sound like a very good idea because it's all about taking the sort of emissions out of the last mile of delivery, isn't it? As a that's where a lot of, you know, that's where you can really make efficiencies and, you know, driving vans around all the place. But they are going to need to be quite well defended,
+
+[00:28:19] as in the number of packages that get nicked from doorsteps. They will need to be quite tooled up. What would you say, like a flamethrower or? I'd fit a flamethrower. I'd fit, it would be a sliding scale, like the Ford, like a bit of interference. It just gives you a stern, verbal warning. Do you think that we should get William Sacciti to watch robot wars, perhaps? Yes.
+
+[00:28:39] Little spikes. Okay, it is time for fact number three, and that is James. Okay, my fact this week is that the healthiest way to eat broccoli is to stir fry it. After chopping it into two millimeter pieces and leaving it to stand for an hour and a half. Yeah, we all know that. Is that how you do yours? Yeah, every day. That's what it says in your hello fresh.
+
+[00:29:05] Yes, exactly. Christ, that's a difficult instruction. So this is because they have a compound called sulforaphane. And sulforaphane is really hard to get at. You can get it quite well if you eat it raw. But as soon as you start cooking broccoli, it kind of degenerates and you don't get as much. You still get it, but you don't get quite as much. And there was some Chinese researchers in the Journal of Agricultural Food Chemistry,
+
+[00:29:32] and they tried loads of different ways of cooking broccoli, see which ways gets the most sulfurophane and they found this way, you know, they chopped it into tiny, tiny pieces because actually it's almost a defense for the broccoli. It's trying to stop herbivores from eating it, and so it puts this chemical out to stop like cows from eating it. Nice try, idiot. You're in my kitchen.
+
+[00:29:52] There's no way you're not getting eaten it. Yeah, so like the way to get this out is to kind of macerate it or chop it up or whatever. So that's why you do the small chopping. Right. And then if you leave it for a long time, it helps the sulfurophane to come out. out and then you do a quick stir fry, dish, bash.
+
+[00:30:07] But it's two millimet... I've got to say, it feels a bit like you'll have a kind of mince of broccoli. And I like the crunch of a florette. Do you? I agree. A bit like cauliflower rice, I imagine it would be. Which I hate, yeah. I've got a testimony to do with Sophorophan.
+
+[00:30:23] Oh, yeah. Because a few... I used to have really bad tendinitis in my knees, right? Really bad. And unfortunately, when you're not an athlete, people don't care when your joints hurt. Get over it, Athena. And then at the same time, years ago, became apparent that sophoraphane was good for your joints.
+
+[00:30:39] And I was like, it can't hurt. So I started having kale and broccoli smoothies, right? Because I was like, they were trying to figure out how to extract the sulfurophane into like a tablet. And I was like, I haven't got time to wait for this, you know? So I honestly, after about a few weeks, if not months of eating just loads of broccoli and having loads of broccoli and kale smoothies, I have no word for like, my tender night is cleared up.
+
+[00:31:01] Really? Absolutely. Yeah. This is anecdotal. So it wasn't a scientific study. So I got off the running treadmill and off the pavement and I started cycling and all this kind of stuff. But after a few weeks and months, the tender night is cleared up and I've not had it since. Okay.
+
+[00:31:16] That's really interesting. Would a skeptics say placebo for that, do you think? Well, you know what? Skeptics, right? Skeptics just need to get on board the Athena train. Yeah. And that's my response to all skeptics on anything they say. I get on the other than the train.
+
+[00:31:33] I think Sophorophan definitely does work. Oh no, I'm just wondering the method of the smoothie, whether or not that. Well, it depends if you're having a fair bit. So there are pills these days, which you'll be glad to know, Athena, they completed the process, they made the pills. What a relief. Yeah. In fact, the pills might be even more effective than broccoli and kale smoothies. I don't know how much you were having.
+
+[00:31:53] I mean, it sounds like a fair bit. Honestly, I would buy like three or four florets a week and I'd get through them in either steaming or having my smoothie. Because I was, I was in agony. I couldn't watch a film. I couldn't go to the theatre because every time my knees were bent for more than like a minute, they would just be on fire. So I had, yeah, I would say, and yeah, three or four fluets every week. So a lot, a lot.
+
+[00:32:13] That is a lot. That absolutely is a lot. These pills are equivalent to eating five kilos of broccoli every day. Wow. That's possibly more, yeah. But the other thing is that you can overdo it like with anything, right? And if you have too much sulfurophane, you are supposedly at risk of hyperthyroidism, which will make you tired.
+
+[00:32:33] Right. Yeah. So don't need six kilos of broccoli a day. Yeah, just balanced diet. It's like what we always say. But, yeah, I mean, it's good stuff. My favorite broccoli is cubby broccoli. Oh, come on.
+
+[00:32:47] Already, already. Hang on, though. Hang on, though. There's a really interesting fact about cubby broccoli. Cubby broccoli was the producer of the James Bond movies. The broccoli family still produced them to this day. Cubby broccoli in an interview that he gave in the 1980s to the LA Times made the claim that broccoli, the vegetable, is named after him.
+
+[00:33:10] He's lying. Okay? The broccoli family. So, he says that his father, who is called Giovanni and his brother, Giovanni's brother, they immigrated to Long Island from Calabria at the turn of the 20th century. He says, yeah, in Italy, sorry. He says that that broccoli family were descended from the broccoli of Carrera, who were the first to cross cauliflower and rob to produce the broccoli.
+
+[00:33:40] Therefore, broccoli is named after him, not vice versa when people say, are you named after the vegetable? Pretty good. That sounds very convincing, I have to say. It was an Italian thing. Like, the first farmers to grow broccoli, the modern broccoli that we consider broccoli today, were in the south of Italy. It's definitely a man-made thing.
+
+[00:33:58] Yes, from the cabbage family, but they were bred that way, right? Yeah. And it was invented in Italy, but I think possibly just named because it's Italian for shoots or something. Yeah, that's the etymology, isn't it? And it's the same as brooch. Right. The brooch and broccoli had the same etymological root. Yes.
+
+[00:34:15] So that might be. And I know the Romans had a version of broccoli. Yeah. But I don't think they had our lovely classic green broccoli. Well, one thing they definitely didn't have is tender stem broccoli. Is that what we've got? So tender stem broccoli is what we've got. So Tender Stem broccoli is where it's quite a long stem and then there's little broccoli
+
+[00:34:31] florets on the top and you can eat the whole thing. That's posh broccoli. It's delicious, guys. It's brilliant. But this is one of the most amazing things I've ever found. Tender Stem broccoli was invented about 10 years ago by a committee in Japan and it's a registered trademark. What?
+
+[00:34:49] Isn't it amazing? It used to, they originally they called it Aspiration when they invented it. Oh, because it looks like an asparagus. Exactly. that's how they got it from. And yeah, they just had this session where a load of people at the Sakata Seed Incorporation in Yokohama sat around the table and went,
+
+[00:35:04] you know what we should do? We should make broccoli where you can eat the whole thing. How would we do that? Well, what if we mixed it with Chinese kale? Okay, let's try it. And they tried it. And now they patent the seeds and they sell the seeds around the world. Are you saying actually 10 years?
+
+[00:35:18] About 10 years? In the last 20 years, for sure. But you're saying I couldn't have seen in the millennium with a nice dish of 10 of 10. It would have been close. like it was certainly around it was around that time when they started coming in. I thought I never saw these because they were inexpensive. It's so like, oh, I'm doing well in the world now that I've been introduced to a new broccoli.
+
+[00:35:36] It's utterly bizarre. And they called them aspiration. Yeah. And they tried to sell them like that. And then Debbie Nucci, who is the wife of the company's chief operating officer, she came up with the name Brocolini. And that's what they're called in America. And then it was Marks and Spencer started calling them Tender Stem.
+
+[00:35:54] in the UK. Wow. So let me get this right. You're saying you think that's more amazing than the fact that the James Bond producer gave us. Well, that's not true what you said. The bit that I said is verifiably true. Yours is just a made up. That's a milkshake nipple because he picked Donald's Man. But that's not going to become a thing that my name is now milkshake nickel McDonald's man. It's catchy. And it fits. If the cap fits. If the nipple fits. They love broccoli in Japan, though. Don't they? They like to the point yeah yeah so to the point where kids particularly love it and there's a story which is Pixar you know the movie inside out that they did there's a scene in that where it was a movie about emotions it was a real kind of poignant. They had characters like one of them was sad and one
+
+[00:36:41] of them. Yeah it was all in one person's head. Yes. Yeah exactly and in it there's a scene where they eat broccoli and they go it's yucky or whatever and they swap that they swap that out for the Japanese edition because broccoli is loved by kids there so they put it instead they put it in Instead. Because they don't like milk, do they? I think famously in Japan. That wouldn't go down well in my house. Turn it off.
+
+[00:37:02] It's going to be Cats in Disney Plus. It's done. Green peppers. Green peppers. Yeah, that's what they replaced it. But isn't there like a substance that makes green vegetables taste horrible to kids? Oh, yeah, there is. And it's in Brussels sprouts and things like that.
+
+[00:37:17] It's really bitter, right? Yeah. Yeah. So some people, so it happens lots with children. And I think children have extra. taste buds, but there is a gene, which I have written down, which is called TAS 2R 38, and that lets you taste bitterness, and there's a variant of that gene, and if you get two versions of one particular variant, then your whole life, not just when you're a child, you experience
+
+[00:37:39] all the Brassica family as being unbelievably foul and bitter and horrible. It's really interesting. My wife, when she was pregnant, she craved broccoli and 10 stem, and then after about a month, she couldn't be in the same room as it. But didn't have the heart to tell me because I started making a loads of things with broccoli in it because she was like, oh yeah, I really want broccoli. I'm like, great, I'll make broccoli soup, I'll make broccoli this, broccoli, that. And then she just found it so disgusting.
+
+[00:38:05] She couldn't be near it. Maybe that was the response. Here's your broccoli cake, darling. Happy birthday. You're absolutely right. It's amazing how it can quickly turn. Broccoli everything, yeah. Yeah.
+
+[00:38:18] It could have been more of the comment on my cooking than anything. It's in two-minute pieces, darling. I've made it exactly as they told me to. Oh, this is a cool thing. This is slightly tangential. I hope you don't mind. Please. Okay, great.
+
+[00:38:33] Have you heard of epicuticular wax? No. Right. This is a wax that covers lots of vegetables, right? That is water repellent. And loads and loads of vegetables, including broccoli, have epicoticular. Naturally. Or we add it.
+
+[00:38:46] Yeah, naturally. So the epidermis is the top layer of skin and cuticular, the cuticles. so it's the surface layer and it's to protect the plant from water getting in from outside and all the rubbish that might be in external water it might have bacteria in it might be dangerous there might be moulds all of that
+
+[00:39:04] and this is why you know when you wet kale you know when you go out and wet some kale yeah yeah we all go out of like kale wetting expeditions but you might rinse some kale before cooking it and the water just seems to stick on the surface it's droplets it's droplets it's splashes It makes a mess.
+
+[00:39:21] Water goes everywhere. It literally is like it's alive and it's rejecting the water. Well, it is, and it is. And it's because of epicuticular wax. And it's why when you boil kale, sometimes it leaves like a ring, like a ring or the bathtub. It's like water off a duck's back.
+
+[00:39:38] Water off kale's epicuticular wax. Yeah. Wow. Yeah. And it's super hydrophobic in some plants. That's really clever. It feels like, you know what? Really hydrophobic things.
+
+[00:39:50] We tend to use them as lubricants, like oil and stuff like that, right? It feels like you could use this kale as a lubricant. It's going to struggle to sell in An Summers, I think. The special vegan section of An Summers? Yeah, I think that's a big hit. You're right, you're right. Yeah. I wasn't thinking sexual.
+
+[00:40:08] I was thinking, you know. Oh, please. I said lubricant and sex never care. I just, what? Wow. How did you get there? When James says lubricant, he thinks of complicated theme tool processes. Go back to your milkshake.
+
+[00:40:30] Okay, it is time for our final fact of the show, and that is my fact. My fact this week is that last year on December 23rd, a hospital in Doncaster accidentally sent a text message to thousands of its patients informing them that they had an aggressive terminal disease. What they had meant to send was a message reading, Merry Christmas, and have a happy new year. So, this is... Oh boy. That's awful. A very unfortunate moment.
+
+[00:40:57] And I should say that while obviously it's a, it's in theory a hilarious cock up, this caused chaos. Yeah. This caused horrible, horrible moments for people in Doncaster. And the center of which the text went out from there's about 8,000 people signed there. So this was their mailing list, basically, through text messaging. Some of them had had tests. Some of them had tests.
+
+[00:41:18] Some of them were waiting on results. Some of them were, there was a lady who ran out of her house and she ran around the corner because she was so petrified. and she saw six people in the street all out there as well going, I've just been, so everyone, it was just like a national... You know what it reminds me of?
+
+[00:41:32] Do you remember that Hawaiian... Yeah. The missile. Yeah, everyone got a text message saying there was a nuclear missile coming to Hawaii. Exactly. And everyone believed it for about 15 minutes. It was a long time.
+
+[00:41:41] But I think some people were going to shelters and... The guy who had sent the message had done it before as well. I think it was his second offense. Twice before he'd mistook. But he's like, it's okay. I'm just going to move to Doncaster. We'll ever have this problem again. Witness protection.
+
+[00:41:57] Oh. Yeah, what happened with that was that a call had came in to do a test for a missile launch. And the guy who pressed the button, there's two buttons that you can press, one that says test missile alert and then missile alert. Isn't it like a drop-down menu? Yeah, exactly. And they're next to each other because they're alphabetically so close to each other. But it's not like he picked the wrong thing.
+
+[00:42:15] He picked missile alert because he was overhearing the conversation. And he said what happened was that the guy who had the person on the phone saying, this is a test, this is a test of whatever wording. it was, said that to the phone that was on the ear of the guy receiving it, and then he put it on to speakerphone. So the man who pressed the button didn't hear the, this is a test, just heard the next bit. And was clearly a paranoid guy, so he just pressed the button. So it wasn't only text messages. It was also the TVs. It came on the TV. It came over the radio. You said a paranoid guy, but maybe he was just doing his job. Well, he was doing his job, but he'd done
+
+[00:42:48] it wrong three times in total. So it, they had to let him go. Was it just an amusing thing. Each time, it was an amusing thing that made him stop hearing this is a test. Yeah. You know, like someone would drop a, you know. A siren just drives past. There was a school there in Hawaii where the students, they ran out after hearing all the text messages on on TV, and they ran to the fallout shelters,
+
+[00:43:10] built specifically for missiles and so on, got there, but they were locked. So they had to run back into the school. So they couldn't even use the thing built for them to do it. And there were people were reporting, people driving 100 miles an hour down the road, desperately trying to get home. It was an amazing thing.
+
+[00:43:26] I have a book, by the way, which is my favorite novel of recent years I've read by Jim Kerry, you know, the comedian. And the cover of it is his face. It's done a bit artistically, but it's his face. And Jim Kerry was writing that book while that missile was launched in Hawaii. And he was doing FaceTime with his assistant who called him up saying, we have minutes to live. And she accidentally took a screen grab the second his face. I accidentally just like this is going to be a billion on eBay.
+
+[00:43:53] She was there as well, so I think she had minutes to make that money. You'd want to see what a guy with one of the funniest faces in the world does. He was in the mask, right? So as soon as they told him, his eyes would pop out. I'm with that? Already then. You've got four minutes to make the funniest face ever. Like get Kerry, Rowan Atkinson, a few others, and just workshop it.
+
+[00:44:15] This is really about systems and protocol, because I've had lots of jobs. I used to do business development, right? She'd go into companies, and they would have a process for doing things. And you'd say, well, this process works and doesn't work for these reasons. So this is a big example of it's not actually that guy's fault for pressing the nuclear test button. It's the process. So you know in movies in America, there's this mad process they've got to do to actually send the bombs. They've got to read codes.
+
+[00:44:37] They've got to do dances. They've got to play charades. You've got to complete the game of Mousetrap. Exactly, yeah. And then you've got that, you know those games where you've got like a metal wire? And you've got to take something over without making something, making noise or whatever. And you've got to play operation. But the whole point.
+
+[00:44:53] of that is so you don't just like start firing missiles by accident it is unequivocal this is what we want you to do having a oh i just gonna put you on speaker when there's like a three second delay only one person's responsible there's a drop down list these are all things if i was going into that office i'd be like yeah you need to change your processes to make that mistake shouldn't happen with the donkaster thing right that's a process thing right there yeah there used to be there was an idea a theory by someone and i forgive me i can't remember who it was but they said that they should put the nuclear codes inside a person. And that person should be with the president at all times.
+
+[00:45:29] Yes. So if the president ever needed to send a nuke, they would have to kill that person. And suddenly it becomes more real for the president. He's not just pressing any old button. Isn't it that the president has to literally stab the guy and... I don't think it would be the president. No, the president has to...
+
+[00:45:43] Yeah, the president has got the assistant. Because the idea is that then the president who's making that decision has to make a more immediate decision before he can just press a button. Can it be a cat? A giant river With the president at all times Because the president's got to make a lot of life and death decisions
+
+[00:45:59] Who applies for that job as well Like who comes to go honey, got a great gig I'm working with the president You might You know we've never had a nuclear war Okay so you might never You will probably Just serve your time
+
+[00:46:11] In theory you could just sit around Do nothing for 30 years And then get to go wherever the president goes You'll see amazing rooms Oh my God this is a great thing You probably can't put on too much weight Because then he would be more difficult for stab you.
+
+[00:46:23] Hurry out. His rules. Yeah. You've got to have a big tattoo of cut here. Cut here. A little sizzolite inserted on you. Yeah, yeah, yeah. That's a bit stressful.
+
+[00:46:32] But, you know. But then wouldn't, wouldn't the, sort of the enemy try and kidnap you and get the codes out of your chest as well? Don't you become a... Yeah. Because we know who the person is. You would probably have to have about 10 people, all of whom were with the president, but only the president knows which one it is. Oh, wow. Yes.
+
+[00:46:46] Yeah, yeah. That's a great idea. Yeah. Yeah. So you've all got the tattoo. Yeah. Well, maybe everyone in America has one. It's getting complicated, isn't it?
+
+[00:46:56] It's getting harder to. Just on text messages, this text message was meant to say, Merry Christmas and have a Happy New Year. Yeah. And that's very apt. It is. Because the first ever text message said, you have an aggressive terminal. No, it said it was a Merry Christmas.
+
+[00:47:12] It was a Merry Christmas message. It was sent by a man called Neil Papworth. It was in the... It was in 1992 on the 3rd of December. There we go. But imagine getting the first ever text message. And also third December a bit early. That's the thing.
+
+[00:47:24] Vodafone were having the Christmas party on the 3rd of December. Vodafone were having a party, I believe, to celebrate the sending of the first ever text message. So this guy, Papworth, sent the message to the head of Vodafone or Richard Jarvis, who was a big wig at Vodafone. I believe it was a party partly to celebrate this technology happening. And he had to, but he had to text it from a computer because phones at the time didn't have the capacity to text. Yeah. But the phone that Richard Jarvis received it on weighed two kilos. and that's about, I think, 12 modern iPhones,
+
+[00:47:55] as in just reminds you of what phones have been like in very, very living memory. There's a guy called Brian Moore. He's designed a device that won't let you type the word lull unless it has actually detected you laughing out loud. That's so great. It's a good idea that, isn't it? That's great.
+
+[00:48:12] Weirdly, I text ha when I am laughing. Yeah. But I would never send lull, even if I'm really laughing out loud. No. That would be ha ha. I do pah ha ha ha ha ha ha ha ha ha. I'm laughing a lot. I do wah ha ha ha ha, but I am a villain.
+
+[00:48:28] But I think you would be able to program it so it wouldn't let you say ha ha unless you were laughing out loud. And it also doesn't let you write ruffle unless you're actually rolling on the phone. What about pissing myself laughing? Their moisture sensors. Wow, inserting. Laughing my ass off. Okay, the fastest ever text message This is just a little weird
+
+[00:48:54] Fun record, okay Well, like just KK So there's a specific message Which you have to send for this record Right Do we know what it is? We do So, okay, I'll tell you the record first, right?
+
+[00:49:07] Okay So this was broken, it may have been re-broken since But it was 2010 British woman Melissa Thompson She sent this message It's 26 words And she managed it in 25.94 seconds Okay That's pretty good
+
+[00:49:18] It doesn't say Second word sounds quite beatable, though, doesn't it? Here's the message. The razor-toothed piranhas of degenerate, Saracelmus, and pygocentress are the most ferocious freshwater fish in the world. In reality, they seldom attack a human. Loll.
+
+[00:49:37] So that's what she managed in 25 seconds. Okay, that is impressive. It's a predictive test. I imagine piranha's not necessarily going to come up. Perania would, but I would say the name of the species. Yeah, because I would not. I've actually never heard those words before. No.
+
+[00:49:52] She would learn them beforehand, I guess, or? I think so, yeah, because it's the sentence you'd know. And it's a real Fosbury flopper, though, Melissa's record. Because in 2004, the same record with the same sentence was broken by a Sussex man called James Trussler. And he took 67 seconds to do it. And she took under 26 seconds to do it. Wow. Did she have a special technique that?
+
+[00:50:13] Oh, I don't know. I don't know. Like Fosbury. Yeah, yeah. But it's a huge difference. Yes. Maybe she was the first person to ever use her. rather than typing with that written next figures.
+
+[00:50:23] Yeah, yeah, exactly. Or like, you know the old lockers, you have to press each button three times. A, C, all that. So, yeah, that's amazing. Good for whoever that was. And good for if you stuck with a piranha as well. Yeah?
+
+[00:50:35] Because they sell them attack a human. Ah. Stuff it. I think I think about texting. Yeah. It was so profitable. Oh. When it comes, I mean,
+
+[00:50:46] 10 p a text, wasn't it? We're all of an age to remember 10 p texts. Yeah. It didn't cost 10p to send that data. It doesn't feel like it. And so I did a little looking into it. And basically, the profits were unbelievably huge for mobile phone firms.
+
+[00:51:00] It brought in over the... People were sending like a billion, weren't they? Like, their world was sending... And you'd get on your plan, sorry for any younger listeners, but you get, you know, you get a certain number of minutes
+
+[00:51:09] and maybe 200 texts a month or 500 texts a month. And you had to, like, you'd get right up to the wire of how many texts you were allowed to send because then it was charging you 10 p a minute. Anyway, in 2001, it cost 10 p. like you said, James, which was 128 bytes of data for 160 characters, right?
+
+[00:51:24] The Guardian calculated that if it was charged at that rate, buying a standard music CD would cost 60,000 pounds. Oh my God. Yeah. The text message was just banality, right? It wasn't even like, it wasn't 10p's worth of information. It was mostly flirting. It was worth doing.
+
+[00:51:42] About piranhas and stuff. I was wondering how old WhatsApp. was. All right, I'm going to guess this. Oh, I must say I don't know the answer, but Dan's got his laptop so you can check. You have a guess first, Athena. I think eight years old. Nice. Okay, so that's what, 2015?
+
+[00:52:00] Yeah. Okay, because James got us earlier with the Tenderstone Broccoli, right? Yeah. Like, it's invented 20 years ago. So I'm going to guess 1492. Ah. You're not closer, but you're closer to what I'm going to say. Okay.
+
+[00:52:14] So first of all, Dan, what was the answer? Well, is it older or younger than broccoli? Brocolini. Because I think Broccoli, I reckon actually came in around the turn of the millennium, really. Okay. So it must be younger than that. Yeah, I'd say that. Yes, it is.
+
+[00:52:28] Yeah. Go on. 2009. 2009. Okay. Well, I found a WhatsApp from 1908. This is what I just thought I'd go in the newspaper archives and search for WhatsApp and see what came up. And this was from the Mason Telegraph of the 26th of September, 1908.
+
+[00:52:47] And it was about the... Someone being sued for breaking up an engagement. And this was the first time that had ever happened in Albany and Georgia. And it was a businessman called J.E. Sapp. And he had teamed up with a guy called Mr. Watt. And they owned a hardware shop in Georgia called WattSap. Get out. Isn't that amazing?
+
+[00:53:09] The WhatsApp hardware store existed for a small amount of time in 1908 in Albany, Georgia. Wow. Super. And the proprietor was going around breaking up engagement. Well, that's what WhatsApp is used for, in many ways. It's just couples having arguments. Yeah. Okay, that's it.
+
+[00:53:32] That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland, Andy, at Andrew Hunter, and James. At James Harkin. And Athena. Athena can blend you.
+
+[00:53:46] But don't come to me. I don't know nothing. Yeah, or you can go to our group. out at No Such Thing or email us on podcast at QI.com or do go to our website, no such thing as a fish.com. All of our previous episodes are up there. But more importantly, make sure to check out Athena's podcast. How long's I've been going now? Oh, we're on episode five. The last one was about a friend of us, you've got the snip. Yeah, right? You nodded way too enthusiastic. Your kids must be stressful, man. You're like, that sounds good. I thought of that.
+
+[00:54:19] But it's called Why Does My Child Hate Me? It's about kids. kids and how they're the problem that are us. We're brilliant. So check that out. Kids are nuts. Yeah. Otherwise we'll be back again next week. We'll see you then. Goodbye.

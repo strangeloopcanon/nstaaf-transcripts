@@ -1,0 +1,315 @@
+# No Such Thing As A Fish - 367: No Such Thing As A Horse Drawn Segway
+
+- Episode date: April 2, 2021
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/367-no-such-thing-as-a-horse-drawn-segway
+- Slug: 367-no-such-thing-as-a-horse-drawn-segway
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from four undisclosed locations in the UK. My name is Dan Schreiber, I am sitting here with Anna Tyshinski, Andrew Hunter Murray and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days and in a particular order here we go. Starting with you, Anna. My fact this week is that the world's first electricity power station was built to power an artificial rainbow.
+
+[00:00:48] Wow, that is cool. It's the 1870s, late 1870s, 1877, 78 and we're in Bavaria. And it was built for this king, King Ludwig II, known as the fairytale king for reasons that will become obvious during this section. He used to be a frog, didn't he? He did, yeah. And he wanted to make himself this grotto. He wanted to recreate these things called blue grottos, which are natural sea caves
+
+[00:01:19] where the sunlight makes the water glow in all rainbow colors. And so he decided, I've heard about this new invention, electricity, and I think I'm going to use it. And so there was a little power station set up, which used a steam steam, basically, which powered a dynamo, and that generated electricity. So spun some coils around magnets, generated electricity. You've got a full-on rainbow inside his personal cave. It is cool, but you would think that they'd find something better to do with their electricity,
+
+[00:01:48] wouldn't they? I can't think of any better use. But it's amazing what he did install, because that grotto is full of not only the first artificial rainbow to be powered by this station, but also the first, like, I've been to those pools where they create artificial waves, and you see people going surfing on them indoors. The prototype, basically, of that was built for this grotto, of the wave pool, yeah. It was a wave pool, the world's first known wave machine.
+
+[00:02:13] I spent so long trying to work out how that was powered, and I can't work out if it's just directly steam powered, or whether that was part of the electricity power station fueling it. Wait, are you talking about the Undosa wave pool? Because this was a little bit after he died. Danny, you're saying it was one inside the cave at Ludwig? Yeah, I'm saying it was one in the grotto, yeah. Because, okay, this is bizarre.
+
+[00:02:34] So he died at Lake Stranberg, which is another thing we'll come on to, Ludwig. He died there. And then 20 years after he died, this is what I found, is that the first wave machine, the Velenbad, or wave bath, was built on the shores of Lake Stranberg, and it was given the name Undosa as well, which is Latin for the wave kingdom. And it was steam powered. The steam engines lifted up these massive pontoons, and that pulled up water, and then you'd crash back down, and that created a bigger wave.
+
+[00:02:59] Oh my God, that sounds so cool. And that was in the, what, the early 20th century? How bizarre. The late 19th, early 20th century. And the next oldest one opened in 1912, and that is called the built spud, and it's still working today. It's a 109-year-old wave machine. That's amazing, because actually the one that I used to go to in Bolton
+
+[00:03:19] in the 90s isn't there anymore. So that shows how well this one stayed. Sick transit, yeah. They used to build things to last in the olden days. They did, yeah. But did that mean on the pontoon, that's sort of a double ride, right? Because if you're in the water, you can surf the waves, and then if you're sitting on the pontoon, you're sea-sawing up and down that pontoon, aren't you?
+
+[00:03:39] That's great. They don't do that enough for rides, where you're sort of half on the ride before you get onto the actual ride itself. That feels like a mis-trick. You've invented that there now. I like it. It's a bit like when you're queuing for a ride, and they have stuff to keep the queue occupied, don't they?
+
+[00:03:53] Yeah, but they usually send like a drunken, dressed-up person who just harasses you, and makes you do stuff you don't want to do in my experience. What theme parks have you been to? I was at the Sydney Museum when I was a kid, and this drunken Cleopatra came up, and she started harassing me, yeah. That, it feels like we've stumbled more into a kind of therapeutic now, than a, that's not a, you know, that's your least relatable bit of stand-up I've ever heard of.
+
+[00:04:21] You know when you go through his ear, and Cleopatra's drunk, and she's harassing you. Did she show you her asp? Just on the waves that Ludwig made, I did read that they were mostly ripples, so there's a lot of claims, but I'm not sure you could surf them. I think you've made a good bodyboard as a small toddler on his ripples, if you really tried. But he was into lots of stuff, if not surfing, wasn't he? And actually, I think the Speaking of Rides, the castle at Disneyland, is based on Neuschwanstein Castle, which is one of his, isn't it?
+
+[00:04:54] Yes. I think. Yeah, yeah, you're right. It's amazingly similar to Disney. Well really, you realise how much Disney just nicked from Prince Ludwig. It's so unfair! And that was, it's the same one that's used in Chitty Chitty Bang Bang, in Bulgaria. Neuschwanstein.
+
+[00:05:11] Yeah, they filmed there, yeah. Someone that is quite tacky, if close up, is best from a distance. I've been there, I must say. Have you? Yeah, I think probably from the car park, which is the other side of the valley, it's an amazing photograph, definitely. That's my tip. If you're ever in Neuschwanstein, just go to the car park and take your photos from there,
+
+[00:05:31] and then go to a nice cafe over the road. So James, did you get to see, there's a few things in there that I found fascinating, and he built them in a couple of these places. But one of the things was, he didn't want to see his servants when he was eating, and so there's this table that he built, where the table, when it was going to be laid, would be lowered through the ground to where the servants were, and where the kitchens were, and everything would be put on, and then it would come back up. So if he's sort of like, I guess needed salt, he would send the table back down.
+
+[00:05:59] And then it would come back however many minutes later. But he didn't want to see anyone. Did you see that? That's like, I actually got, oh that's Linda Hoff. That one's Linda Hoff. I heard it was in both actually, I heard that he built one there as well, but maybe I'm misreading that. The guy was wealthy, he could commission a table.
+
+[00:06:17] But so there was definitely that at Linda Hoff, and that Linda Hoff was also where he had the peacock throne, which was a massive peacock, also there was a massive peacock statue, which he had placed on the lawn to clarify that he was in, so please don't bother him. That was his way of announcing that he didn't want any attention, was a big statue of a peacock. It feels like a mixed signal to me. I don't know, maybe it would take people's attention away from him. That's a very good point, you can only look at one at a time. He was very anti-social, kind of a weird loner with a peacock obsession, I think,
+
+[00:06:49] because he also had a giant peacock made of emeralds hanging from one of his ceilings. But his castle, I think this was Linda Hoff castle, is big and had one bedroom. Wow, really? You are not having guests. When you're browsing property websites and you see, you know, a lovely looking house, and then you see one bed, you think, hmm. Yeah, but imagine if you went on to, I don't know what, they call right move or something, and you put your filters in, and you're just like, I just want a one bedroom house.
+
+[00:07:17] And then you start by price, and then you get this thing, which is worth about 10 billion pounds. Well, you've got to uncheck wave pools. He had a favourite column at Linda Hoff, did he? Don't we all? Yeah, it was just his personal favourite column. So every time he passed it, he couldn't help but stop to kiss it. He just loved it. And he also had a bust of Marie Antoinette, and every time he walked past it,
+
+[00:07:43] he would stroke her cheek and bow to her. So he did have a few people in the house, they just weren't real. Well, he also would sometimes kind of sit around talking to Louis the 16th, who died quite a long time before, because like you say, I mean, it's quite a sad existence in a way, isn't it? Because he was painfully shy, and possibly some mental problems there as well. It was really, it's kind of a sad story, but with lots of beautiful things to see about it, with all these amazing things that he built.
+
+[00:08:17] James, it's kind of like your car park thing. If you look at it from the right distance, it's incredibly magical and beautiful. And up close, actually, the reality is a little bit stranger and sadder. He was, I think it was Louis the 14th, he was obsessed with. But he was really into it, wasn't he? He definitely was seen talking to Louis the 16th, for sure. Oh, maybe it's all the movies. Was that just in the era, James?
+
+[00:08:37] Like if he was at his empty dinner table? Yeah, he would be sat at his dinner table, having conversation with dead kings, basically. But I can't say it wasn't Louis the 14th, it could have been as well, for sure. Only because he was, so he used to make his whole retinue dress up as Louis the 14th, sort of servants. He would imitate Louis the 14th in absolutely everything. He'd always dress up as him. He basically wanted, I think he was in love.
+
+[00:09:00] This is my theory. He was very passionately in love with Louis the 14th and Wagner. These were his two idols. I think it's fairly certain he was gay. And so he imitated Louis and with Wagner, which this grotto was based on Wagner's Tannhäuser opera, which is like all about the Leuvenus' grotto and how sexy it was. He used to write these letters to Wagner, which are the raunchy stuff. And put Wagner in quite a weird position, I think.
+
+[00:09:28] The story of Wagner and Ludwig is extraordinary. Ludwig was basically obsessed with Wagner. And as soon as he became king, almost within weeks, he sent out his people to find him. And they had to hunt really far and wide for Wagner, because at that point he was hiding from debt creditors. So he was in hiding, and they managed to out him and go, the king wants you, and he thought, oh my god, I'm in trouble. And they said, no, he basically wants to pay off your debts,
+
+[00:09:58] and he wants you to live in this castle with him, and he wants you to be his best friend. And Wagner was like, thank god, yes, great. Yeah, Wagner would play his pieces in front of Ludwig, just him, right? He would be these massive kind of amazing Wagnerian, obviously Wagnerian, because it was Wagner who wrote them. Operas, but only literally just Ludwig sat on the front row, a bit like your Edinburgh show's data, I reckon, probably.
+
+[00:10:28] There was a bigger audience at the start, but when Dan got onto his, you know when you get to a theme park? The ghost of all the King Louis loved that shit. So Ludwig was engaged to a woman for a small amount of time. This was his cousin Sophie Charlotte, but basically what happened was, they got engaged and Ludwig just kept canceling the wedding, kept canceling it, kept canceling it, and eventually it all got pulled. But Sophie Charlotte's really interesting.
+
+[00:11:01] This is a sad story, but kind of interesting. So she died in 1897 in a fire. She was at a charity event. There was a big fire, but she insisted that all of the visitors and all of the girls who were performing at this thing, and all of the nuns, they were all taken out first, and she refused to leave until everyone else was safe, and she ended up dying in the fire.
+
+[00:11:24] But actually, the interesting part about it is she was, her body was found because she had gold fillings, and she's possibly the first person who was ever identified by dental remains. History, yeah. What a claim to fame. Yeah, sad one, but... Yeah, yeah, yeah. I was reading about the way he broke off the engagement,
+
+[00:11:45] and he wrote to her, and he said in his letter, breaking it off, the main substance of our relationship has always been Richard Wagner's remarkable and deeply moving destiny. You do think? Yeah, maybe not. He's just not that into you. He was deposed as from being king, right? Because he was.
+
+[00:12:09] He was mad, without any assessment. Well, there was an assessment by a few psychiatrists, but because he was living in a big castle, they couldn't really get anyone near him, so they kind of assessed him from the car park, if you could think of it that way. Yeah, yeah, yeah. Were they just waiting for the peacock to go?
+
+[00:12:25] Everyday peacock still there, nothing we can do. But then they sent a delegation from Munich to Neuschweinstein, where he was living, to declare him insane. But Ludwig got the local fire department to kind of form a little army outside his castle to stop them from coming in, and sure enough, the fire brigade did the job, and they had to go all the way back to Munich,
+
+[00:12:50] and it was a bit later that they came with a few more heavies, and they managed to take him, and they took him to this lake, didn't they? Lake Stanberg, where he was kept. He was kept, and then he was found floating dead in Lake Stanberg in 1886. And I read one account, which said his doctor also was found dead floating in the lake,
+
+[00:13:07] and that, to me, is sus, because water was shallow, he was a pretty decent swimmer. He was a surfer, we know that much. Yeah, and there is a secret society to this day, which once, they're called the Google Manner, and they're quite mysterious. They wear hoods and black robes, and they keep petitioning the Prime Minister of Bavaria
+
+[00:13:33] to have a big bust of him carved into a mountainside. Really? But the doctor who was found dead alongside him, apparently, had been assaulted. So there is a suggestion, and I don't want to get into any more scurrilous suggestions like you, Andy, but I'm just going to put this out there. There's some people think that Ludwig killed himself, and that he killed the doctor as well.
+
+[00:13:55] Okay. There's a suggestion of that, I don't know. Or the doctor ran after him, was trying to save him, and thought maybe they fought in the water, and sort of accidental drowning. But there is this quite weird twist, which I will agree supports Andy's theory, which is that a portrait of Ludwig
+
+[00:14:11] has just been quite recently uncovered, discovered, and it was the portrait that was done a few hours after his death, is that weird thing that they used to do. What? Wow. Yeah, and there's blood coming from his mouth, and the argument is that if you just drowned, then you wouldn't have blood falling through your mouth. I've got one more theory to chuck in about his death.
+
+[00:14:29] Oh, yeah, great. I think it's something that Andy hit on, which no one else probably has touched on, that's busted this case wide open. So the story I read is that he asked the doctor to go for a walk, and then they were later found dead by this lake. Now, could it be that Ludwig had noticed something extraordinary at this lake?
+
+[00:14:47] Because only just a few... This is just such a true crime podcast. Well, you've gone into. It's where the listeners are. We've got to follow it. Just a few short years later, what billion dollar industry erupts on the very shores of that lake?
+
+[00:15:06] The wave machine industry. Yes. I think billion dollar is a big claim. Ludwig said to the doctor, listen, mate, I found the spot where we can make the next stage of my prototype wave machine. There was a third person in the party who's not been recorded. I had too much influence on it.
+
+[00:15:23] Oh, you mean Jonathan wave machine. Exactly. After whom the invention was named. That's something fishing. Wow. That's a very entertaining and interesting theory. It's definitely worth saying, I think. Wow.
+
+[00:15:37] Our journey into true crime has been very smooth so far. Yeah, I don't think my favourite bird are ashamed of themselves much more. OK, it is time for fact number two, and that is my fact. My fact this week is that some dinner knives in the 16th century had sheet music etched onto the blade so that guests could sing a blessing together
+
+[00:16:04] before and after the meal. So this is a fact that I spotted on Twitter. It's a guy called Filippo Lorenzen who tweeted about these knives, which I just found astonishing. They're so beautiful. Wow. That's really cool.
+
+[00:16:17] How big were dinner knives? I'll tell you what. How long was this piece of music? These were very much crocodile dundee size knives, and there's a lot of confusion about it. Took them out and went, call that a knife. So if we were doing what the knives had said just then,
+
+[00:16:40] and we were following James, James would have had his little tune there. But on my knife, I would have had a separate set of notes that would harmonise with James, as would you, Andy, and as with you, Anna. Have a good look, harmonising with what I just did. And so it would be a song that came out where everyone had a different part.
+
+[00:16:57] So you weren't all singing the same notes. And so, yeah, a beautiful chorus would come out. Beautiful chorus. These guys are probably pissed at this stage. No one's a professional singer. They probably can't even read the music. Yeah. And so what's interesting about these as well
+
+[00:17:12] is there's only 16 of these that we know of that exist, and they're in different museums all over the world. The V&A has a really nice one, and a great video of showing how the song could sound, because they actually have one of their curators, Flora Dennis. She goes to a studio and has it sung out by proper singers. So you can actually hear the song that's sung. And the knives were a bit different.
+
+[00:17:35] On one of them, one side, it would have the blessing before you started your meal. On the other side, it would be a thank you for the meal that you just ate, but they don't know how they use these knives, because were they used as functional knives? You didn't really cut your own meat back then. That was something that your servants would do.
+
+[00:17:51] There were people who had specific jobs for that. And also, it's a very flat knife. You could cut meat in theory, but it looked more like it was a serving knife. They were made somewhere in France in the 1550s, but they were made for an Italian client. We don't really know who that Italian client was. So there's a lot of confusion and mystery around it,
+
+[00:18:09] but I'm sure true crime fish will get to the point before this fact is over. There is one theory. This was according to art historian Mimi Hellman. She thought that it was a way of checking whether your guests were kind of au fait with musical notation. And so if they didn't really understand the musical notation, then maybe they weren't good enough to be in your society. So it's a way of weeding out the nouveau riche.
+
+[00:18:35] But they've already been invited to dinner at that stage. It's quite late to be weeding them out. Yeah, but you got the Smiths have just moved in down the street and you're like, oh, let's have them over to dinner and let's see if they can hold a tune. Yeah, I like that. That's really wow. We think it's a struggle remembering
+
+[00:18:52] that you have to start from the outside and work your way in, but knowing musical notation and then being able to strike the right pitch. And laying the table difficult because if you miss one knife out, if you've lost a knife or surely you need exactly the right number of guests, otherwise you're missing a crucial part of the melody. That's true. They used to be quite beautiful knives as well as musical. So your personal knives would have really nice ornate decorations.
+
+[00:19:16] If you had a bit of money, you'd have pictures of babies on them quite often, apparently, as in your own children or random babies. I think random babies, maybe cherubs, winged babies, flowers, peasants, feathers, darts. Oh, what a beautiful peasant. A bucolic rustic scene. You want to drop a peasant in there next to a haystack or something. Again, these must have been huge knives.
+
+[00:19:43] This is according to B. Wilson, obviously, the sort of queen of crockery history. So good. And she said, you would no more use someone else's knife than you'd use someone else's toothbrush. Oh, really? That's how I attach people work. Shall we quickly name check B. Wilson's book, Consider the Falk, which is one of the great non-fiction books over the last few years.
+
+[00:20:06] Also features knives, very misleading title. It's so good. It's such a good book. Hey, do you know, in France, pointy knives were made illegal during the 1600s. Really? Do you know by who? In what year? 1669, I believe.
+
+[00:20:28] In France. I say Louis the 14th. It's old mate Louis the 14th. Yes, he's back, he's back. Yeah, no, because there was this whole thing where there was a very influential cardinal who has a very impressive surname that I've tried pronouncing about 12 times before this started. You guys all know him. Richelot?
+
+[00:20:48] Richelot. Richelot. Cardinal Richelot. He was, you know what James was saying earlier about separating the nouveau riche for coming in, if they were trying to pretend that they had singing or notation abilities. He had that with people bringing their own knives and they would come in and he noticed at one of the dinner tables that there was a guy who was sort of being really uncouth and picking his teeth with a knife and he was like, you're not a rich guy,
+
+[00:21:14] you're just faking being a rich guy. I can tell by your manners. And so he banned all of the pointy knives coming to the dinner table and that's sort of where we started getting the much more rounded knife at the dinner table. Yeah, the butter knife. Dan, did he call this guy nouveau richelier? If not, why not? Well, because I can't pronounce A the name.
+
+[00:21:35] The, I almost, I almost just got away with nouveau riche. I didn't quite pronounce that properly. So the idea of even sandwiching those two together is a, I've lost sleep over. Wow. That's interesting because you would have assumed it was to stop the stabby, stabby dinner party thing, wouldn't you? Yeah. But it's just bad manners.
+
+[00:21:52] I think it was a, it was a politician, wasn't it? It was Chancellor Seguier apparently who came round. Dad, why did you not tell us it was him? There's no one I can name in this entire anecdote. Annoyingly, it's a Louis. Yeah. But it wasn't, it was an interesting Seguier from the previous Louis the 14. Oh, Jesus.
+
+[00:22:19] So that would be so great if that was where he got his name. He just always facilitated the change in conversation. Oh, because that's, he always used to come to dinner parties on one of those like scooters, which can't fall off. They were horse drawn back then, of course. Horse drawn segway. That would be amazing. Are you familiar with the stupenda splendiferous butter up knife?
+
+[00:22:43] Yep. Is that not functional? Yeah. It sounds like it was made by Roald Dahl, doesn't it? That's his long name. I think it goes by the shorthand, the butter up knife. I'm so excited about this knife. I'm actually going to order one.
+
+[00:22:57] It's a knife that was invented by a Kickstarter in 2014. It raised $360,000 Australian dollars in Australia, $15,200 backers for obvious reasons. What it has is it has like tiny little cheese grater type holes on one side. So when you run it along the butter, it splits the butter into little ribbons. And that means that if your butter's hard, it immediately softens it because of the surface area. And then you can spread it nicely.
+
+[00:23:22] Oh, okay. Right. So it ends your trauma with breaking your bread into pieces that you always have in winter when your butter's too solid to spread. I had a look into my favorite knife because I realized I knew nothing about it. And it's a knife that I grew up watching on TV. It's the Ginsu 2000, the classic Ginsu knife. You guys know Ginsu, right?
+
+[00:23:42] Never heard of that. Maybe it wasn't as big here. There were lots of infomercials. It's quite a famous knife in America. So I guess in Hong Kong, we just must have had it. It was one of those ones where in adverts, they would show it cutting through a shoe and they would show it cutting through anything. This is the ultimate knife.
+
+[00:23:58] Throw away the rest of your line. This is all so random, Dan. Ginsu, no. When do you ever need to cut through a shoe? No one ever goes to a shoe shop and thinks, oh, this is a bit big. I'll cut the end of it. You need to throw away your shoes, James, but your kitchen bin is so tiny.
+
+[00:24:16] You have to take it apart. Is it an amazing, like a Japanese steak knife kind of thing? Well, so this is what I thought. I thought Japanese technology has sort of samurai elements to the advertising that they did. Turns out that it was made in Ohio and it was named by these copywriters called Barry Betcher and Ed Valenti and a guy called Arthur Schiff. And the idea was they were like, no one's going to buy it under its current name, which was Quick Cut.
+
+[00:24:44] And they thought, OK, let's give it a Japanese name. Let's call it Ginsu. And they turned it into a massive product. Immediately in America, it sold millions and millions. And it was one of those infomercials that coined the phrases. So it's the originator of, but wait, there's more. That phrase that we all know. Wow.
+
+[00:25:04] Brian Butterfield uses it a lot. That is from that advert, as well as Cool Now. Operators are on standby. Those were two lines that originated in these adverts. So the Ginsu was massive, but it's not Japanese at all. And it's not even a Japanese word. When the guy was asked, what does it mean? He says, it roughly translates as, I never have to work again,
+
+[00:25:24] because it was so successful. Yeah. Yeah. To be honest, I think no one in the UK has heard of that. So just when you've done your, you know what it's like when you're attacked by a drunk Cleopatra. How have you not heard of Ginsu? Some of our listeners, I'm sure, Dan, you've just absolutely blown their minds.
+
+[00:25:42] But no, I've never heard of the Ginsu. I was just trying to see if it was as popular as I said it was. But I found another interesting fact just to lob in. So I was saying it cuts through shoes. It also is useful for cutting off penises, because Lorena Bobbit used a Ginsu knife on John Wayne Bobbit's penis when she lobbed it off while he was sleeping in 1993. Did that feature in the adverts as well?
+
+[00:26:05] I'm sure they tried to. But wait, there's more. You could cut penises with it. Dan, what does that thing just lob in there? A Ginsu. They're world famous. Like, I can't believe they're not famous here. I am actually shocked they're not famous here.
+
+[00:26:21] I mean, it's possible that the three of us have just lived a sheltered life and never heard of a Ginsu. Yeah. One of the odds. I think this is a dead, this is a dead thing. It was massive. Just one more thing on someone who loved knives, a guy called John Cummings. He features in the Journal of the Royal Society of Medicine,
+
+[00:26:40] and he proved, if you need it proving, that you should not swallow knives. He did this because he was a sailor, and it's like late 18th century, and he'd seen a mountain bank do the fake knife-swallowing trick, and he said to all his sailor mates, mate, I can do that for real. And so he did. So he swallowed on the first attempt. He swallowed 19 or 20 knives,
+
+[00:27:01] and he did have excessive pain in his stomach and intestines. He got some medical help. He threw up a lot. He pooed out quite a few of them. What? Oh. Yep. Knives were coming up and going down all over the shop.
+
+[00:27:13] So I guess I was so impressed with him then that he tried it a few more times, and every time he got drunk, apparently, on board, he'd say, there was this time I swallowed all these knives. If you don't believe me, I'll do it again. And I think he ate about 40 different knives, and one clasp knife case as well. And he found it very unpleasant.
+
+[00:27:34] He was in a lot of pain. He, again, vomited and pooed quite a few of them, but not enough to save him. And he visited a London surgeon. So when he landed, sure, he was a London surgeon, and the surgeons just didn't believe him. He said, look, I think I've swallowed about three dozen knives. Can you perform surgery?
+
+[00:27:51] And they said, don't be stupid. No one would do that. And a case. He'd swallowed a clasp knife case as well. What is the point of swallowing a knife case once you've already swallowed three dozen knives? No one's going to be extra impressed by that bit. I know.
+
+[00:28:03] If he could somehow jiggle around his insides, he might be able to get the knives into the case. Yes, maybe that was part of the trick he hadn't honed yet. It was the spider he was swallowing to catch the fly of the 36 knives he'd already swallowed. Sadly, much like the old woman who swallowed the fly, he died, of course. And then they did open him up,
+
+[00:28:22] and they did find that he had about 30 to 40 fragments of wood, metal, and horn inside him. So he was telling the truth. Wow. So don't swallow knives, kids. Look at that. Just on party tricks with knives, I discovered that there's a knife-throwing hall of fame,
+
+[00:28:39] and it's a sort of group in America that it's all the people that you see when they stand someone against a wooden door and just chuck the knives at them. It's for that. So the list of people who are on the sort of greatest current knife-throwers, there's a guy called Ted Eisenberg,
+
+[00:28:56] who's ranked 18th in the world at the moment for knife-throwing. He also holds a Guinness World Record for the most breast augmentation surgeries ever to be performed by a male. He doesn't do it by throwing the knife at the patient. If he's not combined the two, then he's missed a trick. He definitely should do that. There's Lorrainea Bobbet,
+
+[00:29:17] who does penis reduction surgery. With a ginsu or whatever it was. Ginsu, yes. Yes, see, you do know it. There's the great throwdini. The world's fastest and most accurate knife-thrower, he calls himself. And then there's Jack Dagger, the king of fling.
+
+[00:29:36] Jack Dagger supposedly has invented the first new knife-throwing stunt in almost 100 years. How? And it's called the cucumber slice. So he gets his assistant to stand up against the door and she puts her arm up horizontal and rests on it a full cucumber. And he throws a couple of knives.
+
+[00:29:56] And then in this video, the third knife, he throws it and he slices the cucumber in half that is resting on her arm. That's the trick. That's the first new innovation in lengthways horizontal. Yeah, that's incredible. Yeah, so Jack Dagger, king of fling, has, yeah, the first in 100 years.
+
+[00:30:14] And of course, he keeps a jug of pimps just beneath that cucumber. That's a real crud of grass. Okay, it is time for fact number three, and that is Andy. My fact is that almost all drug names in America have been approved by just two women in Chicago. Amazing.
+
+[00:30:38] They're called Stephanie and Gail. And they are official. They do. They're Stephanie Schubat and Gail Carrot. But I just thought it sounded more mysterious if I just gave the first names. But they have their names. Schubat and Carrot would have sounded way more strange.
+
+[00:30:53] Schubat and Carrot. Let's get some true crime going. One of them is a musician. One of them is a vegetable. Together, they solve crimes. Schubat and Carrot. Incredibly unlikely friendship. So the reason that they have the responsibility
+
+[00:31:13] for approving so many drug names is that they work for the United States Adopted Names Program. So basically, there's a tiny bit of experience to do here, which is that each drug made has three names. It's got the chemical name, which is unbelievably complicated and long. It's got the generic name, which is, you know...
+
+[00:31:32] Like what scientists would call it or something. Exactly, yeah. And then there's branded name, which is what the pharmaceutical company that makes it. That's your anusol or whatever. That's a brand name. I believe it's pronounced anusol. Yeah, is it heck?
+
+[00:31:46] It's so clearly anusol. The company says it's pronounced anusol. It's such bullshit. Does it actually? Yes, they do. They do adverts where it's anusol. And like, guys, lean in. Is this the work of Schubat and Carrot?
+
+[00:32:00] I didn't mean to start talking about anusol this early. If anyone wants to know what anusol is, then it's worth looking into if you've just swallowed 35 knives. Oh, you're going to need the big tube, I think. Okay, so basically... Sorry, it's just completely distracted already. So drug makers, you know,
+
+[00:32:23] they give the drug a chemical name, but you need a single generic name. And that then goes to the World Health Organization. So it has to be cleared, because the generic names are usually global these days. It has the same generic name throughout the world to avoid confusion. And when a drug firm has a new drug,
+
+[00:32:36] they want to give a generic name to. They write in to the USAN, which is pretty much just Stephanie and Gail. Sorry, Schubat and Carrot. Carrot, please. Sorry, sorry, sorry. And they either approve the names if they're okay, but if it's too similar to an existing name,
+
+[00:32:53] or it's inappropriate in some language, maybe, or if it's linguistically unfit, they're the ones who come up with the new generic name and write back to the firm saying, hey... So they're like, sorry, we've got one of those. Have you thought of butthole soul? Yes. I think they wouldn't call it butthole soul,
+
+[00:33:10] because that would be the brand name. It would be like, you know, butchers soul. Well, so generic names are not allowed to refer to. They've got whole careers devoted to this. You can't on the spot, just... These guys are experts. I've realised that now, you know. I think I was at a cocky attempt of you to make.
+
+[00:33:31] It's classic, classic mansplaining, isn't it? I could do this job easily, and then as soon as I try, no way. It's very hard, because, and just to say, neither anus soul nor butthole soul, great name, would be accepted, because the generic name can't refer to a body part. That's one of the guidelines that they say, because it's a generic thing.
+
+[00:33:51] So, yeah. Anyway, so yeah, and I actually wrote to Stephanie Schubert as part of this, just to check the process works and Jira back saying, yes, that's the process. Sounds like a great correspondence. We didn't get the snappy bad to go, but that's because she's a professional, and she's got a lot of drugs today.
+
+[00:34:09] You're the next Michael Park incident, Andy. I don't know how you get this stuff out of people. So with the, say, like the current COVID vaccines, I guess that would be a process where they had to just fling it to the front and just go, we just need a name, right? We don't have time for all this stuff. Well, that's brand names, right?
+
+[00:34:26] So generic names of drugs are the names that when a patient expires, then you just get the generic version, like ibuprofen or whatever. But at the moment, these are all, that's why they've all got lots of different names, these COVID vaccines. Well, some of them don't, though. That's the bizarre thing.
+
+[00:34:40] The Pfizer jab, which gets referred to by literally 100% of people as the Pfizer jab, is technically called Corminati. Do you have to do it in a West Country accent? Oh, Corminati. Corminati, meharty. It's a mix of community, immunity, mRNA, and COVID, and it gets called Corminati.
+
+[00:35:01] But the AstraZeneca one, it has a brand name in India, which is Covershield. And everywhere else in the world, it just gets called the AstraZeneca jab. Oh, really? Yeah. The thing is that there are lots of different people who can name it.
+
+[00:35:14] So there's the British approved names. So if there's any drug that's done in Britain, our version of Carrot and Shuba is the British approved names group. In France, they have the Domination Commune Française. In Japanese, they have Japanese adopted names. And all these people then feed it into the World Health organization, who then make the final decisions.
+
+[00:35:36] But in the 90s, there was a problem because loads of names were different all around the world before the WHO kind of got in on this. And there was a letter in the BMJ that gave 100 common drugs where the names was completely different in the UK than what it was in America, just completely different. And if you look at like some of the older things like Paracetamol, in English, it's Paracetamol.
+
+[00:35:58] In French, it's Paracetamol. In Spanish, it's Paracetamol. In Russian, it's Paracetamol. And in the US, it's Acetaminophan. It's just completely different, isn't it? I mean, that's just a... I've always got to be different, haven't I? Yeah.
+
+[00:36:16] See, that would be a name that Americans would be like, yeah, that's our name for it, right? It's like Ginsu. See, this is what I'm trying to say. You can have world famous things that we're we're just oblivious to. I had an answer. That's a good example.
+
+[00:36:30] Half a second before he said it, I thought he's going to bring us back to the bloody knife. Interestingly, if you do get your penis chopped off, then Paracetamol is probably going to help a little bit. Again, do swallow Paracetamol, don't swallow knives. Can't emphasize that enough. But this is why Schuber and Carrot are so crucial, I guess, is that America produces so many of the generic drugs
+
+[00:36:53] that need to be spread around the world. And then it must be so difficult because they have to make sure that they're not confusing in any language, right? So they can't have offensive names in any language. Although the only one that I could find, the only example they gave of one they rejected because it was rude was a prefix to a drug name
+
+[00:37:11] that was suggested as privy, P-R-I-V-I, which one of them said, sounds like an outhouse, which I thought was quite a weird and prudish name to give for a toilet. Plastic Schuber though, you know. She's prim. Carrot's the party girl, isn't she? And one problem with naming of medical stuff is that sometimes they have things
+
+[00:37:36] that have funny names in medicine, so especially in genes. Have you guys ever looked at lists of gene names? They are amazing. This is where doctors really come into their own. So Tin Man, for instance, is one gene, and that's a gene that's required for proper development of the heart. Okay. Oh, yeah.
+
+[00:37:52] The spock, the spock one gene, and if that's mutated, then it's... Is that your ears? Very good. Oh, give us some of those quizzes. Oh, yeah, okay, okay. Here we go. So in zebrafish, it gives them pointy ears. Cheap date, Gene.
+
+[00:38:09] Never orders a dessert. Makes you get drunk of one glass of alcohol. It metabolizes it in a weird... Absolutely bang on. Mutations cause acceptability to alcohol. Okay, I will give you the Ken and Barbie genes, two different genes. They remove the genitals.
+
+[00:38:28] Very good. That should be the Lorena gene. Is that what it is? That's mutations on those genes mean that you lack external genitals. Again, it's mostly studied in zebrafish. But then if you get ill, then it can be quite serious, and then you've got this quite funny name.
+
+[00:38:47] For instance, I think there was a disease called catch-22, and it was a very clever acronym, which did the cardiac anomaly T-cell deficit, clefting, and hypochalcemia for chromosome 22. Very good. It's actually quite serious when you've got it, and the name catch-22 sounds like it's a no-win situation. That's one of those things where enough people are diagnosed.
+
+[00:39:09] They said, I don't really want a disease that's called the catch-22 disease. Well, it's like, did you catch one disease? Catch one disease? I caught 22. You know, the same bloke invented heroin and aspirin within the same two weeks. Really?
+
+[00:39:25] Yeah. Yeah, I love Felix Hoffman, working at Bayer. Oh, Hoffman. Are they related to each other? Is it almost like you just add salt to one, or is it completely different medicine? He was adding, yeah, kind of. He was adding acetyl.
+
+[00:39:39] He was acetylizing various different molecules. Now, both had kind of been created. Those chemicals have been created previously, but they haven't been commercialized or made in a stable form. Was Hoffman the one who took loads of heroin and then cycled home, or?
+
+[00:39:55] I thought that was the LSD guy. Timothy Leary. Maybe it was. No, I think you're right. I think it's Hoffman. Yeah, I think it's Hoffman. I thought he'd taken LSD and cycled home. Maybe.
+
+[00:40:06] Yeah. But I mean, the thing is, we sort of think it's funny now that heroin was marketed as a cough medicine by Bayer, but actually tuberculosis and pneumonia were such massive causes of death that it was very useful to have a cough remedy. Like it was a really desperate need. And within a year, you could get heroin pastels,
+
+[00:40:27] which I didn't know. Would they flavor them? You know, it tastes nice if you add a raspberry flavor to it. I don't know. I don't know if they'll flavor them. That's a good way. You could play Russian roulette with fruit pastels, couldn't you? Well, one of them has got heroin.
+
+[00:40:41] Yes. Wow, that is the progression of the game Gin or Water, which is one of my favorite games. I think heroin pastels is the next stage. What's Gin or Water? Oh, come on, Andy. Come on. Come on, mate.
+
+[00:40:54] Did we never go to the first gin? No, I don't know it. I've never played it, but it's obvious. It's pretty obvious what it is. Have you ever played Gin Sue or Water Sue? What one glass is full of knives? You have to guess which one you swallowed. You have to remain straight-faced,
+
+[00:41:12] regardless of whether you swallowed Gin, Water, or a dagger. Oh, so they look identical and you drink a glass. And then other people have to guess which one you've downed. Keep a straight face if you've just had the water. Sorry, I was thinking that you have to drink it and you have to guess which one you've had. Andy, absolutely. I'm going, oh, I'm fantastic at this game. OK, it is time for our final fact of the show, and that is James.
+
+[00:41:50] OK, and my fact this week is that Israel manually removed all colour from foreign TV broadcasts until 1981, as they were worried that if they broadcast colour TV, everyone would rush out and buy new sets which would crash the economy. Amazing. Isn't it? What a incredible. I mean, so many questions.
+
+[00:42:13] So I can't understand how everyone buying a new TV set would crash the economy. OK, so the idea was that the colour TVs would have been made outside of Israel, and so it would kind of change the balance of their balance sheet, basically, meaning that more people were buying things from abroad rather than buying things from at home. There was a few other reasons that they didn't have colour TV for quite a long time. Some people argued that it would cause social polarisation, because some people would be able to afford colour TVs,
+
+[00:42:45] and some people wouldn't, and they didn't want to do that. Some people just thought it was quite unseemly to have lots of television in the home. But basically, they came up with this eraser device that whenever they got a movie in from a different country, it would just suck all the colour out of it, and it would put it out as a black and white image. But people could buy an anti-eraser device,
+
+[00:43:08] which meant that you could put all the colour back in, and loads of people started buying these, and then they'd be able to get the foreign colour pictures. And eventually, I think possibly because there was an election coming, the Israeli government said, hey, we're going to do colour TV, we're the last people in the world, pretty much, but we're going to do it.
+
+[00:43:27] And then in 81, they did. That reminds me a little bit of the rubbing out and rubbing back in technology of something I read, which was a cheap alternative to colour TV in the 60s. So, have you guys heard of this? In America in the 1960s, you could get colour televisions, but if you couldn't afford them, which many people couldn't, you could for one dollar buy a coloured transparent plastic screen
+
+[00:43:50] that you stock on top of your TV. Where is it? I mean, obviously, it wouldn't work, right? Because the grass would be orange, the sky would be green. James, they're not stupid, all right? So, what they did is they had three colours on it. The top third was blue, the bottom third was green, and the middle third had a sort of reddish tint.
+
+[00:44:12] That works if all your TV shows are based on a beach. If you're watching Baywatch, absolutely smashing it. That's why it did so well. The bottom is green for grass. It was green. So, if you're watching footage only of a wholesale tomato market, actually, it's unbelievably effective. That's right.
+
+[00:44:28] Absolutely. And that happened to be the only programme that was on throughout the 1960s. So, it's fine. People did say it did, and I saw some pictures, and it does sort of make it a bit more exciting. Obviously, it didn't exactly match with the colours that it was supposed to, but at least it made your television a bit more colourful to look at.
+
+[00:44:44] That's right. Isn't that great? I can't believe that colour TV was invented so early. So, John Logebet, who was the great pioneer of TV, he demonstrated it in 1928 at his lab in London. He filmed a basket of strawberries, and he invented more ways of doing it in the 30s, and it just didn't get picked up on for ages.
+
+[00:45:04] Yeah. I guess it was just too expensive. I think it was also a slightly different technology that they used with Bird than they came up with eventually using. But one of the things that Bird did was he had a demonstration with a young girl who would put different coloured hats on, and this would show all the different colours. And this girl was called Noelle Gordon,
+
+[00:45:23] and she later became the first woman to interview a British Prime Minister, and she was an actor on Crossroads who won the TV Times Award for Most Popular Actress on eight occasions. 00:45:35,760 --> 00:45:38,240 But she began her career just changing hats in front of John Logebet. What? I mean, a colourful career.
+
+[00:45:42] Yes. Well, she wore a lot of different hats over the course of her career, you could say. Very good. Yeah. All these great points. Can you say who the Prime Minister was, who she interviewed? Macmillan.
+
+[00:45:51] Can you say? I like the fact that maybe it was... Sorry, that's secret. No, she was the first to interview a British Prime Minister. Sorry, it's one of the Prime Ministers I can't pronounce. Sorry. Don't you think it's so fitting that John Logebet made the first demonstration of colour TV using strawberries?
+
+[00:46:10] And we've mentioned before that before he went into inventing television, he started a jam factory. Did he? Yeah, and maybe he had left a... He was in Trinidad and he set up a jam factory. And I think it didn't work out because insects kept infesting the jam. And the reason he'd went anyway was to stop himself being such a sickly child so he could get off with the girl that he loved,
+
+[00:46:33] but when he came back, she was married anyway. So the whole trip was a disaster. But I reckon he must have come back with loads of surplus strawberries. Do you think he maybe had some ones which weren't ripe yet and he kept them at the bottom of the screen and then some ripe ones in the middle and then some blueberries above them. Yeah.
+
+[00:46:51] Wait, this is like inside a trading, then, which you're not really allowed to do on some British TV. Well, you know, if there he is going, look, colour TV, what he's really pushing is his strawberry business. Yeah, that's true. Hang on, I have another link. I have another link here and we're about to blow this thing wide open. The True Fish Crime podcast is back on the rails.
+
+[00:47:08] Let's do it. The first colour TV broadcast in the UK was in 1967. What was it? It was the Wimbledon Tennis Tournament. What do people eat? Strawberries and cream. John Logie, you naughty, naughty boy. John Logie bastard.
+
+[00:47:26] We have crumbled the very foundations. Do you know what was the first advert in colour on ITV? No. Was it for a wave pool? No, it was for peas. But they're a type of food. Birds-eye peas, yeah. You're sort of like the crap detective
+
+[00:47:46] who's the fifth part in one episode. I think, James, I'm sorry. This is why I'm Schubert, Carrot and Harkin. That's what we used to be called. I really like, so Wimbledon was the first that was shown on, I'm guessing that must have been BBC Two, right? Because that was Afton Brut involved. So that was the first in BBC Two and that was in 1967.
+
+[00:48:10] In 69, BBC One officially went colour with a lot of experiments. And the first full colour programme that they ever showed was Petula Clarke, who sang Downtown. If you don't know her, you might know that song. Downtown. It's a big song. Sorry, I didn't bring my knife to this recording. You'll be able to sing along.
+
+[00:48:34] I love those songs where you only know one lyric and it's the name of the song. But they broadcast it for their first day of colour at 12am on the 15th of November, because that's when the licence kicked in. And then they shut off the channel till 10am because there was no TV to be had. Yeah, so you got sort of like, you had to stay up,
+
+[00:48:58] watch the one thing and then, okay, going forward, we're now playing not completely colour, but more and more. Do you know how Australia went colour? Dan, you might know this already, actually. Well, I only know it through researching it because I was curious about that. So yeah. Mad.
+
+[00:49:12] It was halfway through an episode of a sketch show. They introduced colour to the screen. Yeah, it was called The Auntie Jack Show and it was completely like really sort of wild, crazy, Python-esque stuff. It was in 1975. They said the colour monster is going to take over the TV and a corner of the screen starts turning to colour
+
+[00:49:30] and they're freaking out on the rest of the screen. And one of them says, oh no, it's got me. I'm completely in colour now. And yeah, slowly the whole screen. It's on YouTube and it's barking mad, but it's very cold. It was a show that was really popular, but it had finished. So it was called The Auntie Jack Program
+
+[00:49:48] and they brought Auntie Jack back who had been killed off in the final episode of the previous series. So they sort of like, they brought her back to life and it is like that Wizard of Oz moment where it goes from black and white to colour. And one of the actors is a guy called Gary MacDonald who became Norman Gunston,
+
+[00:50:07] one of the biggest satirists in Australia. He invented the sort of Ali G mode of interviewing. He would go to real life events as a character and interview. And he later appeared in Moulin Rouge in a scene doing absinthe where Kylie Minogue comes and I just wanted to add that to show you I can learn from this podcast and I now have to pronounce her name.
+
+[00:50:28] I'm now trying to trace back the card from Kylie Minogue to the original fact. There were so many different lily pads that you let run to the other. Why don't you just say, you know who's sometimes on TV? Kylie Minogue. Oh, that would have been better. Yeah, that's true.
+
+[00:50:41] Well, Moulin Rouge, of course, is that's red and in that there's the green absinthe fairy. So it makes sense that a guy who was interested in colour TV would have been up for a role in the film. Guys, we've got to stop trying to blow shit wide open just to make sure it doesn't work. Okay, that is it. That is all of our facts.
+
+[00:51:00] Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy, at Andrew Hunter M, James. At Schubert Carrot and Harkin. At James Harkin. And Anna.
+
+[00:51:18] You can email podcast at qi.com. Yeah, but you can go to our group account, which is at no such thing. Or you can go to our website, no such thing as a fish.com. All of our previous episodes are up there. We'll be publishing Andy's correspondence with Schubert. Very exciting emails. We're also dribbling very slowly all of the 20 hours.
+
+[00:51:39] Speak for yourself. We're slowly dribbling all of the clips up from our 20 hour long marathon that we did for Comic Relief, featuring 35 different guests. If you've not seen them yet, head to the quite interesting channel on YouTube and check them out. They're really, really fun.
+
+[00:51:55] And if you can still help with any kind of donation towards our cause, comicrelief.com slash fish, please do. I say it's our cause, it's Richard Curtis's. But yes, we will be back again next week and we'll see you then, goodbye. James, when you and Schubert and Carrot solved the case, did one of you say, looks like we solved it? And then someone else would say,
+
+[00:52:22] I think you mean we ain't solved it. I solved it and you solved it.

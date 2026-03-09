@@ -1,0 +1,201 @@
+# No Such Thing As A Fish - No Such Thing As Mould Juice
+
+- Episode date: August 28, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-mould-juice
+- Slug: no-such-thing-as-mould-juice
+
+## Transcript
+
+[00:00:00] Okay, all right, let's do this. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you from the Edinburgh Fringe Festival. My name is Dan Schreiber. Please welcome to the stage. The other three elves, it's Anna Chisinski, James Harkin, and Andy Murray. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, Andy Murray.
+
+[00:00:39] My fact this week is that the first man to swim the English Channel later had a show where he floated in a tank for two hours. That was his show. His name was Matthew Webb. And to get extra funding, he would do a special endurance show where he floated in a tank for 128 hours. Whoa, that's one hour better than the guy stuck in the rock.
+
+[00:00:59] Yeah. Probably as interesting as well in terms of a feature-length movie. Yeah. I mean, without a flotation, device. Without a flotation device. That's really impressive. It's very impressive. Yeah, in a boat it's not quite as impressive. It's just basically
+
+[00:01:15] a big swimming pool, right, where he's just paddling around. Yeah, I'm treading water I guess is what he was doing. Yeah, okay. So he wasn't lying on his back. That's not floating. I think that's just swimming. Like a child. I've got very philosophical very early on, haven't we? The first time he ever did this kind
+
+[00:01:30] of floating for as long as possible, it was against a Newfoundland dog. He had a bet that he'd be able to float for longer and he won his bat. Did the dog die? As they fished the dog out, Victory for Webb. I mean, did the dog even know
+
+[00:01:45] it was taking part in a bet? Captain Webb won a year's supply of pedigree chum. So this is Captain Webb. This is who we're talking about. British hero. Yeah, and he was amazing. This was 1875 when he did this and when he swam the channel, that is.
+
+[00:02:01] And after that, he didn't really stay famous. He tried to keep himself famous by doing these endurance events and things like that, but he found it quite hard. But I read that he was so famous that when he came back from the channel swimming and he went back to his hometown with a band procession going on, he was so loved that even a pig got up on its trotters
+
+[00:02:19] to look at him as he went by. Did the pig know that it was taking part in a procession? Exactly. In 1883, just eight years after he was the hero of the nation, he tried to swim across a particular bit of the river down from Niagara Falls, and it was extremely dangerous and more than 10,000 people
+
+[00:02:39] turned up to watch him and he drowned there. He was dragged under a current and his body was found a few days later and he was doing it to try and provide for his family. So I was going through the newspaper archives and before he did it, every single headline about what he was about to do said, you know, Webb engages in suicidal endeavour.
+
+[00:02:55] Every headline went, a fool's errand totally mad, everyone predicts he will die. There's a whirlpool about 20 yards down the river into which he will definitely be sucked and perished. And he went on and did it anyway. I just wonder if he read any of that. He didn't like to read his own press.
+
+[00:03:11] He was a very modest man. But actually everyone thought that he would die when he swam the channel as well. It was 34 kilometres, but it actually took him 64 kilometres to swim it because of all the currents. And he just went in a real zigzag all the way. He refused to ask the directions.
+
+[00:03:27] And he smothered himself in porpoise fat to keep warm, which is quite good. And towards the end, he got really tired, but then a boat went past and everyone on the boat started singing Rural Britannia to keep him going. And I don't know if this would have been an encouragement or put him off,
+
+[00:03:43] but apparently his coach, Arthur Payne, used to jump in occasionally and swim alongside him, which I would find really irritating. Hey man, this is easy. I read also at one stage that he had a running with a porpoise. Why are you covered in porpoise fat?
+
+[00:03:59] What have you done with my friends? I think that might have been it. They might have confused him. Smells like a porpoise, looks like a porpoise. But there was actually someone who went across the channel before him. He was called Paul the Fearless Frogman Boynton. And he did manage to get it across, but he was wearing a rubber suit with a paddle and a sail.
+
+[00:04:24] He towed a boat behind him, I think, which had his supplies in it. He towed a boat. He towed a boat. This is much more impressive than Matthew Wair. I mean, he had a sail. I think he had some kind of a small, like, make sure. shift clockwork motor thing. I'm not sure where we draw the line at swimming,
+
+[00:04:39] but I think that is not swimming. The suit sounds amazing. It could support you, so it helped you float in the water. And also, you could store nine days worth of food in the pockets. Basically, it was a publicity stunt to sell this suit because he called it the lifesaving suit. He was actually the guy, he set up the first ever theme park in America, and then he set up what became Coney Island.
+
+[00:04:59] Did he? And then he befriended sea lions and used to appear in silent films with them all the time. Hang on. He just, they were who we felt closest to. Yeah, he performed in films with sea lions. Did these sea lions know they were being befriended? Even cooler than, there was someone who swam across before even, what was it, Paul the Amazing Frogman, Boyton, fearless frogman.
+
+[00:05:24] It was a guy called William Hoskins, and this was in 1862, and he kick paddled his way across on a bale of straw. I was the first man to go across the channel, Not in a Boat. Do you guys know who the best living swimmer alive today is? Michael Phelps? No, so this is for long distance, I'm talking. It's a guy called Martin Strel.
+
+[00:05:49] He had a lot of TV shows, so it actually might be a name familiar to those listening and those here tonight. He's an amazing guy. He's a Slovenian, long-distance swimmer. He swam the entire Amazon River, first person ever to do that. The Danube, the Yangtie.
+
+[00:06:03] He did the Danube, in one go. He swam for 84 hours straight. He lost 40 pounds by the time he got out. He was 40 pounds lighter. And along the way and along every single swim that he does, he drinks two bottles of wine. He has just a favourite white wine, I think it is, that
+
+[00:06:18] he drinks. But they're sort of like Thresher's shops along the way. The Amazon is much better provided for than I realised. That's where Thresher Sharks get their name actually. Oh really? They're serving. But this is
+
+[00:06:34] is how hardcore he is with his swimming. He hasn't swum the Nile yet, and he's been asked, why have you not swam the Nile? And he said that it's neither long or challenging enough. Well, it is like the second longest river in the world. Yeah, I know. He said, it's just like a small creek. This guy is a liar. I say that when people say, why have you never fought
+
+[00:06:50] a lion? They are neither large nor fierce enough for me, so it's not worth me wasting my time. We're going to have to move on in about two minutes. Can I tell you, one more guy who I found out about in terms of the annals of cross-channel swimming history. This is one of my favourite
+
+[00:07:06] ever people. His name is Bob Platten. I don't know much about him, but he crossed the channel on an iron bedstead in 1961, which he had attached floating barrels to. Then in 1963, he surpassed himself. He went over on a barrel with an outboard motor.
+
+[00:07:22] Eventually, commercialism crept in. In 1969, he went across again in a shoe sponsored by British leather. And then in In 1965, he crossed in a gin bottle sponsored by Gilby's gin. Hang on, where do we get these oversized gin bottles? Paul Platon, what a guy.
+
+[00:07:42] Okay, it's time for fact number two, and that is my fact. My fact this week is that the first item sold on eBay was a broken laser pointer. Yeah. And it was bought by a man who collects broken laser pointers. It genuinely was. Do you think he ever buys working laser pointers and then breaks them so that they can go in his collection? Yeah, I guess so.
+
+[00:08:07] It's a good question because you would have thought a working laser pointer is actually easier to come across than a broken laser pointer. The guy who sold it, did he know that someone might want a broken laser pointer? Or was he like just scamming people? It was the creator of eBay. So prior to eBay being called eBay, it was called Auction Web. And Auction Web was his little sideline.
+
+[00:08:25] There's a bit of a mythology that he set it up. He set eBay up because, his wife had a huge collection of pez dispensers she wanted to get rid of and he thought let's do it that way and that was actually marketed i think through ebay themselves saying that was the case turns out it's not true but so it was the guy who set up ebay so this guy who um started ebay it was called auction web but it was on ebay.com i think and he had some other sites on ebay.com as well and one of them was an Ebola information site that was the first thing on ebay.com a place to find out where Ebola's happening around the world yeah he was weirdly obsessed with abola right yeah in the 90s before
+
+[00:08:59] was kind of fashionable. And he employed a marketing guy who was like, you really have to take this a bowl of shit down. No one wants it. People just want to buy stuff. Another thing sold on eBay. Well, they tried to sell this and actually got taken off. Iceland, the country.
+
+[00:09:16] And this was this part of the description. Bjork, not included. Did you read about the musician who sold what he claimed was the world's longest hula hoop? So it was three inches. and this was last year I think Whoa! Andy you missed out.
+
+[00:09:35] How much did it go for? Well, someone bid 712 pounds for it. If I had known about this at the time I would cheerfully have paid three inches of Hulu-Hoop. But you know what's really sad about this guy? Kind of nice.
+
+[00:09:48] He said he was going to use any funds he raised of selling stuff on eBay to fund his commune that he wanted to set up. And one of the things he first tried to sell was his love on eBay. He put that up there. He said he was willing to sit quietly somewhere and send you good vibes and love for five pounds.
+
+[00:10:05] Five pounds was the maximum he got for that. And then he got 712 for an oversized hula hoop. Looking at Andy, I think you'd rather have the hula hoop. I would definitely rather have the hula hoop. Can you imagine opening the packet and finding that? It would be so excited. I mean, the packets are barely four inches long, you know. Yes, but love, Andy. Love.
+
+[00:10:24] I want a massive hula hoop. There was actually, I know the scenes implausible. but this was last year and then there was a 26-year-old woman in March this year who found a bigger hula hoop which she then flew on eBay. Did she get more for it? That was five inches long. I don't think she actually got offered as much because the craze was sort of over by that point. I feel there isn't enough astonishment in the room about this.
+
+[00:10:46] The normal hula hoop is about a tenth as long as that. So in 2004 there was a sale on eBay of some water that Elvis had left in a cup. It went for 237 quid, all the equivalent in dollars, and it was from a plastic cup that he'd sipped from in North Carolina in 1977. But isn't it true that the person who sold it kept the cup? He kept the cup, yes. So he sent out the water, but the cup was, yeah. And he said at the time,
+
+[00:11:16] I promised this thing is 100% legitimate. Did it have a certificate that went with him just writing, seriously, I promise. Can I mention a few things about lasers very quickly? because so he broke this, the fact was a broken laser pointer. I read that the sort of founding father of laser technology died just this year. Charles Towns, he originally came up not with the laser. He sort of had the one just before.
+
+[00:11:43] It was called the mazer. But, I mean, how amazing that he was able to see how far it's come. And, you know, he made it into a Bond movie with his invention. Bond's crotch was almost burnt off, wasn't it, by his invention? In the novel, apparently it was a circus. saw that he was attacked by Ralph and the laser. Really? Apparently. But they put the laser in the movie
+
+[00:12:03] to make it a bit more exciting. The way that they worked it is they had a special effects man underneath the table and he was burning, cutting through the table from beneath with a kind of a torch. And apparently because he was doing that, it meant that Sean Connery was
+
+[00:12:19] sweating and worried in the same way that he would have been if a laser was coming from above. Because not only was this kind of being cut from below, the guy below couldn't see where he was cutting too. And also, when the director wants the shot to end, he'll shout, cut. This guy, Charles Towns,
+
+[00:12:39] when he invented the laser, everyone, or as he was proposing it, he needed funding and he asked for funding, and everyone in the scientific community thought that he was insane, that it wouldn't work, it was going against certain laws that were in place about physics and the world. And they said that this is, yeah,
+
+[00:12:57] Why, Dr. Shriver, please, can I understand the word you're saying? We have a lay audience here. Yeah, so science said that it couldn't work. And so he still went along with it. And Niels Bohr, who's a very famous physicist, said, this is not going to work to the point where eventually a few scientists said, we need a right to him. We actually know the letter that was sent to him,
+
+[00:13:19] which was by Isidore Isaac Rabby. And this is genuine, look, you should stop the work you were doing. It isn't going to work. You know it's not going to work. We know it's not going to work. You're wasting money. Just stop. And then three months later was the first successful experiment of the laser.
+
+[00:13:38] Wow. Yeah. Amazing. That's so cool. Someone's used a laser cutter to imprint a song onto a tortilla. It should be, for it to work best, it should be an uncooked tortilla if you wanted to try it. And they printed a Mexican dance onto it.
+
+[00:13:55] It didn't sound very good, actually. can watch on YouTube. Charles Towns would, I think, be glad to know. Okay, we're going to have to move on to our next fact, and that is Chazinsky. Yes, my fact is that when Alexander Fleming's neighbors foiled a burger at his house, as a thank you gift, he gave them some mould. This is kind of a predictable, possibly, for everyone who knows who Alexander Fleming is. He gave them the mould, not just some mould.
+
+[00:14:25] So he gave them the first penicillin culture. So these guys, it was really shortly before he died, actually, and his neighbours saw burglars trying to burglare his house, and they stopped them, and they called the police, and then they received a letter shortly afterwards from Alexander Fleming and Mrs. Montgomery, his housekeeper, saying, look, enclosed his some mould. And then Mrs. Montgomery clarified,
+
+[00:14:47] she wrote something along the lines of, as though you didn't know, but just in case, this said affair is a blob of the original mould of penicillin, not to be confused with Gorgonzola cheese. I was going to say, how do they know it was the original mould? It's a bit like Elvis's water, isn't it? It's just a letter to say, no, it really is the original mold. And they kept the petri dish that it had grown in, actually.
+
+[00:15:06] It just gave them the mould. Fleming had a very high star rating on eBay, so I think it was a trustworthy seller by that point. So this just went up for auction, didn't it? It sure did, yeah. Yeah, do you know how much it sold for? Go on. Was it £712 in a hotly contested race
+
+[00:15:22] with a three-inch-long Hulu? Andy, you don't know how eBay works. Which one will I get? The Hulu people, the mold. Andy just bids for everything on eBay in the hope that one day a Hulu comes. It's sold for 4,720 pounds. Are you thinking that's not much?
+
+[00:15:44] I'm pissed off. That's such an achievable amount to buy. I'm so glad you said this. I wanted to call you up and say, why didn't we get together and buy this, guys? We don't earn too much. I'm going to have some word without all. But he discovered it really far before it was used in medicine, didn't he? He discovered it in about 1928.
+
+[00:16:03] And then he wrote a paper on it saying this has antibiotic properties, this could be very useful. You couldn't quite get it working. Yeah, and nobody paid any attention for another 10 years. There was this huge argument over who had really invented it or made it useful for mankind. Oh, did they argue over it? Because they shared the Nobel Prize, Florian Chain and Fleming. It was a guy called Al Moth Wright who worked with Fleming, who wrote a letter to the Times saying, actually it was me who came up with that, not him.
+
+[00:16:27] Wow. And then the press all went down to speak to both of them. Fleming worked for this big company actually, and he did find it, but he worked for this big company, and he was just like a small cog in it, really. But the press went down to speak to them. But the reason that we all kind of know Fleming today is because he had such a good story.
+
+[00:16:42] He came from a humble background. He supposedly came up with it serendipitously, like there was a little petri dish on his desk, and it just accidentally grew. And it was just a better story. And the other story was like basically a group of international research. working in a state...
+
+[00:16:56] Boring! Snore. There was the accidental discovery. He went away for a trip. And then he came back and he found that he had a load of bacterial cultures and one of them, the bacteria weren't growing. And it was because the mould
+
+[00:17:10] had supposedly drifted in through the window. I read a really interesting set of articles about the idea that they think that he got to his... to noticing what was going on because he was an artist. He painted. He painted a lot. He didn't use actual colors that you would buy in shops and so on.
+
+[00:17:28] He grew his colors in petri dishes. He would have this petri dish with different microbes in there. And some of them would grow green and that would do grass. Some would grow blue. That would be the sky. And it would just make these beautiful little images. And the great thing was is they would only last for a few, like, days. And then they would all grow into each other.
+
+[00:17:45] So it's really a trend. That's amazing. Isn't that crazy? So he used to paint things like ballerinas, horses, mothers feeding children, stick figures fighting. I mean, that's pretty. Cool. Conveniently, they didn't last long because after a few days they disappeared, so we have no evidence
+
+[00:17:59] they were any good at all. Well, he used to show them to people, and people wrote about them and one day he showed them to Queen Mary who said, I don't see the points of these. Apparently he was, Alexander Fleming was very bad at conversation. And his entry on the Oxford Dictionary of National Biography,
+
+[00:18:17] this was how someone put it. As one visitor put it, talking with him was like playing tennis with a man who whenever you knock the ball over to his side put it in his pocket. That is such a good description of so many conversations we've all had with James. I can't have fault on that.
+
+[00:18:43] He did say I really like this quote from him when he was interviewed about discovering penicillian and he said, when I woke up just after dawn on September 28th, 1928, I certainly didn't plan to revolutionise all medicine by discovering the world's first antibiotic but I suppose that was exactly what I did. Wow!
+
+[00:19:00] I reckon whenever you had a conversation with him, that was always his reply to no matter what you said. Here's something cool about penicillin. So in about the late 30s, 38, 39, it was really, really costly and very, very labour-intensive to make more of it. And you needed 2,000 litres of mould culture fluid to get enough pure penicillin to treat a single patient.
+
+[00:19:24] So obviously that was incredibly time-consuming and difficult and laborious. So to make up the shortfall, the researchers extracted it from the urine of patients who had already taken it. So when you take penicillin, 40 to 99% of it is excreted about four hours later because your kidney's very good at getting rid of it. So you could take the urine, crystallize it, extract the penicillin, give it to the patient in the next bed. Wow, that is strange. So you're literally taking the piss. Yes.
+
+[00:19:56] This confused me about, so the original fact about the penicillin being sold on eBay, in the scientific American article where I initially read this, the title was, Fleming's original penicillin culture sold at auction, and then there was a little note at the bottom of correction saying, in tiny writing, this article was originally published with the title,
+
+[00:20:13] Old Mold Sold. I just thought, why did you change that? So Penicillum Camemberty is the mould which is used to make Camembert and it's naturally green. And so Camembert always used to be green. And then suddenly it started to get a bit whiter and then humans selected it to get whiter and whiter and now it's white. But only a few hundred years ago Camembert was all green. Wow. Is it good for you if you take Camembert three times a day?
+
+[00:20:45] I would say it's worth a try. Yeah. In ancient Egypt and they used to whack much. moldy bread onto their wounds. I think they did. And I thought that that was one of the first uses of the effects of penicillin. And the way that they used to make Camberbearers, they used to get bread and put it in a cave,
+
+[00:21:00] and then the bread would get moldy and moldy and moldy, and then they'd get the bread out, and then kind of turn it into a dust, and then they put the dust into the cheese, and that's how they got Camber. We're going to have to move on. I got one last thing. Penicillin, the name itself, penicillin,
+
+[00:21:15] he didn't come up with for quite a few months. so he had a working title. I think they should have kept it, mold juice. That's very good. That's very good. Okay, time for our final fact of the evening, and that is James Harkin.
+
+[00:21:33] Okay, my fact this week is that the earliest known ice cream recipe suggests flavoring with poo. If this is what Hagenas, Belgian chocolate is, I'm going to be very upset. No, they offered lots of different things. Orange flower water was one of the things. And the other one was Ambigree, which is whale poo.
+
+[00:21:54] So not human poo. Everyone's so disappointed. So yeah, Ambergris is sperm whale poo. It's when a sperm whale eats a squid, and the beak is indigestible, and so its body creates mucus and vomiting covering of the squid's beak, and then it expels it almost always through the anus, and people in the older days really like the taste of it,
+
+[00:22:15] and they described it as earthy, and mildly fecal. Wow. And apparently this was the kind of thing you flavoured ice cream with back in the day. So cool. It floats around, doesn't it, on the sea, for months or sometimes years.
+
+[00:22:28] Because only about 1% of sperm whales produce ambergrey, and there aren't that many sperm whales. And so as it floats, it hardens and it changes and it takes on a much more perfumy aroma than you would think it would have. Apparently, it's amazing.
+
+[00:22:42] And it's worth a fortune if you find it on the shore because it's what they use for... Although in some countries you're not allowed to sell it. And a lot of places use fake hamburger now. But, yeah, if you can find a buyer, you can sell it for a lot of money. Because it's used in perfume, right? Yeah, it used to be, at least.
+
+[00:22:56] Well, a lot of perfume companies. So there's actually a really good book on this called Floating Gold. But perfume companies tend to deny that they use it, but this guy found a lot of people who sell ambergris to a lot of companies like Chanel, etc. So, yeah, they still use. And apparently it does smell delicious and incredible. The worst thing about it is to make it to put the... stuff into the food, you would make tincture
+
+[00:23:18] of ambigree. And to make that, you had to warm it very slowly. And the way that they would do that is either put it in the sun, but if it wasn't sunny, you would put it in hot dung. Oh, wow. So if it wasn't fecal enough, you had to make it a little bit more fecal before putting it in your ice cream.
+
+[00:23:35] I have a story about, on the finding it on the beach. So in 2013, there was a dog water on a beach in Lancashire, and he found a three kilo lump, and that is huge. I mean, you get as small as 15 grams, the lumps of of ambergris. And reports said it could be worth up to £100,000. And
+
+[00:23:53] one French expert offered him 50,000 euros if it checked out. And he said, it smelled horrible. I left it, came back home, and looked it up on the internet. When I saw how much it could be worth, I went back and grabbed it. And then there was another story in the same newspaper two months later, which
+
+[00:24:08] revealed it wasn't ambergris. And he said, if I had my time again, I would kick the rock to one side and walk away. I wish I I'd never found it. I read that article as well, and it said it turned out to be just a smelly rock. Can we talk about poo very quickly? Yes, please.
+
+[00:24:29] Okay, cool. There's a museum in Tasmania called Mona. If you don't know Mona, it's very famous, very good museum. It's incredible. Best gallery I've ever been in my life, by the way. There's an art exhibition in the Mona Museum that takes a poo at 2pm every day. Sorry, the exhibition itself takes a poo. A very sick museum employee.
+
+[00:24:50] They erected a little plaque next to him. He's been trying to pass it off as... No, it must have been the museum. They have an installation which has been designed by someone which replicates the actions of a human digestive system. So it starts. It gets fed twice a day and at 2pm every day it produces a poo
+
+[00:25:08] and lets out the poo. Great. Yeah, they did it because they had a really successful exhibit just before it called the Voment. room. Sounds like an amazing museum. They call it the Adults Disneyland. It is.
+
+[00:25:22] I mean, is it still a poo? Again, we've gone philosophical, but I think that's worth sort of... All right. So stuff on ice cream, maybe. Yeah. In Uttar Pradesh in 2007, you could buy something called Hitler ice cream. And this was basically ice cream with a big picture of Hitler on it. It wasn't flavored.
+
+[00:25:44] Right. And apparently the people there didn't really realize the problem with doing such a thing. The guy who was selling it when interviews said, one of my uncles is a short-tempered and strict man, so we nicknamed him Hitler, and we called it after him. It's a good excuse. But they have form, actually, in India. In the same year, actually, in Mumbai, there was a home furnishing firm
+
+[00:26:08] who did bedsheets called the Nazi collection, which were full of swastikas. but when they were asked about it, they said that Nazi stood for New Arrival Zone for India. Wow. Very quick thinking, actually. Did you guys know that Ben & Jerry's has an ice cream flavor graveyard?
+
+[00:26:29] No, really? It's so cool. So it's for every ice cream flavor that has died over the years, which is actually quite a lot, so it's very sad. And it's a real graveyard. They've got tombstones in there. What?
+
+[00:26:40] They've got the name of the ice cream on the tombstone. and then they've written a little individual poem for each ice cream that's died as terrible death. And it's brilliant. So some examples are the ice cream shweddy balls. Why on earth did they get rid of that?
+
+[00:26:57] It's so impossible to know. Seems like a winner. I don't think we need to answer that. No, apparently that was based on a Saturday Night Live sketch from the 90s where Alec Baldwin talks about Shweddy Balls ice cream. I don't know. But yeah, that did not last very long.
+
+[00:27:13] long. There's a Vermonty Python ice cream which also died and the poem there is right then. Is it dead or isn't it? No it isn't. Yes it is. No it isn't. Rubbish. You're a loony. No, I'm not. Quite good. Makes sense, right?
+
+[00:27:30] Yeah, great. I didn't know that... I feel like I might be the only person that didn't know this but I didn't realize that Hagendars wasn't a real name in terms of... I thought Hagenhaz the ice cream was called Hagendars because either there were two people, one called Hagen, one called Dars. Yeah, that sounds reasonable.
+
+[00:27:47] So what it was was a Polish guy lived in New York, and he wanted just a nice Danish-sounding name, and his daughter said they would sit around the table, and he'd be like, Shplagin-Mas, Figen bars, Bergen-Dars, Hagen-Dars. And they went, that sounds good, that's why they called it. It was him around the dinner table going, Hagen-Dars, and they named it there.
+
+[00:28:04] Same for Rolex. There are lots of very vexed etymologies. We don't really know where it comes from. There are a few theories about it, but they all contradict each other. They think they just made it up because it sounded nice. Maybe. Yeah, yeah. That's one of the theories. Uncle Ben's rice is made by...
+
+[00:28:17] Don't tell me Uncle Ben doesn't exist, James. I'm really sorry. Come on. It was made by a German guy, German company, and they called it Uncle Ben's to make it sound more American. Oh, damn it. Wow. Mr. Whippy, do you know where that came from?
+
+[00:28:30] You know Mr. Whippy or Saft Scoop, if you're American? Ice cream. Is it not a story that it came from Margaret Thatcher or something? Yeah. There's a story that Margaret Thatcher was on the original team which developed Mr. Whippy ice cream, but I think it's not really true, is it? She was, I think she was a chemist for the company at the time.
+
+[00:28:48] She did work on ice cream, but not specifically on that. But the time that we came up with, the idea of, like, softer ice cream as a concept, a revolutionary idea, as everyone agrees, is this guy called Tom Carvel, who is an American, and he just sold ice cream, and his truck broke down in some really hot American state. He got a flat tire, and so he had to pull over, and his ice cream all started melting, and he was like,
+
+[00:29:08] oh, bugger, what do I do with this? And someone came up and said, said, oh, can I buy that? And he realized they had a just moving ice cream stool, and people wanted to buy melting ice cream. And so he stayed there. He set up shop next to a pottery shop, I think. And that's where Mr. Whippy came,
+
+[00:29:24] was melting ice cream accidentally, another accidental invention, much like panicillin. I didn't mean to revolutionize ice cream when I got up today. Okay, I think we need a wrapper. We've run out of time, everyone. Okay, that's it. That's all of our facts. Thank you so much for listening.
+
+[00:29:42] If you want to get in contact with any of us about the stuff we've said over the course of this podcast, we can all be found on Twitter. I'm on at Shreiberland, Andy, at Andrew Hunter M. James. At Eggshaped. Chazensky. You can email a podcast at QI.com.
+
+[00:29:54] Yep. And you can also head to No Such Thing as a Fish.com. That's our website where all of our previous episodes are up there or go to our Twitter handle at QI podcast. We'll be back again next week. Thank you so much, everyone, who's here. Thank you guys so much for coming along. And yeah, we'll see you then.
+
+[00:30:10] Goodbye. Thank you.

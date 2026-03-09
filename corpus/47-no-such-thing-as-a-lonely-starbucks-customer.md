@@ -1,0 +1,209 @@
+# No Such Thing As A Fish - 47: No Such Thing As A Lonely Starbucks Customer
+
+- Episode date: February 14, 2015
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/47-no-such-thing-as-a-lonely-starbucks-customer
+- Slug: 47-no-such-thing-as-a-lonely-starbucks-customer
+
+## Transcript
+
+[00:00:00] Oh, and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Common Garden. My name is Dan Schreiber, I'm sitting here with Anna Chazinski, Andy Murray, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, and that is James. Okay, my fact this week is that according to a 2011 Yugov survey, 27% of Britons neither love nor hate Marmite.
+
+[00:00:42] I love that. That makes a lot of sense. It is a great fact. I really love that. I mean, that's 27%, I think. I think I am too. I love it. I love it.
+
+[00:00:51] Yeah. Do you? But here's a weird one. But I hate Marmite when you take the comparison higher. So you would obviously love Vegemite Dan because you're Australian, but I actually prefer Vegemites of Marmite, and I think I'm probably the only British person who would admit to that. It's just better, guys. Well, I read an extraordinary story that IBM did a global survey of the most talked about
+
+[00:01:11] brands online, and they went through the internet scouring it for the most brands that we're spoken about, and the top brand, higher than Coke, higher than Nike, was Vegemite. More spoken about than any other brand. You don't need to speak about Coke because it's always going to be there. Yeah, it could be that. And the weird thing is that they tracked it down that 98% of Vegemite eaters are all Australian. How many?
+
+[00:01:36] What percent? Sorry? 98%. Well, that sounds right. I don't think you can buy it anywhere else. You can get it overseas now. You can get it in the supermarkets here. But so what's even more interesting is that it wasn't like they were tracking it to Australia.
+
+[00:01:47] They were tracking it globally. So they know where all the Australians are around the world through Vegemite consumption. Yeah, that's great. I mean, that's not obviously all the Australians, but it's like it's just it gives you a great map of how spread out Aussies are around the world. You could probably do the same with British and baked beans. Yes. Yeah.
+
+[00:02:06] Although Vegemite is now really popular in certain Asian countries, like in Hong Kong, it's all sold out in Hong Kong from all supermarkets suddenly. And that was when it was connected to umami flavor. So there was like a little press around at some point, which said that is the umami flavor. And because that's, you know, hailed as a brilliant flavor in particular in Japan and Hong Kong. Um, suddenly it's incredibly popular.
+
+[00:02:27] Wow. Right. Hey, guys, are we talking about Vegemite on this podcast or are we talking about James's fact about Marmite? My fact's about Marmite. Don't bring your Australian wings over here. I didn't know it's got celery in it. Is it?
+
+[00:02:40] Yeah. Marmite is made with celery. Wow. That must mean it's so good for you. Yes. It also has like remnants of beer in it, doesn't it? That's what it's made of. Yeah.
+
+[00:02:51] It's like extract from the beer making. Is it still? Well, probably not anymore, but that's where it originally came from. If you've got your youth left over, you may as well use it for a little while. I wonder why I was not drunk after breakfast. That's because you have a serious problem, I mean, it's because you're always drinking at breakfast. I don't think it's the Marmite.
+
+[00:03:06] It's the Pint of Wine. I blame the Marmite. I think I must have had a bad slice of Marmite. It was speaking of drinking. They released on Valentine's Day in 2008, they released Champagne flavoured Marmite. I don't know about that, it had 3% Champagne in it. Now, I would have thought that the Marmite would overpower the 3% of Champagne. Marmite is a famously mild flavour.
+
+[00:03:33] Marmite, do you know what it means? It means our Marmite is an old French cooking pot. So you know on the front of a Marmite jar, there is the little picture of a red and yellow of a casserole dish. Of a casserole dish, that is a marmite. Yeah, it's because it was originally made to add as like a little bit of extra to casserole's. That was the point of Marmite in the first place. Oh really?
+
+[00:03:54] Yeah. Like flavour. Yeah, it's like a stock cube or something like that, because it was invented by the same guy who invented oxo cubes, who was called Justus von Liebig and he was the first person who realised that you could take like the yeast extract and turn it into something you could eat. But he is also known as the father of the fertiliser industry, because he discovered that nitrogen is essential for plants and he also developed a breast milk substitute
+
+[00:04:21] for babies. Wow. Wow. So he's a proper busy guy. Yeah, yeah. So wait, hang on. Archetypal in British Marmite was invented by, was he German? Justus von Liebig sounds German.
+
+[00:04:32] Yeah, I think he was actually. I think his main manufacturing place was in Frey Bentos, which is in Uruguay as well. Yeah. Why do you call it Marmite? He should have called it Justus, so he could say, Justus will be served at breakfast. He would have you on his marmite scene team. So was his breast milk substitute Marmite? He just claimed to have invented it.
+
+[00:04:54] I've invented a delicious aperitif. It's a Marmite shot. And a fantastic new hemorrhoid cream. There are a lot of articles online about Marmite because it's something that people like talking about. And I read this phrase, Marmite won two world wars. Okay, that's not strictly true. It's the fastest climb down from the assertion of a fact I've ever read.
+
+[00:05:21] And that was on a BBC article about it. But what they mean was it was in Soldiers Rations in the First World War. Yeah. Because it's good for vitamins. Spam, condensed milk, and Marmite basically, didn't you? That's a meal. They had this kind of corned beef stuff that no one liked. And so few people wanted to eat it that they ended up just using it to prop up things in
+
+[00:05:42] the trenches and the crates and crates of this stuff that no one would eat. I think they were overindulged in the trenches if they were just using their food as a pausing material. Not genuinely they did because they liked some of it. How bad was it? You think they were overindulged in the trenches? I was just saying. Just replay that.
+
+[00:06:01] How ever much? You think that the rancid meat they were served, which they could only walk on? Wow. I think they were a little bit spoiled. So the thing about the actual slogan itself was that it was just a genius slogan. Yeah. In that it just created a whole lot. Oh, love it.
+
+[00:06:24] Yeah, it was just fantastic. And I was looking into a few slogans and I read the most popular slogan. We mentioned it slightly by saying if British people were around the world. Heinz makes beans or whatever it is. Beans means Heinz. Yeah. Supposedly the most successful of all the slogans. Do they know on what metric that's the most successful in terms of the most people who
+
+[00:06:46] remember it? Oh, yeah. I don't know. It was just a poll to say which was your favorite. It is very good. Beans, beans, Heinz. This led me to a kind of little snoop into the world of slogans, which I just, I found, I was, I ended up looking at basically the last Brazil World Cup.
+
+[00:07:03] They all came in with country slogans. Did you see the slogans? I don't remember. Each country had like a brand new slogan that they brought with their country. Okay, so give us a country and we'll see if we can work out what they were. Okay, Argentina. Give us the Falcons back you bastards. Is that it?
+
+[00:07:22] No, that's a rather boring one for them. It's not just a team. We are a country. France. This is my favorite one actually, the French one. Total France. No. So it's impossible is not a French word, which I love because it literally is.
+
+[00:07:40] That's amazing. I think that that French line impossible is not a French word. It was originally a Napoleon quotation. Yeah. Okay. Just in case we get to that. So that's quite good then. Yeah.
+
+[00:07:55] He was also wrong. Yes. This, I really like this story is from an article against sort of, you know, interesting facts about Marmite. I'm quoting directly, in 2009, a Marmite obsessed thief targeted a petrol station and stole 18 jars over a month. Ultimately, the owner stopped stocking it to prevent him striking again. I love that you go into like Tesco's and there's nothing there.
+
+[00:08:20] It's like, well, we've had no rubberies for the last three years. That's what they said, wasn't it? I read that article and they were like, well, what's the point of us putting it on our shelves if this guy is just going to nick them? There's no point. I know, but it's just a capitulation. Yeah. To theft.
+
+[00:08:35] It does feel like that guy is one. Shall we move on? Yeah, let's move on. Do you want to add one more thing I read? Former Chelsea footballer, Nicholas Anelka, is said to be scared by Marmite. Why? I don't know, but he always goes to that petrol station these days. Yeah.
+
+[00:08:55] OK, time for fact number two. My fact this week is that the Knights of the Round Table included Lancelot, Gawain, Galahad and Gareth. Gareth the Knight. What was his job? He was, well, he was just like a classic Knight. The weird thing, though, I was looking. He's not one of the famous ones, is he?
+
+[00:09:13] He's not. And I was looking into him. He's actually Arthur's nephew, which just seems like autism in the workplace. Here we go. I can't believe there's a new seat at the table. Yeah. I think he was going to be one of the great Knights who's finally made his way. Because you know there were lesser tables?
+
+[00:09:28] No. Really? Yeah. Were there other shapes as well? I'm not sure. They're an oval table and then. It was kind of like a main hall where they had, I mean, it obviously never happened. But like, there's a novel that's come out talking about the lesser Knights and I didn't
+
+[00:09:42] realise that the novel actually has a basis in what is closer to the actual mythology. There were lots of other tables where there were like older Knights who were retired and there were. So it's like at a wedding where you've got the head table and then you've got the really crap one in the corner with tedious people. Was there a Trapezium table? Were there the Knights of the Trapezium table? Or the Rhombus?
+
+[00:10:02] The Rhombus table. Just some of my favourite shapes, I thought I mentioned. So they have round tables at Starbucks, apparently. Oh yeah. The reason for that is that people look less alone when seated alone at a round table. Really? Yeah. Yeah, that makes sense.
+
+[00:10:18] Because there's no obvious place for other people to go, whereas at a square table I suppose you want other people on the extra edges. Yeah. So Gareth. Yeah, so he was the nephew. We don't know anything else about him. No, no, there's quite a lot. I mean, he's a big part of the story.
+
+[00:10:31] It's a bit unfair to say that he's the nephew and make that sound as a bad thing, because actually quite a number of the other Knights were nephews of Arthur as well. Just because everyone got in on special favours doesn't mean it's any better than Gareth. The only thing I know about him is that his nickname was Beaumar, which is Beaumar as the French word, beautiful hands, which people teased him saying, hey pretty hands. Teased Gareth? Yeah. But that does imply that he's not getting his hands dirty by killing dragons and stuff.
+
+[00:11:01] Yeah, it does, yeah, yeah. I think he was a kitchen assistant or something like that. He was, yeah. Is that right? Yeah. For a while when he was sort of undercover. That sort of period where a really rich, famous person goes into the slums and sees what it's like to be a normal person.
+
+[00:11:14] When he was undercover with his massive shield and massive sword and chainmail. Yes, exactly. Peter the Great went undercover all the time. Did he? He loved doing it, yeah. And he was about seven feet tall and clearly the Tsar of Russia. So it was very hard for him to do. And he had a big group of people with him, didn't he?
+
+[00:11:32] Like 30 people walking along with him and he's going, nope. I'm not him. Right. Yeah, but he got a job in a shipbuilding yard and he would only answer to the name Peter the Shipbuilder. And we would bring him matters of state in the evenings after he finished building ships for the day. Wow.
+
+[00:11:47] And then he would sign a few documents and things and then he'd, well over time. He's kind of got it wrong if he calls himself Peter the whatever he does. Yeah. Old habits die hard basically. Yeah, he couldn't help it. But I think people like pretended to not recognize him, didn't they? To make him feel like he was being successful. I guess it was easy to go undercover in the olden days, you know, the pre-photography
+
+[00:12:08] days. There was a rumour down at the time, wasn't there, that the way Marie Antoinette was captured was because someone recognized her from the coins. Really? And that's, and reported her to the authorities and that's why... There's been really funny ideas. Someone looking at the coin and then looking up and looking back at the coin and going, wait, excuse me madam, could you stand sideways for a minute?
+
+[00:12:33] Back to knights. Yeah. What would you guys say at night tournaments in the Middle Ages? What was the main sport? Jousting. No, it wasn't jousting. It was always a side sport. The main sport was always the melee, which was the big group fight where all the knights
+
+[00:12:49] gouted in towards each other and had a group fight. Oh, like a melee. Yeah, where you get melee from. Jousting was always just a side avenue. And a lot of rulers and people campaigned to get jousting banned because they thought it distracted from the main melee and they thought it wasn't a necessary part. And Count Philip of Flanders actually used to turn up with a whole retinue and declined to join the melee.
+
+[00:13:14] And so make sure everyone else got in the melee. And then when he was jousting, he'd be able to win the joust because everyone was tired from the melee. And so people wanted to ban the jousting. I think it's true that the only reason more people didn't get killed in the melee was because the main name was to capture other people. Oh, really? And then you would sell them their armor back to them because it's very embarrassing.
+
+[00:13:32] They basically ransom your armor from you. Yeah. Would they go in with a lance? Lance a lot would. Okay. A lance a lot. There's a guy called George Lance a lot. He's in the news quite recently.
+
+[00:13:47] He's had 176 convictions for repeated swary outbursts. Swary outbursts? Yes. He's been arrested for abuse a few times and he claims to suffer from personality disorder which makes him swear and rant whenever he is out in public and he's been drinking. And recently he was sent to prison for a short amount of time. As he was led from the dock in extra crown court, he shouted, I get less for burglary, fuck off.
+
+[00:14:15] In his defense, he had been drinking. Have you guys heard of the game King Arthur? No. Or played in fact? No. This was a game that sailors played in the 16th and 17th centuries. So you'd let one crew member to play King Arthur and he'd be dressed up in ridiculous robes and apparently wear a wig made of rope.
+
+[00:14:36] And then everyone else of the crew would have to be formally introduced to this King Arthur and they'd have to tip a bucket of freezing cold water over his head. So it's like the ice bucket challenge. It's a bit like that. But if you, when you tipped it over his head, and obviously I guess his reaction was quite amusing, if you cracked a smile or a laugh, you had to swap places with him and you had to become the King Arthur character. Wow.
+
+[00:14:56] That's great. When you shouted, you said hail King Arthur, tipped a bucket over his head. Had to keep a straight face. I nominate Long John Silver. So just back to the knights very quickly. Because I'm not of your country. I didn't really get an upbringing totally with it. Obviously you guys might have, I'm guessing, in school.
+
+[00:15:17] Was it a big part? Been knighted. No, no, no. Just King Arthur, the whole mythology. Not really. Not really, no. Doesn't get to a lot, yeah. Oh, okay.
+
+[00:15:26] Have you all seen the Sword and the Stone Disney film? Yes. I haven't. Oh, well, it's the best Disney film. There's a really hot squirrel in it. That is true. It's true, right? She's pretty fit, yeah.
+
+[00:15:36] She is sexy. Like the fox in Robin Hood, for example. That was Robin Hood. What? Oh, yeah, yeah, yeah. Sorry. He's a very handsome fox. He's a handsome fox.
+
+[00:15:48] Yeah. But so there's no basis of truth in it whatsoever, right? There are certainly claims. There's a claim that a huge round table that hangs in Winchester Hall is the real round table. Basically, what happens is, there's this mythology, which most people think isn't true, but there might be some kind of historical basis to it, probably not. And so when you have anything like that, it means that everyone can claim part of it. Okay.
+
+[00:16:12] I think the latest theory is that, so it's a bit like Robin Hood, I think, is that people often come up with theories of where the Arthurian legend might have come from, and the latest is that he was Kazakhstan-y. Oh, wow. Realised modern interpretation, Kazakhstan-y king. But he was a mythical Kazakhstan-y king, as opposed to a mythical English king. Is that right? Very cool.
+
+[00:16:29] There's another theory that he's Croatian, because his wife was called Igrejn, and there is a town called Igrejn in Croatia, and they've decided, well, it sounds the same, so she must have been from here. Fair enough. So just with the round table, and Gareth specifically, it turns out that Gareth's death is what led to the sort of breaking up of the round table of the knights being there all the time. So they really did care about that little kitchen.
+
+[00:16:53] They loved Gareth, yeah. He was a big, he wasn't just the nepotistic nephew coming in, he was very much loved. So Gareth, that was actually the first use of the name Gareth in recording. Yeah, I read one theory that it was a mistake by Mallory. Oh, okay. He was supposed to be called Gahariat, but he'd misheard Gahariat and said Gareth instead. I mean, it's not that much as we're having the female name Harriet as the main part of your male name, to be fair.
+
+[00:17:22] So do you think we could say that Gareth, in the same way that like Joe Anna is the female version of Joseph or whatever, Josephine probably, do you think we could say that Gareth is the male version of Harriet? I can think of a better male equivalent of Harriet than Gareth. It's taken me a while. I don't know what you're talking about. It must be a really obscure name. Let's move on to fact number three, and that is Andrew Hunter Murray.
+
+[00:17:52] My fact is that the Ministry of Defence owns 15 golf courses. This is the British Ministry of Defence. Why? Do we know why? Why not? It's hard work killing the enemies of the crown. You can't relax and have a quick nine. I think it's because you know when you watch a James Bond movie and I know Ministry of Defence is different MI6, but they must have their spies as well, right?
+
+[00:18:18] Ministry of Defence. Whenever you see a James Bond movie, Bond is brilliant at everything. You don't become brilliant at everything without training like crazy. Without being good at golf. Yeah. Well, golf would be one of the things. There will be a Bond movie where he plays golf. He plays against Goldfinger.
+
+[00:18:33] Well, there you go. You assume down at the Ministry of Defence also owns like loads of tennis courts. They got tennis courts. They got bowling alleys. I think I read that they do have like polo. Pocotables. Pocotables. Ski resorts.
+
+[00:18:45] They've got a dart board. They've got a dart board. They've got a scrabble bar. They've got it all. They've got one spy waiting for the evil villain who plays Shove Haykney. Twister. It's... Yeah, hey.
+
+[00:18:58] Can you imagine? I want to see the inventory of Mr Bond. Everything that they have. Redfoot green. Do you say redfoot green? Redfoot green. Redfoot. Mr Bond caught redfooted.
+
+[00:19:11] Another thing the Ministry of Defence has is... This is in their list of achievements for 2014. Completed a rollout of Internet Explorer 8 as its default browser. Not bad. It's still impressive. Still on Internet Explorer. And not only that, Internet Explorer 8 came out in 2009. Wow.
+
+[00:19:35] Have you heard of Kabul Golf Club? No. This is the only golf club in the whole of Afghanistan. Right. And the course rules specifically call the greens, browns. Yeah. Because it's very, very dry and there's no grass. So basically it's all sand but they make the greens more compact, don't they?
+
+[00:19:55] Yeah. I think. And it used to be an area for training in the removal of mines. You have to carry artificial turf with you sometimes. Put that on the ground where your ball is. And play off that to the next bit. And then carry your artificial turf with you. That happens.
+
+[00:20:11] Put it under the ball. That happens in actual, not like professional golf. But if you're a member of a golf course, some golf courses in the UK. Right. You'll carry some artificial turf. Really? In the winter. Because they don't want you hacking up the mod.
+
+[00:20:23] Alright. So you bring your own bit of artificial stuff, put it down, put the ball on and play it off there. That's fantastic. Yeah. I think that's really cool. Yeah. So what the first crazy golf course was. No.
+
+[00:20:33] It was, it's still around. It's at St Andrews. And it's a putting green. And it's got loads of real big hills on it. So the ball goes in all sorts of directions. And it was invented because ladies weren't allowed to play on the golf course. So they gave them this little like fake golf course to play. And then it became so popular.
+
+[00:20:52] Because actually it's a lot more fun than proper golf. If you're not good at golf. And then everyone started playing it. And then they kicked the women off that one as well. No, no, no. You can, you can play this tiny golf you first invented. With your fingers. A little cocktail stick for a golf club.
+
+[00:21:09] That's so funny. It's a true Mary Queen of Scots first female golfer in records. Yeah. That is true. Records though are tricky things. But yeah, I think it is. And I think James the fourth of Scotland was the first recorded golf player. Again, he definitely wasn't the first ever golf player, but he played in 1502.
+
+[00:21:27] He lifted the band that had previously been in place on playing golf. Because it was encouraged to encourage archery practice. Golf was not allowed. Because, you know, if you can't play golf. Yeah. His grandfather banned it. Didn't he? Yeah.
+
+[00:21:42] So probably part of the reason that he lifted the band was he realized that cannon would probably replace archers in time. So it wasn't as important for everyone to be doing archery practice. Long-sighted. Yeah. Quite a lot of famous people in history have, have been known for playing golf. Haven't they? I think Rodged Kipling was a big golf fan.
+
+[00:21:58] Oh yeah? And it's claimed that Rodged Kipling, I mean it's true that Rodged Kipling invented snow golf. But it's often claimed like this is a sport that now we're all playing. And did you know that Rodged Kipling invented it? I'm almost constantly, it's getting a bit out of hand actually. I'm out of snow golf I play. I don't do any archery anymore.
+
+[00:22:16] Okay, so there was a golfer in Benin called Matthew Boyer. Okay, this might be a made up story, but it's all over the internet. One day he played a shot described as a glorious slice. The ball hit a bird which in turn dropped onto the windshield of a trainer jet. That trainer jet pilot then swerved out of the way and took out four new Mirage jets and in one go totally demolished the entire Air Force of Benin. Wow. Through one golf shot, that's what happened.
+
+[00:22:47] That is impressive. And they worked out it would take him 145,000 years to pay off his debt. Wow. Did he yell out in the court? I would have got less of a burglary. Fuck off. It could be a cool catch phrase. You're leaving court every time.
+
+[00:23:07] Okay, time for our final pet and that is Chazinski. My effect is that the rise in the use of female contraceptive pills is causing fish to become too effeminate. So this is a genuine problem. This is about how a lot of women use a female contraceptive pill. Understandably, it's a great thing. But that does mean that we end up flushing out of our system a lot of female hormones that go into the drains and get into rivers and the fish take them in
+
+[00:23:35] and it causes this thing called intersex, which means that a male fish will stop producing sperm, it will start producing eggs and then it damages fish populations because it's thought they can't really breed as well when they stop doing that. So yeah, bit of an issue. Stuff being flushed down the drain. Huge issue, yeah. How can there be that much that's going into the fish hanging out by the source of the sewers?
+
+[00:23:57] It's a good point. So yeah, it does take the tiniest amount to have an effect on them. So they added, it's EE2, which is ethanol estradiol, which is the main active ingredient of contraceptive pills, which triggers the condition in fish. And so they added five parts of that per trillion to water to test it out and it still had an effect on the fish. That's extraordinary.
+
+[00:24:20] So I was just other things that go through the drain systems and out in the ocean. I was talking to this lady from the Natural History Museum, Sandy Knapp, and she's actually, it's not relevant, she's a curator of potatoes and tomatoes, but what I'm talking about is facial products. She was telling me, she gave me this little vial of these little blue beads and she was saying these beads are from when you wash your face with face wash. It's those microbeads that they say they're inside the thing. And she was saying, what do you think these are made of?
+
+[00:24:49] And I assumed it's a natural product. And she said, no, it's a little bit of plastic. And the plastic is now, apparently when it goes through the drains, that gets forced out into the ocean. It makes it through the system. Fish are eating it, becoming toxic. It's actually poisoning the fish. And then when you eat the fish, it's actually harming us now.
+
+[00:25:05] Apparently it knocks up radiation levels or something. I've probably gone all Sudoi there at the end. And that's in moisturizer. It's in like a face wash. You normally have those microbeads. Yeah, if you buy face washing, it's kind of a bit rough. You know, when you buy face wash. You know, when you wash your face.
+
+[00:25:22] Never done that. Humans are paying for their vanity now, aren't they? You said that like you weren't a human. You people will suffer. Puny mortals. So industrial pollutants are shrinking the genitals of polar bears in Greenland. That's their excuse. They should just be playing down the cold, shouldn't they?
+
+[00:25:44] But apparently weakening their penis bones. Wow. Industrial pollutants. And also there's a chemical used to paint boats on the western coast of Australia called TBT. And that causes female sea snails to grow male sex organs on their heads. Wow. That is pretty comical. That's an odd mutation, yeah.
+
+[00:26:06] That is a funny one. The good news is that the percentage of snails with the penis on the foreheads is going down. And the size of the penis is shrinking thanks to a decreasing proportion of chemical in the water. That is good news. I think we all know what the most common insult is in the snail population there, don't we? It's a pretty straightforward one. So another fish that would change sex is Nemo from the film Finding Nemo. Okay.
+
+[00:26:39] Did you know about this clownfish? I mean, if the story went as a proper clownfish life cycle does, Nemo would hatch as a hermaphrodite, because all clownfish are born hermaphrodites. And when the female mate dies, Nemo's father would have turned into a female. Now, because Nemo is the only other clownfish around in this setting of the film, he would then become a male and mate with his now female father, unless his father dies, in which case he changes into a female and goes off with another male. I haven't seen this movie, is that not what happens?
+
+[00:27:14] That's pretty much it. That's the extended director's class at the end. I did read that the mother of Nemo dies after four minutes and three seconds of Finding Nemo, eaten by a barracuda, apparently. But this was in a story... Spoiler alert! Spoiler alert! For those who've only made it two minutes in. But this was in an article that says that two-thirds of children's animated films
+
+[00:27:39] contain an on-screen death of an important character compared with only half of comparison films. So there are more deaths in children's films than there are in adult films. So basically, it's either a dead parent, a single parent, or a mother who turns into a father who turns into a mother who has sex with a child. Usually one of those plot lines are the three classic. That is a fully functioning fish family that you just described. So on Finding Nemo, there's a book that's just come out, I think,
+
+[00:28:07] which is called Water, the Past, Present and Future, which is quite interesting. And that states that one of the reasons that Finding Nemo is set in Sydney is that Sydney is one of the only places in the world, so one of only three English-speaking places in the world where you could flush a fish down a drain and it would make it to the sea without dying. What would happen to the others? The others are going to get ground up and crush to death in various sewage treatment plans. Oh dear.
+
+[00:28:35] Yeah, in fact, there was panic when Finding Nemo was released that kids were going to start doing this to their fish to free them. And so they released a statement saying, actually, a better title for this film would have been Grinding Nemo. Because, actually, if you do this to a fish, it will end up crushed. Wait, who released that statement? It was the... It was the National Pun Laboratory.
+
+[00:28:54] Was it an animal rights group? No, it was someone involved with the film. Oh, OK. Is that helpful, though? Because children don't normally read a lot of statements. Well, I appreciate a good pun in the title. Apparently, there was a rise in parents calling plumbers going, how do I get my fish out?
+
+[00:29:10] We flushed it down, is it going to be saved? Really? Yeah, yeah. Because children were just doing it. And there was also a lot of children, even though it doesn't exactly hold up the virtues of owning a clownfish, because he does just escape, there was a problem with kids suddenly wanting clownfish.
+
+[00:29:26] And I think there was a certain sea that they were just taken from where it was emptied of all its clownfish. Oh, really? OK. The damn selfish. I know. No, that's actually the group of fish that clownfish are from. They're called damn selfish.
+
+[00:29:39] It's not a cool name. The damn selfish. Wait, damn selfish. One word. Oh, damselfish. Is that how you say it? Yeah. Oh, yeah, well done.
+
+[00:29:53] Quick question. Why do people flush goldfish down the toilet and not eat them? For the same reason that people bury their dogs and don't eat them? Yeah, but we eat fish. We don't eat dogs. OK, good point. There's fresh fish in the house now. There are so many reasons.
+
+[00:30:13] Yeah, are there? Right, here's one good reason. Yeah. If your fish has just died, you don't know what it died of. It could have died of a disease or something. OK. So you won't want to eat it in that way.
+
+[00:30:22] That's the one extremely good reason. That's not the reason I didn't eat my hamster, for example. Also, I don't ask for a certificate of death when I'm in a restaurant or the board is a haddock. But you do understand, don't you, that the restaurants have asked for that? At some point, the restaurants have to go through a process where they make sure their fish are healthy to eat.
+
+[00:30:41] They just find dead animals. You've seen those big ads in the newspapers. We buy dead fish. Cash for dead fish. Cash for goldfish. It just seems you're throwing away food. One story I like about Finding Nemo is that when Andrew Stanton, who had the idea
+
+[00:31:06] and pitched it to the head of Pixar, John Lasseter, he did it in and set it in the Lasseter over an hour and he had lots of visual aids and character voices and it really tied him out, he says. And at the end of it, he was like, oh, Lasseter, what do you think? And Lasseter just went, you had me up fish. OK.
+
+[00:31:25] So some stuff on contraceptives. Maybe. Why not? Sponges were used as contraceptives in the 1800s and 1900s. They would use them with spermicides. OK. What and put them into themselves. So they would be used with things like quinine and olive oil
+
+[00:31:44] and that would supposedly be a contraceptive. And some even doubled as household cleaners and one was advertised as a dual treatment for successful womanhood, which means contraception, and athlete's foot. Two for one. I don't know which order you'd want to do that. I do.
+
+[00:32:05] I say, now my athlete's foot has cleared up. But I have 20 children. OK, that's it. That's all of our facts. Thanks so much for listening. If you want to get in contact with any of us about the things we've said over the course of this podcast, you can find us all on Twitter.
+
+[00:32:21] I'm on at Shriverland, James. At Egg Shaped, Andy. At Andrew Hunter and Chazinski. You can email podcast at qi.com. And you can also go to knowsuchthingasafish.com where we have all of our previous episodes. Have a listen and we're going to be back again next week with another episode.
+
+[00:32:38] We'll see you then. Goodbye. Thank you.

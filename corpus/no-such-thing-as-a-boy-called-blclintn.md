@@ -1,0 +1,207 @@
+# No Such Thing As A Fish - No Such Thing As A Boy Called Blclintn
+
+- Episode date: August 12, 2016
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-boy-called-blclintn
+- Slug: no-such-thing-as-a-boy-called-blclintn
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber. I'm sitting here with Anna Chazinski, Anne Miller, and James Harkin, and once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in a particular order, here we go. Starting this week with MyFact, My Fact. My Fact is, that the Olympics used to have a race just for old ladies. Exclusively for old ladies called the old ladies race or old women racing. They didn't put much thought into the name, did they? It wasn't, yeah. The Ron Seal approach.
+
+[00:00:50] There was a fuller name, actually, where it said old ladies racing for a pound of tea. Well, that sounds much better. I'd watch that one. Well, no, it turns out, you might as well be saying men doing the 100-meter sprint for a gold medal because the pound of tea was the prize. It wasn't like Rehan Racing where it's on a string. But they did get it, right? They got the pound of tea.
+
+[00:01:12] Yeah, we should quickly say that this is not what we all perceive as the kind of the modern Olympics, the Olympics that are going on in Rio right now. What this is is a much older version of the Olympics that started in a place called Much Wenlock. And this was back in the 1800s. This was way, way before the modern Olympics started again in Athens. And one of the races was this? It wasn't that much before, was it? Because was it not that Ducbatan who started the Modern Olympics visited Much Wenlock and it kind of gave him a bit of the idea?
+
+[00:01:40] Yes. He actually credited William Penny Brooks, who was the guy who set up the Much Wenlock games as the originator of the Olympics. So even though everyone thinks of DeCubatan as being the guy who brought us a modern Olympics, he said, no, it was this chap. Ah, good on him. Yeah. And he also, they basically wanted to get him over at a time to actually see the Olympics in full flow in Much Wenlock. But they ran out of time he couldn't get over. So they just had to put on a few events when he eventually visited just as an example of what it looks like at the Olympics.
+
+[00:02:08] Is that what the hastily improvised old ladies race was? The only people who weren't at work that day. Yeah, exactly. I have to take issue with that race because do you know how old the old ladies were? Go on. I mean, it's over 40s. Over 40s. Yeah.
+
+[00:02:24] Anyone over 40 is an old lady. But you're not thinking in terms of, it's like dog years with athletes. So Michael Jordan retired from basketball for the first time at 30. Technically, if you're in your 40s, you are a sports old person. According to the sports. According to sports. It by sports rules. And by 19th century rules, life expectancy is shorter.
+
+[00:02:45] Even so, it hurts as someone who's only a decade off being 40 to read old ladies referring to 40-year-olds. Yeah. Not that far off. It's not. James, you're knocking on the door. I'm only 25, of course. To the nearest 25, I'm still 25. You're halfway there then.
+
+[00:03:00] Yeah. But yeah, so the, in 1856, the race that you're talking about, the winner, a 45-year-old winner, Mary Speak. And she defeated the person in second place who was a 38-year-old called Anne Meredith. Wait a minute. Hang on. She's under 40. How did she sneak in? Was it not even necessarily over 40s? No, no. It wasn't over 40s. It was just people who look a bit rough. She didn't even win. Yeah, she came second. She got beat by a 45-year-old. Yeah.
+
+[00:03:28] It's embarrassing. 38. Yeah. So I found this fact in this month's issue of the 40 in Times, and there's an amazing article by a guy called Rob Gandhi called Faster, Higher, Stronger, All about the Much Whenlock Olympics. That sounds like a great daft punk song, isn't it? Yeah. Faster. Higher, stronger, weird. So they were pretty weird, a lot of the contests at those Olympics, weren't they? And it grew out of something which wasn't supposed to be specifically sport. So it was actually set up as more of an educational thing.
+
+[00:03:58] And so in the 1950s, when the much one-lock games were happening, a lot of the races or competitions were things like essay writing or poetry or art. Oh, I always thought it was bad at sport. Yeah, you'd nail this one. The other artie events that happened there, there was Best Odes. You could enter the Best Oads competition. Glee singing. That was one as well.
+
+[00:04:23] Ahead of their time. Yeah, glee singing. What you just sing, don't stop believing. Yeah, exactly. But she don't stop believing hadn't been invented yet, so they had to provide you an ode. Yeah.
+
+[00:04:33] Yeah, really enthusiastic ode in a group. Knitting was another one, and then knitting stockings was another one. That was a separate category. But, Anne, you can knit as well, can you. Yeah, really slow. You'd be a double gold medal when they're in the Olympics. I would be kicking ass.
+
+[00:04:50] Could you enter your knitted stockings into both of those competitions? The knitting and the stockings knitting or was it all knitting except stockings was allowed to enter knitting? I don't know if they were accepting finished knitwear. You know what, if they're allowing 38-year-olds in the over-40s race, I think they're not sticklers for the rules, really. Just because James just mentioned the word stickle,
+
+[00:05:11] so there was another kind of Olympic games that preceded these Olympic games, and they were actually the Cotswold Olympics, which started either in 1622 or 1612, we aren't quite sure. But I was reading that the Cotswold Olympics, which had various weird sports like shin kicking, It's not that weird. I'm from Lancashire. We do that all the time.
+
+[00:05:29] Proud traditions. Sorry. In barrels. Yeah. In barrels. How do you reach each other's shins when you're in barrels? You're in the same barrel. Oh, you're in the same barrel.
+
+[00:05:39] Tan just brings his own barrel and sits in it alone. No one will kick me. But anyway, the umpire of these mainstream serious sports like shin kicking was called the stickler. And I think there's a theory that maybe he was called the stickler because he held a staff or it might just come from another old English word. But that's where we get stickler when we say he's a stickler for the rules. It comes from that umpire. They were quite violence as well these contests. There was once a sword fight
+
+[00:06:04] between Sir German Poole and Mr. Hutchinson and Mr. Hutchinson lost three of his fingers before he'd even drawn his sword. And then he responded by slicing off Poole's nose and pocketing it so it couldn't be reattached. What?
+
+[00:06:20] Wait, we've got an hour to reattach it. It's in the guy's pocket. It's gone. That's as good as gone. But it's still going. This year, they just in July, they just did the 130th much one lock games. And it's still got interesting events. I look through the events that were done this year. Golf was won. So golf's just joining, isn't it?
+
+[00:06:38] The Olympics. It's just joining the Olympics. Yeah. Gliding was one. Oh, yeah. It was a gliding event. I reckon they're not going to have professional golfers there, are they? Doubted.
+
+[00:06:48] So I wonder how good I'd have to get. Yes. And anyone can enter, James. You could genuinely enter the golfing tournament and win an Olympic medal. Yeah. And if there's still, I don't know, knitting and poetry and odes. I was not going for the writing rather than the odes. You just need to speak the writing.
+
+[00:07:05] That's all the odors. I stick to shinke me if I mean. Yeah, Dan, you can go and bring your own barrel. No one will kick you. I'll bring my own barrel, but I'll just be a spectator. Right. Stopping. Old ladies race for her.
+
+[00:07:22] Give an eight more years. I'm not risking second place. Should we move on shortly? Wenlock, do you remember the really horrible London Olympic mascots? Wendlock Amanda. They were like a big eye on a TV remote. They were made by Hornby, who made the train sets, and apparently wiped a third off their value because they did so badly.
+
+[00:07:40] Really? Of the company? I think it was at one point, because they sold so poorly that they had to issue a profits warning, and their stocks went way down. Wow. I've got some stuff on modern-day old ladies running. Oh, okay.
+
+[00:07:53] So the world record for the 100 metre dash for people over the age of 100 or women over the age of 100 has just been beaten by a South Carolina middle school teacher called Ella May Colbert and she beat the record in 46.791 seconds or 100 metres. She came very far behind the other competitors but because she was older, she was in a different category so she broke the record for her age group even though she didn't do it. Oh really? So she was there racing with everyone. 20 something people who were doing it. I think he was still citizens. It was Tyson Gay, Usain Bolt of this lady.
+
+[00:08:37] Yeah, it was one week after celebrating her 100th birthday that she did that. So there's a guy called Fujar Singh, who I think is one of our greatest athletes in the UK. He holds the UK records for the 200 metres, 400 metres.
+
+[00:08:53] 800 meters, mile and 3,000 meters for the over 100s. And he set all of those records within a single 94 minute period. Yeah. He's awesome. And he wants, so they're UK records,
+
+[00:09:09] and he also once set five world records in his age group in a single day. And some of the events that he got the world record for, they didn't have a record holder because no one over the age of 100 had ever even attempted them. Wow. That's pretty good. That sort of puts your old lady to shame a bit, doesn't it?
+
+[00:09:27] What, my, oh, the, yes. Don't talk about my wife. Okay, it is time for fact number two, and that is Anne. My fact is that there was a Victorian comic song that was called Tony Blair. That's so good. And it goes? I can't find it. Oh, really?
+
+[00:09:47] Yeah, no, we don't know how it goes. So if anyone listening knows the song or has the sheet music, please do send it in. There could be an Olympic medal in that. Yes. If we bring back Dan's Odes, chance. challenge. So I found this on the BBC's 10 Things We Learned this week, which is a great feature they do every seven days. And it was by a guy called Jeremy Clay, who's on Twitter at Ludicrous
+
+[00:10:06] Scenes, who writes a column for them called Victorian Strangeness. So we checked out online on the newspaper archive. And this is a report from the Croydon Advertiser and East Story Reporter, October 1879, of a performance by a group called the Black Diamonds. And it followed a performance of a song that was called BROWN, which I like to think is Gordon Brown's version of R-A-S-P-E-C-T. And B-R-O-W-N quote, excited much laughter, as did Mr. Harrison's rendering of Tony Blair. Wow.
+
+[00:10:36] I would really like to see Gordon Brown dancing and singing R-E-S-P-E-C-T, but to B-R-O-N. Do you think we could make that happen? There's a lack of letters in his name, isn't there? So he's not going to scan. He could do it to the song D-I-S-C-O, couldn't he? Or you could spread the W into three syllables. That's kind of work.
+
+[00:10:55] BROWUN. BROD. Why his advisors weren't making him explore this option at the time of his tenure? Yeah, that's hilarious. So this is definitely real. There was a song called Tiny Blair. It basically is very popular around the 1880s. In 1887, it was performing in North Devon to a show that was so densely crowded
+
+[00:11:13] that large numbers of people were unable to obtain admittance. Really? Although that show also contained a procession of firefighters, handsome men from Ilfrakum and their horse-drawn carriage. So I don't know which was drawing them in. I reckon the handsome men from Ilfer-Kroon. That would get me. There was also a song called
+
+[00:11:29] When She Comes with the Milk in the Morning, also a highlight according to the local paper. And what's great about that report is that, so it's kind of a whole evening of revelry. And the paper recorded some of the jokes from the evening. Would you like to hear some satire from 1887? Oh, yeah. Why does Mr. Pitt Lewis resemble a shrimp?
+
+[00:11:47] I don't know. Why does Mr. Pitt Lewis resemble a shrimp? Because each has MP at the end of his name. It's like Andy's in the room. And Andy's Edinburgh show is currently going on at the Pleasance Theatre. Wow. That is, I mean, it's not funny, but it's... It is a joke.
+
+[00:12:06] It's satirical. It's not satirical. What does Donald Trump have in common with a shrimp? Pink. Is it the MP thing? It is. It's like Andy's still in the room. So in 1877, a 10-year-old David Cameron fell into the harbour in Dundee.
+
+[00:12:25] was rescued and taken home. Oh. Amiss Teresa May in 1940 was a shop manageress who broke the blackout. Do you know there's a glamour model called Theresa May? Yeah. Yeah. Different spelling, right? Different spelling, yeah.
+
+[00:12:37] No H. But if you go on to Twitter, her handle is real Theresa May. And according to one of her recent tweets, her website has had over six million hits since the MP Theresa May has become prime minister. Didn't her bio? I used to say, I am a UK glamour model, not the Home Secretary. Yes. I am not an MP.
+
+[00:12:54] I have nothing in conference. lemon with a shrimp. No M's and P's in my name. May I tell you about Mr. J. Corbin? Ran Corbin's British baking powder, the cheapest and the best. Wow. Found that in paper. Dairy Journal, 1892.
+
+[00:13:09] James Harkin has opened a new wine and spirit bar in the Longtower. Liquors of the best quality all within stock. Sounds right. Classic. And you were killed in 1896. You were a gamekeeper going to be in a cookcase against poaching. Key witness. You were bumps off.
+
+[00:13:23] Wasn't that the year of the modern Olympics in Greece? 1896. Chisinski, headline Jusinski for the Bristol Hippodrome. This was a great dancer. He was coming from
+
+[00:13:33] the Budapest Rural Opera House. That came in 1923. That was me. It contains a helpful pronunciation guide to Shudinsky in the article. If you pass that on to Dan. Can I just another kind of thing
+
+[00:13:46] about names and people with similar names. If you go into Wikipedia and search for Neil Horan, you get the message. This article is about the dancing leisised Roman Catholic priest for one direction member see
+
+[00:13:59] Nile Horan Does it say that on Nilehorren's page if you were looking for the dancing Lacing Léisised Roman Catholic priest Please click here That made me think about disambiguation on Wikipedia so if you search for disambiguation
+
+[00:14:18] You get word sense disambiguation For other uses see disambiguation Disambiguation Oh that's what it's right. Fantastic. That's very good. So I did disambiguation on Tony Blair, because I wanted to see, are there any other famous Tony Blair's out there? And I found my favorite Tony Blair. It's a high title.
+
+[00:14:37] Yeah. Awarded with Great Goody. And this is interesting because it's not a single person. It's a lot of people called Tony Blair. It's T-O-N-I-B-L-E-R, Tony Blair. And it's a male name that's given out in Kosovo. And it's because it's in honor of the fact that, during the 1999 NATO air campaigns,
+
+[00:14:58] Tony Blair was seen as a massive hero. So they've created a name now, which children now and now adults carry. I think Pristina has a big road called Bill Clinton Boulevard or something. It does. So I lived in Pristina for three months, and everywhere you went, there was a picture of Bill Clinton.
+
+[00:15:15] But interestingly, so I then clicked onto Kosovo names for new male children names. And no Bill Clinton name. So Tony Blair got given a name, but Bill Clinton. Because Bill got the boulevard. Yeah, yeah, yeah. Okay, can we go back to the songs?
+
+[00:15:32] Yeah. BROWN. So BROWN and Tony Blair were songs. I found a website called monologues.co.uk, which has an enormous list of Victorian and early 20th century music hall songs. And they're just amazing. So can I read some out?
+
+[00:15:50] Yeah. Please do it. Don't stick it out like that. Okay. open your mouth and shut your eyes okay what about this one I'm a member of the county council
+
+[00:16:05] that sounds like a great song doesn't it yeah it could be the precursor to Tony Blair MP and they bunged him in my grow we're going to need that last word Dan can you grab the notes and they bunged him in my growler. So the words go, they bunged him in my growler and I made the Gigi fly, felt so gay, sang all the
+
+[00:16:35] way to Peckham Rye. They picked me up in the strand and I drove him ever so far the night I took the prodigal son home to his dear mama. And that's, they bunged him in my growler. That's a beautiful song. So they used to be, yeah, really raunchy. I think the idea of music calls was supposed to be partly that they would be a, um, be a kind of entertainment for the working class,
+
+[00:16:56] but the guy who sort of set them up and started them off, Charles Morton in the mid-19th century said that women should be allowed to come because he thought it meant people behave in a more respectable manner. What that actually meant was men just invited loads of prostitutes. And they were these bawdy, really, really rowdy places. And yeah, they'd have songbooks called things like the frisky vocalist and the gentleman's spicy songster. But they used to get really violent.
+
+[00:17:20] So I think in one performance there was evidence that a dead cat was thrown at the performers. There'd be bottles and old boots would be thrown at the singers. Their industrial towns favoured hurling iron rivets, apparently. And so much so that waiters in music halls would have to have their bottles that they serve from chained to their trays so that people didn't grab the bottles and start fighting with them. And if there was an orchestra in the pit, sometimes it would be covered up with the steel grill so that the orchestra couldn't be attacked.
+
+[00:17:51] Wow. Yeah, the hardcore. Was this only if they didn't enjoy it, or did it? They'd just do it anyway. I think everyone's pissed. There are prostitutes around. You just get rowdy. It's not necessarily a negative or a positive thing.
+
+[00:18:01] Imagine just like, I'll bring the dead cat just in case. It turns out to be a great gig. It's like, oh, yeah. That's a shame. That's coming home with me. Back in the bag. Okay, it's time for fact number three, and that is Pepe Tuzinski. Yeah, my fact this week is that the first president of the UK's Women's Institute used a
+
+[00:18:30] frying pan as a whip wore an entire stuffed owl on her head and officially named the city of Canberra. It's a hell of a CV. Yeah. It's so impressive. So I didn't know anything about this woman, but she was Lady Gertrude Denman and she was this eccentric English woman who just achieved an extraordinary amount in her life. So she started, she became president of the National Federation of Women's Institutes in 1917 and she held that post until 1946. And yeah, she was just this, this great force of a woman. So the reason that she named the city of Canberra was that she married the man
+
+[00:19:06] who went on to become the governor of Australia. So they moved out to Australia and it was decided that she would be the one who opened this little golden casket which contained the name that had been chosen for the city. So someone else came up with the idea but she was one who chose it. So she was, yeah, she was the official nameer.
+
+[00:19:21] So did you know that Australia had a King O'Malley? So it was in 1911 there was a competition to design the new capital. They were going with the working title, federal capital city. But then two years later, King decided to suggest people in parliament put forward names for it. They had 39 suggestions, which included Eden, Hopeton, Aurora, Home, unison, Andyman, Flinders and Fraser Roo. I also heard Kangamu. Is that right? Is that one of them? Yeah, they wanted to call it after some of their animals. So they also suggested Cuckabara and
+
+[00:19:51] marsupiala. Although there were so many good suggestions, actually, for the name of Canberra. I think my favourites are things like Buncom and Bung Town are there and gone broke. There was one suggestion was Climax. Could have been called Climax. But the one that comes up a lot is the name Sid Melad Per Briseho, which is obviously a hyphenated combination of Sydney, Melbourne, Adelaide, Perth, Brisbane and Hobart. They thought they'd combine them all. That's such an interesting idea.
+
+[00:20:18] Very diplomatic. She sounds like an amazing character. According to one description of her I read, she was a compulsive lumberjack. Compulsive Does that mean you literally can't walk past a tree without chopping it down? When she was riding the horses
+
+[00:20:34] and whipping them with the frying pan they just say that she couldn't pass a tree without chopping it down so she had an axe on her at all times it's a very interesting character her dad was called
+
+[00:20:45] Wheatman W-E-E-T-M-A-N that's the first name so let's get that going again my first son that Okay another one second one
+
+[00:20:55] Tony Blair Yes just some other the good things Lady Denman did. When she came to Australia, she sort of created waves. Everyone thought she was really, really cool. And she didn't act really up herself like former kind of governors had. And she did things like she played golf down the corridors of her house. So she would put cushions out and they would be the holes, I think, and then she'd play golf towards them. She wrote a letter to her brother explaining how she did a lot of lumberjacking and a lot of shooting.
+
+[00:21:21] And she also played hockey in the ballroom. And then she said in the letter, this last amusement must on no account be mentioned. Yeah. She was a massive aristocrat though, wasn't she? Like she was born into a really, really wealthy family. Oh, she was born super privileged, yeah. So it's all right when you're like that and you can just wear it out on your head and play hockey down the street.
+
+[00:21:39] Working class people couldn't afford stuff down. No, they couldn't even afford a barrel each. So a lot of the information that I'm talking about here about the WI and about Lady Denham comes from this great book called A Force to Be Reckoned with by Jane Robinson. Do you know that during World War I, The Metfleet had women members out patrolling, and after the war, they cancelled it. So the boys were back, give them back their jobs.
+
+[00:22:01] And the WI did a 26-year campaign to get them back. Wow. 26 years. They just waited for the next war to start. It was during World War II and they came back. I think that's brilliant. I didn't know they took them away. That's terrible.
+
+[00:22:13] And also good on the WI. Yeah. Yeah. During the Second World War, meetings might include something called a pin the mustache on a Hitler competition. Or the passing a round of a lemon with a penny buying you a sniff. What? It was a different time. It was.
+
+[00:22:29] There wasn't a lot to do for some people. It sounds like one of James' musical songs. I'll give you a sniff of my lemon. What I really like as well is they're really, they've got tons of branches, and there's lots of different ways of doing it, so I completely am keen on this one. This is Gothic Valley,
+
+[00:22:42] a WI branch in North London. And they are a goth branch, the WI, but they welcome non-goth. And according to the website, they like baking, jam-making, crafting, and wearing lots of black. And then they also say, come and join us,
+
+[00:22:54] help put the black in blackberry jam. I think they sound awesome. Yeah, that sounds great. Speaking of jam, actually, the reason that I found this fact is that there was a police commissioner recently who announced that the WI is the largest organized crime group in the UK because it's actually illegal to pick wild berries and sell them for profit. And the WI not only does that, but encourages its members to do that because they pick berries and then sell their jam at fates.
+
+[00:23:19] Is that really illegal? Apparently, it's illegal according to him, yeah. There was a really nice story how in World War I, the Home Guard needed wood and so they came around and they chopped the legs off the piano that was shot the legs of every single member of a WI one of these guys must have a wooden leg the WI members retain their legs but the home guard chopped the legs off one of their pianos and then at future WI meetings in the area where that happened
+
+[00:23:46] the women still continue to sing Jerusalem and the pianists just lay on the floor playing the piano another contemporary WI is the seven hills WI in Sheffield their average age of the members is 34 and their speakers have included the tour manager for the Arctic Monkeys. See? It's cool. It's something for everyone. They do all the things.
+
+[00:24:05] As we walked in today, Anna, you said, I'm thinking of joining the WI now. I think that I will. And they're really into the Arctic Monkeys. They were so influential. So they were really a big deal, especially in the early days. I really like, I was reading a story about a guy,
+
+[00:24:18] so they do do a lot of talks. They get people to come in and talk. And they got a man to come in who was a retired sailor from North Devon and they wanted to talk to him about his experiences. So basically he wrote a book about being kidnapped by pirates and he thought I'll go and do a talk, start doing talks and they booked him. But this is what he said.
+
+[00:24:37] When I arrived there, there were ladies with blue rinsers wearing pirate hats and waving swords around. They'd been led to believe that it was a talk about piracy through the ages and not something right up to date. So basically a man who'd been held for 47 days to tell about his traumatic experience. You can see a photo. He took a photo with them. They've got the skull and cross bones,
+
+[00:24:59] that kind of weird Captain Crunch hat. That's because back in their day, that's how Pirates looks. Didn't they famously boo off Tony Blair or something? They slow clapped and watched it today. It's amazing. They didn't want any party politics. And it's a huge hall full of...
+
+[00:25:15] They thought it was a music hall song. They were trying to get the beat to kick it. There is it. Also, as per, your 100 year old runner, that could just be the speed at which older people clap. And if he hadn't left the stage, he would have realized 20 minutes later they were actually giving him a standing ovation. It's just taking a while to get there. Okay, it is time for a final fact of the show, and that is James.
+
+[00:25:52] Okay, my fact this week is that you can make yourself more attractive to members of the opposite sex by giving them a magnet. How powerful a magnet? So this is a controversial bit of science called social priming. Not everyone believes it's real, but there was a recent study at Texas A&M University where participants were given a couple of attracting blocks to play with
+
+[00:26:19] and some others were given ones that weren't magnetic. And then they questioned them about their relationship and they found that the ones whom had been given the magnets were more positive about their relationships and found the people there with more attractive. And basically social priming is the idea that you can mention things and it will affect the way people behave.
+
+[00:26:40] So there's a very famous study where they gave people words to do with old age and then as they left the building, they walked slower. Now that study is very controversial because people have tried to replicate it and they've not been able to, but this whole idea of social priming
+
+[00:26:55] is a thing that people are. currently studying. So the fact, this fact, your fact, is sort of about how the things we speak about metaphorically can actually affect how we feel. So it's thought that the reason that you are more attracted to someone when they're holding a magnet, is because we talk about magnetism. I'm magnetically attracted to him. And that metaphor that we've used has actually seems to have made its way into now how we instinctively respond. And there are other instances of this happening. So with the word sweet, it was shown that, you know, we refer to people as being sweet people. people and there was an experiment that was done where students were asked to write either about
+
+[00:27:32] their experience of romantic love or about an experience of being jealous or just about a neutral experience and then after that they were given in one experiment they were given sweets and then in another experiment they were just given tap water and in both cases the students who've written about romantic love found the sweets and the tap water tasted sweeter because it's thought kind of they'd written about something that they considered a sweet topic you're in like a happy mood to start with yeah it's so interesting Do you have another one? Well, I just thought this was really weird
+
+[00:27:59] because the reverse seems to be true with sweet stuff as well. There was this study done in 2011 which showed that people who like sweet stuff are just sweeter people, as in nicer people. So this was published in the Journal of Personality and Social Psychology, and it found that people who said that they had a sweet tooth
+
+[00:28:19] were more likely to help someone out. So there was a professor who wanted to help doing a study, they were more likely to help him out, they were more likely to help clear up sand, bags after stopping a flood and just they like sweet food and there seem to be this correlation which obviously sounds very dubious. Maybe they think, oh, I might get a sweet for this. Yeah.
+
+[00:28:35] Yeah. Like, crunchy bar. Yeah, great theory. People give you penjuring biscuits when you help out. Such good point. It does sound dubious slightly. So I was reading also examples of where psychologically they think that the opposite sex can make themselves more attractive.
+
+[00:28:50] So in this case, how a man can become more attractive to a woman. One suggestion that they've said, why don't you try this? is to wear a t-shirt, a white t-shirt with a big tea printed on it, just a big letter T. And the reason that they say is that women who see this shirt with the tea on are 12% more attracted to this person. Now, women always want a pound of tea, don't they? We've already established that.
+
+[00:29:13] Women like tea. Yeah. So what it is is that they say that the top bar of the tea makes it so that it broadens the shoulders of the person and then the bar going down slims the body, creating a V-shaped body. So that's my interesting fact. In order to get a V, you need to wear a T. How cool is that?
+
+[00:29:32] That is good. Everyone used to say to me, by the way, that raises an interesting point. Because I usually wear a tie. I'm always I love wearing ties. And people have said to me that I'm directly trying to draw attention to the crotch. That apparently, an arrow pointing downwards. I'd never heard that before. Well, it's just because you have written on your tie penis this way and an arrow.
+
+[00:29:53] It's really inappropriate for the workplace. We talked about this. So the science of dating is interesting. I found one piece which concluded the key to dating someone hotter than you. Get to know them first. Which is a really good tip. Thanks guys. And another one that said sexually aroused by farts, you're not alone.
+
+[00:30:14] Scientists are doing some weird studies. So there's a study done in 2010, which is kind of depressing. But it's interesting that this is still the case. and what it did was it put a man in a high-status car and then the same man in a low-status car. So there was a man in a silver-bently continental GT, which I believe is an expensive car, and then that man was also put in a red-fawd fiesta.
+
+[00:30:39] And it found that when women are asked if the man is attractive, they're much more likely to think he's attractive if he's in the high-status car. But in the reverse way around, when the woman is in the high-status car compared to being in the normal car, then men do not find women any more attractive when they're in a high status car.
+
+[00:30:54] Because traditionally, for thousands of years, women have been attracted to men who can provide for them. That's why Fred Flintstone was so popular with the ladies. Yeah, I read an article which said that 89% of UK men think that a flashy car helps them with women, but only 41% of women think that that's true. But that's, I guess, not, they're not testing it out in a blind way, are they? They're just asking you what you think.
+
+[00:31:20] Yeah, so women, we don't think we're attracted to only, rich men, but it turns out we're all extremely shallow, and that is the case. It's interesting. It's just, you know, men have been the providers traditionally, so it must be something that's so deeply ingrained now for a lot of women that you want someone who you know can provide for you, even though consciously we definitely don't feel like that's what we want. I have one more thing, which is the good news is beer does make you more attractive. The bad news is it's to mosquitoes, carry in malaria.
+
+[00:31:48] And that is my take-up. We need to wrap up soon. We haven't done any magnet stuff. Has anyone got anything, just magnet-y? I was reading a report from the Royal Society of Medicine from 2005, which was called Painful Attraction, a Magnetic Penile Injury, and it was describing, it sounded terrific, but I did find it quite amusing.
+
+[00:32:07] It was describing an 11-year-old boy who'd arrived in A&E with two magnets stuck on either side of his penis, and they couldn't get it off. So we'd actually been referred to this hospital from another hospital that hadn't been able to get these two magnets off. And the report said that it was impossible. to remove the magnets either by hand or by surgical clamps. I've read this paper, I think, actually.
+
+[00:32:27] And I think that they just kind of did some sheer force, didn't they? So they pulled them sideways or something. They eventually did that, yeah. But they did sound, I was really like the idea that he was overhearing them discussing their next options. It said in the report, there are two other ways of dealing with this, usually, with two magnets that are stuck together. One is to heat the magnet above the curie point, which is the point at which they lose magnets. Isn't that like 7,000 degrees or something? It's about 500 degrees Celsius for the average toy magnet.
+
+[00:32:54] And the other one is to apply heavy hammering. So you can imagine this point lying there going, oh God. That's extraordinary. Would you go for, Dan, would you go for the 500 degree heat or the intense hammering? Or would you just think, actually, they don't look so bad. That's exactly why I'm like, you know, I'm cool. Wait, would that make you more attractive to the opposite? They'd be like, ah, magnetic.
+
+[00:33:20] The strongest magnets in the world, I think, are in America's National High Magnetic Field Laboratory in Tallahassee. They're electromagnets, and this facility uses 7% of all the electricity used in the whole city of Tallahassee. Whoa, it's absolutely massive, and if you want to do any magnetic stuff pretty much anywhere in the world, this is where you go. And the big sign the world is saying, do not put on your penis. Penis not this way. Okay, that's it. That's all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we've said over the course of this podcast, you can find us on our Twitter accounts. I'm on at Schreiberland, James. At Egg-shaped, Anne. At Miller underscore Anne. And Shazinski. You can email a podcast at QI.com.
+
+[00:34:13] Yep. Or you can go to our group account, which is at QI podcast, or go to our website, no such thing as a fish.com. We have all of our previous episodes up there. We will be. back again next week with another episode. We'll see you then. Goodbye. We should do an advert for Andy's show, right? Go and see Andy's show. It's all at the fringe. Go and see Andy's show. Go and see Andy's show. Go and see Andy's show. It's all at the fringe.

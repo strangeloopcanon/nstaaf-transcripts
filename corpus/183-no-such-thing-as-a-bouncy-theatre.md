@@ -1,0 +1,197 @@
+# No Such Thing As A Fish - 183: No Such Thing As A Bouncy Theatre
+
+- Episode date: September 22, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/183-no-such-thing-as-a-bouncy-theatre
+- Slug: 183-no-such-thing-as-a-bouncy-theatre
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Schreiber and I am sitting here with James Harkin, Andrew Hunter Murray and Alex Bell and once again we have gathered round the microphones of our four favorite facts from the last seven days and in no particular order here we go. Starting with you, Alex. My fact this week is that 1% of the entire planet's wood supply is turned into Ikea furniture.
+
+[00:00:47] Bullshit. That's true. But they've only got 400 or so shops globally. Have you ever been to one? Yeah, but like... They're pretty big. There are, right? Yeah.
+
+[00:00:58] In the world. And how many trees are needed for that? So if you think of an Amazon warehouse globally, all the warehouses, surely more wood goes there. I think the amount of volume that passes through those shops is huge. So one of the reasons that their furniture is so cheap is the way they've packaged it. So if you open up like an Ikea bookcase package, it's incredibly tightly packed together. There's very little polystyrene in it and that's like part of the reason it's so cheap
+
+[00:01:18] apparently. So also you have to transport it from one place to another but you're not transporting any air, which is heavy when you put a lot of it in a big lorry. Can't sport in their wooden lorries that way. So one thing that you can't really flat pack is sofas and armchairs because they just come as one big object, don't they? And so one way they tried to fix that was by making inflatable sofas and by making these inflatable sofas, they would reduce the use of raw materials by 85% and transport volume
+
+[00:01:49] by 90%. Wow. And the idea was you would buy this inflatable sofa, you blow it up at home and then you'd put some cloth over it and you wouldn't know that it was air. So basically. But aren't they effectively manufacturing furniture for bouncy castles? Yeah, but bouncy castles are quite comfortable if you've ever sat on one. I've never watched a whole film on a bouncy castle though.
+
+[00:02:12] I do want to do that sometimes. Who was it who did? Oh, it's Will Seawood. Yeah, Will Seawood. Yes, our friend comedian Will Seawood did bouncy castle handlet and bouncy castle Macbeth. But in that case, he was acting on the bouncy castle rather than people watching on the bouncy castle.
+
+[00:02:27] Yeah, it's true. I would go to a bouncy theater. Yes. But that's because a lot of theaters have very uncomfortable seats. Yeah. Hang on. So did this work? But also you constantly get an obstructive view because everyone in front of you would
+
+[00:02:36] like that. So did this work? Well, it did work up to a point in that they were, you could sit on them. The problem was they picked up a lot of static electricity and so they turned into massive dust collectors. So your sofa would be full of dust. And also they didn't really weigh anything. So they flew it away.
+
+[00:02:58] Yeah, that's basically it. They would kind of float away from where you left them. So the one good thing about a sofa is it's always in the same place, right? Yeah. I don't think that's the one good thing about a sofa. It's one of the good things. Oh, sure. One of them.
+
+[00:03:12] Yeah. So this is like a hover sofa. It was a bit like that. So if they were the stars, they would all start to gather in one corner of the star. Like dust. And one of the workers at IKEA said they were like a gathering of swollen hippos. Wow. But can you imagine coming into work and then all of the selfies have moved to one corner
+
+[00:03:28] of it? You would be paranoid that they're conspiring against you. You've got the mid-meeting like toy story. So that's the thing about IKEA is that the stores famously you can only go around them one way. There's a few shortcuts. Yeah. I've heard this.
+
+[00:03:43] They're like often it's like the door section and they're all fake doors and one of them is a real door. That's true. And you have two IKEA workers. One of them is always allowed to tell the truth to me. But the Guardian did a thing about the architecture of an IKEA shop. They interviewed a few architecture professors and they found that 60% of IKEA purchases are impulse.
+
+[00:04:05] The reason they get so many impulse purchases is that you have to put an item in your trolley when you see it because otherwise you probably won't see it again because you're going around the whole shop one way. Yeah. Yeah. It doesn't sling at anything. I'll put it there for the moment. Yeah.
+
+[00:04:19] I always go around twice once making a mental image of everything I want to buy. Do you really? Everyone in the IKEA control room is like, who is this freak? I was watching him on the monitors. That's like those mind palaces, isn't it? You have a mind IKEA shop. It's full of hundreds and hundreds of items. Do you know about Janja Wintersole?
+
+[00:04:36] No. Okay. She has a mind palace and she was given a week to memorize all 328 pages and 4,818 items of the 2018 IKEA catalog and she managed to do it. Wow. You're kidding, really? Yeah. Well, as in people have tested her and she's got everything right.
+
+[00:04:54] Yeah. That's amazing. Yeah. She's got that. Twice as many IKEA catalogs are printed every year as Bibles. Oh, there. Yeah. And 75% of the IKEA catalog is CGI.
+
+[00:05:04] It's not real. What? I know. What does that mean? Then all the pictures on the furniture is really if you buy, you know, just like in a full three or so far. Yeah. I mean like the pictures aren't actual pictures of the product.
+
+[00:05:15] The item. They're the CGI rendering of the product. They're actually Andy Serkis pretending to be a sofa. Just speaking of the catalog and memory of all the items, all the items obviously have very odd names. Yes. So you'd have to be memorizing these very odd names as well. Like Billy Buck case.
+
+[00:05:33] Exactly. It was revealed this year why they're called, what they're called, all the items at IKEA. And it's to do with the founder and the fact that Kamprad, this is her name, he is the K in IKEA. Okay. Can't remember his first name, but it begins with I. It's Ingvar. Yeah.
+
+[00:05:50] And the initial is his first name, his second name. And then I believe it's his, the town he lived in, the lake that he lived next to. It's the farm where he grew up and then his hometown. There we go. Yeah. So he had dyslexia. And so he found it impossible to just memorize regular codes and regular names. So they came up with this system whereby everything in IKEA was given something that
+
+[00:06:11] he could relate to so that he could, he could memorize the category of name that it has. So for example, if it's a bed textile, it'll be named after a flower or a plant. So he'll know, okay, it's going to be a flower or plant. That's easy to remember. Business at Wardrobes and Hall Furniture are Norwegian name places. Bookcases are either Scandinavian boy names or professions. And so every little product has its own category of, of theme. But all of his children are named after things that you can get in a house.
+
+[00:06:43] So he's got a child called bed. Yes. There's another 1% fact here because Billy bookcases, there are about 60 million in the world, which is nearly one for every hundred people. There's one person in a hundred. Does anyone here have a Billy bookcase? Yeah, I do. I've got three.
+
+[00:07:02] You've got three. Yeah. I've got three as well, I think. I used to have some, but I don't anymore. I've got one. So that's seven between us. So we are, we have more than average. That's more than one percent.
+
+[00:07:12] Yeah. It's more than one percent. What we would actually need is 0.04 of them. Yeah. Yeah. It's banter there. They also use 1% of the world's cotton every year, according to them. Do they?
+
+[00:07:27] Yeah. Campground used to be a Nazi. I know. It was such a shame. He seemed like such a quirky, fun character and then it got to that bit of the story. Well, it's the elephant in the room. Yeah. And the elephant is wearing a swastika armband.
+
+[00:07:38] I'm afraid. Yeah. He has apologized for it very profusely since then. He was a teenager. He was 17 in 1943. So he wasn't involved in the early stages. We can say that. Do you remember the actor Haley Joel Osmond?
+
+[00:07:50] Yes. Yeah. He was in the sixth sense. Exactly. The kid in the sixth sense. Oh, yeah. Yeah. He was discovered in an Ikea.
+
+[00:07:58] His parents had lost him three years earlier. Yeah. Haley Joel Osmond. He was in Burbank in America. They have an Ikea. He was inside it and there were just people sitting there taking photos, casting kids basically and it was just a desk and said, come over, have your photo taken and we'll put you up for casting.
+
+[00:08:18] And so he was with his parents walking through Ikea, saw that, sat down, they took photos of him and he immediately got cast for a pizza hut commercial for their new Bigfoot pizza. So now I find out where Dan found this guy from. He's got the tangential Ikea information with the keyword Bigfoot right at the end. We have a Google alert set up for Bigfoot. So while he was on TV, Robert Zemeckis or Tom Hanks must have seen it because they then called him in or the casting director certainly for the movie Forrest Gump.
+
+[00:08:49] So he, before he was in sixth sense, he plays Forrest Gump's son at the end of the movie. And then he went on to sixth sense and so on, but discovered in an Ikea. What was the main feature of the Bigfoot pizza? Why was it called a Bigfoot pizza? I reckon it must have been big. Was it shaped like a foot? It tasted like feet. It's big and it tastes like a foot.
+
+[00:09:07] Or you ordered it, open it and nothing was there, just a blurry photo of a pizza. Okay, it is time for fact number two and that is James. Okay. My fact this week is that the Nazca people would employ someone to walk around with a dead fox on their head. Cool. So the Nazca people, these are the people of Peru from? From my holiday.
+
+[00:09:34] From your holiday. I've just come back from Peru and I want to talk about Peru because I think it's amazing. I found it quite hard finding out about this fact, James, and I presume that's because you've got the fact from a tour guide or from some intrinsic esoteric bit of local knowledge. James was the guy that they employed to walk around. I got this from an exhibition at the National Art Museum of Lima and it was someone who listens to this podcast called Patricia who took me and my wife round and one of the things they had in this museum was a dead fox and apparently what happened was if you were growing
+
+[00:10:07] crops and you wanted to scare the birds away, they didn't have scarecrows, they would have a person with a fox on their head so the birds flying around would see the fox and think, oh, that's a fox, I'm not going to go down and eat the crops. It's just like a human scarecrow. That's great, but why wouldn't all farmers just then not wear a dead fox on their head every day? Because they're heavy. Aren't they?
+
+[00:10:26] A whole fox. A whole fox is different. It's pretty much like the one that they had in the museum was like a spread out carpet kind of thing. Kind of a carpet thing. You can get fox shawls, you know, like scarves that posh old women wear in the 19- Yeah, but a bird's not going to get tricked by that. No, but you'd look amazing.
+
+[00:10:46] I think I'm not sure it was actually a fox because I look like a fox. That's why I couldn't find it online. Were you even in Peru? I have a feeling it might have been a Zorro, which is a Zorro is a Peruvian desert fox, a faux fox. But the Nazca's are famous. They're pre-Columbians. So before the Europeans went over to Peru and they're most famous because they lived in
+
+[00:11:14] the desert and they made these massive lines in the middle of the desert, which you can go and visit and you fly off them and you can see all these different shapes of things. And they were amazing to see. They were quite amazing to see. Yeah, basically, because I always wanted to. Yeah. And so I was impressed by them. Were they larger than you would have expected?
+
+[00:11:34] They were smaller to me because I was a long way away in an aeroplane. Yeah. But some are bigger than others and you have lots of shapes of animals and stuff. And there are some massive ones, which are just a triangle. So they're a bit shit. But then there are smaller ones, which are like a monkey or something or a killer whale. And they're really cool. That's that's very cool.
+
+[00:11:53] So they didn't know what they looked like. Is this the latest theory? I've read a better theory. Well, I think it's an incredible coincidence. They look like animals if they didn't know what they were doing. I mean, that would explain the triangles. I think they would know. They didn't have power of light.
+
+[00:12:08] So the question is, how did they know? There are hills around. So they'd be able to stand on the hills and see them. Have you heard of hot air balloon theory? Oh, God. So this is a man. Why do I get the feeling this is going to be full of hot air? This is a man who is called Jim Woodman from the 1970s.
+
+[00:12:30] One percent of him is owned by IKEA. Yes. In the 1970s, he put forward this theory that, in fact, the Nazca people did see these line formations and they did it from the air by hot air balloons, which he believes they were able to build. And so what he said is that he noticed that they had an amazing textile industry
+
+[00:12:53] that had high grade weaving and cloth. That's true. Yeah. So and he also said that, you know, they knew what smoke did. You know, they knew that hot air rise and so on. They knew the basic things and all they needed to do was put two things together. We've not found any hot air balloons because he says it floated away, James.
+
+[00:13:11] Exactly. It floated away to the 19th century. What he says is that they used it for burial rituals. So what they were doing was they were putting the dead Nazca people inside the hot air balloons and they would fly off into the Pacific Ocean. So, but if you happen to accidentally be in one of the funeral baskets of a hot air balloon,
+
+[00:13:34] then you could see from above. There's a few holes, obviously, in his theory. One is that he actually tested it out using the basic stuff that they had. And it could only make sort of awkward lift-offs for a few minutes at a time. I read that they built one. They got to about 400 feet up.
+
+[00:13:51] Oh, well, maybe that maybe they've kept going. Maybe this is an old article. Why are you encouraging him? Because I think this actually holds a lot of water this theory. So, yes. So they were professional ballooners who built this trial balloon in 1975. Admittedly, they were doing it to a design
+
+[00:14:07] from the 18th century still. But they used only things that the Nazca people would have had available to them. So only local cloths using the same sort of materials and crops. Even the fires that they got the hot air from were made using wood that was available locally. And it did work. I mean, obviously it would have been for a treat
+
+[00:14:28] or a special occasion. Here's the problem with the Pacific Ocean burial theory is that the prevailing winds are going in a different direction. So if the balloon did go up, it would crash into the Andes Mountains on the east of it. But there are a lot of hills around there, a mountain, so you can see it from high up, I think. Oh, that's another flaw to the theory of them not seeing it.
+
+[00:14:48] You can actually see it from mountains. Is it not there's something about them all being along the same line of longitude or lastitude? And they're all basically in a straight line around the world, correct? Well, the people who I spoke to reckon that they are, do you remember in the Viking times, they would have like labyrinths and you would walk around them and it would be a kind of penance
+
+[00:15:10] or it would be a kind of a religious walk or something like that. And they think a lot of them are because of that because if you look at them, they're like a labyrinth. There's one way in and one way out and you can walk along them as they, you know, if you think of a monkey, which is a line drawing, you can walk into the tail, go all the way around it and then come out of one of the legs or something like that.
+
+[00:15:28] Like an edge of sketch or thing. Exactly like that, yeah. But I think the truth is nobody knows because when the Spanish came, they got rid of all of the history and also they didn't write anything down the Nazca people and actually none of the pre-Columbians wrote anything down. They didn't have any writing. Actually, Alex and I went to a talk where we found out how they were made.
+
+[00:15:49] Oh, really? So we went to see this guy, a historian called Eric Von Daniken. Oh, Jesus. I was like, what are you dragging me into? This is so embarrassing. You came along. And Eric Von Daniken, who was a very big part of a TV series called Ancient Aliens, but obviously writer of the book,
+
+[00:16:06] Chariots of the Gods, which was the global, sensational, best-selling, greatest book ever published. Piece of bullshit. Great nonfiction that, yeah. Obviously, that's a massive theory that they had help from aliens. But obviously, when you look at it, it looks more like it's hot air balloons. I don't like this tactic of you giving one ridiculous theory and then giving one even more ridiculous theory
+
+[00:16:32] and expecting us to buy the second one. That's like a price. It has price. There's a what is it? It's a pricing theory in shops. So they say, you know, you can have this one, which is cheap and costs 50 quid. You can have this one, which costs 600 quid, or you can have the £10,000 one.
+
+[00:16:45] So you get the 600 quid one. Or it's like James singing the triangle. Now it's going to be a bit shit because it's a monkey one right next to it. And it's like, it's still pretty hot out there. So that's a good line. That's true. Actually, while we were in Peru, we went to a place called the Sistine Chapel of America, San Pedro de Andahualeas, or something like that.
+
+[00:17:04] And it's very nice church, but the tour guide was a bit boring. So we kind of just ducked out. And next to it, there was a little museum of, like, Nazca people. And they had a whole load of stuff about aliens. And it was a proper museum and they had these, you know, these elongated skulls that they find sometimes and stuff like that. And they literally in this museum had no bit of saying, no, it's not aliens. They're just like, nobody knows.
+
+[00:17:30] You're kidding. That's so cool. As I was there, I was like, Dan would love this museum. That's amazing. I think it was the previous people in the same area who made the elongated skulls. I can't remember the name because of Pete, but I've got it in my notes somewhere. Do you know how the Nazca died out blew away? Overfarming or something, really quite irritatingly dull.
+
+[00:17:52] Is it El Nino or like some kind of weather phenomenon? Yeah, it is. Yeah. And Alex, I don't think it's irritatingly dull, but if it is, what I meant was, like, not aliens, like not like they weren't, I want to meet you. It was just like, well, it is to do with crops. So let's see how far we get. Shall we? So basically they they used to live on these trees called huarangos, which are very, very cool, very hardwood,
+
+[00:18:14] very good for building things. And the roots go 150 feet down because it's so dry there. So they used to live on those. And then they started chopping them all down, kind of like Easter Island, so that they could grow crops, right? And then they grew loads and loads of crops. And then at about 500 AD, there was a massive flood which completely destroyed their civilization, swept across the plane,
+
+[00:18:34] destroyed all their homes. And within 200 years, they'd been conquered and died out. But the way we know this is so cool. A team from Cambridge University went there and they measured the amount of pollen in the soil at different depths. So they can say, ah, well, up to 400 AD, there's loads of huarango pollen. Then there's a bit of cotton pollen. And then suddenly there's this big boom in loads of other crops,
+
+[00:18:55] like squash and mazes and things. And that's how they knew that they chopped down all the trees in the area and they were just having huge fields of crops instead. That's what they did. So did they do crop circles then as well for the aliens? Oh, my God. There is one theory, by the way, which is it is it is to do with aliens, but it's a more it's
+
+[00:19:15] yeah, it's not like one of these unreasonable. It's a more scientific approach, which is that rather than the aliens built the line like us setting up SETI or things in order to look to to the universe for signals of life, it was basically big SOS, not SOS. But you know what I mean? Like it was their attempt to communicate. There are attempts of saying there is life down here and drawing animals so that anyone looking down on Earth might see that things were manmade.
+
+[00:19:41] That again, it's a theory. I've not spoken to it. James flies over and a plane is a NASP-ish. OK, there's time for fact number three, and that is Andy. My fact is that instead of going outside, the painter Gainsborough painted outdoor scenes by making a little model with moss and broccoli. So broccoli were his trees. Exactly. And he used coal for boulders and little pebbles for stones.
+
+[00:20:13] Exactly. So he was a famous landscape painter and British, right? British was born in 1727, just to give you an idea, died in 1788. And yeah, he would make for inspiration these weird little models and he used broccoli for trees. It's all because it's basically a piece of art for another piece of art. Yeah, it is. Yeah. He wasn't painting directly from them, but it was to give him ideas of what he wanted to move.
+
+[00:20:37] What goes where and what goes where. Yeah, because it's much easier to move a piece of broccoli than it is to move a tree. And it's all about the shape of the painting. Like he was really precise about the exact shape of his hills and where the cow would go and everything. Did he have little cows? Yep. Great. What were they made of? Like cockroaches or...
+
+[00:20:53] Yeah, that's right. That's why if you look closely at the Gainsborough painting, all the cows have little antennae and hard, shell-like bodies. One of the reasons that he's not as famous, I didn't know his name, I have to admit. And he gets often compared to, is it Constable, who lived very much near him? And I think partly the reason is he was held back slightly by his little broccoli model village, because with Constable, there's a great thing of geographically, you can visit all of the lands that he was painting.
+
+[00:21:26] And that's a huge thing to go there and wander through the fields and look at the trees that were, you know, in his paintings. But yeah, I'm sorry, I've eaten it. It is tragic, though, because he loved landscapes. But the thing that sold and made you money at the time was portraits, obviously, for wealthy people commissioning pictures. But he just wanted to do the landscapes. That's all he was really interested in.
+
+[00:21:49] So it's really sad. They only became popular as things you could buy just in their own right after his death. His brothers were quite interesting. His brother Humphrey was a mechanic and he invented a method of condensing steam in sort of separate containers that then James Watt used when he was developing his engine. How can you find that interesting? And stuff about pollen in the Nazca region, irritatingly dull. No, no, he said irrigating.
+
+[00:22:20] And his other brother was called John, but everyone called him scheming Jack, because he used to come up with little ideas for curiosity. Yeah, he had he invented copper wings that he tried to fly with and he had a sulphur. Yeah, and he had a self rocking crib and a cuckoo that cuckoos all year long. A cuckoo clock is useful. Yeah, a cuckoo clock. Yeah, that cuckooed all year long. The most cuckoo clocks that are made in Germany or wherever,
+
+[00:22:45] they don't only do it once during spring. No, but they do like once an hour, right? I think his was just literally all the time. They sound like quite a group of, you know, the brothers are all making things, aren't they? Yeah, that's what I mean. It was quite an interesting spread. You often get this with historical families. They often have really interesting.
+
+[00:23:04] Is it because they're all rich and they don't have to do proper jobs? I think he wasn't very rich to start off. He became very wealthy and he got really annoyed later in life, because he got annoyed with customers saying, can you paint my child dressed up as Henry VIII, please? But I wanted to get my child exactly right. And he said, you're not going to get a good likeness of your child if he's dressed as Henry VIII in this painting.
+
+[00:23:26] I read that he painted with paint brushes that were six feet long. I read that. I'm not sure whether it's completely true. Presently, what he did was he put the canvas he was painting on right next to the person sitting for the painting. And then he'd paint from a bit further back. That's an unbelievable amount of precise skill, if you can do that and paint a vague likeness of someone's child.
+
+[00:23:47] Have you heard about his huge rivalry? Oh, with Joshua Reynolds. With Joshua Reynolds, who was another very famous artist of the time. And they just really got on each other's nerves. And so once Joshua Reynolds insisted that blue wasn't really a good color in paintings, I think he was saying that it should most be used in small amounts, unless you're painting the sky, obviously. But anyway, one of Gainesville's most famous paintings is called The Blue Boy.
+
+[00:24:15] Oh, yeah. As a young man who is in a completely blue suit. So there is a theory that says that this was painted as a riposte to Reynolds, saying you can use blue in paintings. Or the other argument is he painted The Blue Boy and then Reynolds said, actually blue and you should really only paint girls. Exactly. And there is a painting they've recently found, which was by Gainsborough.
+
+[00:24:37] And then someone slagged it off to the man who's had it commissioned. And the man who had it commissioned hired Reynolds to repaint everything except her face there. But now the painting is 80% different. So underneath 80% of it is an original Gainsborough. And then the top 80% is Reynolds, which is such a deep criticism. Just a few other odd ways that artists can paint these days, different methods. This is really interesting.
+
+[00:25:09] In Ukraine there is a series of scuba divers that now go down and do underwater paintings. Underwater colors. Yes, underwater color paintings. Yeah. And so they go underwater for up to 40 minutes of a time. They bring with them canvases that are obviously water resistant and they use water resistant paints.
+
+[00:25:31] But now these landscapes of underneath the ocean, of seaweed and so on, painted from the bottom of the ocean. Really cool idea. That's tough if you can't use blue as well, isn't it? Okay, it is time for our final fact of the show. And that is my fact. My fact this week is that the US Navy submarines are starting to control their periscopes with Xbox controllers.
+
+[00:26:00] It's amazing. She's starting to. So they've started trialing the use of it. The trials went very well. And now they're implementing it properly. Level two. To the Navy. And two.
+
+[00:26:12] The idea behind this, I used to have in my head the way that periscopes work. And I think I got this from Batman movies from the 60s. You used to have some person looking through almost like the peep show contraption. These binoculars that would be sent up to the surface and you would move it around like that. These days they have a joystick.
+
+[00:26:29] And the joystick people have been finding very hard to use. And they started testing it out then by using Xbox controllers. Thinking, let's see how this goes down well. And everyone has taken to it surprisingly well to the point of accuracy that it just makes more sense to do it. Both for the accuracy and then secondly for the cost. Because these controllers cost nothing. But these joysticks that they're paying for each time
+
+[00:26:52] cost, you know, tens of thousands of dollars. It's hard to get joysticks these days, isn't it? It's hard to get joysticks. Yeah. Is it, can you use any? Are you allowed to use Wii controllers if you prefer? It'd be dangerous using a Wii controller though. Because if you wave your arm around you might fire a torpedo.
+
+[00:27:05] But that's what happened when we first came out, isn't it? Everyone smashed everything in their houses. That was a big thing, wasn't it at the time? And you don't want to smash a window in a submarine. Yeah, I believe that the captains and so on who've been talking about the fact that this is going to go into place are saying, you know, if one breaks and you happen to be near land, you can just go to a local shop buy a new Xbox control.
+
+[00:27:30] Of course, the thing about being a submarine is, there's no guarantee you'll be near land. That's the problem. Yeah, maybe they should buy a few to bring with them. So I was looking into periscopes. Oh yeah. So I didn't know that periscopes were not invented for the submarine, they were invented or popularized, if you like,
+
+[00:27:50] by the First World War in the trenches. And the other thing that was invented was the periscope rifle where you attach the firing mechanism and the rifle to a periscope so you can fire from the safety of your own trench, completely inside your trench. Now, the disadvantage was that they were much less accurate than actually looking through the size of a proper rifle, obviously, because they were a bit jerry-rigged.
+
+[00:28:11] But they were used a great deal in the campaign at Gallipoli. And in Gallipoli, accuracy mattered a lot less because some trenches were five yards away from each other. So during World War I, the Allies tried to train seagulls to defecate on the periscopes of viewboats so they wouldn't be able to see where they were going. How did it go? It didn't go so well.
+
+[00:28:41] The main problem was twofold. They couldn't tell the difference between friendly subs and enemy subs. And also, they don't tend to go out to sea very much seagulls. They tend to live on cliffs where there aren't so many submarines. Around the home, basically. So the other thing they did was they would send two swimmers to a submarine. One would have a black bag and the other one would have a hammer.
+
+[00:29:05] And the first one would try and put the black bag over the periscope so they couldn't see where they were going. And if he failed, the other one would smash the glass with a hammer. It feels like the second guy is the most important one. Yeah. Because he can do the most damage. Yeah. No, the second guy feels like an afterthought of a plan, being it's like, and what if that doesn't work, sir?
+
+[00:29:24] Smash it with a hammer. You'd think that one swimmer could cope with having a black bag and a hammer. Yes. I mean, how big were hammers back in the First World War? They were small, but black bags were massive. Do you know there are some golf courses which have periscopes? James, you like golf. I do.
+
+[00:29:44] I know that if you go and watch golf tournaments, or this happened in the past, I don't know if it still happens, I haven't been to one for ages, but you would be able to buy little periscopes because everyone stands around the green because they want to watch what's happening. There's only so much space, there's lots of people, so you can see over the top of people's heads. That is great.
+
+[00:30:04] James, this is not universal. You haven't missed it at every course you've been to. But there are golf courses which have periscopes. I found one from the 20s, and then I found one modern one, one modern one, where the first hole is quite hard to see to the green. So you need to see if the previous golfing party have moved off the green before you drive a golf ball at them towards the green. So they have a 30-foot high periscope,
+
+[00:30:25] which is from an old Navy submarine. They took it off in the 60s, and they installed it at the golf course. So you can just check out the lie at the land ahead of you, whether it's safe to play. There are a lot of courses that you have blind shots that you can't see the shot, but the way they deal with it is with the little bell. After you've played your shot, you ring the bell,
+
+[00:30:42] so it's safe for the other guys to play behind you. But you may not know. If there's no one there, you've come after they've left, no one's there to ring the bell. Yeah. What you need is a constantly ringing cookie clock. You can set it going, but you can slightly pause quickly. That's a problem, it's constantly ringing.
+
+[00:31:01] But then you get there and you hold the beak of the cookie. Exactly, yeah. While trying to swing. I think this is how Crazy Golf was invented. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us
+
+[00:31:20] about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland. James. At Eggshapes. Andy. At Andrew Hunter M.
+
+[00:31:29] And Alex. At Alex Bell. Yep, where you can go to our Twitter account at no such thing, or you can email us on podcast at qi.com. And also you can go to our website, no such thing as a fish.com. We have all of our previous episodes up there.
+
+[00:31:42] We have links to our tour in October and November, and we also have a link to our book, The Book of the Year, coming out November the 2nd. We'll be back again next week. If you want to chat to us about this week's episode, we're going to be on Facebook Live this Monday, 5.30 p.m. UK time. And we'll see you again next week with another episode.
+
+[00:32:01] Goodbye.

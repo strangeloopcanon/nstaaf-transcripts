@@ -1,0 +1,333 @@
+# No Such Thing As A Fish - No Such Thing As Reverend Christian Book
+
+- Episode date: January 14, 2022
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-reverend-christian-book
+- Slug: no-such-thing-as-reverend-christian-book
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from Paul. Dan Schreiber, I'm sitting here with Anna Tosinski, Andrew Hunter Murray, and James Harkin, and once again, we have gathered round the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, and that is James. My fact this week is that tardigrades can survive being shot out of a gun, but they're a bit groggy afterwards. Hmm. Tardigrades. Tardigrades, yes. Tiny little things, not quite microscopic. You can see them if you look really, really carefully, but very, very small little things. Living in all over the world, probably some in
+
+[00:01:11] your garden, probably some on this stage. No, they're not on this stage. They live in like moss and in bits of grass and stuff like that. They're really, really strong. powerful things, you can't kill them. Virtually nothing will kill them. They're not powerful, like, they can't put a lorry. They're not going to give you a piggyback. Get enough of them, Anna, I reckon. What do you reckon? I think enough of anything that you can put a lorry.
+
+[00:01:32] We don't need them to pull a lorry. We just need them to drive a lorry. Apparently, scientists, I read, can't work out a scenario in which they would go extinct prior to the actual explosion of the sun, basically. Well, the explosion of stone might not kill them either.
+
+[00:01:49] So basically they can survive in space. They can survive really, really hot temperatures, really, really cold temperatures. They can survive loads of radiation. If they get in trouble, they just kind of shut their bodies down and then kind of get rid of all the water and you put a bit of water back on them and they come back alive again. And what has happened is some of these tardigrades have been sent up into space onto the moon
+
+[00:02:11] and they've crashed into the moon. And people are wondering maybe they're alive and maybe they're actually living there on the moon. And so these people, this was a woman called Alejandra trespass from Queen Mary University in London. She did this experiment to see if they might still be alive. And so what she did is she put them in a gun, shot them at a wall, and saw how they were, basically. Wow. And they could survive impacts of up to a kilometre per second, that's 2,000 miles an hour.
+
+[00:02:38] They could survive and shot pressures of up to 1.14 gigapascals, which I know out of context doesn't really mean anything. But it's a lot. I promise you it's a lot. So there's life in the universe now outside of Earth in theory. We haven't yet confirmed it, but we also know. Can I just check? Can I just ask how the groggyness exhibited itself? I think we need to address this.
+
+[00:02:58] Oh, yeah, yeah. Okay, yeah. So Tadigrades are the smallest animal that have legs. They have these little legs that they crawl around with, and they kind of have a very specific gate, and as they go quicker, they change the gates. But these ones, they kind of staggered around a little bit when they kind of pull them back.
+
+[00:03:15] But the problem with what you were saying, Dan, is the shock pressure that they've worked out that there would have been on the moon would have been greater than this 1.14 gigapascals. So we think that the ones on the moon probably are not alive. Very disappointingly, yeah. So when scientists say we can't work out how to kill them,
+
+[00:03:32] shoot them as the bullet of the gun. We can work out how to... There are lots of ways you can kill them. Yeah, you can just stamp on them. Can you? Yeah. They're actually really easy to kill. Okay, I am here to give you
+
+[00:03:44] the disappointing truth about Tardarades because they've ruled the internet for too long. A, there are plenty of ways to kill them. B, the whole they can withstand massive temperatures. They actually just did an experiment where they realised they can't withstand temperatures for very long at all. And scientists now reckon that climate change
+
+[00:04:01] is going to kill them before it kills us. No. So the thing is, they can survive being boiled, but only if it happens quite quickly and then they get back to a nice normal temperature again. But they did an experiment recently where... It feels harsh that you're criticizing them for not being able to withstand indefinite boiling.
+
+[00:04:18] I think it's impressive. If I boiled an egg, and then a few minutes later it came out of the pan, and it was still in its egg, raw egg state, I'd be impressed. I'd turn it to a chicken. Exactly. I'm not demanding indefinite. I just think a couple of hours would be good.
+
+[00:04:32] And they can't even survive, for instance, like above 37 degrees for 24 hours, half of tardigrades die, straight, like, within that amount of time. So, you know, any longer than that, and then they all die. If you put them at 63 degrees, half of them are gone us within much shorter than that. And I think if you're in the 80s, then they don't last an hour. Yeah.
+
+[00:04:53] Oh, I see. Sorry. Not the 1980s. Amazing they made it through that decade. It was a horrible decade for them. The music. They are crushed by a Rubik scoop. I don't think they are shit.
+
+[00:05:05] What? Well, I'm going to stand up for Tardagrades. They do this thing. Tardigrades do this thing. It's seeding the world on its own. So it can get picked up by the wind. It can get carried in the wind, land wherever, and then wherever it lands,
+
+[00:05:19] it can just reproduce asexually. It doesn't need a partner. You could send it to the moon, just one, and it will be like, that's cool, I'll set up a colony. It's a phenomenal little creature. And the confusing thing about that, because there are obviously lots of organisms that can reproduce asexually,
+
+[00:05:33] but it's quite confusing that they've managed to evolve successfully, right? Because asexual reproduction is supposed to be a bit of a disadvantage because you're only getting your own genes over and over again. You can't improve. And so how have they managed to do this? They have sex too. They do also have sex under normal circumstances if they can find another of the opposite sex.
+
+[00:05:52] And it's a very romantic process, actually. Tardagrade mating is very fascinating. So, here we go. Step one. You've already killed any sets of romance. Why don't you do it in like a Craig David style? What would you do on a Monday? On a Monday, the female would show.
+
+[00:06:13] her outer skin and lay her eggs inside it. Keep talking to me. Yes. Okay, on a Tuesday? The Mayle would then arrive and get into position and then fertilise the eggs, which are... Wait, wait, wait, wait, that's making love
+
+[00:06:27] on Thursday and Friday and Saturday. Oh, Tuesday, Wednesday is waiting. And then, when the male arrives... So the male basically fertilises the females' eggs which are outside her body, but they're still inside the shed exoskeleton that she has cast off. But the thing about,
+
+[00:06:43] she does with the skeleton is she doesn't get out of it. It's a bit like she takes... But she's still inside. Yeah, so she's sheds it, but it's like taking your arms out of a coat, but keeping it around you. It's like a much more disgusting version of doing that. Yes.
+
+[00:06:55] Right, yeah. Yeah. And then the male has sex with the coat is what we're saying. Yes. Yes. Yes. Exactly. Wow.
+
+[00:07:02] The male has sex in between the coat and you. And then you just chill on Sunday. It's really gross. They do it. To the face. but it ends up around the back. And this, scientists don't understand how this works yet. I don't understand what you're saying.
+
+[00:07:20] Right. So, if you picture their sexual position, the male curls himself around the female's face. Okay, so his crotch is in her face. Her face is buried in his crotch. And then she does these weird sucking motions with her throat, which kind of stimulates. This genuinely happens.
+
+[00:07:42] And it is quite romantic. Mr. David, I think we're going to need to rewrite of some of these lyrics. She does these sucking motions. It's a full hour of foreplay. Wow. Unbelievable for these tiny creatures. And then he ejaculates multiple times.
+
+[00:07:57] Impressive, guys, take note. But then he ejaculates under the skin, but then her eggs come out the back, her tobacco. So we don't really know how the sperm is climbing all the way around to get to the eggs. And what happens to the coat, though? I don't... Yeah.
+
+[00:08:12] Oh, I think they... I think they grow up in the coat, don't they? I think the eggs are fertilized, but they stay inside the coat. I think that's a... I was thinking that poor dry cleaner when you hand that egg. I agree, Dan, they're not shit. They're not completely shit. They're about one-third shit.
+
+[00:08:30] And that is because they can poo one-third the size of their body in a single go. Like a sloth. Sloths do that, don't they? Sloths do that, do they? Yeah, one-third. I think so. Baby sloths. Baby sloths, so. Well, it's the equivalent of me pooing out
+
+[00:08:45] a large pair of speakers, a 10-year-old child or an adult Dalmatian. A 10-year-old child? Is this a game of Would You Rather? I'm not sure about this 101 Dalmatians remake, actually. I think I'd rather... Wow, that's a lot of poo. It's amazing.
+
+[00:09:06] The video is good, isn't it? You should really watch the video of Tardaradig's taking a poo, a tardigrade taking a poo, because you can feel it really trying to squeeze it out and get away from it. And it's enormous. I think it looks much bigger than a third of its body.
+
+[00:09:19] There are two of them. It's by weight. There are two videos of them pooing. One of them, it's like really, really trying. The other one, it's finding it a lot easier. But the researcher who was doing that reckons it's because it was squashed between two pieces of glass
+
+[00:09:32] and maybe the squashingness helped it to send the poo out. Oh, my gosh. It's like a fetish video then that you guys watched. It's like when you massage your stomach a bit to help out with constipation. Just like that. Is that a thing?
+
+[00:09:44] Just like that, the Tommy Cooper Cat Trade. Can we talk about them the way they suspend and then reanimate? Okay. Because it is really, really cool. So they, as James said, if their environment dries out. So they live in moss, they also get called moss piglets, which is adorable. And if their bit of moss dries out, then they dry out with it, as it were. And they enter a thing called cryptobiosis.
+
+[00:10:09] So they roll into a ball, they shrivel up, they're normally 85% water. that goes down to 3% water, so they're almost completely desiccated. But then, if you put water on them, whoop, back they come. And scientists have been testing for decades how long they can go for. And the problem is, you need a tardigrade
+
+[00:10:27] that was dried out decades ago to experiment. The latest experiment on this was in 1983, a group of Japanese scientists in Antarctica, they found it and they froze a group of tardigrades. Then 31 years later, in 2014, they popped some water on them, and they woke up. Wow. come about two weeks, but they were called SB1
+
+[00:10:46] and SB2 for Sleeping Beauty One and Sleeping Beauty Two. Aw. That's nice. And one of them, they both came around, one egg they had frozen also hatched into a healthy tardigrade, which then laid its own eggs eight days later. It's incredible the way they come back. Yeah.
+
+[00:11:00] But did they have lots of very dated cultural references? There was the story of one that was found in a museum, wasn't that that was 100 years old? Supposedly came back to life as well, but that's not in a paper. That's kind of anecdotal. a bit, yeah, it's an Italian scientist who said it moved its leg. And it's kind of unclear whether it moved its leg or whether he nudged it a bit.
+
+[00:11:21] Right, oh, look, there it is. Yeah, yeah. We're going to have to move on to our next fact in a set, guys. Can I just because I'm the anti-Tardagrader on the panel, I'd like to put forward my rival to Tardagrades, and that is the Deloid Rotifer. And this is another tiny creature, about the same size, maybe a tiny bit smaller.
+
+[00:11:39] You could maybe, it's just on the cusp of being seable, and they can do all the same stuff, survive unbelievable extremes, like massive amounts of radiation, huge heat, being in permafrost for ages, much more radiation than tardargrades can survive, by the way. And they were thought to be able to last a decade, frozen and completely dried out, and then be able to reanimate themselves.
+
+[00:12:04] And scientists just found some trapped in Siberian permafrost and realized they have to reassess that, and it's not a decade they can, you know, stay frozen and then come back to life. It's 24,000 years. Oh, what? No. Props and water on sprung straight back into action. Those are pretty dated references, aren't they?
+
+[00:12:22] I was like, oh, what about those bully-bather take? They sound shit. Wow. All right. Not nice, is it? Not nice. Yeah. Thank you.
+
+[00:12:33] They also, they're called deloids, and they begin with, guys. What do they begin with? What letter? D. A B. A silent B. You're kidding How great is that?
+
+[00:12:44] Is it a leech is a deloid Isn't it? Is it? I think so Hmm Interesting No one knows that, so that might be wrong Yeah Anyway, we need to move on to our second fact Time for fact number two
+
+[00:12:55] And that is Andy My fact is that in the 1920s Chicago was hit by a miniature crime wave Of testicle theft Which was nicknamed Which was nicknamed Glaned Glan Larsony
+
+[00:13:07] Pretty impressive. Do you think if you'd had your testicles removed and you read that newspaper article you'd be like, oh, good one. Or do you think they're making light of what is probably quite a horrific experience? It sounds terrible.
+
+[00:13:25] It sounds terrible, but it is presented as a kind of funny thing that happened once. And it has been 100 years. So let's get into it. Next year, actually, is the centenary. So I know a lot of people will probably be wanting to market somehow. I think it's going to be a public holiday.
+
+[00:13:40] isn't it? I think I might have a big ball. Well, one person who didn't have a big ball, James, once this crime wave happened to him, the first victim in Chicago, he was an electrician. It's called Henry Johnson. He's called Johnson, huh?
+
+[00:13:53] And he... Yeah. He was found unconscious in the street. And he'd been out for a drink. He got into a street car, and he remembered nothing else after that, but it was quite late he'd been out. And his testicles had gone.
+
+[00:14:08] And he may have... of being chloroformed or something like this is kind of hazy. He didn't report it to the police apparently. He just went home and then went back to work. Wow. Really? Yeah. It was a different time.
+
+[00:14:21] People were stoic back then, were they? Oh, well, these things happened. Yeah. It happened. It did happen. It happened. It's such a hard thing to call in sick to your boss for, isn't it? I lost my testicles. Pull the other one.
+
+[00:14:40] I can't. The earliest report I could find on newspapers.com, which is like all the old American newspapers that we go on sometimes. It was a Sioux City Journal on the 14th of October 1922. Actually, it was the same report was in lots of them, but this was the first one that came up. But the next story in the newspaper was about the son of Leo Tolstoy who had lost his family jewels.
+
+[00:15:05] No. That is very good. That's really cool. That's got to be some deliberate editorial decision making there. Here's a question, right? Do you think this actually happened? Or do you think it was a medi-uppy thing? It definitely became a panic.
+
+[00:15:20] The rock? Yeah. The stories were a bit... So you were talking about Henry Johnson, and he came to explain that he was missing his testicles off the back of a different person first revealing it. So it's like he didn't tell anyone, press-wise. But there was a guy called Joseph Wozniak,
+
+[00:15:38] who told... And then other people came out and said, me too, my balls were taking it. and Johnson was one of them. But the report that I read, the article that you sent round to us, it said he discovered that one or both of his testicles were missing. And that's a curious thing to say. Was that Wozniak?
+
+[00:15:57] Yeah, that's what... There were different standards of self-care back in the day. Right. Yeah. I was equally confused by his story. In the article that I read about him, it said that all that happened was he woke in the streets, not remembering how he got there, horrible taste in his mouth, chloroform.
+
+[00:16:12] pain in his groin, got through the day, and then went to hospital where the doctor discovered his testicles had been removed, which I would have thought you would have realized... But it'd be swollen,
+
+[00:16:23] you'd be uncomfortable, maybe. You might not be looking, you know, analysing yourself properly. You'd be bandaged as well, right? Presumably, it wasn't. You bandaged... No, as in this before he's gone to the hospital. No, I think...
+
+[00:16:33] Well, there's been other cases, I think, where the people who were removing the testicles bandaged up the pet... Because they weren't trying to kill people. They just wanted their testicles. Wait, sorry, do you think you'd be so uncurious that if you woke up on the street and you had a big old bandage around your crotch, you just go, you know what, I'm not going to touch it. I'm not going to touch it. It's none of my business. Okay. This kind of gets, it kind of gets to the heart of it. It's so hard to tell. Yeah. I think it may have happened to one or two people, but not to all of them. So, for example, there was a guy who, a young man called John Powell. This was in 1923. There were a couple more cases. of it, or certainly alleged cases in 1923,
+
+[00:17:14] a young man called John Powell, who was allegedly assaulted by three men wearing white lab coats, who were shouting, we need a gland. And I don't know if that is true. But it was true that the authorities took it seriously. They promised to charge gland banditry, genuinely the phrase that was used to refer to it.
+
+[00:17:32] They made it a special crime. That was the crime of mayhem. They sort of included glam banditry in the charge of mayhem, so you could get 14 years in prison if you were found guilty of it. So there were responses, yeah. I think, like, the evidence that I could find. So a few things is, first of all,
+
+[00:17:47] it's really hard to use chloroform to knock someone out. There's technically really a difficult thing to do. So in movies, when we see that, that takes a couple of minutes. You would need to hold it over for, like, five or ten minutes. Often they would use other drugs as well. Sometimes, you know, there are ways of doing it. You'd have to know what you're doing to get the right dose. You'd have to hold their head up so they don't swallow their tongue.
+
+[00:18:07] So that's a bit dodgy. Okay. The other thing is all the articles warn about the dangers of liquor and this was in the time of prohibition. So they're always saying like, oh, well, maybe sobriety and early hours would prevent much anguish for this person who lost his testicles, stuff like that.
+
+[00:18:23] So there's that... Saying they were drunk. Saying that basically, there's prohibition happening. You shouldn't be drinking, but if you do drink, you might lose your bowls. So there's a bit of that there. But then one of the articles referenced a surgeon called Anthony Sigmund Sam Polinsky,
+
+[00:18:37] and I checked him, and he definitely did exist. So, you know, there was definitely some stuff there that was definitely real, so it's kind of weird. It's a really curious one. The theory that was launched was that this is the exact phrasing from the newspaper. It was possibly done to rejuvenate some
+
+[00:18:53] wealthy ancient, i.e. an elderly millionaire wanted some pep. But wait a minute, but that was happening though, wasn't it? But that's the weird thing. That definitely was happening at the time, which lends credence to this. And maybe it was a panic
+
+[00:19:07] off the back of the fact that people were going around inserting testicles into themselves. Yeah, shoving younger man's testicles on yourself, and you will become his younger self, is what they thought. And in Chicago, there was a famous doctor, Dr. Lespinas. And he did, I think, one of the first successful, successful testicle transplant ops in 1911. And this was actually initially for a man
+
+[00:19:29] who'd lost both his testicles, weirdly, into separate incidents. Stop. Just don't go back to that place. Just resign your job at the archery range. So he's lost... Two separate incidents. Yeah, one was an accident and then one was a botched hernia operation.
+
+[00:19:46] Oh, that's terrible. I know. It's very sad. Sorry we made jokes about that. But he had this surgery, and so this is where the origin of the testicle transplant giving you this amazing virility came from,
+
+[00:19:56] he had this surgery, and he said, after the surgery, he had a strong erection accompanied by marked sexual desire so intense he insisted on checking out of the hospital right away so he could satisfy it. Wow.
+
+[00:20:09] Wow. Wow. So this doctor was like, wow, I found this amazing new. thing for you guys. And that was a guy in Chicago, right? Yeah, yeah. And was these things were in Chicago as well, right? Yeah, exactly. Testicle thefts.
+
+[00:20:21] And in the same year as these thefts happened, there was a very, very famous example of the richest man in Chicago who's called Harold McCormick and he underwent some kind of surgery and they never said what it was, but all the press was certain that he was getting balls put into his balls. Everyone was so sure
+
+[00:20:39] he was going to do it and it was less than ass again. who was doing it. And the thing was, he had just married this woman called Gana Valska, who was an opera singer, who was much, much younger than him. She was very, very famous. Her first four husbands had been worth a total of $125 million. First four? Yeah, he was her fifth. That's going it. That's going some, right? But then he married her, and the idea was that he thought he'd never be able to keep up with her if he didn't have this operation. She was amazing, by the way. after she divorced McCormick,
+
+[00:21:10] she married a guy called Harry Matthews who claimed to have created a death ray. This is the most amazing woman I've never heard of. He was British, this guy, it was in 1924, he told everyone that he'd invented this death ray, and the government said, oh, can we have a look at it? And he went, well, give me some money first. And they went, well, we're not going to do that.
+
+[00:21:30] He went, well, I'm going to France then. And he said he was going to go away, and there was a law made to stop him from going and selling him. death ray, which obviously didn't exist to the French and to the other people. Wow. Yeah. So what was her type? It's hard, like,
+
+[00:21:46] just weirdos? Very, very rich men to start off with. Then men with testicles put into their testicles, then death ray guys, and then she ended up with a yoga teacher. The obvious end point. Anna, I don't think the 1911 guy was actually the very first, because I think there was a previous doctor
+
+[00:22:04] called Charles Edward Brown Sequard. So in the 1880s, he was convinced that you could reverse your aging. He was a brilliant doctor, by the way. He genuinely was a great doctor. He worked on the spinal cord and revolutionized our understanding of it. But he also...
+
+[00:22:19] Okay. He started injecting himself, not only with human seed, but he started with dog and guinea pig seed. Gini pig seed mixed up with blood just to really, you know, make it weirder. And he claimed... He was in his early 70s at the time,
+
+[00:22:36] and he said, this has done me a power of good. All I do all day is run around in a wheel. He claimed his eyes had improved. He could see better. He could run up and downstairs again, which he hadn't done for years. He claimed he could lift £15 more than previously.
+
+[00:22:52] And he claimed the average length of his jet of urine had increased by 25%. All thanks to guinea pig. That's what you want. You stood next to him better, you're riding on these three feet behind you. Have the operation go? your right all punches through the wall. And that set off, because I think we've mentioned him before,
+
+[00:23:14] and it guinea pig testicle transplants became a big thing, but that set off a big wave of kind of transplanting, experimenting with other animal testicle transplants. And so there was a surgeon called Serge Voronov and his wife, Mrs. Voronov, doctorate Mrs. Voronov, who became very famous for implanting monkey testicles into men. And what they would do is they'd remove the monkey testicles, cut it into segments, and then they'd make an incision in the scrotum of the human,
+
+[00:23:41] and then they would slot one of the segments into that. Like squeezing an extra slice into a cake sort of thing. Or a chocolate orange kind of thing. Oh, wow. Yes, yeah, yeah. And how many times would you, I'm trying to picture a millionaire walking around with 16 testicles worth of testicles in that, like just adding to it, just really indulging.
+
+[00:24:04] It's a good job they don't do it anymore, isn't it? Can you imagine, like, I don't know, Mark Zuckerberg walking around with like 200,000 testicles dragging behind them? All the names were mentioning are quite obscure names from history, but there is one name that sticks out who supposedly had monkey testicle injections into his own nutbag,
+
+[00:24:24] and that is W.B. Yates, the poet. Oh. Supposedly, he had this done. And, yeah, I mean, and he was very sex crazy into his later life. He supposedly was going to Harley Street in London and he was having these things.
+
+[00:24:41] It was all rumours. We weren't, I don't think it's been fully confirmed, but he had multiple affairs in the final, about twilight years of his life. And he was a weirdo, yeah, actually. He was into some freaky shit, so I believe it. Yeah, yeah, exactly. Apparently, if you have your,
+
+[00:24:58] let's say a testicle falls out of you, let's just say, let's just say, scenario, you're going home tonight here in Poole and whoop, my testicles fallen out, you have between four to six hours of getting it back inside. That's ages.
+
+[00:25:11] You must have to keep it on ice in the meantime, I should think. Yeah, exactly. So we did Richard Herring's podcast not too long ago, and Richard Herring, sadly, he's absolutely fine, but he had testicular cancer
+
+[00:25:24] and he had a testicle removed. He asked us to find some facts about it, and one of the things that I found out was that a testicle transplant had happened in recent years between two identical twins, one of whom was born with the testicles, just two, but the other was missing them entirely,
+
+[00:25:43] and they were able to transplant a testicle to the brother, and they were in their 30s, and it was a doctor called Dr. Dicken Co. Super. And Dr. Dickon was able to successfully transplant it, and it was great because you were transplanting it basically to the same body. Because it's genetically. Yeah, genetically, yeah, exactly.
+
+[00:26:03] Yeah. But four to six hours is roughly... Do you mean four to six hours during which the testicle will still be viable? Yes. Okay, so when you said if your testicle falls out, you know, you do have to sort of sew up the wound and stuff, and you just mean the testicle, you'll still be able to reattach it, and it will still function as a transplanted object of the body.
+
+[00:26:22] If it's happening now, you can stay till the end of the show, and you still have bags of time. Yeah. They'll say bags. We need to move on to our next fact. It is time for fact number three, and that is Anna. Yes, my fact this week is that until 2016, the Indian government earned $10 million a year from a single tiger. Pretty impressive tiger.
+
+[00:26:48] How do you make so much money from a tiger? It just worked really hard. No, this was a tiger called Matchley, very famous tiger, big celebrity in India, and Bengal Tigress, in fact. and she just became famous for being impressive and hardcore, lasting a long time. She was constantly defeating the odds, so she would fight lots of much bigger male tigers for territory. She had one very famous altercation with a 14-foot crocodile
+
+[00:27:18] that weighed twice as much of her, which, again, she had a real eye for PR because she always did this in front of tourists. So whenever a safari load of people came around, then suddenly she'd do something incredible like Kiela Crocodile Orch, she's a great pose of very photogenic and so yeah, raked in money for the government, the state government for years.
+
+[00:27:37] Well, just people visiting to see her. Exactly, yeah. Estimated the number of people who just booked their holiday for her. Yeah. I read that she won a lifetime achievement award for being a tiger. That's not that difficult, is it? Like, she is a tiger. Surely every tiger has a lifetime of being a tiger.
+
+[00:27:54] But I don't know. I don't think they do. Who was the award from? Well, it wasn't BAFTA. know exactly. Sorry, I didn't know who it was. It was travel operators for tigers. Oh, but yeah.
+
+[00:28:04] You really want that one, don't you? It's not the fucking Oscars. I know, but... Probably the Oscars for Tigers. It may very well see. It would be very dangerous to have that award at the Oscars. That's a health and safety nightmare. Like, what dressing room do they use?
+
+[00:28:17] It wouldn't work. The carpet would be read by the end of the Oscars. That's true. But yeah, she was super cool. And she was so valuable to the government that in the end, her life was extended. So she died when she was 19, which is very old for a wild tiger. They'd usually die when they're 15.
+
+[00:28:33] But one of the reasons that she died so old is because she lost a few of her teeth. She lost her canines. And actually she lost one eye because, you know, she was always in these fights. And it was thought then that she was so valuable to the state and people would be so devastated if she sort of starved to death because she lost her teeth that the state started leaving meat for her, sort of tethered goats out in the wild. And they were like alive, weren't they? The goats?
+
+[00:28:59] Yes. Yeah. So they didn't take her into captivity. They just left her in the wild, but with a nice tether goat. She must have thought that, I don't know, Christmas had come every single day. She must have thought that goats had got a bit stupid.
+
+[00:29:10] Yeah. Was the money purely from people visiting the place that she resided? Yeah. Okay, so she wasn't doing like Pepsi ads or like she wasn't, she wasn't on T-shirts and merch. No, she's very principled. She didn't believe in selling out and things like that. She just wanted to be herself.
+
+[00:29:26] I'm sure, definitely. merch. There must have been merch. Actually, there's shed loads of merch, yeah. Her images, she was on a stamp. Her painting is everywhere if you go to train stations in India. And this is up in Rajasthan. I didn't know she painted. Okay. Yeah. It's impressive. It's mostly poor prints, but it's impressive nonetheless. And she was the most photographed tiger in the world as well. That's pretty amazing, isn't it? Yeah. She had an amazing funeral because she was so kind of worshipped. So in fact, all, I didn't realize this, all leopards and tigers are cremated in India
+
+[00:29:57] when they die, or in national parks like this, and that is so that their skins can't be taken and sold on the black market, because obviously that encourages that. But so she was cremated, but first, it's very cool, and there's a video of this. She was given a traditional Hindu funeral, so she was wrapped up in white linen,
+
+[00:30:15] and you can just see her little head, quite big head, poking out above it, and then covered in lovely red flowers, and then carried on a kind of a funeral beer by lots of the park guards to this pyre. That's amazing. So cool.
+
+[00:30:29] It's quite a beautiful ceremony. Yeah. Can I tell you just a random tiger fact that I found quite cool? So the MGM, the movies, right at the beginning, you've got the big lion that's through the thing, big roar. So in the 80s, there was a sound designer called Mike Mangini who was working on ambient sounds for the movie Paltgeist. And while he was doing it, he collected a lot of digital. different sounds, including tiger sounds. And he sent that to the people at MGM saying,
+
+[00:31:00] have to listen to these roars, because they're really quite more striking than you have for your current lion that is doing the MGM roar. So when you hear that roar at the beginning of a movie, the lion is lip-sinking. It's a tiger's roar. It's not a lion's roar. Lions apparently don't have quite that boomy,
+
+[00:31:21] amazing roar that a tiger has. So, yeah, so it's dumb. Interesting. Another Hollywood tiger would be Mike Tyson's tigers He used to have tigers Is it in the hangover? He has some tigers But that's actually in real life
+
+[00:31:34] He used to have tigers He doesn't have them anymore Any ideas why he doesn't have them anymore Did they escape? They did not escape, no Did he beat them up? It's illegal to have tigers And he shouldn't have put them in the movie
+
+[00:31:46] Because that told everyone he had them Sadly quite legal to have tigers In some parts of America And he didn't beat them up Anna, no It's because they smell so much and fart so much. And he, apparently he got married and his wife didn't want them in the house
+
+[00:32:00] because when they fart, they smell like hell. Right. And now the tigers are gone. She's like, why is that smell still here by? And this tiger that we're talking about at the start muchly, right? So she was blind in one eye. And I thought I'd look at kind of tiger opticians. And I found one.
+
+[00:32:21] There is a person who is a tiger optician, a veterinarian, really, Tammy Miller, and she says there is one big problem with doing optician stuff on big cats. Can you think of what that might be? They're massive tigers, and they'll eat your face. A bit of that, but there's something else. Ooh, they don't take the...
+
+[00:32:42] They can't administer medicine to themselves. They can't put contact lenses in. You'll scratch your eyes. These are all great answers. According to her, the big problem is that they really hold a grudge. And so... How are we going to work that out? Oh, wow.
+
+[00:32:58] How did you not get that, Anna? Come on. And the thing was, is basically when you do the work on them, it's obviously not very pleasant for them, but then later on you need to go and do a bit more work on them, and they are not happy. They remember what you did, and they will not let you near them. What I thought is, do you know that, like, there's like a kid's story about the lion who gets a thorn in the part,
+
+[00:33:19] and then you help them, and then they're always your friend forever. not realistic. No, okay. Why aren't they grateful? They can see again. I thought you meant, when you said, and then the next time you see them,
+
+[00:33:32] I thought you meant the grudge extended to them, sort of like sitting in cafes with coats on trying to get back at you, you know, like they're tracking you down. But no, it's... No, it's just the next time they see you. And this was a time when they did some work on a big cat called Indira.
+
+[00:33:49] And basically they anesthetized them and did this work. anesthetize one of these cats, then you obviously have to do quite a lot of work on them at the same time, you might as well, because it's quite dangerous to anesthetize these animals. You might as well do as much as possible. I just say that because I really liked it, because they did an MRI, an ultrasound, and a cat scam. Nice. Listen, we need to move on to our final fact. It is time for our final fact of the show, and that is
+
+[00:34:16] my fact. My fact this week is that St. Michael's Church in Bournemouth has been renamed St. Mike's to make it seem younger and cooler. So this is a genuine thing. We're playing live in pool tonight. Bournemouth is just down the road, and it's a 148-year-old church. The Reverend Sarah Yetman believes that by changing the name, it's going to be, you know, a nice, hipper place
+
+[00:34:46] to have groovy kids come in, listen to their record players. Is it working? Do we think? I mean, Mike isn't that cool a name anyway. I mean, apologies to any mics in the audience. It doesn't feel like it's one of the top ten names these days. No, I mean, but I guess it is just shorter than Michael. It's not like, you know, St. Dave's. I think it's a bit hard to just change saints altogether.
+
+[00:35:09] I wonder if this is going to stick, because there has been backlash with people saying, come on, we can't start, you know, St. David's can't be St. Dave's. We can't suddenly just change the names of saints of our churches. Where does it end? it's a slippery slope you'll have St. Twat's Wagon that people go to worship in. Oh God, where does it end?
+
+[00:35:31] He's in the apocrypha. He's not one of the main 12, but he is there, yeah. St. Jude, I guess, for St. Judas. Probably, actually, there isn't a St. Judas is there. There is. But two Judas is, weren't there? Yeah. Great. You do get some Jude's. Oh, do you?
+
+[00:35:45] Yeah, yeah, yeah. But not St. Twats. I think we can all agree. I don't mind it changing its name, I have to say. It's had a refurbishment. They've opened off a coffee bar as part of that to offer a school drop off and so, you know, get the kids in and so on. I don't know, it's funny, though.
+
+[00:36:03] It is... Yeah, it's really cool. I think it's great when churches do this. And there's a big push, although there always has been, from the church to try and rejuvenate itself. And I think there was a building, a church building review group in 2016,
+
+[00:36:15] which is looking at all these big stone, like beautiful edifices we have, but which are empty just all the time. these days, and it was looking at how to repurpose them. And so now you get cool stuff like St. Paul's Church in Bristol is now a circus school. And if you look at pictures of it, it's got like trapeze wires and high wires hung from the ceiling and people swinging all around it. Wow.
+
+[00:36:35] It's great. There's about a dozen churches that are champing sites. What thing? Champing? Church camping. Oh my gosh. I've camped in a church. Have you?
+
+[00:36:44] Yeah. How come? Have you? Oh yeah, a church hall. Yeah. Really? Yeah. For a fortnight when I was 17.
+
+[00:36:50] Two weeks in a church. Yeah. Your parents really didn't get along with you today. Work for any reason? We were doing some sort of volunteering thing and you had to go and live in the church and then take out the kids of the parish during the week. I did once sleep in a church in Northumberland.
+
+[00:37:08] Did you? I must say, yeah. We went on a walk because I went to a Catholic school. We went on a walk and then we went to this little village in Northumberland and we decided to play football against these kids. and they were so much rougher than us. And basically it turned into a massive fight.
+
+[00:37:24] And when I say fight, it was them trying to beat us up. And we leged it into the local church and went, sanctuary, sanctuary! Did they tell you to piss off and fight the kids? We stayed in there overnight. Oh, that's nice. Oh, my God. Anyone else slept in a church or no?
+
+[00:37:43] No, not slept in a church. I probably nodded off in a few church services. Yeah. That counts. Have you heard of Stony Fork community church in South Carolina? I don't believe so. It would be staggering if you had. I love these guys so much.
+
+[00:37:57] They have also changed their name. They're a church. And until 2020, they were called Outbreak Church. And then they found themselves thinking... And it was set up in 2013. The vicar called Scott Carroll articulated his mission as follows. He said, I want to be around people
+
+[00:38:13] who are so infected with Jesus that every time they turn around, they sneeze Jesus. And... Sneezers. Yes. Sneezers, Christ. Every time they talked about the church, they talked about contagion and infection and epidemic.
+
+[00:38:29] They made bracelets and shirts with the phrase, are you contagious? And people would read them and say, contagious with what? And they'd say, Jesus. And he says, this was really fun until, for some reason, early 2020, stop being funny. I was having a look at the Reverend Richard Coles' autobiography. Oh, yeah. And he was saying, it was just a throwaway line that I then looked into. He was saying that a lot of vickers have funny names,
+
+[00:39:00] and he was saying he knew someone who insisted on everyone, even bishops calling them the Reverend Gazz. And so then I thought, I wonder what funny names there have been in the church over the years. There's this blog, the blog of St. Chrysostom's Church in Manchester, and it's really good. Do you know when people put proper effort into quite an obscure thing? And there's a piece on funny names of church leaders throughout history.
+
+[00:39:24] And there are some such good ones. So I like this anecdote, which is Henry Joy Fines Clinton, who was a rector in the early 20th century, who went to see the Bishop of London. And the bishop said, take a chair, Clinton, to which he replied, it's Fines Clinton. And the bishop said, in that case, take two. And so it's just, I thought that was funny from a bishop.
+
+[00:39:43] Yeah. but um okay it's it's it's it's bishop humor it's bishop humor yeah okay we won't get him on the podcast I was just this is his audition tape Anna thought
+
+[00:39:54] oh come on give us more zingers right wow okay um okay what about this the very reverend gonville obi French
+
+[00:40:03] bay tag but French is spelled with a small F and two of them is that important is that important for the anecdote there's no that is not
+
+[00:40:13] That's it. It's just the word Fred spelled slightly differently. No, Anna, we want you to tell us every single one you found. This is literally all I've got now. This is not very amusing names. Okay, Father John Brabazen Brabazen Louthor.
+
+[00:40:31] Come on. It's two Brabison. Brabison. Brabison. Oh my God. I'm just picturing Jimmy Carr at the Hammersmith Apollo. Your next act is a fucking killer act.
+
+[00:40:43] She's got some amazing. Amazing anecdotes, Anna Toshinsky, everybody. We've got Father Page Turner. We've got Father Pickles. Page Turner, open with Page Turner. That's great. Father Pickles is funny as well. I'll reorder the set. Father Calfel. Father Christmas. Okay. So that's the one I should stick with, Father Christmas.
+
+[00:41:08] I don't think stick with any of it. Okay. Have you guys heard of St. Andrew Undershaft? I can't believe He just said a name Way funnier than Anna's 20 The House Just off the stage
+
+[00:41:22] The full day of work I'm so sorry Delving into church Archiegelly I'm so sorry This is right under your nose The whole time St Andrew Undershaft Is a church in London
+
+[00:41:32] And it was literally Under a massive shaft That's the reason it was named like that There was a massive maypole A huge maple This is the 16th century Gigantic maypole Can't stress how big this maple
+
+[00:41:43] was. And it was there every year, around May Day, until an event in 1517 called the Evil May Day riots, which I had never heard of before. And they were these huge riots, they were huge anti-foreigner riots, so they weren't very funny.
+
+[00:41:59] But the Maple... I'll put them in my set. Maypole was toppled. The Maple had to fall. And it was then preserved in a house on nearby Shaft Alley. But the Maypole, it's
+
+[00:42:13] was then destroyed in 1549 as a pagan idol. But the church, St. Andrew undershaft, 500 years later nearly, still has its name. Yeah, cool. I'm so sorry that I need to do this, but it's bugging me. So why was the double F thing funny? Tell us the name again, I know. Right. The very Reverend Gonville Obie, French, Baytag, but French is spelled
+
+[00:42:43] with a small F and two of them. I'm now finding it funny. I think I've gone through the unfuniness. I'm finding it funny again. I find that it's so funny that there's two Fs in the word funny. And they're both lowercase. I got told the thing by a very good friend of ours, Jason Haisley, who is a friend of the podcast.
+
+[00:43:08] He's been on a couple of times. And we mentioned a fact quite a long time ago, which is, and it was about 50 odd episodes ago, which is that flying saucer suites are made by this Belgian company, Belgica, and they are the same people who make the communion wafers. And when Christianity was declining a bit, it meant that they had a lot of spare wafers,
+
+[00:43:28] and so it's the flying saucers that are made out of Jesus, Jesus' body is the flight. Oh, Christianity. Sorry, I thought he said Christianity. I thought you were trying for another funny name. Anna, please, no. Please, not Reverend Christianity.
+
+[00:43:43] Christianity. Boring. If it was Christ Di-yality, that would be pretty good. I just misheard again. I don't want to raise it, because what if he's a really famous guy, and I know everyone hasn't heard of it. Sorry, Christianity was declining. Yeah, so Flying Saucer Suites are basically communion waferes.
+
+[00:44:05] That's the thing. So Jason was listening to our podcast, absolutely blown away by it, and he messaged his friend, who was a vicar, and he told her this story, and he said it blew her mind as well. And then he said, she went, oh, my God, hang on. She said that when she was in training as a vicar, because communion wafers, or hosts, as they're properly known,
+
+[00:44:25] are the literal body of Christ. Trainees don't use genuine communion wafers. They use flying saucers. And so by accident, they're accidentally using this. And I know, James, I think you said that this doesn't feel right, so I think it's like particular to her story. Yeah, I mean, I, well, like we have, always do when people send us stuff like this, we go into a massive amount of detail,
+
+[00:44:47] and I emailed all the reverends and vickers and priests that I knew. And they reckon that until transubstantiation for them, it isn't the body of Christ. So they wouldn't do that. But that's not to say this person didn't. Yeah, yeah, exactly. Can you do it? Because they're flying saucers. Can you do it from a distance?
+
+[00:45:03] Because I think I would start going to church if someone threw a flying saucer into my mouth. That's true. And then you'd just be jumping up like a dog to try and catch you. Yeah, yeah. That would be cool. If you did it like how they do with the bouquet at a wedding, who's going to get Bonnie a Christ this week? Who's going to heaven?
+
+[00:45:18] It's one of you. We're going to have to wrap up in a set, guys. Is there time for some more names? Oh, okay, I'm so glad you've asked. Ryan McVicker, the founding. Ryan McVicker is great. Yeah, that is good. My God, you were pissing around with the French guy
+
+[00:45:37] when you had Ryan McVicker tucked all the way up your sleeve? I still think French is the best. Maybe, maybe. Can I just on churches reinventing themselves, there is a church that shaped like a high-heeled shoe in Taiwan, which has the Guinness Record for the largest high-heeled shoe-shaped structure. And it was built in 2016.
+
+[00:45:57] It's actually a wedding venue, so it's not ordained by God. It's like a wedding church. But it was built to attract women. And the Taiwanese government said there will be 100 female-oriented features inside, like maple leaves, chairs for lovers, weird, biscuits and cakes. Women. And it's so weird, it's inspired by this story of a girl in the 1960s who got Blackfoot disease,
+
+[00:46:24] had both of her legs amputated, and her groom cancelled her wedding, so it's in honour of her, which I actually think is quite offensive. They made the shirt shaped like a shoe? Yes. Not sure that's okay. Wow, those female things, I didn't know that women like, maybe. Maple leaves so much. Oh my God, it's what we talk about.
+
+[00:46:43] Actually, every time I get home from a tour gig, the house is full of maple leaves and it's a nightmare. Well, you mean the ice hockey team? Oh, yeah. Well, they do with your house when you've been away on top. I don't know. I'm going to ask some questions when I get back this time. In 2019, have you guys heard of the company called the Christian Book Depository?
+
+[00:47:02] No. Yes, I think so. Oh, yeah. So the Christian Book Depository, they complained in 2019, because they kept getting phone calls like this. a person would call up and say, hey, I'm looking for my order. And they're like, what did you order?
+
+[00:47:15] He says, I ordered gummies. And they went, alright, you're not in the right place. And it turns out that their website, CBD.com, it was attracting the wrong kind of people. And so they've since changed their name to Christian Buck.
+
+[00:47:32] That's great. That'd be a great name for a vicaran. Look, we need to wrap up, guys. Okay, that is it. That is all of our facts. Thank you so much for listening. If you would like to get in contact with any of us about the things that we've said
+
+[00:47:46] over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shreiberland. Andy? Andrew Hunter M. James. At James Harkin. And Anna.
+
+[00:47:56] You can email podcast at QI.com. And if you're a vicar with a funny name, please. Yes. Right in. Get in, yes. Yep. Or you can go to our website,
+
+[00:48:05] no such thing as a fish.com. That's fish with one F. and thank you so much Paul we've had so much fun here tonight and everyone listening at home we'll be back again next week with another episode we'll see you then goodbye

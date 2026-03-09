@@ -1,0 +1,231 @@
+# No Such Thing As A Fish - No Such Thing As Pets In Heaven
+
+- Episode date: September 20, 2019
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-pets-in-heaven
+- Slug: no-such-thing-as-pets-in-heaven
+
+## Transcript
+
+[00:00:02] This is a fish. A weekly podcast this week. This week coming to you live from Antoine. My name is Dan Schreiber and I am sitting here with Anna Chisinski, Andrew Hunter Murray and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with you, James. Okay, my fact this week is the Pope. Leo the 10th had a pet elephant who was killed when doctors gave it a gold enema. So there's quite a lot to unpack. It's the fact that really has everything. It has popes, it has elephants, it has gold and it has bottoms. So anyway, so this was in 1514. There was King Manuel I of Portugal.
+
+[00:01:14] He gave Leo the 10th this white elephant called Hano. and the Pope, like, absolutely loved this elephant. He thought it was the greatest thing in the world. It almost made him understand why people worshipped false idols, as long as they were white elephants called Hanno. But unfortunately, Hanno didn't really like it living in Rome, and he stopped eating, and it turned out he had very severe constipation.
+
+[00:01:37] And so Leo called in all the best doctors in the land, and they decided to use the normal thing that you would do for a normal human who had constipation, fire some gold up the bum and unfortunately that doesn't work well with elephants gold is it in like in bar form
+
+[00:01:54] or? Powder Was it coins? Was it were they slotting it in? Like a And then you pull the trunk and hopefully you win
+
+[00:02:04] No it was so they would dilute it with water and presumably some Right Yeah it's quite amazing to have elephant in Rome at that time because they didn't really have it. That was such a big thing. I think the Pope was told about elephants and he thought, I'd love to get one and it was arranged.
+
+[00:02:24] And there's stories about when Hanno actually arrived in Rome, they had a sort of procession for when he was introduced to the Pope. It says that he was walking through the streets and he had sort of clothing on him that made him look very royal. He had a little silver tower on his back. And when, apparently when he got to the Pope, he bent down on one of his knees and bowed his head low as if to say hello sir, you know, to the Pope and that's in my head I've seen that scene and it's
+
+[00:02:53] an Aladdin when they're going down the street for... You're right. They never show the tragic sequel to that scene in Aladdin, do they? You haven't seen the uncut version? Great. After he did that Hano lifted his head, trumpeted three times and then sucked some
+
+[00:03:09] nearby water into his trunk and blew it over the adoring crowd. I mean, he didn't do any of this stuff. let's face it, there was a bald person making up the reports at the time. But people were madly excited, weren't they? Even the general population. Another report said that people left a total, like they'd trashed the town, and they left a wreckage in their wake just trying to get a glimpse of this elephant.
+
+[00:03:31] There was trampling of fields and crops. There was crashing through roofs, and there was tearing down walls to see the elephant. Tearing down walls. Yeah, I don't even know how you do that. Yeah. You could do it with an elephant if you had one. I'm not sure Hano could do it. Hano was quite a small elephant.
+
+[00:03:48] He was only about four feet tall. Wasn't he? He's quite sweet. No way. Do you know that? Yeah. And then, so he was, anyway, he was a massive hit, and then obviously it was extremely sad that Hano died. So, King Manuel had to think of a sequel present for the Pope.
+
+[00:04:02] So two years later, he sent a rhino. He thought, you think you've seen something. You ain't seen nothing yet. He sent a rhino. Tragically, it drowned en route. Oh. I know. But then, no, don't worry.
+
+[00:04:14] It's got a kind of happy animal. ending because it washed ashore and then the king had it stuffed and mounted and sent to Rome as a sort of is that a happy end? Yeah, well, I don't want you as my doctor when you tell me one of my family members have passed. Good news though. I also run a taxi domy shot down the road. That's great. So he presumably sent a letter ahead saying, I've got you a lovely live rhino. And then a follow-up saying, correction, I've got you a dead stuffed rhino. Cool. But he got slightly. in trouble for this the Pope from some corners
+
+[00:04:47] didn't he? Because this 16th century was around the time of the Protestantism and the Reformation and the elephant was really the pinnacle of the Pope's profligate kind of extravagant lifestyle and people thought the church was wasting their money left right and centre. And the following
+
+[00:05:02] year, I think, after Hanno died was the year that Martin Luther came and nailed his points to a door. But he didn't mention the elephant though, did he? He didn't explicitly mention, but I think the elephant ran as a theme through a lot of those Protestant demands. And the reason that that happened, well, the main problem that Luther had is that they were selling indulgences, right?
+
+[00:05:26] So basically, if you'd committed a crime, you could pay for them to let you off. And the reason that they started doing that is because Leo the 10th was extremely profligate and was just spending all of his money. So within two years of becoming Pope, he'd spent all of the treasure amassed by the previous Pope, who was a... the extremely frugal Julius the second. And he just spent it all. He just was like, I'm the Pope now I'm going to do what the fuck I want. That's an actual quote.
+
+[00:05:54] Although, like, before he became Pope, he was known as Giovanni the Wise. Was he? Yeah, and he had a brother called Giuliano the Good, who became his helper. And then there was one other brother called Piero the Fatuous. And he became the ruler of Florence.
+
+[00:06:12] That's a bit of a burn on Florence, isn't it? send you the fatuous one. One of the things that Leo might have spent the money on, I don't know if it was exactly him who spent the money on this, was the Vatican's secret erotic bathroom. What? Have you heard of this?
+
+[00:06:27] Keep talking. The Vatican used to have a secret erotic bathroom. How is it, I mean all bathrooms can be erotic, I suppose, if you want them to be, but how was this one specifically? And why, how was it secret as well? Okay. Was it like you would say to the public, can you tell me where the
+
+[00:06:42] bathroom is and he went, God, the stairs, turn left? No, right! Well, it's covered in erotic frescoes. They're extremely explicit drawings all over the place. And this was commissioned by an official, and it was painted by Raphael. So this was actually almost exactly, this was the same time, because he was contemporary of Leo the 10th. And it was rediscovered recently. A journalist kept writing to the Vatican saying, I know it's there somewhere, and you know it is too, and you're going to let me come and see it.
+
+[00:07:12] And eventually the Vatican cave. They said, yeah, all right. we'll let you see it. So it's still there? It's still there. Wow. The frescoes are there, but it is not open to the public.
+
+[00:07:19] That is so weird to think of the Pope just going in there for some quiet time, isn't it? Which I'm sure he doesn't. That's amazing, though, that there's now artwork by Raphael that we're not going to get to see because they're a bit worried. So Raphael, actually, with Hanno, the elephant,
+
+[00:07:38] we're missing a bit of art, which is when Hano died, the Pope was so sad that he wrote a big piece to commemorate him, commissioned Raphael to do some paintings of Hanno, and we lost that in fires and things that have happened over the years. But that's amazing.
+
+[00:07:54] Unseen Raphael art. Sounds like it's doodles rather than art, from what I've heard so far. There's a lot of doodles. Just cocks and balls all over the wall. Just on popes and animals, there's a lot of stories that you can find about, you know,
+
+[00:08:12] a pope meeting and animal. one is Pope Fabian. Pope Fabian I've never read about before, but he became Pope, and he wasn't a contender, but while they were all trying to decide who the next Pope was, and they had like 13 people that were front runners, several of them, a dove landed on his head at a really odd moment, and they went, well, clearly, that's the Holy Spirit telling us that he's, and that's how he became the Pope. A bird landed on his head. Do you think we could do that for the next leader of the United Kingdom? I believe it.
+
+[00:08:46] I mean, how often does a dove land on your head? It depends if you've got birdseeds hidden in your hat. You're right, of course. Popes have very mixed relationships with the issue of animals and religions. So a few years ago, Pope Francis, allegedly, he was quoted everywhere as saying that all pets will go to heaven. All of them. And he did not say this. He did not say it, but it was reported everywhere.
+
+[00:09:13] The Vatican had to clarify, no, your pet will not go to heaven. Whoa. It's quite a tricky thing to say, two people, isn't it? So he didn't say anything like that? He didn't even say, not even some pets. No, he didn't even say only good boys go to heaven. He was quoting Pope Paul the 6th, who had died in 1978, and he said Pope Paul the 6th had said that, the idiot.
+
+[00:09:36] But they thought that he'd said it himself. We're going to have to move on to our next fact very soon. Oh, okay. They are kind of cat lovers, historically, popes, aren't they? So a lot of popes have had cats as pets, and I don't think you're supposed to have pets in the Vatican. But for instance, Pope Benedict, so the Pope for this one, wasn't he? Yes, he was. He actually had a biography of himself written by a cat.
+
+[00:10:02] Stop it. Cool. Yeah? His pet cat, Chico, who stayed in the house that he'd hoped to retire to before becoming Pope, Hassel. his pet cat Chico stayed in this house with the house as caretakers and wrote the life of Pope Benedict as told by a cat
+
+[00:10:19] and it were with some help so there was a... A ghostwriter was a strong word. Oh look a ghostwriter is a strong word I think a copy editor helps at the end. Leo the 12th he gave papal audiences with his cat hidden in his lap
+
+[00:10:35] underneath all his vestments and occasionally it would give the game away by just having the swishing tail just below this kind of smoke. That would be very unsettling to see if you didn't know about the cat. Yeah. If you saw that a bulge come up underneath the actual
+
+[00:10:51] someone's just been in the sexy bathroom. The current Pope, Pope Francis, has cows and those cows are used to paint the Belvedere Palace, which houses all the precious art from the Vatican Museum. What do you mean they're used to paint? Because they're not good painters, cows
+
+[00:11:08] usually. No, they're not part of process. They just help with the materials. So the milk of these cows is used to paint the walls of the outside of the museum. Oh, so do you just grab an udder and sort of angle it to where you need it to be? No, it's a very old recipe that they found where if you
+
+[00:11:24] added cow's milk to it, it makes it a better thing to paint with. And so they don't do it out in nostalgia. They do it out of it's the best way to paint their walls in the way that they have them. So yeah, all the walls out there. And I wonder the cats like the Vatican so much. It's full of milk. Okay, we need to move on to fact number two.
+
+[00:11:48] It is time for fact number two, and that is my fact. My fact this week is that Johnny Cash, who released the song Walk the Line, had a lesser-known musician brother called Tommy Cash, who released a song called I Didn't Walk the Line. This is, so Tommy Cash, Tommy Cash is still alive. He's 79 years old, and his husband. whole career. He's been a country music star just like his brother, but not quite to the, you haven't heard of him.
+
+[00:12:22] And he has other great songs like one is called My Brother Johnny Cash and another one called My Mother's Other Son. Oh. So it's good that he doesn't really play off the Johnny Cash connection it sounds like at all. No, he's a very, actually I've listened to some of his songs. They're genuinely really good and he has a lot of songs with, I think those ones are done, Johnny Cash has a very good sense of humor. These were done with a sense of humor as well, I think, as far as I can tell.
+
+[00:12:51] Johnny Cash was an amazing guy. Yeah. So there's a story about him that he was the first American person to find out that Stalin was dead. Yeah. Really? Yeah, it's really repeated everywhere. So he worked as a radio operator for the American Air Force between 1950 and 1954. Yeah, and Stalin died in 53, didn't he?
+
+[00:13:13] So according to him, he claimed he located the signal, because he was in West Germany at the time, I think, when a Soviet bomber was flying from Moscow to small-inskin, the news was being transmitted internally in Russia, but it hadn't made it outside yet. Yeah. But I don't think he didn't. Because another biography pointed out that he didn't speak Russian, and it would have been in code, and he wouldn't have been able to decipher the code. And even if he had been able to decipher it, he didn't speak Russian. He was amazing, though, Johnny Cash. She had an incredible life. He was obviously famous for singing in lots of prisons,
+
+[00:13:47] but he also spent quite a lot of time in prisons himself for doing bad stuff. And so one time, there was one time which sounded kind of sweet, where he was jailed, and he only ever spent one night in jail. It was for stuff like once he broke into some property to pick some flowers, really hardcore stuff like that. So he spent one night in a small town jail, and the warden who was jailing him said, my wife's a big fan of yours and when I went home last night and told her I had Johnny Cash in my jail
+
+[00:14:15] she cried all night well he did only spend one night in jail but he did get in a lot of trouble didn't he like he smuggled drugs over the border that was a big thing that he got in trouble for there was one time when he was driving into the countryside while taking pills drinking whiskey and swerving all over the road and then he decided to set a fire and set his car on fire and then set the forest on fire and when they caught him and they said, you know, did you start this fire? He said, oh, no, no, my truck did. And it's dead, so you can't question it. And then they said, well, what about these condors?
+
+[00:14:53] We had 53 endangered condors here and 49 of them have gone away. He said, I don't care about your yellow buzzards. He killed half that species. Yeah. There were only about 100 left at the time. And he killed 49. And the species got down to 27 a few decades later, which was principally the fault of Johnny Cash.
+
+[00:15:17] It's crazy. But their numbers have since recovered. Now Johnny Cash is dead, they have. He actually had a really bad relationship with birds. So he was addicted to painkillers and pills and had serious problems with that. And then he quit them. He claimed because he did it for June,
+
+[00:15:38] the love of his life. And then he fell back into his painkiller addiction after being attacked by an ostrich. So it was in the early 80s. And he wrote about this in his autobiography, I think. And he said that he had this animal park on his land where he had lots of exotic animals. And he had an ostrich, a pair of ostriches that he'd always got along very well with. And then the female died and the male got kind of pissed off. And so Johnny Cash was walking through the land one day.
+
+[00:16:04] And the male just went for him. And Johnny tried to swipe him with a stick. And the ostrich jumped in the air and then came. down at him with his big claw and slit his stomach right open. So he ended up breaking five ribs and he said that the only thing that saved him was he was wearing a really big belt. So the huge ostrich claw couldn't get slit his stomach down beyond that belt. So then he went to hospital, had to take some painkillers and...
+
+[00:16:27] Back on the drugs. I think there's more to that story than there is. I think Johnny Cash killed the female ostrich and was going back for the male. And the male took vengeance on him. His drug taking was, I mean, it was insane. that he was doing. He always tried to kick it, never fully managed to do it. At one point, when he was really into the drugs, he released an album called Bitter Tears. And Bitter Tears was actually a very serious album. It's sort of the AKA of it is ballads of the American Indian, and they were
+
+[00:16:55] protest songs about how Native Americans were being treated at the time. So the sleeve notes say that Johnny Cash sings well these tales of the Indians' woe. Johnny is justified in the stand he takes as he is proud of his Cherokee blood. So Johnny has Cherokee and Mohawk blood in his veins. He said he doesn't. He's in no way Native American. The drugs made him think he was Native American.
+
+[00:17:23] He told Playboy in an interview, he said, the higher I got, the more Indian blood I thought I had in me. And so the whole thing was just a drug trip. Wow. I wasn't really sure about him. Because he's quite, you know, there are some good, when you read about it, it's really complicated, isn't it?
+
+[00:17:38] Like, for instance, he once shot a crow. but then spent the next two days looking for a vet who could heal it. Okay, so it's kind of built on both sides, but then I read one thing which really pushed me over the edge. Apparently, he used to drive down golf courses, picking up the player's bowls and throwing them into the trees. And I'm sorry, I could not trust a man who does that. Just speaking of cars, I mean, this gives you another sort of insight
+
+[00:18:02] into his kind of not empathetic side. There was a friend of his who was called Farron Young. he was a friend of Caches and he was also a musical contemporary but he died in 1996 and his son said can I come to your garden and spread his ashes because this is a place that he loved to come
+
+[00:18:21] so Johnny said yes Johnny was out I think for the day came back and clearly when the ashes were being spread some of them had caught in the wind so Johnny came back and over his windshield of his car were the ashes of his former friend and he just turned the windshield wipers on
+
+[00:18:36] he wiped him off He wiped his existence off. It's what he would have wanted. That's true. Who knows what he asked for? Just on Johnny Cash and Birds, because we were just talking about all that, just very quickly. It's all we're talking about. He fell out with his record label in the 80s, Columbia.
+
+[00:18:55] But they kind of set, they had a deal, so he had to release some records. And so he released a deliberately awful song called Chicken in Black, which was all about his brain being transplanted into. to a chicken. It sounds amazing. And actually it was quite a success. Oh, really? Yeah, yeah.
+
+[00:19:16] It's not terrible. Have you listened to it? I don't know. I think it's nice. He's not very good at writing deliberately bad songs. Is he not? What about this one that I've heard that? I don't think he wrote this,
+
+[00:19:25] but he definitely sung it. It's called, I've been flushed from the bathroom of your heart. Is that a good one? That's great. You know, possibly my favorite thing about Johnny Cash is his daughter's, name, which is Roseanne, and this is his daughter with his first wife, Vivian, and
+
+[00:19:42] her daughter's called Roseanne, because his name for Vivian's breasts were Rose and Anne. Is that a nice thing to carry around with you as a daughter? Who knows? We're going to have to move on soon to our next fact. I can give you a few more country song titles, just for the fun of it. Drop kick me, Jesus, through the goalposts of life. that's a good one here's quite a famous one you're the reason our kids are ugly wow
+
+[00:20:16] he went to sleep and the hogs at him now Claude's gone forever that was by Nathaniel Nathan Nathan and we feed our baby's onions so we can find them in the dark which is more a tip
+
+[00:20:33] for life I think than a song it's a great tip I like it we need to move on to our Next fact. It is time for fact number three, and that is Andy. My fact is that De Beers use a giant vacuum cleaner to get diamonds from the bottom of the sea. Wow. This is so cool. This fact was actually sent to us by someone on Twitter at Grapecy81. Thank you very much. So this is an amazing thing. Diamonds on land are running out. Most diamond mines are going to run out in about 2050, we think.
+
+[00:21:05] So now there are these floating mines which Bob around. off the coast of Namibia, a lot of them, and one of them is run by De Beers, and it dredges up huge amounts of stuff from the seafloor, sifts it, and then returns the stuff to the seafloor, but keeps the diamonds, and it's hugely profitable. Are there lots of diamonds there? There are.
+
+[00:21:25] Wow. That's why they do it. Yeah, it makes sense. You think about it. So, in 2016, mining company's got $600 million worth of diamonds from the seabed, so this is good. But it is a bit of a, worry as well this method of getting diamonds because it sucks up a lot of the seabed, it might disturb
+
+[00:21:43] the life living down there, and they do know that the vacuum cleaners they use are big enough to suck up fish and octopuses, which go on this massive crazy ride through the system. And then they do end up back in the water at the end. And these diamonds are much better, or it's much more likely that you're going to get a really good diamond, right? Because the water is always buffeting these diamonds. And so the little rubbish ones kind of get ground away. and only the really high quality ones are left. That's why they do it. That's why they're good.
+
+[00:22:16] Sound like a spokesperson for De Beers here. We are sponsored today by... Debears is a pretty extraordinary company. They have controlled our view of diamonds for like a hundred years. It's mad. So they, until like the late 19th century, diamonds were incredibly rare. You basically found them if you picked them up on a few riverbeds in India. You could scavenge me.
+
+[00:22:38] maybe a diamond if you were very lucky, or the jungle of Brazil, but then in 1870, suddenly we found these, well, we started mining in South Africa, and it was full of diamonds, and the market was suddenly deluged, and De Beers, who was the British company, who was running the market at that time, thought, well, we can't let the market be deluge, because otherwise we'll devalue the price of diamonds. And so they've basically been controlling the price. They're not even that rare. They're not, so lots more things.
+
+[00:23:05] Emeralds, rubies, sapphies, they're all much more rare than diamonds. gold, so if you took all the gold, ever mined in the world, it would be... And pull it up, an elephant. It would die. No, it would be a cube with size of 20 metres, whereas diamonds are fine, but De Beers has just had this monopoly on them forever.
+
+[00:23:26] Yeah, and they created that idea as well of the thing of how much you need to spend on an engagement ring, creating the idea of a diamond being a part of an engagement ring. So it's something like your... It's like a month's salary, is it? A month's salary. I remember, someone told me that when I,
+
+[00:23:38] got engaged to my, well, I was about to propose to my wife, that that was the case. Terrifying things are you. Well, no, what you do is you just resign your job. Yeah. Propose using an extremely small ring. Yeah. And then explain the situation to your now furious fiancé. And your furious boss, obviously, when you ask for your job back. The other thing is, if they just decided that they could have pitched it as high as they wanted, really, couldn't they? Yeah, but if they said you have to spend 20 years of your salary on a ring, it's got to pitch it. But you can You can now make diamonds, obviously artificial diamonds are much more of a thing. And there is a Dutch designer who makes diamonds out of smog.
+
+[00:24:16] This is so cool. He's got a tower which sucks in 30,000 cubic metres of polluted air every hour of the day. And it cleans it, releases the clean air, so it's cleaning the air a bit. And then it collects a lot of carbon, and that carbon is crushed down into a diamond. It's not very romantic, though, is it? No. No, it's not. and these synthetic diamonds
+
+[00:24:39] is a real problem for De Beers really because if you can start making them in a lab which are pretty much almost identical to the ones that you get from the ground eventually it's going to be much cheaper to do it and whatever so they've been really going against this for a long time De Beers but very recently they've started their own brand called
+
+[00:24:57] Lightbox which offers synthetic diamonds but what they're doing is they're calling it affordable fashion jewelry that may not be forever. And there's a suggestion, and I'm not saying this, because of course we are sponsored, but no, we're not sponsored.
+
+[00:25:13] But there's a suggestion that they're making deliberately trashy-looking jewelry with these synthetic things in so that there's a big difference between those ones and the so-called real ones. Oh, really?
+
+[00:25:24] Oh, that's so sneaky. But most diamonds are synthetic. So I think that only 1.4% of today's diamonds are naturally mined. But synthetic diamonds have never been. good quality enough until very recently to be used as jewelry.
+
+[00:25:38] But their diamonds are really useful in industry, so for sort of cutting and polishing because they're so hard. And so those ones tend to be generated in the lab. So yeah, most diamonds don't come out of the ground. Swallowing diamonds? What? Sure, let's do it. In 2013, there was a charity event where everyone present got a glass of champagne, and all the
+
+[00:26:03] glasses, I think this is what happened. they had a cubic zoconia in the glass. And one glass at the whole event had a diamond in it in the glass which a local jeweller had donated. So the idea is at the end of the evening, everyone checks their flute and someone's got the genuine diamond and they get to keep that diamond.
+
+[00:26:19] Cool. Unfortunately. I think you've given away from your headline of what happens in the story. Unfortunately, the diamond was swallowed by an 80-year-old lady who had failed to notice the actual diamond at the bottom of her flute
+
+[00:26:34] and her doctor then found it during a colonoscopy. But she, this story has a happy ending, which is that she took it to a jeweller's shop in a biohazard bag and got cleaned up, but now she's got the diamonds. Fair enough. Obviously you've got to keep it. If it's been dragged out of your rectum,
+
+[00:26:55] then I think you deserve that diamond. I've got a really good diamond story that I like is that Donald Trump once gave Charlie Sheen a diamond. This is a story a while back. So he actually gave him cufflinks that he said were made of platinum and diamond. And then so Charlie Sheen took these, very grateful, blah, blah, blah, had them valued out of curiosity six months later. And he said that the value are literally recoiled from the item.
+
+[00:27:23] And I was like, no, this is the cheapest thing I've ever seen. This is made of cheap pewter. This is totally worth this. Which rectum did you get this from? And then he said this, and it turns out that, like, two or three other people, I think, have had exactly the same thing with Trump. Oh, my God. That's amazing.
+
+[00:27:39] In the course of researching this, my favorite diamond story that I read was an attempt to bribe Nestle for $25 million, I think it was, of worth of diamonds. So the idea was, this guy was going to poison, or threatened to poison Nestle stuff. And he said, I won't do it if you give me all these diamonds. So Nestle had to work out, how do we get out of them? this and the police were brought in and he said the way he wanted the diamonds delivered to him was he had homing pigeons they were to be attached to that and then there was to be inserted into the homing pigeons who is this guy he was from Frankfurt so it was it was DM 25 million not
+
+[00:28:19] not dollars but yeah Deutsche marks yeah so he got caught and the reason he got caught is because obviously the homing pigeons were flying to exactly where he was so they just followed the birds and there he was waiting. It's the opposite of the perfect crime. I looked into some vacuum cleaners. Oh yeah. Okay. A little bit of vacuum cleaner stuff. So I found a vacuum cleaner museum in the UK. And it sounds great. I really want to go. It's run by a guy called James Brown, but I think a different James Brown. And he's amazing. He's just really passionate about vacuum cleaners. So the museum is in Nottingham. If you're ever in the UK and want to go, he said that age eight, he was already a vacuum cleaner for and his mum had one and he really wanted one and he spotted a red goblin 800 lying on a rubbish dump.
+
+[00:29:10] I don't know what that is, but maybe they were famous back then. A rubbish dump is a kind of pace where people leave. It doesn't matter, go on. So he found this red goblin. He took it home, wiped the muck off, plugged it in and he says that was one of the most fantastic moments of my life. And his mom apparently was hoping he'd get out of the vacuum cleaner phase and he didn't. And by his teens he had about 30 vacuum cleaners. And he said, you could say vacuum cleaners took over my life.
+
+[00:29:38] And so he set up this museum. One of his party tricks, which I would love to try him out. I don't think we need to hear about this. It's not that. He just puts on a blindfold. And he, wait, puts on a blindfold. And you turn on your vacuum cleaner if he's in your house. And he can identify the exact make and model of the vacuum cleaner.
+
+[00:29:58] That's pretty cool. Oh, cool. By the sound alone. Yeah. That's amazing. I actually read about him in The Telegraph, and this was such a weird sentence from the Telegraph thing about him. It just said,
+
+[00:30:09] James, comma, who is not married, sees the real value of his collectioners, and then it's completely unrelated to the fact that he's not married. They feel like that needs emphasizing. Okay, it is time for our final fact of the show, and that is Chisinski. My fact this week is that if you want to buy a phone app in North Korea,
+
+[00:30:36] you have to go to a physical app store. How enough does it work? Well, it's quite complex, actually. So basically, you can get kind of the specific phones that you're allowed to get, that the state allows you to get in North Korea, and they come with just like a card game and a photo app, and that's it.
+
+[00:30:54] And if you want anything else, you go to these shops or these kiosks, and they're often like sort of appended to a supermarket or something, and you go in, and they're covered, the walls are covered with posters of different apps that you can ask for. So you browse the posters and you see what you like the look of. And then you go up to the counter and you say, I want that. Or if they don't have a poster, you describe it to the assistant.
+
+[00:31:16] And they say, oh, it sounds like, you know, Google Maps might work for you. Yeah. No, they don't allow that, certainly. But it's this ridiculously long process. So you put your, so you say the app you want, you put the app name on this little slip, and then it's sent to the cashier. and then you have to go to the cashier and pay, and then it's sent back to the app selector,
+
+[00:31:36] who then has to plug their computer into a big intranet system that only they have access to, and it's via Bluetooth connection, because, you know, it's not via proper internet connection, and then they have to download your app. It takes about 10 minutes per app, so to buy an app, you have to walk to the app store,
+
+[00:31:52] spend 10 minutes in there on this convoluted process, go away, and then you've got Snake. But there's even one further complication. They download it onto your phone, but then you need to buy an access code to set the thing off. So then that takes a further 10 minutes. So to get a single app
+
+[00:32:06] sometimes can take an hour because you have to wait for the access codes to come through and so on. And yeah, it's incredible. Big system. But it was quite positive the article I read,
+
+[00:32:15] although it was by a guy who works for a tourist agency in North Korea. But he was like, we've got access to all sorts of apps. They do. They've got an interesting internet system. Their intranet is called
+
+[00:32:29] Quang Mion, and that means light, apparently, or that's sort of a loose translation, and it's actually fewer than 200 websites that are all run by the government, but even so. It's something. Some apps, some stuff on apps. I read an article about the worst apps in history,
+
+[00:32:47] and I think I can't probably agree with these. So there's one called Hang Time, and it's a game. And what you do, you throw your iPhone in the air, and then you catch it, and the longer it's in the air, the more points you get. So it's encouraging you to throw it higher and higher and higher. So that's 99 cents for that game. And then another $1,000 for the next phone.
+
+[00:33:15] There's another one called Pocket Heat, which is $1.99. And what this does is it uses up all of the iPhone's battery. It just puts it into overdrive, just making it do loads and loads of work, and makes it go red-hot. Wow. And what they say it's great is if you're stuck in the wilderness and it's really cold, then you can use it to warm yourself up. Yeah.
+
+[00:33:36] But then, of course, how are you going to get in touch with anyone afterwards? Because you've got no battery there. Well, if you've got no battery, there's actually a really great app called Die With Me, which is you're only allowed to enter the app. So you're locked out of it until your battery goes to 5% or below. And then suddenly you're into this chat room where everyone's phones are dying, and you can commiserate to get. Oh my God.
+
+[00:34:01] It's like being a palliative care ward. Wow. That's morbid. Speaking of that, actually, do you remember the old Nokia 3310s? Yeah. They're very, very popular. There's still a few in this audience who've got them.
+
+[00:34:15] There was a woman in Nigeria. Apparently this happened. It was on social media, and they claimed it happened. She lost her phone in 2006. And then last year, they found it again, and it still had one bar of battery left. No.
+
+[00:34:30] That's amazing. No. Apparently that's true. And there was a YouTube channel called Creosan that passed a million volts of electricity through a 3310 and it continued to work. And they did it to a more modern phone
+
+[00:34:44] and it just was frazzled immediately. Do you know the best-selling phone of all time? Is it that one? 33-10? It's not the 33-10. It's the 1100, which I think is a previous version. So seven of the 10 best-selling phones of all time and Nokia phones. And yeah, the 11...
+
+[00:34:57] Yeah, they're great phones. And Snake, in fact, was obviously the best game of all time, but I realized something about it that I never knew at the time, which is that you could play two-player Snake with your friend. So they had an infrared phone connection thing installed, which is kind of like early Bluetooth, I suppose, which no one ever used, I don't think. But basically, if you pointed your phone really close
+
+[00:35:20] through the infrared port, you pointed that infrared port at your mate's infrared port, and they were basically touching each other, you could then, if you can taut your body around enough, play snake against that friend. Yeah. I've done that. I've played that. What?
+
+[00:35:34] Yeah. No, do you mean against a friend rather than just the phone? I didn't hear what you said just before. I was just, uh, I was just thinking about a great game with snake. Oh, I love snake. Have you guys heard of the yo app? No.
+
+[00:35:47] Yo was an app sensation in 2014. Was it? Yeah, it was. The only thing you could do with it was send the word yo. Yes, I did get that. To other users of the app. I used that like for about two hours. Right.
+
+[00:36:02] You can't say anything else. If you get sent a yo, all you can reply with is yo. It raised a million and a half dollars in funding. It became the number four app in the US App Store. Thanks to people like James. It was pretty cool. It was pretty cool. The man who founded it said, this is a stupid app.
+
+[00:36:22] He is so wrong. You just got a message and it just went, yo. What could be better than that? Did it say it out loud? Yeah, you came through and it just went, yo. Wow. What could be better than that? It's like, you know, on Facebook how you can poke people?
+
+[00:36:38] It's like that kind of thing. How come, I don't remember getting a yo from you? Well, in 2014. Were you quite sparing? I think that was before you ever had a smartphone. Those are the early days of the apps. It was those. There was the bubble wrap app where you just clicked on bubble wrap.
+
+[00:36:54] When they launched, it was in July 2008. by December of that year there were over 50 different apps purely dedicated to making fart noises. That's how quickly we were interested in just having these things. There are now more than 1,200 on the iTunes Star, yeah.
+
+[00:37:10] It's pretty depressing, isn't it? That we've come this far technologically. Look how advanced we are. We showed Newton what we've done. He's astonished and he asks, so what have you done with it? Well, we've got 1,200 fart apps. Wow.
+
+[00:37:24] There are good ones. there's um i like this one there's the quirky egg minder wink app enabled smart egg tray so this is a an egg tray for your fridge but it has an app which goes with it which tells you how many eggs you have cool so that's very useful if you're outside the fridge but you don't want to open it there is a a french calorie counting app called food visor which is for people who are trying to calculate how many calories they're eating and you basically show the phone what is on your plate and it tells you an estimate of how many calories are in it.
+
+[00:38:03] So it's a French app, but when it was released in England, it became repeatedly confused by horrible British food, which had no idea what it was. So it got shown a Cornish pasty and said, is this a baguette? What is it? It got fish, chips and mushy peas. It said, oh, you've got some guacamole, I can see there. I don't know.
+
+[00:38:23] We're going to have to wrap up in a second. I think one of my favorite apps is an app called The Last Hit. And this is something that acknowledges that, as it says, there is something worse than suddenly dying, and that is doing it while listening to a really embarrassing song. And so the last hit is an app that your phone detects a sudden movement that implies you might have died in an awful accident. Oh, my God.
+
+[00:38:49] And then it quickly plays the song that you've nominated to be your phone. final song. Oh, God. He died listening to Johnny Cash's famous chicken song. Okay, that's it. That is all of our facts. Thank you so much for listening. If you would like to get in contact
+
+[00:39:17] with any of us about the things that we have said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Shriverland, Andy. At Andrew Hunter M. James. At James Harkin. And Shazinski. You can email a podcast at QI.com. Yep.
+
+[00:39:29] Or you can go to our group account, which is at no such thing. Or our website. No Such Thing is a Fish.com where we have all of our previous episodes. We have upcoming tour dates. And we also have little bits of merchandise. And yeah, that's it. Thank you so much, Antwerp. That was amazing.
+
+[00:39:44] We'll see you again. Goodbye.

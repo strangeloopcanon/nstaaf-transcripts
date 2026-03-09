@@ -1,0 +1,201 @@
+# No Such Thing As A Fish - 8: No Such Thing As A Swear Word On The Moon
+
+- Episode date: April 25, 2014
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/8-no-such-thing-as-a-swear-word-on-the-moon
+- Slug: 8-no-such-thing-as-a-swear-word-on-the-moon
+
+## Transcript
+
+[00:00:00] We ran it on QI a few years ago, which was, there's no such thing as a fish. There's no such thing as a fish. No, seriously, it's in the Oxford Dictionary of Underwater Life. It says it right there, first paragraph, no such thing as a fish. Hello and welcome to another episode of No Such Thing as a Fish, a weekly QI podcast coming to you from the QI offices in Covent Garden. My name is Dan Treiber. I'm sitting here with three other elves, James Harkin, Alex Bell and Anna Chazinski.
+
+[00:00:35] And once again, we're gathering around our microphone and we're going to share with each other our favorite facts from the last seven days. So, in no particular order, here they are. Alex, let's start with you. Okay, my fact is that one of the last things that NASA had to do before launching space shuttles was detach the inflatable owls. Wow, why would they have inflatable owls on those space shuttles? Basically, this was at Cape Kennedy and they had a bit of a wildlife problem there just generally
+
+[00:01:09] because the launch pad is actually in the middle of a nature reserve. So, one of the problems they had was with woodpeckers on the big fuel tanks on the side of the space shuttle. They're sort of bright orange and they're covered in foam insulation, which is quite delicate. And they had this problem with woodpeckers that were just coming up and pecking holes in them. And they have no idea why they were doing this. So, didn't they actually have to cancel a shuttle launch in order to... because too much damage was done to one? Yeah, discovery, I think, was one of the ones that was delayed by quite a lot
+
+[00:01:38] and then cancelled and rescheduled and things. So, they did several things. Firstly, they used sound blasters, which I think were some sort of sound thing to scare away woodpeckers. They also apparently had a 24-hour bird-watching contingent on the run-up to the Lord to keep an eye out. Yeah, I read that there were people, members of the public, when they'd heard about this, riding in with their own suggestions, like amateur scientists. Yeah, yeah, there's great suggestions. One of them was to paint the tanks blue.
+
+[00:02:06] A colour woodpeckers hate. What? Yeah, station falcons at the pads. So, acting, yeah, effectively, falcons would chase them off. Boil skunk cabbage and spray water on the tanks. What skunk cabbage? I have no idea. This is just a member of the public.
+
+[00:02:22] If footpeckers hate blue, do they? Like, sunny days are just a nightmare for them. Well, they're not trying to peck the sky, presumably. Oh, they just don't like the taste of blue, like that. I can just say, I'm not allowed to let my dog off the lead in a nature reserve and NASA can build, like, an entire space station in the middle of one. It seems like not a good place to put it. Well, I think, there was decals and issues. There were some other problems as well.
+
+[00:02:43] I've got an article from a newspaper from 1983 that's headlined, NASA must cope with wild pigs. There's a quote from it saying that the space centre officials say they routinely check runways for pigs and alligators before any aircraft is clear to land. I don't think that's space shuttles, but that's... Yeah, alligators supposedly always lounging out because it's a nice heated pad for the landing strip.
+
+[00:03:04] It's not a great place for pigs to be living where alligators live as well. Imagine the exact kind of CCTV footage they must have of epic battles on the runways where shuttles are coming in between an alligator and a pig. Imagine one of the bats, have you seen that one, when one of the shuttles launched and you can see a little bat that was obviously sleeping on the shuttle and obviously woke up when his home took off, pressing the flames. And NASA had to say, we're really sorry, but he probably died.
+
+[00:03:29] No one was really upset. Sorry, go on. On the pig thing, NASA actually hired a pig trapper. Can you imagine kind of going in to someone saying, yeah, I work for NASA. Yeah, I'm the pig trapper. NASA. Speaking of pigs, this is almost unrelated,
+
+[00:03:47] but did you know in medieval times in England, pigs were a bigger pest than rats in London and feral pigs were all over London? The government offered rewards if you could kill a pig and bring them evidence that you'd kill the feral pig. They'd just be in your cupboard, eating your cereal, pooing all over the kitchen floor. So we haven't said, so the reason they had owls,
+
+[00:04:07] inflatable owls, is because of these woodpeckers and that was the solution to put these owls. They were basically just spherical balloons with owl eyes and sort of like an evil eyebrow painted on the top to look like an owl. I'll put some pictures up on the website, but they were called, I think, owl terror eyes, and you can buy them now as well.
+
+[00:04:27] They just sort of festooned them over the structure of the space shuttle, like Halloween decorations. Because they did have owls that were living on the crane that was attached to the space shuttle. I don't know if there's a theory that during that period, that's why there were no woodpeckers there because there was owls living there. But they got into a lot of trouble with the RSPCA
+
+[00:04:45] and other wildlife foundations because when they did take off this one time, they blasted these owls. It's terrible. But what's interesting is that NASA has actually been talked into taking it quite seriously and looking after the animals, so they actively do do that. So if they're going to retrieve any of the booster rockets
+
+[00:05:04] that land in the Banana River, which has apparently the largest refuge of manatees in America, they now use water jets as opposed to propellers so that they don't kill any of the wildlife. So they've changed the system for that. This is an interesting one. They used to have blinding lights that shined when they were on the launch pads. The turtles that were going into the sea, loghead sea turtles,
+
+[00:05:26] they would see the light as opposed to the moonshine, and the moonshine would usually direct them to the ocean, but they would see the launch pad lights and they would head towards the launch pad lights and die on the way because they'd never reach the ocean. So they've changed their lights to be less disorientating bulbs. Good for NASA. So I like lo-fi things that they do.
+
+[00:05:45] The astronauts do, like, they use taco sauce to secure debris on the ISS, and inside the spacesuits they have a little bit of velcro that they use to itch their nose with because they can't itch their nose and stuff like that. NASA's very good. The ALS is a good example of just a continuing tradition of highly inventive solutions. What was the one that you initially, Alex, you had a fact that you wanted to use?
+
+[00:06:14] I think this has been doing the rounds on the internet recently, apparently, but I was watching a really old documentary about various aspects of the earlier space programme, and apparently in the men's spacesuits, there's a sort of condom-like sheath that the astronauts have to wear so that they can go to the loo in the suits, and they came in three sizes, which was small, medium and large, but all the astronauts were just picking large, and they refused to give anyone else. So NASA decided to change the names to large, gigantic and humongous.
+
+[00:06:45] That's true. I found this out, which I really like. Charlie Duke, who was on Apollo 16, he had such a problem with swearing that he had to be hypnotised before heading into space so that he wouldn't swear once he was on the moon. So when they were doing live broadcasts... Are you not allowed to swear on the moon? Well, no, I think because we were being...
+
+[00:07:05] Oh, we were hearing everything you were saying. Yeah, so he was told not to swear, and it led, as a result, he sings a lot on the moon because that was the compensation in the hypnosis he got suddenly into as a singer. Every time he was going to swear, he just belted out my way or something like that. There was that guy, I can't remember which astronaut it was, I bet one of you guys remembers who Smug got told off really badly for smuggling a sandwich into space?
+
+[00:07:30] I think it was corned beef sandwich, wasn't it? And I can't remember who it was in the 1960s. Yes, but then weirdly, when Buzz and Neil Armstrong landed on the moon, their first meal was a ham salad sandwich. Oh, yeah. And we know that Buzz smuggled some stuff up to the moon, don't we? He did, yeah, yeah. He smuggled up some wine and some holy bread,
+
+[00:07:50] which had been blessed by a priest, to do the first ever communion. It was incredible, you could sneak. Yeah, it really is. Let me question whether we can put NASA in charge of outer space missions. They can't even body search someone properly. Apollo 12, you get a checklist, which are these kind of flip boards that you get on board the ship. Some of the prankster kind of employees for NASA,
+
+[00:08:11] some of the engineers snuck on Playboy photos in between the checklist. So yeah, we'll put a photo up on qi.com slash podcast. Of naked ladies. No, it's history, James. We're really trying to get people onto our website. Come to qi.com slash podcast. You can see naked ladies. Boobs from outer space.
+
+[00:08:41] Okay, time for fact number two. This one's mine. So we all know the famous advert that comes on at the beginning of DVDs, that sort of anti piracy. You wouldn't steal a car. You wouldn't steal a handbag. That one, yeah. Anyway, it turns out that the music used in that anti piracy advert was stolen.
+
+[00:09:01] Oh, yeah. So the advert that's telling you. Right at the end. What's it say, Alex? It says piracy is a crime. I think piracy is stealing. Piracy is stealing, yeah. And so is stealing.
+
+[00:09:13] And so is stealing. That's definitely stealing. It was a crime. It was officially, I mean, it was commissioned for an anti piracy ad, but it was meant to be used just at a small film festival where they were sort of showcasing this thing. So the guy who created it, whose name is Melchior Wright-Velt. He wrote this music.
+
+[00:09:31] He got given basic money for it to be used at this local film festival. And then in 2007, he bought a Harry Potter DVD. At the top was this advert with his music. And so since 2007, all the way to 2012, he's been trying to say, could I have the money, please? Because he was owned millions. I mean, for the amount of use. Yeah.
+
+[00:09:51] And so finally, the company that was using it called him up, a guy called Mr. Gerritz. And he said that he would pay him out for one million euros, but that Mr. Gerritz would get to keep one third of that money for all the hard work and trouble that he'd gone through to get him that one million euros. So anyway, he recorded that conversation. He played it.
+
+[00:10:10] Mr. Gerritz got fired. And he's been compensated since. It's pretty appalling that they did that, though. And then I know it will get us out of this mess. Yeah. Old fashioned bride. What? Did you guys know that Harley-Davidson tried to trademark
+
+[00:10:25] the sound of its revs? What? Yep. Those three revs, apparently, I don't really know much about motorbikes, but apparently the three revs at the start sound like, I think this is on the Harley-Davidson website, sound like potato, potato, potato. And fair enough, loads of other motorbike manufacturers said,
+
+[00:10:42] I'm really sorry, our revs sound really similar. You can't do this. And they didn't. Asda copyright is slapping your ass. Really? Yeah, they did. You know, it goes, that advert where you go, do, do, do, do.
+
+[00:10:56] Then they go, that's Asda price. Yeah, that's right. Is it just your own ass or anyone's? They've copyrighted a section of advance, basically. Yeah. Basically, the way these things work is it's only in the specific area if you're trying to pass off as their kind of thing. So Aldi or Waitrose couldn't do an ass slapping kind of advert
+
+[00:11:18] because they copyrighted it for that. There was also someone copyrighted touching the side of your nose as if to indicate knowledge and also tipping a bowler hat. And they're both registered by building societies. Really? I think we're living in a really interesting time when it comes to copyright and piracy and so on. Because we don't quite yet know if it works for or against
+
+[00:11:43] the people who either make or sell or whatever. Like, for example, Monty Python decided they were going to put up a bunch of clips on YouTube from their old Monty Python Flying Circus series. And actually, it had the reverse effect of what you would think. On the Amazon charts, they went up to number two and the sales increased by an estimated 16,000 to 23,000 percent on Amazon alone. And that worked in their favor,
+
+[00:12:05] whereas everyone would encourage you not to do that. Because it's really odd. You don't know if it works for or against. Well, the guys at Netflix, they look into what people are pirating and then they decide what to buy depending on what people are pirating. Really? That's very sensible.
+
+[00:12:20] I like with video games, they have a different approach to anti-piracy. They actually embed within their games protection things so that you can continue playing the game but you know that you've got a stolen item. For example, there's a game called Michael Jackson, The Experience, which is on DS. And the idea is that once the game realizes that you've got a pirated version of it,
+
+[00:12:43] it halts it and it just plays vuvuzela music all over it. So it's just a... That's just a constant loop. That's pretty clever. Yeah, it's incredible. There's a Batman game as well, which when it knows that you've got a pirated copy... Batman comes in and kicks your ass.
+
+[00:12:59] ...physically comes through the door. No, his cape will refuse to open, but he's presenting players from gliding, and gliding is a massive part of the game, so you can only get so far without being to do anything. Talking about similar things to that, in the early days of cinema, they had silent cinema and people would pirate films
+
+[00:13:17] basically by just taking an entire film, cutting in a bit of new material and releasing it as a new picture. And there was a company called the Biograph Company, and what they did was they made sure that their trademark was in every single shot, so it would be on a door or on a wall or on a window or on a t-shirt or something like that,
+
+[00:13:36] so that every time someone did that, they'd just see their trademark all the way through the movie. Yeah, yeah, that's very good. The years ago on Museum of Curiosity, we had Terry Pratchadon. He told us this thing about in Germany, in the German translated versions of his books, he said someone would write to him from Germany,
+
+[00:13:54] saying, do you know that they've placed adverts in your book? And so Terry was fine, because he was like, well, you know, in America, back in the day, that's what they would do. There would be just an advert, a full-page advert for a cigarette company or something like that, and you'd just continue reading. So he was fine with it, and so he said, no, that's cool.
+
+[00:14:11] But the person wrote back saying, no, no, no, they've inserted the ad into the dialogue amongst the characters, so while the characters from his Discworld novels are running around, they would suddenly stop because they were quite parched and crack open a Coca-Cola while they were being chased
+
+[00:14:28] or open some magi two-minute noodles and make some two-minute noodles before carrying on with what Terry Pratchett had written. But so they, apparently, this wasn't just Terry Pratchett books. There was a lot of books in Germany, and Pratchett wrote to them, and he's had this stopped now, but yeah. That's so good.
+
+[00:14:44] They also, I like, because it reminded me that in China, there's a lot of a similar thing where they take existing text or, you know, footage, but in this case, text, so with Harry Potter books. Because of the distance of time between each of the sequels, people just started writing their own Harry Potter books and publishing in China. Yeah, I've got a list.
+
+[00:15:04] Harry Potter and the Big Funnel? This is great. I'll give you, this was the blurb that came on the book. No, no, they were all trying to pass themselves off as genuine books. This is the blurb. After six years at Hogwarts, Harry Potter has become an intern sorcerer
+
+[00:15:20] and is assigned to teach at the Honiton School. Harry has a painful time at his aunt's house as Dudley has met a belly dancing girl. As Harry prepares to report to his job, Batbug warns him, disaster awaits. Exciting new character, Batbug. At the school, his students become wooden stools one after another.
+
+[00:15:39] Harry doesn't know whether an evil student is behind this or if his old benefactor Hagrid is making a mistake or if the shadow of Voldemort has returned or did it have something to do with the Big Funnel? I'm leaving it open again with all of this. So that's the Big Funnel. I reckon it has something to do with the Big Funnel. I'm going to guess.
+
+[00:16:04] Here's the French version of Harry Potter, the book. Because Lord Voldemort's name, his full name, top marvellor Riddle, has to be an Alec Grammar of I Am Lord Voldemort. And so it doesn't work in all different countries, so they have to change his name. And in France, his middle name is Elvis. That's a great fact.
+
+[00:16:20] Do you know what I think the Chinese are doing with the Harry Potter thing? Coincidentally, I was reading a bit of an interview yesterday with this woman who decided to translate Finnegan's Wake, which is like James Joyce's more dense than Ulysses' work. And she's taken, I think, seven years to translate the first third of it into Mandarin. And there's been quite a bestseller in China,
+
+[00:16:40] and they love it, but there's a little clip of her saying, this is so hard, please stop pressuring me. I just don't know if I can write the rest of it. I don't know if I can translate the rest right now. So the Chinese are used to having what we've got a third of Finnegan's Wake. We love it. When's the next installment?
+
+[00:17:00] OK, time to move on to fact number three, which is yours, James. OK, yeah, my fact is that according to the government's website of the Czech Republic, there are three symbols of Easter in the Czech Republic. They are Easter eggs, the Easter lamb, and whipping. No, so this is a tradition that happens every Easter Monday in the Czech Republic.
+
+[00:17:33] And boys, young lads would go around whipping young maids so that they are healthy and cheerful for the entire year to come. And the girls, as a reward for being whipped, they give their boys decorated Easter eggs called kraslitsi. Because they're so grateful. For being whipped, yeah. Cool.
+
+[00:17:54] Apparently anyone visiting the country is a bit concerned when they see it because one of the things they like to do is to chase the women around with these whips while they run away. Apparently everyone loves it, so it's, yeah. These whips, they're like very beautiful pieces of willow with ribbons on, so they're not like a, you know, it's not like a leather cat or nine tails kind of thing.
+
+[00:18:18] But yeah, I really love that. Just, I like to look at traditions that are going on around the world. There's loads of really cool stuff happening around Easter because often, as well as it being like a Catholic feast, it was traditionally like a pagan time of year, you know, it's the rebirth of things. So there's all sorts going on.
+
+[00:18:37] Apparently in Norway I was reading this. I don't know if this is true. But most of the major television stations of Easter show murder mystery shows, and that's all they show because it's become a tradition that you watch murder mysteries in Norway. Oh, really? Okay.
+
+[00:18:52] And in the Philippines, some Christians will, because they want to associate themselves with Jesus, they will crucify themselves. They'll nail themselves onto a cross and be self, and be flagellated and very painful, but there's a lot of people around that they don't, you know. They nail themselves through the hands.
+
+[00:19:11] Right. Mental. So here's another thing about whipping. Yeah. Do you know about these guys called flagellants for the Black Death? They would whip themselves. They would go to towns where they were struggling with a plague
+
+[00:19:24] and they would whip themselves for a fee to bring God's favor onto a community. And the idea was they would like hurt themselves and that would somehow get God's favor and he would get rid of the plague. It's a nice idea. Yeah, that's the best aid for it. Was that big because the only reference point I have to that
+
+[00:19:42] is the Da Vinci Code where the evil guy and that whips himself consistently? Oh, it's the same, yeah. Yeah, it's that. Yeah. But at the same time, apparently, there was another group called the pseudo flagellants and they also went around Europe
+
+[00:19:56] and they would also get money. But instead of hitting themselves with whips, they performed unusual sexual acts in public. And it doesn't explain what unusual sexual acts are. But you just know it's more fun than whipping yourself. Yeah, it is more fun. And also, it's hard to imagine God would be looking down at this and going,
+
+[00:20:16] yep, those are the guys. Well done, Lance. I like weird traditions. I guess our traditions must look weird to outsiders as well. But in Garville, you'll probably know this James, which I think is in Sweden. They've had this tradition since 1966 where a town council built a 13-meter tall goat figure
+
+[00:20:35] to celebrate Christmas made of straw and vandals burned it down on Christmas Eve and now it's become tradition. So the council was pretty pissed off about that. It didn't want vandals to do this. But now it's become tradition. They've maintained this 13-meter tall figure and almost every year, vandals keep burning it down
+
+[00:20:51] and there's this constant tug-of-war in this little town, the Christmas tradition, the burning of the Garville goat happens. And I think it's happened 26 times since 1966 and since the 1980s, and English bookmakers allows you to place bets on the goat's survival, which you like to bet, James.
+
+[00:21:07] I can imagine that you should do that. They should stop building it out of straw maybe, something less flammable. Yeah, not so smart. I was when I was looking into the whipping. I suddenly realized I didn't know much about whipping and I wanted to find out more. And this was a surprising thing.
+
+[00:21:25] I read about a guy who I'd not heard from in history called Whipping Tom. Has anyone heard of Whipping Tom? No, it sounds familiar, but no. Okay, it was an attacker in London, lived near Hackney, who would attack women walking in the street. He never did anything to the point
+
+[00:21:41] of actually killing any of them, but he was just whipping them. He would approach them, unaccompanied women in alleys and courtyards, and he would just spank them on the butt with his whip and then flee. No, and he'd flee. My favorite thing about it is
+
+[00:21:58] they did eventually capture the person, and then there was a copycat whipping Tom, who appeared a few years later, but the description of him, and I know obviously this was distressing for women, but it was the 1600s. We can laugh about it. He would wait in narrow and dimly lit alleys
+
+[00:22:16] and courtyards, and upon seeing unaccompanied women, he would grab them, lift their dress, and slap their buttocks repeatedly before fleeing. He would sometimes accompany his attacks by shouting, Spanko! He sounds like a superhero. Spanko man.
+
+[00:22:34] So yeah, in Czechoslovakia, he would have been a superhero. That would have been a really good thing for him to be doing, because the ladies love it there. Yeah, they would have been like, where's Spanko? OK, time for our final fact of the show.
+
+[00:22:52] Anna, this one's yours. So, my fact is that, at Earls Court Tube Station in 1911, a one-legged man was employed to ride the escalator. Ah, this is Bomper Harris, isn't it? This is Bomper Harris, yeah. And he was employed to ride the escalator.
+
+[00:23:08] It was the first escalator that had been installed on the London Underground. People were always really scared of new invention, so a commonplace they seemed to us. He was employed by the Department of Transport to ride up and down the escalator and show people that it was safe. And I think the idea was like,
+
+[00:23:24] even a one-legged man can get up and down this safely. So, you're probably going to be fine, guys. Was he one-legged or did he have a prosthetic? I think he had a prosthetic leg. Although, weirdly, in the first week that the escalator was installed, nine dresses were torn, one finger was pinched,
+
+[00:23:40] and one lame passenger fell off his crutch. So, apparently, not that suitable. Well, they weren't as... in their early days, escalators weren't as... for example, there wasn't a side handrail that you could hold that would go down with you and so on. So, there were a lot of... there were a lot more harsh.
+
+[00:23:56] It wasn't the first escalator in the UK at the Harrods. Yeah, that's right. They used to have someone standing at the top with a bottle of brandy to give people all the shots to calm down. Brandy and smelling salts. Really? Yeah. In the 1920s, they had a system in... they designed a system for Atlanta.
+
+[00:24:12] And they had walkways that would go at six miles an hour. It's not that fast. It was kind of fast, you know. You would have a walkway that went at six miles an hour, and then next to that, you would have one at four miles an hour. So, you would only have a two... two miles an hour jump to go from one to the other. Next to that would be a moving walkway
+
+[00:24:28] of two miles an hour, and next to that would be a moving walkway which didn't move. That's sensible. Kind of a walkway. But that never took off because basically, cars came in around the same time, and so, they didn't need them anymore.
+
+[00:24:44] I think they installed a similar system, though, in Paris. It's kind of weird how long it took them, by the way, to put stairs on escalators, because for like 20 years, they had travelators, which were just slopes, upwards. But anyway, I think they had what you're describing in Paris. They had... it was about a mile long, I think, in 1900,
+
+[00:25:00] and it was two moving walkways going at different paces. And anyway, Thomas Edison turned up there, so he seemed to be everywhere around this time doing his thing, and he was really impressed with it, and he decided to film it and the footage. So, I watched the footage of him filming this walkway in Paris, and I was really excited by it because it's a new innovation.
+
+[00:25:16] And there's a moment in the footage, and I'll put it on the website page, where a man just appears from the crowd and punches a boy in the face. I'll put it on the website. Does he shout Spanko when he's... Puncho! It's so weird.
+
+[00:25:32] Before the Earl's Court, the first escalator at Earl's Court, I didn't realise that they had... they installed this spiral escalator in the 1880s, or spiral elevator, I think they called it at the time. It was really just meant to be like a scenic ride, and so it was meant to simulate being in France in the middle of the mountains.
+
+[00:25:48] And so you went up this spiral, which was, I can't remember how many meters high, but pretty high, went up and up, and then you were surrounded by these Vista's panoramas of beautiful mountains. What was that? Earl's Court. Oh, was it? Okay, because the first ever escalator
+
+[00:26:04] was in Coney Island, and that was also an amusement rather than anything else. It was just a ride. There was 75,000 people rode it in the first two weeks. This amazing ride of standing on an escalator. I was reading into... I got interested in other
+
+[00:26:22] sort of debuts with the underground, just to see if there are any notable written about stories. And there's a great one for the opening of the Circle Line, which was in 1884, and this was the review from the Times newspaper, which said
+
+[00:26:38] a form of mild torture, which no person would undergo if he could conveniently help it. The first ever review. When the tube first opened, there was a guy who spent a lot of time in Kenya rode on it, and he described the smell as being like a crocodile's breath.
+
+[00:26:56] That's a terrible smell. Well, presumably, I don't know. It's kind of nice for people to experience who are never going to meet a crocodile in real life. You just go on the tube. A crocodile's breath after it's just eaten a pig. I like how
+
+[00:27:12] frightened people are of new inventions and always have been in history, and how totally mental it seems to us now. The obvious fear everyone had of trains, didn't they? So I think when Stevenson was trying to encourage investment in his whole railway idea,
+
+[00:27:28] then the parliament, a lot of MPs were really, really against it, and it was thought that he intended for trains to be going from 15 miles an hour, and he was advised beforehand definitely not to claim in the House of Commons that they would go above 9 because that would totally free people out. And then one of the MPs
+
+[00:27:44] asks him in Parliament, suppose one of these engines to be going along at a rate of 9 or 10 miles an hour, and a cow were to stray upon the line, would that not be a very awkward circumstance? And he just said, yes, very awkward for the cow. And that was it.
+
+[00:28:00] Good reply. I also like, sorry, this is my final inventions thing, I like that people were really frightened of bicycles, quite anti-bicycles, when they first came in from like the 1860s onwards I guess, and doctors warned
+
+[00:28:16] about things like bicycle hernia, bicycle bicycle cyclist neurosis, cyclist sore throat, and bicycle face. Does that mean someone on a bicycle rides into your face?
+
+[00:28:32] You would have thought, but actually it meant that you're going to have such a constant look of stress on your face from having to balance your bike that it's going to get stuck like that, and you're going to be permanently twisted looking. Like getting square eyes from watching TV kind of thing. Just going back to Bumper Harris,
+
+[00:28:48] so it was slightly controversial when we first read about this quite a few years ago, and Matt Coward, who's one of the QI researchers, reckons that it might be a myth because he couldn't find any evidence, contemporaries, news reports mentioning Bumper Harris.
+
+[00:29:04] So I think there are news reports from the time, but they don't give evidence as to who he was, where you could find him. They don't have evidence from the transport sector. You would think that it would be the kind of thing they would mention. They would have recorded. Well, yeah, I feel like we disagree on this, but maybe I like to believe in
+
+[00:29:20] room. So it was recorded from the early 1920s, and there is a guy who says that he's Bumper Harris' great-grandson, who's called Aaron, who gives anecdotal evidence about how he apparently retired, so he says he eventually retired to make cider violins and become a watercolor artist.
+
+[00:29:36] So with that kind of personal detail, James, I don't know how you can thwart this story. I would love to know, if anyone listening, by any chance knows anyone who claims to be related to Bumper Harris, I would love to know if it is true. So get in touch. OK, that's it for another episode.
+
+[00:29:54] That's all our facts. Thanks so much for listening. If you want to get in contact with any of us about what we've said, you can get us on Twitter. I'm on at Shriverland, James. I am at Eggshaped. Alex. I'm at Alexbell. And Anna, still not on Twitter, but we almost made
+
+[00:30:10] her buckle last week, but in the meantime, you can get her on at Quikipedia. Otherwise, you can check out the incredible page that she and Alex put together on the QI website called qi.com slash podcast in which we're going to have videos of men punching boys on travelators. We're going to have
+
+[00:30:26] all sorts of other pictures and links to the stories that we were talking about. So please tune in again next week and tell your friends. All right, bye. Bye.

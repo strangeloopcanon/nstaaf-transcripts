@@ -1,0 +1,325 @@
+# No Such Thing As A Fish - No Such Thing As A Guinea Pig Saloon
+
+- Episode date: March 20, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-a-guinea-pig-saloon
+- Slug: no-such-thing-as-a-guinea-pig-saloon
+
+## Transcript
+
+[00:00:00] Hi everybody, Anna and Andy here. Just before this week's show, we have a little announcement to make, which is that our colleagues, Jack and Manu, have started their own podcast, which is about food and it's called Lunchbox Envy. Yes, they have, and it is, it's spicy, it's salty, it's saucy, it's sweet, it's sweet, it's vinegory. It's great. It's a food-based podcast jam-packed with really amazing, interesting facts about food that, I mean, I don't. didn't know. We've been researching for 10 years. Why our own babies don't just drink our blood? Do you want to know the answer to that? I do. I'm happy that they don't. But yeah, every episode is about a different kind of food. So they've done all sorts so far. They've done garlic and sausage and chicken. They co-host it with Rosie McKean, the Pastor Queen. All three of them every week,
+
+[00:00:49] they bring something new to the table in their lunchboxes about that particular food they're talking about. It's great fun. It's the most umami podcast I've heard for ages. Lovely stuff. And everyone who listens to it, loves it, it's got five stars by 97% of listeners. It's been featured by Amazon and Apple podcasts already. You've got to get listening for your food fix. So, wherever you get your podcast, look for Lunchbox envy. All right. Pack your lunch up. Squash that sandwich down. Gives that a listen. And on with the show. On with the show. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hoburn.
+
+[00:01:45] My name is Dan Schreiber. I am sitting here with Andrew Hunter Murray, Anna Tashinsky, and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, that is Andy. My fact is, there's a city in Alaska where almost the entire population lives in one building. Big building? Yeah.
+
+[00:02:10] They call it the one-house town. Very good. Very clever. Yes. I thought it was everyone. It turns out there's another tiny block of flats nearby where there's a little bit of overspill, which is so annoying. And if the city of Whittier, Alaska, could shut that down. So one building, it would be a much better fact. Do we know who is it the sort of the social rejects who live in the smaller building, that people have pissed somebody on? Actually, I found a few people who live in that second building.
+
+[00:02:35] One of them is the mayor. Oh, really? Oh. And another one is an artist called Brenda Tolman, who used to live in this big. building, which I think is called BTI, which we'll get to in a minute. But she moved to the other complex because of what she called the forced socialization of this building, which is basically people will just come over in their socks and pants and just go, oh, how's it going? It is pretty amazing because there's about 300 people that live in this building. So that's
+
+[00:03:02] your teachers, that's law enforcement, that's the grocers. And they do literally, just if they want to hang out, just stay in the elevator. You're bound to bump into everyone because that's your social life. And that's why I'm afraid of lifts. Yeah. No, but rush hour in the morning is when there's a queue for every lift in the building because everyone's getting to work and the any way is up and down. That's right. And work is in the building, right? Like the doctors and the shops and the school and everything you need. The school isn't in the building. The school is another, it's on the other side of the road. I don't if you've been on Google Maps and had a look at the whole area. Yes, because don't you get to it
+
+[00:03:37] by a tunnel actually. Yeah. So you have to go down in that building to the bottom floor, to the basement and then you go in the little tunnel you get to the school. I half count that. Yeah. And it does sound like the school times were changed because of what Andy just said, the congestion in the elevator. You couldn't get all the kids to school in time. So they had to, yeah, everything has moved around the elevator service, basically. I've got a slight quibble.
+
+[00:04:01] We say that they're all living in one building. I would argue it's three buildings. Uh-oh. Okay. Because it's a sort of three-tower thing, but they're joined together. Exactly. So there's actually a 20 centimetre space between three separate buildings for earthquake purposes. So they needed for it to have sway because it survived one of the greatest, most powerful earthquakes, a 9.2er.
+
+[00:04:22] It survived. But are they joined together? Well, there's a few platings. Yes, they are. There's a few platings. Quibble retracted. Thank you. Quibble denied.
+
+[00:04:32] And the history of it is very cool. This place was developed in the Second World War as a military harbor, basically, and the logistics base. because it's in Alaska, so it's quite near Russia, quite near Japan, and Japan actually occupied a little bit of Alaska in the Second World War. Quite near is a bit of a stretch, but you know what I mean? Relatively. It's a good bit for Japan to try and invade if they're going to go for it. So two buildings were built in the town.
+
+[00:04:55] This one, this has opened in 1957, the BTI Tower, and they planned loads more, but they only built two in the end. And the other one is abandoned now, and it's just sitting there next to the one-house town. And it's so creepy. Like it was a military base and it was quite secret. They had all sorts of stuff in it. The Buckner Building. The Buckner Building, exactly.
+
+[00:05:15] And it had a theatre and a bowling alley and a library and a barbershop and a church and a rifle range. It was lovely. And then it was very quickly abandoned because it was damaged by this earthquake in 1964, the big Alaska earthquake. Sometimes people break in and ski through the corridors of that. That's cool. Apparently one of the hazards. Hybernating bears is the issue in that one. That's so cool.
+
+[00:05:37] It is very snowy there, isn't it? Which I'm maybe you'd expect from Alaska generally, but I think it gets a thousand times more snow than the US average, which obviously a lot of the US doesn't get very much snow at all. That's a lot, though. Yes. But also nicely, it's named Whittier, as you said, and it's sort of named after this poet called John Greenleaf Whittier,
+
+[00:05:59] and well, a glacier nearby was named after him, and then it was named after the glacier. And his most famous work was about snow. I think it was called Snowed in by coincidence. So there you go. That's pretty cool. It was very cool. I found a Reddit which had asked me anything by someone who lived in this building.
+
+[00:06:17] A guy called Spankadelic. Oh, yeah. Imagine you're locked in a building and that's one of your neighbors. I would more be worried about having the next door flat to him. Trying to get at sleep at night. Keep it down a bed, please. Spankadelic. So Spankadelic said
+
+[00:06:36] I lived in Whittier AK in a building which has the entire town of 200 people Ask Me Anything Rainy Sun Bun said So what about the sex lives Is it mostly families
+
+[00:06:48] Who lived there? I'd imagine everyone Is just having sex with everyone To which Spankadelic replied It was mostly families And really old people So no it was not like that at all Yeah
+
+[00:06:58] And then hard spank 916 What? This is a normal edit It's not some kind of weird layer of Reddit. Is this a relation? Hans-Bank said, isn't Alaska A-L an Arkansas AK, to which Spankadelic replied, nope, understandable mistake, though.
+
+[00:07:16] Nice username. That was the entire interesting bits of the... One of the most fascinating things about people living in this building is if they want to go to the major local town, Anchorage, you can only get to it.
+
+[00:07:33] via this tunnel, the Anton Anderson Memorial Tunnel. It's four kilometers long. You're not allowed to walk through it. You're not allowed to bike through it. It's for trains and cars only. And it shuts every night at about 10.30. So if you go to the movies, you've got to be back before 10.30. Otherwise, they just shut it down.
+
+[00:07:51] And you've got to sleep in your car and wait for it to open in the morning. As people do, right? There are sort of huge people who've lost it. And the tunnel doesn't seem to have been built to accommodate what it's meant for. No. No, it wasn't. So it was built for a train. It was initially, you could only get there by boat and when this tunnel opened by train. And then they adapted the tunnel in 2000 to be a road tunnel as well.
+
+[00:08:13] But they didn't add an extra lane or anything. They just put a bit of tarmac down in between the train tracks. And so now you can either drive or get the train. And there are very strict timings, obviously, of when you're allowed to drive. Well, and it's also one lane, isn't it? So the train's coming all the time. So every hour the direction switches. So you arrive there.
+
+[00:08:32] You've got a 15-minute window. You can go through that, and then they have to air it out after every single line of traffic that's gone through. I'd give that five minutes. I've always wondered why they have big fans in tunnels. Can anyone tell me that? I can.
+
+[00:08:46] It's to suck out the fumes. If you get stuck in the tunnel and the tunnel shut down and people's car engines are on, the air can get very toxic very quickly. And so this tunnel has a few little safe house bits, and it's got huge fans to blow out the fumes. I was going back to when they were building. the access tunnel and most of them
+
+[00:09:03] seem to be hugely against it. There was a lot of protest because they pride themselves on being this place you could not access by road, you know? We're on our own here, we don't want you. It was famous as like the real middle of nowhere city, wasn't it? And I think quite a lot of people moved there because they wanted to
+
+[00:09:18] get away from it all. Yeah. I think you kind of hear stories of people who lived there, he said yeah, you know, I was having a bad time in L.A. and I decided to come here instead, kind of thing. That earthquake in 1964? which trashed the other building and which the main building survived.
+
+[00:09:34] That sounds extraordinary, as in it was a lot of Alaska it hit. About 140 people were killed by it. I think it was the second largest earthquake in recorded history. And it was on Good Friday, 1964. Some places got 30 feet higher because of the tectonic plates. Because the ground shifted up. Yeah.
+
+[00:09:51] Get this. It was so massive. Some salmon could no longer jump up to their spawning grounds because the cliff they had to jump up and just gone. 30 feet is a long way. of salmon. No one ever thinks about the salmon in earthquakes, do they? No.
+
+[00:10:06] And there might be another one one day. There's a receding glacier which is 50 kilometres away and that's destabilised a mountainside and they think that mountain, if there's any earthquake, that mountain's going to slip and cause a tsunami. And even though it is two hours away by boat, this mountainside, it will hit Whittier in about 20 minutes, the tsunami.
+
+[00:10:26] Wow. Thanks. Yeah. So everyone in the tunnel. Yeah. And also the building's reaching its end of use date, really. It's, well, they keep saying structurally, this might be, you know, not for very long. Interesting.
+
+[00:10:39] You know how it's on Prince William Sound? Yeah. Well, I was, so Prince William. What is the sound? Well, exactly. What the hell of the F is a sound. Prince William Sound is the one thing you'll never hear Prince Harry say. Yeah, so Prince William Sound is a very important piece of water.
+
+[00:10:56] And we should say the reason it was the military base was put there is because it was the only, non-freezing harbour. So it was really militarily important. So it doesn't freeze. It doesn't freeze over. Yeah, so it was the only place you could get boats to repel, maybe a Japanese attack and get supplies over. But yeah, I was like, what is a sound?
+
+[00:11:11] I'm going to do everyone the favour of telling you, so you don't have to wonder next time. So my bloody mentions it. It's actually not very well defined. It has a number of options. So a narrow passage of water between a mainland and inland or like a recess bit of ocean, which I guess is what we all imagine.
+
+[00:11:28] But it comes. So big hills on each side I always imagine. I don't know why. Yes, me too. I actually wonder if I imagine that because I imagine them being an echo because it's got the word sounds. What's the most famous sound? Is there a Long Island sound?
+
+[00:11:41] I feel like there is. For me, it's, is it Padgett sound? Yes, but there are lots in Alaska. But it comes from an old Norse word, Sund, which means to swim. And so it's because it was like a portion of water that you could swim across. so from one bit of land to another and that also used to be the name for a fish's swim bladder. I don't think I could find that.
+
+[00:12:03] I'd call it sound. That's such solid research. It's since I went too deep. That's really good. Do you know why Juno, the capital of Alaska in fact? Do you know why that's called Juno? Juneau. Yeah, exactly.
+
+[00:12:17] I've been to Juno. Have you? Yeah. That's quite cool. That's quite cool. No, it's a really nice place to be. But I thought it was named after a person. It is.
+
+[00:12:25] It's named after Joe Juno. but there's more to it. So Juno is a capital and you can't get to it by road. You can only get by boat or plane. And named after Joe Juno because it was founded by him and Richard Harris. I don't think the act who played Dumbledore
+
+[00:12:39] because it was in the 1880s. And because they found gold there. And then a whole bunch of other people like flocked there to find gold. A guy called Rockwell took over. And it was originally called Harrisburg after Richard Harris. Because Juno was French-Canadian
+
+[00:12:54] so couldn't write English. So Harris was just like, well, I'll just write down my name then. But then there was a winter in 1881 where all the leading figures in the area left for winter to do other stuff except Joe Juno, who was a man's man
+
+[00:13:07] and kind of a really fun guy. He stayed with all the miners and he spent the entire winter in the saloons buying them all drinks throughout the winter. So at the end of that winter, the miners all took a vote amongst themselves to change the name to Juno. Wow.
+
+[00:13:20] That is cool. I've been to one of those very old saloons in the middle of town. Have you? Yeah. And they have, I don't think I've said this before, they have sawdust on the floor. Do you know why they have sawdust on the floor? To soak up spit and urine.
+
+[00:13:36] Is that not genuinely why? Unvom it? Yeah, that's what people are doing. They don't have any toilets. And when you ask them, they say, I'll just go there. It's fine. It's a litter tray-based system. Especially all guinea pigs that lived there, we said.
+
+[00:13:49] That's what you do. If you want a drink, there's just a huge bottle upside down. Is it so that if people drop their food, they don't act like animals and read it? So it's about dropping things. Think about what Anna said about why people went to Juno in the first place. Mine is mine for gold. And if you drop your gold, you will lose it in the sawdust. Yes.
+
+[00:14:12] And then what does the owner do? Then the barman gets to sweep it up at the end of the day. Swips it all up, puts it in a big barrel. The sawdust floats on top of the barrel, but the gold goes to the bottom. Brilliant. Take it out. Brilliant. Isn't that true?
+
+[00:14:24] That's true, yeah. That's great. That's very cool. Do you know, actually, I said there are two ways. There are three ways to get into Juno. Oh, boats. So we've got boat and plane. Yep, boat plane.
+
+[00:14:34] I know there's no roads that go in because I was told that if you want to borrow someone's car, you can just ask them and they'll just let you borrow it because they know you try it. I was told that. I never tried it. But yeah. You still total it, can't you? So it's not, it's boat, it's air. There's no road.
+
+[00:14:49] So it's a tunnel. I'll give you a clue. It's sort of tunnel. It's a canal. Okay. But what I actually. Actually, this is just a trick question. What kind of canal?
+
+[00:14:58] Narrowboat, canal. A birth canal. You know what? I should be annoyed about that question, but I really like it. You could be born there. Okay, it is time for fact number two, and that is James. Okay, my fact this week is that the earliest known kids' birthday party included the sacrifice of a sheep. When was this?
+
+[00:15:26] This was during the reign of King Lugolanda in a city called Lagash, which was in ancient Sumer. And the reason we know about it is because there are cuneiform tablets which describe it. And there's a historian called Vladimir Emiliano at St. Petersburg University, who studied these tablets. And he found that there is a mention of celebrating the births of the ruler's children. And when they celebrated the birthdays, they sacrificed an animal and shared it with their deceased and ancestors. In a range of party bags that were left on the two. You get a blow a hat.
+
+[00:16:04] Liver. So yeah. Oh, lucky kids. Lucky little Cimarian kids. When he was taken away from power, Lugalanda because he was quite corrupt, we kind of lose the birthday party for a while. And we don't have anything more on them until, you know.
+
+[00:16:19] Really recently. Not really in ancient Egypt. They didn't really do it. I read that there were birthday parties in, ancient Rome, but they were only for the male head of the family. So only dad basically got a birthday point. It was incredibly unfair for the children. It's so funny. Herodotus wrote about the Persians celebrating their birth dates, but the fact that he was writing about the Persians and going, isn't this weird that they do it, suggests that probably in the Greek and
+
+[00:16:46] Roman world it was quite unusual. Yeah. Yeah. You might celebrate the gods. Yeah, you celebrate the gods. Like you give Artemis a cake on her birthday, but that's not. What a waste of cake. Imagine the only time you make a cake is from a fictional being who doesn't eat it. How long did they sit there? Because right now you can just go to a supermarket and buy a birthday cake even well, it's not your birthday. It's unbelievable. I don't got too far the other way.
+
+[00:17:11] When you put it like that, it sounds insane. Nothing's stopping you, Andy. You can do it right now after the show. Just my programming just wouldn't let me by Colin the Calfibela. Honestly, nothing's stopping you doing that and putting candles on it. The earliest surviving handwritten Latin message by a woman, quite a lot of caveats. So that was an invitation to a birthday party. Oh, wow.
+
+[00:17:36] It was by someone called Claudia Severa. It was found at Hadrian's Wall, in fact, from the first century, I think it was almost 2,000 years ago. And she was the wife of an officer, and she was inviting her friend Lepidina to her party. She said, on the 11th of September, please come. I give you a warm invitation to make sure you come to us, to make sure you come to us, to make the day more enjoyable for me by your arrival. It's pretty amazing because she's, that is the oldest now date that we have for a birthday party. And it happened about 100 AD, right?
+
+[00:18:07] But on top of it, it's September the 11th is the birthday party. We can't necessarily assume that was her actual birthday, but that's when the party was. Might have been the weekend. Exactly. You have a, yeah. I don't want to assume. Everyone will, at the party, will have asked it in Latin. Is it today?
+
+[00:18:21] Interesting. I said, no, it was Thursday. But that day is almost bang. on for when the most popular birthdays tend to be. September the 16th comes out most likely, but if you look at the top 10 most likely dates of birthdays, they're all September. Because people have sex when it's cold and dark and office parties and stuff. And then nine months later. But so that's the birthday of the birthday, isn't it really? Exactly. But unfortunately, it's September 11th. So I don't think we could really throw a massive party. No. For the world.
+
+[00:18:50] In Europe, I think you wouldn't have birthdays until the 19th century was sort of proper birthday parties, not really. And there are loads of theories as to why. So in the 19th century, everyone had 18 children, and it's exhausting celebrating them all. When that started to come down a bit, and you've got two or three children, you think, okay, fine, we can do birthdays now.
+
+[00:19:10] Do you think that's fine? There's one theory, yeah. And also, there's a big change because it used to be name days. So I love this. Every day used to be, or every name, every common name would have a day. And it's normally a Saints day So St James's day Or St. Anna's Day
+
+[00:19:24] Still that in some countries In Greece or Israel My brother-in-law is Greek And he celebrates his name day There you go And so I think the theory is Everyone knows Oh it's St Christopher's Day
+
+[00:19:35] So if your name is Christopher You get a lot more attention from strangers They say Or people who know your name but don't know much about you They say oh happy Happy's Christmas Day is your name day So you get more kind of general attention Actually I just remember
+
+[00:19:45] We did that primary school Really? Yeah yeah Our name days. Catholic school? Went to a Catholic school. We'd all have a name day, wouldn't we, with our four names. Yes, and there are rare names, obviously.
+
+[00:19:57] If your name is really unusual, I can't think of any unusual names now. I couldn't think of one, could you? CERC. Sircy, brilliant. If your name is Circe, there is a tradition in some places like Latvia, where the 22nd of May is the name day for people who don't have a name day in a normal calendar. That's nice. And the church hated birthdays when they were being brought in pagan, isn't it? It's pagan.
+
+[00:20:18] Name days as saintly. That's proper. Yeah. And birthdays were a bit. Another reason they came in in kind of industrial revolution time is because dates and times became important, whereas they didn't used to be. So people started having clocks and we started knowing what date it was. And people had calendars that, you know, the printing had become much bigger so people
+
+[00:20:37] could have calendars in their houses. And until then, you would be, you know, what's it like outside now at time of recording? It's start of spring. And you just know it was the start of spring. you wouldn't necessarily know that it was the 5th March. No one knew what their birthday was, probably. Have you guys heard? There's a tradition in Germany.
+
+[00:20:53] Birthdays are quite big in Germany. A lot of offices will have a birthday calendar in the kitchen. Oh, and you can't, under any circumstances, wish someone a happy birthday in advance. Very bad luck. That is bad luck in a few courses. I completely agree. I say happy New Year when it comes. People start throwing around Happy New Year on the 28th of December.
+
+[00:21:08] I shut that down. Do you? Well, yeah. How do we know the New Year is going to come? Would you, like, tossing it around? Well, that's the thing. In Russia, if you wish someone's a happy birthday before the birthday, then the idea is that they'll die before their birthday. Yeah.
+
+[00:21:19] It's just a fool's errand doing that. You think the earth will explode when someone says that to you. I'm saying it will. I'm saying let's not take the risk. But there is a tradition. Please write in if you're German listening to this and this is real. In the north and west of Germany, if you have a birthday after the age of 30, but you're an unmarried man, there's a tradition that you have to sweep the steps of your town hall dressed as a woman until you are kissed by a virgin. I don't think that happens It can't do.
+
+[00:21:47] It feels like we'd know about it, wouldn't we, if everyone was doing that? Germany's a serious industrialised country. There simply isn't the time for people to take time off to do this. But it's a good way of finding love, I suppose. You know, if you don't want to go on the apps. Oh, my goodness. Germans, yes, big into birthdays, big into child's birthdays, big into childhood. I feel like Germany invented childhood in the kinder in the late 18th century.
+
+[00:22:11] And in fact, the earliest birthday celebration I could find in Germany was in 1801 and it was Gertrter describing it of, you know, Germany's answer to Shakespeare fame and friend of the podcast. And he was describing the birthday cake of Prince August of Saxe Gothenburg. And he described it as a generous talk with colourful flaming candles, amounting to 50 candles, which was for how old he was. So that's like the first time we have, you've got the number of candles to go with your age on a cake. But he said that was weird because you usually.
+
+[00:22:44] Usually, in children's festivities of this kind, you have a number of candles indicating your upcoming years. Oh, what? And I found a couple of others also saying the candles on the cake would be the number of years you're estimated to have less. But life expectancy in those days was quite low, wasn't it? So you didn't have to blow out as many, yeah. Must have been a bit of a shock, wouldn't it? You see the cake coming out of the kitchen. Not all, are there only four candles on here.
+
+[00:23:07] Wow, that's amazing. I know, I know, ominous. You've always got a guess. Birthday songs, there's obviously a happy birthday song, what would you say is the most famous other birthday party? Happy birthday to your shoddy, it's your birthday. Okay, there's so many, I wasn't expecting that. It's my party and I'll cry if I want to. Leslie Gore.
+
+[00:23:28] Gordial, incredible song. Gorgeous song. And so I'd never properly, I know the chorus never properly listened to the lyrics. It's about the singer, Leslie Gore, in the story. She is at a party. We should say 60s, singer. For people who haven't heard of it these days Yeah, like brilliant singer
+
+[00:23:44] She was a brilliant singer She was a party and I'll cry if I want to Exactly And she was about 14 when that came out She was so young She was so young And so the story is about her boyfriend Johnny
+
+[00:23:52] disappearing from her birthday party comes back with a girl called Judy And she's wearing his ring And it's this whole horrible thing right Did it really happen to Lizely No it didn't It kind of happened to one of the songwriters But it was his daughter
+
+[00:24:05] being upset that her grandparents Had been invited to the party And she was crying And then he turned it into a more of a love triangle thing. Here's the interesting thing though. There was a sequel to that song called Judy's Turn to Cry. And so it's a follow-on where Johnny then sees Leslie Gore kissing someone at that party and he gets jealous and he punches the guy and he goes back. Dan, can I get, can I show you guys something on my phone? Yeah, yeah, sure. Okay. So Andy's gone over to the sofa. He's pulled out
+
+[00:24:33] some what's it's and it's not that that he needs. He's pulled out, what's that some greens of some sort of? There's his phone. If this is just you on holiday last week, then you've got to save it. A series of photos of me crying. No, I have this album on my phone. I'm a big fan, and she released an entire album of crying-based songs off the back of this hit. I'll cry if I want to. The tracks are, cry me a river, cry, just let me cry.
+
+[00:24:59] Cry and you cry alone. No more tears. Judy's turn to cry. Yep. I understand, I would. Misty, probably about crying. What kind of fool am I? And the party's over.
+
+[00:25:09] Andy, is this your last? Spotify Rucks every year. It's a cracking album. But it is amazing that they basically went, this single is such a hit. You are now our cry singer. And let's do a whole album of it. And then there must have been a shift
+
+[00:25:23] because there was one song which you mentioned there on that album, which is, What Kind of Fool Am I? Oh, yeah. So her follow-up album, that was clearly a hit, is basically songs would fool in the title.
+
+[00:25:36] She's a fool. My Foolish Heart. She's landing onto the wrong thing. You haven't got a lot. One because of the vocabulary you've used in your title. And Quincy Jones was the producer, which is why it's such an amazing sound. But yeah, what an amazing story? It's like a disc track sequel.
+
+[00:25:51] She's the Kendrick Lamar of her own day, of her own song. I don't get that. And it's more of a Drake fan. I feel like we haven't innovated any birthday stuff, our generation. We've not moved the birthday along at all. Oh, well, your generation hasn't. But what's your favorite birthday game? I don't really have any favorite birthday games.
+
+[00:26:07] Just name a one kind of life. Pasture. It's both rubbish. I like the one where you go through the Times birthday announcements, guessing the age of the celebrities and public figures whose birthdays are listed in there. What, the Richard Osmond birthday game? I do play that daily. Well, like I said, if you ask most adults,
+
+[00:26:24] 67% of people will say that pass the parcel was one of their favorite party games, and 61% will say musical chairs. But in young children today, or in fact this was 10 years ago, so this was a study in 2009, 31% of children aged 4 to 7 said they like pass-a-parcel and only 19% said they like musical chairs and they said that their favourite was playing the Nintendo Wii and the Sony PlayStation.
+
+[00:26:52] I'm with them. That's innovation, Andy. I feel so old. Okay, it is time for fact number three, and that is Anna. My fact this week is that Saffron was invented by humans. I thought this is really interesting. I didn't know that Saffron is. in the very expensive spice that we can eat,
+
+[00:27:15] cannot grow in the wild at all. It cannot reproduce without humans intervening. So it's all propagated, harvested manually. And that's been the case for thousands of years. And there's no wild equivalent. There's something that people call wild saffron, which we think maybe it originally came from a mutation of that. But basically, about 4,000 years ago,
+
+[00:27:35] maybe in Crete, maybe in Persia, some people, I guess, found a mutated wild crocus. and then tried hand-breeding it with another one, and it came up with saffron. And then since then for 4,000 years, we've been having to hand-pollinate or hand-breed saffron. So it doesn't make seeds, yes. So it all has to be propagated with the bulb,
+
+[00:27:56] which blossoms into lots of little bits underground. It's called a corm, isn't it? It's like a bulb, but it's basically very similar to a bulb. And they grow little offshoots. And you just pinch those off for replanting. But yeah, is this why it's so expensive? Yes, yeah, it's quite labour intensive, isn't it? Having to dig up every saffron bit, pluck some corms off, replant them.
+
+[00:28:17] And also because you need a lot of flowers to get not much saffron, right? Oh, shed loads. Each one grows three of these little bits, which are basically the stigma, the, you know, the stigma of the female bit of a plant. That's what the red threads are. Each one has three of them. It needs 200,000 flowers to produce one kilogram of dried saffron threads, and 200,000 flowers is the same as the entire number of flowers used at the World Cup of florists
+
+[00:28:41] in Manchester in 2023. That puts it into perspective. Well, it was the 100th year of the competition. You don't need to tell me, Jake. And of course, like being a World Cup, the Germans won. Oh, really? Yeah, yeah. It's an amazing process.
+
+[00:28:57] It's weird. And very time-consuming. So you handpick the flowers, and then you pick out the three thread, the three bright red threads. Yeah. And then you dry them out, and then they lose about 80% of their weight in the drying process. So you've got almost,
+
+[00:29:11] nothing left of them. And then you press those threads into a cake, I believe, or you can do, to pack it. Oh, right. For storage purposes. But quite often, you'll just buy them. If you go to a souk in Morocco or something, they'll just be a little sort of, it's almost like a petri dish with them in. Yeah.
+
+[00:29:26] Have you heard of bastard saffron? Oh. Bastard saffron is fake saffron, which obviously is very profitable because you're selling it, even if you're selling it cheaper than saffron. It can be ground petals of calendula or safflower, so they look a bit similar. I suppose. Maybe you had in some beef fibres or bits of Brazil nuts, also quite expensive actually.
+
+[00:29:46] Beef of Brazil nuts, that is not cheap. And then you store it in a damp location and it gains a bit of way it sort of absorbs a bit of water from the air. It does end up looking... Does it taste like saffron? You wouldn't have thought beef fibres are contributing to the saffron flavour.
+
+[00:29:59] No, you're being swizzed. But Pliny recommends two methods to identify whether or not something's real saffron. One, you press the threads and if they crackle, then it's not saffron. And secondly, you touch it on your face. and if it is saffron, it'll sting you a tiny bit. And is this true?
+
+[00:30:13] Yeah. You have said it as though this is out of it. He also said it was an aphrodisiac. Is it not? Nothing is. Everything is claimed and nothing is. Well, they say, yeah, so the famous thing that will be mentioned is Cleopatra would use saffron-infused baths to sort of get her loins going and get into it.
+
+[00:30:30] Did she not have baths of milk, Cleopatra? She did with saffron also as part of it, yeah. I thought something that was really interesting about a saffron was just how unbelievably widespread it is in meals across. the world. Like it doesn't seem to have a country or a region or even a continent that it's fixed to. Like in Spanish paella, Indian dishes, in South America now, in European dishes. And we seem to have been using it for ages. It's reached us about 2,000 years ago, in Britain even. And we even have Saffron Walden, the place, which is named after it. And that
+
+[00:31:03] was back in the 16th century. It's in Essex, isn't it? Yes. And they changed their town seal to a picture of three saffron plants surrounded by a wall because saffron walled in. Oh, nice. It was called something else Walden before. It was called Magna Walden. Magna Walden.
+
+[00:31:21] And they're also known for their lavender in saffron. Yeah, Ian Lavender, who played Pike on Dad's Army. Oh, God's sake. He's listed as a notable residence. Saffron growers, croakers. Called croakers. Oh, because a saffron is a type of crocus.
+
+[00:31:37] Because it's type of crocus. I assume that's where it's a good name. assume that's where it came from. But they were known as the worst complainers of Tudor times. Because of the labour intensiveness of the work. Basically, they were always complaining about the price. It was written in a book about the table on a history of food. And it said, if the croakers, if the yields too big, they complain.
+
+[00:31:55] If the yields too small, they complain that they can't grow enough. I see, because if the yield's too big, then the price goes down. Exactly. If the yields too small, then they just don't have anything to sell. Exactly. And so much so that by the 19th century, the word croaker was a word for a good. grumbler or a Mona. Really?
+
+[00:32:10] Don't be a croaker mate. Can I tell you about a complaining croaker? This is from 1556 and it's about saffron Walden. Such was the plenty of saffron in this year that the murmuring croakers envying the store said in blasphemous manner in and about Walden in Essex that God did now shite saffron. That's good. The collar saffron, which is like an orangey colour, is on the flag of India and it denotes disinterestedness.
+
+[00:32:43] What? Why? It's because the leaders of India must be indifferent to material gains and dedicate themselves to their work. So wait, is the saffron representing material gains or the work? It's because it's so labour intensive to pick saffron, that you need to be dedicated in order to pick that saffron and you dedicate yourself to your work instead of material gains.
+
+[00:33:04] That makes sense. That's very cool. Do you know what, saffron massages? feels like one could guess it's expensive you tickle someone with those little taffron hair you get you get massaged in three very specific spots as if they were plucking the three
+
+[00:33:20] interesting okay when I tell you what it is you can decide yourself who was closest it's another word for what we would call scissoring between two lesbians and it was written by 13th century Tunisian poet Shahib al-Din Ahmed al-Tafashi who was writing about lesbianism in the 13th century, North Africa. And he wrote about this community headed by a woman named Rose
+
+[00:33:46] who was all doing this saffron massage. What? The saffron massage? So it's just maybe it's because two legs look like one when you've got the four legs together. So it looks like a three-legged thing. It could be. You know what?
+
+[00:33:59] I couldn't work out for all my Googling exactly where this came from. But I can tell you that the ancient medieval. Arabic term for lesbians was Suhakiat, which meant rubbers. Really? People who rub things together. That makes sense. And it was believed that lesbianism
+
+[00:34:17] was due to a hot itch in the genitals that could only be cured by rubbing clitoris to clitoris. Can't hold that. The idea was that heterosexual sex created a hot orgasm and lesbian sex produced a cold orgasm and so the cold would be against the hot it and that would cure it.
+
+[00:34:36] Oh, okay. Whatever you've got to tell yourself. Tell the police. Well, just running on the sexual theme for a second, in 1967, Saffron had quite a big moment in America as a result of Donovan and a song called Mellow Yellow. Oh, yeah. Back to Andy's.
+
+[00:34:56] Let me dig out my Donovan out. Yeah, yeah. Donovan is fantastic. It's a great song. Yeah, absolutely awesome. It's about Saffron. Well, there's a line that opens it, which is I'm just mad about Saffron. Saffron's mad about me.
+
+[00:35:08] And no one knew at the time if he was talking about the spice, if he was talking about a woman who was called Saffron. There was a rumor went around that it was smoking banana skin and that's sort of like, yeah, getting off on that.
+
+[00:35:21] Mellow Yellow actually appears in one of James Joyce's books, Ulysses. It's a description of Molly Bloom's buttocks. So that's what Mellow is. So he describes her buttocks as Mellow yellow. And then it's coincidence that there was a thought. I think that's a coincidence
+
+[00:35:36] because he doesn't, I don't think he said that that's why. But what he says is where he got the idea for the song was when he saw an advert for a yellow vibrator. And there was the line, electrical banana is going to be a sudden craze. And so, yeah, mellow yellow is... Well, that's the line of the song, isn't it? Yeah. So then he came up with mellow yellow,
+
+[00:35:52] because he thought that was a good description of what this vibrator might achieve for you, a mellow yellow. I think in most of these cases, it's just mellow rhymes with yellow. Yeah, exactly. It's quite a nice phrase. Dan is just floating a lot of theories here. I don't even know this. I'm just saying what people have thought.
+
+[00:36:06] But Saffron got a moment off the back of it. Did it? Did it sales? Do we not have it sail? It skyrocketed. The croakers were furious. You know that gardening books used to rhyme? So this is really good.
+
+[00:36:20] I was reading about instructions of how you plant saffron and how you grow it. And there's a 1440s book, The Feet of Gardening, which is by John Gardener. Very nice. Very lovely. So here's an example. With a dibble, thou shalt them set that the dibble before be blunt and gret. Three inches deep they must set be, and thus Master John Gardner said to me. And it's...
+
+[00:36:41] Was he Indian? No, no. What was that accent? It was such a weird one. It was old tiny. Old Chaucerian. So you put your debor in the ground, which makes a hole. It's like a log stick, right?
+
+[00:36:56] Yeah, yeah, yeah, yeah. And it has to be three inches. And basically, it's for people who are not literate to remember gardening instructions better. That's great. A big faff writing the book, so, isn't it? Oh, yeah. If you can't make the rhyme work, then you just have to tell people to plant everything in December. And it's just as a nightmare. So many months rhyme with December.
+
+[00:37:16] I think the worst example. Sorry. That's the worst gardening writer. 15th century monty daughter. I can't think of a rhyme for November. So I know oranges were grown in that period as well. Users of saffron in the old days. And saffron in breast milk is good for eye complaints. Oh, according to him.
+
+[00:37:41] Perverts. Good for seasickness. Great for plague. It really perks you up if you've got plague. Nuns would scent their veils with saffron to perk themselves up a bit, apparently. But there's also this thing, have you heard of a philosopher's egg? I know. So you get an egg.
+
+[00:37:57] Make a hole in the top. Take out the stuff. And then you fill the shell with saffron. then you roast the shell and the saffron together in charcoal's until the shell becomes yellow then you beat it all together in a mortar with some mustard seed then you as soon as any suspicion is out of infection
+
+[00:38:16] dissolve the weight of a French crown of that stuff in ten spoonfuls of posseid ale drink it lukewarm and sweat upon it in your naked bed and then you become immortal that's not good that's good is the idea that they just make it so complicated that if you die they're like oh I just didn't do it Yeah, exactly, yeah.
+
+[00:38:33] He must have only used nine spoonfuls of posid oil. Put one extra candle on his great. Ancient Egyptians use saffron. They use them in their head cones. I wasn't really familiar with these ancient Egyptian head cones. But they're very cool. Like a dunces cap. It's sort of a more sexy version of a dunces cap.
+
+[00:38:53] What can be more sexy than the dants is can. Come on. Let's get in the corner of the room together. Okay. Face the wall. There's not hear any more about your Catholic school days, James. That's what I say when I want the D. I'm referring to the letter of the cone.
+
+[00:39:16] This was head cones that were scented. So there are lots of images in tombs of people entering parties wearing these cones. Or you'd actually go to a party as an ancient Egyptian, if you're a posh one. And you'd be given a head cone, a bit like being given a cocktail or a canopy at the start. You'd be given a head cone which was made of ox tallow, which is a sort of fatty wax, yeah, infused with saffron. And over the course of the evening, the heat of your body would melt it gradually. And as it ran down your face, you'd emit the scent of saffron. It's so weird.
+
+[00:39:48] Yeah, it's incredible. That's bizarre. I've never heard of that before. Who doesn't like the smell of beef jipping? Come on. I mean, I'm from the north, so obviously I do like that. And that's who they were targeting, people from Bolton. And everyone gets one.
+
+[00:40:00] Everyone at the party I think gets one Yeah you'd have a servant come up I'm sorry I'm doing non-beefy January I'm afraid You have a vegan code Okay It is time for our final fact of the show And that is my fact My fact this week is that in order to achieve tears
+
+[00:40:24] In a scene Actors are often shot in the face With a crying stick Okay Why don't they get out Andy Spotify playlist So I saw this in quite a few places now where it's a behind the scenes trick of the trade, whereby if an actor needs to cry in a scene but they can't force themselves to bring up real tears, you have a few methods available to you. One of which is this crying stick which you point at the eye of someone and you go and you blow a sort of methanol odor into their eye. Mental.
+
+[00:41:00] Mental. Methanol. Methanol. Methanol. Well, she's crying, okay. Can you dial it down a bed? Why did your crying stick business? Yes, Benthal. Okay.
+
+[00:41:17] Menthol. And it creates tears. And it's quite nice because it's not immediate tears. They sort of arrive, I guess, once a director would say, action, they sort of gradually appear. And so you can probably time it. perfectly. So what you're talking about there is a tear blower, I think. Yeah. So there's the Krylon 3,000 tier blower, and Nigel Beauty's menthol tearblower that are available if you go to specialist shops. But there's also a tier stick, which is basically like a lipstick thing, which you
+
+[00:41:46] kind of rub on your eyes and does the same job, but doesn't have the blower. Put it on your bottom eyelid, actually. Don't put it on your eye. Because there's different methods, aren't there? Oh, there are so many. The craziest one that I read is that stage actors, they'll keep a pair of tweezers on them and they will pull a nostril hair out. Yep. On both sides in order to get both eyes crying. Just a good beefy tug on those, that'll do it. Yeah, Kate Branchette talks about this.
+
+[00:42:11] She says on stage that would be a method that you would do. Absolutely. Does it work really? Because I feel like I've tried that. I feel like it's mentioned in a sitcom, I've tried it. Does that make your eyes water? I've never tried it. If you get a good old deep-rooted one, it works all right.
+
+[00:42:25] Okay. In fact, a lot of great actors will have a tiny piece of thread going to the front row of the stalls where a member of the production company will be sitting. So they don't have to pluck it themselves. And at a certain moment they'll just give a yank on the rod. That does feel like the problem with a lot of these, right? If you are doing a play, for instance, having to have someone
+
+[00:42:41] sprint on with a crying stick of blowing your face halfway through the scene. Or if you're being filmed in a long shot, it feels like it will be very hard to puff a blow of menthol into your eye from a distance. Yes. That's the reason that the stick is quite useful because you can sort of hide it about your person and then just shove it
+
+[00:42:58] in there. Also, how many nostril hairs do you have? If you're in a long-running play, that is... They regrow. And as you get older, more and more, they regrow more quickly. My friend, Eva, who's an actor, she said that she had a friend who would ask you to list anything bad that had happened to you in your life. And they would read it and they would use that to make them cry. They'd read it to the person who'd created the list. No, they would think about the bad things that had happened to you.
+
+[00:43:22] So if you and I are in a scene and I want to cry, I think about the bad things that have happened to you and that will make me cry. What? It's very empathetic of you, isn't it? Very empathetic. I would only laugh if I hear about bad things happening to other people. Sounds like a you problem, you know? And then you're crying with laughter. Yes, yes, yes. Because quite a common thing is you think about a bad thing that's happened to you.
+
+[00:43:45] Yeah. Probably the most common way of doing it. That's the Stanislavski way of doing it. Right, but for someone else to tell you the bad things that have happened to them. Or there's a thing where you put, if I'm acting in a scene with you, Dan, I will put you in a scene from my life. if you know what I mean. Like I'll imagine someone telling me that they're ill and then I'll think, okay, I'll sort of recast you
+
+[00:44:04] as that person in my life. Imagine some walking in with one candle on Dan's birthday cake. Yeah, exactly, exactly. There are some things that I just can't believe work. The Toronto Film School website has a few tips and I tried the only one that was low effort, the yawning method,
+
+[00:44:20] which was take a deep breath and slowly exhale while faking a yawn but keep your lips tightly pursed, which is where it becomes a bit more hard. And then focus the yawn in the back of your throat like you're trying to swallow your sadness. But I found very difficult and hurt my throat quite a lot. Okay, so I've just yawned and my eyes are watering a bit.
+
+[00:44:39] My eyes are watering. Guys, you've actually done quite well. But there's no tear coming out, but they are watering. No, that's good, I'm convinced. But on camera, you want a bit of, you know, that's subtle. Yeah, that feels like, yeah. I'm now having to wipe my head. You're probably crying.
+
+[00:44:51] Yeah. You're okay? Jesus. I was thinking about something bad that happened to me. There's other methods. There's a story of Natalie Wood. She had to be able to cry on cue, but her mum solved the issue
+
+[00:45:07] by ripping up a living butterfly in front of her to ensure that she would cry. So there's an option. They only live for a day, so you're not really cutting it as life that short, are you? That's a Mayfly you're thinking of. Oh, shit. Isn't that wild?
+
+[00:45:23] That's horrific. There's another podcast called The Rest is Entertainment. Have you guys heard of that? Okay, so there's someone on that called Richard Osman. Oh, the birthday game guy. The birthday game guy, that's him. And he said they spoke to an actor who said that they don't have to cry on demand anymore because they do it in post on AI.
+
+[00:45:41] Oh, well, they see, as in the CGI in... Yeah, so you just kind of go, like, pull a face of someone who's crying, but you don't have to do the actual tears because they'll... That's really depressing. I reckon a lot of the good actors still cry to still do the real cry, because you want the realistic cry face, don't you? Do you know that Ohio tried to ban fake crying, specifically in court in 2008? Why might you try to ban crying in court?
+
+[00:46:08] Well, because it might influence the jury. Exactly. But it was, I think this is really interesting that they've assumed that fake crying exists. And it was actually based on a case ruling by the Ohio Supreme Court in 1999 that said it's improper to inflame the jury's emotions by crying. and so there was a prosecutor called Jason Fillebaum who was prosecuting people who were up for the death penalty
+
+[00:46:34] and he complained about the fact that defence attorneys would strategically cry on cue Oh defence lawyers OK not people in the dock No sorry defence lawyers So you'd be talking to the jury saying This man does not deserve to die
+
+[00:46:48] He's got a wife and kids That is quite theatrical There's more theatrical than I think A British court would get Well I think what the defence lawyers say that they are quite attached to their case and they believe strongly in what they're saying and they're very sad at the idea
+
+[00:47:00] that a client might be killed for this. I'd love it if they were busted by the court. Who's the guy who does the drawings in the course? Yeah, there's this drawing that comes out of a lawyer with a tweezer up as an extra round. Wait a second. Crying goes in and out of fashion. In the medieval times, it could be a sign of manliness.
+
+[00:47:20] So if you read all the medieval romance stories of the knights of Camelot, Gallaghan is always bursting into tears He's always crying And it's seen as a manly thing It's a virtue as well You know they're very strong and powerful But also they cry a lot
+
+[00:47:33] And bishops would always cry loads So there was an archbishop of Canterbury In the 13th century called Winchalcy And he wept so much That the altar cloths were sodden supposedly Oh yeah, that's the reason Oh god We'll pop some sawdust on the altar next time
+
+[00:47:49] It's fine But basically eyesight was a kind of temptation because eyesight showed you all the sins of the world and tears were bad for your eyesight you might even lose your eyesight if you cried so much so actually it was I mean you'll go blind so play it's a place you'll keep doing that so a huge part of religious life was weeping
+
+[00:48:07] because you know it might damage your eyesight like Jesus wept in the Bible of course yeah and so is that so you can go blind to the temptations of the world kind of yeah and that was seen as a you know that was a very holy thing to do and also you had to be celibate and non-violence So tears kind of were they stood in for combat.
+
+[00:48:25] You were in conflict against temptation, particularly sexual temptation, and tears were a part of the response to the temptations of the worst. Like rather than have sex, burst into tears kind of thing. Yeah. Or listen to a Spotify playlist. Isn't it a bit of a giveaway if you're sort of standing with your wife and there's a woman across and you're just filling up with tears because you're trying to not be tempted into doing something? I think if you're a medieval bishop, you won't be standing with your wife much. A medieval meme is a bishop and of none. And he's turning around looking at another of nun and he's crying his eyes out.
+
+[00:49:04] Babies fake cry. Babies fake, they're crying quite a lot. So some babies are really crying. And you can tell they're really crying if you get to a baby and comfort it and it stays, you know, a little upset for a little while. But sometimes a baby will be crying. And if you go over and soothe it, it immediately is, it's all smiles. And that's not really fake in a minute. Well, I suppose it is a manipulative way.
+
+[00:49:26] It has learned that that is a thing to do that prompts a response from a nearby grown-up. But I guess in that case, they're crying because they want a grown-up there, so it's kind of real. Like they might feel lonely or... Completely. Yeah. But it's not that proper emotional... They're not in distress. Yeah.
+
+[00:49:42] They're going through the motions of being in distress. They're pissed off, aren't they? They're very strong difference. It's very evident as soon as you do give them the thing back and they grin. Other just reasons people cry that aren't to do with being sad. Okay. Mice cry to prove how manly they are. Hmm.
+
+[00:50:00] And this is because they release pheromones in their tears and they're an aphrodisiac. So quite opposite to humans, where I think there have been studies that show that if human males smell women's tears, it stops them from being sexually aroused. It's a study that found that. The mice get sexually aroused by these pheromones. and they found that contact with tears mean that a female mouse is three times more likely to engage in laudosis, which is that thing where you thrust your rump in the air asking for someone to have it. I've never heard that phrase. Lordosis, I know it's a good one, isn't it?
+
+[00:50:37] Wow. Also, have you ever thought of doing Jilly Cooper on your bus? Oh, yeah. Have that romp. Yes, I am available for voice work. Okay, that's it. That is all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this podcast, we can all be found on various social media accounts. I'm on Instagram at at Shriverland. James.
+
+[00:51:07] My Instagram is No Such Thing as James Harkin. Andy. I'm on Blue Sky at Andrew Hunter. And if you want to get to us as a group, Anna. You can get us on Twitter and No Such Thing, Instagram and No Such Thing is a Fish, or you can email podcast.cure.com. Yep, or you can go to our website. No Such Thing. offish.com. You will find lots of things up there. Links to any upcoming live shows. We have one coming up at the crossed wires festival. That's happening this July in Sheffield. You can find a link to our merchandise. You will find all of our previous episodes and you'll find the gateway to our special secret club, club fish, where you can hear bonus episodes like drop us a line, which is where we read out the letters that you've written into us and respond to all your comments. Otherwise, just come back next week. We'll be back with another episode. We'll see you then. Goodbye. I.

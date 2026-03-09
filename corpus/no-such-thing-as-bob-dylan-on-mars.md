@@ -1,0 +1,317 @@
+# No Such Thing As A Fish - No Such Thing As Bob Dylan on Mars
+
+- Episode date: January 16, 2025
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-bob-dylan-on-mars
+- Slug: no-such-thing-as-bob-dylan-on-mars
+
+## Transcript
+
+[00:00:02] Welcome to another episode of No Such Thing as a Fish, a weekly podcast. This week coming to you live from Auckland. And Shriver, I'm sitting here with Anna Toshinsky, Andrew Huntsum Murray, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Andy. My fact is that the German order of temperance was founded in 1600 and members had to pledge to drink no more than 14 glasses of wine a day.
+
+[00:01:05] Do you think you find that tough, Anna? I think so long as that only means before 6pm, that's vaguely generous, isn't it? Yeah, there are a couple of extra rules, but I think you could handle it, Anna. I think it would be fine. This comes from a 1925 book called The Standard Encyclopedia of the Alcohol whole problem. Just a little light bedside reading for me.
+
+[00:01:27] I found in that there was a reference to an 1872 paper, so all of this is quite a way distant. You know, the records of the society itself, obviously 400 years ago, not very easy to find. But basically there was terrible drunkenness in the 16th century, all over the place. And the rules of the temperance society were
+
+[00:01:43] firstly, never get drunk. That's rule one. Yeah. Rule two, you can only have seven glasses of wine at a meal. And rule three, you can only have two meals a day. Okay. So they didn't mind you drinking a little bit. I think that's the idea, isn't it?
+
+[00:01:57] Because temperance is like to temper your drinking. So they weren't banning drinking. They were just trying to make you drink less. And even if you had your 14 glasses, even if you then wanted a bit of wine to help you sleep, you weren't allowed it. It was very strict. Even if you have another meal?
+
+[00:02:12] Even if you have another meal. Oh, God. When they started doing things like, okay, why don't we cut out certain bits of alcohol? So they set up a brewery for people who didn't want to drink. as in didn't want to drink spirits, but only beer. So they would go there instead. And then very slowly it would sort of morph into,
+
+[00:02:27] let's just maybe not drink at all. Maybe we'll just stop it now. And it was also, wasn't it, the evil that was alcohol wasn't really wine and beer. For a long time, it was spirits. And actually a lot of beer, especially, but wine a little bit was promoted as temperance drinking. I think Guinness was promoted quite a lot of temperance drink in the 1700s.
+
+[00:02:46] Because spirits distilled liquor was thought to be the evil thing. and actually temperance I didn't realize it may be slightly more sympathetic towards it had a bit of a socialist undertone because all the distilled liquor was all sold by landowners who were exploiting the peasants working on their land because they were the only people
+
+[00:03:03] who could grow all that liquor and so by being a teetotaler and only drinking 14 glasses of wine a day you were sticking it to the landlords were that makes sense we're glasses a lot you know how they were little smaller back yeah glasses were not as much
+
+[00:03:19] smaller as the glasses were. I know we're in the land of the hobbits here, but... So they were smaller glasses were way smaller. This would have... This would have been an insane glass. The glass I'm pointing out now would have been a demented volume in the 16th century. People would have freaked out. They would have said, but that's a bucket.
+
+[00:03:39] Okay. They were, genuinely. That would be all 14 of your glasses, do you think? This would probably be a few of them. And for anyone listening at home, this is not a lot of wine at my glass. I think it's easy to say, picture of wine glass with some wine in it, that's what Andy's got. Yeah.
+
+[00:03:55] Okay. It's not a lot. I'm fine. And I can stop any time I like. Okay? The rules, sir, I think you sent round a source with all the rules of this original temperance society. There are some other really good ones, but one of them was the, um, the society wanted to ban the practice of drinking to people's health. Cheers. Here's to you, sir, etc. because that promoted drinking in it. It got to a stage where you'd promote everyone's health around the table, and by the time you'd started talking, then everyone's had 15 pints.
+
+[00:04:25] So I was wondering about toasting, and do you know why it's called toasting? Well, it was always about putting toasts in the beer or something? There was, so I think we probably have mentioned before that people used to put soaked toast in their beer, but I like, and this is just a theory about why it was called toasting from 1837, a thing I stumbled on. This was in Tattler, said, toasting, as a word, comes from the 16th, 60s when a beautiful lady was bathing in one of the baths at Bath, Bath Spa, town in the UK, and the men around were all admiring her as she bathed. So far, so good. One of them dipped his
+
+[00:05:01] cup into the water, because it's like health-giving waters at Bath Spa. So one of them dips his cup into the water, holds it up and says, cheers, here's to the health of the lady. And another person who's described in the source as a gay fellow half-fuddled, which I think he's absolutely hammered. swore he was going to jump in the water because though he did not like the liquor, he would have the toast. So I believe in this instance was the lady. So the toast, when you're doing a toast,
+
+[00:05:32] is the naked woman bathing in the pool of wine before you. Is that a slang term for a hot lady? It was because, as James said, they used to drink their beer with a bit of toast in it. So it did come from that. This is just a sort of fun riff on the... No, no, but this is... That's why we call it a toast, because someone drank to the health using the water,
+
+[00:05:52] and then someone made the toast gag, very funny. I understand. Because I was thinking, is it related to the term crumpet for someone who's attractive? Oh, yes. That's not that, is it? Sure, you could make a case. The temperance movement in Glasgow, that was quite an interesting one, because it banned barmaids.
+
+[00:06:11] Okay. It said, we've worked out what the problem is. This men are getting incredibly drunk. It must be the fault of the barmaids. these crumpets that we're toasting. Get them out of here. Basically, the idea was men would dally in the bar because they wanted to talk to the bar mates.
+
+[00:06:26] Yeah, it makes sense. Yeah? I mean, and if you let a woman into a pub, also they're at risk of being exposed to language and to jests, and we cannot have that sort of thing in our society. We need, you know, the men to be just getting absolutely battered in peace. The temperance lobby, who were trying to convince people not to drink,
+
+[00:06:43] it started with health about sort of what it would do to you. And then they just started lying about things. So they would say, well, you're drinking that. You know what they put in it. Crunched up cockroaches. They put feces. They make it with feces. They started just spreading all these rumours about what alcohol was mixed with in order to get people to go, I guess I don't want to drink. Really? Yeah. You know what? That wouldn't work on me? Wouldn't it? Yeah. See, this is why I didn't take over. Have you guys heard of the wowsers? Hmm. Wow.
+
+[00:07:12] Wow. No. This was a New Zealand thing, and Australia, actually. And a wowser. And a wowser was a person who had a real sense of morality and wanted other people not to do sinful things. Actually, the name originally was a loud or an annoying person and then it kind of changed to that meaning. But the Wowsers were usually the Women's Christian Temperance Union in New Zealand and not just where they're campaigning for less alcohol, but they were really the main people behind women's suffrage in New Zealand.
+
+[00:07:44] Because I don't know if the guys in the audience know, but it was one of the first places where women got the vote. Is that so? I had a lot of women charing there, but not many men. And here's another thing about New Zealand. In 1917, there was, as part of the temperance movement, they came up with a new law, which said that all bars and pubs had to close at 6 o'clock, so 6 p.m.
+
+[00:08:14] And the thing is that everyone finished work at 5 p.m. and so what ended up happening is everyone who was working just legged it to the pub at 5pm and drank as much as they could for an hour and it was called the 6 o'clock swill and basically you would... Did that lead to any problems at all?
+
+[00:08:32] Was it absolutely fine? I'll be honest, it didn't go that well. Some bars changed their wallpaper for tiling so it could be easily cleaned. Oh my God. A lot of people would drink loads of drinks and then keep all the glasses
+
+[00:08:47] and then at like five to six they would go fill these up and then they would all get filled up and then they would neck as many as they could. But one interesting innovation that might have come from this is, you know if you ask for Coca-Cola in a bar and they say we've got Pepsi, is that all right? And you say, yeah, fine. They sometimes give it you out of like a long tube
+
+[00:09:08] with a gun on the end. Oh, yeah, yeah, yeah. And that was invented for this because it made it easier to get beer quickly into people's glasses without having to get them to come away from the table. Oh, wow. How long? Was it really, really, really long?
+
+[00:09:24] It was really long, yeah. There were these amazing maps as well. Have you heard of these? The wet and dry maps of the USA? No. This is very cool. America, obviously, very sort of vexed relationship with alcohol. They had their anti-saloon league,
+
+[00:09:36] and this was all pre-prohibition. This was when they were still trying to do it just through social pressure rather than through banning it. But there were temperance advocates. And this happened in the UK as well, actually. Temperance advocates would map out pubs. They would produce maps of pubs
+
+[00:09:49] so that people could avoid them. Which did not backfire at all. Yeah, I'm going to need one of those maps just to make sure that I don't go near any of these pubs. It was basically, I'm being a bit flippant, but they, the anti-alcon movement, they printed these maps saying, look at how many pubs there are in this town.
+
+[00:10:07] We can't need any more. And that was, like, don't grant a license because look, this place is absolutely loaded with... It wasn't for normal people, like a trigger warning. So, you know, if you really don't like pubs, if you're offended by them, don't go here. No, but it wasn't quite that. It was a thing called persuasive cartography, which is quite cool. You produce a map showing something that you desire or something that you don't want.
+
+[00:10:27] Yeah. I read about, we were recently in Melbourne, and I read about a group of friends who almost had the equivalent of a map. It was the yellow pages of Melbourne, and it had every single pub listed in it, as you would. And this was back in the early 90s. And they decided that they were going to try and visit every single pub on the year. ultimate pub crawl that they could go on. And they managed it. 32 years later, they had completed all 400 plus pubs. Some of them had shut so they had to just
+
+[00:10:57] stand outside and have a ceremonial beer outside of there. Three of the five pulled out and it was only two that made it to the end. When they say pulled out, do we mean died of alcohol poisoning? Yes, got it, got, got, got, got. Pulled out of breathing. Yeah. Well, they still have those maps of the US now, don't they? because there are dry counties in America and wet counties. But I didn't realize there were also lots of moist counties.
+
+[00:11:21] And this is a beautiful term, and it's nothing disgusting. It's, well, it depends on your opinions. But like in Kentucky, there are 120 counties in Kentucky, 11 are dry, 53 are wet, and 56 are moist. Which is just like some rules. Can't drink vodka on a Wednesday, you know, don't drink beer all night long, that kind of just, you know, there's some rules around alcohol. But not many. but it actually backfired this when there were lots of little counties because they did a study in 2003 looking at drink driving.
+
+[00:11:50] But they found that a higher proportion of dry counties residents were involved in alcohol-related crashes, and they realized it's because they're having to drive across the bloody border to pick up alcohol from the wet county. That's amazing. That's incredible. There was a Greek playwright called Eubulus, and he wrote the three glasses of wine is a perfect amount
+
+[00:12:11] for you to have, you go to bed. If you have a fourth that will induce arrogance, a fifth causes shouting, a sixth causes quarreling, a seventh leads to punch-ups. In the eighth, furniture was smashed and the police were called by the ninth deranged madness set in, and by the tenth you pass out. And that is very much a description of how this podcast is going to go throughout the evening. It is time for fact number two, and that is my fact. My fact this week is that Bob Dylan found Jimmy Hendricks' cover of one of his songs to be so much better than the original that whenever he plays the song live now,
+
+[00:12:59] he plays a cover of the cover. That's such a rare thing for a musician. He plays the restructured... How do we know? It just sounds different. He's restructured it, so yeah, he's moved lyrics around and so on. What's the song? It's all along the Watchtower.
+
+[00:13:14] So this was a song, oh, thank you, yeah. You didn't write it. I know, but I felt like I did in that moment. You are welcome. So this appeared on an album called John Wesley Harding. It was 1967, and it's a great song. Hendricks heard it.
+
+[00:13:31] Hendricks actually did a few covers of Dylan's songs. He really loved how Dylan was expressing himself. He said, sometimes I played Dylan's songs, and there's so much like me that it seems that I wrote them. And that's what Dylan felt when he heard Hendrix playing his song. He was like, I feel like that's his song now. When I play it, it's tribute to him. And so, yeah, so, I mean, Dylan concerts,
+
+[00:13:53] I don't know if anyone's been to any recent ones. They have got a bit weird. I find them really fun. I've seen him quite a few times live. Because he messes around with this song so much. It's always a case of working out what an earth song he is playing that you know incredibly well that he is hidden under 900 layers of nonsense. There's a joke which is that it's so different that while he's on.
+
+[00:14:12] playing blowing in the wind, someone will jump in and go, play blowing in the wind, and you'll go, I am. He's a very interesting guy, isn't he? For someone who's, you know, very, very iconic and still alive, albeit old, he is old, but he is alive. So that's the... He's sort of very active. He's a time of recording.
+
+[00:14:31] But he's incredibly unreliable. Okay. In terms of... It's the wrong term. Unreliable suggests he's a bit disorganized. He's a hard person to grab hold off. He lies. He lies.
+
+[00:14:42] He lies like a rug. It's amazing. He's done so many different versions of events of his own life. And he's like all of them are, well, a lot of them are provably wrong. So was he sent to reform school, as he claimed? Was he foster parented? Did he run away from home age 12? No.
+
+[00:14:59] He was brought up by a completely normal middle class family. When he played Carnegie Hall for the first time, he told a reporter he had lost contact with his parents and he didn't know them anymore. They were in the audience at the gear. Well, he was incredibly private. I know he was, but I'm still saying, fibs, fibs, fibs. Was he really a chess hustler in Greenwich Village in the 1950s? Right.
+
+[00:15:20] I'm not worried by all of the research, because I don't know anything about Biller. And I've been researching him going, this is amazing. I didn't even know he tried to get to Mars. That's incredible. The Wimbledon final, really? 75.
+
+[00:15:33] I couldn't believe the naivety of a journalist who interviewed him after he was awarded the Nobel Prize. Remember, he won the Nobel Prize for Literature in 2016, and he didn't say anything about it when it was announced. He'd won it. There was a tiny announcement that came onto his website and then vanished very quickly. And so everyone was like,
+
+[00:15:49] oh, we can't get hold of the Nobel Committee, can't get hold of him, not picking up his phone, where is he? And eventually, weeks and weeks later, a journalist finally managed to get an interview with him and he wrote, poor guy, he wrote, I can now put people out of their misery because everyone was saying, is he going to turn up to the ceremony?
+
+[00:16:04] Is he going to come? The journalist went, I can put people out of their misery. Yes, of course, he's planning to turn up to the award ceremony. I asked him about that and he said absolutely if it's at all possible. Now, obviously he didn't turn up to the award ceremony because of pre-existing commitments. Who has pre-existing commitments more important than accepting a Nobel Prize? Did he win it for his lyrics and his songs?
+
+[00:16:25] Yeah, yeah. So like this one. Wiggle, wiggle, wiggle, wiggle like a bowl of soup. Wiggle, wiggle, wiggle, wiggle like a rolling hoop. Wiggle, wiggle, wiggle, like a ton of lead. Wiggle, you can raise the dead. That was one of his. Yeah.
+
+[00:16:38] It's genius. It's how he tells it, weirdly. Wiggle, wiggle. Wiggle. Okay. That's what the pullet so saw. I see it now. He's just taking the piss his whole life, isn't he?
+
+[00:16:53] Like he, someone, and I appreciate so much the research genius who found this out, that the lyrics from Tweedle D and Tweedle D, and Tweedle D, which is a very good song, are poached from various places. So, like, Proust and Hemingway, fine. A Time magazine article from 1961, bit weird to take your lyrics from there. And also a lot of them were taken from a travel guide to New Orleans by a woman called Bethany Boltman. Is that allowed? Isn't that copyrighted or something?
+
+[00:17:20] Do you know what? I don't think anyone would have the balls to sue. So if you hear lines in that song like dripping in garlic and olive oil or parade permit and police escort, just think... They're just from a guidebook. Three stars. Wow. Nicholas Cage is great. That's all I know about New Orleans.
+
+[00:17:42] Very good. Nicholas Cage? Yeah, he bought a grave in New Orleans. It's like this amazing pyramid. But he's not dead. Unlike, no, like Bob Dylan. Yeah. So similar.
+
+[00:17:52] Again, that's time of recording. Oh God, I really hope we don't curse anything because he is an incredibly valuable guy to the world. He's great. Do you think we have that power? I don't know. It's not worth it try, is it? You know the song, Mr. Tambourine Man?
+
+[00:18:05] Yeah. Very, very beautiful, mysterious song. What do the lyrics? Can I just say James was actually shaking his head at the bat? This is how James is about Bob Bill and music. It's one of his really, really famous early songs, and it's very beautiful. The lyrics are very sort of, you know, rhythmic and poetic.
+
+[00:18:21] It turns out it was just inspired by a musician he knew who owned an enormous tambourine. You know what? I would have guessed that, actually. Really? If it was from, you know, a greengrocer who had an enormous marrow, I would have been really surprised. That's, hey, Mr. Tangerine Man, you're thinking the greengrocer one.
+
+[00:18:37] It was good. But he was called Bruce Lanker, Banghorn and he just had a big old... He went on to start Brother Brew Brew's African Hot Sauce. So, you know. Oh, amazing. What a career. He never had a number one hit in the UK, Bob Dylan.
+
+[00:18:51] Okay. And his highest ever charter was one that's called Like a Rolling Stone. It is. Yes, I think a couple of people in the audience might have heard that one. Okay, you might have known. You might know it. You got to number four in September 1965 and that was his highest ever charting. But when that was at number four,
+
+[00:19:10] the number two and number one where I got you babe by Sonny and Cher and I can't get no satisfaction by the Rolling Stones. That's a tough week, isn't it? Yeah. He should have waited until 2019 to release like a Rolling Stone when I would have been up against
+
+[00:19:26] the sausage roll Christmas song was up there. But he's largely, his most popular songs are the ones that are covered. So like Hendricks doing all along the Watchtower or Adele doing Make You Feel My Love. Not many people know that that's a Bob Dylan song from a much later album, which was a big hit for her. Like for someone who's as famous as he is,
+
+[00:19:46] he's not a fame chaser. In his early days, he had to do interviews. You had to do them. By the way, if you haven't read his autobiography, it's incredibly good. I highly recommend it. None of it's true, but it's very... Oh, yeah.
+
+[00:19:57] Brilliant bit of fiction. So when you read some stories about him, I picture him as a sitting at home just like, oh, don't see anyone. just he sits on his own, not wanting to do anything. But he's got all these multitudes of interest that I didn't know about. One is he loves comedy. He's really into Jerry Lewis slapstick style comedy.
+
+[00:20:16] And he approached a guy called Larry Charles, who wrote a lot of Seinfeld episodes and was a big collaborator with Larry David on Curb Your Enthusiasm. And he said, I want to write a sitcom where I'm in it as a slapstick comedian star. And Larry was like, really? And he said, yeah. And he took out a box that he had.
+
+[00:20:36] You've got a very good Dylan on you. Dude, man. I want to be funny. Honestly, as someone who has no idea who this person is, this is very funny. This person. This person? What do you mean, man?
+
+[00:20:54] Probably maybe the most mysterious incident in his life was his bike accident. Because it changed the course of his career. This is in 1966. He had an accident on his motorbike. it was quite bad and he ended up having to have health care for a period of time and it meant that he sort of became a recluse for a long time he didn't work for a bit no one heard from him but the thing is we don't know what actually happened in the accident we don't know how badly injured he was and we don't actually know if it happened at all
+
+[00:21:24] but it's the most debated thing ever any bob Dylan fan has opinions on it so and he always has a different thing about what caused the accident the sun got in his eyes his bike slipped on some oil, sometimes he broke his back, sometimes he was concast, sometimes he was fine. But all we know was he turned up at a doctor's house, which I didn't know he could do. He knew a doctor, he turned up at their house and he stayed there for about a month, sleeping on their sofa or whatever. And that was it. And I think he has admitted since that he basically was trying to get out of the whole fame thing,
+
+[00:21:56] didn't like the competitive rat race. So baked a bike accident? Wow. I think you can walk into most places if you're the level of Bob Dylan. and if you know where the doctor lives you just go to their house they're not going to go sorry Bob It was rural wasn't it
+
+[00:22:09] It was no woodstock Yeah And do you think you just let them stay for a month How many months could they stay Before you kick them out Even if they're Bob Dylan How many months can you stay at a doctor's house Is actually a rejected line
+
+[00:22:18] From how many roads Must a man walk down Very good Before he will chuck you out James has no idea what that means Oh I assume it's one of his songs Can I do another thing
+
+[00:22:32] that another bit of James baiting here. I'll see if you like this. Okay, because you will like a bit of it. There was for 20 years at least, there was a huge competition between some academics. In 1997, there were two researchers in Stockholm. They released a paper called Nitric oxide and inflammation. The answer is blown in the wind,
+
+[00:22:49] which is clever. And then several years later, two other researchers coincidentally published a piece called Blood on the Tracks, a simple twist of fate, which I think might have been genealogical. Anyway, they decided to compete to see how many Dylan lyrics they could get into their papers before retirement.
+
+[00:23:04] And then a fifth one joined after he wrote something called Tangled Up in Blue, molecular cardiology in the post-molecular era. And this has just been going on for a very long time. Did you come across Karl Gornitsky when you were reading about this? I don't think so. So Carl Gornitsky is a librarian who found out about this, and he thought, well, what I'm going to do is see how often people use Bob Dylan lyrics in all of the papers. And he found that there are at least 200 examples of papers that unequivocal
+
+[00:23:31] use Bob Dylan's words in their titles, and he found that they're cited slightly less often than other similar articles. And he said in his papers, he thinks that there will be fewer Dylan references in the future because, and I quote, researchers can see they weren't quite as clever as they were intending.
+
+[00:23:51] Maybe he didn't write them in order to be included in the scientific papers. Or maybe they were trying to quote an old tourist guide that actually they've never heard of the songs. Do you know the oldest recording we have of Bob Dylan, at least according to my research? So this was one that was made in St. Paul in 1960, and it resurfaced in 1978, and a fanzine writer called Brian Stuybal went to the person's house who found it and said, oh, can I listen to this Bob Dylan tape? And the guy and the owner insisted that his partner did the dishes while they played it
+
+[00:24:26] because he was so sure that they were going to record the tape when he played it for them. you'd have all that background noise. And sure enough, they did record it. And the bootleg is known as the armpit tape because it's such bad quality. Lovely. It still exists. People get so weird about him.
+
+[00:24:44] There's an institute of Dylanology in the University of Tulsa, which is not officially called that. It's the Institute for Bob Dylan Studies. But they bought his archive in 2016 for about $15 million. And it's 100,000 documents from his life. It's really intense.
+
+[00:24:59] As in people get so far. They do. But also, you know, he's not the easiest person to recognize sometimes, which works in his favor, because he does all of these weird things in public. Like, he went through a face in 2008, 2009, of wanting to turn up at the houses where musicians had lived in their childhood. Oh, yes. He turned up in this random house in Winnipeg where Neil Young had grown up, and it was now occupied by just a couple called Keenan and Patti, who came home from their shopping trip to find a guy on their doorstep, who they didn't recognize. Is that your holiday home change? Don't he get on a magical mystery tour bus in Liverpool and go around all of the Beatles' childhood homes? I think he might have. I think he might have.
+
+[00:25:40] He's a big fan of musicians. He loved the Beatles. He said that Beatles transformed America at a time when it desperately needed to come out of a depression and have a hit of happiness. And when Elvis died, he stayed silent for a week. He was so distraught from his death. Yeah.
+
+[00:25:57] I'm just showing my own trip. there. Oh, yeah. He was going to play for the Pope in 1997. Uh-huh. And then the next Pope, uh, next it. Oh. So he was going to play for John Paul 2.
+
+[00:26:09] Yeah. Uh, the second. Uh, in 1997. That's John Paul 2. 2. He was going to play... Scenario of John Paul 4. Um, but then Cardinal Ratzinger
+
+[00:26:18] tried to stop it happening. Benedict the... Why did he try to stop it happening? He said it was inappropriate. He thought it was wrong. Uh, he thought Dylan was sort of a bit profity. Uh, but John Paul second.
+
+[00:26:28] did give a sermon saying, you asked me how many roads a man must walk down before he becomes a man. I answer, there is only one road for man, and it is the road of Jesus Christ. Doesn't scan as well, does it? Doesn't. See why he didn't incorporate that.
+
+[00:26:49] Time for fact number three, and that is Anna. My fact this week is that the US government runs a lottery where if you win, you get to go and watch fireflies light up. It's so sweet. Not as good as winning 10 million quid. Well, you know, in some ways it's better, James. Because what's richer than nature?
+
+[00:27:10] Money. You could buy that forest. Just cut to you guys, waving your wallet at a firefly. Light up! Well, millionaire, Dan, you can't buy the forest because it's in a national park. And this is a national park.
+
+[00:27:28] It's the Great Smoky Mountains National Park in Tennessee and a bit of North Carolina. and the fireflies every year put on this incredible display, not for the humans, just for each other, but it is amazing. It's two weeks early June, and it's the synchronous fireflies. It's one of the only places that it happens in the US,
+
+[00:27:47] and the only place that happens on this scale. And basically, it started happening in about mid-1990s when the National Park removed the streetlights, so it got really dark there, and fireflies love darkness, because their lights show up. And people realized it was a thing. and they started flocking to this national park to see these fireflies all lighting up in synchrony.
+
+[00:28:07] It was extraordinary, just millions of them, you know, like a Mexican wave going on and off. And there were so many that at first they decided to do a first come first serve thing with ticketing. And the queues were just insanely long. So now there are 1,800 parking passes given out every year. And you can apply for them. About 30,000 people applied in 2019. So it's round that level. And you might win.
+
+[00:28:31] And if you win, you bring your foldable chairs, you bring your inflatable sofas, some people do. Really? You bring your teddy. Yeah, you really settle in for the night and then you wait for the fireflies to light up. It's pretty cool. Are there rules about what you kind of can't bring? Are you not allowed to bring a torch in case that's confusing to them? You have to have red light so that they can't see it.
+
+[00:28:48] You certainly can't have normal white light. Yes. Because they get confused by the lights, don't they? Yes. If you get a load of fireflies and there's like street lights around, they just won't mate with each other. And it's so much so that you can get two fireflies and you can put them right next to each other
+
+[00:29:05] and they might be really horny but they won't make it. And we don't really show why they won't do it but we think what it is is because they think it's daytime and they only do it at night time. Oh, sensible fellows. Doesn't it look a bit like Godzilla to them? Isn't it just like a giant version? And does that put you in the mood, Dan?
+
+[00:29:25] Because if it doesn't, I think we've got our answer. I reckon if you and your wife there and a huge Yeti walks in, I can only imagine that's going to help things in the bedroom. I think in a very one-sided way, sure. I mean, you can leave. You know what they say about big feet? They're pretty amazing fireflies. I've never looked in some before.
+
+[00:29:54] They're astonishing. I mean, the fire in them is guys. it's not a real fire. It is like a, yeah, I know, right? It's like a bioluminescence. It's a thing that is made in them as a combination of chemicals that combine together. The main thing that people try and extract is a thing called luciferase. It sounds like Lucifer's being used as the etymology term. Well, Lusufus being used as the etymology term. Well, Lusufth means light bringer, which is where Lucifer, the devil comes from. Yeah. So I was correct. You know, right. Sometimes I like to assume and have it confirmed on
+
+[00:30:29] age, I know this. And it's amazing what they can do with it. It's used for mating reasons. It's used for competitive advantage. You will have female fireflies of one species, and there are many thousands of different species, and they will mimic the light of the male in another subspecies to attract the female from mating,
+
+[00:30:49] only to eat them up so that they can steal certain bits of them. That's not, feminism hasn't got to the firefly community, has it? But do you know why they do that is not only for food? The toxin, right? Yes, there's this predator-repelling toxin. And part of the firefly flash... Gee whiz. I know, it's really tough.
+
+[00:31:07] Just hadn't had a run up at that. Part of the firefly flashing is to attract a mate, but a part of it is also to say to predators, I am toxic. And they have this... It's Lucy Bufegin toxin. Why can I say that first time? Don't know.
+
+[00:31:23] But the females, the sort of fan-fatal females, they can't make their own version of that toxin. have to eat the males, and they gather a harvest it from the corpses of the males they devour. And I just think that's pretty, pretty cool. It's cool. If you order a hamburger that I wanted, it's like me eating you to get it. Yes. Yes. But these poor males are trying desperately to find females of their own species. And they know it's a risk as well. And sometimes it takes them a week to find an actual female of their own species. They're just constantly dodging, you know, predator fireflies.
+
+[00:31:56] False flags. Oh, can I just ask a quick, sorry to cut you off, but Andy, well, you've just raised a good point, which is to eat Andy if he's had the hamburger, right? We were coming into New Zealand and you obviously aren't allowed to bring in fruit, right? So I had a banana just before we came in, right? So I ate it on the plane and I got off. And the sniffer dogs went past us and I just thought, why can't it smell it in me? Why can't?
+
+[00:32:21] Like, it's still quite fresh. You're a messy eating, but you didn't rub it all over your... Or if you wanted to sneak something into the country, if you could get the stomach of a person, it seems like you could put it in there. Yeah. Yeah, what's a good idea. I think you need to put...
+
+[00:32:38] Smuggling. Oh, yeah, and a bottom might be even better. Oh, my God. You've blown this shit wide open? No, I'm not sure you have. We should say the ones, the fireflies, that are visited by all these tourists, and for whom the lottery has run,
+
+[00:32:56] That is just flirting, the flashing. But it was quite confusing at first, I think, because it's not usual. The vast majority of firefly species just flash as individuals, and these ones flash in unison. And it starts off, like, one will do a flash, and then another will pick up on it, and it starts off looking quite random,
+
+[00:33:12] and gradually as more and more do it, they manage to tune, like an orchestra, and do it all together. But the reason they're doing it in unison is because it's all males doing that flashing. The females flash back, but it's very dim, you can't really see it if you're a human. It's all males.
+
+[00:33:26] during the flashing, and it tells the female that that is the right species, because if there's any other species flashing, then it'll not be flashing in time. But it's quite a shit show for the males, because I think the ratio is about 100 to one off on males to females. So, even so, if you're the male, you're just accepting as you flash in unison, it's like, we have to work together on this, even though probably I'm not going to be the one who gets it. Isn't that sad? In a way, it's also a kind of lottery, isn't it? Oh my God. Yeah. There's a lottery. to see the Firefly lottery. Wow. How deep does this go?
+
+[00:34:01] Yeah. Well, the females, they can have dialogues with ten males at once. If they're, some species chat back and forth with the flashing. Oh, with the flashing, right? Yeah, yeah. Only the slas. They mate with only one they pick, they sort of winnow down from it. It's a bit Love Island, actually.
+
+[00:34:17] They start with ten males who they're chatting to, and then they end up. But are they sending them the same message? Is it kind of like when you go onto a chat bot thing, and you think you're flirting, and then you realize it's automated answers. So this is an insurance website. No, I've never seen Godzilla. One thing about the flashing, it's kind of like, I guess it's like dancing because it's in rhythm, isn't it? But if you get two fireflies next to each other, and they're from the same species,
+
+[00:34:51] and they're supposed to be able to do it in rhythm, they can't. They just get all over the place. three, they still can't. And if you get 10, they still can't. And it takes about 20 of them to get together and suddenly they all start doing it in rhythm together. That's really interesting. That is true of dancing, isn't it? You know, if there's just two of you on a dance floor, it's incredibly awkward. Yeah, yeah. As soon as there's 20, it feels like it. We are the same. There's a scary thing, which is that their population is declining globally. And one of the main reasons is, let's say there's a group of fireflies that are in an area and then that gets
+
+[00:35:22] urbanized and it gets concreted over it, they don't then fly and find another place. They just disappear. The species just dies. It has this thing in it where it just goes, all right, that's us done. We can't move over there. So that's really sad as we continue to urbanize. But also, we kind of don't know how many fireflies there are necessarily because a lot of them hang out in the day, so we can't see them. And don't glow, right? They don't glow. So they use pheromones instead of their glow. There could be a million in here right now. Yeah. We wouldn't know. We would because it's quite dark, but it's, yeah. Another reason why they're endangered is that we used to farm them.
+
+[00:36:00] Not farm them, as collect them. So there's a company called the Sigma Chemical Company that harvested about 3 million of fireflies every year. And they were trying to get this luciferase, which Dan was talking about, because you can use it in food safety testing and research. Oh, cool. Well, they have come in very useful to science generally.
+
+[00:36:21] they are particularly useful in energy efficiency. So I think they let out the most efficient light we know of. It's the most efficient light in the world, in the universe that we're aware of. Because when they let off their light, almost no heat is emitted. So almost 100% of the energy is emitted as light. Wait, do you mean they're like LED? As in they're not hot? Yeah.
+
+[00:36:43] Yeah, exactly. Exactly. But LED is a bit hot. They are not hot. But they made LEDs better. So there's a so cool thing, where there was a physicist who, Jean-Paul Vinerant, who went, he was Belgian,
+
+[00:36:55] and he went on a trip to Central America in, I think, about 2012, and he saw a bunch of fireflies glowing, and he thought, I wonder how they do that. And this is a science brain. He took some, he brought them back to his lab, and he looked inside them, and he saw that the way they were making their light
+
+[00:37:10] so efficiently was that they had these, like, really jagged, irregular scales on their abdomen, and that meant that the light was shining really efficiently, so that meant that you could get the maximum amount of light coming out for a minimum amount of energy, and that's how LED lights are designed now. And he increased the energy efficiency by 50%. You're joking. Wow.
+
+[00:37:28] That is insane. I know. It's good old fireflies. Could we ethically replace LEDs with them somehow? Like, picture your Christmas tree, right? If we had like some kind of pheromone, that meant they were happy hanging out by the tree, and you had flying LED lights around your entire tree. Is that possible?
+
+[00:37:47] I think the audience doesn't like the sound of it. I think it's less convenient. I do. They have to be, if your lights had to be in the mood to be on, probably,
+
+[00:37:58] you might have a few dark Christmases, you know. Can I tell you one more thing about the, the dangerous lady fireflies, the ones who eat the males?
+
+[00:38:07] Them fatals, yeah. So not only do they eat males of a different genus, they will sometimes eat males of their own genus if they're merely hungry. Fair. Some of them will break off
+
+[00:38:18] mid-sex to eat their partner, Mid? Wait, that can't be mid-sex. That's just the end of sex. It's just... Fair point. It's an unexpectedly abrupt ending of sex. But the poor...
+
+[00:38:35] Oh, this is the end, is it? There's the end. I've got more in the tank. I've got more moves. Some males in this genus, the prey genus of fireflies, they have special arms on either side of their penis that remain outside the female for copulation.
+
+[00:38:59] And some scientists believe this might be an incoming cannibalism alert system. And if the female starts wriggling around because she's started to feel a bit peckish, the male is notified that this is a risk and it gets a sort of early warning. Amazing. And the arms, what, hold on to her or what?
+
+[00:39:17] I think they just stick out at the base, if you like. Maybe they tap her on the shoulder from behind to distract a bit. And then they're off. Shit. I was mid-sex. It is now time for our final fact of the show,
+
+[00:39:43] and that is Jennings. Okay, my fact this week is that the scientific paper detection of Noda virus in Baramundi was co-authored by. by Dr. Barry Monday. I feel like that's shut down the show. That's the greatest fact that. It's incredible.
+
+[00:40:02] It is amazing. So I found out that this guy called Dr. Barry Monday worked in Tasmanian fisheries, and I know that he'd done some studies. So I went through a list of all of the studies that he'd done in the hope and the dream that one of them was about Barramundi, and sure enough, he did do this one,
+
+[00:40:20] very obscure one. It's incredible. He passed away a few years ago. Yeah, 2003. Yeah, 2003. And I found this really beautiful obituary of his entire career online. And it's so detailed. They do not say he wrote a paper on a fucking Barry Lundy.
+
+[00:40:37] It's unbelievable. He was really important. Do you have any idea if he, sorry, I do want to know about the important things he did, but mostly I want to know if he wrote this paper because his name is Barry Mullen. I don't think so. Genuinely don't think so. He must in his head, I'm sure. Do you reckon?
+
+[00:40:51] Surely. I don't know. I reckon. there's a lot of this about actually because I basically Googled every fish name I could think of to see if there are other people like this. There's a guy called Stephen Haddock
+
+[00:41:02] who's working on deep sea gelatinous zooplankton. John Salmon was a fish spotter in the 1980s. He would fly over in his plane and go there's one. Really? No, he wouldn't say there's like
+
+[00:41:18] there's a school of fish and then he would give the coordinates and people would be able to go and catch them if they want. Do you know, so weirdly, I thought when he said fish spotty meant someone who puts spots on fish, and I don't know why they would do that, but that's what I thought.
+
+[00:41:31] Courtney Pike was the angling correspondent for the Suffolk Gazette. That's brilliant. Jack Trout was the person who read the fishing report show from San Francisco's KNBR 680. Jesus where, James. Frank E.
+
+[00:41:47] What? Is everyone still here? What? Frank E. Fish. wrote lots of papers all about fish, especially the biomechanics of maneuverability and jet propulsion in fish. Wow.
+
+[00:42:00] That took you most of 2024. We know it. Courtney Trout? Oh, no, Courtney Pike. Oh, sorry, Courtney Pike. Yeah. The question that an angling correspondent would ask. It's brilliant that, isn't it?
+
+[00:42:13] What do you mean? Courtney Pike. Courtney Pike? Courtney Pike. Beautiful. Amazing. Beautiful. Barramundi, the fish itself.
+
+[00:42:22] Oh, yeah. Hugely popular. In Australia, it's massively popular. They're obsessed with it. They're obsessed with it. But one of the issues is that they're discovering that a lot of Barramundi is being imported that aren't Barramundi. It's almost like they're a fake cosplaying fish.
+
+[00:42:38] Not the fish aren't doing it. It's the humans that are selling it. But there are rules in Australia that mean that the food service is under no obligation to label whether or not it is a local or imported fish. So people don't know the better. They're being misled. And so this is a big problem, according to the head of the Northern Territory seafood council, who's called Rob Fish. So, brilliant.
+
+[00:43:00] Are we going to do a full 15 minutes of these? Oh, please, no. Do you know one of the main fish that scandalously is being disguised as Baramundi is from New Zealand? It's a New Zealand groper. Why do you have a fish called a groper? I imagine it's from the same origin as Gruper, which is the normal fish we have in the Northern Hemisphere. But, yes, a New Zealand groper. No, it was...
+
+[00:43:22] You see the Gropa has tiny arms on its penis, doesn't it? It's actually... Do you guys know, do you eat Gropa a lot? Not many. But it's really popular, and it was very popular in Maori culture. And in Maori, is called hapuka. But I think hapuka, the word means that... It means to stuff your face with food, because it's so popular.
+
+[00:43:46] That's cool. Paramundi, a couple more things about them. They can eat food up to 60% of... of their own length, which is the equivalent of me eating a four-foot-long sausage. So that's food-a-thought, isn't it? Wow. Yeah. What's the longest sausage you've ever eaten?
+
+[00:44:01] I did go. There's a restaurant in Viennichaeled centimeter where you order your food by the length. Really? Yeah. And we ordered the special, which is a wheelbarrow full of sausages. Wow. It's unbelievable. They bring this wheelbarrow.
+
+[00:44:13] It's a small barrow, but you don't realize how big a small wheelbarrow is because you know what I mean? Yeah, yeah, yeah. And it's big. It's big. So I probably got through a, no, I don't know if I got through a metre of sausages then. No, I can't have done. I think you could easily a four-foot sausage. In one go?
+
+[00:44:29] One go? Well, you can chew it. You're allowed to chew. You're allowed to chew, but you can't. I mean, that is just going to get clips out of that sentence. Didn't even cross my mind. No, four-foot of sausage. Come on, even a Cumberland's only about eight.
+
+[00:44:47] If it's very thin, easy. It's not thin, it's a sausage. No. You can't just turn it into a pepper army and wolf it. I'm talking a thick old Cumberland. Please, guys, we aren't talking about sausages. There's no sight to this. We need to stop. So four foot, that's the length that you think.
+
+[00:45:08] No, because I read varying accounts of what the largest barramundi that's ever been quarters. And one went as far as saying it was five foot ten. And that's massive. I can't believe that's true. That's if you want to picture that side. that's the same height as Neil Finn. That's how big, a 5 foot 9, 5 foot 10. Who's that, sorry?
+
+[00:45:30] So, okay, it's a New Zealand that I thought you'd literally just Google everyone who was that height and gone, oh, they've got a funny fish-sounding name. Neil Finn is, there's a very famous Australian band called... There's an incredibly famous New Zealand band called Split Ends, which became crowded house, Neil Finn is the... I thought it's crowded house.
+
+[00:45:53] But Dan would have said Neil Finn because of the word Finn. Exactly. Well, I'll tell you my working. I found out it was 5 foot 10 and I sat at a computer and went, please tell me Neil Finn is 5'10. And he is? That's the way to do it, James.
+
+[00:46:06] That's how you save time. That's how you know. Just play is right. You assume and let other things confide there. No, they are very cool, though. They sometimes eat baby crocodiles, Barry Monday. I mean, they're really...
+
+[00:46:17] Yeah, they'll eat tennie old stuff. They're like. They have a relation called the Antarctic tooth fish, and they eat lots of rocks. And we're not really sure why they do it, but it seems like the reason they do it is because they just want to eat everything and the rocks get in the way. Really? Yeah, that's pretty good. So it's not a neat thing. No, it doesn't seem that way.
+
+[00:46:37] It seems like it's just useful for them because it's so rare for them to get food, just that if they see anything, they just go for it. Right. It's like when you get really greedy people and you look at their finished meal and all the cutleries gone and everything. It's amazing. They do this extraordinary thing as well, Barramundi, which is the males. They will start off as male, and then there's a first wave in their life cycle of mating that goes on, and they'll go around impregnating as many female Barramundi as possible. And then once that's done, and they grow a bit bigger, they then turn into female themselves.
+
+[00:47:11] And the reason they do that is partially because they can store more eggs inside of them to give birth more. So it's the equivalent of like, if you picture like NFL, it's like being a quarterback, throwing the ball, and then running up and catching it yourself because they're impregnating, and then they're becoming the ones that are being impressed. It's an extraordinary thing. Although what I find quite sad is that scientists think
+
+[00:47:32] that they can't transform into the female until they've done their first kind of copulation, which fair enough is just releasing sperm, but it does make you think, like what if you couldn't do it? You know, and you're like a 59-year-old Baramundi who's still male and all the other ones, age three, have changed. I just think that's embarrassing. I'm sad.
+
+[00:47:53] Have you not seen that film, the 40-year-old Barramundi? It's good. And it's actually a lot more interesting than you think it is. Just on Australian Fishers, there's one called Plecto-Rinches Cariolynthus, but it's better known as the Blue Bastard.
+
+[00:48:11] Oh, yeah. Can you guess how it gets its name, The Blue Bastard? From the poetic minds of the Australian. Australian people. It's whenever you hook it. It must be blue.
+
+[00:48:22] It must be blue. It's blue. That's half of it. Is it a bastard to catch? That's the other half. We are, this fact was about nominative determinism, right? So Barry Mundy is doing a thing that his name is associated to. And I found a few New Zealand examples of that.
+
+[00:48:45] So there is a composer who wrote a Romeo and Juliet opera who is called Peter van de Flute, which is very sweet. That's just a very sweet name. There's an activist who's quite a famous actress who's been being, she's getting arrested for all her climate change protests, and that's Lucy Lawless, Zina Warrior Princess. Lawless, she's constantly getting taken to police stations for what she's doing. But I was sitting in a room today in New Zealand
+
+[00:49:17] and a guy randomly overheard me talking about this called Wade and he came over and he said, my grandfather is an example of nomative determinism. Can I tell you it? So his grandfather was the first person in New Zealand to artificially inseminate a bee. They've been trying for years and years and years, hadn't they?
+
+[00:49:42] We just can't find anyone with a small enough penis. We will keep looking. Is this guessable, or is it... Oh, he's called Richard Beebe. Like, that's his name, and he did it on a kitchen table in Balcluther. Dick, wait. That's a very...
+
+[00:50:00] That's a bit racy, isn't it? Many would have started in bed. Sometimes someone takes you. It's called Dick Beebe. Come on, mate. Oh my goodness. So yeah. The only thing I have, because what I like about this original fact is that it's a double nominative determinism,
+
+[00:50:21] it's a Barry Monday, twice as unlikely. And I think my favorite example of that is probably the world's leading expert in Pete Boggs was called Pete Glob. We got a couple in the fish inbox, if you don't mind me sharing. This was sent in by Pruma Kutcher, and she had a dentist called Jinta Gum Bite. Brilliant. Pretty good. Peter Drake sent in the fact that John Ram's bottom
+
+[00:50:48] invented a new kind of high-speed piston. It's brilliant. Okay, we need to get out of here. That is it. That is all of our facts. Thank you so much for listening. Auckland, you were awesome.
+
+[00:51:11] That was amazing. We will be back. We'll see you then. Goodbye.

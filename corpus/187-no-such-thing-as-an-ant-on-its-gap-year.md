@@ -1,0 +1,245 @@
+# No Such Thing As A Fish - 187: No Such Thing As An Ant On Its Gap Year
+
+- Episode date: October 20, 2017
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/187-no-such-thing-as-an-ant-on-its-gap-year
+- Slug: 187-no-such-thing-as-an-ant-on-its-gap-year
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of Most Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Andrew Hunter Murray and I am sitting here with James Harkin, Anna Tijinski and Alex Bell and once again we have gathered around these microphones to tell you our four favourite facts from the last seven days. So in no particular order, here we go, starting with fact number one and this week that is James. Okay, my fact this week is that when a prince in the Byzantine Empire was ready to marry,
+
+[00:00:47] court officials would walk around the land with an imperial shoe that they used to check the foot size of potential princesses. That is amazing. It's amazing, isn't it? I mean, I can't really believe that. No, it sounds very much like a fairy tale. Yeah, it does. Like, it's no white or something.
+
+[00:01:05] Yeah, yeah, yeah, Jack and the Beanstalkers. So, does everyone do you think know what the Byzantine Empire was? I did not until I started researching this fact. So it is otherwise known as the Eastern Roman Empire and the Roman Empire kind of split into two towards the end and they had the Western side and the Eastern side. So this was around Turkey and around the Balkans as they are today. Yes. In fact, they never called themselves Byzantines, did they?
+
+[00:01:30] Or Byzantines. They always called themselves Romans. So apparently what would happen is when the prince wanted to marry, court officials would go around not just with this shoe, but also with a painting of a perfect or ideal match that they should look like and they try and find the perfect woman for him. This is like a manual tinder then. I suppose so. What if you're a terrible artist, for instance, and you're not very good at faces, for instance?
+
+[00:01:54] We have the same problem with tinder. You've got people with the Instagram filters that completely distort, you know. It's so nice having a young person here. I must say. I'm the only single person around this table, aren't I? And I read this in the OUP blog, so it's Oxford University Press blog. There was a whole thing about amazing facts about Byzantine Empire. It is.
+
+[00:02:13] I'd never heard of this. There are wife shows, weren't they? And they would, you know, put these women on display. So it sounds like they would choose sometimes a sort of a line-up of women. So the mother of the prince would dispatch, you know, some emissaries to go around the empire measuring up these women and then pick the favourite 13 and then bring them back. And then there'd be sort of a bride show where they'd all, you know, dance. They'd all be behind a podium and then they could press their buttons to take themselves
+
+[00:02:40] out of the game. Exactly. I'm trying in a very laboured way to describe the show Take Me Out, which I've never seen. And I, I'll be honest, I'm flailing. I'd say it's more like an episode of The Bachelor. So the emperor Theophilus had the golden apple, which he would then give to the winning bride. It's, I mean, it's literally The Bachelor. We're talking about shows that I've never heard of.
+
+[00:02:58] How similar was it to Blind Date? Quite similar. Was it? Yeah. Except the man behind the screen has the power to kill you if he doesn't like you. Okay. There's another thing about Byzantine wife finding for royalty. This is from a book called A Cabinet of Byzantine Curiosities.
+
+[00:03:15] And the finalists, who were the potential brides selected for the emperor, they were sometimes examined nude in the bath by the prince's mum. Ah, so that's a bit like that at the show, where, what's it, what's it called? Where everyone's naked and you, oh. Naked attraction. Yeah. Yeah. Yes.
+
+[00:03:33] It is like that. All Channel 4 formats are taken from the Byzantine empire. I think that was Theophano, wasn't it? I think it was just one mother who was particularly keen on getting the right woman who. So embarrassing. I know. She put the final three in the bath and then she draped a golden robe around the one whose body presumably she thought was the most beautiful.
+
+[00:03:52] Wait a minute. Wasn't there another show where someone went on a date and their parents were watching the date and they got to choose who had the date? I think that, I think there's a BBC3 format based on that. That's called some sex and suspicious parents. No, that's a slightly different one. I don't care if I don't watch these, I just work in television. That's the one where the parents go on holiday, secretly observe their children being raucous
+
+[00:04:14] abroad and then they confront them at the end. I kind of thought we'd be talking about a great historic civilisation, an empire in this podcast. We are Channel 4. But that would be so fitting because it was always the mum, right? The son had no choice in it, it seemed like it was always the mother who'd go out and select the... She was very much the executive producer of these marriages.
+
+[00:04:37] I looked into whether Byzantium was Byzantine, whether the word Byzantine is, because it's complicated by Byzantine, that's what it means and it was an especially complicated place. It was quite complicated, but only compared with Western Europe at the time, where you just had a load of feudal lords and things. There were a load of behavioural codes about where you could sit at Royal Banquets and what you could talk about and who you could talk to, but actually compared with modern, for example, derivatives companies, then it's actually quite simple.
+
+[00:05:08] It's complicated as also the Facebook stages of most of the royal marriages, given that my stepmother picked her out of the bar for me. I read that Byzantine in the way that we use it in common parlance has negative connotations, obviously, and that that was partly because the empire was portrayed not only as complicated but as quite secretive and lots of lascivious stuff was going on. And so one example of this was they were into quite a lot of sexual things that the West didn't appreciate. And one of these things was recorded by a historian who wrote a very famous book at
+
+[00:05:38] a time called The Secret History, and it was about Emperor Justinian's wife Theodora, who used to dance around naked in this huge atrium in front of lots of people in this theatre. And she'd just have a ribbon around her waist because it was actually legal to be fully naked, ribbon around her waist. And then she would lie on the ground and have slaves drop grain on her torso and other parts from above. And then she'd have a herd of geese fly in and peck the grain of her nude body.
+
+[00:06:06] Wow. It would be a skein of geese if it was flying in. Sorry. Thanks for the free lander that walked over. They'd become a gaggle. They'd become a gaggle. Yeah. I really think you're focusing on the wrong aspects of the story here, guys.
+
+[00:06:19] You were a massive killjoy in a strip club, weren't you? So the geese are pecking at her bits, are they? I believe so, yeah. There's some question mark over how true this account is. I think this guy has sort of fallen out with her and Justinian at this point. You know when you go to St James's Park and you want to feed the geese? And you throw bits of like bread there, not bread because they don't like bread, but you throw stuff at them.
+
+[00:06:40] And then always the pigeons come in and eat it, don't they? She reckoned she was late, though. The pigeons just kept nibbling at her bits instead. He doesn't record that, but it can only have been the case. Is that sexy? Having pigeons for anyone? No, even the geese, I would say. Geese are very aggressive.
+
+[00:07:00] I would have thought it would be very unpleasant. A swan would be bad. Yeah. Oh my god. Break your arm with his wing. What's your arm doing down there? Here's the thing about Byzantine Empire. It was around the same time as the Norman conquest it was happening.
+
+[00:07:17] And when the Norman conquest happened, a load of Anglo-Saxons from Britain became refugees and left Britain. And they travelled down into Europe and they got to the Byzantine Empire where they kind of became citizens. And they lived around the Black Sea around Crimea, which it is today. And apparently they called it New England. Really? So that's where the first New England was.
+
+[00:07:42] Yeah. That's so cool. That is amazing. It's interesting, isn't it? Imagining basically the British becoming refugees and kind of going down to live in Crimea given all the modern day things happening. Wow, and it would have been a much more progressive place then than old Anglo-Saxon just conquered England, which was a nightmare.
+
+[00:08:01] I've got a couple of facts about matchmaking. Yeah. So in 1924, there was a magazine called Science and Invention and it said that to match a couple up properly, one test that you should conduct was firing a gun in the air behind them when neither of them knew about it. And it's to test whether they're calm under pressure because apparently in every couple you want someone who can remain calm under pressure. And if they both react nervously, then they shouldn't get married.
+
+[00:08:28] That's interesting. I thought it would be that they were like, oh, we're all going to die. And then they kind of jump into each other's arms kind of thing. Yeah, to see who jumps in front of them like in friends when Joey jumps in front of a sandwich when a car backfires. Yes. Yes. I would have thought it's quite good survival instinct to try and jump out of the way if
+
+[00:08:46] you hear a gun being fired, though. And I would say you don't want two people in a couple who just stand there and let the bullet penetrate their bodies. That's true. Sorry, it's how they react to an extreme loud noise really close by. It's not, you don't have to fire a gun at anyone for this demonstration to work. How many died in this experiment? This would be another great channel format for us.
+
+[00:09:07] I have one fact about Cinderella's glass slippers, which was that in 2015, a scientific study was published in the Journal of Physics Special Topics, which worked out how practical the slippers would have been. And it, based on a weight of 55 kilograms of Cinderella and a size four foot, she only would have been able to wear the slippers if she stood completely still, because if she tried to run away from the prints in them, they would have immediately shattered. But that's why they fell off when she ran away. And that's why...
+
+[00:09:34] Oh, right. They thought of that in the story. But actually... She wouldn't have been able to walk anyway, she would have to stand exactly still. The only way it would have worked is if the heels were 1.15 centimetres tall, which is not very high. There's a Italian version of Cinderella from the 19th century. Well, it's from earlier than that, but it was first recorded in a book about Cinderella
+
+[00:09:53] stories from the 1890s. And that version has Cinderella being born inside a squash, like a butternut squash. So her mother gives birth to her, but she thinks she's just given birth to a squash. And so she abandons her in the woods. And then the prince walks by, and by that time, Cinderella inside the squash has learned to talk. So the prince walks past and says, oh, it's with, it's a talking pumpkin. And so then he takes it home with him.
+
+[00:10:18] And... I would argue this is a different story, like there's no detail so far that correlates Well, there's the pumpkin thing. And then eventually she breaks out of the squash and accesses his servant. And then she goes to a ball he's holding dressed up as a princess, and he falls in love with her and they get married. And it's called, the story is called Zucatina, as in Zucchini, which is, you know, related, presumably.
+
+[00:10:42] Which one's Zucchini again? Courgette. Also, is she in a courgette? No, it says she's in a butternut squash, but I guess they're all related, aren't they? Same family, yeah. Same family. Some sort of legume. OK, it's time for fact number two, and that is Anna.
+
+[00:11:02] Yes, my fact this week is that China has built an exact replica of an Austrian village so that tourists don't have to fly all the way to Austria. So this is the, based on the town of Halstadt in Austria, and I think it's the oldest village or the oldest town in Austria. It's really beautiful. It's your ideal when you picture an Austrian village. It's kind of just really idyllic. OK.
+
+[00:11:26] I'm just picturing that. Oh. It's nice, isn't it? Yeah, it is. Oh, sorry. I pictured a Swiss one instead. Oh, God. Mind just one of Chinese people.
+
+[00:11:34] I can't get that one. So this development was started in China in 2012 in Boluo County, which is sort of in the factory belt, and basically the bunch of Chinese architects were sent to the real town of Halstadt in Cognito, and they went round it and they took lots of notes and they did lots of sketches on what it looked like, or took some pictures like those. In Cognito, as if they're like, don't steal our town. Like, why? They could have just gone and visited.
+
+[00:11:59] No one's going to care. Well, they might raise suspicions. Then they went back to China, and they started copying it at a very high speed, and it was built within about a year, and the mayor of the original town found out about halfway through and said he was a bit annoyed at first. He said they should have told us, but he's actually really impressed with the town. He says it is exactly the same, and he went to the official welcoming ceremony there and everything.
+
+[00:12:22] So happily ever after. That's good. Yeah. Another fairy tale. Yeah. They twinned the town. That would be nice. They are twinned, yes.
+
+[00:12:30] Yes. Good. Why did they do this? Because. To save tourists from travelling. Well, I suppose China is quite interested in Western culture, and so they have quite a lot of replicas of other Western buildings, or, you know, Western, like, enclave. Whole other towns.
+
+[00:12:43] They've got a replica of Paris. They've got a replica of a Swedish town, but the idea is that people can live there as well. You can move in. So there are lots of people living in this Austrian town. Yeah. And that's quite successful. And there's a.
+
+[00:12:53] What, the people? There's a. It's not very nice. Well, I guess. But, like, the one, the massive one of Paris that they built is basically a ghost town now, because it didn't work out, where this Austrian was pretty successful, I think, and people actually, like, living there. And it's like a big gated community.
+
+[00:13:06] Some people lived there, yeah. Although it's mainly touristy. But the Paris one, I thought they, yeah, they didn't quite finish, did they? Although they did build a huge Eiffel Tower, which is the main bit. I just think if you're going to build a new town, like, we do that in the UK sometimes, why not build it that looks like, you know, New Orleans or something? Why not? Yeah, it's pretty cool.
+
+[00:13:23] Might as well. Yeah. They're tried and tested, aren't they? Yeah, exactly. And it's worked for Hausstadt. This is probably one of the reasons why the mayor's okay with it, because visitors to the real Hausstadt, since the town was built, have gone from 50 to 1,000 per year from China. I seem to be the only one who's not completely cool with this wholesale town plagiarism that's
+
+[00:13:40] going on. What? Why not? Because, you know, things should be where they are and nowhere else. They haven't removed the town from Austria. Do you think maybe we should knock down Blackpool Tower, because that was just a copy of the Eiffel Tower? Oh, well, James, I had not had that brought to my attention before, and yes, I do.
+
+[00:13:58] I think future archaeologists are going to be extremely confused when they come across, you know, the real Paris and then the fake Paris, and they're going to say, well, this seems to be the main civilization, because all of the stuff was here, and then that's spread out around the world. I get worried about that, actually, because you know how now, obviously, we fetishize antique stuff and historical stuff, and we build houses in old style, and we have antique furniture, and I worry about archaeologists a couple of thousand years in the future about confusing them, you know, going, wait, I thought this house was from the 21st century, but
+
+[00:14:25] there's a 16th century chair in it, and they won't know what to do. Exactly. Anyway. But this is a kind of thing which is not unique to Chinese culture, but it is more prevalent there. So there was a study which found that of the articles submitted to the Science Journal at Xie Jiang University, 30% of them were plagiarized, either partly or wholly, and that's quite a high proportion.
+
+[00:14:48] Yeah. And various people theorized that it's about the way you learn Chinese characters, you have to learn through copying a repetition, and it's seen completely differently there. It's not seen as plagiarism to the same extent. Yeah, I read that, apparently, lots of theorists think that it's, as you say, because of the Chinese characters, and it's because it's so difficult to learn so many that there's not enough creative space left over in Chinese brains for creativity, which seems like the most absurd reasoning you've ever heard.
+
+[00:15:15] First of all, they invented almost everything we had up until about the 16th century, didn't they? Yeah. And then we copied it. And then we copied it. Yeah. Paper. You shouldn't be allowed to use a wheelbarrow, because it was invented by the Chinese.
+
+[00:15:29] That's really awkward, because you're sort of now claiming that as their landmark invention, which is sort of insulting to some of the other things they did invent. Do you know what? I think I could get by the rest of my life never using a wheelbarrow. This podcast has taken a distinctly Brexity flavor. I didn't mean to. But yeah, they do. And it's kind of a form of flattery in a way, isn't it?
+
+[00:15:50] So it's that interest in designs over the rest of the world. I think it's the imitation of the highest form of flattery. That's the difference between wearing similar clothes to someone and then getting plastic surgery until your face looks exactly like them. I'd be flattered. Feel free, Alex. But massively wasted out. Have you heard about the replica Noah's Ark?
+
+[00:16:06] No. No. So this was built in America in, oh, when was it finished? It was finished a few years ago, but this decade. And lots of people keep building replica Noah's Ark, but this one is massive. It's in Kentucky, and it cost $120 million to build. It's built by this Bible group called Answers in Genesis, so I think they're an online church. It took 700 workers.
+
+[00:16:30] It's as long as an American football field, it's massive. How long is that? 100 yards. 100 yards. And it was built by a man called Ken Ham. Ken Ham was one of Noah's sons. Yeah. Yeah.
+
+[00:16:43] Also the first chimpanzee in space. Yeah. I don't know which he was named after, if either, but they've got this massive plan, and no one knows what Noah's Ark looked like either, but they've insisted it's a replica. We have in the Bible, it says how big it is, doesn't it? It says the number of cubits by the number of cubits. Okay. But yeah.
+
+[00:17:02] An Irving Finkel did that study, didn't he? So he's a curator at the British Museum, and he did that study that decided it was spherical. He thinks it's a coracle. Yeah. And his design is based on Babylonian tablets, so not on the Hebrew Bible. Yeah. For clearly, one's more massively reliable there. He's working on another thing, Mr. Ham.
+
+[00:17:21] Oh yeah. He's now working with his partners on a 10-year plan to build a biblical walled city in Kentucky, which is also going to feature a 10 plagues of Egypt ride. Wow. That sounds good. But then did they kill your first bot at the end? That's the bit where the camera goes off. There's another replica boat in the news at the moment, actually, which is a replica
+
+[00:17:47] of the boat that James Cook used to sail to Australia. So that's the Endeavour, but that is moving to Whitby. So it's been in Stockton on tees, and it's just been bought by someone for £110,000, and it's going to cost them £250,000 to move it 39 miles up the road. I was going to say, it's not far from Whitby to Stockton. No, it's not. It's certainly not Britain to Australia. But I think it's the land bit that's the problem.
+
+[00:18:12] I mean, if you could sail there. Oh, is it going over land? It has to go over land a bit. I think that's the difficulty. It's oddly expensive to move boats across the land for some reason. Well, they're not going to get to Australia like that. No, no, they will come across water at some point. Are they going to resail it to Australia?
+
+[00:18:26] No, he's just going to literally move it to Whitby and keep it as a tourist attraction there. And I wonder if he was told after he'd made the initial purchase that it was going to cost another £250,000 to move it from where it is. On other sort of replica model villages that aren't quite real places, in Gravesend, there's a whole town that's fake and it's used by police to simulate pretty much any manner of crime. So it's got like financial fraud.
+
+[00:18:50] Can they do that? So for fighting riots, for burglaries, bank robberies, host situations, terrorist attacks. So hang on. Is this the most terrifying place to accidentally get lost in one year or two? Well, it's deserted most of the time, but then it'll suddenly be populated by about 300 members of the Met Police. Wow. So they must have some stuff there, right?
+
+[00:19:09] Because people are working there all the time. So they must have like a microwave and probably a TV and some safes and stuff like that. You could just go and nick all that stuff. And then when they arrest you, you say, oh, no, no, I'm part of the team. I'm part of the team. I just think the response would be incredible because you're literally in their training ground and you've got like 400 policemen, really eager to press their senior officers and prove themselves.
+
+[00:19:31] Actually, I've never really felt like committing crimes, but I do kind of feel like going there and trying to steal something. And apparently the one thing you want to steal is a microwave, setting your sights high, aren't you? Lock up your microwaves, Graves, then. Paul Costa, James Harkin, would taste it 80 times today, honestly, a single microwave. He was about clutching a microwave and a steak bake. Okay, it's time for fact number three, and that is my fact.
+
+[00:20:08] My fact is that ants have self-control. So ants are able to defer gratification and put in more effort to get a bigger treat later on than a smaller treat now. You offer it one small dollop of sugar, let's say 60 centimetres from its nest, and then you put a bigger dollop of sugar 120 centimetres away, and then you show the ant the one that's 120 centimetres away. It will walk out of its nest and ignore the smaller dollop and go the further distance to get the big one.
+
+[00:20:40] Why doesn't it get both? Yeah. Well, I don't know. I think maybe they stop it from going back for the smaller one later on. And they explain that to it before it starts, right? They say, you better choose now, Mr. Ant. They show it to the larger part. They give a little tour of the environment before it starts.
+
+[00:20:58] Yeah, but twice as many ants deferred gratification and went to the big one than didn't. And they tested it later on to make sure the ants weren't just picking something they already knew about. They made the rewards the same size in the experiment, and in that case, 83% chose the one that was actually closer. Really? So given equal amounts of food, they'll pick the closer one. But anyway, I think this is a pretty amazing fact.
+
+[00:21:18] It's really cool. It's incredible. Because they did a similar thing with ravens who can understand the explaining stage. Can't they? They really can't. They can't understand English. According to science, ravens are so clever. They can understand anything.
+
+[00:21:32] I think they all understand the explaining stage. That's why the experiment yields the results it does. Yes. Yeah, yeah, they do. They may not understand the briefing document. But yeah, they obviously train them to know that they won't get the smaller bit of food if they go and eat the bigger bit of food. And when they did it to ravens, they gave ravens a treat that was inside a box.
+
+[00:21:53] So they'd show them putting the treat inside a box, and it's a puzzle box, like one of those Japanese puzzle boxes. And then the ravens worked out how to open the box using a specific tool that they used to open it. And then the scientists offered them either a piece of food that had been smaller than the piece of food that was inside the box or the tool needed to open the box without showing them the box. And the ravens almost all the time chose the tool and went to open the box with one caveat.
+
+[00:22:19] So the study said that one raven had to be excluded as it worked out ways to open the puzzle box without the tool, modifying bits of bark instead, so they were able to get it back. So this is like deal or no deal? It is! Except the box just has cake in it. Do you want to open the box and it's got a bit of sausage or something? It's true.
+
+[00:22:36] But then that is kind of delayed gratification, isn't it? Because if you know there's a possible big prize you might get in the future, have we tried deal or no deal with ants? I don't think we have, no. Well. You would watch a version of deal or no deal where every box had different bits of food in it. Would you have to eat the food at the end though, on the show you'd have to, right?
+
+[00:22:56] When it gets to the end, you have to eat whatever's in the box that you choose to open, and that might be something you're allergic to, but you have to eat it. The worst box is still 1p. Oh yeah! I was reading the study and apparently this is a self-control thing is supposed to be to do with the size of the brain of the animal. So the bigger the brain in relation to its body, the more self-control it has. And so I was like, okay, does that make sense?
+
+[00:23:23] So I went and looked at a list of, there's a really helpful Wikipedia list of brain-to-body ratios of all the creatures in the world. And it got like, so humans have about, like your brain is about the 50th of the size of your body, and like cats and dogs, they have even smaller, so it's like the brain is 100th the size of the body, and the brain is 1 7th of their body, which I just found insane. I imagine if your brain was a whole 7th of your body. That's basically like your whole head, isn't it? No, it's bigger than your head.
+
+[00:23:49] I think it's like your head and your arms. Well, the clever thing that ants do, using their massive brains, is they, when given the chance, will use sponges to soak up liquid food. So this is really clever. Scientists gave them a pot of honey that was kind of mixed up with some water that they'd find really delicious. And then they gave them some tools that they would find in nature, like twigs and pine needles and stuff like that.
+
+[00:24:13] And then they gave them some different tools that they wouldn't find in nature, like paper and little bits of sponge. A allen key. And the ants very quickly learned that the best thing to do, rather than take a twig and go and dip it in the honey and take it back to its mates, would pick the sponge because it realized it was more absorbent and went and dipped that in the honey and then took it back to its mates. That is incredible.
+
+[00:24:36] Yeah, so cool. And then the next experiment, they gave them the choice of three different types of kitchen towel. And they always look for the one, the flash one, because they always know that it's way more absorbent than the other leading brands. Have we talked about Sir John Lubbock and his 19th century ant experiments? I believe not. He wanted to test like ants' friendship.
+
+[00:24:54] So he put this amount in a little environment, which was sort of an ant hill and there was some water nearby and some, you know, little other mounds and things. And first he chloroformed some of the ants. He sort of kidnapped the ants, some ants out of the nest chloroformed them and then abandoned them a short way from the ants for the other ants to find them. So they sort of found their friends. How do you chloroform an ant? How do you get your arm around it from behind?
+
+[00:25:17] Very, very tiny cloth. Then he would observe what the ants did to either ants that were from their own colony or ants from another colony. But then he realized that ants don't recover from a chloroform. So he tried the same thing, but he got ants drunk, which he said was really difficult. He said, I tried the same experiment only instead of chloroform the ants, I made them intoxicated. It was rather more difficult experiment, no ant would voluntarily degrade herself by
+
+[00:25:41] getting drunk. It was not so easy in all cases to hit off the requisite degree of this compulsory intoxication. So anyway, he got these ants drunk. And what he found was that sober ants were trying to pick up and help the drunk ants. Then the sober ants would take them back to the nest. Now if the ant was from the same colony, it would kind of look off to presumably be inside like with a bucket and a towel. And they hold his antenna back.
+
+[00:26:05] This is the creepy bit. This is the creepy bit. If it wasn't from the same colony, the sober ant would bring the drunk back out and just quietly throw it in the water and drown it, which is horrendous. But yeah, isn't that amazing? I thought that ants, for some reason, I thought that ants chewed each other's legs off when they got drunk. I think there might be bees.
+
+[00:26:26] Oh, you're right. Drunk bees will have their legs chewed off by their friends. Really? Yeah. Going out like kind of when I take my mum's car keys away when she's drunk. They were like, oh, it's fine. I can fly. I feel fine.
+
+[00:26:41] I feel fine. It's for your own good. You'll thank me in the morning. So this thing about self-control is related to the really famous experiment of the Marshmallow test. Yes. She was done in the 1960s, across the years of the 1960s, lots of them by the same scientist, whose name was Walter Michel, and he tested children.
+
+[00:27:04] He said, you can have one Marshmallow now, or I'll come back in 15 minutes and you can have a second Marshmallow if you haven't eaten the first one. But if you want to eat the first one, just ring the bell and I'll come back and you can eat it. Some kids just immediately ate the Marshmallow without even ringing the bell, it just won't. Yeah. But basically, he found that children who were able to defer gratification ended up doing better in later life.
+
+[00:27:26] They got in less trouble with the law. They were healthier. They paid more, this kind of thing. See, what I would have done is when he left the room, I would have hollowed out the Marshmallow and eaten the middle. So you get them out on our Marshmallow, but then you leave it on the table so it looks like you don't need it. You are like the child who took an Oreo apart, licked the cream from the inside, and then
+
+[00:27:44] put the Oreo back together. That's what happened in one of the experiments. What happened to him? He is now a president of the United States. But actually, kids are getting better at this, aren't they? There's been some work done this year or quite recently, which found that the children are getting better by about six seconds per year, as in the average of how long people will wait.
+
+[00:28:07] And there was a guy who did this study, it was called John Protsko, and he asked a load of psychologists what they thought and a load of child behavioral experts what they thought. And only 16% thought that children's self-control had improved since the experiments of the 60s, and 52% was sure that children would have been much worse at it, but actually they're better. Because everyone thought like now that everyone is just watching YouTube all the time. So does this mean that the intervals between are we nearly there yet? Are going to get six seconds longer every year?
+
+[00:28:36] The what? Yes, so we are more nearly there than we used to be. Yeah. Sorry. Do you know who's also good at it, this experiment, is Cameroonian children. They found out, I think this was this year in the last couple of years, so they repeated the marshmallow experiment with three to five year olds from Germany and then three to five year olds from Cameroon from the Nassau tribe.
+
+[00:29:00] And they found that, well, 30% of the German kids managed to wait long enough to get the second treat. 70% of the Cameroonian kids did. And they're not entirely sure why, they think it might be because from this particular group of people have stricter parents, and so it makes them used to being patient and waiting for stuff. But yeah, they're really good at it. In that experiment, 10% of the Cameroonian children just fell asleep waiting.
+
+[00:29:24] Yeah. They didn't have to, they didn't bother them at all. And there's another theory about why it might be, maybe you're right, it may be that they've got stricter parents and they're just told to be quiet and be patient more. But also, there's a thing about how much you trust that you're going to get the second marshmallow at the end. Yeah, I was thinking that actually, when you first had the experiment, there were a few things like that.
+
+[00:29:44] For instance, one, you might not be that hungry. You might think, you know what, I only really want one marshmallow and two would be a bit much. So I'm just going to have this one. A good scientist would starve the children beforehand. Yes. Well, what do you mean by good in this respect? Yeah, or you might not like marshmallows on a body at all, so you might wait not because
+
+[00:30:02] you've got self-control. Hey, can I give you something more about ants? Sure. So, scientists have started putting barcodes on ants in order to monitor their behaviour and they just look really cool. So this was said in passing in an experiment as to how ants respond to loneliness, which is a bit sad, actually. They don't like it at all.
+
+[00:30:21] So scientists plucked a few ants out of their colonies and they put them on their own and they fed them and everything, but they still died 10 times sooner than they would have otherwise. 10 times sooner? That's terrible. They hate being on their own. Because they don't live for long anyway, do they? They don't.
+
+[00:30:35] I don't suppose they do. Actually, I don't really know. Some ants, queen ants can live to 20 years, which I thought was quite amazing. That's incredible. It's rubbish. The queen ants are the only ants who can legally drink the alcohol in this experiment analysis. Anyway, to monitor ants, then scientists have started putting these tiny barcode backpacks on them and they glue them on and this means they can just monitor all of their behaviour.
+
+[00:30:58] So now we can really get detailed impressions of ant movement and everything because we've got computers locked onto every barcode. But we're only going to learn about ants that carry backpacks around. Do you think their behaviour might change when you put a backpack on them? Yeah, they'll probably think they're on their gap year. They'll probably just go cleaning their chakras or whatever. We've learned that ants really find themselves. There's an ant expert called Clint Penwick who says he can identify different ants by
+
+[00:31:28] their pheromones just by smelling them. Yeah, he's lying. Well, he did it successfully for his mate. He had an ant infestation and he went and sniffed them and those ants were the ones that smelled like blue cheese. Well, what does he do? He says, oh, that one's Derek and that one's Arthur and that one's... Look, he doesn't know all the individual ants by name.
+
+[00:31:45] Oh, OK. But he does know different types of ants and he says some smell like chocolate, but you have to crush their heads in order to smell it. So that's a bit of a shame. Hello, I've brought my new pet ant. I'm wondering if you can tell me which kind of this place. Yes, of course. Crushed.
+
+[00:32:02] I'm afraid your ant was not one of the ones whose head smells like chocolate when you cross that. OK, it's time for our final fact, and that is Alex. My fact this week is that when filming the famous Hill Scene at the beginning of The Sound of Music, the helicopter downdraft would knock Julie Andrews over after each take. I really want to see this B-roll. That's incredible. And she said this herself, right? Yeah, in some interview in a sort of behind the scenes documentary, or I think it was
+
+[00:32:33] actually a documentary by Sue Perkins that she made about The Sound of Music and the town where it was filmed, because it was filmed in a town in Austria, and it was not a big film there. And most of the people who live there, they know it exists, but they've never seen it and they're kind of a bit baffled by why so many tourists from the... It's actually in Germany as well. It's in Germany. The Hill Scene is filmed in Germany, which I think is a cruel irony given the plotline
+
+[00:32:54] of the film. Well, the other cruel irony is that they only had enough budget for one day of helicopter shooting. So they hired the helicopter for one day. They filmed the very first scene of the movie with Julie Andrews spinning around on the hill a few times. Then the helicopter immediately flew off over the mountains to film the very end of the film, the last scene, which is the Von Trapp family walking over the mountains.
+
+[00:33:16] That's by Liz. Yes, by Liz. Which is someone in the film walking over the mountains. But the story is based on a real-life family. In real life, they escape whatever it was they're running from by train. They escape the Nazi... I'm sorry, everyone has seen The Sound of Music. I actually haven't seen The Sound of Music.
+
+[00:33:33] I don't know if I... Is this much of a spoiler? No, I did know that the Nazis didn't win the war. So they escaped. They escaped. They might have won this battle. In real life, the Von Trapp family escaped the Nazis via train. But in the film, they had them escaping by foot over the mountains.
+
+[00:33:50] And they filmed them going over the mountains straight in the direction of Hitler's private chalet. So they would have bumped into Hitler if you carried on watching the film after the credits. The post-credits scene is when they reveal a bit of like in the Marvel films. Was it The Eagle's Nest? Yes. Yes. Was the name of the private chalet?
+
+[00:34:09] Into The Eagle's Nest would be a great The Sound of Music too. Into The Eagle's Nest. So she fell over. Because I was watching a mistbusters. Because they were testing exactly the strength of a helicopter downdraft. And they made this model head. And then they made a helicopter hover above it. And they tested the force that was coming down on it.
+
+[00:34:28] And it's very small. So it was like 50 grams of force. And then it went up to about 100 grams as it accelerated upwards. It's pretty windy if you go near a helicopter. And it's coming down. And it came down dangerously low because it was pre-health and safety. And there was one point at which I thought I was going to lose my head. I just think she maybe was a bit weak.
+
+[00:34:49] Well, she probably was very slight. And she was a movie star. Well, she wearing a big dress. She was. Big flowy dress. It was quite a steep mountain. And it was probably already windy. But apparently they did 10 takes of this.
+
+[00:35:02] And she started screaming. Okay, that's enough. I've had enough now. But the helicopter pilot couldn't hear her. So he took it to mean, yeah, let's go around for another take. So he just kept going. Wow. It's weird that.
+
+[00:35:12] Because yeah, she said the helicopter pilot thought I was just saying, yeah, fine, keep going. But you would have thought as the helicopter pilot, if you've watched yourself knock this woman flat on her face five times, you'd assume she was complaining about it by that point. Yeah. I think the downwash is quite strong. Yeah.
+
+[00:35:27] Maybe mythbusters didn't, didn't crack the formula for a stong downdraft. I guess it depends on the helicopter. Definitely. And it depends on a load of other things. But there is amazing footage online of a helicopter taking off. And as it goes, it just knocks over an entire row of portaloos.
+
+[00:35:41] And it sends them all over the place. And there are huge ribbons of loo paper flying off into the sky. It's brilliant. Oh, wow. Yeah. There was a guy in Manchester who was playing golf this year. And his ball was on the side of the green and a helicopter went past and blew his golf ball into the hole.
+
+[00:36:01] Does that count? It doesn't, no. But his mates didn't know that at the time, but they suspected it. And he said that they didn't pay up the 50p each. They would have owed him for getting a birdie. He said, they accused me of colluding with a pilot. I'm now known as Chopper Henderson.
+
+[00:36:19] Just on golf courses and helicopters, there was a really good cracked article that was written by a helicopter pilot who was talking about the ridiculous tasks he's been given as one. And he was once hired by some people who wanted to play golf to fly his helicopter at a cost of about two grand an hour over the golf course to dry the greens because it had rained the night before. Farmers use that method to dry their crops.
+
+[00:36:44] So, for example, cherry farmers fly a helicopter really low because cherries get a lot of moisture on the outside, right? It rains. Well, you can just blow the water off. Yeah, but because if it soaks in, then the cherries will split after a certain point. They can't absorb that much water. And then if it splits, there's a much higher chance it'll rot.
+
+[00:37:01] So you just get a chopper to fly over a few times. Dry cherries. There's a hotel in Sussex made of a converted helicopter. And it's called the helicopter. Isn't that funny? Because of holiday. Yeah. I thought because it like had Holly the plant on it.
+
+[00:37:19] Or it's like Hollywood or... No, it's funny when you see it written down. Although it's still pretty funny when you say it out loud. I love it. I think it's great. Do you reckon there's a person called Holly Copter somewhere? Probably. No.
+
+[00:37:30] Yes. No. Discounts on her. Copter isn't the surname, though, is it? Must be somewhere. Copter sounds like a medieval job. Well, the thing is, Copter in helicopter is not the suffix. The suffix is Pter.
+
+[00:37:42] It's my favorite etymology of all time. Always has been. Yeah. It's Helico-Pter. It should definitely call one that. As purists still say it, I believe. That's what I call it. Because Pter is like a pterodactyl, which means...
+
+[00:37:55] Pter is wing. Wing, yeah. Yeah. And Helico helix, so what the blade spins around, yeah, yeah. Do you know when the helicopter, the first functioning helicopter was invented and flown? 1920. Nice. 1784.
+
+[00:38:10] Wow. What? I got the teen bit. You did very well. So in 1784, there were these two French inventors called Lorneau and Bienvenu, and they... I mean, that's me trying to write a French character who can't think of anyone. He's called Bienvenu pantalon. It was his real name.
+
+[00:38:32] He was a very welcoming man, and he made a toy helicopter, but it had a rotary wing and the... Because they didn't have motors at that point, the power was provided by a spring mechanism, and they made it fly up in the air, and it was only a year after the first successful balloon flight, which feels like a big step in the right direction. So that was the first helicopter. Wow. We talked about on QI this year, or in the coming series, how the BBC plan for the Cold War
+
+[00:39:02] was to broadcast the sound of music on repeat in the event of a nuclear strike. Really? You know, because everything else would be pretty awful. Oh, and what? We wouldn't find it awful having the sound of music on repeat. Apparently not. This good news is, me and Andy haven't seen it. Yeah.
+
+[00:39:18] You're going to feel really guilty about that spoiler, Alex, when it comes to it. Okay, that's it. That's all of our facts. Thank you very much, Andy, for listening. We will be back again next week with another podcast. We have a website which is no-such-thing-as-a-fish.com. Is it? Yeah.
+
+[00:39:43] Yeah. We have a website which is no-such-thing-as-a-fish.com. You go there, you can see all of our previous episodes. You can find out details for our tour. We're off on tour around the entire country, and you can find details for our book, which is going to be published very soon, in which you can pre-order now. So please do that. We'll be back again next week with another podcast.
+
+[00:40:03] We also have, what? Twitter. Yeah. Let me get to it, guys. See you later. Goodbye. Also, we have Twitter accounts. You can find us on Twitter.
+
+[00:40:14] I'm on at Andrew Hunter M. James. At James Harkin. Alex. At Alex Bell. And Anna. You can email podcast at qi.com. Or you can go to our group Twitter account. Can't you, Andy?
+
+[00:40:26] No, I don't think you can. It's done back next week. I hope so. Or you can go to our group Twitter account, which is at no such thing. We will be back again next week with another episode. We'll see you then. Goodbye.

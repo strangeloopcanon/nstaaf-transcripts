@@ -1,0 +1,303 @@
+# No Such Thing As A Fish - No Such Thing As Suckling's Column
+
+- Episode date: January 10, 2020
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-sucklings-column
+- Slug: no-such-thing-as-sucklings-column
+
+## Transcript
+
+[00:00:02] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Covent Garden. My name is Dan Shriver. I'm sitting here with Andrew Hunter Murray, Anna Chesinski, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days, and in no particular order, here we go. Starting with fact number one, that's my fact. My fact is, in 1996, a windsurfer successfully broke into Alcatraz prison while it was hosting the movie premiere of The Rock, a film about people trying to break into Alcatraz. Wow, that's good. So he broke into the prison. This is a guy called Jeff Bunch, and he was a windsurfer who was on the outskirts of it, and he wanted to go.
+
+[00:01:00] So he wore a sort of tuxedo over his wetsuit, and he got to the island. Over his wetsuit. I know, a bit weird, right? I guess you didn't plan on falling in so if you don't fall in, you're dry. I guess so. I mean, it's the idea, right? That is sensible, actually.
+
+[00:01:14] Yeah, yeah. Yeah, because actually, James Bond does it the wrong way, doesn't he? Like, he has a wetsuit over his tuxedo, doesn't he? That's true. And then he has to go to the changing rooms. Ride a pound, put it in the locker, take his wetsuit off. And it actually doesn't make any sense because a wetsuit doesn't stop you getting wet underneath.
+
+[00:01:30] So actually, when he reveals a tuxedo, James Bond, it should be drenched. Yeah. I'm starting to wonder if that scene in the, movie. I've just made it up. So this guy did it the right way around. And he wanted to get to the premiere. Yeah, he wanted to get into the premiere. And supposedly he did. He was arrested and taken off premises, but he said he managed to get a cocktail with Sean Connery. So I haven't seen The Rock. What? I know, but I gather
+
+[00:01:54] it's Michael Bay's best film. Do you? Well, I gather that in like a crowded field of other films Michael Bay has made. Better than Transformers 3? I know. I know. I know. It's a controversial opinion. I've read a thing saying it says it's his... I think it's supposed to be quite good, isn't it? I love it. Yeah, it's an awesome movie, and I think it's his favourite movie that he's made. All I saw is it got 66% on Rotten Tomatoes,
+
+[00:02:17] which to me is definitely not worth saying. Yeah, but to Michael Bay, that is an absolute triumph. Real Michael Bay slamming today? It's awesome. Okay. So it is about... And it has Sean Connery in it, and it has apparently Navy Seals trying to break into the island in the film,
+
+[00:02:32] and they use real Navy Seals in the production, didn't they? Absolutely. So just for anyone who doesn't know the movie, which apparently no one does. The idea is that many, many years ago, someone successfully escaped from Alcatraz and he was put in prison when he was caught on the other side. He's been in solitary confinement for years. And suddenly the rock, as it is known, is taken over by a bunch of military people who've gone rogue. So they need to break back into it. And they get this guy, Sean Connery, out of jail to help them back in with Nicholas Cage. That's the basic premise. So the rock is in it? The rock is not in it. The island. plays the role of the rock in it. Alcatraz is known as the rock. This party sounds really cool actually. There were 500 guests and they were told to dress informally.
+
+[00:03:16] This is according to an article I read in S.F. Gate. And Patricia Arquette was there and she was wearing a chocolate brown three quarter length satin coat with matching pants by Dulcée and Gabana and an aqua silk blouse that matched her iridescent eye shadow.
+
+[00:03:31] So that was her dressing informally. And Sean Connery was wearing a tan parker, a fisherman sweater, and no toupee. Nice. No toupee. We're going into SFG. That's the dress down Friday who you don't put your toupee on. You never get asked on the red carpet.
+
+[00:03:47] And who's toupee are you wearing tonight? Here's a tiny little funny fact I found about the actual making of the rock. The script was done, but they brought in some writers to sort of punch up the script, add some jokes, but also to do some rewrites. And the two people they brought in with the guys who wrote, porridge the British sitcom. Wow. This is a Michael Bay action.
+
+[00:04:09] And yeah, the creator of the likely lads came into the script. Yeah. That's a great bit of trivia. So the Rock of Alcatraz. This is not the only time that a former criminal from Alcatraz has gone back to it, as in it happens
+
+[00:04:23] fictually in the film, but it's happened in real life as well. So they're pretty sure that Whitey Bulger, he was a gangster, he was involved in lots of murders, not a nice guy. He was there for four years when it was operating as a prison. And then later on, he went back as a tourist.
+
+[00:04:38] He went there with a girlfriend. And he... With a girlfriend? Yeah. Just take you back to my old haunts. Well, when they were there, they did all the tourist stuff. So he dressed up in a striped uniform, which they let you do. And he had a photo taken behind a set of replica bars.
+
+[00:04:53] That is amazing. When was this? Because he was, wasn't him in their ages ago? I think he was in the late 60s, early 70s. And he went back in the 60s, isn't it? 62? Ah, okay. It must have been before that.
+
+[00:05:03] 63. It was close. Oh, okay. But he went back, obviously, later. when it was a tourist attraction. Yeah. I wonder what date you bring up that you were far about Alcatraz.
+
+[00:05:10] Oh, open it. I think it's on the Tinder profile. Swipe right or else. Because you would, if you were going out with someone who'd been in Alcatraz, that would be a really cool little thing to say about your boyfriend,
+
+[00:05:22] wouldn't it? And you'd want to go there and experience it? You think that's a cool thing? Say my boyfriend was at Alcatraz, the most secure for the worst of worst criminals?
+
+[00:05:30] It's not actually for the worst of worst criminals. That is a bit of a misconception. Really? That would be the first thing I said. about my boyfriend when someone said that. Although Whitea Bulldoja was involved in 19 murders. So I don't know if he's in minimum security. Maybe that didn't come up to the third date.
+
+[00:05:46] Some of them were just tax avoiders. Like Cal Capone. So this is the thing. It's a real mixed ability prison, isn't it? The thing with the Alcatraz was, really, was a prison to cure people who were in other prisons who kept on kind of trying to break out or misbehaving, pulling pranks on the prison officers, that kind of thing. Pulling pranks.
+
+[00:06:08] Pulling pranks. Yeah, like trying to kill them. So that's why it's kind of an amusing idea in a way, because basically that's what it was. My boyfriend Whitey. We say murder. He's more of a prankster, really.
+
+[00:06:21] He was found guilty of 17 pranks. So it's basically a prison of people who had experience of escaping from other prisons. So in fact, I think the most famous escape, probably, was of Frank Morris and John and Clarence. Anglin and they inspired the film escape from Alcatraz, the 1979 film, and they got out in 1962.
+
+[00:06:42] But they'd all come there because they'd escaped or attempted to escape other prisons. And their, I mean, their escape is incredible, isn't it? It's so good. It's unbelievable. So I just read the Count of Monte Cristo and I thought, this is implausible, everything he does to get out. But they, so they chipped away at their cell walls with spoons for ages. And then they would conceal their work with kind of painted cardboard that they'd access
+
+[00:07:04] somehow. They made an improvised drill from a vacuum cleaner, which, I mean, how do you do that? And somehow they disguise the noise of the vacuum cleaner working as a drill by having one of them play the accordion the whole time. They should have played the spoons. Well, the spoon was busy. They've got, oh, I suppose so, yeah. Who's letting them get all this stuff, though? I mean, who's let the accordion in, I think is the big question? You know, a vacuum cleaner, sure, spoon, fine. But they had a band there. Like Al Capone was part of
+
+[00:07:34] band, one of the famous prisoners. Yeah, I think he was on banjo, something like that. He was. Yeah. He started the band, I think. So this was way, way before this escape, wasn't it, in the 30s when Al Capone was there. Yeah. It was a very long-running band.
+
+[00:07:48] And I guess it's very easy to do a reunion tour decades later. Because you're all still in Alcatraz. I think it's like Sugar Babes. It's a constantly rotating guitar. So more on this escape. We didn't get to the end of it. Oh, they had Papier-Mache. they made papier-mache heads of themselves
+
+[00:08:07] and they made it not they didn't have actual papier-mache they had to use toilet paper and soap and they made these they sculpted these heads of themselves and then they covered them in real hair which they got from the prison barbershop brilliant yeah so good they stole over 50 raincoats again don't know where they're getting 50 raincoats properly
+
+[00:08:24] they stole these raincoats and they made them into makeshift life jackets and they vulcanised them properly using steam pipes in the prison They worked this out from some kind of magazine they'd had smuggled in. And they also, I think, converted one of them into a life raft. And apparently they converted a musical instrument, according to the FBI, into a tool to inflate the life raft. Oh, well, you just use the accordion, you squeeze it up and down, don't you?
+
+[00:08:48] That sounds like the one, isn't it? But then they'll hear you blowing up, me. It can't be that. In fact, the whole point of musical instruments is they all make a noise when you pass wind through them. That's true. I went on the FBI website and they said that they officially closed the case on December 31st, 1979 about this escape. But they have turned the responsibility over to the US Marshal Service who continue to investigate. So if you at home have any leads or information to share about this escape from 1962,
+
+[00:09:23] then please call Deputy U.S. Marshal Michael Dyke on 415-436-7677. You cop But he thinks they made it He thinks they made it to the mainland Definitely and that they made it away Because some people think that the raft Which was made of raincoats And it was also made of cement
+
+[00:09:43] That was the other ingredient The raft of raincoats and cement But he thinks they got away And the family of the Anglin brothers Two of the SKPs They think that they attended their mother's funeral Really? Yeah, because their mother died several years later
+
+[00:09:57] But obviously the funeral The place was crawling with FBI agents and they think they might have attended dressed as women. And all three of them will be pardoned, but only if they make it to the age of a hundred. There was a team of Dutch scientists who did some computer simulations about whether the rafts would have made it to the mainland. They launched 50 virtual rafts every half hour between 8pm and 4 a.m. By looking at all the tides that would have happened at the time and from different locations
+
+[00:10:24] on the island. And they found that if they left at exactly midnight on the night, they might have. made it. They would have been sucked out towards a Golden Gate Bridge, but at the moment they were closed to the Golden Gate, the tide would have reversed, and that would have sent them to the north side of the bridge, and they would have been able to get to the land. Wow. And that's the only specific time. Every other time they would have got sucked out to see. But this is assuming that they weren't just there controlling the rafts, right? Yes, they did actually put into the computer that they might be able to do some steering. Because they had some oars. They made a
+
+[00:10:56] couple of oars. They did have a couple of ours, but they were both made out of accordions. On the escaping via the only method through the ocean, there was a theory that, so Alcatraz was meant to be actually quite a pleasant experience in terms of food, in terms of their showers. They had hot showers. Prisons don't really have that. Pleasant's a strong word, we should clarify. Well, maybe it's not, it wasn't such awful. Yeah. You got your own cell, which actually was according to a bunch of people who've written about it since having come out saying that that's a really pleasant experience not to be in it.
+
+[00:11:31] I think what Anna's saying is it's like pleasant experience compared to being in prison. It's not the writ. Yeah. It's not an objectively pleasant experience. It's like saying that the rock is a good movie compared to the other Michael Bay movies. Yes. Yes. Okay.
+
+[00:11:43] No. But you know why they had hot showers? Well, this is, yeah, I was about saying because of the ocean. So the theory was that they were so used to hot water that when they got into the ocean, that would immediately give them hypothermia or they wouldn't be used to it as opposed to cold showers getting them used to a cold swim. It is swimmable. So people have swamps. So I think in, oh, when was it? It was, the year before the prison opened, actually, a 17-year-old girl swam it in 47 minutes. Wow. And she's not even the youngest person who had done it. Obviously, you need to be very lucky with the currents and
+
+[00:12:16] the tides, because it's pretty treacherous. But in 2006, a seven-year-old boy swam it. No. Also in 47 minutes. Isn't that crazy? Wow. Do you think that maybe it's like, you know when you go to a water park and there's that ride where you just sit in a ring and it just takes you around in exactly 47 minutes? It seems like there must be just a current that switches on once a day. Yeah. And that just pretty much helps.
+
+[00:12:39] Some of the people who are in Alcatraz. Basil Banghart, he was known as the owl because he had big eyes. Ellsworth Raymond Johnson was known as bumpy because he had a bump on the back of his head. And Joseph Bowers was known as Dutch because he was born. on in Austria. Presumably they just, they heard he was European and just gave that. That's so funny. Okay, it is time for fact number two, and that is Andy.
+
+[00:13:11] My fact is that Horatio Nelson had a brother whose name was suckling Nelson. So, not the most heroic of the Nelson siblings. No, it feels like he was given a short shrift in life, wasn't he, by getting that name? Definitely. He was never going to become the head of the Navy. Well, maybe it means he was the only one who was breastfed. Do we know if that was the reason? That was not the reason.
+
+[00:13:34] Right. That's a great theory. So this fact actually comes from friend of the podcast, Carriad Lloyd, who sent it to me saying you're the only person who will find this interesting. No, it's great. So it's because of the suckling side of the family. So his mother was called Catherine suckling. Okay.
+
+[00:13:50] And she had a brother called Morris suckling. And so Nelson was one of 11 children, of whom survived to adulthood. So there were a lot of siblings, and I think they were running a bit short of names. And suckling was one of the last brothers born. And he was not very impressive, I think. So there are almost no references to him in biographies of Nelson. One of them just describes him as the feckless suckling.
+
+[00:14:15] He was a struggling vicar, and Nelson got him a job. He was a draper in beckles, who tried to be a draper but failed. And then he became a vicar when his father, who was a vicar. retired and he became the vicar and then he died a few years later. And I don't think he was very close to Horatio Nelson because Horatio wrote to his wife in 1799, I am not surprised at my brother's death. Three are dead younger than myself. That was his response to the death of his brother. Oh, God. He died quite young and actually his father, so their father, wrote to Kitty, who was Nelson's sister, about suckling. He will no doubt pass amongst a crowd of
+
+[00:14:54] undistinguished preachers and gain some respect in the village from his quiet disposition, his liking to a little conviviality and his passion for Greyhound racing. Wow. God, this podcast has turned into a roast of suckling. Poor guy. Dead for ages, brought back finally via Carriad. I know. I'm just ripping him.
+
+[00:15:14] I need to be taken down again. The name suckling came from the surname of the family. Yeah, yeah. Which comes from the word to suck. And in ancient times, it was a baptismal or patronomic name of endearment. So it's like how you have the surname, Darling. Okay. Although there's a poet called Sir John Suckling.
+
+[00:15:34] Yeah. Yeah. So I was reading about Sir John Suckling, and he's related directly. So he was an English poet. He wrote Ballad Upon a Wedding. He also is credited as having invented the card game, Cribbage. Really? Yeah.
+
+[00:15:46] I studied Sir John Suckling at school. Did you? Yeah. He was one of this group called the Cavalier poets, who were a lot of sort of roistering lads who were all in favor of King Charles. I think you've mentioned. him before. I think so. And the poem, Ballard Upon a Wedding, contains one of the, is an early masturbation joke. Is it? Does it? At a wedding? Yes. It's not in the ceremony. Do you have the joke?
+
+[00:16:09] I think it's talking about how beautiful the bride is and it's saying that if... So hot I had a wife. I think it's saying that if the groom had had slept with the, if the groom slept with a bride, as often as all the sort of invited male friends had imagined themselves doing it, it would have spoiled him, surely. Wow. Yeah. Is that a masturbation joke? Yeah, because they're all imagining
+
+[00:16:33] that they're sleeping with her. Of course, sorry, yes. Anyway. Yeah, but he was probably the most eminent of the sucklings. It's thanks to the sucklings that Nelson went to see in the first place. Because it was the Nelson's uncle Morris suckling, who when Nelson's mother,
+
+[00:16:49] Catherine died, Nelson was only I think eight or ten years old he was quite, he's very young. And Uncle Morris said well take one of the children off your hands and that happened to be Horatio and then Morris got command of a ship and Nelson wrote to him saying take me to sea please I want to go to sea I want to go and have adventures so that's how he got into
+
+[00:17:05] the Navy. He could have been a draper car a missed opportunity we could have such amazing curtains. You could have Sutton's column the thing about his mother that he remembered so I got that his mother died when he was nine so I like that you skirted around that with 8 and 10.
+
+[00:17:21] Between 8 and 10. So I think his mother died when he was either 8, 9 or 10. And he said he remembered her well. He claimed to remember her well. But then the only concrete thing he said he remembered about her was that she hated the French. It's the whole thing, just an attempt to please his mum. It sounds like it might be. The whole thing.
+
+[00:17:42] He was not very impressive in adulthood. I mean, to crowds who were observing him. Horatio, yeah. So crowds thought he was rubbish. She was, you know, he was very short And a German onlooker at her crowd It said, A more miserable collection of bones and wizened frame
+
+[00:17:58] I have never yet come across. Ouch. I know. Yeah, but he had the crap kicked out of him at war. I mean, he lost an arm. He lost a blind in one eye. Yeah, like this isn't a guy who was, you know. He had a hernia?
+
+[00:18:09] There you go. You can't see that on the outside, though, can you? You can see how old. If you put your top off, but I don't think he did not get his top of it. Although he was very good at his own PR, so if he had a six-pack, And he also invented the phrase, the Nelson Touch.
+
+[00:18:24] What does that mean? It's about having some kind of brilliant naval strategy. It's amazing. And people use it, you know, even today. Did they? Yeah, yeah, it's a phrase. It's not used much outside navies, I think. No.
+
+[00:18:36] If we talked about Lady Hamilton or Emma Hamilton and stuff? So Nelson was married to Fanny and but then decided to leave her for Emma Hamilton, who was married to William Hamilton at the time. And Nelson was sending love letters to Emma Hamilton. But William Hamilton knew the Secretary of State for Foreign Affairs, so was opening all of his mail and reading whatever he was saying and sending it to the government. So whenever he was sending letters like to Emma Hamilton saying,
+
+[00:19:10] like, I kissed you fervently and we enjoyed the height of love. Emma, I pour out my soul to you. Her husband was reading all that stuff. and I guess scanning over it and get into the important naval stuff. So he completely knew about the whole thing. But then, of course, they ended up living in some kind of weird menager 12.
+
+[00:19:27] They lived in the same house, was it? Yeah. They seemed pretty open by the end of it. Everyone was kind of cool with it. It was a very modern sort of fawesome and Fanny seemed not to have too much of an issue. They had a really unhappy marriage to be a husband and his wife.
+
+[00:19:39] Yeah. So I think it was probably a relief of both of them when he bugged off with the lady. If they kept the family surname, she could have been called Fanny Suckling. Oh, that would have been the dream, wouldn't it? Actually, as well, Emma Hamilton used to call Fanny Tom Tit. As a nickname.
+
+[00:19:54] So she could have been Tom Titsuckling. Titsuckling. Oh, God. And that was because it was really not very nice. So she suffered from rheumatism in her legs and supposedly walked a bit like a bird. And so Emma Hamilton being a bit not very nice. That's catty. It's a bit Rebecca Vardy, isn't it?
+
+[00:20:11] Yeah. I read a really random thing about Fanny Nisbet. So before she married Nelson She was guardian to these three children Who were the kids of a plantation owner Who was away in the Caribbean with his wife And him and his wife returned And Fanny Nisbitt's looking after these kids
+
+[00:20:29] And Fanny brought the three kids in To say, hey, here's daddy And he said, who on earth of these children? And she, Fanny said, good God, don't you know them? You know, didn't recognise his own kids. They're your children. And so neither of the couple had recognised their own children
+
+[00:20:45] and it said that his wife was so surprised that she set her headdress on fire on a nearby candle. What on earth is that story? It's really random. It's just so random. It's like you come home, you must know you have three children. So when three children stand in front of you. Yeah.
+
+[00:21:03] There's a process of deduction going on there, isn't it? He would have thought she hadn't figured it out. She was astonished. Did she set her headdress on fire deliberately as a protest against the looks of these children? Or did she stagger back into a... candle. It's not clear. It's written in a letter by her husband and he doesn't specify. He just says she set her headdress on fire. That's an amazing star. It's like an episode of Miranda.
+
+[00:21:29] You know the Hardy, Kiss Me Hardy, I think we've mentioned before, his dying words, Kiss Me Hardy to one of his officers. Hardie later became First Lord of the Admiralty. He did really well in his career. Yeah, but this is amazing. The Nelsons and the Hardys are still in touch as a family. Yeah. So there was a dinner party in 1990 and there was a woman there called Mary Arthur. She is descended from Nelson and her husband was talking to one of the other guests and said, oh, this is my wife. She's a descendant of Nelson. And the person they were talking to, Robin Stainer said, that's funny. I'm descended from Hardy. And they got back in touch that way. Wow.
+
+[00:22:04] Not having known each other. They've been in touch since then and they became really good friends. And the Times read about it. The Times said, Mrs. Arthur, who lives in Woburn in Bedfordshire, confirmed that the two descendants continue the family's tradition of kissing. Nice. It sounds like it's all an excuse for them to have an affair. I don't think that doesn't have at all. I think he said, I'm a descendant of Hardy,
+
+[00:22:23] and she said, kiss me Hardy, and then they crossed the table and snogged. And the husband can't say anything because they're just reenacting the historic scene. Yeah. Well, I think that's a really bad story. Okay, it is time for fact number three, and that is James.
+
+[00:22:41] Okay, my fact this week is that in the... the 11th century, hundreds of people in the UK paid their rent in eels. Okay, so this is a website run by a guy called John Wyatt Greenlee, he's a historian, whose work, according to his site, examines the cultural history of eels in England from the 10th through the 17th centuries, focusing on eels' role in economic change, the growth of national English identity, and the evolution of spatial practice in early modern London. And that was a quote that was a lot longer than I thought it was going to be from the start of it.
+
+[00:23:16] But he has a bit where he looks at rents that were paid in eels. And this was a thing that happened probably before the 10th century, but that's where we have the records from. For instance, a doomsday book records payments like the village of Haramston, who owed Earl Hugh 75,000 eels per year for their rents. Dead or alive? I think dead.
+
+[00:23:38] Okay. It's harder to collect, I suppose, it's live eels. Yes. No, it's easier to collect. No, it isn't, Andy. Come on. I'll tell you why, if there are 10 dead eels on the floor and 10 live eels in a bucket, let's see you can pick them up quickest.
+
+[00:23:54] Okay, it's easier to collect dead eels, but it's harder to find them, I think. Harder to find dead eels. It's harder to find dead eels lying around. Yeah, the natural state is alive. Yeah, yeah. I do get that. Presumably they're eel farmers, right? It's not people going around just looking for dead eels.
+
+[00:24:08] No, no, there are no farm. You can't farm an eel. You can't farm an eel? You can't farm an eel. No. And this was basically people catching them and then selling them at market and then picking them up and using the most kind of currency. Oh, wow. And they were dead because they came on sticks.
+
+[00:24:23] So you get 25 eels on a stick. So when you had to give 75,000 eels, it would be, what, 3,000 sticks. Wow. It was sort of like the equivalent of candy floss or something. You'd take a stick of eels and lick away at it. I'm ill. I'm not sure about the licking part. Well, they were rent collectors so keen on eel?
+
+[00:24:45] Well, was there just a huge stuff? It's popular food. Yeah, it is popular food. So John White Greenlee says that the reason that he looks into this is actually, if you look in the Doomsday Book, there's payments in pigs and fish and ale, you might pay in different foods and drinks. Because if you don't have cash, you know, it's a thing that everyone has. But people these days are really particularly interested in eels because we don't really
+
+[00:25:08] eat eels anymore. So when you look at a list and it says, 75,000 eels, you go, bloody hell. Where'd you get 75,000 eels from? You can't farm an eel. Although I had an eel for breakfast at the weekend. Did you really? Yeah, smoked eel. We don't eat eels anymore.
+
+[00:25:22] No, no, I know what you mean. I had conflakes, but what I'm saying is it's less common. It's less. I didn't have, yeah, 75,000 eels. But they used to be, maybe it was just there was a lot more. So I think 50% of the biomass of European freshwater or some parts of it was made of eel in the olden days. Wow. I say the olden days.
+
+[00:25:42] I don't have an exact year, but around this time. And East Anglia, too, back in the days before the fens were drained, was very rich eel territory. You know, you'd go boating around the waters. And this guy, John Wyatt Greenlee, he's brilliant. Yeah. His Twitter name is surprised eel historian. And then the biography for him says, surprised historian, not surprised eels. He's a medievalist at Cornell University.
+
+[00:26:09] And he's done a map. He's done an interactive map of the UK. And you can look on it and you can click to see where your nearest local eel rent was. And I looked, and it's about four miles from where I grew up, Kingston. There was a rent of 125 eels. Wow. Yeah. It's really interesting.
+
+[00:26:25] My closest was Manchester. Nice. I just was busy looking at his replies to that tweet because it was so successful. He was like, oh my God. Who would have thought? Eels. This is fantastic. So he was a surprise deal historian.
+
+[00:26:39] He's done. a kind of calculation of what eels would get you today in today's money. So he said that he worked out, because he's at Cornell University, that if you had to pay to go to Cornell University, you would need between 106,612 and 213,000 and 24 eels, either of which represents a number of eels that the Cornell Burses office is ill-prepared to handle. He did say that an Amazon Prime membership, which is $99 a year, would cost only 150 to 300 eels. That's about, six to 12 sticks of eels. I really didn't know that you cannot eat eel raw.
+
+[00:27:15] So again, in sushi is kind of... Did you just find that this weekend? I've had a very bad few days. You get it in sushi, don't you? You do, and it's always cooked. So, because if you eat it raw, it's got toxic blood. And it causes your muscles to spasm, including your heart. And it's got enough toxin that it can kill a human being.
+
+[00:27:34] Yeah. If you suck all the blood out of an eel, you'll die. Yeah. Wow. I think you deserve to as well. So that, if we're saying eel's not eaten that much here these days. In Japan, it's obviously massive. They have an annual consumption rate of 100,000 tons of eels.
+
+[00:27:51] So that's 70% of the worldwide eel catch. Whoa. Yeah. But they've declined in their eel population so massively, something like genuinely 99%. Like that's how high it is. So they now have to import eel, glass eel and so on, from America in order to eat. But also, as a result, because they're... they're manufacturing great sushi out there.
+
+[00:28:11] They get sent back to America. The Americans are sending their eels over to then have it sent back to eat. So it's taken two plane rides by the time they've eaten. That's kind of nice in a way because eels in their migration are used to migrating thousands of kilometers. They have this extraordinary migration. So maybe it's sort of nice that post-humously, they're still migrating thousands of miles back and forth. Do you think that's a little bit of consolation for the... No, I don't think so.
+
+[00:28:37] No, probably not. I mean, the population decline is amazing. So there are temporary bands that have been put in place in the UK. And it's lots to do with dredging of the ocean as well. This really just decimates the population. But they hatch in the Sargasso Sea, which is West Indies way, Bermuda. Yeah, it's like north. And it's not a sea.
+
+[00:28:59] It's a portion of the North Atlantic, isn't it? Yeah. So it's a portion of the ocean. Yeah. But then they drift over on the Gulf Stream when they're really tiny. and then they burrow into river mouths and estuaries and things in the UK and across Europe and then they stay there for up to 12 years but some of them can live in a pool for up to 30 or 40 years just living there and getting bigger and then they suddenly they feel the call they swim back
+
+[00:29:21] to the South Casso Sea they spawn they die yeah we think we think no one's ever seen it happen no one's ever seen an eel spawn it's crazy it's insane so in the olden days people like pliny and all those other types until the 1700s kind of thought they came from nowhere and I kind of still think they do. Because no one's seen the spawn. We found young eels, very young eels born in this Argasso Sea, haven't we? And then we've got the old eels that look totally different, by the way, in Europe and America. But that's it. And they're constantly changing color. So when they spawn, they look like these tiny glass leaves. And then they become transparent glass eels. And then they turn into like noodle-looking things. They go brown. Then they go yellow. Then they go
+
+[00:30:03] silver. It's this weird kind of disco effect. And silver is the one where you know that they're going to start heading back to the Saargasso Sea to die. How do they feel the call? We don't know that we don't know. And we do know that if you farm an eel, which you can do these days. Oh no. They have your farmers. I apologize. But if you like have a Neal farm and you raise them there, so they were born there, they still have the instinct to return to the Saargasso Sea, which is kind of embedded in them somehow. So do they, are they just jamming their heads into the of the pond in the direction of the Sargasso Sea. I fear they might do that kind of thing.
+
+[00:30:38] Wow. They're really clever in the way they migrate as well. So now we have fight scientists, not us, have actually tagged them. Bizarrely, they haven't managed to tag them all the way into the migration.
+
+[00:30:47] Come on, they're just not looking close enough for this spawn, are they? I know. I reckon if we go to the Sagas or sea. Yeah. Well, I think you can see the spawn. You've just never seen the eels spawn it, right?
+
+[00:30:57] There was one, there was one Danish scientist who spent 15 years of his career looking in the Mid-Atlantic for seven millimeter long larvae. He never dead. Yeah, but that, I mean, it does feel like he's not done a very good job. You surely look for the bigger ones on their way back to the Sargasso Sea.
+
+[00:31:14] You would look at the spawn and then you'd keep looking at it at earlier and earlier times. And then look at the bigger ones at later at later times. Eventually the two things must come together. Guys, it must be harder than it looks. Otherwise, I'm sure these people would have succeeded. Anyway, so I was just saying that we have tagged them now. So they've tagged them for about the first 1,500 kilometres of their journey. And what they found out is if you tag a European eel when it's going back to spawn,
+
+[00:31:39] it doesn't make a B-line for the Sagasso Sea. It doesn't do the shortest route. It heads a bit further south, so it heads towards like where the Azores would be. And that's because they're smart enough to know that there are ocean currents that they then pick up like a conveyor belt. And that'll get them there much faster. Like a seven-year-old boy off Alcatracks. Cool.
+
+[00:31:58] Exactly. Wow. Wow. That is amazing. And they can just sit in it, not do anything. So we've been looking as to how they spawn for centuries, right? But it was only in the early 1900s that that was found. And it was this guy that you're talking about. It was a Danish biologist, Johann Schmidt.
+
+[00:32:15] And he was the one who pinpointed the Sargasso was the spot that they were doing it. And he, I was just looking into him. He was married to a lady called Kuhl and he studied under a man called Warming. Very nice. How nice is that? Yeah. And so Cool was the daughter of the old Carlsberg brewery in Copenhagen, the chief director there. And actually the whole thing, the reason we know about this morning is Carlsberg itself sponsored him to go and look for it.
+
+[00:32:43] So it's thanks to Carlsberg beer that we know about this. Wow. And was he the 15 years guy? Yeah. That was probably not the best scientific study in the world. Yeah. And then this other guy, Warming, is a Danish botanist who is a founder of the scientific, discipline of ecology. He's the relationship of man in earth.
+
+[00:33:04] He's called warming, which is quite nice. Nice. That's a really good scientific fact, Stan. Thank you. There is one reported case of a male dolphin masturbating by wrapping an electrocule around this penis. How do we know it was masturbating? He was thinking about John suckling's wife.
+
+[00:33:23] I mean, did it ejaculate at the end? Anna, I haven't seen the video. This is too personal a question. I'm sorry. If the dolphin is going to tell us it's been masturbating with an eel, then we want the details. I don't know. You're quite right. The eel might have been trying to asphyxiate the penis.
+
+[00:33:39] Indeed. Or have sex with it thinking it's another eel. I don't know what happened. Speaking of members with eels wrapped around them. There is an old tradition in the fens of England of using a wedding ring made of eel skin. Oh. Yeah. So that's another way you can wrap a bit of eel around yourself to symbolise.
+
+[00:33:59] a love match. Yeah. Sounds very flimsy. Yeah, I don't know if it's the ring for life, but it's maybe the ring you use for the wedding ceremony. Okay, or someone you feel like it's your first husband kind of thing. Okay, it is time for our final fact of the show, and that is Chisinski.
+
+[00:34:22] My fact is that according to Polynesian mythology, Maui, who is the god in the Disney film Moana, died by climbing into a goddess's vagina and being crushed to death by the obsidian teeth in there. And they didn't show that in the film. Yeah. Yeah, we went to Disney and watched that film. Do you remember?
+
+[00:34:41] Because we were sponsored by Moana. Yeah, that's right. You guys were quite late getting in because you needed to, do you remember you had to sign in or something like that? Yeah, yeah. And so you missed the start of it. But I went in without signing in. And they showed that scene actually.
+
+[00:34:54] Oh, you get that at the top. Oh, God. Show the death scene at the top, okay. And then the rest is a flashback. Of course. So if you did miss that first scene of the film, or the film, you should know that this is the film Moana and Moana's sort of demigod sidekick in the film is Maui, who was a real god, very important god in, or demi god, in Pacific mythology.
+
+[00:35:17] And he exists all over the Pacific Islands. So like Hawaii, he's very important. But Tahiti's Samoa, the Maori people, they all have slightly different versions of him. But there is a version where he's a real trickster character. He's a prankster. He's a prankster. He's like Whitey Bulger or Al Capone. He's a prankster slash murderer.
+
+[00:35:39] Does he murder anyone? He doesn't actually. He's just a little prankster. And one of the ways he dies is when he's trying to become immortal. And the way he decides to do this is to enter the goddess of death, who is called Hinei Nui Teppo, to get in through her vagina, pluck out her heart on the way up to her mouth, then emerge from her mouth. And apparently this will reverse the birth process. and make him immortal.
+
+[00:36:02] I don't know if that's scientifically accurate. Anyway, he does this, and he's got his bird friends with him, so some birds who are his mates. And he says, please don't laugh while I do this, because she'll wake up. And they couldn't hold it in, because it's quite funny watching someone climb through a vagina. And so she woke up, and she tensed up,
+
+[00:36:21] and the little teeth in her vagina, which we all have, crushed him to death. Wow. That is quite a story. She's really, she's described us. Did you say she's the goddess of death? Yes. Oh wait, or of mortality?
+
+[00:36:35] I think death and mortality. She's got a very vivid description in the myth. She's got eyes of green stone, hair of kelp and the mouth of a barracuda. Mm. As well as, of course, having a toothy fanny. She has a vagina a bit like a moray eel. They've got really big teeth, haven't they? Oh, they do.
+
+[00:36:54] They've got like a pharyngeal jaw like alien. Oh, yeah. And they've got backwards teeth so that if you accidentally swimming in the mouth, you can't swim out again. Oh gosh. Grandma, what big teeth you have. And then what a surprising location. So, Maui?
+
+[00:37:12] Anything on Maui? Well, actually, we said that he didn't, his pranks didn't kill anyone. And I think that is true, perhaps. I don't know of any that did. But he did once go fishing with a guy called Irawaru, who was the husband of his sister. And he was so annoyed with Irawaru
+
+[00:37:28] that he turned him into a dog. Oh. And that was the first ever dog And that's where dogs come from Because Maui actually, if you know the song from Moana, you're welcome, which is his big song.
+
+[00:37:39] It's all about the things which he did. So he created the moon and the sun and the wind and all these different things. And he pulled the islands up from the ocean floor, didn't he? He had a magic jawbone, which according to some of the myths, is the jawbone of his grandmother,
+
+[00:37:53] but is also quite big. So she must have been huge. And he did things, useful things with it. So he used it as a, fish hook to pull up islands from the ocean floor. And actually, the names of North Island and South Island in New Zealand now are Teika our Maui and Tehwaka our Maui, which means fish of Maui and canoe of Maui
+
+[00:38:12] because that's from when he caught a fish and turned it into an island and he turned his canoe into another island. That's great. He raised the sky? That was the thing he did. The sky was pressed down close to the earth. So the height of a tall tree, it was pressed right down to the island. So it's obviously very restrictive for everybody. And he just lifted it up and ran to a very high peak and chucked it up in the air.
+
+[00:38:36] That would be so annoying if the sky was that low, wouldn't it? Yeah. So was it, like, you wouldn't hit your head on it, but you would be able to fly a drone? You wouldn't be able to fly a drone. Nightmare? Yeah. So another character in Moana is Tofiti, who's that goddess who comes up at the end. She's actually based on Pela, who is a genuine goddess in Hawaiian mythology.
+
+[00:38:58] and so she's like the most important goddess goddess of volcanoes and stuff like that. It's like the big volcano in Hawaii is called Mount Pele or Pile, I think. And that's kind of her embodiment. Yes. Yeah. You're meant to, I think you're meant to pay tribute to it when you go there. I went there and I did it. Did you not?
+
+[00:39:15] No. God. How wonder you got this cold for so long? You're meant to give, I think it's some brandy, I think it is. Gin. You go and pour gin. Is that right? Gin.
+
+[00:39:26] She loves gin. Yeah. There was a hog god called Kamapua-a-a, which I'm sure I'm pronouncing wrong, but he married Pele, the fire goddess, and his habits were so bad because he was a hog that she couldn't cope. And they had huge arguments, and eventually she won all the arguments, and he was forced to surrender and turned himself into a fish. And that is a Hawaiian fish, and it's the Hawaiian fish with the best name. I think we might have talked about it before. Oh, the really long name.
+
+[00:39:56] Yeah, okay, I'm going to have a crack at it. It's called the humu-humu-humun nookuapua-a. And it makes this grunting noise, which apparently sounds a bit like a hog, which is because it used to be a hog when he was a god. That was always a relationship that was going to fail between a volcano and a hog, wasn't it? It's a one-way trip to a barbecue, basically. Can we talk about having teeth in vaginas? Oh, sure.
+
+[00:40:22] Because this is an extremely common myth around the world, around the whole world. around the whole world. In fact, there are 22 variants of this is called vagina dentata myth in North American cultures alone. The Wichita one has a toothed vagina wandering around at night, castrating men in their sleep.
+
+[00:40:41] The Mandaruku myth has a woman with a vagina like a crocodile's mouth. In ERISA, in India, their myth has the toothed vagina not only castrating men, but also eating the rice crop, causing famine. And it's basically,
+
+[00:40:56] a misogynistic way of saying that women are evil and you should stay away from them. Right. Right? Wow. I don't know. I thought it was like empowering women. You know, we get to chop off men's penises with our vaginas if we want to. Yeah.
+
+[00:41:09] I immediately brought it to the misogynist. I was like, greedy vagina. Yeah. I'm afraid in most of the time it is quite misogynistic. Very occasionally you get one where the woman is empowered in the story. So in the Chukchi myths, which is in northern Siberia, you have a woman who is married to an old man and to avoid having sex. with him, she puts a fish head in her vagina, so the teeth will cut him every time he tries to have
+
+[00:41:31] sex. And she takes the piss out of him, doesn't she? He has sex with her the first time. It's like, oh my gosh, there are teeth in there. And then she was like, I can't believe you didn't know all vaginas have teeth. How embarrassing. But it's just a fish head that she's put in there. Just a fish head. And she must take it out. I assume she doesn't leave it there. Once she's got away with it once, she doesn't have to have it for her whole life. Just the thing on Moana, the movie itself. Oh yeah. So if that scene, the vagina crushing seat, was in the movie. Obviously, it would have been an X-rated movie, right? But in Italy, they actually had to change the name of Moana altogether because in Italy there was a very famous porn star
+
+[00:42:09] called Moana, Moana Pauzee. And parents were worried, and they were worried in the studio, that people Googling Moana to see Cinema Times and so on would come across Moana Posse instead of the actual cinema. So it was renamed to be Oceana. So in Italy, it was released as Oceana. to stop the X-rated references coming up. It used, of course, to be a very disgusting club in Kingston, Oceania. Which is why it couldn't be called Oceana in the UK. Exactly. Had to change it back.
+
+[00:42:39] They did really good research on Moana into Pacific Islanders' culture and history and stuff, didn't they? And they consulted lots of experts. So I think they're creators of the film traveled to Polynesia multiple times. And they put together a committee of linguists and anthropologists and historians from all over the Pacific. Islands who I think ended up being called the something committee the Pacific Committee or something. Oh no, they were called the Oceanic Trust and they did things like, for instance, Maui for the first year of when they were coming up with the film was bald.
+
+[00:43:10] So if you remember the film, he's got all this curly, big curly head of hair. Yeah. And that's because he was bald. And they went to the Pacific Island anthropologist who said, that's incredibly offensive because the hair is where your manner is, is where your power is. And he's very powerful. You've got to give him more hair. So they gave him more and more hair until they told him to stop.
+
+[00:43:26] He was meant to be quite a skinny character as well. Maui in the mythology is a skinny character, but they made him quite large. But do we know why that was? Why would they go against that? So that was controversial, but that was actually at the advice of the Oceanic Trust Committee.
+
+[00:43:41] So he's a very strong character and people said this is playing into stereotypes of obesity. But the committee said, look, he's just incredibly powerful, imposing figure. And also it's much funnier if you've got this huge thing. And he's not fat in the film. I would say he is big bone. And strong.
+
+[00:43:58] Mighty. Mighty. Mighty Maui. Do you know one of the main imports of the Pacific Islands? This is now a general Polynesia effect. Imports. Yeah. Spam.
+
+[00:44:08] Oh, so close. Oh, I think. I thought it was, yeah. Yeah, all right. Well, maybe another one. Oh, damn. Okay. Okay, but another food stuff?
+
+[00:44:16] So it's a food stuff that Americans, not Eels, it's a food stuff that Americans in the USA eat a lot of, and it's a bit of it that Americans never eat. but that gets massively eaten. Oh, is it the toy in a happy meal? It's the toy and a happy meal. Wow. What a huge part. And it's controversial because they've got a lot of plastic in them.
+
+[00:44:35] You know, they get eaten a lot in the Pacific. No. Oh, it's not. No, that was a great guess. Sorry. I watched Only Connect the other day and I didn't get anything right. And I know you guys kicked ass on it. So I thought James had just pulled out another stunner there.
+
+[00:44:48] So it's Turkey Tales. I didn't know about this. But in America, each year, there are 250 million turkeys eaten. And turkeys all have this tail, which is this weird, oily gland at the very base. And it's basically the gland that keeps the feathers in of the tail. And it's got this fatty chunk of meat at it, and it's never used. And America also gets called the Parsons Nose, which is a great name for it. But it's not sent to shops.
+
+[00:45:13] It just never gets eaten in the USA. So they all get sent to the Pacific Islands. And they started, America started basically dumping these there. And now it's a massive part of the diet. In 2007, the average Samoan was eating 44 pounds of food. turkey tails a year, which is three times as much as the average American eats turkey in a to-to. I think they think is a real problem, don't they?
+
+[00:45:34] Because they do have an obesity problem in some of the islands, and it's because of so much fat in these turkey tails. Basically, yeah. They really want to stop importing quite so much, I think. They eat a lot of mutton flaps, too. That's the thing that New Zealand exports, which is a very fatty bit of the sheet, basically. And they don't have teeth on them anymore, do they? Oh dear.
+
+[00:45:58] So another Disney film, which wasn't exactly true to life, was Pocahontas. And in Pocahontas, the male protagonist is John Smith. I understand, having not seen it. But all these things I don't think are in the film. So he was a pirates-turned mercenary who fought the Turks in the Balkans. He was captured and sold into slavery. and was a slave for ages and ages before he beat his boss to death in a wheatfield and escaped to Russia. And then because he was so famous as having escaped as a slave, he was invited to help establish a colony in America where he was arrested for mutiny on his way.
+
+[00:46:39] And then eventually he did get to America. And then he did meet Pugontas, I believe, but then had to return to England to recover from a gunpowder incident which blew his genitals off. Ooh. Oh. So he's got no genitals throughout the whole movie. No, this is not in the movie, all this stuff. No, no, but like, you know, underneath the clothes. Again, I must stress this is not in the movie.
+
+[00:47:02] No, yeah, no, no. Surely it must be the pre-genital. Yeah, this is when he's sent back to England. After all the stuff has happened in the Americas. But if he couldn't make it with Pocahontas when he had genitals, it's not like he would have stood a chance when he didn't, is it? I guess not. That's why.
+
+[00:47:17] That's why I didn't like that. According to his memoirs, he said all this. And historians do assume that they were a total fiction. Oh. However, one historian, Philip Barber, has said that nothing that he's written has yet been found to be a lie. So it could be true. It could be not true. Okay.
+
+[00:47:35] Wow. The story of Cinderella is a bit more terrifying than the one that we know from Disney. I kind of love Disney because they took all the Grimm's fairy tales that are grotesque and made them really child-friendly. But in the original Cinderella, The evil stepsisters, when they want to fit into the shoes, just resort to cutting off bits of their feet. So I think one of them cuts off our own toes and one of them cuts off her own heel.
+
+[00:47:58] And they caught apparently because of the blood dripping from the shoes. Although I would have thought it would be quite obvious if you put your foot into a shoe that you've either got no toes or no heel. I think so. You would have thought you noticed anyway. Yeah. Well, if you just get someone to turn up wearing the shoe, I guess you might not. It depends on whether the prince is trying to witness the whole shoe fitting process.
+
+[00:48:18] I think what happens is that the prince walks around with a shoe and he tries to put it directly onto people's feet, doesn't he? He like kneels down and they give them his feet. I see what you're saying because if they went into a dressing room and then, you know, quickly chopped off the toes and emerged. Mr. Hungly sisters took the shoe and said, I'm sure I will be able to fit into this. Just give me one second and they pop into the kitchen.
+
+[00:48:45] I'm out of a minute. Just picking the socks. go with it. I think I'll pick the red ones. Yeah, the grim version they also had, they stopped the sisters coming to the wedding by having pigeons peck out their eyes.
+
+[00:49:02] What? Yeah, so it was a lot more... Why are they not allowed to come to the wedding? The battle is lost at that point for the sisters. They're still screaming and agony from the toe thing. They'd ruin the vibe. I just don't send an invitation to the sisters. How about that? Invite them to the evening bit. But we all know the thing with the wedding is you can only have a certain number of guests and at one stage you have to draw the line and everyone else gets their eyes packed out.
+
+[00:49:29] Okay, that's it. That's all of our facts. Thank you so much for listening. If you'd like to get in contact with any of us about the things that we've said over the course of this podcast, we can be found on our Twitter accounts. I'm on at Schreiberland, Andy, at Andrew Hunter, M, James, at James Harkin. And Chisinski. You can email podcast at q.com. Yep, or you can go to our group account, which is at no such thing, or our website. No such thing is a fish.com. We have everything up there from all of our previous episodes to links to buying our books. And there's also our behind the scenes documentary, behind the gills. Check that out. Okay, we'll be back again next week with another episode. We'll see you then. Goodbye.
+
+[00:50:14] Do you know how the eels feed themselves on the 3,000 mile journey back to the Suggas. They keep themselves going by consuming their own bones. So their spine loses 65% of its volume and the skull loses 50% of its volume. and they break down these bone cells called osteocytes and they use them to get the minerals and the nutrients they need. Okay, because they do look, yeah, they lose all their teeth
+
+[00:50:37] and their stomach and their digestive system, so I suppose they just have to devour their bones. That would be like if we were born as adults and ended as a baby. A baby isn't an adult without bones, and you've got a child. No, no, but I'm talking. They have more bones than adults.
+
+[00:50:52] So it's not like that. It's not being born as a baby and ending as an adult. Well, it's good to know which way, That is.
