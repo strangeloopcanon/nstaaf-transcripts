@@ -17,7 +17,7 @@ The old one-off notebook and raw artifacts are left in place for reference, but 
 - `data/source_urls.csv`: discovered episode URLs
 - `data/episodes/`: structured episode JSON
 - `corpus/`: GitHub-friendly markdown transcripts
-- `site_docs/`: generated MkDocs source for the public transcript site
+- `site_docs/`: generated MkDocs source for the public transcript site (created by `nstaaf export-site` when needed)
 - `data/html/`: downloaded raw HTML
 - `data/index/`: FAISS index + metadata
 - `site_assets/`: tracked CSS/JS copied into the generated site docs
@@ -92,6 +92,8 @@ npx -y pagefind@1.4.0 --site site
 python -m http.server 8000 -d site
 ```
 
+`site_docs/` and `site/` are generated build artifacts. They may be absent in a lean local checkout until you run the export/build commands above.
+
 ## GitHub-Friendly Setup
 
 If you turn this into a repo later, the easiest thing to commit is:
@@ -111,5 +113,7 @@ The public site path is intentionally separate from the local semantic search ap
 - MkDocs renders that into `site/`
 - Pagefind adds static keyword search to the built HTML
 - GitHub Actions republishes the site on pushes to `main`, on manual runs, and on the weekly refresh schedule via `.github/workflows/pages.yml`
+
+Both `site_docs/` and `site/` are safe to delete locally after a build if you want to keep the workspace lean. They are regenerated from committed source files.
 
 The Pages site is keyword search only. The local FAISS/OpenAI workflow remains available if you want semantic search privately.
