@@ -156,9 +156,10 @@ def refresh_corpus(
         html_path = settings.html_dir / f"{listing.slug}.html"
         episode_path = settings.episodes_dir / f"{listing.slug}.json"
         transcript_path = settings.transcripts_dir / f"{listing.slug}.md"
-        existed = html_path.exists()
-        if existed and episode_path.exists() and transcript_path.exists() and not force_download:
-            return True, listing.slug
+        outputs_exist = episode_path.exists() and transcript_path.exists()
+        html_exists = html_path.exists()
+        if outputs_exist and not force_download:
+            return False, listing.slug
         html = download_episode_html(
             settings,
             listing,
@@ -167,15 +168,15 @@ def refresh_corpus(
         )
         document = parse_episode_html(html, listing.slug, listing.url)
         write_episode_outputs(settings, document)
-        return existed, listing.slug
+        return (force_download or not html_exists), listing.slug
 
     downloaded = 0
     extracted = 0
     with ThreadPoolExecutor(max_workers=max(1, settings.download_workers)) as executor:
         futures = [executor.submit(refresh_one, listing) for listing in episodes]
         for future in as_completed(futures):
-            existed, _slug = future.result()
-            if not existed or force_download:
+            downloaded_now, _slug = future.result()
+            if downloaded_now:
                 downloaded += 1
             extracted += 1
 
