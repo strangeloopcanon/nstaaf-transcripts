@@ -38,6 +38,7 @@ class Settings:
     request_timeout_seconds: int
     user_agent: str
     embedding_model: str
+    snippet_model: str
     embedding_batch_size: int
     max_chunk_words: int
     download_workers: int
@@ -78,6 +79,7 @@ def get_settings() -> Settings:
             "NSTAAF transcript refresh/1.0 (+local use)",
         ),
         embedding_model=os.getenv("NSTAAF_EMBEDDING_MODEL", "text-embedding-3-small"),
+        snippet_model=os.getenv("NSTAAF_SNIPPET_MODEL", "gpt-4.1-mini"),
         embedding_batch_size=int(os.getenv("NSTAAF_EMBEDDING_BATCH_SIZE", "64")),
         max_chunk_words=int(os.getenv("NSTAAF_MAX_CHUNK_WORDS", "180")),
         download_workers=int(os.getenv("NSTAAF_DOWNLOAD_WORKERS", "1")),

@@ -66,16 +66,40 @@ Search from the terminal:
 nstaaf search "mexico avocado" --top-k 5
 ```
 
+Generate a few grounded supporting quotes from the semantic hits:
+
+```bash
+nstaaf snippets "mexico avocado" --top-k 8 --max-snippets 3
+```
+
+Ask for 1-3 synthesized facts grounded in the retrieved transcript evidence:
+
+```bash
+nstaaf facts "roman revolution" --top-k 12 --max-facts 3
+```
+
 Check project status:
 
 ```bash
 nstaaf status
 ```
 
-Run the local web UI:
+Launch the local search UI:
+
+```bash
+nstaaf ui
+```
+
+Run the local web UI directly:
 
 ```bash
 streamlit run /Users/rohit/Documents/Workspace/Coding/NSTAAF/streamlit_app.py
+```
+
+Use the versioned launcher script:
+
+```bash
+./scripts/launch_local_ui.command
 ```
 
 Export the GitHub Pages source tree:
@@ -117,3 +141,19 @@ The public site path is intentionally separate from the local semantic search ap
 Both `site_docs/` and `site/` are safe to delete locally after a build if you want to keep the workspace lean. They are regenerated from committed source files.
 
 The Pages site is keyword search only. The local FAISS/OpenAI workflow remains available if you want semantic search privately.
+The new `nstaaf snippets ...` and `nstaaf facts ...` flows are also local-only for now: they retrieve semantic hits, then use an LLM either to pick grounded snippets or synthesize a few grounded facts with citations so you can test the experience before deciding whether it belongs in a public product.
+
+## Local Answer UI
+
+The local Streamlit app is now answer-first:
+
+- `Synthesized facts` is the default answer style and gives you 1-3 grounded claims with citations.
+- `Supporting quotes` gives you the best transcript excerpts without trying to summarize them.
+- `Raw search only` skips the LLM layer and just shows the retrieved transcript chunks.
+
+The current local defaults are:
+
+- embeddings: `text-embedding-3-small`
+- answer model: `gpt-4.1-mini`
+
+If you want to swap the answer model locally, set `NSTAAF_SNIPPET_MODEL` in your `.env`.
