@@ -53,6 +53,25 @@ jobs:
           nstaaf discover
           nstaaf refresh
 
+      - name: Install ASR audio tools
+        if: github.event_name != 'push'
+        run: |
+          sudo apt-get update
+          sudo apt-get install -y ffmpeg
+
+      - name: Backfill current RSS gaps from official audio
+        if: github.event_name != 'push'
+        env:
+          OPENAI_API_KEY: ${{ secrets.OPENAI_API_KEY }}
+          NSTAAF_REQUEST_TIMEOUT_SECONDS: "30"
+        run: |
+          if [ -z "$OPENAI_API_KEY" ]; then
+            echo "OPENAI_API_KEY secret is not set; skipping ASR backfill."
+            exit 0
+          fi
+
+          nstaaf backfill-asr
+
       - name: Export static site source
         run: nstaaf export-site
 

@@ -145,8 +145,10 @@ The public site path is intentionally separate from the local semantic search ap
 - MkDocs renders that into `site/`
 - Pagefind adds static keyword search to the built HTML
 - GitHub Actions republishes the site on pushes to `main`, on manual runs, and on the weekly refresh schedule via `.github/workflows/pages.yml`
-- Each refresh also checks the official podcast RSS feed against the newest available PodScripts transcript and shows a freshness warning on the public site if the transcript source is behind the live podcast.
-- If the official RSS has episodes newer than the newest local transcript, `data/gap_episodes.json` and the public "Current gaps" page list those episodes with official Audioboom links. The local archive does not copy transcript text from sources it cannot ingest and store directly.
+- Weekly/manual refreshes first take any newly available PodScripts transcript pages, then backfill remaining RSS gaps from official episode audio with `nstaaf backfill-asr` when the repo has an `OPENAI_API_KEY` secret.
+- Each refresh also checks the official podcast RSS feed against the newest local transcript and shows a freshness warning on the public site if the archive is behind the live podcast.
+- If the official RSS has episodes newer than the newest local transcript, `data/gap_episodes.json` and the public "Current gaps" page list those episodes with official Audioboom links.
+- The full committed content repo is the local/searchable corpus: `data/episodes/` contains structured JSON, and `corpus/` contains GitHub-friendly Markdown for every transcript page. Raw audio downloads, chunked audio, raw HTML, indexes, `site_docs/`, and `site/` are local/generated artifacts and are ignored.
 
 Both `site_docs/` and `site/` are safe to delete locally after a build if you want to keep the workspace lean. They are regenerated from committed source files.
 
