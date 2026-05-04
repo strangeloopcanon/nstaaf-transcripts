@@ -38,7 +38,6 @@ class Settings:
     manifest_path: Path
     base_listing_url: str
     podcast_feed_url: str
-    tapesearch_search_url: str
     request_timeout_seconds: int
     user_agent: str
     embedding_model: str
@@ -82,10 +81,6 @@ def get_settings() -> Settings:
         podcast_feed_url=os.getenv(
             "NSTAAF_PODCAST_FEED_URL",
             "https://audioboom.com/channels/2399216.rss",
-        ),
-        tapesearch_search_url=os.getenv(
-            "NSTAAF_TAPESEARCH_SEARCH_URL",
-            "https://www.tapesearch.com/search",
         ),
         request_timeout_seconds=int(os.getenv("NSTAAF_REQUEST_TIMEOUT_SECONDS", "30")),
         user_agent=os.getenv(

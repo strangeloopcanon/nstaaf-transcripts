@@ -2,19 +2,9 @@ from __future__ import annotations
 
 import json
 from datetime import datetime, timezone
-from urllib.parse import urlencode
 
 from nstaaf.config import Settings
 from nstaaf.freshness import fetch_podcast_episodes, latest_transcript_document
-
-
-def tapesearch_query(title: str) -> str:
-    escaped = title.replace("\\", "\\\\").replace('"', '\\"')
-    return f'"No Such Thing As A Fish" AND "{escaped}"'
-
-
-def tapesearch_search_link(settings: Settings, title: str) -> str:
-    return f"{settings.tapesearch_search_url}?{urlencode({'query': tapesearch_query(title)})}"
 
 
 def build_gap_episodes(settings: Settings, documents: list[dict]) -> dict:
@@ -24,8 +14,6 @@ def build_gap_episodes(settings: Settings, documents: list[dict]) -> dict:
         "generated_at": datetime.now(timezone.utc).isoformat(),
         "latest_local_transcript": None,
         "podcast_feed_url": settings.podcast_feed_url,
-        "external_transcript_source": "Tapesearch",
-        "external_transcript_source_url": settings.tapesearch_search_url,
         "episodes": [],
         "error": None,
     }
@@ -58,7 +46,6 @@ def build_gap_episodes(settings: Settings, documents: list[dict]) -> dict:
                 "published_at": episode.published_at,
                 "published_date": episode.published_date,
                 "podcast_url": episode.url,
-                "tapesearch_url": tapesearch_search_link(settings, episode.title),
             }
         )
     payload["episodes"] = gap

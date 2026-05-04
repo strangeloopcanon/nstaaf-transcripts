@@ -3,8 +3,7 @@ from __future__ import annotations
 import unittest
 
 from nstaaf.freshness import parse_feed_datetime
-from nstaaf.gaps import tapesearch_query
-from nstaaf.site_export import render_freshness_notice
+from nstaaf.site_export import render_freshness_notice, render_gap_page, render_gap_summary
 
 
 class FreshnessTests(unittest.TestCase):
@@ -39,13 +38,29 @@ class FreshnessTests(unittest.TestCase):
         self.assertIn("January 18, 2026", notice)
         self.assertIn("105 days", notice)
 
-    def test_tapesearch_query_targets_show_and_episode_title(self) -> None:
-        query = tapesearch_query("No Such Thing As Imaginary Flumps")
+    def test_gap_rendering_uses_official_links_without_external_transcript_fallback(self) -> None:
+        gaps = {
+            "latest_local_transcript": {
+                "title": "No Such Thing As A Fish - Little Fish: Not Sponsored By Reba McEntire",
+                "date": "January 18, 2026",
+            },
+            "episodes": [
+                {
+                    "title": "No Such Thing As Imaginary Flumps",
+                    "published_date": "2026-04-24",
+                    "podcast_url": "https://audioboom.com/posts/123",
+                }
+            ],
+            "error": None,
+        }
 
-        self.assertEqual(
-            query,
-            '"No Such Thing As A Fish" AND "No Such Thing As Imaginary Flumps"',
-        )
+        summary = "\n".join(render_gap_summary(gaps))
+        page = render_gap_page(gaps)
+
+        self.assertIn("[No Such Thing As Imaginary Flumps](https://audioboom.com/posts/123)", summary)
+        self.assertIn("[Official episode](https://audioboom.com/posts/123)", page)
+        self.assertNotIn("external transcript fallback", summary)
+        self.assertNotIn("external transcript fallback", page)
 
 
 if __name__ == "__main__":

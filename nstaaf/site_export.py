@@ -107,16 +107,17 @@ def render_gap_summary(gaps: dict[str, Any] | None, limit: int = 8) -> list[str]
         "",
         (
             f"PodScripts is missing **{len(episodes)}** newer episode"
-            f"{'s' if len(episodes) != 1 else ''}. These episodes are linked to Tapesearch searches as an external transcript fallback."
+            f"{'s' if len(episodes) != 1 else ''}. These are official RSS episodes that do not yet have local transcript pages in this archive."
         ),
         "",
     ]
     for episode in episodes[:limit]:
         date_text = format_iso_date(episode.get("published_date"))
-        lines.append(
-            f"- [{episode['title']}]({episode['tapesearch_url']})"
-            f" - {date_text} - external Tapesearch search"
-        )
+        if episode.get("podcast_url"):
+            title = f"[{episode['title']}]({episode['podcast_url']})"
+        else:
+            title = episode["title"]
+        lines.append(f"- {title} - {date_text} - official RSS episode")
     if len(episodes) > limit:
         lines.append(f"- [See all {len(episodes)} gap episodes](gap-episodes.md)")
     lines.append("")
@@ -255,7 +256,7 @@ def render_gap_page(gaps: dict[str, Any] | None) -> str:
     lines = [
         "# Current Gap Episodes",
         "",
-        "These are official RSS episodes newer than the newest local PodScripts transcript. They are not copied into this archive because the local corpus only stores transcript pages we can ingest directly. Tapesearch is linked as an external fallback for finding generated transcripts.",
+        "These are official RSS episodes newer than the newest local PodScripts transcript. They are not copied into this archive because the local corpus only stores transcript pages we can ingest directly.",
         "",
     ]
 
@@ -304,10 +305,11 @@ def render_gap_page(gaps: dict[str, Any] | None) -> str:
     )
     for episode in episodes:
         date_text = format_iso_date(episode.get("published_date"))
-        links = [f"[Tapesearch]({episode['tapesearch_url']})"]
+        links = []
         if episode.get("podcast_url"):
             links.append(f"[Official episode]({episode['podcast_url']})")
-        lines.append(f"- **{date_text}** - {episode['title']} - {' | '.join(links)}")
+        suffix = f" - {' | '.join(links)}" if links else ""
+        lines.append(f"- **{date_text}** - {episode['title']}{suffix}")
     lines.append("")
     return "\n".join(lines)
 
