@@ -9,6 +9,7 @@ from typing import Any
 from nstaaf.config import Settings
 from nstaaf.corpus import load_episode_documents
 from nstaaf.freshness import read_freshness_status
+from nstaaf.gaps import read_gap_episodes
 
 
 RECENT_EPISODE_COUNT = 12
@@ -94,7 +95,39 @@ def render_freshness_notice(freshness: dict[str, Any] | None) -> list[str]:
     return []
 
 
-def render_homepage(documents: list[dict[str, Any]], freshness: dict[str, Any] | None = None) -> str:
+def render_gap_summary(gaps: dict[str, Any] | None, limit: int = 8) -> list[str]:
+    if not gaps or gaps.get("error"):
+        return []
+    episodes = gaps.get("episodes") or []
+    if not episodes:
+        return []
+
+    lines = [
+        "## Current Episodes Without Local Transcripts",
+        "",
+        (
+            f"PodScripts is missing **{len(episodes)}** newer episode"
+            f"{'s' if len(episodes) != 1 else ''}. These episodes are linked to Tapesearch searches as an external transcript fallback."
+        ),
+        "",
+    ]
+    for episode in episodes[:limit]:
+        date_text = format_iso_date(episode.get("published_date"))
+        lines.append(
+            f"- [{episode['title']}]({episode['tapesearch_url']})"
+            f" - {date_text} - external Tapesearch search"
+        )
+    if len(episodes) > limit:
+        lines.append(f"- [See all {len(episodes)} gap episodes](gap-episodes.md)")
+    lines.append("")
+    return lines
+
+
+def render_homepage(
+    documents: list[dict[str, Any]],
+    freshness: dict[str, Any] | None = None,
+    gaps: dict[str, Any] | None = None,
+) -> str:
     recent = sorted(documents, key=sort_key, reverse=True)[:RECENT_EPISODE_COUNT]
     latest = recent[0] if recent else None
 
@@ -123,6 +156,8 @@ def render_homepage(documents: list[dict[str, Any]], freshness: dict[str, Any] |
                 "",
             ]
         )
+
+    lines.extend(render_gap_summary(gaps))
 
     for document in recent:
         date_text = document.get("episode_date") or "Unknown date"
@@ -216,6 +251,67 @@ def render_about_page(documents: list[dict[str, Any]], freshness: dict[str, Any]
     return "\n".join(lines) + "\n"
 
 
+def render_gap_page(gaps: dict[str, Any] | None) -> str:
+    lines = [
+        "# Current Gap Episodes",
+        "",
+        "These are official RSS episodes newer than the newest local PodScripts transcript. They are not copied into this archive because the local corpus only stores transcript pages we can ingest directly. Tapesearch is linked as an external fallback for finding generated transcripts.",
+        "",
+    ]
+
+    if not gaps:
+        lines.extend(
+            [
+                "No gap snapshot has been generated yet. Run `nstaaf refresh` to compare the official RSS feed with the local transcript corpus.",
+                "",
+            ]
+        )
+        return "\n".join(lines)
+
+    if gaps.get("error"):
+        lines.extend(
+            [
+                "The latest gap check failed.",
+                "",
+                f"- Error: `{gaps['error']}`",
+                "",
+            ]
+        )
+        return "\n".join(lines)
+
+    latest = gaps.get("latest_local_transcript") or {}
+    episodes = gaps.get("episodes") or []
+    if latest:
+        lines.append(
+            f"Newest local transcript: **{latest.get('title')}** from **{latest.get('date')}**."
+        )
+        lines.append("")
+
+    if not episodes:
+        lines.extend(
+            [
+                "There are no official RSS episodes newer than the newest local transcript.",
+                "",
+            ]
+        )
+        return "\n".join(lines)
+
+    lines.extend(
+        [
+            f"Gap episodes: **{len(episodes)}**",
+            "",
+        ]
+    )
+    for episode in episodes:
+        date_text = format_iso_date(episode.get("published_date"))
+        links = [f"[Tapesearch]({episode['tapesearch_url']})"]
+        if episode.get("podcast_url"):
+            links.append(f"[Official episode]({episode['podcast_url']})")
+        lines.append(f"- **{date_text}** - {episode['title']} - {' | '.join(links)}")
+    lines.append("")
+    return "\n".join(lines)
+
+
 def render_404_page() -> str:
     return "\n".join(
         [
@@ -292,6 +388,7 @@ def export_site(settings: Settings) -> dict[str, Any]:
     settings.ensure_directories()
     documents = sorted(load_episode_documents(settings), key=sort_key, reverse=True)
     freshness = read_freshness_status(settings)
+    gaps = read_gap_episodes(settings)
     if not documents:
         raise RuntimeError("No extracted episodes found. Run `nstaaf refresh` before exporting the site.")
 
@@ -302,8 +399,9 @@ def export_site(settings: Settings) -> dict[str, Any]:
 
     copy_site_assets(settings)
 
-    (settings.site_docs_dir / "index.md").write_text(render_homepage(documents, freshness), encoding="utf-8")
+    (settings.site_docs_dir / "index.md").write_text(render_homepage(documents, freshness, gaps), encoding="utf-8")
     (settings.site_docs_dir / "about.md").write_text(render_about_page(documents, freshness), encoding="utf-8")
+    (settings.site_docs_dir / "gap-episodes.md").write_text(render_gap_page(gaps), encoding="utf-8")
     (settings.site_docs_dir / "404.md").write_text(render_404_page(), encoding="utf-8")
     (settings.site_docs_dir / "episodes" / "index.md").write_text(
         render_episode_index(documents),
@@ -317,9 +415,10 @@ def export_site(settings: Settings) -> dict[str, Any]:
     latest = documents[0]
     return {
         "site_docs_dir": str(settings.site_docs_dir),
-        "page_count": len(documents) + 4,
+        "page_count": len(documents) + 5,
         "episode_count": len(documents),
         "latest_episode_title": latest["title"],
         "latest_episode_date": latest.get("episode_date"),
         "freshness": freshness,
+        "gap_episode_count": len((gaps or {}).get("episodes") or []),
     }

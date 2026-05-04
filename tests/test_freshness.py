@@ -3,6 +3,7 @@ from __future__ import annotations
 import unittest
 
 from nstaaf.freshness import parse_feed_datetime
+from nstaaf.gaps import tapesearch_query
 from nstaaf.site_export import render_freshness_notice
 
 
@@ -37,6 +38,14 @@ class FreshnessTests(unittest.TestCase):
         self.assertIn("May 3, 2026", notice)
         self.assertIn("January 18, 2026", notice)
         self.assertIn("105 days", notice)
+
+    def test_tapesearch_query_targets_show_and_episode_title(self) -> None:
+        query = tapesearch_query("No Such Thing As Imaginary Flumps")
+
+        self.assertEqual(
+            query,
+            '"No Such Thing As A Fish" AND "No Such Thing As Imaginary Flumps"',
+        )
 
 
 if __name__ == "__main__":

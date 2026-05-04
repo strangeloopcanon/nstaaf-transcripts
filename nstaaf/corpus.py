@@ -14,6 +14,7 @@ import requests
 from nstaaf.config import Settings
 from nstaaf.discovery import EpisodeListing, build_session, discover_episode_listings, read_source_urls, write_source_urls
 from nstaaf.freshness import write_freshness_status
+from nstaaf.gaps import write_gap_episodes
 
 THREAD_LOCAL = threading.local()
 
@@ -181,13 +182,15 @@ def refresh_corpus(
                 downloaded += 1
             extracted += 1
 
+    documents = load_episode_documents(settings)
     return {
         "source_count": len(read_source_urls(settings)),
         "processed_count": extracted,
         "downloaded_count": downloaded,
         "episodes_dir": str(settings.episodes_dir),
         "transcripts_dir": str(settings.transcripts_dir),
-        "freshness": write_freshness_status(settings, load_episode_documents(settings)),
+        "freshness": write_freshness_status(settings, documents),
+        "gap_episodes": write_gap_episodes(settings, documents),
     }
 
 

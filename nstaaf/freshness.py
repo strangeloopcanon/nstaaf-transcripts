@@ -32,22 +32,33 @@ def parse_feed_datetime(raw_value: str | None) -> tuple[str | None, str | None]:
 
 
 def fetch_latest_podcast_episode(settings: Settings) -> PodcastFeedEpisode:
+    episodes = fetch_podcast_episodes(settings)
+    if not episodes:
+        raise RuntimeError("Podcast RSS feed did not contain any episodes.")
+    return episodes[0]
+
+
+def fetch_podcast_episodes(settings: Settings) -> list[PodcastFeedEpisode]:
     session = build_session(settings)
     response = session.get(settings.podcast_feed_url, timeout=settings.request_timeout_seconds)
     response.raise_for_status()
     root = ET.fromstring(response.content)
     channel = root.find("channel")
-    item = channel.find("item") if channel is not None else None
-    if item is None:
-        raise RuntimeError("Podcast RSS feed did not contain any episodes.")
+    if channel is None:
+        return []
 
-    published_at, published_date = parse_feed_datetime(item.findtext("pubDate"))
-    return PodcastFeedEpisode(
-        title=(item.findtext("title") or "").strip(),
-        published_at=published_at,
-        published_date=published_date,
-        url=(item.findtext("link") or "").strip() or None,
-    )
+    episodes: list[PodcastFeedEpisode] = []
+    for item in channel.findall("item"):
+        published_at, published_date = parse_feed_datetime(item.findtext("pubDate"))
+        episodes.append(
+            PodcastFeedEpisode(
+                title=(item.findtext("title") or "").strip(),
+                published_at=published_at,
+                published_date=published_date,
+                url=(item.findtext("link") or "").strip() or None,
+            )
+        )
+    return episodes
 
 
 def latest_transcript_document(documents: list[dict]) -> dict | None:

@@ -32,11 +32,13 @@ class Settings:
     index_dir: Path
     source_urls_path: Path
     freshness_status_path: Path
+    gap_episodes_path: Path
     index_path: Path
     metadata_path: Path
     manifest_path: Path
     base_listing_url: str
     podcast_feed_url: str
+    tapesearch_search_url: str
     request_timeout_seconds: int
     user_agent: str
     embedding_model: str
@@ -72,6 +74,7 @@ def get_settings() -> Settings:
         index_dir=data_dir / "index",
         source_urls_path=data_dir / "source_urls.csv",
         freshness_status_path=data_dir / "freshness_status.json",
+        gap_episodes_path=data_dir / "gap_episodes.json",
         index_path=data_dir / "index" / "faiss.index",
         metadata_path=data_dir / "index" / "metadata.jsonl",
         manifest_path=data_dir / "index" / "manifest.json",
@@ -79,6 +82,10 @@ def get_settings() -> Settings:
         podcast_feed_url=os.getenv(
             "NSTAAF_PODCAST_FEED_URL",
             "https://audioboom.com/channels/2399216.rss",
+        ),
+        tapesearch_search_url=os.getenv(
+            "NSTAAF_TAPESEARCH_SEARCH_URL",
+            "https://www.tapesearch.com/search",
         ),
         request_timeout_seconds=int(os.getenv("NSTAAF_REQUEST_TIMEOUT_SECONDS", "30")),
         user_agent=os.getenv(
