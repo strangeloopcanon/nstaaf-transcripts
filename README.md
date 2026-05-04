@@ -54,7 +54,7 @@ Backfill current RSS gaps from official episode audio when PodScripts has not pu
 nstaaf backfill-asr
 ```
 
-This requires `OPENAI_API_KEY` and `ffmpeg`. It writes clearly labeled machine-generated transcripts into `data/episodes/` and `corpus/`, using ignored audio caches under `data/audio/` and `data/audio_chunks/`. Later `nstaaf refresh` runs replace a generated transcript with the PodScripts version if a matching PodScripts page appears.
+This requires `OPENAI_API_KEY` and `ffmpeg`. It writes clearly labeled machine-generated transcripts into `data/episodes/` and `corpus/`, then deletes the downloaded audio and audio chunks after each successful transcript write. Use `--keep-audio-cache` only when debugging a transcription run. Later `nstaaf refresh` runs replace a generated transcript with the PodScripts version if a matching PodScripts page appears.
 
 Rebuild the embedding index:
 
@@ -148,7 +148,7 @@ The public site path is intentionally separate from the local semantic search ap
 - Weekly/manual refreshes first take any newly available PodScripts transcript pages, then backfill remaining RSS gaps from official episode audio with `nstaaf backfill-asr` when the repo has an `OPENAI_API_KEY` secret.
 - Each refresh also checks the official podcast RSS feed against the newest local transcript and shows a freshness warning on the public site if the archive is behind the live podcast.
 - If the official RSS has episodes newer than the newest local transcript, `data/gap_episodes.json` and the public "Current gaps" page list those episodes with official Audioboom links.
-- The full committed content repo is the local/searchable corpus: `data/episodes/` contains structured JSON, and `corpus/` contains GitHub-friendly Markdown for every transcript page. Raw audio downloads, chunked audio, raw HTML, indexes, `site_docs/`, and `site/` are local/generated artifacts and are ignored.
+- The full committed content repo is the local/searchable corpus: `data/episodes/` contains structured JSON, and `corpus/` contains GitHub-friendly Markdown for every transcript page. Raw audio downloads and chunks are deleted after successful ASR runs; raw HTML, indexes, `site_docs/`, and `site/` are local/generated artifacts and are ignored.
 
 Both `site_docs/` and `site/` are safe to delete locally after a build if you want to keep the workspace lean. They are regenerated from committed source files.
 

@@ -63,6 +63,19 @@ def audio_extension(audio_url: str) -> str:
     return ".mp3"
 
 
+def cleanup_audio_artifacts(settings: Settings, episode: dict[str, Any]) -> None:
+    audio_url = episode.get("audio_url")
+    if not audio_url:
+        return
+    slug = slugify_title(episode["title"])
+    audio_path = settings.audio_dir / f"{slug}{audio_extension(audio_url)}"
+    chunk_dir = settings.audio_chunks_dir / slug
+    if audio_path.exists():
+        audio_path.unlink()
+    if chunk_dir.exists():
+        shutil.rmtree(chunk_dir)
+
+
 def download_audio(settings: Settings, episode: dict[str, Any], *, force: bool = False) -> Path:
     audio_url = episode.get("audio_url")
     if not audio_url:
@@ -236,6 +249,7 @@ def backfill_asr_transcripts(
     model: str | None = None,
     force: bool = False,
     dry_run: bool = False,
+    keep_audio_cache: bool = False,
 ) -> dict[str, Any]:
     if not settings.openai_api_key and not dry_run:
         raise RuntimeError("OPENAI_API_KEY is required to run ASR backfill.")
@@ -258,6 +272,7 @@ def backfill_asr_transcripts(
         "selected_count": len(episodes),
         "written_count": 0,
         "skipped_count": 0,
+        "kept_audio_cache": keep_audio_cache,
         "episodes": [],
     }
 
@@ -280,12 +295,16 @@ def backfill_asr_transcripts(
         episode_path = settings.episodes_dir / f"{slug}.json"
         transcript_path = settings.transcripts_dir / f"{slug}.md"
         if episode_path.exists() and transcript_path.exists() and not force:
+            if not keep_audio_cache:
+                cleanup_audio_artifacts(settings, episode)
             payload["skipped_count"] += 1
             payload["episodes"].append({"title": episode["title"], "slug": slug, "status": "skipped"})
             continue
 
         document = transcribe_episode(settings, episode, client=client, model=selected_model, force=force)
         write_episode_outputs(settings, document)
+        if not keep_audio_cache:
+            cleanup_audio_artifacts(settings, episode)
         payload["written_count"] += 1
         payload["episodes"].append(
             {

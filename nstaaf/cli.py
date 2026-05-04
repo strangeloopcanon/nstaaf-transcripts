@@ -66,6 +66,11 @@ def build_parser() -> argparse.ArgumentParser:
     asr_parser.add_argument("--model", default=None)
     asr_parser.add_argument("--force", action="store_true")
     asr_parser.add_argument("--dry-run", action="store_true")
+    asr_parser.add_argument(
+        "--keep-audio-cache",
+        action="store_true",
+        help="Keep downloaded and chunked audio files after writing transcripts.",
+    )
 
     search_parser = subparsers.add_parser("search", help="Search the local transcript index.")
     search_parser.add_argument("query")
@@ -145,6 +150,7 @@ def main() -> None:
                 model=args.model,
                 force=args.force,
                 dry_run=args.dry_run,
+                keep_audio_cache=args.keep_audio_cache,
             )
         )
         return
