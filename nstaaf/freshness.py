@@ -16,6 +16,7 @@ class PodcastFeedEpisode:
     published_at: str | None
     published_date: str | None
     url: str | None
+    audio_url: str | None
 
 
 def parse_feed_datetime(raw_value: str | None) -> tuple[str | None, str | None]:
@@ -50,12 +51,14 @@ def fetch_podcast_episodes(settings: Settings) -> list[PodcastFeedEpisode]:
     episodes: list[PodcastFeedEpisode] = []
     for item in channel.findall("item"):
         published_at, published_date = parse_feed_datetime(item.findtext("pubDate"))
+        enclosure = item.find("enclosure")
         episodes.append(
             PodcastFeedEpisode(
                 title=(item.findtext("title") or "").strip(),
                 published_at=published_at,
                 published_date=published_date,
                 url=(item.findtext("link") or "").strip() or None,
+                audio_url=enclosure.get("url") if enclosure is not None else None,
             )
         )
     return episodes

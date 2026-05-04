@@ -7,6 +7,8 @@ __pycache__/
 # Generated download/index artifacts.
 /data/html/
 /data/index/
+/data/audio/
+/data/audio_chunks/
 /site/
 /site_docs/
 

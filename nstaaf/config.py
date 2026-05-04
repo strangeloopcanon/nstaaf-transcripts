@@ -26,6 +26,8 @@ class Settings:
     project_root: Path
     data_dir: Path
     html_dir: Path
+    audio_dir: Path
+    audio_chunks_dir: Path
     episodes_dir: Path
     transcripts_dir: Path
     site_docs_dir: Path
@@ -42,6 +44,9 @@ class Settings:
     user_agent: str
     embedding_model: str
     snippet_model: str
+    asr_model: str
+    asr_chunk_seconds: int
+    asr_audio_bitrate: str
     embedding_batch_size: int
     max_chunk_words: int
     download_workers: int
@@ -52,6 +57,8 @@ class Settings:
         for path in (
             self.data_dir,
             self.html_dir,
+            self.audio_dir,
+            self.audio_chunks_dir,
             self.episodes_dir,
             self.transcripts_dir,
             self.site_docs_dir,
@@ -67,6 +74,8 @@ def get_settings() -> Settings:
         project_root=PROJECT_ROOT,
         data_dir=data_dir,
         html_dir=data_dir / "html",
+        audio_dir=data_dir / "audio",
+        audio_chunks_dir=data_dir / "audio_chunks",
         episodes_dir=data_dir / "episodes",
         transcripts_dir=PROJECT_ROOT / "corpus",
         site_docs_dir=PROJECT_ROOT / "site_docs",
@@ -89,6 +98,9 @@ def get_settings() -> Settings:
         ),
         embedding_model=os.getenv("NSTAAF_EMBEDDING_MODEL", "text-embedding-3-small"),
         snippet_model=os.getenv("NSTAAF_SNIPPET_MODEL", "gpt-4.1-mini"),
+        asr_model=os.getenv("NSTAAF_ASR_MODEL", "gpt-4o-mini-transcribe"),
+        asr_chunk_seconds=int(os.getenv("NSTAAF_ASR_CHUNK_SECONDS", "420")),
+        asr_audio_bitrate=os.getenv("NSTAAF_ASR_AUDIO_BITRATE", "48k"),
         embedding_batch_size=int(os.getenv("NSTAAF_EMBEDDING_BATCH_SIZE", "64")),
         max_chunk_words=int(os.getenv("NSTAAF_MAX_CHUNK_WORDS", "180")),
         download_workers=int(os.getenv("NSTAAF_DOWNLOAD_WORKERS", "1")),

@@ -10,6 +10,7 @@ import time
 import webbrowser
 
 from nstaaf.config import get_settings
+from nstaaf.asr import backfill_asr_transcripts
 from nstaaf.corpus import refresh_corpus, status_snapshot
 from nstaaf.discovery import discover_episode_listings, write_source_urls
 from nstaaf.indexing import build_index, search_index
@@ -56,6 +57,15 @@ def build_parser() -> argparse.ArgumentParser:
     rebuild_parser.add_argument("--max-pages", type=int, default=None)
     rebuild_parser.add_argument("--limit", type=int, default=None)
     rebuild_parser.add_argument("--force-download", action="store_true")
+
+    asr_parser = subparsers.add_parser(
+        "backfill-asr",
+        help="Generate missing local transcripts from official RSS audio with OpenAI ASR.",
+    )
+    asr_parser.add_argument("--limit", type=int, default=None)
+    asr_parser.add_argument("--model", default=None)
+    asr_parser.add_argument("--force", action="store_true")
+    asr_parser.add_argument("--dry-run", action="store_true")
 
     search_parser = subparsers.add_parser("search", help="Search the local transcript index.")
     search_parser.add_argument("query")
@@ -125,6 +135,18 @@ def main() -> None:
         )
         index_payload = build_index(settings, limit=args.limit)
         print_json({"refresh": refresh_payload, "index": index_payload})
+        return
+
+    if args.command == "backfill-asr":
+        print_json(
+            backfill_asr_transcripts(
+                settings,
+                limit=args.limit,
+                model=args.model,
+                force=args.force,
+                dry_run=args.dry_run,
+            )
+        )
         return
 
     if args.command == "search":

@@ -46,6 +46,7 @@ def build_gap_episodes(settings: Settings, documents: list[dict]) -> dict:
                 "published_at": episode.published_at,
                 "published_date": episode.published_date,
                 "podcast_url": episode.url,
+                "audio_url": episode.audio_url,
             }
         )
     payload["episodes"] = gap

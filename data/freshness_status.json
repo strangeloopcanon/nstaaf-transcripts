@@ -1,21 +1,22 @@
 {
-  "generated_at": "2026-05-04T18:33:01.340365+00:00",
+  "generated_at": "2026-05-04T19:27:38.545802+00:00",
   "transcript_source_url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish",
   "podcast_feed_url": "https://audioboom.com/channels/2399216.rss",
   "latest_transcript": {
-    "title": "No Such Thing As A Fish - Little Fish: Not Sponsored By Reba McEntire",
-    "date": "January 18, 2026",
-    "date_iso": "2026-01-18",
-    "url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish/little-fish-not-sponsored-by-reba-mcentire",
-    "slug": "little-fish-not-sponsored-by-reba-mcentire"
+    "title": "No Such Thing As A Fish - Little Fish: You've Hit The Nail On the Head",
+    "date": "May 3, 2026",
+    "date_iso": "2026-05-03",
+    "url": "https://audioboom.com/posts/8897439",
+    "slug": "little-fish-youve-hit-the-nail-on-the-head"
   },
   "latest_podcast_episode": {
     "title": "Little Fish: You've Hit The Nail On the Head",
     "published_at": "2026-05-03T22:58:00+00:00",
     "published_date": "2026-05-03",
-    "url": "https://audioboom.com/posts/8897439"
+    "url": "https://audioboom.com/posts/8897439",
+    "audio_url": "https://pdst.fm/e/arttrk.com/p/ABMA5/pscrb.fm/rss/p/prfx.byspotify.com/e/dts.podtrac.com/redirect.mp3/audioboom.com/posts/8897439.mp3?modified=1777551419&sid=2399216&source=rss"
   },
-  "is_transcript_source_lagging": true,
-  "lag_days": 105,
+  "is_transcript_source_lagging": false,
+  "lag_days": 0,
   "error": null
 }

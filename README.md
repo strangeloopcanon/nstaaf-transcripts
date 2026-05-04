@@ -48,6 +48,14 @@ Download and extract the corpus:
 nstaaf refresh
 ```
 
+Backfill current RSS gaps from official episode audio when PodScripts has not published transcript pages yet:
+
+```bash
+nstaaf backfill-asr
+```
+
+This requires `OPENAI_API_KEY` and `ffmpeg`. It writes clearly labeled machine-generated transcripts into `data/episodes/` and `corpus/`, using ignored audio caches under `data/audio/` and `data/audio_chunks/`. Later `nstaaf refresh` runs replace a generated transcript with the PodScripts version if a matching PodScripts page appears.
+
 Rebuild the embedding index:
 
 ```bash

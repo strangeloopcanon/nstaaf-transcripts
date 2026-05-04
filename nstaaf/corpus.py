@@ -78,6 +78,8 @@ def parse_episode_html(html: str, slug: str, url: str) -> dict[str, Any]:
         "slug": slug,
         "title": title,
         "url": url,
+        "source_type": "podscripts",
+        "transcript_source": "PodScripts",
         "episode_date": episode_date,
         "episode_date_iso": episode_date_iso,
         "segment_count": len(segments),
@@ -92,6 +94,10 @@ def render_transcript_markdown(document: dict[str, Any]) -> str:
     if document.get("episode_date"):
         lines.append(f"- Episode date: {document['episode_date']}")
     lines.append(f"- Source: {document['url']}")
+    if document.get("transcript_source"):
+        lines.append(f"- Transcript source: {document['transcript_source']}")
+    if document.get("quality_note"):
+        lines.append(f"- Note: {document['quality_note']}")
     lines.append(f"- Slug: {document['slug']}")
     lines.extend(["", "## Transcript", ""])
     for segment in document["segments"]:
@@ -160,7 +166,14 @@ def refresh_corpus(
         transcript_path = settings.transcripts_dir / f"{listing.slug}.md"
         outputs_exist = episode_path.exists() and transcript_path.exists()
         html_exists = html_path.exists()
-        if outputs_exist and not force_download:
+        has_generated_output = False
+        if episode_path.exists():
+            try:
+                existing_document = json.loads(episode_path.read_text(encoding="utf-8"))
+            except json.JSONDecodeError:
+                existing_document = {}
+            has_generated_output = existing_document.get("source_type") == "machine_generated_asr"
+        if outputs_exist and not force_download and not has_generated_output:
             return False, listing.slug
         html = download_episode_html(
             settings,

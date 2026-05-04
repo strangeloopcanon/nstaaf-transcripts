@@ -28,6 +28,12 @@ def sort_key(document: dict[str, Any]) -> tuple[str, str]:
     return (document.get("episode_date_iso") or "0000-00-00", document["title"].lower())
 
 
+def source_label(document: dict[str, Any]) -> str:
+    if document.get("source_type") == "machine_generated_asr":
+        return "Machine-generated transcript"
+    return "PodScripts transcript"
+
+
 def year_label(document: dict[str, Any]) -> str:
     if document.get("episode_date_iso"):
         return document["episode_date_iso"][:4]
@@ -79,7 +85,7 @@ def render_freshness_notice(freshness: dict[str, Any] | None) -> list[str]:
         lag_text = f" by {lag_days} day{'s' if lag_days != 1 else ''}" if lag_days is not None else ""
         return [
             '!!! warning "Transcript source is behind the podcast feed"',
-            f"    The official RSS feed's latest episode is **{podcast_title}** from **{podcast_date}**, but the newest PodScripts transcript in this archive is **{transcript_title}** from **{transcript_date}**. The transcript archive is lagging{lag_text} because the upstream transcript source has not published newer transcript pages yet.",
+            f"    The official RSS feed's latest episode is **{podcast_title}** from **{podcast_date}**, but the newest local transcript in this archive is **{transcript_title}** from **{transcript_date}**. The transcript archive is lagging{lag_text} because the upstream transcript source has not published newer transcript pages yet and no generated backfill is present.",
             "",
         ]
 
@@ -223,7 +229,7 @@ def render_about_page(documents: list[dict[str, Any]], freshness: dict[str, Any]
         "This is a static transcript archive for *No Such Thing As A Fish* and related *Little Fish* episodes.",
         "",
         "- Search is keyword-based, not semantic.",
-        "- Transcript text is rendered from PodScripts transcript pages without summarization or fact extraction.",
+        "- Transcript text is rendered from PodScripts transcript pages without summarization or fact extraction. When official transcript pages are missing, clearly labeled machine-generated transcripts may be backfilled from official RSS audio.",
         "- Freshness is checked against the official podcast RSS feed during each refresh.",
         f"- Current archive size: **{len(documents)}** episodes.",
         f"- Latest transcript date in the local corpus: **{latest_text}**.",
@@ -338,10 +344,25 @@ def render_episode_page(document: dict[str, Any]) -> str:
         f'  <p><strong>Episode date:</strong> <span data-pagefind-meta="episode_date">{html.escape(date_text)}</span></p>',
         f'  <p><strong>Series:</strong> <span>{html.escape(series_label(document))}</span></p>',
         f'  <p><strong>Source:</strong> <a href="{html.escape(document["url"])}">{html.escape(document["url"])}</a></p>',
+        f'  <p><strong>Transcript source:</strong> <span>{html.escape(source_label(document))}</span></p>',
         "</div>",
         "",
-        '<div class="transcript-content" data-pagefind-body>',
     ]
+
+    if document.get("source_type") == "machine_generated_asr":
+        lines.extend(
+            [
+                '!!! warning "Machine-generated transcript"',
+                "    This transcript was generated from the official RSS audio and may contain transcription errors. It should be replaced automatically if a PodScripts transcript page becomes available.",
+                "",
+            ]
+        )
+
+    lines.extend(
+        [
+        '<div class="transcript-content" data-pagefind-body>',
+        ]
+    )
 
     for index, segment in enumerate(document["segments"]):
         timestamp = segment.get("timestamp") or ""
