@@ -137,6 +137,7 @@ The public site path is intentionally separate from the local semantic search ap
 - MkDocs renders that into `site/`
 - Pagefind adds static keyword search to the built HTML
 - GitHub Actions republishes the site on pushes to `main`, on manual runs, and on the weekly refresh schedule via `.github/workflows/pages.yml`
+- Each refresh also checks the official podcast RSS feed against the newest available PodScripts transcript and shows a freshness warning on the public site if the transcript source is behind the live podcast.
 
 Both `site_docs/` and `site/` are safe to delete locally after a build if you want to keep the workspace lean. They are regenerated from committed source files.
 

@@ -13,6 +13,7 @@ import requests
 
 from nstaaf.config import Settings
 from nstaaf.discovery import EpisodeListing, build_session, discover_episode_listings, read_source_urls, write_source_urls
+from nstaaf.freshness import write_freshness_status
 
 THREAD_LOCAL = threading.local()
 
@@ -186,6 +187,7 @@ def refresh_corpus(
         "downloaded_count": downloaded,
         "episodes_dir": str(settings.episodes_dir),
         "transcripts_dir": str(settings.transcripts_dir),
+        "freshness": write_freshness_status(settings, load_episode_documents(settings)),
     }
 
 

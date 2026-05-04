@@ -25,6 +25,7 @@ theme:
 plugins: []
 
 markdown_extensions:
+  - admonition
   - attr_list
   - md_in_html
 

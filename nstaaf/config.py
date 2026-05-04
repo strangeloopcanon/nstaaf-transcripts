@@ -31,10 +31,12 @@ class Settings:
     site_docs_dir: Path
     index_dir: Path
     source_urls_path: Path
+    freshness_status_path: Path
     index_path: Path
     metadata_path: Path
     manifest_path: Path
     base_listing_url: str
+    podcast_feed_url: str
     request_timeout_seconds: int
     user_agent: str
     embedding_model: str
@@ -69,10 +71,15 @@ def get_settings() -> Settings:
         site_docs_dir=PROJECT_ROOT / "site_docs",
         index_dir=data_dir / "index",
         source_urls_path=data_dir / "source_urls.csv",
+        freshness_status_path=data_dir / "freshness_status.json",
         index_path=data_dir / "index" / "faiss.index",
         metadata_path=data_dir / "index" / "metadata.jsonl",
         manifest_path=data_dir / "index" / "manifest.json",
         base_listing_url="https://podscripts.co/podcasts/no-such-thing-as-a-fish",
+        podcast_feed_url=os.getenv(
+            "NSTAAF_PODCAST_FEED_URL",
+            "https://audioboom.com/channels/2399216.rss",
+        ),
         request_timeout_seconds=int(os.getenv("NSTAAF_REQUEST_TIMEOUT_SECONDS", "30")),
         user_agent=os.getenv(
             "NSTAAF_USER_AGENT",

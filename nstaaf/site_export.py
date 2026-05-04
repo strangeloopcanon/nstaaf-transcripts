@@ -8,6 +8,7 @@ from typing import Any
 
 from nstaaf.config import Settings
 from nstaaf.corpus import load_episode_documents
+from nstaaf.freshness import read_freshness_status
 
 
 RECENT_EPISODE_COUNT = 12
@@ -43,7 +44,57 @@ def timestamp_anchor(segment_index: int, timestamp: str) -> str:
     return f"segment-{segment_index}"
 
 
-def render_homepage(documents: list[dict[str, Any]]) -> str:
+def format_iso_date(value: str | None) -> str:
+    if not value:
+        return "Unknown date"
+    try:
+        parsed = datetime.fromisoformat(value)
+    except ValueError:
+        return value
+    return f"{parsed.strftime('%B')} {parsed.day}, {parsed.year}"
+
+
+def render_freshness_notice(freshness: dict[str, Any] | None) -> list[str]:
+    if not freshness:
+        return []
+
+    latest_podcast = freshness.get("latest_podcast_episode") or {}
+    latest_transcript = freshness.get("latest_transcript") or {}
+    generated_at = format_iso_date((freshness.get("generated_at") or "").split("T", 1)[0])
+
+    if freshness.get("error"):
+        return [
+            '!!! warning "Archive freshness not verified"',
+            f"    The site could not check the official podcast RSS feed during the latest export. Transcript search still works, but freshness is unknown. Last attempted: {generated_at}.",
+            "",
+        ]
+
+    if freshness.get("is_transcript_source_lagging"):
+        podcast_title = latest_podcast.get("title") or "Unknown episode"
+        podcast_date = format_iso_date(latest_podcast.get("published_date"))
+        transcript_title = latest_transcript.get("title") or "Unknown transcript"
+        transcript_date = latest_transcript.get("date") or "Unknown date"
+        lag_days = freshness.get("lag_days")
+        lag_text = f" by {lag_days} day{'s' if lag_days != 1 else ''}" if lag_days is not None else ""
+        return [
+            '!!! warning "Transcript source is behind the podcast feed"',
+            f"    The official RSS feed's latest episode is **{podcast_title}** from **{podcast_date}**, but the newest PodScripts transcript in this archive is **{transcript_title}** from **{transcript_date}**. The transcript archive is lagging{lag_text} because the upstream transcript source has not published newer transcript pages yet.",
+            "",
+        ]
+
+    if latest_podcast:
+        podcast_title = latest_podcast.get("title") or "Unknown episode"
+        podcast_date = format_iso_date(latest_podcast.get("published_date"))
+        return [
+            '!!! success "Archive freshness checked"',
+            f"    The newest transcript matches the official podcast feed's latest episode: **{podcast_title}** from **{podcast_date}**.",
+            "",
+        ]
+
+    return []
+
+
+def render_homepage(documents: list[dict[str, Any]], freshness: dict[str, Any] | None = None) -> str:
     recent = sorted(documents, key=sort_key, reverse=True)[:RECENT_EPISODE_COUNT]
     latest = recent[0] if recent else None
 
@@ -61,6 +112,8 @@ def render_homepage(documents: list[dict[str, Any]]) -> str:
         "## Recent Episodes",
         "",
     ]
+
+    lines.extend(render_freshness_notice(freshness))
 
     if latest:
         latest_date = latest.get("episode_date") or "Unknown date"
@@ -124,25 +177,43 @@ def render_episode_index(documents: list[dict[str, Any]]) -> str:
     return "\n".join(lines)
 
 
-def render_about_page(documents: list[dict[str, Any]]) -> str:
+def render_about_page(documents: list[dict[str, Any]], freshness: dict[str, Any] | None = None) -> str:
     latest = max(documents, key=sort_key) if documents else None
     latest_text = latest.get("episode_date") if latest else "Unknown date"
     build_time = datetime.now(timezone.utc).strftime("%Y-%m-%d %H:%M UTC")
-    return "\n".join(
+    lines = [
+        "# About",
+        "",
+        "This is a static transcript archive for *No Such Thing As A Fish* and related *Little Fish* episodes.",
+        "",
+        "- Search is keyword-based, not semantic.",
+        "- Transcript text is rendered from PodScripts transcript pages without summarization or fact extraction.",
+        "- Freshness is checked against the official podcast RSS feed during each refresh.",
+        f"- Current archive size: **{len(documents)}** episodes.",
+        f"- Latest transcript date in the local corpus: **{latest_text}**.",
+        f"- Site export generated: **{build_time}**.",
+    ]
+
+    if freshness:
+        latest_podcast = freshness.get("latest_podcast_episode") or {}
+        if latest_podcast:
+            lines.append(
+                f"- Latest podcast episode in official RSS: **{latest_podcast.get('title')}** from **{format_iso_date(latest_podcast.get('published_date'))}**."
+            )
+        if freshness.get("is_transcript_source_lagging"):
+            lines.append(
+                f"- Current transcript-source lag: **{freshness.get('lag_days')} days**."
+            )
+        if freshness.get("error"):
+            lines.append(f"- Latest freshness-check error: `{freshness['error']}`.")
+
+    lines.extend(
         [
-            "# About",
-            "",
-            "This is a static transcript archive for *No Such Thing As A Fish* and related *Little Fish* episodes.",
-            "",
-            "- Search is keyword-based, not semantic.",
-            "- Transcript text is rendered from the locally extracted corpus without summarization or fact extraction.",
-            f"- Current archive size: **{len(documents)}** episodes.",
-            f"- Latest episode date in the local corpus: **{latest_text}**.",
-            f"- Site export generated: **{build_time}**.",
             "",
             "The public site is designed to stay simple: a search-first homepage, a year-based episode index, and one page per transcript.",
         ]
-    ) + "\n"
+    )
+    return "\n".join(lines) + "\n"
 
 
 def render_404_page() -> str:
@@ -220,6 +291,7 @@ def copy_site_assets(settings: Settings) -> None:
 def export_site(settings: Settings) -> dict[str, Any]:
     settings.ensure_directories()
     documents = sorted(load_episode_documents(settings), key=sort_key, reverse=True)
+    freshness = read_freshness_status(settings)
     if not documents:
         raise RuntimeError("No extracted episodes found. Run `nstaaf refresh` before exporting the site.")
 
@@ -230,8 +302,8 @@ def export_site(settings: Settings) -> dict[str, Any]:
 
     copy_site_assets(settings)
 
-    (settings.site_docs_dir / "index.md").write_text(render_homepage(documents), encoding="utf-8")
-    (settings.site_docs_dir / "about.md").write_text(render_about_page(documents), encoding="utf-8")
+    (settings.site_docs_dir / "index.md").write_text(render_homepage(documents, freshness), encoding="utf-8")
+    (settings.site_docs_dir / "about.md").write_text(render_about_page(documents, freshness), encoding="utf-8")
     (settings.site_docs_dir / "404.md").write_text(render_404_page(), encoding="utf-8")
     (settings.site_docs_dir / "episodes" / "index.md").write_text(
         render_episode_index(documents),
@@ -249,4 +321,5 @@ def export_site(settings: Settings) -> dict[str, Any]:
         "episode_count": len(documents),
         "latest_episode_title": latest["title"],
         "latest_episode_date": latest.get("episode_date"),
+        "freshness": freshness,
     }
