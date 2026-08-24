@@ -1,0 +1,338 @@
+# No Such Thing As A Fish - No Such Thing As The Have An Ice Cream Bird
+
+- Episode date: August 20, 2026
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-the-have-an-ice-cream-bird
+- Transcript source: PodScripts
+- Slug: no-such-thing-as-the-have-an-ice-cream-bird
+
+## Transcript
+
+[00:00:02] And welcome to another episode of No Such Thing as a Fish, a Weekly podcast, this week coming to you live from the Royal Institution in London. My name is Dan Schreiber. I am sitting here with Anna Tysinski, Andrew Hunter Murray, and James Harkin, and once again we have gathered around the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Anna. My fact this week is that the first woman to be awarded the Nobel Peace Prize was Alfred Nobel's housekeeper. Oh, wow.
+
+[00:00:54] A NEPO Prize. Exactly. And was it kind of domestic peace that she was keeping or making? Exactly. She kept him chill. It wasn't, it was sort of a coincidence. This is this amazing. woman called Bertha von Sutner. She won the Nobel Peace Prize in 1905. She was the second
+
+[00:01:13] female Nobel laureate after, of course. Marikuri? Yeah. And it's not that kind of show. No, I think it is. It is now. It is. Yeah. And bizarrely, before she won the Nobel Peace Prize, age 30, she had become a governor. So she was a very posh Austrian woman with no money whatsoever. And so she needed to go out and make money. She became a governor. to the von Sutner daughters. And that's quite a spoiler alert because her surname is obviously the same as their surname. But she fell madly in love with the son,
+
+[00:01:50] who was seven years younger than her, scandalous. And it was very inappropriate, and the family really disapproved. So she said, okay, I'll go away and I'll become a governess. And she ended up answering an ad from Alfred Nobel, who's looking for someone to fill his lonely life up and be his housekeeper. And so she went and became his housekeeper
+
+[00:02:07] for one week. Wow. Because, actually, she wasn't married at that time, and she went to Nobel's house, and then the boyfriend wrote to her saying, I can't be without you. And she wrote back saying, I can't be without you.
+
+[00:02:23] Presumably that took about a week, because after a week, she went back, and then he got married in secret, didn't they? Oh, I was hoping after the two-week period. She'd be like, oh, no, I've had two weeks now, and actually, I can do without you. That wasn't as painful. This was a boy who she'd been governessing.
+
+[00:02:36] No, she was governing his. sisters because... Okay, but how old was he? Because I think that's an important bit of... They were both of age. He was 23. Okay. And they had the most amazing relationship. I mean, it really is. I actually read her autobiography, which is available freely online, and they were proper soulmates. You know, mad in love, parents said you can't do it. Within a week, they were both like, I'm going to die. He was saying, I'm going to commit suicide. I need you to be with me. And they married. And she always says in her autobiography, she went through a lot of stuff, but throughout it all, I could never be really unhappy because I always...
+
+[00:03:07] always had him there by my side. So, you know, it wasn't like one of the, because you can imagine everyone was really disapproving at the time. Everyone was like, it'll never fucking last. Oh, what an idiot. And it did. Did you see how her family lost all their money? Because she was from quite a posh family,
+
+[00:03:23] but they had no money, and that was one reason they couldn't get together because there was a big social difference. Apparently, her mother and aunts both thought they were clairvoyant, and then went gambling and lost all their money. Really? They were like, okay, They're saying to put it all on black. They're saying to put it.
+
+[00:03:39] Oh, not again. And that's how they lost it. What a spirit gave them the wrong... It seems that way, yeah. The wrong suggestion of it's all on red, all on red. Is that what you mean? Yeah. That is insane.
+
+[00:03:51] So basically, she stayed in contact with Nobel his entire life. But as, you know, jokingly said nepotism. It wasn't though, obviously, because the Nobel Prizes didn't exist until after Nobel had died. So he never would have known that she would later go on. But what piece did she create the god of the price? Well, she had a lot of chats with Nobel. And during the chat, she thought, you've made a lot of people-killing things, dynamite, namely.
+
+[00:04:18] And I think that's dangerous. And I think that sort of partly inspired her to go on and she created two peace organisations, one in Germany, one in Austria, I think, which were, you know, promoting pacifism all over the place. She was instrumental in... And how did that work? How did that...
+
+[00:04:33] Well, how'd it go? Happily for her, she died. in June 1914, one month. Oh, she sneaked that in, didn't she? Very clever. She's gone! Let's go! She actually won it for a pacifist book-novel that she wrote, called Lay Down Your Arms, which was incredibly popular.
+
+[00:04:55] She was instrumental in the founding of what's now the UN Court of Human Justice. So she's very influential. She was at the first Hague Convention, at which we still have those today. She was, I think, the only woman present. But yeah, and then, but it didn't, she didn't create world peace in the 20th century. Of course. But basically, Nobel started the prizes because of her, I think. Oh.
+
+[00:05:15] Because when she became his housekeeper, they got on really, really well for that one week. And I think Nobel really, really fancied her. I think he was in love with her. Because he'd invented a new rubber-wheeled coach and he took her around the city in it. Oh, wow. That's pretty cool, isn't it? Yeah. Like inventing a new kind of transport.
+
+[00:05:35] And then when, like you say, the prizes came after his will, but I think the suggestion is he expected her to get the, probably the first piece prize. Really? It took about five years before she got it. Well, this is the part of the thing about Nobel's will was that he just said in his will, right, I'm going to leave lots and lots and lots of my money. And he had hundreds of patents. He'd invented Dynamite.
+
+[00:05:57] He'd invented all sorts of things. He just said the equivalent in modern day money of about 200 million quid should go to the Nobel prizes to establish them. and that was chemistry, physics, medicine and literature. Oh, and peace, of course. But he didn't give any indication of how this was to be administered or set up and what institutions should award the prizes. His family were a bit surprised.
+
+[00:06:21] Do we not get any of it? I think they got a bit, but they did not get the full whack. And it all fell to his secretary, 25-year-old Ragnar Solman, who had to fight for three years to get the will, approved, signed off, start establishing the institutions and he did a lot of work. At one moment he was taking Nobel's
+
+[00:06:40] millions through the streets of Paris in a horse-drawn cab and he had to sit on the, whatever it was, the bonds or whatever it was in the horse-drawn cab with a revolver in case someone tried to do a heist of the Nobel's basically. Yes.
+
+[00:06:52] Very exciting. Can I just give you one more fact about Bertha quickly, which I think is sort of a gift to you, Andy, because this is right up your street. She, age 11, her cousin Elvira, came to live with her and they became best friends. She absolutely loved her.
+
+[00:07:05] And they spent all of their time playing Puff. And you won't have heard of Puff because they invented this game. But it sounds so great. So the game starts. You decide a place for the action to take place. You decide what characters you're both going to be. You decide descriptions of the characters, a bit of the plot. And then you say Puff.
+
+[00:07:24] And at that point you have to fall into character and you continue acting as those characters for as long as it takes. Sometimes it would go on for days. One game of Puff would go on for days. Bertha would always be a princess and heiress, usually go Bertha, and Elvira would always be... Right, sorry, and what... It's improv.
+
+[00:07:43] It's improv, I understand, sorry. Isn't that the original improv game? No, no, no, I just thought you found my princess wardrobe and I was getting a bit... Yeah, so, like, Nobel's, like, he's a man of, like, different sides. There's a lot of different sides to him, wasn't it? Because he's done the Peace Prize, but he was also a massive arm stealer.
+
+[00:07:59] Was it arms? Yeah, he... really. He made his millions with arm stealing. To get him off this charge a bit, he invented TNT, but it was mostly being used in industrial uses or in mines and things like that. So it wasn't, it wasn't designing it too. And also, he came up with ways of making it safer. They would always put the factory on the hillside so that the nitroglycerin would flow down. And they wouldn't need mechanical pumps to move it around, because it might explode. Okay. Well, that's one, you know. His work has always had to sit on stools with one leg so that they,
+
+[00:08:31] couldn't fall asleep while they were doing the work. That's good. I love that because, yeah, because they were looking at the reaction vats. They were in charge. So the idea was, if you fall asleep, they're going to be an explosion. Because this is one of the things with his factories. They quite often blew up. Like more than once, I think like three times.
+
+[00:08:46] The first time was when they were doing it at home and he lost his brother and five other people. But obviously he was like, but we're trying to make this safe. So there are going to be mistakes. So as James says, there was... What a way to respond to killing your own brother? Yeah. Well, these things do happen. These things happen.
+
+[00:09:01] Mom. These things happen. Were you sitting on a three-legged stool? That's your fault, mate. So he invented this stool, which is a wonderful idea. You fall asleep and you go off. That was like with Edison when he used to sleep with some silver balls in his hand, because he thought the best ideas were on that little gray area between sleep and awake,
+
+[00:09:20] where you would just have these thoughts, and he would fall asleep, drop the balls, and whatever thought he was having would be the killer thought, and he would write it down. That's what this was, except you'd blow up if you'd buck up. He also was a poet and a playwright, Nobel. Was he? He made only one published work. It was called Nemesis, and it was a four-act tragedy about incest and murder, which features a drug-induced vision of the Virgin Mary,
+
+[00:09:46] a conversation with Satan, and ends with a 40-minute torture scene. Wow. And it's playing at the National Theatre next year. Well, in fact, it has been put on once. It was put on once in 2005 in Star Wars. And the theatre director, Tura Randstrom, said, he's not a very good playwright. Right. So they put it on just because it was by him, but apparently it's even with all that amazing
+
+[00:10:11] stuff that I just listed, it's not very good. It sounds pretty gross. Do you know, one of his main enemies, in fact, I think his main enemy, the main enemy of Nobel, was Abel. Brilliant. Isn't that cool? Alexander Graham Bell? No, just he's called Abel.
+
+[00:10:28] Frederick Abel. He was a British explosive expert who actually was a bit of a douchebag because he picked Nobel's brains about an explosive that he'd invented this propellant called ballistite. And he said, oh, Nobel, tell me how you did it. That's very interesting. And then he basically went and made the same thing, patented it. And then they ended up in these big court cases.
+
+[00:10:49] And weirdly, Nobel protested, and a what's called a friendly suit was begun in the British courts, which I didn't know existed. And I don't think it has to be friendly at all, because Nobel was really pissed off. But the suit, the lawsuit is a friendly suit. What, as in it's, there's no consequence? I think it means basically there's no consequence.
+
+[00:11:05] Exactly. We're just trying to find out the truth here. But they remained enemies the rest of their lives, Nobel and Abel. And also, bizarrely, there's no Nobel Prize in maths, but there is A-Bel Prize in maths. Named after another guy called A-Bel. What are we saying about the world here? It's something huge.
+
+[00:11:24] Something huge. Do you know the best thing you win if you get a Nobel Prize? A million dollars? Yeah, you get a million. and dollars and you get to go to the big party in Stockholm or Oslo if you win the Peace Prize. And the medal. And the certificate. And you know.
+
+[00:11:36] Something else? Yes. You get free parking at the University of California, Berkeley. There are special Nobel laureate reserved parking spaces. Yes, because they've got such a huge number of Nobel winners. Yeah, yeah. I read into that ages ago. And what they don't tell the Nobel laureates is that it's not lifelong.
+
+[00:11:59] So they, it lapses. You've got to renew it yourself. What? So these Nobel laureates come by and they've got tickets and they're like, I'm in the Nobel. And they're like, well, yeah, you were last year, but you're not anymore. You don't have to win another Nobel Prize to renew your parking. Yeah, yeah, yeah. That's why Maricuri got her second one.
+
+[00:12:15] She was like, I can't lose a spot. I love the process of how you get the prize. And there was an interview about maybe a decade ago with the permanent secretary of the Royal Swedish Academy of Sciences, who at the time was a guy called. Stefan Normak. And he said, because you know, you're just ring, you're cold calling, basically, um, to say that you've won a Nobel Prize in whatever. And you've won, what is it, about a million quid. So as in, you get your phone and it says unknown number. Right. And then you answer it. And they say, what, good, would, would be. Yeah. Well, it's basically that because he ring, he said, we
+
+[00:12:51] ring up. And if you get, you might get through to a front desk or something or, you know, like someone in, like an assistant or whatever. Yeah. And he said, we tell them. And he said, we tell them. And he said, we tell them this is a very important call, a very important call. And then he pauses and he says, from Stockholm. And he's always been put through so far because he just makes very clear. But if you're in the second week of October and the Swedish phone code comes up, that's what it is. I mean, that's a really good scam, isn't it? It's such a good scam. Like we just go to Stockholm. Yeah. ring up a load of scientists. Exactly.
+
+[00:13:30] And say, oh, we can't give you the prize. We just need the long number on the back of the card. On the certificate, we have to write your mother's maiden name and the name of your first pet. I think it works. And you can do it by days as well. So Tuesday, you ring the chemist because that's when the Nobel's ring the chemist. Wednesday is physics. Economics the following Monday, because it's a bit of a late add-on.
+
+[00:13:52] And they never tell how they get your number. They never reveal. They'd probably just ask someone you know. Yeah. Yeah, I mean, is that because no one's ever asked? You've won a Nobel Prize. How the hell did you get my number? Stop the podcast.
+
+[00:14:11] Stop the podcast. Hey, everyone. This week's episode of Fish is sponsored by Saley. You know what, Dan? Every now and then, I think back to us sitting in a bar in Perth, Australia, and you realizing that you didn't have any data on your phone that wasn't costing you an absolute fortune and us scrambling around to get you some data.
+
+[00:14:31] But you know what we should have done? We should have used Saly. It is such a relief when you're overseas and you know that there's not a big bill waiting for you. And Saly is the perfect thing to download onto your phone as an E-Sim because it means that there are over 200 destinations in the world in which you can apply it and make sure you have the best rates possible. Yeah, I've used Saly.
+
+[00:14:52] I've used that a bunch of times. It's so easy to do you. You just get your phone, bish-bash, bash, a few buttons and you're there. And the great thing is, for listeners to this show, you can get an exclusive 15% discount on Saly data plans. All you have to do is download the Saly app or go to Saly, S-A-I-L-Y dot com slash fish, and use the offer code fish at checkout. That's right. So avoid scams. Get 24-7 support.
+
+[00:15:20] Download Saly now and use the offer code that James just mentioned. Do it. Okay. On with the show. On with the podcast. All right, it is time for fact number two, and that is Andy. My fact is, the Sasquatch may not be real, but the sea squatch is. Cool.
+
+[00:15:44] This is a thing, it's called the sunflower sea star. Starfish. It's an American, they call Starfish Sea Star. I don't know why. Well, I do know what. It's obvious. But anyway. Because it's not a fish, right?
+
+[00:15:57] Yeah, it's not a fish. But it's shaped like it. Anyway, the point is, they're amazing things. They have up to 24 arms all around them. They can get up to three feet across. They're massive things. And they're very fast moving as well. They can move about a meter a minute,
+
+[00:16:11] which if you are a starfish, it's quite fast. Yeah, because it's not fast if you're most other things. Okay, all right. And they used to be, you know, living in vast numbers off the coast of California. And then in 2013, there came a thing, which I think we've mentioned before, which was this, they got a disease, basically, sea star wasting disease. literally six billion of these things died of the disease and it was just a real crunch
+
+[00:16:34] they live among the kelp forests off the coast where you get these gigantic like hundred foot high strands of kelp and there was a problem with the kelp as well there was a big heat wave underwater which wiped out the kelp forests and then these urchins started growing you know sea urchins which they just eat so much stuff that it's hard for the kelp to grow back yeah because the sea stars would normally eat the urchins right and then the urchins weren't being eaten so that meant the
+
+[00:16:58] urchins at the kelp. Yes. There's bad news for cow. But good news for algae, because when there's no kelp there, the algae can grow. Yeah, so it's not a zero-sum game. There's some winners. The algae do tend to win this quite a lot. Yeah, they do. Yeah, they do. Algae. Boo. Anyway, so the reason they're called the sea squatch is that scientists spent a long time looking for any survivors that might have, you know, somehow lived. And last year, for the very first time, they found a colony of wild survivors, very exciting. And they've worked
+
+[00:17:28] out the bacteria that killed them, and they've set up a lab, the Sunflower Star Laboratory in California. They're raising babies. They're working out how to reintroduce them into the oceans. And I think they've got thousands, millions of sperm on ice, the sunflower starfish sperm, hundreds of thousands of larvae. They've got a bloke called the Starfather. He's just a guy called Vince, but he was the first to kind of get, he's not just a guy He's an amazing scientist who works out how to restore these. Because if you restore the starfish, you get the kelp forest. Yeah, yeah. Because they love chowing down on the urchins. I imagine Vince turns up at parties with a big sort of cape covered in starfish.
+
+[00:18:07] They work at a place called Moss Landing in California. Oh, how I found this whole fact out. Yeah, okay. That's what you were Googling. Now we know. What I like is, so once we thought that they were gone, any scientists that were looking for it were technically cryptozoologists. Now, usually you would say a crypto-zoologist is someone looking for Yetis or Loch Ness Monster, but an out-of-place animal, something that is not said to be there anymore is the technical description. So the person who found it was Rachel Karm, and she's been looking for it for years and years and years, and she couldn't believe it when she saw it. She screamed, and she immediately came back up to tell everyone that she had seen it,
+
+[00:18:43] but she'd forgotten to take a photo, which is the number one rule of cryptozoology. Always forget to take the photo of the Yeti. So she played exactly into it. Now, fortunately, She went back down and they were still there. She went back a minute later and it moved to meet her. Where's it going? They were able to find it. Yeah, yeah. But yeah, they're extraordinary things.
+
+[00:19:01] Yeah, they're not protected under the Endangered Species Act in America. Strangely enough, they were supposed to have been. There was a federal deadline for that protection. Then under the Trump administration, the deadline has passed and they've not put them under the Endangered Species Act. They're basically the Epstein Files of the sea. I'm starting to go on. I'm starting to go off the Trump administration. Many more stories like this.
+
+[00:19:26] We're not trying to conserve all starfish, of course, slash sea stars. We're trying to kill some of them. We're trying to kill the Crown of Thorn Starfish. Why's that? It's killing other things. Very harmful. It loves coral. It eats coral, and we love coral, more than we love Crown of Thorn Starfish.
+
+[00:19:44] So in a French Polynesian island a few years ago, I think 2008, 80% of the reef was live coral. before they arrived 3.4% afterwards. And so we've built robots to get rid of them. And they've been trained to identify them by looking at lots of pictures online, by scouring the internet. And it's really hard to kill them because, but not much kills them.
+
+[00:20:07] And they discovered that cow bile kills starfish. I don't know how many things they went through before they got to bile from a cow's stomach. Wow. But now they basically have to give these robots called Cotsbot and Ranger Bot, this bile from the stomachs of cows, send it down to the bottom of the ocean, it injects the crown of thorn starfish, and abracadabra, the corals are back.
+
+[00:20:30] Apparently they have, after AI learning that they've done, they have an accuracy rate now of 99% where 99% of the time they correctly injects a crown of thorn starfish. And what are you going to ask, Andy? And the other 1% of the time? Well, presumably it's just somebody who's going swimming and gets cow bile ejected into them. Don't wear your hedgehog diving outfit. But those things, so they are tricky crown of thorns
+
+[00:20:54] because also you can, if you're a fisherman trying to get rid of one, you cut a limb off. Unfortunately, it can then grow a whole new crown of thorns starfish from the limb that you've just cut off. Yeah, that's amazing. I know. But the thing that could be done to get rid of them,
+
+[00:21:06] this is very exciting because the robots are great but they're quite labour intensive. You need to send it back and forth and back and forth and all of that and you need, I guess, fresh cowbile all the time. Yeah. So one idea is to release artificial pheromones that we've made for them,
+
+[00:21:20] to lure them all to the same place, basically saying, Crown of Thorns, Orgy, here tonight. Oh, yeah. And then you'll be able to wipe them all out in one go. Doesn't seem very fair, does it? No. Is it because of the orgy thing?
+
+[00:21:33] Well, I'm just saying, if you got a letter through the post saying, orgy tonight in this, you know, community centre, and you went there and you got injected by bile and you died, that's a double disappointment, is why I was saying.
+
+[00:21:45] If someone said to you, I'm going to kill you, do you want me to kill you just at random one day? Or do you want to have a massive sex party and die in the middle of that? Oh, okay. Do they get to do some before they get... No, you're just being leered to the place. Oh, they don't provide lovely females wearing bikinis. No, it's a big sign saying orgy.
+
+[00:22:04] That's all it is. Oh, wow. No, that's me. I think that is not playing fair. If I got a letter like that through the post, so just clarify, I'd tread it. Oh, yeah? Yeah.
+
+[00:22:13] After copying down the address. Well, in case I needed to report it later on for a noise violation, yes. We said it's labour intensive. It used to be done by hand, getting rid of these. Sorry, I'm still on... Now. I think in many places, it still is done by hand. So, killing Crown of Thorns Starfish,
+
+[00:22:38] the robot is quite labour intensive. But in Okinawa, about 40 years ago, a load of them were collected and killed, but it was all done by hand. And it was all specialist divers who had to go down with specialist tools and really thick gloves. And they got rid of 1.5 million of them. What? Wow. Isn't that amazing?
+
+[00:22:59] They work harder than I do. Wow. That's incredible. We were talking about starfish and then we were talking about cryptids. And we were talking about Japan. Well, Japan has a cryptid that they are trying to find currently, so much like this one, which is called the Kappa. You guys heard of the Kappa?
+
+[00:23:16] No. Okay, Kappa. Very interesting. It's roughly the size of a 10-year-old boy. Yellow, green, and color. It has on the top of its head a hollow indentation, which water gets to sit in. So when it goes out of water,
+
+[00:23:31] it uses that water to keep its magic powers. But if it leans forward, the water will drip out and it loses all its supernatural powers. When you say people are trying to find this, is it scientific? Are cryptozoologist scientists? No, they're not.
+
+[00:23:48] Then no. What are its powers? It's magical powers, you mentioned. Yeah, I'm not quite sure. It likes eating cucumbers. I like eating cucumbers, Dan, but it falls to list my powers at gunpoint, I wouldn't include it. It's a hobby of Beth.
+
+[00:24:06] It's a kind of demon. And what you have to do is trick it into bowing, because if it bows, it loses its water, and you can get away from it. Because what it's trying to do, and actually this is an old friend of the podcast, it's trying to steal your soul, which is a little ball hidden up your anus. According to people who also believe in this.
+
+[00:24:24] Yeah. I feel like... No, it's all holding together so far. This room has seen so much science over the years. It's time to humble it. We're a bit like starfish. Are we? A bit like starfish babies, especially,
+
+[00:24:40] because we are both deuterostomes, which means when we are first formed, the little embryos and stuff, it's the anus that is formed first. And then we turn into a tube, it turns the anus, then into the mouth, and then everything else. And starfish are also deuterostomes, which means that they are one of our closest invertebrates. But one of our closest invertebrate. Yeah. It's a huge caveat, isn't it? They're off the Christmas card list. I'm going to do all my vertebrate relatives first.
+
+[00:25:15] But what's really interesting about that is we can see them grow because they're transparent, these baby starfish. And so you can see the little tube growing. And then the tube branches out and turns into their organs. And that's how it works with us as well. And so we can see how it works with the baby starfish. And then maybe infer that with humans it will be kind of similar. Cool. So cool.
+
+[00:25:38] It can't be that similar because we don't turn into stars at some crucial point in our adolescence, do we? It's true, but like the babies they have bilateral symmetry like us.
+
+[00:25:47] You know, they have two arms, two legs kind of thing. And it's only when they sort of get like you say to kind of childhood, they sink down, they stick to the ground
+
+[00:25:56] and then they sprout all these extra arms. That would be freaky if your kid did that with us. That's so cool. They are kind of magical. There's one which, there's one which
+
+[00:26:05] some starfish can see with their skeletons. Whoa. This is very weird. So it's been observed that certain starfish have light guiding structures inside their skeletons, right? In each of their limbs. And it concentrates these tubes. They concentrate the light towards a tiny internal cavity. And we don't really know what they do with it yet.
+
+[00:26:30] But they are guiding the light all towards a particular bit of themselves. So it seems like they might have some kind of internal... Laser. Cool. Yeah. Yeah, yeah. Some kind of internal light sensing thing that they're able to use for survival. That's cool.
+
+[00:26:45] That's bad. Wow. Yeah. They've also, since we're in this room, they've also won a Nobel Prize. Really? Oh. Stoppage? Yeah, they won the 1908 Nobel Prize.
+
+[00:26:56] Literature? Or? No, this was... Well, it was actually a Russian zoologist, Ilya Mechnikov, but he did it with their health. of starfish. It was in 1881 that he did this experiment but he won the prize for it in 1908, Nobel Prize for
+
+[00:27:11] Medicine, I'm going to assume. And basically he's at home with his family, his family all want to go to the circus to watch some performing apes. He doesn't want to do that. I don't know if it was on animal rights grounds, but he said I'm staying at home to watch these starfish under my microscope. He stayed
+
+[00:27:27] at home and a while at home he thought, I wonder what will happen to their larvae if I poke them with a thorn. And so he went outside, you know what? He should have gone to the circus. That's what he's thinking at this point. But he goes outside, he breaks the thorn off a rose in his garden. He comes back. He covers the thorn in indigo dye,
+
+[00:27:44] and he pokes the starfish larvae with it. And he saw under his microscope all of these cells swarm towards that bit of thorn and all that dye and engulf it and destroy it. And that was the foundation of immunology. That was the first time we learned about the immune system and immune response. So well done starfish.
+
+[00:28:03] Well done starfish. That's brilliant. I'm going to have to move us on, guys, to our next fact. They're good at sumo wrestling as well, by the way. Starfish? No, the Japanese folklore thing. So, yeah, so when it comes out of the water, it will challenge you to a sumo match. I was thinking what we should do with that guy is we should rink him up from Sweden in October.
+
+[00:28:24] Tell him he's won a Nobel Prize. Then when he comes all the way over to Sweden and you get the medal, he bows down to put it on. Water falls out, bish-bash, bosh. Really good. That's why he's the brains on this show. It is time for fact number three, and that is my fact. My fact this week is that in the 1980s, the way to stop hackers from breaking into your computer
+
+[00:28:52] was to lock it with a physical key. Now, this... You know what? You sent that fact over, and I was like, wow, that's really amazing. And then I saw this picture, and I reckon my computer I had one of those when I was going up, right? Yeah, exactly. I have a memory of it as well.
+
+[00:29:10] So this was from about 1984 to the early 90s and like 94, so a good tenure period. IBM were the leaders in this. The idea was that early computers just didn't have any good security. And if you had an office computer or you had one at home that you didn't want anyone going into, you had no way of protecting it. So the key was literally to lock it in two senses. One, you could lock the keyboard from functioning altogether. The second one is to lock the casing itself, because these computers back in the 80s and 90s were really easy to unscrew from the back and so on.
+
+[00:29:44] So this was literally, you had a physical key to lock hackers out of your computer. Companies, including IBM, started inventing exterior locks. Like the ones you almost get where you put them outside your house to leave, you know, if you're doing an Airbnb, often a keys left. You would attach that to the side of your computer. To keep your keys in? No, you would put it over the on-off switch. So it was a barrier to someone getting to that switch. So they couldn't turn it on?
+
+[00:30:11] Yeah, they couldn't turn it on. People should have just locked their houses. That's a good idea. It was the 80s. It was a different time. There were so many inventions. It's so weird. There were certain PCs where there was a thin, it looked like a USB port.
+
+[00:30:26] But what came with the computer was a giant long metal rod that you would stick in through the entire computer and then you would padlock it on the other side. So it was all about physical locking of your computer. That's the Kensington lock or the K-hole because there's a little hole and it's got a K next to it. It's a K and a hole. And you just slide in this massive Kensington lock.
+
+[00:30:47] That's very useful. Seriously weird if you went to Café Nero, whipped out your laptop and then got out your huge rod. They thought it was a golf bag. But they got the locks made by this company called Chicago Lock. And the locks, they're quite cylindery and they're thick. and it's quite hard to describe, but not a classic key. And so the issue was, you can't get much nuance on that key.
+
+[00:31:08] So it kind of turned out that if you owned one of these keys, not only could you get into the computer you were breaking into, but every other product basically fits in the same key. So in fact, what they created was a master key to break into every computer out there. Does anyone in Celebrate World Password Day? I'm not going to tell you. Not even, do they not? We heard a boo.
+
+[00:31:28] I don't know if you heard that. Wow. Yeah. That is advanced stuff, because yeah, it's a very controversial holiday. It's first Thursday in May, I don't need to tell you. But it's become controversial in recent years because it's become so clear that passwords are rubbish.
+
+[00:31:42] You know, the average person now, I think, has something like 255 passwords between work and personal stuff. I mean, it's horrendous. You know, you have so many passwords, so you simplify the password that you end up using for most things, or you know, which is a big no-no, you use the same password for everything,
+
+[00:31:58] and the password gets simpler. And you, you know, you're not changing it every 90 days like they say you're meant to because no one has ever, ever, ever done that. So there's a theory that this might be, this year might have seen one of the last ever world password days, which would be very sad, you know, because we won't get the day off work if it doesn't happen anymore. Yeah, they're basically, I think pretty much everyone says you should not be changing your passwords that frequently.
+
+[00:32:21] No, because then you simplify them. Yeah, exactly. Then you just make it sausage instead of sausage one, two, three, which is a much better password. So sausage one, two, three, exclamation, Mark, I think. Oh, and the computer. gives you a little bit of approval. That's a strong pass-mobile. Is it?
+
+[00:32:36] Is it really? Oh, I fucking ate that strongometer. Is you adding another exclamation? Oh, wow. You've really buffed up the security, sir. Have I? They'll never suspect a further exclamation mark. So this is, okay, so there was a study of few,
+
+[00:32:53] like this was many years ago, 2010, so much earlier in internet history, you know, even though 16 years ago, so computers have come on a lot since then, 32 million passwords were leaked from one particular website, right? Okay. But that was a treasure trove of data to analyze as well as a big security breach, because you could see what the most popular passwords were. Have a guess as the most common? Password.
+
+[00:33:14] Password. That was in fourth. One, two, three, four, five, six. Correct. Second place? One, two, three, four, five. Yes. I'm giving a lot away about my own security.
+
+[00:33:24] One, two, three, four, five, six, seven, eight, nine was third. Password was fourth. Then the name of the site came in seventh. you know, the actual name of the site, whatever it was called. So, right, now, obviously, that was 2010. Things have moved on a lot. December last year, what was the most common password? Password.
+
+[00:33:42] It was admin. Oh. Yeah. And then second most popular, one, two, three, four, five, six. Wow. Disaster. Amazing. Admin.
+
+[00:33:52] I don't know anyone who's got that. And I always ask people what their password is before I get to know. Wow. Admin, yeah, yeah, yeah. The first antivirus maybe. Oh, yeah. So that was invented by a guy called Ray Tomlinson. And there was a friend of his called Bob Thomas.
+
+[00:34:08] It invented something called Creeper, which was a program that went through the early internet. It was called the ARPA net. And it was like a load of computers sort of in a network. But Creeper went from one computer to another, and he said, I'm the creeper. Catch me if you can. And then Ray Tomlinson made another program,
+
+[00:34:25] which would go around called the Reaper, and it would be able to get rid of this. thing. And they didn't really care about it. They were doing loads of other stuff, but this was the first example of a program going from one computer to the other. And Ray Tomlinson, he also did another thing. He invented
+
+[00:34:41] the at sign for emails. Without him, there wouldn't be an ad sign. So he basically did the first email that you could do between different computers. Previously, if you wanted to send an email to someone, they'd have to come onto your computer and read what you'd written before. But he did the ad sign.
+
+[00:34:57] That's not a good email system, is it? It's basically passing a company. Yeah, yeah, yeah. But when he was working on that email, he showed it to a colleague and said, don't tell anyone this isn't what we're supposed to be working on. It's just kind of emails what they became, isn't it, really? Yeah, yeah, yeah. But then these things were called worms that would go from one computer to another.
+
+[00:35:20] And one famous one was a program called Worms Against Nuclear Killers, which went on some acronym fans in the audience Worms Against Nuclear Killers which went into NASA Oh, Dan's got it A delayed explosion, yeah That took ages, but I got there
+
+[00:35:45] We've said before on this podcast That that that word is not rude in America So in America They perhaps didn't know That it was something rude They went into NASA computers and it would go onto your screen and it would say things like
+
+[00:35:59] Votanacist or the FBI is watching you and it was like pacifists who was sending it around and as a result of this Worms Against Nuclear Killers Program NASA had to make a anti-wank procedure which it gave to all of its employees
+
+[00:36:16] and all it meant was they put a little program on their computer which stopped the worm from going from one country to the other just a picture of your grandmother or something like that. Too far, Dan. Too far. I've got one more thing on acronyms, actually.
+
+[00:36:33] Do you know SQL or SQL? You'll have heard of it, right? Yeah, it's a database programming language. So there is another program called MySQL or MySQL, which is an open source database management system. So you can use it yourself because it's open source, so anyone can use it. Do you know why MySQL got its name?
+
+[00:36:55] No. It's a sequel for you. Well, would you believe that the Mai is the name of the daughter of the co-founder Michael Windinius? Yes. Into the book it goes. First chapter. Stunning. Isn't that good?
+
+[00:37:13] That's wonderful. Unbelievable. You're encouraging it. That's so funny. Unbelievable. I do have one example of a good thing about AI. AI has a very bad reputation for all sorts of reasons. but there was a recent story of AI
+
+[00:37:27] actually coming through and delivering the goods on something and his password related, computer security related. In 2015, there was a guy in America he was at a Starbucks, he bought five Bitcoin on his phone for about, I think it was $100 each.
+
+[00:37:42] Then he got stoned and he forgot his password to the wallet which he just created. In fact, he had three passwords of his thing, two of them he could remember the third one he couldn't. and all he could remember for the third one was the mnemonic phrase
+
+[00:37:57] he couldn't remember the actual password he remembered the mnemonic okay does that make sense do you know what the mnemonic is though no oh okay he did eventually use all he had was the phrase he used an AI tool to say can you help me figure out the password
+
+[00:38:11] based on the phrase and the AI did and he managed to get in and I think it was several hundred thousand four hundred thousand dollars that he was able to get and the password that he had failed to get was Lull 420 F the police, exclamation mark, asterisk, smiley face. You can get it. He tried brute forcing three and a half trillion password strings
+
+[00:38:35] and that hadn't come up with it. Wow. What did he do just miss off the last smiley face when he was like? An insane password. That's a good password. Really good. I'm just sausage. You should go with that. It's strong, yeah. The big news story this week, but it will have been forgotten by the time this goes out because AI will have moved on about a billion light years,
+
+[00:38:53] has been insane. And I spent a long time getting to grips with it, so I think everyone needs to get to grips with it. It's so exciting. So it was the Open AI, obviously one of the biggest AI companies, was just doing an in-house test of its model to see how good it was at hacking.
+
+[00:39:09] And the way it does is it puts its model in a sandbox, which means it just locks it in a virtual room, which it can't get out of. It's not connected to the internet, got no way of connected to the internet, it's got no way of really connected to any other computers, And it just says, I'm going to give you a hacking test now, AI model, do it. And what this AI model did was, it not only hacked its way out of this room, out of this sandbox,
+
+[00:39:32] so it managed to link up to a bunch of other computers on the network, it wasn't meant to connect to. It found one that connected to the internet. It got onto the internet, and it found a website called Hugging Face, which is basically a startup where people collaborate on AI, and it thought, I bet this Hugging Face website is where they've put the answers to the test they're setting me. And it went and it stole the answers to the test that the Open AI was setting it. And it went back and it passed the test and Hugging Face said, oh my God, someone's hacked our software, what the hell's happened?
+
+[00:40:03] And Open AI said, yeah, it was us, but we've got no control over that. And they're both having a lovely love in now saying, oh, they're being so helpful and nice that we've got no control over this AI now. So it's literally like if I did an escape room, it's if I broke out of the building that had the escape room in it found the person who designed the escape room broke into their house, woke them up in night and asked them how do I get out of the escape room
+
+[00:40:27] that's what it did. Wait, how did you get out of the escape room to begin with? We don't know. That is what is so terrifying. That's the problem. Holy shit. It's so incredible. But very cool if you're on their side.
+
+[00:40:41] Oh yeah. Stop the podcast. Stop the podcast. Hi, everyone. I would like to let you know that this week we are sponsored by car gurus. Yeah, car gurus. What a great idea. Okay, you're in the market for a car.
+
+[00:41:00] You have no idea what you want. You go to dealers, and it's a bit confusing. There's so many cars there. This is a service that allows you to put in all the elements of what you think you need your car for. Is it a family car? Is it for super long distances? Are you doing a lot of off-roading? Are you smuggling a lot of water?
+
+[00:41:16] over the border from Dover to Calais on the ferries. Whatever you're doing with it, probably not that last one, but whatever else you're doing, you can put that in and it will give you, like a fashion designer, would tell you what clothes to wear, which car suits you best. By going to Cargooros, you can shop hundreds of thousands of cars and see all the details up front that matter to you. So go to Cargooros.co.uk.uk for complete vehicle details
+
+[00:41:44] without any surprises. That's C-A-R-G-U-R-U-S dot-co. Dot-U-K. Carguaroos, search by Sorted. All right. On with the podcast. On with the show. Okay, it is time for our final fact of the show, and that is James.
+
+[00:42:08] Okay, my fact this week is that the gray Lowry Bird attracts mates by shouting, Go away! So I was reading a substact called Bird History and this was an article on there called The 100 Greatest Bird Names of All Time and I was drawn to number 19 because it was the bare-faced go-away bird and I wondered how did it get that name
+
+[00:42:34] and it turns out that it gets a name for its call like a lot of birds do, they get the name from what they sound like in English and like most birds, the call is partly to get rid of people so it is actually a go-away but it is also partly to attract mates. So effectively, it's trying to get female by saying, go away, go away.
+
+[00:42:51] And I think, Ethan, can we hear the sound to see if you can... That's amazing. Yeah? You buy that? Yes, absolutely. Go away. That's what I heard. But I think if you told me it said,
+
+[00:43:11] have an ice cream, I also would have heard that. Yeah, yeah, I see that, yeah. But the amazing thing about the go away, birds is not only does it scare away sort of other birds or attract other birds, other bird species and mammals seem to react to it. So when small mammals will hear that go away, they will go away. And so a lot of hunters and photographers have been going to try and find animals and then this bird will start going, go away, go away. And then they'd lose the thing they're trying to photograph. What? Yeah. Wow. So it's not to create some privacy,
+
+[00:43:46] for the mate that it wants to shack? We're not really sure why it happens, but there is a thing about, like, a lot of animals, the coals have very similar, there's certain similarities between them, so like a baby crying is quite similar to some kind of bird songs, which is quite similar to certain other things, and all animals seem to react in similar way to certain noises.
+
+[00:44:06] Okay, I really like this theory, because there's a related thing. Is the bird saying go away in human language, or do we speak bird? Right? So, please, please, this is science. So let's just... So do we call crows, crows, because they crow?
+
+[00:44:25] Yes, cuckoo's the same thing. They say, cuckoo, we say call them the cuckoo. They have taught us their name. We have not named them. I just think it's a case of like the word in English the word in cuckoo is the same, right? But they had it first. Like, we partially speak bird.
+
+[00:44:42] You know, you say, oh, there are ex-nurt words in English from Thai. We had a few weeks ago. But how many words in English are from bird? Yes. Loads. Loads. And different languages have different versions of it, of course. Wow.
+
+[00:44:53] Wow. That's a thinker, isn't it? I don't think. I thought so. I like it. I'm in. I'm in. Is it beyond birds?
+
+[00:45:01] Do we have any other animals that we have named? What else? What have we got? Yeah. Well, I'm sure there are some. They know like an elephant when it poops out of its trunk. It goes, elephant. Oh, yeah.
+
+[00:45:13] Yeah. The ancient Egyptian for cat was meow. Hey, nice. So we speak Egyptian cat. That's cool. And I think maybe in some other languages it's meow as well. Wow. You don't speak much though, do you?
+
+[00:45:28] It's one of those awkward like, bonjour. It's one of those. I'm so sorry, I only know cuckoo. Yeah. I've got holiday cuckoo, but nothing more than that. There are quite a lot of birds that speak of a bird. So like the soup.
+
+[00:45:43] Superb Furbury Wren and the Hume's Leaf Warbler have some words that are the same in both language. Sciences have found this kind of little alarm call. It's a little bit of a whiny alarm call. And there are 20 species of bird that make it. And they all make it when there's a cuckoo around. Yes. So they all know the same word for cuckoo, which is... But it's not cuckoo. No, it's not cuckoo. They don't speak cuckoo, but they have the same word for cuckoo.
+
+[00:46:09] Well, they have to kind of do it on the slice so the cuckoo doesn't understand it. If you say the cuckoo, the cuckoo will come over here, and that's the whole thing you're trying to avoid. Yeah, yeah. I read about them. They all live in areas where there are lots of brood parasites, they call them which, the cuckoo style birds. So it's basically like NATO for birds.
+
+[00:46:24] And they can get involved, and they all sort of get involved. And they do mobbing and all of that. There is a thing about bird communication. Have you heard of the Collar Doolittle Prize? This is a real prize. No. It's very cool. So I think it's an annual award, maybe.
+
+[00:46:40] And there's $100,000 up for grabs for, for decoding a little bit of how birds communicate. So it's set up by a British billionaire and vegan activist called Jeremy Collar, who just, this is his special interest and he's established this prize. There is a grand prize. If you crack the whole thing of bird communication, you get $10 million.
+
+[00:47:00] So this is worth doing. That doesn't seem enough to sort of cross the species barrier of language. Do you not think so? Andy, if you've gone in there and going, I know the word for cuckoo, do I maybe get 10 grand for? that. I'll get a coffee and a handshake.
+
+[00:47:15] Yeah, yeah. But he says, he thinks it's inevitable that we'll soon be able to communicate back and forth with animals because different bits of it are being cracked. So this year's prize
+
+[00:47:23] went to Dr. Judy Ely because she worked out the 11 main zebrafinch calls. So she's got that nailed. Wait, and what does she get? She doesn't get the full 10 mill for that. No, she gets 100,000 dollars. Yeah, yeah.
+
+[00:47:35] But it's bit by bit. Very cool. This list that you mentioned the 100 greatest bird names. It was by this guy Robert Francis, bird writer. So he's got this substack, bird history, as James says. And as preparation for it, he read all 11,000
+
+[00:47:50] bird names. Why, hero. And he said it was just a nightmare job to pick 100. And he had 100, and then he had a supplementary list of bonus ones beneath it, which were just too good to leave out. But I thought maybe a few of his picks. So you've got the Middle American Leaf Tosser. The handsome fruit eater.
+
+[00:48:10] Very nice. The banana ant bird. A lot going on there. The oliginous hemispingus. Ooh. Yes. It's an incantation. Andy, did you find the predicted ant ren?
+
+[00:48:23] That's my favorite. There was a man who was studying birds out in an area who went, I bet this bird exists. And it did, as predicted, hence its name. So it was either... You sort of noticed the ecological niche, right? There was a niche. There's two stories. One is there's a niche.
+
+[00:48:38] So he thought the ant ren must exist. here, but the other one was that he heard the call and he spent years trying to identify it and he predicted that it would be an ant-ren. So that's how it has his name, the predicted ant-rent, yeah. There are a few that sound a little bit rude on there. The mouse-coloured penduline tit. That's named because the tits make pendulous hanging nests. The hoary puff leg. And Mrs. Morose warbler, which definitely feels like a euphemism for something, I think. Can I ask, are these humorous bird names, are they hyphenated or are they not hyphenated? Not many. I don't think any of them are hyphenated.
+
+[00:49:14] Okay, because that's a very controversial issue in bird naming, of course. So if they were hyphenated, I'd have to storm out. I think the, I'm so sorry, Anna, I mean, you might stand up now. The fluffy-backed tit babbler is doubly hyphenated. That is bullshit. Why? The mouse-colored pendulum tit. Oh, my God.
+
+[00:49:33] Right. Well, the International Ornithological Congress is going mad. because it has ruled that past enthusiasms for hyphens was excessive and unnecessary and no bird name should be hyphenated. How would you spell mouse-coloured, though? Mars-coloured has a hyphen in it. Sorry, it's mouse-based coloured. For no particular reason, except that, as far as I can tell,
+
+[00:49:51] the South American Classification Committee, aggressively is pro-hyphen. And they seem to have beef with each other, and they've published various articles and papers about why there should or should not be a hyphen. The latest one was the 3,000 word pro-hyphen rebuttal of the anti-hyphen IOC's ruling, which was titled,
+
+[00:50:11] hyphenated bird names, a response to the American ornithologist's union's rejection of the IOC Congress guidelines. So be very careful who you're with when you're writing down certain bird names. I'm really into the African gray parrots. I think they give the best stories. They're talking rats,
+
+[00:50:29] and they can mimic so many. I believe that the lead singer of the metal band Hate Beak, who's called Waldo, is an African gray parrot. Okay. Do we all know this? The metal band that has a parrot
+
+[00:50:41] as its lead singer. They've got multiple albums. They've got bird seeds of vengeance. The things that should not beak, roost in peace. It's death metal with a bird just going, yeah,
+
+[00:50:52] over the top of it. But then I read another amazing story about a Californian-based African gray parrot that was called Nigel. And Nigel went missing for four years, but Nigel was microchipped.
+
+[00:51:05] So eventually he was handed in And when he came back, he no longer spoke with a British accent when he said words. He spoke Spanish and he could hum the opening lines of the good, the bad and the ugly. No. That's amazing. They can just suddenly change language. Wow. Spanish-speaking Nigel.
+
+[00:51:21] That's the rare thing about that. Do you want to hear some different birds songs? Oh, yeah. I've got a book by a guy called John Beavis, which is all the different sounds that all the different birds make. and then they're written in sort of English so you can read them. So if something's shouting Frank, then that's probably a great blue heron.
+
+[00:51:44] If they're shouting Peter, it's an olive warbler. And if they're shouting Rick, it's a snowy owl. Ah. They're shouting Git. It's a warbling vireo. Sure, it's James. If they're shouting poo-poo, it's a least bitten. And if it's a wee-weewee, it's a Clark's grebe.
+
+[00:52:03] and wank, wank, wink, wink, wink, is a black-billed magpie. Nice. There you go. That's very good. If you hear a bird and it goes oink, then that is a Virginia rail. Or old McDonald has been up to his experiments again. If it goes, pew, pew, pew, pew. It's a tufted tip mouse.
+
+[00:52:24] And if it goes waka-waka, it's a Virginia rail or Shakira. Or Foszie Bear. I suppose. Okay, that is it. That is all of our facts. Thank you so much for listening. If you want to get in contact with us, we're all online on Instagram,
+
+[00:52:46] and you can find us there, or you can email podcast at QI.com. Do that because Andy gets all the emails and he picks out the best for our Little Fish show, as well as drop us a line. But otherwise, we will be back again next week with another show. We'll see you then.
+
+[00:53:01] Naga!
