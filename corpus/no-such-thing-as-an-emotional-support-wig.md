@@ -1,0 +1,356 @@
+# No Such Thing As A Fish - No Such Thing As An Emotional Support Wig
+
+- Episode date: August 27, 2026
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-an-emotional-support-wig
+- Transcript source: PodScripts
+- Slug: no-such-thing-as-an-emotional-support-wig
+
+## Transcript
+
+[00:00:02] Oh, and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week, coming to you live from the Royal Institution in London. My name is Dan Schreiber. I am sitting here with Anna Tushinsky, Andrew Hunter Murray, and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is Anna. My fact this week is that the spacecraft that's about to orbit Mercury
+
+[00:00:49] is wearing a hand-stitched blanket for warmth. Aw. Adorable. So nice. Knitted by its mum. This is this really cool blanket, which is necessary because, at its hottest, Mercury gets to about 400 degrees centigrade,
+
+[00:01:08] and at its cold it's about minus 190. And so there's this space blanket And I saw some pictures of it getting hand stitched on And they sort of drait the blanket over the vessel And then they stitch it while it's on You know, like if you're getting a dress fitting Or people in films when they get dress fitting They wear the material and then they get it stitched on
+
+[00:01:27] While they're standing there What side deser's antennae dress? Indeed. That was such a male laugh that came up for that, was it? Just about 10 people and you're like, Anyway, it really is weaving. And because, like a lot of fabrics, it can get really static because it's wearing this blanket,
+
+[00:01:49] then there are also threads of conducting metal that have been woven through the blanket to conduct the static electricity away. And in fact, blood was shed in the weaving process. Someone pricked their needle, pricked their finger with the needle and stabbed themselves with a needle because they were up late stitching this blanket.
+
+[00:02:07] Does that mean some of the blood might have gone into? the blanket and that might now be in space. Oh God, I think so. Do you think they're going to clone us? Yeah. Who? The Mercurians. And this isn't the first ever satellite to go to Mercury, is it? So there was one quite a long time ago called Mariner 10
+
+[00:02:25] and they used also a cloth but it wasn't hand-stitched. It was called beta cloth. It was like a super strong heat-resistant fabric. And that kind of cloth can be seen on EastEnders. regularly. Really? Riddle me this. Oh, it can be seen on Easter. The Old Vic pub.
+
+[00:02:46] Yeah, that's the only thing you know about EastEnders. I guess they've got coasters. Yeah, made of this clutch. Is it in the opening credits somewhere? It's in the credits. Is it? Is it? Is it on London Eye? No, not the Millennium Dome. No, no. Is it when you stretch it, is it what they do the drum sound on? One of you has got it right. And it is, it's the Millennium Dome.
+
+[00:03:11] The O2, it's what covers that dome. Can I just say, when I said the Londonite, I meant the Millennium Dome. And when I said the stretch John, that's what I meant, as well. Wow. That's so cool. Wait, is it just the same material?
+
+[00:03:25] Yeah, they start using lots of buildings. I'm a bit confused, because you're saying it's for warmth of this blanket, and you're saying it's for coolth because it's very hot there. Yeah. Protect it from the... It's insulating, isn't it? So it's both, in fact.
+
+[00:03:38] So it's just to protect. the spacecraft from whatever from hot and gold. Mad swings and temperature. It's a very hot thing. We should say that this is part of a mission that was launched in 2018 and it still has not arrived at Mercury. It will be in September of this year
+
+[00:03:53] and it's called the Beppe Colombo mission and this is from Giuseppe Beppe Colombo. He's a man who worked out the way that you could get to Mercury which is not to go to Mercury weirdly. The way to get to Mercury is to go away from Mercury and you need to get past by
+
+[00:04:09] to planets so that you can slow yourself down enough to then orbit Mercury. It's the weirdest thing. So it's like a slingshot. It's a slingshot. If you've seen the Martian, the movie, where they need to get the astronauts back to Mars, that's kind of what they do around the Earth.
+
+[00:04:23] It's so weird. It's easier to get to Pluto than it is to get to Mercury because it's moving so fast around the sun that you just need to get the timing exactly right. It's like going into the center of town is harder than just heading out into the suburb. Yes. That's basically it. No, you're right.
+
+[00:04:37] Yeah, yeah. I sometimes need to go around the one-way system, which is a pain in the arts. It's a bit like that. It's exactly like that. I've just thought of that. I'm sticking. It's more like that it's just as hard to get up a mountain
+
+[00:04:48] to ski down a mountain because you have to stop when you get to the bottom of the mountain. That's the problem. It's quite easy to get a spaceship to go towards Mercury, but it's pretty hard to stop it from going into the sun afterwards. Yes. So the whole trip is basically trying to slow it down. Well, they launched it in 2018, and the first planet they slingshots around was Earth, two years later, which feels so weirdly...
+
+[00:05:10] Well, they've been there and back. It feels like you've gone around the one-way system, you know, and then... Oh, hang on, oh, we've done this bit, you know. Stop trying to make it work. Cool. They had gone there and back by that point, so it's actually been to Mercury, I think, three times now.
+
+[00:05:23] But because it's not going at the right speed, it just has to go, oh, I'll just try again. Sorry. It's like going to the London eye, but going round the Millennium Dome before you get to the London. So the Beppe Colombo was... the guy who kind of came up with the idea of going around Venus to get to Mercury. But the person who first came up with the idea of slingshotting was a guy called Yuri Kondulachuk.
+
+[00:05:46] He was a Russian guy. And what's really interesting about this guy is he was around at the start of the 20th century. And everything was going wrong in Russia at the time. And he was in Siberia. And he decided he wanted to build an enormous grain elevator in Siberia. But they didn't have very much stuff. So he managed to build it out of wood without a single nail. This grain elevator, right?
+
+[00:06:08] And then a bit later on, he got on the wrong side of the Soviets, and they decided to put him in jail, and they used his grain elevator as evidence against him and said, the fact that you haven't used any nails proves that you were trying to sabotage the entire system and that you were going to go in one day and just pull, like, a game of Jenga, and just pull a little bit out, and it was going to collapse.
+
+[00:06:29] Oh, wow. Why do you need to elevate grain? I would have thought that. main challenges in transporting it, maybe keeping it nice and cool or whatever you do with. I come from a long line of farmers. Yeah. Yeah. Are we running out of time?
+
+[00:06:45] Yeah. You get up to the top of the building and then you have a big slide that delivers it everywhere else. Into the site? Yeah. Well, like it into a silo, isn't it? I'm guessing. I am guessing. Okay.
+
+[00:06:56] Do you guys know why we're going there with Beppe Colombo? There are a few reasons. Obviously, they're performing multiple experiments. But one of the reasons is because a lot of the... scientists say, Mercury shouldn't be there. It shouldn't exist. So they're just checking that it is? I think they're double checking that it's actually there. How so? How should it not? It's, if you were mapping out how the solar system functioned, it shouldn't by the gravity, by the density of the planet, it should have been pulled in. It just doesn't make sense.
+
+[00:07:24] And they're trying to work out. I absolutely love that there's someone that knows science here, and he's nodding every time I get something right. Are there any grain experts? Can I tell you, Dan, you love a sort of space disaster or a potential space disaster, like Apollo 13. I like it when they avert the disaster. Yeah. You know I've talked about Apollo 13? The ending. Okay.
+
+[00:07:48] I just, I thought you might like this, because the Mariner 10 voyage, the first satellite sent off, I think it was 1974. It went. And it went wrong in all these interesting ways. So about a month after launch, it just switched. for no reason that anyone could tell from main power to back up power. And that's a problem because then you don't have a backup, because you're already using the backup, but there wasn't any way to get it back on main power.
+
+[00:08:12] The other amazing thing was that the paint was flaking off a little bit, right? Doesn't sound like a huge problem, it's just the paint. But these tiny flecks of paint were going past the star tracker. And the way that Mariner 10 was navigating was with a star tracker, and he needed to keep its eye on the star canopus, Canopus. So every time it saw a little fleck of paint go past bright and white, it thought, oh, great, and just started changing direct nightmare. And they had to just correct it all the time, and it was constantly having to be redirected. It's like to remember when they had AI that was
+
+[00:08:46] doing the camera work for a football game, and they would just follow the football, but then it accidentally saw the bald head of the linesman, just followed him for the entire game. That really happened? Yeah. Beautiful. It's so funny. It's really hot there. That's the other thing, right? It is so unbelievably hot. Sometimes.
+
+[00:09:07] Yeah. As discussed, when it's not unbelievably cold. Yeah. When you're on the other side, and at one point they thought that mercury didn't spin around. So they thought the far side of mercury was probably the coldest bit of the solar system
+
+[00:09:18] because it was just purely, it gets so, so cold. But the front side facing the sun, poohy, that's really hot. And so getting these satellites there is proving to be, we've had to use amazing technology. So they have a solar array, which is how they're powering it.
+
+[00:09:33] It's so hot when they get that close. They can't even point the solar panels towards the sun. They have to like gently kind of like suggest the sun is over there because it's still going to heat it up. Is that wild? Flirting with the sun. Yeah, exactly. It just needs to stay on such an angle.
+
+[00:09:48] Otherwise it would just burn out. It would just get too much energy. And it's, yeah. It is not. You know what it does with the solar power? It turns xenon gas into a charged stream of plasma which is then fired out as the solar propulsion thruster. I didn't know we had solar propulsion thrusters.
+
+[00:10:05] And in fact, if we had just done that, rather than going with this slingshot system, it would have taken seven years to get there, will it, by this point? Whereas if we'd just been doing the thruster mechanism, it would have taken a couple of months. So it could have done with some more plasma streams. But then it would have just speared into the sun or speared it. No, no, it just uses so much fuel.
+
+[00:10:26] Oh, yeah, we should have said that the slingshot mechanism, is so useful because it uses hardly any fuel because what you're doing is you're using the gravity of Venus and Earth and Mercury to get yourself there. Right. So you just need to have a huge fuel time. And it's very hard to get fuel outside of Earth. Hardly. It's like a goody electric charger.
+
+[00:10:42] Yeah. Something you have to be really careful about on Mercury is making plans because if you tell someone I'll see you in three days. What kind of day are you talking about? So in fact, quiz question, what's the definition of a day? One spin The planet spins around once on its axis Is that what everybody thinks?
+
+[00:11:04] You idiot I'm an ass The definition of a day Is the time it takes for the sun To return to the same place in the sky In the sky, yeah So 24 It's always in the same place in the sky
+
+[00:11:20] No it's not It's always in the same place No it's not The sun What about night? It's not It's always in the same place We go round it
+
+[00:11:31] Don't go anti-Capernican on me right Okay, it's not in the same place in the sky To your eyes That's the definition of a day Is yes, well the day that you would talk about So that's what takes 24 hours The time it takes for Earth to do a full axis Is 23 hours and 56 minutes
+
+[00:11:48] And that's because at the same time As spinning on its own axis The Earth is rotating round the sun So if you imagine it going round it spins on its own axis, and by the time it's done a 360 degree spin, it's moved a bit around the sun, so to point still directly towards the sun, and needs to spin one degree more. Not a big deal on Earth.
+
+[00:12:05] On Mercury, because it orbits the sun at quite a similar speed to the speed it orbits on its axis, so it spins on its axis very, very slowly. The two different kinds of day are very different. So a sidereal day, which I'm sure you all know, is the time it takes to spin on your own axis. on your own access. Sorry, damn, I should let you take over from here. Give me a chance to at least jump in, yeah.
+
+[00:12:30] 23 hours, 56 minutes on Earth, 59 days on Mercury. A solar day, 24 hours on Earth, 176 days on Mercury. So if you say, I'll see you in three days, you could be out by like, I don't know, what's the maths, a year and a half? So I'm just saying that's something to worry about it.
+
+[00:12:47] Yeah, yeah, yeah, yeah. I think maybe we shouldn't go after all. Stop the podcast. Stop the podcast. Hi everybody. Just wanted to let you know, we are sponsored this week by Shopify. Yes, if you have ever thought about starting a business, it now could not be easier.
+
+[00:13:09] With Shopify, it allows you to get all set up completely online, makes everything so slick and simple. Now, I'm very excited about this because I have about three business ideas per episode of fish. They're never taken up. And to be honest, it does sound daunting, doesn't it? Starting a business. It sounds like you need to do a lot of different things. The good thing about Shopify is that it contains all the tools you need to launch from day one.
+
+[00:13:31] So I will have to design my website selling cold water bottles, which is my new innovation. Do not steal it. Shopify has templates, it has AI tools to help you get the site up and running. I need to have a checkout. I don't know how to use a checkout. Well, now how to use a checkout. I don't know how to run one. Shopify checkout means that customers actually buy my cold water bottles.
+
+[00:13:50] And returning ones, because they want the second one, they can do it in a single click. Yes. But wait, Anna. I've got questions. I've got questions about my cold water bottles. I've got questions about your cold water bottles. Please go on. Shopify has a built-in AI assistant called Sidekick, which can help you build and troubleshoot and keep moving. It will guarantee everything goes smoothly for you on the admin side. I cannot guarantee you can make your fortune out of selling cold water bottles. But you never know if anyone can help you achieve that, Andy. It's Shopify. And if you go to shopify.com.com. You can start a free trial now.
+
+[00:14:25] That is right. your free trial today at shopify.com. I will see you at the business awards. All you need is the idea. Shopify handles the rest. Free trial, Shopify.com. Okay, on with the show. On with the podcast. Why don't we get to fact number two?
+
+[00:14:45] And that is Andy. My fact is, a female boffin is technically known as a boffin. Okay. So, technically. Technically. Technically, according to the book, The Rise of the Boffin. Okay.
+
+[00:15:05] By Ron W. Clark. This is a book about the history of boffins and boffinology. And boffin had a very specific meaning for a long time. Boffins were kind of, they were a cadre of mostly male research scientist during the Second World War, who were working on weird and wonderful experiments. And that's where the word came into kind of modern use.
+
+[00:15:28] But this book, I just picked it up. There's a copy in the basement because we're lucky to get a kind of backstage tour of the Royal Institution. And there it is, page one. It says a female boffin, of course, is a boffin. One thing, because I think we'll probably talk about a few more kind of brilliant women from the RIS history,
+
+[00:15:44] but the boffins from the Second World War, they were sent down to a place on the English Channel, right? And they were doing the first work on radar. So it's massively important for the war effort. It was massively important for the Battle of Britain, for all sorts of areas, you know, having functioning radar was a huge advantage. The thing is, it was directly under a bombing route
+
+[00:16:03] that the Luftwaffe frequently flew over during the Battle of Britain. But it didn't look like very much. It just looked like an army camp, right? It was bombed once, and this could have been absolutely catastrophic to the British war effort. But fortunately, later, after all, the dust had settled on the war, they asked the Luftwaffe, why didn't you bomb it more? And they said, oh, yeah, well, we assumed you wouldn't put anything important
+
+[00:16:24] under a major flight route for the Luftwaffe. You'd have to be unbelievably stupid to do that. So we assumed it was just a kind of piddling little army camp. The double bluff. The double bluff. The double bluff, yeah. And the word boffin, we should just say, comes from our mutual friend by Charles Dickens
+
+[00:16:40] and this character called Nicodemius Boffin, who is like an uneducated dustman. He wins a load of money and decides to educate himself by reading lots of books and doing that kind of thing. We think that's where it comes from. Although there had been a meaning of like an officer, like an old doddering officer in the war was a buffin, and that doesn't quite work with this,
+
+[00:17:00] but I think certainly that seems to be most of it. It's in loads of books. There's a family in The Hobbit called The Boffins. Yeah, it seems to be a really, I guess it's quite an, it's a fun word, isn't it really? But Boffin is not caught on, presumably. No, just this book. Just this one book.
+
+[00:17:16] Like page one. Yeah. We're going to make it happen? Let's make boffines happen. This is sort of at home of boffines, the R.I. Would it have done so well if it weren't for the boffines of the very. start of the 1800s, maybe not.
+
+[00:17:28] Because I was very surprised to know that the audiences in this lecture theatre, which is where all the greatest scientific discoveries were basically distributed to the public, were more than half female. And it's because the RI employed socialites to make it cool to go to science lectures. Guys, I got a question for you. So look at the audience here. What kind of, what word do you think was one of the most common to describe the audience at the royal institution? This is something noted by Sir William Henry Bragg, who was a Nobel Prize winner.
+
+[00:18:02] Someone shouted nerd from the audience. Nerd? Yeah. Not nerd. Odd? No, we're talking about the old audience. Oh, yeah, sorry. Is it positive or negative?
+
+[00:18:14] It's positive. Oh, cool dude. Legend. Cool dude is close enough. Fashion, fashionable. And like Hannah said, it was a very fashionable place for people to come. And also as well as like sending the socialites out, you would be able to get discount lecture rates if you gave your daughters or your best friends tickets. They would get cheaper tickets to get more women in.
+
+[00:18:35] Oh, nice. Oh, like one of those, sign someone else up and you'll get half price off and they'll get half price off things. And I keep meaning to forward that email to you guys about Airbnb. Oh. It's more like use the offer code fish. Uh-huh. Can I tell you one of my favorite boffines? Yeah.
+
+[00:18:54] Yeah, of course. So this is Caroline Haslett. I think she was a member of the R.I. She was also director of the electrical association for women. And she was born in 1895, started off as a boiler engineer in Suffolk, was expelled from her boiler engineering school because of a dangerous love affair. Wow. And then she had a crusade her whole life, which was to liberate women from drudgery in the home
+
+[00:19:19] through the medium of electricity. and she had this thing called the House of Marvels in Bristol which was a house which was all electric and in 1935 this was insane you know people couldn't believe it what you mean like lots of things plugged into the mains not like you step to the house
+
+[00:19:34] what do you think yeah an electric house sounds like a step on the floor and I go it killed everyone on impact yeah yeah yeah yeah yeah no it had things like a drying cupboard and an electric clock and these were very advanced in 1935 and her memorial which I just think so nice. There is a Caroline Haslett Memorial Pylon down in Sussex.
+
+[00:19:56] Oh. That's nice. I didn't know you got those. No. I know. Sounds like the kind of place you're going to take your wife on holiday, Andy. If you could have any piece of infrastructure named after you, what would it be? Oh my God. I know that's difficult for you. It's got to be a cellar farm. A solar farm? Yeah, yeah. But a pylon's a nice one, you know. Oh, no, a big, one of those big new sand batteries they're building in Finland. They're very cool.
+
+[00:20:19] Okay. Oh, well. I can't have any more. You've opened a can of worms here. The Royal Society, though, and it does feel like sacrilege to mention it in the Royal Institution, but it obviously has been held in very high esteem for a long time,
+
+[00:20:31] such high esteem that another boffin, I can't really, this is how we're calling, referring to them now, Dorothy Hodgkin, very famous won the 1964 Nobel Prize in Chemistry, fair work in crystallography, when she'd made the discovery that led to her Nobel Prize, which was solving the structure of penicillin.
+
+[00:20:47] Her tutor said, you'll get the Nobel Prize for this and she said, I'd much rather be elected a fellow of the Royal Society and he said, that's much harder. Wow. But she was anyway so that's all right. And also she had a colleague John Cornforth,
+
+[00:21:03] cool name, who when she said, I think the structure of penicillin might be this, he said if it turns out to be this, I will give up chemistry and grow mushrooms instead. And did he? He didn't. He went on to win the Nobel Prize in chemistry in 1975 So a bit of a dickhead, really?
+
+[00:21:19] Didn't stick to his word. Can I give you another boffin? Yeah. I'm seeing as we're doing that. So Reiser Nittabuch. She is the only woman for whom a body part is named. Say her name again. Reiser Nita book.
+
+[00:21:35] The knee. No, it's a layer between the placenta and the uterus wall. But there are 432 people. after whom parts of the body are named and 424 are male physicians eight of them are gods and kings and the only one that's named after a woman is this part of the placenta.
+
+[00:22:01] I think there are at least three times more human body parts named after worms than there are after women. Oh boy. So the vermilion border for instance around your map. I don't know that. It's like the bit between your lip and the rest of your skin.
+
+[00:22:14] Oh yeah? That's named after a worm. That's a very small. I can see why you're doing that after a worm. Well, here's a thing. The Wormian bones, they are wriggly bits of bones that attach your school plates together. Named after Oleg Worm.
+
+[00:22:30] Yes. Of course. Yeah? People want this book. They know. They know where it's going. Into the book. Half the audience, so confused by that.
+
+[00:22:43] And one of it is, so these are things which sound like they should be named after a trait, but are actually named after a person with an opposite name. And the other one I found that I went through all the body parts is the Olcock Canal, which is where the nerves that serve your penis pass through, and that's named after Benjamin Olcock. Wow. Wow. That's great. That's wonderful. The problem we're talking about, in a fact like this, where we're talking about general female scientists. There's just so many extraordinary people out there and how do you narrow it down. So I decided I was going to look specifically at people called Margaret just to see what they've
+
+[00:23:28] done for the world. And there are so many amazing Margaret. Is that because my mum's in the audience? Yes, exactly. But there were amazing ones. Margaret Gatti. She wrote a book about seaweed and there was a whole seaweed craze that happened in the UK in the 1800s. And it was a way of liberating women who wanted to have a scientific passion but weren't allowed into these institutions. They could go down to the sea and they could identify all these different seawees. Margaret Gatty's book had 200 different seaweeds in there, right? And it was getting so popular that men were writing that their wives were traveling with larger
+
+[00:24:00] muffs so that they could hide all their seaweed equipment in because it was seen as uncouth to have that. So the muff, obviously, the thing you put your hand. Obviously. Yeah. Well, it wasn't to me. So I thought it's worth mention. Have you cleaned that muff recently?
+
+[00:24:18] It absolutely reeks. Why is there a test tube in there? Yeah, another amazing woman, Margaret Alice Murray. She was the first woman in Britain to hold a full-time appointment in Egyptology. So this is an academic world, not strict science. But she was the first person to unwrap mummies in public as a woman. Not meant to do that.
+
+[00:24:40] Sorry? Not meant to do that. Meant to keep them wrapped. There's the whole idea. Right. This is why they didn't used to let women in. They just come in, and they unwrap all the mummies. Oh, take these bandages off.
+
+[00:24:51] Come on. Get some air on it. Get some air on it. No woman was allowed to do it again until 1945. She also wrote a book about witchcraft, which led it up to Wicker being quite a legit field. But it was very controversial because she bent a lot of the stuff. But she lived to 100, and she released her autobiography, aged 100, and it was called My First 100.
+
+[00:25:15] years. Love that. Such a good title. Love that. Last one I'll mention quickly. Margaret Roberts. Very interesting lady. She was a chemist and she's notable because she became the only prime minister of the UK
+
+[00:25:30] to have a science degree. That was Margaret Thatcher. She started as Margaret Roberts. And it was very interesting. She's still the only one? Yeah. Wow. I believe so.
+
+[00:25:39] Yeah. I mean, the article was from 1998. But she, she... Well, it's not like we've been going through. them quite a lot recently. What's really cool, though, is that for all the faults that you have with Margaret Thatcher, she was one of the people that led to the Montreal Protocol, which is when there was discussions about CFCs on an international level, she was a chemist who came to the table with knowledge
+
+[00:26:02] that it was ruining our planet and convinced all the other leaders of the world that this was something that we needed to ban. So having a scientist in a prime minister role is probably a good thing. Do you know who her supervisor was at university? Previously mentioned in the last 10 minutes Dorothy Hodgkin, Nobel Prize winner. Not Benjamin Olcock. Yeah, isn't that amazing? I did not know this.
+
+[00:26:26] Dorothy Hodgkin was Margaret Thatcher's tutor at uni and Thatcher, so she worked in Hodgkin's lab, so she was a big crystallographer person, hence the Nobel Prize, and she kept a photo of her up in 10 Downing Street when she worked there. And Dorothy Hodgkin was incredibly virulently anti-nuclear development. and anti lots of other stuff that Margaret Thatcher stood for and used to keep on coming to nag
+
+[00:26:48] Margaret Thatcher about you know please stop investing in nuclear technology and Margaret I think would just always say no but I have your picture up in my room so I've got a couple of very quick boffin quizzes for you oh great right these are all headlines from the sun about what those boffins have been up to
+
+[00:27:04] I've removed one word from each one okay this is nothing like have I got news for you just for legal reasons what's that show I don't know Okay, good. Boffins create super what that can survive being run over by a car? Super rat, someone yelled out in the crowd.
+
+[00:27:23] Super rat that can survive being run over by a car? No? Superhuman. No. Supercalifragilistic, expeyalidocious. There we go. Jelly. Super jelly.
+
+[00:27:31] Okay. 50 most beautiful watts confirmed by boffins. Is yours on the list? Old cock canals. Is it a body part? No. Oh. It's baby names.
+
+[00:27:47] Oh. Dave, the 16-inch what? Killed by boffins. I'm not going there. Earthworm. Dave the Earthworm. Okay. Was basically Britain's harambe.
+
+[00:28:00] He was... He was, tragically, 16-inch-long earthworm. Can you imagine? It's a lot. Huge. Is he now two 8-inch earthworms? He's now one 16-inch earthworms. in a jar at the Natural History Museum.
+
+[00:28:15] Sadly, they studied him, but then they killed them and put him in a jar. Oh, right. Okay, that's... Well, I've got one more, but I'm too cross about a day. The other one now. It is time for fact number three,
+
+[00:28:31] and that is James. Okay, my fact this week is that according to Ethiopian tradition, during the 14th century, it was illegal to be a short, bald, old man. Hmm. So...
+
+[00:28:45] Someone just said, damn it. This is a legendary Ethiopian queen called Furrah And we don't know very much about her Because it's all oral retelling of her story She may not have even existed But all the stories say that she reversed traditional gender roles And she forced the men to do all the housework And all the child care
+
+[00:29:06] And she really took against all the short, bold, old ones And as someone who's kind of on the boardline Of some of those categories It was kind of interesting. But she, basically, it was that the older, bolder, shorter men were kind of talking to people and giving them ideas and telling them what to do.
+
+[00:29:25] And she's like, well, I'm the queen and I should tell you what to do. That's kind of the thing. And they were traditionally figures of respect in the community. Yeah, yeah. And then in all the stories, there is one short, old, bold man
+
+[00:29:37] who manages to escape. And she asked people to do something ridiculous and they go to him for advice and then he tells them how to do things. And it's like a lot of different stories like that. Yeah, because it was a lot. She didn't say she was the queen of the people. She was the queen of the women. She was really saying, men, you have no place here.
+
+[00:29:56] And so it was the men who were escaping to the cave going, please, short, bold man, tell us what we can do. And he kept feeding advice back to them of what they could do. And eventually it was his advice that saw to her end. Yeah, just to give an example of the kind of thing. So she would ask them to do ridiculous things, like to build a house that was not on the ground and not in the sky, but somewhere in between.
+
+[00:30:20] And then they would go to the old man saying, what the fuck is she on about? And then he'd say, okay, well, say that you'll do it if she puts down the first foundation. And then they went to her and said, we'll do it if you put down the first foundation. And then she'd get really annoyed and she'd be like, you're talking to that old man again, haven't you?
+
+[00:30:37] Yeah, like you said. Now, go and build me an elevator for grain. But no nails. But you were saying about how they got rid of her at the end? Yeah. So finally, she said, I want to go see all of my land and I want to ride around it and I want people to meet me and say how great I am.
+
+[00:30:57] So they ran to the old man in the cave and they said, hey, she wants to go around. What do we do? And he said, here's our chance. It's finally arrived. Put her on a giraffe and it will run so fast it will rip her limb to limb. And according to the facts, that's what happened.
+
+[00:31:12] According to the facts This is all very It's very misty stuff, isn't it? According to the stories But why does we're writing on a giraffe Tell you Lim from Limb? Well, she was tied to the giraffe Does that help?
+
+[00:31:24] I don't think so. I don't think it makes sense at all, Andy, but her arm flew off And then her waist flew off. Her waist flew off. Her genitals flew off. Oh dear.
+
+[00:31:35] And the remains fell off. And where all these pieces fell, it's a long ride, apparently, because all the towns are named after each bit of her body. Really? So can you still visit towns called, you know, Furus Buttock? Yeah. So there's a place called Salah, which means genitals. A place called Kura, which means like the remains after you got rid of all the other bits.
+
+[00:31:55] And her waist, there's a place called Hello, which means waste. I can't find any of them on Google Maps, but I do believe that they all exist. And isn't there a tradition, I don't know if it's still upheld, but the place where her last bit of body fell, her last big toe fell or whatever, people go to it and women pour milk on it as a sign of respect and love and men beat it with sticks. So if you're going as a couple to this tourist site, you've got very different aims when you get there. The milk is an interesting thing. Why is there milk? What's the milk connection? I don't know. It's always like a kind of a votive offering milk, isn't it? I guess because it's such a precious resource. I think especially in certain parts of Africa. Yeah. Well, I wonder
+
+[00:32:38] It's a bit to do with the fact that we have some items from the old, what did they call again? It's the Salima, Salima people. Sadama. Sorry, Sadama people. We have old items. So there's an item in the Met Museum, which is a pillow for keeping the people of that area in Ethiopia, their head off their pillows, because they used to use butter as their... Keeping your head off the pillow? Yeah.
+
+[00:33:03] So basically, your hair had been done up in butter, which was a hair gel, basically, back in the day. The idea is that you would do your hair up, you would keep it on this wooden thing, and it would retain this amazing look that you'd done purely. You would keep your head on the wooden thing you mean. So it was like a wooden frame and you lie your neck on it. Yes, exactly. Yeah. Feels like you don't need the pillow at that point, isn't it?
+
+[00:33:21] Feels like if it's to keep your head off the pillow, at that point, you can just take the pillow away. Yeah. Okay. But I borrow your pillow. It just doesn't look like you're using it. They have four types of marriage, the Sadama people. Or four types of sort of getting married. Three types are your kind of standard, traditional woman forced into a relationship.
+
+[00:33:44] She didn't want to be in against her will at the end. But number four, if you're lucky enough, is if a woman fancies a man, she stands on his doorstep, waits for the door to be opened, and throws a stick into his house. And if a woman does that to you as a man, you have to marry her. Oh. Panical saves a little small talk, doesn't it? How often would number four happen over number one?
+
+[00:34:04] I think it depends on like family culture, on, you know, Just what your parents let you do. Yeah. It's a bit humiliating for someone to basically play fetch with you as their way of... Come on, Andy. You've been treated worse by various. I'm in marriage number four. Yeah, yeah.
+
+[00:34:23] There are some marriage taboos in the Stama area. So men are not allowed to mention the names of their in-laws. And women are not allowed to not only not say the names of their in-laws, but also any word that has the first syllable, as the name of their in-laws. So, for instance, my surname is Harkin, and my wife wouldn't be allowed to say Harkin, but she wouldn't also be allowed to say harmonica
+
+[00:34:46] or hard-boiled egg. Ah. Which would be very difficult in our life. Oh, my God. That comes up a lot in our house. Every morning of breakfast, you get the harmonica where you're cooking? Yeah, that sucks.
+
+[00:34:57] Short-boldled old men? Who's the shortest, oldest, boldest man you can name? Living? Because I've got one, and I don't think you're going to get shorter or bolder or older. Living. Not living. So in history, in all of history? Well, yeah, yeah.
+
+[00:35:11] Gandhi. Short and bald and old, yes. Yeah. But not him. Older and shorter and maybe bolder. Methuselah. Older than Methuselah? Yep.
+
+[00:35:20] But Methuselah was like 600 years old or something, wasn't he? Oh, no, sorry. What's the of all we talking about? Is it like older than longer ago? Oh, I see. Yeah, yeah, yeah. Sorry. No, nice.
+
+[00:35:29] Yeah, yeah. Okay, so from someone from... He's a friend of the podcast. Oh, Outsi. Outsi the Iceman. No way. Outsie the Iceman. A friend of the podcast.
+
+[00:35:38] was bolding. He had the male pattern boldness gene. He was 53, which I think at the time was old. Yeah. Yeah. Yeah. Yeah. And he was five foot three. Was he? Short, bold, old. He could have been tall for that era. You don't know. Yeah, I agree. Yeah, that's good point. Yeah, I guess so. It's pretty good though. Yeah, that's good. The other thing we got, I haven't told you this, this is this fresh information. It's just come into the inbox today. Ertzi the Iceman had a tramp stamp. I'm afraid I didn't write down the name of the person who's centered in, but he had on his, on his back, like, what those? What's a tramp stamp? Yeah.
+
+[00:36:15] You know. It's a, it's a... You don't know, because, you know, you have so many, but it's the tattoo that goes on the lower back. Oh, that one? That one. Okay. Male pattern baldness, it's quite weird, isn't it, that you go bald in a pattern,
+
+[00:36:34] and that we have no idea why it happens like that. And so, obviously, you lose it from the top, and then you lose it from the front. sides and there have been various theories but the latest scientific papers are concluding that the reason that you lose the hair from the top of your head first and then from the sides of your temples is basically gravity is pulling your hair off. No. Really? The theory is that basically you've got a layer of fat under your scalp and men lose this layer of fat as they get older whereas women don't and that's where your hair follicles are sort of under this layer of fat and so the idea is that this layer of fat and so the idea is that this
+
+[00:37:10] of fat is cushioning the force of gravity. So as men lose it, then gravity is pushing down hardest on the top of your head, because that's where it's directly hitting it, as opposed to when it starts to slope on the sides, the gravity is a bit less. So it pulls the hairs off. So that's why the hairs fall off the top. And then the reason
+
+[00:37:26] they, apparently, in scientific papers, fall off the front and starts to recede, is from the weight of your face, pulling... Stop. How heavy face is your face? Well, if you look at bald men, they've all got huge... huge noses. Well, that's interesting. That's interesting because I have a very big nose,
+
+[00:37:47] but also, in theory, I should be bold. But luckily, as a child, I basically had no forehead. I had, I had like a two point forehead. I had hair that grew all over here. My parents used to shave a forehead on something. No, seriously. And it's receded now that I'm in my 40s to where it's like basically a normal forehead.
+
+[00:38:07] But that tracks with your theory, big nose and heavy face. Absolute cobblers. I just don't know. Guys, this is the home of science. I'm reporting data. Dan sits down. What today, sir?
+
+[00:38:26] Just another forehead, please. Same again. As a child, if you... Short front. If you see photos of me as a child, I had a bowl haircut, and I asked my parents why, and they said,
+
+[00:38:36] because you didn't have a forehead, and it was weird. So I just had a fringe the whole way, looking like I was black adder from series one. I was reading about there's a lot of baddies in literature and let's say
+
+[00:38:50] in movies that are bold Lex Luther. Darth Vader when the mass comes off. Yeah but is it? Describe Darth Vader in one word. If you get it right, we'll give you a billion. Describe the man who robbed you with a lightsaber.
+
+[00:39:06] I'm just pointing out He was bald Just pointing out when the bass came off They would have gone Yeah, of course he's bald Of course he is Because if you bowl the mask off There's this luxurious
+
+[00:39:21] That's weirder When he was younger He did have luxurious hair I think then acid took it away Didn't it? Anyway, the point is That you do have You do have villains
+
+[00:39:35] who are seen with that. But that almost led to Patrick Stewart not getting the job of Picard in Star Trek. And he wrote about this in his autobiography recently. When he was on his way to the audition, he was in the UK and he was going to America. Just before he got on the plane, they said, can you bring a wig?
+
+[00:39:51] We need you to wear a wig. So his wife went home, and he got on the plane, and his wig got on the plane behind him. So it followed him to L.A. To where he did the audition? Because... Can I tune out for a second.
+
+[00:40:03] Did Dan say the wig got on the plane behind him? Yeah. Like an emotional support. Well, they weren't going to hold the plane for it, so it got on its own. I'm sorry, it got on the following plane. Yes. Yeah. He said it goes on the plane behind him, like he gets on the plane.
+
+[00:40:19] Stop kicking my seat. Whoa! The theory is that because in the future, that's that far in the future, we would have cured boldness so there would be no people who were bold. So they thought that's what Gene Robert. Roddenbury wanted, he does the audition, he goes home, and then a few days later he gets a phone call, and they say, we'd like to see you again this time without the wig. And it turns out, Gene Roddenberry, said, I don't think in the 24th century we're going to care about baldheads anyway. And then the wig got back on the plane and went on.
+
+[00:40:53] I actually have a fact that marries Ethiopian female rulers and baldness. Okay. So did I at the start. Shit, it's the same one. How embarrassing. No, this is about the most famous maybe Ethiopian female ruler, the queen of Sheba. Some people claim that she's Yemeni, but are any of those people here? No. Most people agree that she was an Ethiopian queen. King Solomon was told about her by his pet bird, actually, who flew around Africa and came back to Solomon and said, there's this really fit woman, you should marry her. And so he found the queen of Sheba and he thought, yes, I will marry her. But there are all these rumors that she's got really hairy.
+
+[00:41:35] and so there are various versions of this story, some in the Torah, some of the Quran, I think, but this is one of them. He was like, we're going to have to trick her because I need to know if she's got really gross hairy legs. And so in the palace he made for her, he built a floor made of glass with water underneath it, but that made it look like the whole floor was a pool. So when the Queen of Sheba was walking across it, she's going to have to hitch up her skirts. And she did indeed hitch up her skirts, and he did indeed say, ha, you've got a disgusting, hairy leg, what's going on there? And she said, my mum fancied a goat when she was pregnant with me.
+
+[00:42:11] Genuinely, this was the explanation. And so that made her be born with a hairy leg. And he didn't marry her until he designed a special hair removal cream that could remove all the hair from her legs. And that is... Is that feminism? God, it's... Feel like it.
+
+[00:42:32] Okay, it is time for our final fact of the show, and that is my fact. My fact this week is that Gollum actor Andy Circus's MTV Awards acceptance speech was so good, it won an award. The acceptance speech won an award. Isn't that astonishing? It's not when you see it, though.
+
+[00:43:00] Has anyone here seeing the acceptance speech? Yeah, big 2003 MTV Award fans in the house. It basically was Andy Circus, sort of accepting it on behalf of Gollum, because the category was best virtual performance. So it was a year in which Gollum was up against Scooby-Doo, Kangaroo Jack, Dobby and Yoda. I wonder if they had speeches prepared. I love that four shot of them all in the audience. Yoda's looking absolutely livid. He's short and bold and old. Anyway, sorry.
+
+[00:43:30] Oh, yes. Yeah, yeah, yeah. Well, it was a speech, and we've got a picture of it. up here where Gollum is holding the award. He basically attacks Andy Circus for trying to accept the award. It should be his. But instead of it just being quite a fun sort of, oh, you took it from me, he goes into total profanity, the worst swearing you would ever hear. And it was so good, it won a Hugo Award, which is a science fiction ceremony that happens.
+
+[00:43:54] Do you want to know one of the strangest award speech knock-on effects ever? Yeah, go on. So 1994, Tom Hanks won Best Actor at the Oscars for Philadelphia, right? And he was a very young man at the time but he'd done a few films and this was his first really big serious role obviously all about the AIDS crisis and in the speech he paid tribute
+
+[00:44:15] to his old high school teacher Rorley Farnsworth right and he said he paid tribute to him as one of the great but unsung but unsung body of gay Americans right and the story at the time was that he had outed him accidentally on stage
+
+[00:44:32] which is thankfully is not true He had phoned up three days before and asked for permission to mention him. I was saying, I was one of your pupils. I don't know if you remember me, but I'm Tom Hanks. I'm actually pretty famous now. But this speech, and the kind of version of events of the speech,
+
+[00:44:48] led to another film by Kevin Klein called In and Out about someone inadvertently outed during an awards acceptance speech. Oh, wow, really? So the acceptance speech prompted another film. A whole film was based on the speech. Poor Tom Hanks then really having to double down and go, but I definitely didn't do that.
+
+[00:45:07] No, no, he definitely didn't. It's actually kind of cool, the way that Andy Circus became Gollum, I suppose. If you're a Gollum fan, it was quite groundbreaking at the time, right? When we saw Gollum and it's like he is Andy Circus, but he's not. And Andy Circus was meant to be just the voice. And he didn't really want to be just the voice of Gollum because he thought I'm a full body actor here. So he roped up anyway, because his wife persuaded him too.
+
+[00:45:33] and he was so good while he was auditioning for the voice, his whole body and his whole face morphed in the way that Gollams does and acted out the bits so well that Peter Jackson thought, okay, we've got to use the body and face of this guy as well for Gollum, which is a bit shit because they'd already designed the whole of Gollum for the Fellowship of the Ring the first film. Can I just say, sorry, I don't really, I don't know these films very well, and I don't know what Andy Circus looks like, and does he look like this?
+
+[00:45:58] It's uncanny, it's uncanny. That's actually just a shot of Andy Circus. Oh, is it? Yeah. But yeah, they had to redesign the whole part around him and one of the earliest uses of that kind of CGI where they put like points all over Andy Circus's body and they... Motion capture. Motion capture, indeed.
+
+[00:46:14] But that's an interesting difference, which I didn't properly appreciate. CGI is different to motion capture. Motion capture is we are seeing Andy Circus. He's in the scene. He's doing all these things. CGI is really a computer generated reconstruction, maybe using a guide but built from scratch. Totally.
+
+[00:46:31] Yeah. One feels like a subcategory almost, but yeah. But what motion capture can't do is the face. Or it can and it sometimes does, but in Lord of the Rings it didn't. But if you look at Andy Circus's face, and to answer your question, James, yes, it does look quite a lot like Gollums. But in the most flattering possible way, it kind of mimics Andy Circus's face. And that's because the animators, when they were turning Andy Circus's movements into Gollum, they used to call Andy Circus over to their desks and say, okay, we're creating this scene now.
+
+[00:47:01] Can you act it out in front of us? And we will follow your facial expressions precisely and make sure that we match them exactly to Gollum. Yeah, which sounds quite so fun, me Andy Serg's just trotting along to the desk again. Yes, I'll do it. I read that he based the voice on Gollum on the sounds his cats made while coughing up fur bowls.
+
+[00:47:21] Does that sound right? Exactly. I think his name, Gollum, according to J.R. Tolkien, the name comes from the horrible swelling and gurgling sound that Gullam made. Yeah, but what does Tolkien know? Well, I thought I was named after because there's like a Jewish monster
+
+[00:47:38] or something called the Golan. Oh, yeah, yeah. That's right, I thought it was that, but he said that it came from this. Other people think that maybe it comes from like the word gold, basically, an old word for gold. I don't know.
+
+[00:47:50] But I looked at Andy Circus's filmography because, like I said, I'm not really massively familiar with him. And apparently he voiced an animated talking anus in 20, 19. I don't remember that.
+
+[00:48:03] You don't remember. No. It won't best picture. It was for an environmental charity, and it was to discourage people from flushing web wipes down the toilets. And it opens with a line, hello, I'm an asshole. Gollum, or Andy Circus, rather, wasn't the absolute first example of motion capture, which I find very interesting. So there was an early pioneer in the field. was Jar Jar Binks.
+
+[00:48:33] Does anyone remember the character of Jar Jha Binks? Yeah. Now beloved, of course, we'll celebrate Jha Jha Jopin's Day every year. Ahmed Best was the actor. Ahmed Best, yeah, yeah. And he didn't win Best actor. No. Jada was hated.
+
+[00:48:51] But a lot of people... It's hated, I think, as we know, from the groan in the audience when you mentioned his game. As in, it was very sad because he was a young actor who was very excited to get this role as Jaja Binks. George Lucas told him, look, they hate it now, but 20 years from now, the kids who love Jar Jar are going to be adults, and they're going to change the narrative. And that has not happened. The absolutely mad thing about Jar-Jar Bing's,
+
+[00:49:13] because, I mean, it was pioneering stuff, and you can see production shots where Armad Vest is wearing the suit. He's wearing the head, but he's got the sort of, like, the body suit on that's helping to map his movements. Other people going for Jar Jar Jaxen included Robin Williams, and Michael Jackson. Would have been even less popular, maybe. Yeah, Michael Jackson eventually refused to do it
+
+[00:49:38] because he wanted to do it as himself. He didn't want it to be, himself to be C-G-Ied. He was like, I have the judge, I think, look, just let me act it. And Luca said, no one wants to see that on screen. Wow. But the actor who played him, Ahmed Bass, interesting fact, his twin brother went to prom with Lauren Hill.
+
+[00:49:57] Jesus Christ. We've slipped into the... the pages of heat magazine, and I think we should slip out. I'm sorry, who's Lauren Hill? The miseducation of Lauren Hill. She was in the Fugis. She was one of the pioneering sounds of the 90s, I would say.
+
+[00:50:13] Thank you. Yeah. The first CGI in movies was in Vertigo. 1958, Alfred Hitchcock. Oh. And it's the swirly bit at the start, so it's not any real film. It's like credits. And he used something called
+
+[00:50:28] a Keroson predictor. And this was something they used, used in the war where you could put a load of inputs in about the how fast an airplane was going and what direction it was going and it will be able to predict where the airplane would go and then you'd be able to fire in that spot so that when the plane got there the bullet would get there at the same time and he basically put a load of inputs into this and then hung it over his camera or whatever and made it make lots of different twists and turns and that's what makes those spirals at the start of that film that's so cool yeah one of the um first films to
+
+[00:51:01] really lean in, I suppose, to CGI, with Tron, which I haven't seen, but it looks brilliant 1982. So this really was the first pioneering use of like computer generated imagery without any real world in it. But I always find with early CGI, the weird stuff is the stuff that's kind of lo-fi and done by hand. So all the characters in it are just a face and then the rest of them is CGI'd and they've got all these sort of
+
+[00:51:26] glowing lines like lines of circuitry all over their bodies and every single frame of those lines
+
+[00:51:32] was hand-painted on so there was about half a million separate pieces of art done for that film with little bits of paint that hand-painted on
+
+[00:51:40] the glowing lines of the circuitry because of the opposite and then it couldn't be nominated for an Oscar for Best Special Effects because
+
+[00:51:48] it was cheating yeah I remember that really you remember it was 1982 you were I hadn't been born for two years
+
+[00:51:56] but I remember first thing I said when I came out of the womb going that's bullshit man you came out of the womb, picked up your fringe and went this bullshit someone's CGI this bullshit on my head a lot of films now they
+
+[00:52:11] want to say we don't make it with CGI that's a big thing it's like this was not made with CGI and so I was looking at a YouTube miniseries by someone called the movie Rabbit Hole and they found out that basically films are using CGI
+
+[00:52:27] to delete evidence of CGI in their behind-the-scenes footage. Isn't that amazing? But like for instance, one thing about not using CGI, Christopher Nolan, for Interstellar, there's this big bit where there's a big cornfield. Yeah. And he planted 500 acres of real cornfield in Alberta, Canada,
+
+[00:52:50] in order that he didn't have to CGI this field. Wow. What a fath. Well, the cornfields exist. Yeah, but they've one willing farmer. What, to lose all his corn? Because he burns it down, Andy, in the movie. He burns it down, well...
+
+[00:53:06] You don't see Nolan in shot, but like it's as part of the... Sorry, I thought it was just walking through the corn, swishing it like in Gladiator, which actually would make it worth more, probably. Well, he didn't actually burn it all down. It cost him $100,000 to make this entire cornfield, and he managed to make a profit of 162,000. by selling a lot of the car afterwards. That's amazing.
+
+[00:53:28] It's pretty good. Because I was just wondering if Gladiator Bread went for more at the time. And if not, they should have. Bread where Russell Crow swished along it was, yeah, of course. You'd pay more for one that's been fingered by Russell Crow, wouldn't you? I don't think I would. You'd ask for a discount. I feel like I would erect a scarecrow just to scare Russell Crow.
+
+[00:53:50] Nice. We're going to have to wrap up, guys. Does anyone want to say anything before we go? I was reading the article in The Economist about actors losing their jobs due to artificial intelligence. It is happening, but mostly in the animal world. And that's because people don't really want to use animals in movies because it might be cruel and you can do it with AI and CGI instead.
+
+[00:54:14] And there was a guy called Steve Martin, interestingly, who was, he's like one of the main guys who used to give all the animals for Hollywood to use. And he said there's not been a single chimp in any big American movie since the Wolf of Wall Street in 2013. And he has a bear called Tag the Bear who can't get any work at all. And has had to start wrestling with Logan Paul and taking on humans in hot dog eating contests. What? Really? Has had to.
+
+[00:54:45] Well, I feel like Steve Martin's like any work he can get. But that's where we're getting with actors, right? where CGI is now taking over a lot of actors, I think we're going to get to a point where they'll replace old movies with problematic actors with a new actor so that you can watch the movie again.
+
+[00:55:02] Really? I think that feels like we're headed. I can see a world where Michael Jackson has taken out all his video clips and Jar Jha Binks has put in his place. And that's just our reality going forward. It's always going to be Georgia. Everybody, Alan Bill, Jodda Bix.
+
+[00:55:19] It would be a much happier oil, that's big. That is it. That is all of our facts. Thank you so much for being here in this amazing room, the Royal Institution with us. We've loved being here. And if you want to get in contact with any of us about the things that we've said over the course of this show,
+
+[00:55:38] we're all on Instagram, we're on Twitter, we're on various different places. You can find us there. Or email podcast at QI.com because Andy goes through it all and he picks out your best facts for our new show, Little Fish. Anyone heard Little Fish?
+
+[00:55:51] It's cool show, eh? And then there's drop us a line. drop us a line listeners and things, please send them all there. We love getting them. But otherwise, we'll be back again next week with another episode. Thank you so much, everyone, for being here. We'll see you again. Goodbye.
