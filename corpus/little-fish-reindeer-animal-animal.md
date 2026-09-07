@@ -1,0 +1,200 @@
+# No Such Thing As A Fish - Little Fish: Reindeer Animal Animal
+
+- Episode date: September 6, 2026
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/little-fish-reindeer-animal-animal
+- Transcript source: PodScripts
+- Slug: little-fish-reindeer-animal-animal
+
+## Transcript
+
+[00:00:00] Hi everyone, welcome to this week's episode of Little Fish. Now, the reason I'm talking to you before the actual show starts is because we had a little audio flub this week. And the microphones unfortunately failed. But luckily for us, the microphones on the cameras that we were using to record the episode, they did work. But unfortunately, they are not quite the same quality as the ones we usually use. And so we sound a little bit like we're at the bottom of the well for this episode. But I've listened back to it. Wonderful, tech elves have done lots of lovely magic
+
+[00:00:33] to make it as good as possible. So hopefully it will not impede your enjoyment of this episode too much. Really hope you enjoy it. We really wanted to put it out because the facts were so good. We had a great time recording it. We think it's a really great episode. So I hope you can get past the bad audio. Apart from that, there's not really much else to say, I suppose.
+
+[00:00:52] Thank you very much for listening. We really appreciate every single one of you who listens to the episodes. And really, we wouldn't be able to do this without you. So thank you very much. We don't get to say that very often. So, yeah, thanks. Okay, anyway, enough from me. Hope you enjoy this week's episode of Little Fish.
+
+[00:01:09] On with the podcast. Hello and welcome to another episode of Little Fish. Our weekly, regular audience fact show. My name's Andrew Hunter-Murie. I'm here with James Harkin and Anna Tazitsky. And we've gathered with your best facts from the last seven days. So let's kick off. Let's have a fact.
+
+[00:01:42] is who this fact is from, Doug D-U-G, no O. Cool. Very interesting. Then that's not even the most interesting heart of this email. Doug Steen says that reindeer, the etymology is a combination of the Old Norse Hrain and Deer, where deer means animal and Hrain means reindeer. So when we say reindeer, we're actually saying reindeer. Time wasting.
+
+[00:02:07] It's like ATM machine and pin number. So we should just call it a. We should just be calling it a rain. It feels like I'll lead to more confusion. Yeah. Does that mean all animals are deers? Yeah, I believe so. Oh, that must be confusing for the Vikings.
+
+[00:02:21] Oh, another deer? Yeah. Oh, you got killed by a deer. That's a good point. You've had the deer today. Yes, dear. Hard one at second. You've blown this over, yeah, a deer, a standard deer.
+
+[00:02:33] Yeah. So we get that from Old Norse as well and it just means animal. I guess maybe it's the only animals they had. Don't quote me all that. That's true. That's true. right to Vikings. Oh yeah,
+
+[00:02:48] going to come to your town and chop your head off. Yeah, yeah, yeah, yeah. Steal all your gold, yeah, yeah, yeah. Well, that's a great fact. Only dear. Really good. Yeah, although it did get quite confusing in the email, which I should repeat from Doug,
+
+[00:03:00] who says, reindeer means reindeer animal, and thus, brackets, reindeer, animal, animal, or brackets, reindeer, animal, animal, animal, add infinitum, which I'm not sure quite makes sense. I think he's saying if you say, If you say reindeer animal, you're actually saying reindeer animal animal. Yeah. You never heard anyone say that.
+
+[00:03:18] People very rarely say reindeer animal. Because there's not another meaning of the word reindeer there isn't the animal. I don't think there is, no. No. So that wouldn't come up. But aside from that, a great email, I thought. Very good. Yeah.
+
+[00:03:30] Here's one from Christian Berlin. And it's also a bit scandy. It finds it's very scandy. Christian says that the only national anthem that mentions Sweden in any way is the Polish national anthem. And the Polish national anthem basically mentions loads of different countries according to the website, Brilliant Maps, which actually is a really good website. I know it doesn't sound like it, but there's a really good website. They do loads of amazing stuff.
+
+[00:03:58] But I have checked this on other websites and it's definitely true. Is it like, we will beat Sweden into the ground? There is a bit of that in there, yeah. You're all Polish internet. You should know this. Of course. You should sing it every morning. Yes.
+
+[00:04:11] Like Andy Banks his family do to the British National Anthem. I only know the original Polish and I wasn't sure about the translation. I, of course, because of course the Polish word for Sweden is very different. Actually? The Swedish national anthem mentions the North. Oh. As a sub-euphemism for Sweden. I see.
+
+[00:04:34] It's going to be countries, but it doesn't say Sweden by name. You know, the British National Anthem doesn't say Britain, does it? No, it doesn't. It doesn't have anything, does it? I guess that's because it's so old. I just think you don't say your own name as often as you say other peoples, do you? I never say the name. Of course you do. You speak about yourself in the third person. Hello, I'm angry. Well, what about O Canada or Advanced Australia Fair?
+
+[00:04:55] Good point, yeah. Or go on New Zealand. Call back. We do mention one country in the British National Anthem. Scots. In some versions. Well, the old, the later verses, have some rather decidedly unworked stuff about rebellious Scots to crush.
+
+[00:05:15] Yeah, you're right. There is a verse about someone called Marshall Wade who's going to crush the rebellious Scots. But that is very much non-canon, I would say. It was kind of a verse that was invented in the 19th century because in those days we were a little bit anti-Scots. Was it? Was it? No, that it was put in later. Incerptu.
+
+[00:05:38] There are a few verses which were were sung for a little while but there weren't sung afterwards. Interesting. And that's one of those. This is non-canon. Although, ironically, if you were going to crush rebellious cults, you would probably need quite a few canon. Yeah, multiple canon. Good use of the plural canon. Yeah, yeah. Always something to enjoy, isn't it, the plural canon? Yeah, yeah, absolutely. Singular plurals are terrific, you know, or unexpected plurals, um, courts martial, love.
+
+[00:06:03] Courts martial and beauty. I mean, it's a bit of a hackneyed example. Examate. Exhibit. I believe that's in the German national anthem. Really nice. Oh, can I do one? Yes. Here's a fact from Tony. Tony says, I have a fact for you.
+
+[00:06:21] The continents of America and Europe are moving apart at the same speed as a fingernail grows. This means if you stand at Land's End, which is the southwestern most point of the UK, and point west, your fingernail is stationary and you are moving backwards. No notes. I think that's terrific. Yeah, really is. But both sides are moving away from each other, right? I guess. The way I thought you were going to go is that the end of your fingernail is always the same distance from America.
+
+[00:06:52] No matter what. That's a real mind-exploder. You know what? I always, I've heard that fight before, and I always think of it whenever I cut my fingernails. Do you? I do, I think, because my fingernails grow relatively fast. Yep. Like you do. Do you know relative, do you ask other people how fast their growth?
+
+[00:07:11] Relative to what I imagine they should grow. I didn't say what it was relative to. Oh gosh, has it been that long since I cut my fingernails? They've grown so fast. That's why I do think a lot. I find it's incredibly variable so I am sometimes extremely surprised. In fact, right now to be honest. It is variable.
+
+[00:07:25] Okay, this is the great thing. Your fingernails grow more in the summer hot country. Which we've become. Well, yes. So it's a global warming, we're all going to be like RuPaul. Does RuPaul have long fingernail? Who was the first person I could think of.
+
+[00:07:40] I don't know. No, I don't. I'll be honest. It was a great reach. But that's probably just more blood flow in your fingertips, basically. Is it? Yeah, when it's a bit hotter. There was a doctor called William Bennett Bean,
+
+[00:07:54] who spent 35 years from 1941 studying his own fingernail growth. He concluded that nothing has any effect on fingernail growth. I think he was wrong. Just a bit of the kicking the cheek in the teeth there. I know someone who cuts one fingernail a day because they think it's more efficient? Loopy, it's not. Than doing all it was. It's just so wrong.
+
+[00:08:16] The extra work that's being done is finding the clippers, getting them out of the cabin, not ever putting them away again. If you're doing that 10 times instead of once, I'm sorry, there's just no way that's not really. Also, he cuts their fingernails every 10 days. It's a psych. I do interrogate further out there. Toes.
+
+[00:08:30] 20 days. And 20 days is about right. 20 days is about right. Yeah, but you'll have a constantly shifting border across your I used to say that's my mum. She used to say, if we clean up a little bit all the time, then it will save us time overall. And I was like, no, the best thing to do is to make a load of mess. And then all at once clean it all up. That's the most official way of doing it. It is, which is why you can't use that argument as a other. You've just got to say,
+
+[00:08:55] I like it being tidy more than one cent of the time. Okay. I don't like living a shit pile because once a month you want to clean it. No, I think that is sort of sensible thing that was thing. I think I'm going to start doing that with my head. hair. I'm just fine. Go in every day. Yes, just another five post cut in there, please. I'm just going to press one tooth every 20 minutes. Stop the broadcast. Sorry, James tooth.
+
+[00:09:22] Anyway, this is a fact that James Relfth. Something I came across which I thought was a bit fishy. And I hadn't heard as mentioned is that the Soviet typhoon class submarines were so big and they were meant to be under, I was going to say ground, but underwater for such long periods, they have a swimming pool gym, sauna and aviary. No. That's what? It's extraordinary.
+
+[00:09:45] It's poor birds. I know. It's not that fun, is it? But maybe that if birds in a cage, do they care if it's above water or below water? Why do they have an aviary, though? To keep morale up? Yeah. It doesn't keep morale up as much as one dog, does it?
+
+[00:09:58] Unlimited cuttlefish for them to have in the cage. Yes. They're lucky. Benething. Is it like canaries in a coal mine maybe? Yeah, because they notice that when there's been a pressure change, if all the canaries are dead. They all drop dead.
+
+[00:10:13] Yeah. What do you do? What do you do? What do you do? You're in a submarine, yeah. Yeah. Yeah, I think that must be morale. So you can sing that seed ditties and have them accompany you.
+
+[00:10:23] That's a good, that's a really good point. Yeah. No, it's nice stuff. You wouldn't have a dog on a submarine for a start. I think a dog would be more unhappy than... The poos. The poos. Because it's already a fat flushing poos on a submarine, isn't it?
+
+[00:10:34] Because it's really annoying to flush the poos, especially when you do want 10 foot 3 5 minutes. Oh fuck, the dog that James trained. That's amazing. Yeah, it is very amazing. Oh, something else very cool that he added is that he mentions there are absolutely massive things and they were meant for missiles they were carrying and they had a double hole layout. So there was an outer wall that was like water filled.
+
+[00:11:04] It was kind of like a tent Indian outy. and then the in-between bit was water-filled, encasing an inner wall. So, as he points out, if you took a toy submarine and put it in the indoor pool there, you'd have a sub in water, in a sub, in a sub, in water, in a sub in water. Amazing.
+
+[00:11:20] Really nice. Like the Russian doll of... Ah, and it's so... Yes. There we go. Very good. Yeah. Nice fact.
+
+[00:11:27] So good. And another warry one. Oh, yeah. After leaving the Marx brothers, Zepo Marx invented a clamp, which held the little boy. atomic bomb in place on his flight to Hiroshima. No way. Yeah, Zepa Marx. He was an inventor, it turned out. So he invented, sorry, he invented what? He invented the clamp which held the
+
+[00:11:49] little biotomic bomb. So what it is, it's a clamp which holds cylindrical things together. Do you know if you have a hose pipe and you need to attach the end of the hose pipe onto your sprinkler thing? It's the big for my life. Oh, those things that never work. Yeah, those little metal things that never work and you have to tighten them and they kind of make a seal. It's not that. Okay. But it's very similar to that. Because when I saw an image of it, I thought, oh, it's one of those things. So I can just say that thing and everyone will know what I mean and they'll know what the clamp is, but then I looked more carefully and it's very slightly different.
+
+[00:12:25] Because I think it is good that they didn't go with that clamp device or first atomic bomb, because those things never ever work and I don't want a loose atomic bomb rolling around in the platform. No, because whenever you use those, you get the sprinkler and it's not working, you turn it off to your face. It sprays off into your face. Imagine if that happened with an atomic bomb. But that's certainly because Jerry, the mouse, has been standing on the hose and there's a huge bulb of water that's built out behind it. But yeah, Zappho, he was like a proper inventor. He invented a wristwatch that checks your heartbeat and can tell you if something was going wrong with your heartbeat.
+
+[00:12:59] The other watch? Yeah. Like a Fitbit, right? Wow. Well, when was... Like, 1969 he invented that. Oh my Lord. It was not...
+
+[00:13:08] There was a Marx brother. Yeah. But it was these are less... There are three of them, right? Four, yeah. And there was a fifth who was, I think, a non-combatant... I mean, what, not in the Second World War, I just mean like he was not in the Marx brothers. You know, the Marx brothers, the Chico Harpo Groucho, is that funny?
+
+[00:13:23] Yeah. And I think there was... George. George. Ringo. Like the Kardashians. I feel like there's one Kardashian that's not there. Susan.
+
+[00:13:32] I think what you're thinking of actually is that it was the guy from Black Sabbath. Or the Osbourne. The Osbourne, so there was one Osbourne who was never in the Ossbonds. Oh really? She didn't want to be in the TV series. Okay, yeah, yeah. Anyway, so yeah, he also, one of the thing he invented, this is really cool. He invented a thing where you could put two beehives together
+
+[00:13:52] without all the bees fighting each other. How else do you invent that? Was it a pheromone thing? It has like a reverse bend, which has a queen excluder in it, because it's the queens that go. that cause all of the fighting. So they're basically, all the bees can go in and out, but the queens can't go from one to the other, so it stops the drones and stuff
+
+[00:14:10] from fighting each other. Is that? That's really funny. Which of those inventions? The clip for the Hiroshima bomb, the Fitbit or the anti-B fight excluder, do you think was the biggest invention? Which one did you want to talk about in chat shows?
+
+[00:14:27] I mean, I think they're all completely inconsequential. What, the Belarus? The clamp. Who cares? It's like, oh, the Marx brothers here with his idea for the clamp. Okay, well, that's great. But it's not. Yeah, but isn't that like, otherwise they couldn't have picked it up, they would have just had a big bond sitting in America and not knowing what to do it? I think it was quite important. I guess. You think someone else might have made a clamp if he hadn't?
+
+[00:14:48] I just think if you're in charge of the Manhattan Project and you're in charge of this hugely significant doomsday device, there's just a risk that if you get one of the Marx brothers involved, like it's about it as much as anything else. Sorry, when the three stooges is not. available. Imagine if we invented the ultimate weapon and the guy responsible for delivering it to the battlefield was Michael McIntyre. We just think, hang on. Is he going to do a bit? I reckon McIntyre is a secret agent working for the government. 100%. The light entertainment stuff is just a cover. Why do you think that? Because no one could possibly devote their life to that. No, because he's so good at it,
+
+[00:15:26] obviously. He must be getting a lot of help. I see. The government, you see how I turn that around. Yeah, yeah, yeah. The government, if it's good at anything, it's drafting comedy routine. I got another from George, who says, I thought this was fascinating when I overheard it mentioned by a geography teacher. Quite interesting. Always promising. Overheard it mentioned by a geography teacher. So it's unclear if George was in the lesson and not really listening and just sort of overheard it.
+
+[00:15:57] Or if George is in the pub next to someone who's clearly a geography teacher, you know, because it's wearing corduroy or whatever. Sorry, geography teachers. Anyway, I love this fact. The Romford to upminster branch of the London Overground, okay? It's a branch of the north London, marks the furthest line of ice penetration during an ice age. Wow, I'm interesting.
+
+[00:16:22] Now, listen, I've been fooled before by ice age-related facts. Yes, you have. Elephants in Cornwall made the road network there. But the ice definitely didn't get as far as Cornwall. No, but it did get as far as the Hornwall. Horn Church Till. Now if anyone's looking for a metal band name, I think Horn Church Till is actually quite good. It's a glacial deposit and it contains all these rocks and fossils which were basically carried down from the Midlands further north of London.
+
+[00:16:45] 450,000 years ago, the most extreme ice age of the last two and a half million years, this one got as far south as North London and then it stopped. Well, we won't want to go south at the river. Not that time of that. And basically there are all these rocks and fossils in there that we've, you know, you can tell. because of where they belong in the lands that they've been carried down. It is so cool. It's quite, I think it's quite metal.
+
+[00:17:08] It was discovered in 1892 by a geologist called TV Homes. Homes and Sherlock Holmes. Quite hard to Google him because you search TV Homes. Yeah. Just find the latest Sherlock series, whatever. Exactly, yeah. And this Ice Age, it's so cool, is the reason that the Thames go through London because the Thames used to go through East Anglia, north of London,
+
+[00:17:29] came out of the sea in Clacton in Essex, And it was pushed south into another valley by the advance of the ice sheet. You know what I used to think, and I thought I was a genius thinking this, that the rocks at Stonehenge were brought down by that ice age, because that line where Stonehenge is pretty much the spires it got as well. And I was sure like I absolutely nailed the origin of Stonehenge. It's just definitely not true. I have plenty of evidence that people carried them over from Wales.
+
+[00:17:57] It's got BBC publishing articles about the origin of Stonehenge every two weeks. So definitely not true, so I think you should give them all cool. But there's all this stuff of Ice Age Essex, there's the Clacton Elephant Bed and the West Thurrock Lion Pit. There's all this rock stuff. Yeah, I just love it. So anyway, yeah, the Thames, just think, like if the Thames hadn't been pushed south,
+
+[00:18:17] London wouldn't have a river going through it now. Just letting them wouldn't be there. Yeah. Well, no, be it there, but without the river going through it. Yeah, you're out of all the bridges and stuff. Nothing. So there you go. Fupor thought.
+
+[00:18:29] Yeah, it really is. Yeah. Anyway, thank you, George. that fact yeah really cool that's amazing what about this one from kate haines um this is that in world war two one of the plans put forward to stop hitler which was a very important aim at the time was to feed him carrots laced with estrogen in the hopes that this would feminize him and make him meek and mild like his sister apparently i didn't know he had a meek and mild sister did he have a meekinard sister of gertrude hitler i think there was a sister called paula paula she says it's bad isn't it so yeah i think his sister was
+
+[00:19:01] called Paula. I know perfectly well she was called Paula. Did she also have the little moustache? That was that Hamley trait. Oh dear. I don't know how meek and mild she was. Probably meek and milder though, which it wouldn't be difficult. That's true. There were also his in-laws, if you remember, the Scouse Grants of Family, but that's because he had a different sister's husband, maybe or Alwa, no, Alwa, maybe his brother married someone
+
+[00:19:28] who only lived in Liverpool. And then one of them moved to America, didn't they and went on the sort of chat show scene a little bit or not you're on chat show so much as like going to theatres and talking about my terrible cousin hitler yeah yeah can't so he's got the terrible in at the start make clear your side you're on uh but yeah so this is one of those manned plans yeah and also apparently it was also hoped that his smoother skin and large breasts would make him a laughing stock among the military men and world leaders you don't know they're going to be large before you feed him the carrots i'm sorry i think that's i think this is all a bit of a fever dream from the other's planning this.
+
+[00:20:01] Maybe it depends how many carrots he goes to one. There's like the boob size depend on how much Easter do you have. I don't suppose it does, does it? I don't actually. Maybe. Well, we're not, James and not the experts. We're not expecting you to be either. No, I'm not. Just because I have them, I've never really looked into how Eastern carrot consumption corresponds.
+
+[00:20:18] But Kate Ames does specify that she found this at the world Carrot Museum of this fact. So I guess that's why they had to throw in the carrot fast. The physical carrot museum, or the online one. Oh, I think. Think the online one. Yes. Oh, there is a great carrot.
+
+[00:20:34] Yeah, that website, I think, has gone into kind of QIFO. Plara's like one of the greatest ever websites devoted to one subject. Okay, yeah. It's just one person who collects a lot of amazing carrot facts. So good. I just always love these plans. I was even mad. There should be a competition between plans to kill Castro and plans to kill Hitler, which were maddest.
+
+[00:20:54] And there are so many which involve having to surreptuously feed them stuff that they've never eat or slip into. their nightgowns, things that, you know, how, how, what were the logistics of this? How likely was it? And if it was likely, has it happened to lots of other people we don't know about? Like, was Ming Campbell originally really a vicious person? And do you know what I mean? If they had these plans a lot, but didn't you? Do you think, how much effort, time, money is going to go into making Ming Campbell, particularly relaxed guy? Yes, no. Do we want to do anything for international listeners on Ming Campbell? Former leader of the Liberal Democrat Party, not especially why.
+
+[00:21:30] remembered here either actually. I think we should do something for domestic listeners on. What? I think they'll all have heard of him. Well, our key with New Zealand listeners. He just struck me as quite a gentle person. So I thought maybe he didn't used to be until he was fed the carrots himself. If you can get close enough to give Hitler some carrots, which got estrogen in, it feels like you're close enough to do something more. Put a bomb in the carrots.
+
+[00:21:53] And the bomb is attached to the case by a clamp that's been created by Miranda Hart. Now look, Tony Hancock is carrying an incredibly explosive pie. It's not the idea of like the war department than outside you've just got a queue of all. It's coming in for the things that have to do. Like Diane Morgan, ready for duty. It's a very funny idea. You have to make that show. But not today.
+
+[00:22:26] Because we've reached the end of our fact time. Time. Oh, so soon. Well, the good news is we're going to come on to fact allocations. So if you join Clubfish at the top tier, friend of the podcast, then you will get one of our headline facts dedicated to you. If you want to check out Clubfish, just to say, go to patreon.com slash Clubfish. There are three different tiers.
+
+[00:22:46] There are all sorts of good things there. There are bonus episodes. There are extra long episodes that James edits. There is all manner of stuff. And as I say, if you become a friend of the podcast, you will get a classy certificate sent to you with you. one of our facts that will become yours in perpetuity. So let's dish out a few more of those now. Okay, here is a fact that is now under the custodianship of Alexandrana. And Alexandrana, your fact is that the world puddle jumping championships
+
+[00:23:14] bans fizzy drinks in case they improve participants' performance. And that's because it's kids, it's kids does do it. Oh, of course. And it's whoever does the best, sort of jumping. It's not necessarily most puddles. It's just whoever does, it's more like figure skating. It's all about your style.
+
+[00:23:37] Oh, is it on? Because I would have seen it was length or width. But okay, that makes more sense of style. That's more interesting to watch. Yeah, I'm not sure if it still exists that competition, must admit. Do we know how rigorous the drug testing is on the on the fizzy drink? How do you test
+
+[00:23:53] for a fizzy drink? I bet there's no blood test that can do that. Surely it affects your blood sugar a bit. But couldn't you have just had a flat drink? that was very sugary. That's absolutely true. That's the loophole. Everyone's just fruit shooting up. That's great.
+
+[00:24:12] That's really good. Okay, here's another fact for Nicholas Romero, and this is that the shuttlecocks used in professional badminton are made with real goose feathers, and they're always taken from the left wing. Because badminton is traditionally a very socialist short. Brilliant. Very good. That was from a guest, Mark Mason.
+
+[00:24:33] Oh, yeah. And it's because they spin different ways, depending on what side of the bird they're on, because they're intended to be used by the bird. Yeah. And so their particular shape for a spin. And you've got to have your shovel cocks all spinning clockwise. I think the left wing spins clockwise. I wonder if you had an aviary on a submarine.
+
+[00:24:53] Whether you might be able to farm those birds for your shuttlecocks for a bit of R&R. your sailors. We don't know that's not why they had it. I don't know how big these submarines were. It sounds like it were very big. It does feel like a goose farm and a badminton court are going to they're going to stress the central committee for approval standards. There's no point having one and not the other. I like the idea of it because submarines are such a boring shape, aren't they? They're like two. You know, they're basically big fish shapes are effectively, are they? For a good, okay, but no, no. horse.
+
+[00:25:33] You want something that's going to go nicely through the water and I think a fish is a good example of such a thing. Yes, but what else goes through nicely through the water? A manterey. Imagine a mantaray-shaped submarine where it's basically one floor, it's basically a massive bungalow. Then you've got space
+
+[00:25:49] for your badminton court and everything because it's so spread out. Lovely. Lovely. Yeah. Something to think about. We'll get on to the MOT. Right, let's have another one. This one goes out to Danny Thomas. Danny, your fact now and forever is that the ancient Egyptians had pornographic papyruses. Papyri? Papyri, for sure.
+
+[00:26:08] But this is about the Turin erotic papyrus. Oh, yeah. Yeah. And it's got various rude images on it, all in hieroglyphics, obviously. Squiggle, squiggle, squiggle, bird. I have horace. Yeah, and we're not quite sure what it was for, I think, but it was... Aren't we though?
+
+[00:26:29] Well, it was maybe for, you know, ancient Egyptian teenagers, or maybe it was a manual of some kind, or maybe it was just, you know, a prank. Funny prank. Love the idea that in 4,000 years someone's going to find an old playboy and go, we're not quite sure what they used this for. It could have been that they plastered the pictures up to show people wear brothels, huh?
+
+[00:26:51] Exactly. Because that's what they always say, isn't it? It is, yeah? Oh, there's loads of, like, rude graffiti on this wall. Oh, that must be to point out where the broth was. A signpost, was it? All the 15-year-old boys going, yeah, okay, sure it was. Although they are to kind of roll back immediately on that,
+
+[00:27:10] and the idea is like sailors come into a port and they don't necessarily speak the language. So they need to have photos. Photos? Drawings. Root etchings. Root etchings. Okay, yeah, yeah. Here is one that is now under the custodian ship of Sam and Sam,
+
+[00:27:25] fact is that the world's only Cornish Pastly Museum is in Mexico. Mechigo. Yeah, love this. Although I think it might not be true anymore, actually. I have a feeling that they've got a Cornish Pasti Museum in Cornwall since then. I remember there was, in fact, maybe even when we did this fight, they were talking about building it, weren't they? But what happened was a lot of Cornish miners went over to Mexico because they had expertise in tin mining and in Mexico they were going to mine stuff and so they brought the Cornish Pasti with them I believe yeah that is very well I think I'm just looking for an update now oh news coming in news flash this is St Austell Chamber.co.uk
+
+[00:28:12] Plans are developing to establish the UK's first over Cornish Pasti Museum still developing it has hoped it will be ready for visitors in time for the 2016 season so I don't Sorry, the article didn't have a date on those. I don't think it didn't get built. I don't think it got built. This is what for international versus British sort of big construction projects like this often do run over a bit, don't they? Oh yeah, I've just looked it up now, yeah.
+
+[00:28:44] It's now costing 10 billion pounds. It only goes as far as death. Very good. Okay, so here's another fact. This is for Naomi. Robinson Dunbar. Naomi, enjoy this one and this one is that 20% of people wake up wearing fewer clothes than they went to bed with. It me. It, it you're feeling seen. It me. I'm feeling so seen. This is classic me. It's just the thing people say, it's me. It's me. It's an old. Who comes in and steals them in the night? No, it's normally the nightcap comes askew and gets discarded.
+
+[00:29:19] Do you think it's easier to subconsciously take off clothes and put on clothes? It is a... Yeah, definitely, okay. Of course it is. Sorry, officer, I don't know how I arrived here in an extra jump-back. You never get anyone saying that. You're right. But you often get people say, sorry, officer, I don't know what happens to my trousers? Yeah, okay.
+
+[00:29:39] Oh, that's great. All right, here's another one. Oh, I love this one. This one goes out to Lauren Castling. Lauren, your fact is there are people who mine for jeans. denim jeans this is in it's in America isn't it
+
+[00:29:54] there are all these old Levi's buried in mines and things because people got too hot when they were doing the mining they took off their jeans without even realizing it people did used to get naked when they're mining didn't they
+
+[00:30:07] yeah that's a pretty common thing yeah how's it so hot yeah people would go down into the mines and you know they're just all the jeans would get and they're obviously valuable now because they're so old and they're full of proper rivet
+
+[00:30:19] and they're actually quite high quality clothes. So people sell them as cool agent artefacts. So what are we going to be mining for that those people left behind when mining for jeans? Oh, I see. Like their gene tweezers that they pick up the jeans with? Probably their gene tweezers, yeah. Yeah.
+
+[00:30:37] That reminds me I must just pluck a single hair from my eyebrow. Stop the podcast. This fact is now under custodianship of Nicola and Nicola. Oh, Dan Shrienship. but should be here to justify himself, because this is one of his facts. And the fact was, Jesus had a mono brow. Can I remember what his evidence for this was, given that I've only seen circumstantial evidence
+
+[00:31:01] that Jesus was even a historical evidence. Okay, but all of them say, but if he did exist. Dan said there was someone who runs a blog of descriptions of Jesus by Tom Chivers, and at least three of these say that he had eyebrows meeting. Okay. Although another said he had hairs as white as snow. Okay. And you might have.
+
+[00:31:24] Yeah. Blondy. And everywhere the pilot went, that Christ was sure to go. So Mary had a little lamb joke there. Well, that's one for the kids. One for the kids. See? That's a conscious pilot.
+
+[00:31:34] Yeah. But then Mary was a natural character in the pilot. Yeah, that would have been a lot better. A lot better. In fact, that's, I almost think what I've done is amazing there. Yeah? You're like, I need to adjust Mary had a little lamb. To put in the character for the Bible.
+
+[00:31:52] Pilot. Oh dear. I just think your brain works in extreme ways. In very mysterious ways, I'd say. Right. Well, let's have a mother fact. This is one for Henry Smith. Henry Smith, take this to your grave.
+
+[00:32:05] Ernest, sorry, that's a bit dark. Just take this with you every day. Ernest Shackleton's dogs' names included slippery, slobbers, Satan, painful, swanker, bummer and Bob. Bob? Bobby, poor old Bob, run out of inspiration at the end. Or Shackleton? Which of those would you feel least confident shouting in the park if you'd lost them?
+
+[00:32:29] Oh, they've all got some problems. I mean, bummer and Satan feel like the two least acceptable. Swanker! Swanker, yeah, true, yeah. Swanker depends on if you said something before, like, you know, if you said something that could be pluralised, like, Ham's, wanker. Hams, wank, like a... To pick something normal that you'd say in the park.
+
+[00:32:53] Hams, wanker. Yeah. Good point. Just to pick another biblical character. Well, you insert your own noun. So, yeah, there you go, good old Shackleton. I just loved how you were painting yourself into it. As you were saying it, I was like, I can't think of anything.
+
+[00:33:14] I felt it coming. I felt it coming towards me. It was like that scene. Austin Powers with a very, very slow steam roller coming towards him. I'm going to have to finish this sentence. Oh dear, well, that is eight new fat custodians dishdow. So congratulations to Henry, Nicola, Lauren, Naomi, Sam, Danny, Nicholas and Alexandrana. You are now custodians of Fish Facts and if you would like to be a custodian,
+
+[00:33:38] just go to patreon.com slash clubfish and sign up today. But that's it for this episode of Little Fish. I've had such a fun time and I hope you guys have too. I hope everyone listening has. But for now, it's time for goodbye. We'll see you in a few days for another episode of No Such Thing as a Fitch. Bye for now.
