@@ -1,0 +1,338 @@
+# No Such Thing As A Fish - No Such Thing As Musical Toads
+
+- Episode date: September 10, 2026
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-musical-toads
+- Transcript source: PodScripts
+- Slug: no-such-thing-as-musical-toads
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast this week coming to you live from the Lung Comedy Festival in Sweden. My name is Dan Streiber. I am sitting here with Anna Tosinski, Andrew Huntsum Murray, and James Harkin. And once again, we have gathered round the microphones with our four favorite facts from the last seven days. And in no particular order, here we go. Starting with fact number one, and that is my fact. My fact this week is that in many Indian languages, Lund University means penis university. Does that make it popular? Well, yes and no.
+
+[00:00:55] Oh, okay. So we are in Lundon, Sweden, and we're a five-minute walk from the university. And it's an extraordinary university. It was established in 1666, often ranked as one of the top 100 universities, In Sweden. In Sweden. And there was a moment where it sort of became a meme because the Facebook page, that was the official Lund University Facebook page,
+
+[00:01:22] put out a statement saying, could everyone stop tagging their friends who were nothing to do with this university because everyone was just doing it so that it could go, look, it's penis university. Because in Hindi and a few other languages in India, that is the translation. in the written word of it.
+
+[00:01:38] So I suppose, actually, the Lund Comedy Festival that we're here at right now is the penis comedy festival. It's why I thought we'd signed up to it. It's hugely disappointing to find out the reality. So this, as Andy was asking, was this a problem at all?
+
+[00:01:55] It was actually for students who were applying from India because they did feel a bit embarrassed that they would be going to somewhere called Penis University. And there was a person who had to deal with this a lot and they were interviewing her about it
+
+[00:02:07] and they said, how do you deal with it trying to get these students from overseas? And she said, we like to do it by word of mouth. And she says that because the pronunciation is different. The word is the same written, but it's more like land when you pronounce it in, say, Hindi. Okay. So word of mouth is the way to do it.
+
+[00:02:28] And then if you are a student from India, you might just say, I go to a university in Sweden and not specify the details of where you are. It is a great city about which I knew nothing before coming here and researching for this fact I like the fact that you can do
+
+[00:02:43] a walk of Lund's most amusing attractions. What's on the walk? All sorts. There's a monument to nothing which is a monument to administrative inability to decide what statue should go in the spot for the statue. They had a really long debate
+
+[00:02:59] and eventually they just put up a plaque saying this is to nothingness. I believe the plaque was then stolen, is that correct? Was it? So then it was a missing monument to nothingness, which they had to replace. Yeah. You lost me quite a long time ago. But that is amusing.
+
+[00:03:17] There's no question about it. Oh, yeah. The university, I think, is pretty cool. Like you say, it's very old, Dan. Founded in 1666. 1666. And I believe it was, and people here will know this, but I believe it was founded to sort of swedify the area,
+
+[00:03:34] because there was a lot of those dastardly Danes. Any dastardly Danes in the audience? I just want to restart the war. Yeah, so this area was kind of owned by Denmark and then Sweden took it over and they thought, well, one way to make sure it's definitely Swedish is to start a university here. Right.
+
+[00:03:58] And it was someone called Hedwig Eleanor who was the Queen Dowager, I think, time who signed the founding documents and she's famous. You guys here, do you guys know about the Gotop Fury? No, maybe not. Okay, so Charles the 12th of Sweden, he became king when he was 16 years old and like anyone who becomes king when they're 16 years old probably just went on a massive drunken rampage around the whole country and especially in Stockholm. He did loads of crazy stuff. I think some of the stories, maybe not true, like they were exaggerated later. But one of the stories is that somehow he got really, really drunk and a bear fell out of a window.
+
+[00:04:43] And we're not sure how the bear got up there in the first place, or exactly what happened that the bear fell out of the window. But everyone was so astonished that he'd done this and got really drunk, that his mother, who was Hedwig, kind of went over to him, and she just looked at him, just looked at him in the eye, and he felt so ashamed that he never drank again for the rest of his life. Really?
+
+[00:05:06] Wow. I actually didn't know but didn't want to interrupt and ask during that story whether it was the bear that was so drunk or him that was so drunk because you said that but why is it his fault a bear's fallen out of a window? That's like, that's on the bear, surely. Did he push the bear out of the window?
+
+[00:05:19] We don't know, Andy. We don't know what happened. Sorry. All we know is that everyone's getting pissed and then the next thing you know, a bear's falling out of the window. You're right. But it wasn't the bear who swore off the beads.
+
+[00:05:28] We don't know Anna. Charles the 12th, isn't he the absolutely crazy king? He sort of went to war with Russia and Prussia and France. Everyone, someone at the front one just said. Yeah, at the same time. He was mad. He was a bit like a. I read him saying this article that said he never drank again,
+
+[00:05:48] but then I read another article that he said, he never drank very strong alcohol again. So he might have had a few beers. Anything under 40%. It doesn't really count, does it? I don't think. Can I tell you my favorite? thing that's at Lund University.
+
+[00:06:02] Oh yeah. About which I'm so excited. Please. It's the European Spelation source. Ah, okay, it has some fans in the room. This is so exciting. It's the biggest microscope
+
+[00:06:14] in the world. It's so excited. Are you sure it's not the smallest telescope in the world? I've never known the difference. Is it just a telescope as soon as you point it upwards? Yeah. Yeah, okay.
+
+[00:06:28] Yeah, of course. Of course. the other end. Yeah, yeah, yeah. They should be multifunctional. Yeah, yeah. This is such a cool thing. It's a microscope which uses a particle accelerator. It's between 13 different nations, billions of pounds
+
+[00:06:42] has gone into it, and you basically have to fire protons at a target atom and knock chunks off it. It's going to be unbelievably useful for things like testing materials to see how they react under extreme conditions. So, you know, the world of tomorrow will be built of things that have been tested in this lab.
+
+[00:06:59] And the heat that it generates, because it's this huge great science project, is heating the homes of 20,000 people in Lund. Really? Really? Isn't that good? Anyone here being heated by... Well, Lund, the university is an amazing university for the innovations that have come out of it. It has produced... Well, in-203, it got its first proper in-house Nobel laureate in physics.
+
+[00:07:24] Anne Lullier, is that her name? Louieet, yeah. Yeah, she won it in physics. But there's been four other scientists who... who had started their work here, but they moved on to other universities, so it doesn't quite get the credit. But not only have they technically produced five Nobel Prizes in physics, they've also got at least five Ig Nobel Prizes.
+
+[00:07:44] Oh, they're the name ones. If you know the Ig Nobel Prizes, it's the science that makes you laugh, that makes you think. And it was at this university, Lund University, that scientists worked out that chimpanzees and humans in zoos imitate each other to an equal extent. That horseflies prefer horses with dark coats. And so if you've got a white horse,
+
+[00:08:07] they don't really get those flies. That dung beetles navigate using the Milky Way. They've done studies of how cats talk to people. And then finally, they got one for working out that a Chinese alligator sounds different after inhaling helium-enriched air. So there's amazing stuff going on here at Lund. And what's that going to be useful for, do we know?
+
+[00:08:33] I'm not sure they're working on big things still. I think that one is that if we have helium, our voices go higher, but I think with crocodiles, the voices go lower. Yeah. And that's all I remember about it. I don't remember why. Any fans of Uppsala University in? Oh, really?
+
+[00:08:49] Oh, yes, that's what I was expecting. I was expecting some booze. So, you know, we have Oxford and Cambridge in England. Well, here we have Uppsala and Lund. And the phrase I kept seeing in my research was Pluga e Uppsala, Liga and Lund. You know what? I was going to explain it, but the luck on these three spaces. We get it.
+
+[00:09:16] It means we both equally respect and like each other at all time. So I think Plugger E. I mean studying Uppsala, right? Because they're all kind of, they all wear suits and they're very important, and they do their important research and stuff. But Liga, it seems to be live or be in. bed or Google Translate says it means sleep around. Oh, well, you've got to use that Lund for something, haven't you? So it means studying Uppsala and sleep around in Lund and the idea is that students in Lund are having
+
+[00:09:54] much more fun. I think that's, is that the idea? Yeah. That's a big cheer for everyone saying, yeah, we're sleeping around all the time. So good on you guys. I only realized reading up on this fact that the academic quarter was a thing, which seems to be universally known in Europe, in mainland Europe, but we don't have it. The academic quarter is, if your lecture is scheduled to start at 10 a.m., guys in the audience, what time does it start?
+
+[00:10:23] 1015. 1015. Right. What the hell? Well, I can tell you in the UK, if the teacher doesn't turn up for five minutes, we all fuck up. Exactly. The lecture would turn up every day Go, still no one coming, hey, weird.
+
+[00:10:37] Yes, this is so mad. And it seems to be, like, it's at Lund University, which has a plaque that claims to mark the meridian of the academic quarter. So it says, you know, we took this meridian from Greenwich and it's an hour and a quarter after GMT. And it's because back in the olden days, if a lecture started at 10 or at 2,
+
+[00:10:55] then you heard the bells ring, the cathedral bell ring. But then you needed 15 minutes, once you've heard the bells, to get there, you know, pre-watches. and so I guess that that habit has hung over and it is the case and then you observe the double quarter
+
+[00:11:09] I believe after 6pm so if you're going to a banquet after 6 and it's scheduled at 7 you actually turn up at 7.30 So are you saying that's a thing in other countries? It's in many European universities yes. I know that German has a word Academisha Fietal. What's that?
+
+[00:11:24] The academic quarter of an hour. What I mean what? Right. I bet that's related you know Well, I thought it was that if you were an intellectual you were allowed to be 15 minutes late for something But that might just be a joke that someone told me once Everyone, everyone officially does
+
+[00:11:42] Unless, and I believe this is correct You have to write the word dot If you really want people to turn up at 10 o'clock You have to write 10 o'clock And then the word dot or prick, I think it is In Swedish You guys, you cannot stop, can you? You've got to calm down
+
+[00:11:56] If I had a pound for every time I've seen the word sluts today I have literally no idea what it means in Swedish, but it is everywhere. We've seen it everywhere. We have no idea. Can I give you a couple more unfortunately named universities? Yeah, yeah. So Kinky University in Japan had to change its name to Kindai University because so many
+
+[00:12:23] English-speaking people were making jokes about it. Beaver College in America changed. changed his name to Arcadia University in 2001 for the same reason. And I found two schools here, unfortunately named. And I want you to see if you can think of the link between them. They are sexy school in Bruton and porny school in Eaton. And what's the link? Yeah.
+
+[00:12:52] Aside from about that they both have rude names. Yep, one more link. Is it that they're both named after... They both sound like they should be named after one thing. But sexy school was named after Hugh Sexy, who lived there in the 16th century, and Pony School was named after a Frenchman called Mark Anthony Porni. Really?
+
+[00:13:18] Oh, my goodness. Fantastic. That's brilliant. Stop the podcast. Stop the podcast. Hi, everyone. We'd like to let you know that this week we are sponsored by NordVPN. Dan, what is NordVPN?
+
+[00:13:34] NodeVPN is the finest VPN out there. It is the fastest VPN out there. It allows scams to be blocked before it gets to your computer. It also allows you to make it look as if you are sitting in a different country so you can get access to lots of different countries' materials that you might not get in your own country. Absolutely. I very recently was sat in the country of Sweden when we went on tour there
+
+[00:13:56] to play the Lund Comedy Festival. But my computer and my phone thought I was in the UK. And so I tricked them into showing me the snooker. Can you believe it? But yeah, it's not just that kind of thing. I would call it the all-in-one digital security app. Because like Dan says, it stops you from getting viruses, it offers protection against malware, dangerous websites, ads,
+
+[00:14:20] all that kind of stuff. They're very privacy first, and they're very good against the horrors of the internet. That's right. We've got a hell of a deal for you because you can get NordVPN's two-year plan plus four months extra if you go to NordvPN.com slash fish. It is risk-free with Nord's 30-day money-back guarantee. Absolutely. You don't have to be in a Nordic country like I was in Sweden.
+
+[00:14:43] You can be in any country to use NordVPN. And again, that URL is n-r-d-vPN.com slash fish. And when you do that, you can buy a two-year plan and get four months extra free. It is risk-free with Nord's 30-day money-back guarantee. Okay, on with the podcast. On with the show. It is time for fact. number two, and that is
+
+[00:15:10] Anna. My fact this week is that one of the biggest fashion designers of the 90s now works as a toad facilitator. Oh, Nigel Farage's Taylor? Lovely, lovely.
+
+[00:15:25] A toad facilitator. Yes, you look like you're going to try and guess what it is. Well, I know what a toad is. Yeah, but a facilitator, someone who makes toads possible? He makes it possible to smoke them. So this is a guy called Patrick. It actually doesn't harm the toes,
+
+[00:15:44] even though I know it sounds like it does. But this is a guy called Patrick Cox, who was a huge shoe design mostly and sort of bags and accessories in the early 90s. He made a shoe called the wannabe, wannabe loafer, which you probably recognize. If you want to be my loafer? That's what the lyrics actually were, yeah.
+
+[00:16:04] Wow. So sorry, sorry, Patrick Cox. Pre-spice girls. He was like a mad party animal, took all the drugs, mates with Elton John and Liz Healy and people. But now he's changed his ways. He lives in Ibiza and he doesn't drink any alcohol. His only vice is taking drugs smoked from a toad.
+
+[00:16:24] And not only does he do this smoking toad poison, but he is like a douler for other people who want to smoke toad poison. And it is in the whole world of toad smoking. a toad facilitator is an accepted job. It's a thing that's referred to, and you have your toad facilitator, and the lingo is they hold the space so that you can smoke it while feeling okay. Yeah, but sitting by people, walking them through the situation.
+
+[00:16:49] I just don't think this guy's had a massive change in his life. If you say, oh, wow, it's incredible. He doesn't drink anymore, apart from all the hallucinogenic toads that he helps other people smoke. Yeah, that's the thing, because he did go to rehab, and Elton John paid for his whole rehab, and then he went and visited him, and he said, I'm totally cured.
+
+[00:17:04] I'm now just licking toads every day. When you say licking toads, so people don't write in in the toe-facilitating world, you can't lick the toads and get the right effects. It's very dangerous. It caused lots of terrible health outcomes. I think it's not good for you in any way, I'm going to say. And it's definitely not good for the toads.
+
+[00:17:21] You can have an effect from licking the toad. We're just saying you shouldn't. You shouldn't. And so what people do is they dry the toxins that it excretes. Sorry, you have to milk. Milk the toad first. Tickle the toad. Well, obviously, Andy, milk the toad.
+
+[00:17:37] And then the venom comes out, and then that's what you dry, isn't it? I read that it's like the venom comes out like squeezing a pimple. You kind of tickle it and squeeze it and it goes, oh. So satisfying. Not for me. I'll take that job. Toad milker. And you can...
+
+[00:17:56] But what you end up smoking is a type of, it's DMT, right? Well, it's not exactly DMT, it's sort of related, but it's eight times six to eight times stronger. And you can synthesize what that produced to make DMT. That's been a thing that's been a byproduct. Sorry, no, that's question. What's DMT? DMT is the thing in ayahuasca. But this gets you way more high.
+
+[00:18:18] This is actually the most top. Di-meethyl-triptamine, just to say. What was that? Di-meetal-trip-mean. That's how the police test, if you've had any. I think it's interesting about the fact you can synthesize it, but people still still want to lick the toads and they still want to squeeze the pimples from the toads and all that when you can get just as good stuff from the lab. And that's a real problem because when you start
+
+[00:18:41] messing around with toads, they get really sick. And there's a whole big problem with funguses going through the amphibian world at the moment. And a lot of it is due to people doing this. And the reason that people try and use the actual toads instead of using the stuff off the shelf is because they think that this is like an amazing indigenous sacrament that people have been doing in Native America for, you know, thousands and thousands of years. But the truth is it probably really isn't. And it was probably just one guy who kind of went to this group in North America and said, oh, you guys should do this.
+
+[00:19:14] And then he said, oh, look, they've been doing it for ages. And then suddenly everyone now thinks that that's like some ancient thing, but it's really not. And so if you do want to do this, and I don't think you should. But if you do want to do it, do the fake stuff. Do the fake stuff? Yeah. And the fake stuff doesn't have... When you do ayahuasca, there's the whole thing of purging where you have...
+
+[00:19:31] You vomit. When you're doing synthesized DMT, it's basically a 15-minute visit to this fractal, illusionary world inside your brain. And you don't vomit. It's a... They call it the death of the ego at certain points of it. And if you put in the offer code... Toad.
+
+[00:19:50] Damn. It has a lot of famous users. Mike Tyson has said that this stuff changed his entire life. His entire life, although he has been punched in the head repeatedly for a long time. But we know, I think, the first person to be arrested for possession of toads. So as you were saying, James, this is a more recent thing. A Californian teacher called Bob Shepard was arrested in 1994, and his four toads, Hans, Franz, Peter and Brian, were seized as evidence.
+
+[00:20:23] But Shepard was such an enthusiast about his way of. life, much like Dan is today apparently, that Shepard made an informational videotape for the people who were prosecuting him, saying, look, this is how you do it, this is how great it is. Yeah, right. People are obsessed. One of the mad things about it is that the person who actually discovered it was this guy, a Texan called Ken Nelson, and he's kind of cool. He was a total recluse.
+
+[00:20:48] His identity was only revealed really publicly after he died in about 2020. But he had read about these thousands of toad bones being dug up in North Carolina. on an archaeological dig. And he just thought, well, I bet that's a weird, historic, ceremonial thing, like Native American spiritual ceremony, and I bet those toads were hallucinogenic. And then he got into his research,
+
+[00:21:09] and he found the toad most likely to be hallucinogenic. He went with his girlfriend and her dog into Arizona, turned up a bunch of toads. Eventually, the dog actually found the toad, which turned out to be the right one. And, you know, he sort of tickled it under the chin and let it secrete its milk onto his windscreen. the milk dried, he smoked it,
+
+[00:21:28] he'd discovered the most powerful hallucinogenic known to man. The thing is, the ones that had been dug up that he'd read about were probably just ones that had all fallen into a pit thousands of years ago. It's complete coincidence that he went looking for a hoaxiotech and found one. Maybe they were all licking each other, these toads. There's been a lot of evidence about psychedelics like this are good for treating depression, and it does seem that they work in some way,
+
+[00:21:54] but the truth is a lot of the headlines say that they're way better than actual antidepressants as in the ones you get over the counter but in truth they're probably about the same and the reason is the studies that have shown that the psychedelics are better it's really hard
+
+[00:22:11] to come up with a placebo in that effect because if you've had the sugar pill and a big toe isn't sort of kicking you in the head then you know that you haven't had the real thing and so when they test for that they found that actually they're about the same as modern sort of synthesized antidepressants.
+
+[00:22:29] Oh, interesting. Which is still pretty good, to be fair. But it's really hard to get this stuff, right? Like, as in, I'm not saying I've tried. I just mean... I think it's pretty clear which the four of us has tried, but I think it's illegal at a lot of places to do it. But a lot of these towed parties happen at mine. But I'm not doing it, Andy.
+
+[00:22:54] I'm just facilitating. Can I tell you about my favourite toad? Yes, please. My fave toad is the Santa Marta Harlequin. And this is an amazing toad. So with a lot of species, the mating happens via a thing called Amplexus, which you may have heard of,
+
+[00:23:14] which is where the male clings onto the female's back. It's basically a piggyback thing. Doggy style, I think we called it, before this Amplexus word came into use. Let's keep a PG and say piggyback. Okay. The thing is, I think the amplexus is before the mating, right? And the thing is for these toads, the Santa Marta Holoquins,
+
+[00:23:37] it's sometimes very hard for them to find each other, for a male to find a female at all. So if you find a lady toad, you cling on, and basically it's a bit like musical chairs. If you get on the back of a female toad, that's your girlfriend, and you know you'll mate with her eventually, you can powerfully kick away at the mouse. That's not what, like in musical chairs,
+
+[00:23:57] you then start the music again and everyone runs around to jump on another toe. That's one difference, yeah, yeah. I've been letting Dan organize my children's party. It's been an absolute disaster. But basically, the male will get on, get a piggyback, and if the female says she's not ready to mate, the male is simply patient and says,
+
+[00:24:17] don't worry, I'm fine here just on your back. Males have been found waiting for up to five months. months before the female is ready to mate. And they will lose 30% of their body weight because they can't get off to get food. So they're just staying there, starving to death, losing all their weight. Does she not pass some food over while she's eaten? I don't think she does. How often do they check in with, are they like the headache still happening?
+
+[00:24:44] What's the way? Yeah, okay, I'm just back here. I'm just back here. Some of them will starve to death, I'm afraid, clinging on, waiting for her to be in the frame of mind. Yeah. And that's my favorite toad. Let's not read too much into what that tragically reflects about Andy's life. Cain toads, they're probably the most famous toxic toads, aren't they?
+
+[00:25:12] Super toxic cane toads. There were always lots of rumours that people licked cane toads and got poisoned by them. But they are a massive problem in places where they're invasive. They're invasive in the Caribbean. They're invasive in Australia. called cane toads because they were introduced to get rid of the cane beetle that was eating all the sugar cane. So another classic example of when we try to solve a problem
+
+[00:25:36] and make it a million times worse. And anyway, they're killing lots of crocodiles in Australia, which a lot of people would think, fine by me, but conservationists don't. And so they've done this amazing thing. Scientists in some parts of Australia have started collecting cane toads and they euthanise them. they remove all the poison from them,
+
+[00:25:56] and then they inject their corpses with drugs that just make you really, really sick and feel really, really crap. And then they hang them from sticks over rivers, and so crocodiles seed them, jump up and snap them. So you've got all these dead cane toads. If you go to certain parts of Australia,
+
+[00:26:09] like the Kimberley region, you've got dead cane toads, like a weird baby's mobile, hanging above the crocodiles, and then they eat them, they throw up a lot, and then after a few days, the crocs go, okay, I'm not going to eat them anymore, and it saved their lives.
+
+[00:26:22] I mean, in places where they've done this, it's completely... eradicated crocodile deaths from cane toad. That's amazing. Wow. Those cane toads, they were just, as you said, they were released with zero thought. It was the 1930s, and Australia had just had a big success with another kind of introduction to solve a pest problem.
+
+[00:26:38] So they thought, let's just release. How much was it, I think, 64,000 tootlets in one place. And now it's something like, it's thousands of miles of Australia, has fallen to them. One of the only people at the time who was warning against the release was a man named Walter the frog it. No. Wow. The toad that gets used that we were talking about
+
+[00:27:03] that is squeezed for its toxins that's the Bufo Avarious. This is a hallucinogenic one. It's a hallucinogenic one. It's been changed, but that was the original name that it had. And that frog used to be the constellation in the night sky. No way. It was back in the 1700s, and it was
+
+[00:27:20] named by a man called Sir John Hill. And he was a composer, he was an actor, who was an author, he was a botanist. He wrote it quite seminal botanical compendium called the vegetable system. And he used Carl Linnaeus, who was, I believe, connected to Lund. He used the system for the first time. More Uppsala, I think, wasn't he? Was Linnaeus not bar Uppsala?
+
+[00:27:40] Uppsala, yeah. And you see what, you know, he worked hard, and he made something of himself. I think he just came down here for a good time every day. Yeah, yeah, yeah. Hey, we've got to move on very shortly. Anyone got anything for you? I just thought, seeing as these toads and stuff is illegal, Dan, maybe I've got some other ways to get high for you, see if any of these.
+
+[00:28:04] Oh, yeah. The Mayans would take alcohol and infuse it with seeds from the morning glory plant, so they get high and drunk at the same time. And they would use those as enemas, so they would go right up the bum. I'm still in. Yeah. In Antarctica, a lot of... scientists have said that when they're working with penguins, especially when they're
+
+[00:28:30] pooing a lot, the guano sort of gets in their nose and they start to get a little bit high from that. So maybe some penguin poo. Okay. Yeah. I won't do both things at the same time, I don't think. Have you heard of these, you know, cicadas? Yeah. So cicadas can get this kind of fungus that goes in them and it turns them into hypersexual zombies. But the chemicals that it releases in this cicada, if you crush it up and snort it, it will also get you high as well. Okay. Oh, really? I mean, yeah, hypersexual zombie was my Tinder profile biog, so...
+
+[00:29:07] And the other thing that can make you hallucinate is too much quiet. If you go into a room that is completely quiet, if you stay in there for any more than about 25 minutes, you'll start hallucinating. So do be careful here tonight, everybody, because my fact is coming up. It's a bit of a dry one. Well, speaking of which, we must move on to our next fact. And that is, of course, Andy. My fact is, traditionally, the people of Iceland
+
+[00:29:41] liked to bring a sheep into the bedroom. Seems like they knew that here already. So I was reading a fantastic article via a wonderful website called The Browser, which is all about Icelandic terms. Houses and these are, if anyone has seen Lord of the Rings, these are the inspiration for the Hobbit houses that you get in the Lord of the Rings and they are packed earth on the floor and they're really pretty uncomfortable to live in most of them. They were not nice places to
+
+[00:30:15] live in there is a reason now that we don't all live in turf houses. It was quite a hard way of life and there was one bedroom called the bath stoffer for absolutely everyone which was just upstairs and everyone, your grandparents, your servants, maybe the couple of the house would get their own bedroom, but maybe another kind of 10 or 15 people would have to share another bedroom. And sometimes you'd need to bring a sheep into the bedroom simply for warmth. Oh. For warmth for you or for the sheep? For you. Okay. Just because it has a bit more body warmth. It does feel like if you've got 15 people cuddling together, the sheep is a bit of overkill.
+
+[00:30:48] Because that's a good point, actually, yeah. But it's very woolly, isn't it? Oh, sheep, yeah. Yeah, yeah, yeah. That is uncontroversial. Yeah, but it's because Iceland, you know, was not very forested for when people moved there and if the trees, the few trees there were were on the other side of the island,
+
+[00:31:07] you weren't able to go and get them, so you had to cut turf. Yeah, and like the weather's unpredictable, there's volcanoes sometimes, there's earthquake stuff, you'd have many resources, so like a turf house is kind of a good thing to, because it's quite quick to make. Yeah, and they were very, you know,
+
+[00:31:22] I take against this whole uncomfortable. I'm thinking of transitioning to a turf house. Okay. Because they're very well insulated, weren't they? And they look beautiful. Well, like Hobbit houses look. And they changed. They started off just like one, you'd go in through the dawn.
+
+[00:31:36] It was like one very, very long corridor that went deeper and deeper into the hill. But then they turned into little villages. So every family would have its own little turf village. But it did mean that Iceland had, by a long way until the mid-19th century, the highest rates of high-datted disease in the world. Oh. Which is only very strange because I was talking to my friend the day before yesterday, who's the UK's consultant on high data disease, it's dog tapeworm.
+
+[00:32:00] So it's when dogs have tapeworms that they get from eating dead sheep, and then humans get from eating dog poo. Not intentionally. I'm not suggesting they're doing it intentionally, but sometimes... Dan, another hallucinagent. You did a world too. Guys, I think I read it wrong. It's penguin poo.
+
+[00:32:16] It's penguin poo. My fault. My fault. Sorry, Anna. And this is what you're saying is your... dream home. I just think it sounds like I are. I can see why Anna's into it.
+
+[00:32:27] When you read the descriptions about how life was inside as families, you know, there's no screen time. You know, back in the medieval times, they would sleep two to a bed and they would sleep in a slight sitting up position. No one slept fully vertical, which is very interesting.
+
+[00:32:44] Out of interest, is your wife convinced you that sleeping two to a bed is abnormal in our society. You know I'm not in my bed Because I have three kids And they sleep at it with my mind I'm at the bottom of a bunk bed For the last two years right now That was a very sensitive subject you brought up there
+
+[00:33:01] Yeah, I'm so sorry I knew I was doing it as well What was I thinking? As you were It's annoying because I'm not allowed to sleep on the top bunk Because I'm not cool enough Where you go But no, it's So they're two to a bed
+
+[00:33:13] And then because in the winters They just have to stay inside They get the sheep inside everyone's huddled together, storytelling goes on, and that's why the oral tradition was so big in Iceland. It's just constant stories we're being told to while away the hours. That sounds pretty cool to me. I like the idea. And I also like that the turf itself, you're living in a living house, as in the house itself keeps growing into itself.
+
+[00:33:35] I'm absolutely, I'm sorry, I'm absolutely sick of this campaign to live in soil. I'm sorry, there is a reason we don't live in soil anymore, which is that everyone's ill all the time. And it's cold and it's filthy. And there are living things in the walls and in the floor. That's not the reason. The bizarre thing about it is they lived... I'm saying this is stank into it. What are we doing?
+
+[00:33:58] Why are we relitigating buildings? This is insane. There's a lot of problems with modern life, Andy. You know, we're all over our computers all the time. Yeah. You know, there's not very good ventilation in a lot of houses. I do want to say... You three can shack up in a hole in the ground with your sheep, all right?
+
+[00:34:12] And I will be in a brick home. Oh yeah. Why do I feel like this is how it started with the three little pigs? You know what? Maybe the wolf eats us, but we have more fun, Andy. The mad thing about them is that it wasn't medieval times. It was literally all of time until just after the Second World War. So in about 1945, more than 50% of Icelanders lived in turf houses. So most people in Iceland lived in turf houses. And after 20 years, so 20 years from World War II, only 1% of... So that's how quickly it absolutely plummeted. And it was just because...
+
+[00:34:51] Well, what does that say? Guess it shows that the people of Iceland are wrong to want warmth. I really want to object. They were very well insulated for all their other flaws. I think it would be quite an odd experience for a sheep if they really understood what was going on inside there. Well, because they would eat the sheep, right? So you're like, in this house, they're like having...
+
+[00:35:13] Ooh, they're having some... Actually, I've just made that up. I don't know if they eat the sheep. I've completely ready. Sure, eventually they... They probably... These are hard conditions. I don't think you'd throw away a sheep
+
+[00:35:23] that's made of land. Yeah. Even if it's one you've slept with. Even if it's what you've slept with. I'm sorry, darling. They're using their wool, obviously. They use that all the time for the clothing. But then on top of it, they didn't have windows,
+
+[00:35:39] but they did have spaces for windows. And what they would do is they'd take the innards of a sheep and they would stretch it out so that the see-through intestine of a, I believe it's the intestine of a sheep, would be the window. So you saw a sheep in there, they're eating you, they're wearing you, you're looking outside through you.
+
+[00:35:56] I suppose one advantage of the sheep being there while you're all sleeping is you could all count it to get to sleep. One, okay, everyone going to sleep. I think it was the amniotic sack, wasn't it, that they often use as well, the amniotic sack of the sheep. And the amazing thing about it is they retain
+
+[00:36:15] this word. So this amniotic membrane, that used to be their windows is still the Icelandic word for a computer screen. No. So there we go. We do have computers now because we got rid of the turf houses and they still retain that. Isn't that so cool? That is incredible. But also kind of gross that every time you've read to a computer in Iceland,
+
+[00:36:31] you're talking about the amniotic sack of a lamb. That is crazy. Yeah. Somewhere that's famous for houses made of kind of mud, earthy stuff, is Santa Fe. And I really didn't know about this. But it's, so the capital of New Mexico, Santa Fe, I really want to go. go to now because all of the houses are Adobe. And I actually looked this up because I wanted to know the connection between Adobe
+
+[00:36:54] the building material and the Adobe Suite on computers. And it's just that the guy who made the Adobe Suite had a river running behind his house called the Adobe River. But Adobe is, you know, it's like that red mud that places in Central America were often made of looks kind of like Moroccan Suki, very popular with Native Americans there and then very popular with Spanish settlers. And anyway, it was what everything looked like until about 1900. And then in Santa Fe, they started modernising and making it all look American.
+
+[00:37:24] And suddenly the town of Santa Fe said, hang on, we don't like this American, just like any other American city look. We are going to mandate that every single house here has to be Adobe, like a mud and mud hut house, basically. And it's still true. So if you go there, it looks so neat. I mean, yes, it's sort of very gentrified now. And the people who originally lived in them have been forced out because people like, you know, idiots like me, like, oh, what a pretty house. Wanted to go and move there.
+
+[00:37:50] But, like, it all matches. The whole place matches. Isn't that cool? Lovely. And you get faux-dobi now, which is like mock Tudor. So, you know, you build a normal house out of bricks or timber, and then you have to put mud all over it to make it look like an adobe house. If it's in Santa Fe.
+
+[00:38:06] I know, Andy, you can join me there. Great. Yeah, yeah. Finally, we've got a house which has shit all over the walls for you. And structural integrity for me. I think shit on the walls is wattle and daub, isn't it? Yes, you're right, and that's a very proud old English tradition. It's an English thing, yeah.
+
+[00:38:23] So we would make lots of houses out of poo and straw. And it's been going on for thousands of years, but there's still a few of them in the UK, and you could buy in 2007 a one-bedroomed house made of animal poo in Kent for 250,000 pounds. That's incredible. Yeah, wow. But if you want to build an extension on it,
+
+[00:38:47] You have to make it with poo, yeah. Wow. I live in Kent. I haven't tested my walls. Well, maybe if you just smear some on the outside, it'll be the same. I'll just do that. Actually, in my house, do you know what we have in our roof? So we had to replace a lot of the roof because the tiles were breaking and there was huge
+
+[00:39:06] worries of leaking. And then the builder said, your roof is really structurally sound because it's built with horsehair. Wow. And it stops any rain coming through. And that was an old thing. and they'd call it horse hair, but you would use pig hair, you would use all sorts of animal hair as well.
+
+[00:39:21] But horse hair was the best because it was the longest. That's so cool. I mean, horse hair is quite short. Horse mains are long. They would use their mains. They're using the mains. Okay, nice. Which bit of hair, what hair do you think they were using?
+
+[00:39:32] Like the skin fur. The skin fur. The skin fur. Yeah. Andy, I really appreciate you helping me patch up the missing bits of horse hair, but that's, that's... But also that, that... I just say, sometimes they use pig hair.
+
+[00:39:50] What part of the pig were they getting the hair from? Pigs are so hairy. Pigs are hairy. They've got those long rank hairs. It's like a very balding old person, isn't it? A pig hair. Yeah. Can I tell you a very, with a serious point about flooring materials? Absolutely.
+
+[00:40:06] That's why we're here at the comedy festival, Andy. Sometimes. I imagine every comedian in the town's doing this material. Sometimes you say a sentence out loud and you realize you've just, expressed your absolute essential core. Anyway, all right, I'm going to tell you. It's just a lovely story. There was a time in Mexico a few decades ago where
+
+[00:40:34] you would get a charity handout and what it consisted of would be a concrete truck driving up to your house, sticking its nozzle through your window and blasting concrete into your living room. And this was a charity handout that people got, right? Did you know they were coming? You did.
+
+[00:40:54] What a beautiful new floor. We're going to have to chisel grandma out at some point, but otherwise, stunning work. Basically, the award was £118 worth, so not a huge amount of ready-mixed concrete. And they would just pour it into your living room and then drive off. And the point is because before concrete floors, floors were dirt, and children got parasitic worms. but you know they were shorter they were missing school and then when you had a concrete floor in the room suddenly you had healthier children
+
+[00:41:29] they you know they grew more they did better at school there are all these amazing measurable things that can improve simply from replacing a dirt floor with a concrete one and it's like in terms of an intervention to help a family's chances in life 118 pounds of concrete is very very very cheap to have that kind of amazing measurable effect so that's there you go there's a serious point
+
+[00:41:50] that flooring materials Stop the podcast Stop the podcast Hey everyone This week's episode is sponsored by Saley Are you a jet setter Like Daniel Schreiber
+
+[00:42:05] Every time I see him He's flying off to a different country Bonjour Was it Sweden For instance You were in recently Well I was there as well actually But you did go to Croatia
+
+[00:42:15] Straight afterwards Yeah via Denmark So I have done a lot of traveling And I've been doing A lot of phone using as well James Well what you need to do And I'm not sure if you did But what you needed to do was use Saley.
+
+[00:42:28] You download the Saly app onto your phone and you get really good, cheap internet. Yeah, you get amazing internet. 200 destinations it's available in. Therefore, I could have extended that trip by 197 places and still it would have worked. You get 24-7 support and you don't get a stinking big bill at the end of your trip. Yeah, it's so easy. I've used it in loads of different countries. I've used it in Australia.
+
+[00:42:54] I'm going to stay in Kosovo. That shows just two different parts of the world, for instance. Yeah. So it's definitely worth doing. And if you are interested in Saly, then you should go to saly.com slash fish. That's S-A-I-L-Y.com slash fish. And when you go there, you can get an exclusive 15% discount on Saly data plans if you use the code fish at checkout. Okay.
+
+[00:43:20] On with the show. On with the podcast. It is time for a final fact of the show, and that is James. Okay, my fact this week is that in 2011, a candy bar called Toxic Waste Nuclear Sludge was recalled for containing actual toxic waste. There it is. So I just want to say straight away that it was quite a small issue, and no one got sick, they pulled them off the shelves, and then they fixed it,
+
+[00:43:52] and now they're fine because the company is still going. I just want to say that these candies are absolutely no problem. I've got some now. Oh, wow. Do you? Would you like to try them? Okay. I think legally we have to know, Andy, just to save us from any lawsuits.
+
+[00:44:09] Oh, my goodness. Talk one over, James? You know on the front row on them? Oh. There you go. So these things in 2011, they were found to contain some lead, which is a toxic metal, which doesn't break down in your body. And if you have too much of it, it can be bad for you.
+
+[00:44:24] these particular ones, I think, would have been kind of fine unless you were pregnant or you were very young or whatever. So I think it's just funny. But I just want to say that if you go to the show, I know you guys can't talk at the moment. How's it? I accidentally gave away all the mine. Oh, how is it, Andy? Have mine.
+
+[00:44:42] Is it toxic? Because nothing pisses me off more than a sweet that pretends to be the sourest thing you've ever tasted and is actually just a bit sugary. Is your mouth being exploded inside right now? I had a very small bite, but it's quite, it's pretty... These are like people at home
+
+[00:44:57] who don't have the picture of it that we have behind us. It's like the, you kind of get these candies these days which are very sour and they have lots of sort of like yellow and black stripes and warning, warning,
+
+[00:45:09] these are the most dangerous sweets in the world kind of thing. And kids love them. Extreme candy. Extreme candy. Can children taste sour flavors better or more? I think there was something, children have a slightly different,
+
+[00:45:21] because obviously you've got more taste buds having you when you're a child. and sort of we lose them gradually as we get older, so I think they do taste sour things more. I'll tell you who wouldn't like sour sweets. Who's that? Oh, no, sorry, everyone likes. Sorry, wait.
+
+[00:45:36] Go back a bit. I'll tell you, well, I'll tell you one thing about the sour flavor of these sweets. Oh, yeah. All vertebrates like them or should like them. All vertebrates, really? Well, the thing here is all vertebrates can taste sourness, and that is very unusual. Every other flavor, there's at least one big animal group that can't taste it.
+
+[00:45:56] A lot of them can't taste sweetness, can they, I think. Cats can't taste sugar. No. Dolphins can't taste sweet or savoury. Pandas cannot taste umami. Oh my God, really? The irony in China. I know.
+
+[00:46:11] I know. They're missing out. But sensing sourness is universal to vertebrates as far as we know. And it might be that it has a useful signal that your food is rancid. Extreme candy really became a thing in the night. I read a really good article by Wired magazine in 1999 about this sudden explosion of extreme candy and he said it split into three categories,
+
+[00:46:34] interactive sweetmakers, the mega sour sweet makers and the gross out sweet makers. So gross out are things like there's a brand called Hot Licks where you get a lollipop with a real ant inside it. You know, the really... Your five-year-old will beg you for those. Really sour. And then the interactive stuff is a stuff
+
+[00:46:53] that comes with sweets or you can blow a whistle through it. Remember those? And anyway, it interviewed the kings of extreme candy at the time. And this was BAT Enterprises, B-A-A-T, because it was founded by Bill, Ann, Ann, and Tom, and they were all just postal workers, postmen and postwomen. And Bill and Tom were two postmen who fell in love with two women called Anne, who also worked to the post office, and said, you know what, we should try making some sweets that make funny noises or spin round and round. And they did and they became multi-millionaires and had their own massive sweet factory
+
+[00:47:28] where people got around on tricycles and ruled the roost. That's such a nice story. It's heartwarming. It's heartwarming. It's so wholesome, yeah. Here are some candies. Well, actually, I'll give you three and two of them are real candies and one of them isn't and see if you can guess.
+
+[00:47:44] So the toe of Satan. Satan spawn or Rand Candy Candy. I've smoked two of those. Which of those is not a real candy? Toe of Satan, Satan's spawn. And Randy Candy. I think Satan's spawn isn't.
+
+[00:48:03] It's not Randy Candy. I'll say Toe of Satan. Okay, well, Dan is right. Randy Candy is actually a friend of the podcast. He was the Chicago tattoo artist who will ink you anywhere you want and give you a discount if you choose your bumhole. Satan's Spawn is a kind of habanero infused gummy bears. And the toe of Satan, which I also have here,
+
+[00:48:30] which I'm going to offer to Andy, is supposedly the hottest candy in the world. Oh, man. It's equivalent to $9 million on the Scoville Heat Unit rating. Are you going to do it? That's 9,000 times hotter than a jalapino. I've got to say thank you to the guys at American Fizz
+
+[00:48:55] who sent me this because they went out of the way to sending me in time of this festival. I'm going to decide whether or not I say thank you to the guys at American Fizz. The amusing thing is the other night I said to my wife, this salad, what's the dressing on it? It's very spicy.
+
+[00:49:10] There was no dressing on the salad. Oh, this is like a lollipop that we're looking at here. Yeah, it's a lollipop that's red. in the shape of a toe. And it looks, all right, isn't it? It looks fine. How much does Andy need to take for it to kick in?
+
+[00:49:27] I think a big old suck on the toe, please. Right. And it claims to be how much hotter than jalapeno? Nine million scow-million Scoville unit chili extract, guaranteed to scorch any mortal's tongue. Can you keep the toe of Satan in your mouth for five minutes? Oh, five minutes. Okay.
+
+[00:49:51] I'm putting it in. Here we go. Put it in it. All right, well, while we lose Andy for five minutes, let's continue on with this. Oh, Andy. His eyes are doing something. Oh, he's heading.
+
+[00:50:12] Oh, my goodness. I just roll it a bit, and it's very, very, very warm. What's warm, sorry? The thing is very warm. Why is it? Is this sabotage, Dave. Oh, my God. Oh, my God.
+
+[00:50:26] You're crying. I'm not crying. You're crying. Oh my God, it's getting worse. Oh, my God. Oh, wow. I think that's how it works right. It slowly kicks in more and more.
+
+[00:50:41] End the show. End the show now. Oh, sorry, I actually put some toad venom in there as well, by the way. We'll talk for a bit while you deal with that. To be fair, you read the package, you took it out, you put it in your own mouth. Wow. The paramedics are backstage. Don't worry.
+
+[00:51:02] I read that Pick and Mix was invented in Sweden. Was it? Yeah. Really? They had a government initiative called Saturday Candy. And the idea was that kids will only eat candy one day a week. And you're allowed one piece of candy per year old that you are. Really?
+
+[00:51:21] Yeah. This is a bit like I was reading about a seven-up bar, which I wish they would bring back. Are you okay? I've just never seen any. Andy like this is I'm not all right Okay okay It's very hot under these lights
+
+[00:51:35] Isn't it? We should probably plow on The seven up bar Are you gonna need to take some time off stage I'm gonna need to take some time off work at her So I've never seen Andy like this This is a while
+
+[00:51:55] I'm really sorry I chose to do it Yeah, it wasn't your fault. It was your fault. It wasn't your fault. You may have saved a bigger glass of water for him on stage. Anna, can you pass your water again? Yeah, absolutely.
+
+[00:52:07] I think we do need more water on stage. If it is possible to get some. There's a fire hydrant there, I can see. So on other dangerous things you can eat. Yeah. Still can't get kind of surprise in America. Oh, yeah? Oh, yeah, yeah.
+
+[00:52:21] It haven't meant since the 1930s. Health and safety was a thing back then. Because, you know, stuff hidden inside food. might be a choking hazard. And 60,000 eggs a year are smuggled in because people are that desperate for it. Well, that was one year, 2011. How do they smuggle them? I didn't ask which bodily orifice. The kinder eggs were inside. They just came in a suitcase. And so now you can buy them with the egg and then next to what you get the toy. How shit is that? That's very good. And people wonder why America's going downhill. We passed on the way here today on the train and because our plane was
+
+[00:52:57] unfortunately delayed. Sorry, the water has just arrived. And for the listener at home, Andy is drinking direct from the karat. He's charging it. It stayed in your mouth for so long. Yeah, I think I did pretty well. You did amazingly well.
+
+[00:53:14] Oh, God. And it hasn't affected the show at all. We were, our plane was delayed today. So unfortunately, when we were on the train over from Copenhagen, we were not able to get off at Malmo in order to go to the disgusting food museum, which is another friend of the podcast. Yeah.
+
+[00:53:31] And actually, I told them I was quite excited to go. I actually had alternative motives because I have a bone to pick with them. And that is, as a half Australian, someone who grew up in Australia for my high school years, there are three items in there that are connected to Australia, one of which, which has been classified as disgusting food, is Vegemite. One of the finest things that you can get in the world. If you had some right now, Andy, you'd be feeling great. on top of that.
+
+[00:54:01] Yeah, would I? I think it calms the heat. It's known for that. It says on the side. What's hilarious is the owner of it was interviewed about it, and he said it's the only time there's ever been a complaint in the food museum was an angry Australian, walked up to the counter, banged his fist down,
+
+[00:54:20] and went, who dared put Vegemite in here? And he explained, actually, it's just like, it's kind of cool because we sell it in the gift shop and people try, and so actually, like, doing the sales. so on. They sell things in there. Sorry, don't sell. They display things in there.
+
+[00:54:35] The idea is, is things that you might not necessarily find disgusting, but someone around the world might. So they have Haribos in there. And the idea is, like, to us, or to me certainly, I love Haribos. But then someone around the world, they might be like, well, this is just like melted down bones of an animal with fruit juice in it. Like, that is weird, isn't it, tweet that? Yeah.
+
+[00:54:55] That's why they don't call it that on the thing. Thank you. Yeah. Andy's just been brought a cotton of milk. Is that a tetrapack? It certainly is a tetrapak. Born in Lund. You know what, guys,
+
+[00:55:12] Andy has not shut up about tetrapacks all day. I actually didn't mention them in the Lund section because I had too much research and I feared that if I started, I would not be able to stop. But I think it's really appropriate you've been saved by a tetrapack. Yeah.
+
+[00:55:26] Don't you have one in your pocket right now that's been leaking? I'm just pleased to see you. you, Dan. Well, listen, we do need to wrap up because there is another act that's coming in. But anyone else? Not like a go on the toe of Satan? I don't want to hog it all for myself. Oh. All right, look, we need to wrap up. Thank you so much, Loon Comedy Festival.
+
+[00:55:59] This has been absolutely awesome. If anyone wants to get in contact with any of us about the things that we've said, We're all online, so go find us there. But the most important thing is, if you want to say something about the episode, if you want to tell us something more that you learned yourself that we didn't mention, email podcast at QI.com, because Andy reads all those emails, and he brings them to, yeah. Yeah. It's just the idea of reading an email is quite a lot at the moment.
+
+[00:56:24] So Andy's going to be on a break for the next two weeks. So you've got plenty of time to send it in. But otherwise, we just want to thank you so much for having us here. What a thrill it is to be in this room in Lund. This has been awesome. Thank you so much, everyone. Maybe we'll see you again at another comedy festival. Until then, goodbye.
