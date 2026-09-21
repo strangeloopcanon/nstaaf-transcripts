@@ -1,20 +1,20 @@
 {
-  "generated_at": "2026-09-14T20:01:45.985992+00:00",
+  "generated_at": "2026-09-21T20:11:48.381145+00:00",
   "transcript_source_url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish",
   "podcast_feed_url": "https://audioboom.com/channels/2399216.rss",
   "latest_transcript": {
-    "title": "No Such Thing As A Fish - Little Fish: Four Times a Knight",
-    "date": "September 13, 2026",
-    "date_iso": "2026-09-13",
-    "url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish/little-fish-four-times-a-knight",
-    "slug": "little-fish-four-times-a-knight"
+    "title": "No Such Thing As A Fish - Little Fish: This Is A Song",
+    "date": "September 20, 2026",
+    "date_iso": "2026-09-20",
+    "url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish/little-fish-this-is-a-song",
+    "slug": "little-fish-this-is-a-song"
   },
   "latest_podcast_episode": {
-    "title": "Little Fish: Four Times a Knight",
-    "published_at": "2026-09-13T22:55:00+00:00",
-    "published_date": "2026-09-13",
-    "url": "https://audioboom.com/posts/8948983",
-    "audio_url": "https://pscrb.fm/rss/p/prfx.byspotify.com/e/dts.podtrac.com/redirect.mp3/audioboom.com/posts/8948983.mp3?modified=1789051599&sid=2399216&source=rss"
+    "title": "Little Fish: This Is A Song",
+    "published_at": "2026-09-20T22:55:00+00:00",
+    "published_date": "2026-09-20",
+    "url": "https://audioboom.com/posts/8954400",
+    "audio_url": "https://pscrb.fm/rss/p/prfx.byspotify.com/e/dts.podtrac.com/redirect.mp3/audioboom.com/posts/8954400.mp3?modified=1789751495&sid=2399216&source=rss"
   },
   "is_transcript_source_lagging": false,
   "lag_days": 0,

@@ -1,0 +1,208 @@
+# No Such Thing As A Fish - Little Fish: This Is A Song
+
+- Episode date: September 20, 2026
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/little-fish-this-is-a-song
+- Transcript source: PodScripts
+- Slug: little-fish-this-is-a-song
+
+## Transcript
+
+[00:00:00] Hello everyone and welcome to another episode of Little Fish, the little version of Big Fish, no such thing as a fish. This is where we look at all the delicious, delectable, gorgeous, beautiful facts that you've sent into our inbox and we repeat them and get the credit for them. My name is Anna Tyszynski and I'm sitting here with James Harkin. Hi, James. Hi Anna, I'm going to credit the people who send them in, but fine. Oh, is that how we do it? I need to stop claiming these as my own. Hi, Andrew Hunter Murray. I'm also sitting here with you.
+
+[00:00:47] Hello. Hi. Hi. And you're the one who's been compiling all of these facts and sending them through to us. It's a team effort, but yes. Thanks for that. You're the quarterback,
+
+[00:01:01] and then we're just all the other irrelevant ones in the team. Isn't that how American football works? Like the quarterback is just the whole team, and then everyone else stands there cheering them on? A simplification, but I see where you're coming from. I've got to say, I've heard some dodgy intros in my time. Most of them by me.
+
+[00:01:15] This one is coming very close to the heights. Thank you. Well, I learned from the best, Andy. You're very much the water by. You have noticed these things as a fish, aren't you? That's like the worst person in the team. We can't even get on the team and has to bring the water to the other team. Ouch.
+
+[00:01:31] Who are you in the team, James? I am the running back. Okay. Yeah, I put in the legwork. And who's Dan? Dan is the little kid who comes on at the same. start of the match to sing God Save America.
+
+[00:01:45] Is that what it's called? Yeah. God Save America. What's it called? What's it called? I don't know why people came up with their own national anthems when you could literally just put your own country name. God save the Central African Republic.
+
+[00:02:01] It works. It works. There you go. All right. Should we do some facts? Oh yeah. No, I think we're out of time, I'm afraid. Can I do a quiz?
+
+[00:02:10] Oh, yeah. You know what? My quiz is on this. usually a little bit of bleak and difficult to get. So we'll go for a simple one. What is the capital of Egypt? Cairo. Incorrect, Anna.
+
+[00:02:21] Is it Aswan? Good knowledge of another place in Egypt, but no, it isn't. I only know one more. It's the new capital. What? The new capital. Okay. It's just called the new capital.
+
+[00:02:34] Sorry? So Egypt has got itself a new capital, and it's called it the new capital. What is going on? Basically, they decided to move the government out of Cairo because Cairo was getting so big compared to the rest of the country. They thought if we move a lot of the stuff to another place, a new special city, like lots of countries have done that. Yes. And we will for now just call it the new capital. And over the years, they've tried to come up with new names, but they've just been unable to.
+
+[00:03:03] No way. They keep having competitions where someone can name the city and then no good answers come. So they just, they think that maybe they might call it. Memphis after the old capital of... Oh, nice. I think New Memphis will be absolutely fine or something, like New York or, you know, lots of places you can do that with. Well, New York, of course, wasn't named after Old York, no.
+
+[00:03:24] What? New York was named after the Duke of York, not Prince Andrew. Andrew Mountbath and Windsor, as he is now. Not him. I did not know that. He's serious. And then they kept the new because it was called New Amsterdam. Oh, wow.
+
+[00:03:38] It wasn't named after Old York. That's a great fact. That's a thing that's named after a person. Oh my God. I'm doing it by accident now. It's a book. But other places that are called capital. Seoul means capital in Korean.
+
+[00:03:57] Astana means capital in Kazakh. Beijing means northern capital in Chinese, some kind of Chinese. And Kyoto means capital city, but isn't the capital. But Tokyo is the other way. around, isn't it? Yeah, but that Toe means, I think, eastern or western or northern or something. Because Toe means different, it has different meanings. Okay, got it. But yeah, Kyoto means capital city. And is that, because it used to be the capital?
+
+[00:04:25] Yes, it was. It has been the capital. But Tokyo means, like, let's say it's eastern capital. So the Kyo means capital, but then the to meant eastern. So nice. So good. So it's not that unusual. That's great. Did you say who sent that in? That was sent, of course, by David Leifertilly, because I always credit the people who sent that back to say. Just to say, like, I always do. I would never, ever forget that because that would be a terrible thing to do. Especially after I've just made a big deal of it.
+
+[00:04:55] Here's one. This is about a place name. It's not as famous as Kyoto and not as famous as Cairo, but it's a place which our correspondent, Dan Cohansby, lives about 10 minutes from. And it's Buttsville, New Jersey. named after obviously Nikki Butts the footballer Well it's named after a man named LL Butts
+
+[00:05:17] Oh yeah okay By his father Michael Robert Butz Buts with the Z Yeah yeah B UTTZ Population about 200 Hang on so it was named after someone By that person's dad As sort of a gift to his son
+
+[00:05:30] Yes Michael Butz named it after his son L L L badly named Yeah and just that's New Jersey for you Only two famous LLs then, him and Cool J, hey? Yeah, I guess it.
+
+[00:05:43] Cool J of course is shot for ladies love cool James. And I think the same is true of... Ladies and Ladies and Ladies Love Butts. Yeah, I suppose. Never a true word was spoken. Yeah. That's a very good fact.
+
+[00:05:55] LL middle name, big butts. Brackets, and I cannot lie. Yeah, so there you go. I've got a fact here from Jill Rogers. Oh yeah. No, Jill Rogers said that my fact is that vampires are a recession indicator. Oh.
+
+[00:06:09] vampires you get the worst the economy's going. Interesting. So the last big vampire thing I would say would have been Twilight. Yeah. Did that come during the financial crisis? It did. It did. Now, I don't like to read out someone's fact and then take a slight issue with it. But yes, that's the example that she uses, along with a few other vampire things that were released during that particular recession. And I would say it could just be that that was a time when vampires were trendy and it happened to come inside with a recession. But apparently this is a big pop culture theory.
+
+[00:06:39] What about that sort of, like, vampire stuff with Michael Jackson and stuff, right? You know, thriller and all that kind of thing. What's that? Vampires, no. It's just general spooky stuff in thriller, isn't it? Because I thought that might coincide with, like, Margaret Thatcher closing the mining pits. I see. But it was more Ronald Reagan-y, wasn't he?
+
+[00:07:00] I don't know how he left the economy. I think it's these kind of stretches which lead to these spurious correlation-flation things. And rice, nice. Don't know, not sighted here. What about John Pollydory, who wrote the first ever vampire story in Lake Geneva with Byron and Mary Shelley and Percy Shelley when she wrote Frankenstein and that was because there was the year without a summer. Do you remember this? 1816 because the volcano had erupted and crops were ruined everywhere, unquestionably a recession.
+
+[00:07:27] Yeah, so I'm surprised she doesn't cite that. That would have made her case. Does she cite any other? Like, are we doing all the hard work here or what? You are, yeah. And it is hard work, Jill. So next time, no, she mostly citing a theory. She says that this was dropped, in my opinion, too casually by my friend who works in publishing when I was talking about the wild coincidence that a bunch of my favorite authors announced their next
+
+[00:07:48] books would be vampire-based, even though they've never done vampires before. So she's saying, does this mean another assertion's coming? She also asked, Andy, as a fiction writer, have you ever been pressured to add some vampires to your work? I've never been asked to add anything supernatural to any of mine. Haven't you? No. No. It might work. Maybe consider it next time.
+
+[00:08:06] Anyway, no, that is a great fact And I liked digging into it Even though it is a potentially spurious correlation causation It's definitely something that a lot of people online think I think we came up with two examples there And Rice and the Thatcherite coal mine stuff And the Polidori thing I think that actually I'm starting to think it holds water
+
+[00:08:24] Okay, well done Yeah, my thing was more about Michael Jackson And I don't actually know when Anne Rice wrote Interview with a Vampire, so I can't claim that I thought it was probably early of that, but I might be wrong. It's not important. This isn't the really heavy fact-based show. This is the
+
+[00:08:41] random speculation show. If we are going to win the Nobel Prize for economics, then we might as well get it right. Yeah. Okay, here is one from Tommy Curran Jones. And this, he says, is an architectural irony fact.
+
+[00:08:58] And it is the buildings in the flamboyant style, and flamboyant means flaming, keep catching fire. Great. Okay, so he gives us some examples. Non-Cathedral, collegiate church of Saint Wolfren in Abbeville, Arras Town Hall in Arras, the Palais de Justice in Ruan and Ruan Cathedral, Chatur Cathedral, basically all of these French places, and a lot of them burnt down.
+
+[00:09:27] And Tommy says, whether they burnt down so frequently because of their name or because their 600-year-old buildings largely made of timber, I'll leave up to you. That is great. Stop doing stuff in the flamboyant style. Flamboyant. I didn't know that meant flaming. No, I've never heard that.
+
+[00:09:44] I suppose it makes sense. Yeah, when you say that out loud, you think, of course, but I just never made that connection. I do need to say, who wrote in? It was Tommy, Tommy Curran Jones. Tommy, and he says that's an ironic buildings fact. Yes, he does. Which, if we're really nitpicking, it's not, of course.
+
+[00:09:59] It's opposite, isn't it? Not irony. if something called flaming yourself on fire, it's the opposite of irony. But that is not to take away from how amazing the fact is. Well, I'm sorry, Tommy, you've been that Tishinsky. Yeah. I kept it very positive, I think.
+
+[00:10:13] Yeah, yeah. Yeah. I don't think anyone's egos have been damaged there. All right, well, let's see if you can Tizinski this one, Anna. This is from Eva O'Donnell. And it's about a place called Bell Harbour, which is a little town on the west coast of Ireland, right? There's a nearby town called Ennis Timon.
+
+[00:10:26] And one night, some locals in Ennis Timon, which had only two houses with wireless at the time this happened, right? Two radios in the whole village. Sorry. Wireless has a different meaning these days. Sorry, this is several decades ago. Some locals were in Ennis-Timmond on a wild December night.
+
+[00:10:41] They were trying to listen to the events of the Second World War. Despite the... Oh, did you hear that? That was a big bang. Where was that? To a news article, I suppose. Yeah, yeah, exactly. Radio news.
+
+[00:10:56] And then through the hissing and interference, they gathered to their consternation that a nation on the far side of the globe had had the audacity to bomb Bell Harbor. They didn't panic, they set about barricading the roads and preparing for the Japanese invasion of Edest Timmond they felt sure it's coming. Because obviously nobody in Ennis Timit had heard of Pearl Harbor,
+
+[00:11:15] but they heard Bel Harbor has been bombed by a huge Japanese air fleet. And naturally assumed, it's quite egotistical, don't you think? to think rather than the fact that there might even be another place called Bell Harbour somewhere because it's not that unusual a name. It's true, but they blocked the roads with rubble and they got an array of weapons together and they stayed up all night preparing for the Japanese onslaught.
+
+[00:11:40] No. I wonder if they would have won. It's one of the great what might have beens of history. It's what if Japan had decided to have made the West Coast of Ireland. Here's another one. This is from Geo James. This email says, Hey guys, long-time listener and long-time fact.
+
+[00:11:55] submit a ouch hoping that the timeliness of this one makes it more interesting than the drivel I've shared before.
+
+[00:12:01] I feel like I would remember that name if Gio had got in before. That's a cool name, isn't it? It is.
+
+[00:12:06] I think it's Gio short for Georgina. I think like because I know one of those but a very cool shortening.
+
+[00:12:10] Well, it's a surname that I thought was most cool. James, you find this James. Yeah, yeah.
+
+[00:12:15] No. See, yeah, I'm not getting that. Of LL cool fame. Anyway, don't do yourself down,
+
+[00:12:22] Geo. I'm sure your other facts were great, but I love this one. She says, whenever the Swedish national football team plays the Danish national football team, the scoreboard reads S-W-E-D-E-N, as in Sweden. But she then says, and here's a quiz for you. This is also true of a few other team combinations. Can you see if you can guess them all? And she lists three. I haven't checked if this is all of them, but I suspect it is. How are we going to guess? Can you give us half of it or something? Oh, what a good idea. I'll give you half of it. So Andorra is the second half. Who are Andorra playing?
+
+[00:12:52] to make this combination. Poland. Really good. Poland and Dora. Yeah. Very good. Although Andy, of course, was the one who read these emails initially.
+
+[00:13:03] I've forgotten everything. No, no, no, no. Like in any quiz, sometimes you can work out the answer, but mostly you get it because you've heard it somewhere before. Just because Andy literally heard it this morning before he sent you those emails,
+
+[00:13:16] doesn't make it any different than if I heard it on the radio 12 years ago. We'll look at 1-0. Let's see how we go. These are such a good collection. Okay, this one is if Tanzania is playing Bhutan. Very good.
+
+[00:13:34] Yes. Come on, one one. Boatan, one all. Okay, this is the decider. Also, I would say that Bhutan and Tanzania have never played each other at football. I'm very happy to say that. In theory. I actually saw someone in a Tanzania shirt two days ago.
+
+[00:13:49] And that's why you got that right? That's really cool. unusual. I'd never seen anyone in a Tanzania shirt before in my whole life. That's so weird. I wouldn't recognize one. Well, it says in massive letters, Tanzania on the front. Still wouldn't get it. Is that a Bhutan shirt? So if Russia. Belarus?
+
+[00:14:08] No. Hold on. Yeah. If Russia are playing someone, this is the hardest one. This is a really tough country to get. You've probably forgotten this is a country. No offense to those who live there. Something that ends in our US though, right? Yes. So that can't be that hard. There's only 193 countries.
+
+[00:14:25] Let's start alphabetically from the beginning. You should get there quite soon if you start alphabetically. Syrus, the cloud. Cyprus. Well done, James. Cyprus as well. Yeah, but in Russia, we're playing a Syroth cloud. Well, it was a good assist.
+
+[00:14:41] Yeah, you knocked it over and then I headed it in, but you weren't intended to knock it over. You were intended to hit it straight at the floodlights, and you accidentally sliced it over, and it landed right on my head and went in the golf. That's a beautiful cross from Andy. He looks surprised himself. I don't know what's going on.
+
+[00:15:03] Okay. What about another one? Is it my turn? Can be. Can be. It's going to be. This is a song. We've reached that part of the show where Alan does her song.
+
+[00:15:18] You've got it out every time. This week is the week is going in. What are you on about? Sorry. This is a fact sent in... Did you just read the word factor song? I think you'll see why I said it. When I tell you that this person's name, he sent this in,
+
+[00:15:36] is Aretunes Samonson. And Samonsen has a lot of the same letters as the word song. So I'm very tired. And he says that I was just listening to you talking about toothpicks, as we were recently. And I thought I should mention that the world's largest factory of wooden toothpicks is at Flissa in Norway or rather was it's been closed down and it actually closes down at the end of this year
+
+[00:16:00] so get there quickly if you need to Andy and the closing was announced in October 2025 but it's obviously taking a while to wind down the factory was churning out over a billion wooden toothpicks a year at that time so God knows why it's closing if it's churning out that many maybe the demand dropped off I don't know you can get plastic toothpicks these days you can yeah the modern
+
+[00:16:23] thank God plastic was in invented a couple of years back to allow for that. I guess they're probably making them in another country which has more accessible and cheap wood. I think it must be that. Good point. Yeah, yeah. But they do have, at this factory, the world's largest wooden toothpick.
+
+[00:16:39] Is that, no, that's just like a tree, right? It has to be usable as a toothpick for it to be a toothpick. Actually, I don't know if it is usable. It's 11 meters tall. It doesn't say how thin, but it does have to be quite thin, doesn't it? If it's sharp enough at the end, you can use it as a toothpick.
+
+[00:16:54] that just doesn't go all the way in. Do you know what I mean? Like if the end gets absolutely to a level of normal toothpick. It could taper to normal toothpick level. Yeah. And then in that way, though, you could just get an enormous telegraph pole and stick a toothpick on the top. That's true.
+
+[00:17:07] That's true. It's basically the same thing. Yeah. Yeah, yeah. Stupidly, I didn't look it up to see how thin it was. I do like the fact that it's the world's largest toothpick factory and they have the world's largest toothpick. That's pretty cool.
+
+[00:17:18] Yeah. And this person also goes on to say, by the way, Flisser in Norwegian, while a place name also translates to the wooden splinter. That's crazy. Well, he says coincidence? Probably not. Probably not.
+
+[00:17:31] So they probably named it after the toothpicks. But who knows? Maybe it's one for the book. Oh, I don't think so. No, no, no. Okay. Too good. Too good. Yeah.
+
+[00:17:42] On that note, let's segue into the bit where we give you some facts. So this is the part where we take some custodians to custode very, facts we've said on the podcast over the years and these go to people who are members of our highest tier the friends of the podcast tier so without further ado should we start ditching out facts I'll go first this one goes out to Michael medlin what a brilliant name Michael Michael Medlin this is a Christmas effect for you and it's that when it gets really cold Christmas trees can turn to glass so cool so cool so the Christmas trees but I suppose they could also be a Christmas ornament because they're often made of glass.
+
+[00:18:25] Yes. And it's about the sap when it's really, really cold in these northern forests, their cells might rupture. So the molecules kind of freeze so they don't rupture. And glass is like a technical term of like something that's not quite solid and not quite liquid. Yes, people say that stained glass is a liquid. And I can never remember what the latest agreement or disagreement was.
+
+[00:18:48] It's not a liquid. No. So it's a bit thicker at the bottom. But that's because if you made something that was a bit thicker, you wouldn't put the thick part at the top. It was hard to make flat glass. But glass is a, it's a state of matter. It's not quite solid, not quite liquid.
+
+[00:19:02] Yeah, not a solid. So you're halfway there when you say it's a liquid. No, you're not. You're just wrong. Yeah, cool. Here is one that is now under the custodianship of Lassie Havelund. And Lassie, your fact is that one of the contenders for the 2015 Christmas Charts was a Prague rock album.
+
+[00:19:20] by Pope Francis. So cool. Very cool. This is quite a classic Downey type fact. He loves a Pope. He loves a Pope. He loves a pop culture, he likes a wacky Pope.
+
+[00:19:30] Prog Rock as well. Yeah, but then what would you expect? You wouldn't expect the Pope to go into, you know, J-pop? Jay-pop. No, that's probably the most unlikely. It's the most, prog rock, if I had to pick a popular genre.
+
+[00:19:43] But I would have thought it would just be classical, classical bangers, you know, plain song or plain chant or whatever it's called. Here's a fact for Lizzie. This is the fact that Czech deer still avoid crossing the iron curtain between Germany and the Czech Republic. Nice. Amazing. Because the commies.
+
+[00:19:58] Quite confusing that the Czech Republic is, was bordering West Germany, obviously, which is why there was a border there. But because obviously Czechos back here was on the east of Germany. But it's when you forget that East Germany was only northeast Germany, wasn't it? So actually the whole of Bavaria is all East Germany, but that was West Germany. Because West Germany was L-shaped? Yeah. Exactly.
+
+[00:20:21] Yes, that is confusing. And that is something I have not considered enough. They didn't do it right. I don't know how they screwed it up. It's like the West really did one over on the east there. And Berlin wasn't like the bit on the border or anything, was it? No, that's way in the East. But you always think because there was like checkpoints there
+
+[00:20:36] and you had to go from East Germany to West Germany. But actually that was just like a little island. Yeah. So a little conclave, enclave, whatever you call it. But yes, these poor deer. Anyone over the age of 50 will be like, yeah. Yes. I think I think.
+
+[00:20:50] Obviously. Yeah. Yeah. So that's a good fact. Enjoy that Lizzie. Great fact. Here's another one that goes out to Christina L. Forrest. Christina, your fact now and forever is that if every car in Monaco decided to go for a drive at the same time, they wouldn't fit on the roads. That is such a great fact. There's a fun fact about the, I suppose the fact that Monaco is quite small and Monaco people drive a lot of, have a lot of cars.
+
+[00:21:16] Yeah. More cars per capita. than anywhere else. I was thinking about this the other day. I was in a theme park in Spain and like you're in the queues all the time. And I wondered if they deliberately make sure that the cues are a certain length so that everyone isn't just wandering around the theme park and you know that some people are going to be in the cues.
+
+[00:21:37] What do you mean? How do they make sure the cues are a certain length? Well, like they might slow down the number of people who get on so that the queue gets to, so they get to like 30 minutes or something. and then you know that you'll have a certain number of people queuing at any one time, which means like the concession stands won't get too busy and all that kind of stuff. I think you're crediting theme park designers with even more foresight than they have. I think theme park design is like one of the most academic things that you can get into, really.
+
+[00:22:05] That's good. That's a good, yeah. It's nuclear fusion people who don't quite pass the final exams, they're told, well, we do have some jobs at Thorpe Park. It's like, oh, you're a rocket scientist scientist. Oh dear. Oh, you're a brain surgeon. Oh, dear. Yeah. I make sure people have to stand in queues for 45 minutes so other people can get hot dogs. Really doing gods don't work. Great fact. Okay. Here is one that is now under the custodianship of Michael Hargreaves. And Michael, your fact is that the Pennsylvania town of Centralia, or Centralia, has been on fire. Sorry, I just read these for the first time. Has been on fire. since 1962. No one's bothered to put it out.
+
+[00:22:51] Is it still on fire? Can anyone check? I'll check now. It must be. What was it like a seam of coal, I guess? These things usually are. Yes. They set some rubbish on fire, but it was just above a seam of coal mines
+
+[00:23:02] that they didn't know existed. Centralia is on fire still. Great. Although Centralia has been mostly abandoned due to it. Apparently, as of 2017, it still had a population of five. Okay, well, if you're one of those five, Do write in.
+
+[00:23:18] Do write in. Well done. Love those five people. Stick it out. Absolutely. The fire engines will come eventually, won't they? Brilliant.
+
+[00:23:25] So good. I was actually reading, I'm reading such a good book called Sovietistan about all the stands and it opens with a first-hand description of the author going to the gates of hell in Turkmenistan. You know, that fire that's been amazing, huge fire that's been blazing for about 55 years. But I love those everlasting fires on earth.
+
+[00:23:44] It's crazy they exist. Yeah. Yeah, yeah. Here's one for Rachel Gilbert. Rachel enjoyed this fact. This fact is that the first recorded traffic casualty was a Roman pig who was run over by a chariot carrying an ornamental fallas.
+
+[00:23:59] Great fact. And actually, it's not that unlikely. Once you're in Rome, most chariots probably carried ornamental fallacies, didn't they? But it was a big one, I think. I think the point was the whole load in the chariot was an ornamental phallus, which was for a festival. That's it. It was for a festival.
+
+[00:24:16] Huge parking. in town might be the headline. That's very good. Which, you know, gets both aspects in. Absolutely. No parking signs everywhere. Oh, lovely. Yeah.
+
+[00:24:29] Yeah, I like it. Oh, that's really good. Can you remember where we parked? I'll never forget. Wow, you guys are on fire with these parking, porking jokes. Honestly, I'm just sitting back and watching in admiration. This one goes out to, Marin Berthelsohn, your fact is that, well, it's a sad one because time has moved on since then,
+
+[00:24:55] but your fact is that one in three people in the UK has seen the queen in real life. We're talking here about the true queen, Queen Elizabeth II. They're never going to come on the show now, King Prince Charles and Camilla. I did think that it would be a really awesome thing to have like a queen tribute act called Camilla. That's so funny Very good I basically I thought of that joke the other day
+
+[00:25:22] And I thought if I ever do an hour of stand-up It'll all be built around that one joke Because I think it's very funny You've got your tent hole there Now you just need to fill the ring You've got your ornamental phallus Fill it right up Yeah but that's true
+
+[00:25:36] I mean I saw the queen in real life And I think you did too And I did Yes I'm discussing at the time When I was a baby Dan touched at the queen and we all went, you're not supposed to. It's famous.
+
+[00:25:48] But Australian, there's an Australian, was it an Aussie PM or, and it might have been an American PM? No, it was an Aussie who was all like, alright mate, just like I'm cool, I just treat the Queen like any other bloke. You're a piggyback or something.
+
+[00:25:59] Yeah. It's incredibly inappropriate. He's just a Shailer. Exactly. Who was it? Was it Rud or Turnbull or one of the, it was about 20 years ago, I think. It wasn't Julia Gillard.
+
+[00:26:11] We know that. Okay, is it just one more? Just one more. Okay. Well, this week, the last fact custodian is David Addis. And David, your fact is that people used to hang their fridges from the ceiling. Oh, yes. People used to hang their fridges from the ceiling.
+
+[00:26:32] And then I see originator Andrew Hunter Murray. What are you on about, Andy? Very proud of this one. People used to have these cool boxes for food, but obviously rats would get into them if you kept them on the floor. What about bats? chew the way of there's a big bat problem so they would hang on from the ceiling from a bit of rope or something and then that meant you could
+
+[00:26:51] store your food nice and cool what era are we talking can you remember this is 17th and 18th century fringes so we're way before powered fringes this was you've got a cold box basically reasonably cold box yeah this was all about early refrigeration great fact well enjoy that one david and thank you so much you want to say something can I just say quickly
+
+[00:27:13] 1992 it was Paul Keating who touched the queen by putting his arm around her and there was a later bit in 2000 where John Howard was accused of but denied touching the queen I'm looking at the John Howard picture because you've got the BBC news up here and he's doing the thing where you put your arm around someone but you deliberately don't touch them Yes he's kind of hover he's hovering he's gesturing her over here
+
+[00:27:38] and they have got a picture of the previous PM Paul Keating He's doing a little tickle yeah And he was nicknamed the lizard of Oz As a result by the British press. Oh, harsh. They're just being friendly. It's a cracking headline. Yeah, it's good.
+
+[00:27:51] I suppose so. Yeah. But then he did stick his long tongue down her ear because a fly flew in there. Sorry? He's a lizard. Yeah, yeah, yeah. I mean, if anyone in the encounter was a lizard,
+
+[00:28:03] it will be a British royal. We know that. Okay, I think we should wrap up on that and say thank you so much to everyone who has sent in your facts that we read out at the start of this show and thank you also to our friends of the podcast who are now custodians of various facts and so those people this week are Michael Medlin, Lassie Havelund,
+
+[00:28:25] Lizzie, Christina L. Fawes, Michael Hargreaves, Rachel Gilbert, Marin Berthelson and David Addis. Please take care of those facts as best you possibly can. If you want to get one of your facts read out on this show, all you've got to do is write in to podcast at you. www.com, and you will read it, decide if it's good enough, we might read it out. And if you want to receive one of our facts, join the top tier, friend of the podcast. You'll not only get a fact to look after, you will get a certificate with that fact written on it, that you can
+
+[00:28:56] frame on your wall and brag about to all your mates. Thank you so much, everyone, for listening to this episode of Little Fish. Join us again next week for another episode or join us at the end of this week for a Big Fish, no such thing as a Fish episode. And we'll see you in one of those locations or somewhere else along the road. Goodbye from me. Goodbye from you. I'll be honest. The intro wasn't great.
+
+[00:29:22] You haven't pulled it back. Fuck. I felt like I was close. Where did I lose it? It was halfway through. Yeah. So about five minutes ago. All right.
+
+[00:29:33] Well, I'll leave James to edit all those words into an order that is a decent valediction. And see you again. Tarah.
