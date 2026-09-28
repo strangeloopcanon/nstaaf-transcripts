@@ -1,0 +1,344 @@
+# No Such Thing As A Fish - No Such Thing As Tibetan Traitors
+
+- Episode date: September 24, 2026
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/no-such-thing-as-tibetan-traitors
+- Transcript source: PodScripts
+- Slug: no-such-thing-as-tibetan-traitors
+
+## Transcript
+
+[00:00:00] Hi everybody, Andy and Dan here, and we have an announcement to make before the show begins. That's right. In just a few weeks, I, Dan, will be on tour around the UK with my first solo live show in over a decade. Sounds amazing. Well, it's going to be great. It's called This Changes Everything. It is an hour and 20 minutes. Not 20. Yeah, there's an interval between the first 20, then you get an hour. And it's going to be packed with all of the stuff that I love, you know, all the weird stories.
+
+[00:00:27] I've got amazing facts, weird redstring theories. anecdotes about my life and your life, Andy. About me? A lot about you in the show. There's loads of personal stuff. Yeah. So I'm going to be there. You're going to be there.
+
+[00:00:39] I'd love for all of you listening to be there as well. If you like fish, I promise you, you're going to love this. It's packed with facts. It's packed with jokes. October 11th is when the tour kicks off. I'm in Edinburgh. Then the 12th. I'm in Newcastle.
+
+[00:00:49] 16th in Birmingham. 17th in Cardiff. And then just go to this changes everything. Dotco. UK to find out all about November, because I'll be going across the rest of the UK then. It's going to be wonderful. guys, if you like anything you've heard on this show over the last 12 years, you're going to like
+
+[00:01:04] this show. You're going to hang out with Dan. Yeah, I know, I will be hanging out after the show, by the way. Dan promises. And it's like 20 quid. It's 20 quid, guys. Come along. We're all getting our tickets. The other three of us is going to be terrific fun. Go to this changes everything.com. Just think, 2015, that's when things started going wrong in this country. When you stopped touring. There you go. Let's fix the UK, everyone. 100-seater room at a time. Okay. On with the podcast. Hello and welcome to another episode of No Such Thing as a Fish, a weekly podcast coming to you from the QI offices in Hoburn. My name is Dan Schreiber. I am sitting here with Andrew Hunter Murray, Anna Tishinsky, and James Harkin. And once again, we have gathered around the microphones with our four favorite facts from the last seven days.
+
+[00:02:02] And in no particular order, here we go. Starting with fact number one, and that is Anna. My fact this week is that paramedics in Japan have asked people to stop rearrange. their shoes when they'd take them off at the door. How are they rearranging them? Is it in size order or all the lefts? Because that's how we do it in our house. That's all that.
+
+[00:02:27] That's good. It's for convenience usually. So this was an Instagram video that was put out by the fire department in the city of Kanazawa. Kanazawa. And they were saying that, of course, in Japan, you take your shoes off at the door, basically everywhere you go if you're going into someone's house. And the polite thing to do is to rearrange people's shoes so that when they're leaving, they can put them on easily.
+
+[00:02:51] So you'd rearrange people's shoes so that they're facing outwards. So you could almost just walk out of the door and just step upwards without even looking down. Sounds nice. It sounds perfect, actually. If I'm a paramedic and I'm taking someone out on the stretcher, I want to be able to step into my shoes and walk out the door. But what way are your feet facing? Not if you're the one who's walking backwards on the stretcher.
+
+[00:03:09] Okay. Is that the reason? That's the reason. And they arrange their shoes as they show in this video very specifically so that when they are carrying a stretch out, one of them steps in sideways, when I might be going backwards. And then, you know, that polite, bloody do-gooder
+
+[00:03:23] whose husband's just collapsed upstairs, starts rearranging the shoes. They can lose 30 seconds if they come out and someone's rearranged their shoes. 30 seconds here or there. With a heart attack, right? Yeah. Okay, it's very sensible.
+
+[00:03:36] I've visited Japan once or twice, and the shoe thing is, you know, it's really real. And normally there's a lower bit where you leave your shoes and then you step up into the room, which I just think is so nice. Yeah. The Gengren. Yes, exactly. Yeah.
+
+[00:03:48] Have you, James, because you've been as well. Yeah. Did you experience toilet slippers? Love those. Love those. I love the idea of them. I've never been to Japan, so I've never had the whole slipper situation. You get to someone's house.
+
+[00:03:59] You're going for dinner or whatever. You leave your shoes. You put on your house slippers that they've provided for you. Yeah. Then you need to go to the loo. So you go to the loo. You step out of your house slippers into the toilet slippers. The ones you're allowed to pee on.
+
+[00:04:11] Yes. I just call those my shoes. Then you go to the low and you change out of your toilet slippers into your house slippers and then eventually out of your house slippers into your shoes. Okay, can I ask you a question then because you both have experienced it? Anna, have you been to Japan? I have not. Okay.
+
+[00:04:26] We've all got different size feet. Does every house have the equivalent of like bowling shoes at a bowling alley? No, there's a counter and someone takes your measurements and there's one of those other machines you stick your foot in. And they spray some weird stuff in them to get rid of your very. because. Yes, that's what I see in here. No, like, they're more like flip-flops that one-size fits all a little bit. Okay.
+
+[00:04:45] Because you're not walking far inside the loo. Yes. Yeah. We have a range of slippers for guests in our house. And the thing is, the good thing is, Dan, that humans don't have a giant range of foot sizes. So it's not like some people's feet are two centimetres and some people's feet are a metre long.
+
+[00:04:59] In the end, if you've got, for women, sizes five and six covered, and for men, sizes 10 and 11, you bet you bought enough. And that's what we have. What if a clown's coming to stay? We never invite them around for that reason. There's one other interesting thing about the toilet slippers, and I wonder if you both experience this,
+
+[00:05:17] is if you're staying in a dorm situation where the bathroom is outside, a lot of Japanese toilets, they don't actually have locks on them, from what I've read. And the slippers act as a lock, because when you're walking towards them, when you see the house slippers outside, you know someone's inside, and so not to rattle the door. That's clever. Yeah, so that's your way of saying this is occupied.
+
+[00:05:36] Yeah, I'm sorry to say that I only stayed in places that had their own toilet. So. You didn't use many outdoor toilets. I know. I know I'm a bit hoity tight in these days. You've changed. Apparently a big faux part is when you get back to the dinner table and everyone looks at your feet and you realize you've left your toilet slippers on. Oh yeah.
+
+[00:05:53] That's bad. That is embarrassing. Very cringe. Well, speaking of locked doors, I'm surprised that Japan doesn't have more of a security problem because all of their doors, as you guys may be noticed, all of their front doors open outwards. And that's because if you opened inwards, you'd knock all the shoes in the indoor porch out of place. but that must be a problem because I was looking at some locksmiths websites and the reason
+
+[00:06:15] our doors open inwards is so that you can have the hinge on the inside otherwise you can just take the hinge off and remove the door and get into the house so I don't know how Japan does it there's a lot of chat about them having burglar-proof hinges but you go to a lot of the places
+
+[00:06:31] and it's like the walls are made of paper anyway it's like you don't really matter about the door you can just walk through the wall quite a lot of the time Those of human-shaped holes. Can I just have a little guess as to whether everyone here is a shoes on or a shoes off in the house person? Okay.
+
+[00:06:49] Anna just said their house is shoes off, which you could have knocked me down with a feather. I'm staggered. I would have thought you were absolutely a shoes on. Did I? I think I was talking about people generally. Other people come around, they have to put slippers on, but you wear shoes at home.
+
+[00:07:00] Muddy boots, yeah. I put on the muddy boots as I walk in. Okay. I would say down as a shoe on household person. Yeah. But he lives on the beach. And so that does risk getting even dirtier. Are you going to tell us?
+
+[00:07:13] I know I reveal a lot about myself on this show, but this really feels quite personal information. I'm sorry. So I'm going to plead the fifth on this one. Go back to mentioning your sperm count. And you're going to have a guess on me? Shoes on, no doubt. Shoes on.
+
+[00:07:28] I am naturally a shoes on person, but due to my wife being a shoes off person, we are now shoes off people. I would have said exactly that. I had that answer in my mind. Nice. It is a Russian thing, like shoes off. Is it?
+
+[00:07:42] Yeah. Nice. I think quite often you can tell countries that have a lot of snow and stuff or people traditionally would have had dirty shoes. It's more common, I think. Although I would say it's way more common now than it was 20 years ago here. Much more common. This is just anecdotly.
+
+[00:07:59] But everyone I know pretty much, I'd take my shoes off in their house now. Whereas when I was a kid, if anyone had asked my mother to take her shoes up for walking and she would have slammed the door in their face and that's the end of the friendship. Which is slam it inwards or outwards. She would have taken the hinges off and whack them over the head with the dog. Strong woman. Your shoes off, obviously. You're all clothes off, aren't you?
+
+[00:08:22] You can't be too careful. I'm just going to put on my toilet suit. It's shoes on, clothes off. It's weird dinner parties at Andes. Just back to your headline fact very quickly. A lot of people made the point, listen, if it's a paramedic coming in, I think maybe just keep the shoes on and get inside, right?
+
+[00:08:41] Like, why are you losing time at all, taking your shoes off? Good point. But there is precedence in Japan of people being hit as a result of coming in as a paramedic and not taking their shoe off. As in hit in the face because they've still got their shoes off. Yeah, yeah. So there was a case in 2017. There was a 66-year-old man who complained of a pain in his leg.
+
+[00:08:59] Paramedics came over. The guy didn't take his shoes off. He said, what the hell are you doing? Punched him in the face. And then some more paramedics came in to get him. They didn't take their shoes up And in the end You just got a pile of paramedics
+
+[00:09:10] Yeah, I think they both got taken to hospital In the same ambulance And he got in big trouble But he did have a sign saying No shoes in-house And he took it seriously So maybe that's why they do it Legend
+
+[00:09:22] That's very early Japan is quite particular In lots of ways It's obviously a very very mannered society With lots of different layers of politeness And shoes are a big thing I wonder if you guys remember There was a thing that might have got into
+
+[00:09:34] A Book of the Year We used to write the books of the year about all the interesting stuff. And in 2018, there was a huge cultural ding-dong when the then, and current Israeli PM, Benjamin Netanyahu, served the Japanese Prime Minister, who was then Shinso Abe. Do you remember this? Desert in a shoe.
+
+[00:09:54] Oh, yes. I do remember this. This was a huge fauxpa. Not the worst thing Netanyahu's done, but it is a deeply insulting thing to do, basically. Was it a pastry mistranslation? I don't follow. Shoe. Very good.
+
+[00:10:09] Sorry, that joke was actually it was too good for me to laugh. It was a chocolate praline pudding and he served it in two pairs of men's brogues and there's a picture of Shinsu Abe sitting there looking at this pudding in a shoe and thinking, in my culture, this is the most insulting thing you can do.
+
+[00:10:28] Sorry, can I just say that if I were served a pudding in a shoe, I would find it slightly odd. I don't think, it's not the kind of thing where you say to Shinsuwabi, Oh, in the rest of the world, we always do this. That's such a good point.
+
+[00:10:41] I think it was a very posh chef. We've been hired for the occasion. And run out of plates. We spent all the money on the chef. We didn't have any crockery budget. What are we going to do? Don't worry. I've got it.
+
+[00:10:56] One thing that I associate Japan etiquette with is cleaning football stadiums. Have you seen this? It happened in the most recent World Cup, but it's happened for a while now. Fagely seen it, yeah. Yeah, so whenever Japan plays any football match, after the game, the fans always clean up the stadium after themselves, and they get a lot of applaudits from everyone else around the world saying, isn't that polite.
+
+[00:11:18] But in the Japanese press, they're not so happy about it, because apparently Japanese men have one of the worst rankings in the world for doing household chores. So a lot of the newspapers, when they show these pictures of these guys cleaning up the stadiums, they're like, well, why aren't you cleaning your house? I'm already burning with rage on behalf of them. the Japanese women opening that newspaper. Oh, you'll do it at the football, will you? When you're trying to impress the Belarusian fans,
+
+[00:11:43] you do apparently know where a letter picker is. That's crazy. Yeah, that is crazy. That is so annoying. Yeah, wow. I was reading a book of etiquette from Japan, but from 1911. And it was really interesting because it was actually very similar to what our etiquette might dictate with a few, well, a few quite revealing things that just shows
+
+[00:12:01] Plu Sashange. Like one rule was that it is extremely rude to send a call or a away when you're at home, as in someone who knocks on the door, that kind of caller, but some people decide whether they shall be at home or not only after they've heard the caller's name. That's good. Wink. So did they have to, when they ring the doorbell, did they have to say, Andy calling?
+
+[00:12:21] I think you must have to because, yeah, you have given the game way, haven't you, when you say, who is it? Well, obviously the answer is I put on a fake voice and I say, it's Dan calling. Oh, come in, go in. Their jokes go, knock, knock. Who's there? Dan, I'm not home. There is a thing at the moment called Nui Katsu,
+
+[00:12:42] which is you get a cuddly toy and you take it with you to restaurants and you sit on a chair next to you in the restaurant and it's common in Japan or relatively common in Japan, I think. And the idea is you dress them up and then you take a photo of them. And what it means is you can have a photo of your food and your cuddly toy in the restaurant which shows you were there, but you don't have to be in the photo. So, like, let's say you're worried about online security or whatever. It's like almost like your alter ego.
+
+[00:13:15] It's like an avatar. Like an avatar. Witness protection. You're worried about the Yakuza. It could be. You never know. But it's been banned in quite a lot of restaurants for etiquette reasons. Can you guess any reasons?
+
+[00:13:27] Might get gravy on it. Well, not really, though. Okay, okay, okay. But almost. Takes up a seat? annoying. Yeah. So it takes up.
+
+[00:13:35] up space, because if you're in a restaurant which is not like private tables, most of them in Japan are, but sometimes you might have like counter service. It will be taking up one of the seats. But also, if you make a little dish for the toy, then you have to clean the dishes and all that kind of so. So it's a bit of extra work for the people. Where old are people order crockery? Do they order like dull-sized crockery for their toy? Well, they'll put a little bit of food for the teddy so that they can have a photo with it and stuff. Yeah, I guess the main reason not to be that it's incredibly annoying for everyone else. It's not doing any harm. It's not doing any harm. It's quite nice if.
+
+[00:14:05] If you are going into these spaces where it's, you know, one seat and someone sits next to you, it's slightly nice way of just going, I'd like a bit of space, please. Because Dan normally puts his bag there. Exactly. You draw a face on it, though, don't you? And the other reason is hygiene, because you're carrying the plushies outdoors. You might be taking a photo of it next to the Tokyo Tower or something, so it's been somewhere dirty and then you're putting it on tables.
+
+[00:14:28] But you've been next to the Tokyo Tower. I actually leave my plushy outside the toilet and then I take out my piss plushy. And that goes in with me. That's a very unusual nickname for your penis. It's small and soft and squishy. It's got a face on it. Stop the podcast. Stop the podcast.
+
+[00:14:59] Hey everyone. This week's episode of Fish is sponsored by Babel. Anna, how many languages do you speak? Half a language, I would say. Okay, but have you ever thought of learning 14 different languages? That sounds like a bit much. How on earth could I go about it? It's a thing called Babel.
+
+[00:15:19] This is an app that you can download onto your phone that allows you to learn up to 14 different languages with incredible ways of teaching you, not the old school, just repeating what a teacher says, but you can do it through playing games. There's real-time feedback. Keeps you motivated with personal learning plans, and it's curated by amazing languages. experts worldwide. Yes, that's right. It doesn't go for like cheap, gimmicky stuff, like a lot of other language apps that really try to gamify it, but you don't learn anything, but it does make it really fun. And I lied before. I do speak half of English, but I am also at loving learning Polish on Babel. It's great. It simulates proper conversations. It gives you real world examples of what you might want to say, not the old dusty examples
+
+[00:16:01] you might have had in your textbooks. Exactly. And even if you're going overseas and you want to learn the basics so that you can come across as cultured and cool, then all you need to do is get this now. And you can do that by getting a limited special offer through us. Because if you go to Babel, that's BABBL.com, forward slash fish, you are going to get 60% off your subscription. That is right. Get 60% off at babble.com slash fish. That's your ticket to being cultured and cool.
+
+[00:16:31] Rules and restrictions may apply on with the show. On with the podcast. Okay, it is time for fact number two, and that is James. Okay, my fact this week is that according to one theory, Christopher Columbus only existed for six years before he discovered the Americas. Yes. It's my kind of fact. Yes.
+
+[00:16:58] So, obviously people were living in America for a long time, but this is the first European contact, or was it, maybe the Norwegians got there. Let's not get it. into all that kind of stuff. We're talking about Christopher Columbus 1492. And there is a theory that he was not really Christopher Columbus. He was a guy called Pedro Alvarez de Soutemeyer, who was a very kind of important Spanish noble, who disappeared around 1486. And at the same time, Columbus came into the historical record for the first time. We don't really have any history for him before
+
+[00:17:36] then. And there's a lot of circumstantial evidence about it because like Columbus's text, anything that he wrote has this kind of Galician sort of, there's like a lot of words and phrases in there that are more associated with the Spanish areas. And he was given a coat of arms by the King of Spain, which incorporates some sort of golden bands that are part of the heraldry of this guy who disappeared. And there has been some recent. studies where they dug up some relatives of this guy Sotomayor and did some genetic analysis and found that they were maybe direct ancestor of Christopher Columbus's family. That work has not been peer reviewed and I would say that the majority of people in the historical community do not
+
+[00:18:24] agree with any of this stuff but it is a relatively out there theory. I think it sounds sound case closed. To be honest you persuaded me. I guess the counter argument is I suppose oh people this historical records are quite slim. So someone disappearing and someone else appearing around the same time is not the open and shot thing. Actually, weirdly, a bit like Shakespeare, we know more about Columbus than almost anyone else who was alive at that time.
+
+[00:18:47] Yeah, right. The other side of the argument is Columbus said he was from Genoa. Well, he would say that, wouldn't he? In his will, he said he was from Genoa. But then that document was shown in court a bit after he died, and some people say that maybe they fabricated it.
+
+[00:19:05] Lots of people called him Genoese in his lifetime. A biography of his son said that he came from Genoese aristocracy. Now, we don't think he's from the aristocracy, but we think he's from Genoa. But I'm not buying any of that. No. No, because obviously he's got a reason to have abandoned who he formerly was. So he's lied about all of that stuff, hasn't he? He's on the paper trail.
+
+[00:19:25] Yeah, yeah, yeah. It's weird that I'm the one who gave this fact, but I'm the one arguing against it. But I think it is a bit on the dodgy side. But who knows? There's a similarity you mentioned Shakespeare where his name also just changes all the time. Columbus's name. He'd be Christophorus de Colombo, you know, as one of the versions of his name. So he's muddying it himself.
+
+[00:19:47] All people just liked having different names depending on their mood. I think he's just those different spellings and stuff. Yeah, yeah. Fun fact about Columbus. Go on. Because there might be some less fun facts later on. I think it's important to have the case for the defence first. His father owned a cheese stand, apparently.
+
+[00:20:04] Did he? Yeah. And young Christopher worked at the cheese stand every now and again as a nipper. Good on him. Having a little Saturday job in your teams. Nice. It could do a good work ethic and that paid off, didn't it? Paid off in the end.
+
+[00:20:17] But the weird thing was, his brother, Bartholomew, ran a cartography workshop. Did he? Did he? Very interesting, given that Columbus is associated with one of the most famous screw-ups of a measurement on a map in recorded history. This is, he got very lucky, didn't he, Columbus. Because basically everything that he thought was wrong about the world. He miscalculated the size of the earth by about fourfold, if you're talking about circumference. So he estimated a distance of 2,400 nautical miles to get to the Far East,
+
+[00:20:47] which is where he thought he was going famously. The actual distance is 10,600 nautical miles if there was no Americas in the way. So that would have been an issue. There was no ship that could have carried enough supplies. No one could have got there. But it worked out, didn't it? because he bumped into America. No one knew the size of the earth from the time of Ptolemy.
+
+[00:21:05] That's what's so weird, yeah. The third century BC, oh sorry, Eratosthenes calculated the size of the earth and pretty much nailed it. Yeah. And then nearly 2,000 years later, Columbus says, I think I can improve on this and just gets it wrong. Were they sure he nailed it? I think everyone accepted.
+
+[00:21:23] Because the way that he did it, if memory serves, is it was like shadows in different places and the... Yeah, and the distance between the two and the... I think so. Yeah, the son of her. So, like, that's an incredible piece of master do in the third century BC. And for Columbus is the equivalent of a tinfoil hat person these days. He says, actually, he's like a flat earther these days.
+
+[00:21:43] But he kind of was, Andy, because he wrote a book of prophecies, and he was largely guided by God. He thought we were living in apocalyptic times. He thought there was only about 150 years left after his mission. In fairness to the people who were living in America at the time, they were living in apocalyptic times. Yeah, absolutely. But he thought he was driven by God. So it almost didn't matter whether he got calculations or whatever wrong, because he had this belief that he was on a mission directly given to him by God.
+
+[00:22:09] He thought this will lead me to the right spot. Yeah. And to be fair, I think a lot of people did think he was a loon. And actually, at the time he suggested it, he approached various people saying, look, I'm going to sail to China or Japan, what would become China or Japan. And he went to the King of Portugal, said, can I do it? The King of Portugal said, I think the Earth's way bigger than you've calculated.
+
+[00:22:28] He said, no, no, no, no. Honestly. And he went to Queen Isabella. She said, no, mate, it's way bigger than you've calculated. And then I think just an advisor went to, it was Queen Isabella and Ferdinand, wasn't it, of Spain, and said, you know what, I think you should try out this Columbus crazy theory. And so it was just random that they went back and said,
+
+[00:22:44] okay, some guy says it's not way bigger. Imagine when he came back and they would have been like, oh shit, are we all wrong? Yeah, yeah, he did. When he arrived in Hispaniola, he thought he was in Japan. But that's because there was a lot of shoes outside. And then when they landed a bit later in South America around the Orinoco River in Venezuela, I think they might have thought maybe this is a different continent at that stage, but he also thought that he might have been in the Garden of Eden.
+
+[00:23:13] Because there was an idea that the earth was, it had a bulge that was shaped like a woman's breast, and it contained the Garden of Eden exactly where the nipple would be. No, come on. Because it was closer to heaven. Horn dog cartographers Absolutely Before map Yeah
+
+[00:23:32] But he never made it to current USA Or current North America He got to Central and the Caribbean And a little bit of South America A little bit of South America Yeah yeah
+
+[00:23:43] But he never got to North America Got to Cuba And made people Because I think maybe Ruma was Trying to spread About the whole New Continent thing And they got to Cuba
+
+[00:23:52] And he again thought this was part of the continent and he made his crew swear that it wasn't an island because I think they were saying this looks a bit like an island to me and he's determined about his ideas and he said they'd have their tongues cut out if they said that it might be an island so you can see the other side from here it's just got to think no I'll guard your eyes out if you say that kind of thing you know you've got to be careful around Christopher he was he was a twat there is no doubt about that he was at one stage they were arrested him and his brothers weren't they for abusing the new
+
+[00:24:24] colonists, basically taken in chains back to Spain and then given to the king and queen saying, what do you want to do with this reprobate? And they said, well, he is bringing us quite a lot of gold. Or maybe it wasn't gold, but he was bringing a lot of stuff back. And they were like, all right, fine, let you off. Because I suspect you have to be doing some pretty bad stuff to attract the attention of the authorities in the new world back then. Yeah, exactly. Not quite far. And there's obviously his record has been reassessed in recent years, statue of him was torn down in Baltimore several years ago which I think has just been re-erected in the White House grounds.
+
+[00:24:59] Jolly good. Yes. Donald Trump has put it back up saying Columbus was the original American hero and one of the most, I mean it wasn't American, and one of the most gallant and visionary men ever to walk the face of the earth. I've got a statue of Edward Colston I can sell him. Do you know so many people died as a result of him arriving that the earth's temperature changed?
+
+[00:25:23] And I want to say now, I'm not suggesting this as a strategy to cope with climate change. But... I don't think anyone thought you were saying that. So 56 million indigenous people were killed across the Americas by 1600. Generally by disease, right? Well, the thing is, so it's the Calumian exchange, which I always think is such an unaggressive term for it. But generally by disease, but that's a bit of a misconception because a shedload were murdered as well at the start. So Columbus did go and he murdered thousands of people.
+
+[00:25:53] But yes, and then lots, of course, by disease. So 56 million people, 10% of the global population, so many that it meant a lot of rewilding of the Amazon. Okay. So that meant, you know, people have been farming the Amazon a lot, taking a lot of trees down. Suddenly, loads of trees grew, lots of carbon dioxide taken out of the atmosphere, cooled the earth, created the little ice age. We think it's a very popular scientific theory. It's a bit controversial. Some people don't know.
+
+[00:26:18] It created the Little Ice Age, which then made spruce trees grow more densely, which then gave us stradivarius violence. And there's your upside. Right. There we go. Which actually sound exactly the same as other violins. Oh yeah. Oh, yeah. We got hammocks from the Americas.
+
+[00:26:37] Did we? I thought they might have come from like the Pacific Islands. I believe the idea of hammocks came to Europe from, yeah, from this landing. Got to South America and Central America and realized lots of. people using hammocks and it was actually really revolutionary on ships and it was quite a common cause of death before that because you'd be stacked three bunks high and people used to fall off in the waves and you die falling out of bed which is an embarrassing way to go so you'd fall off the actual boat off the bunk and die does seem unlikely now I see it yeah it's rocking around
+
+[00:27:10] in the high seas you're two meters up and you hit a wave and you come I still think you've left the window open We just get a breeze in. It's so warm with all of us in here. No, but if you thought, also, it's not luxurious thick shag-powered carpet. It's onto bare planks, I imagine. And your bones are weakened by scurvy, of course. It just seems very unlikely, and it seems if people were dying from falling off the top bunk, you might just have two bunks. I think, guys, what we shouldn't have done is that all thousand people on this ship are sleeping in one bunk bed with a thousand stories. I think That was a mistake.
+
+[00:27:48] Look, now I say it, it does seem weird that so many people died from falling off top bunks. But hammock solved this problem, because of course you don't fall out of a hammock. It swings with you and you've got those sides of material that naturally come up around you. So very hard to tip someone out. I don't know if you've ever tried. But it's harder to tip some out of a hammock than to push them out of a bed. But yeah, they definitely were introduced after he sailed to the Americans. And it does seem like a weird idea to have three-story bunk beds on a boat.
+
+[00:28:13] Maybe people more broke their wrists. I can send you, I'll send you the source You can put it in and have people taking the piss Because it does feel weird It feels like sailors have been murdering each other Putting them in the top bunk, chucking them out And saying, oh no, another bunk bed down Oh, it's such a shame that guy who owed me five shillings has died
+
+[00:28:33] Captain, should we make him more at the plank? No, let's put him in the top bunk Something else that Columbus did on Jamaica, which was ingenious and twatish. So true to his form, this was in 1504. It was his fourth transatlantic voyage, and he was stranded with his men in Jamaica. At first, the Jamaican natives,
+
+[00:28:57] who had lived there at the time, had helped them out with food and stuff in exchange with various trinkets, but they ended up getting a bit bored of the little bits of, you know, decoration that Columbus's people were giving them, so they stopped giving them food, they were running out.
+
+[00:29:10] Fortunately, Columbus had astronomical tables, and these were things that showed you what the stars were going to do and so he knew that a lunar eclipse was coming up on February the 29th. You can see why he thought God was on his side, right? God's been like, you know what, I'll give you that lunar eclipse, Columbus. You'll know it's coming. So he checked his table and then he went out to the locals and he said, look, I'm sorry you've stopped giving us food.
+
+[00:29:33] God's really angry about that. My God, the real one. And he said he's going to darken the moon. I'm so annoyed with myself because we just had a solar eclipse, right? and what I did was I told my daughter it was going to happen and we made some Eclipse stuff and you got her really excited about it
+
+[00:29:49] and we watched it. What I could have done is not told her it was going to happen and then pretended that some magical unicorn did it or something. She pretended you were God to control good behaviour out of what we're saying. She could be eating her peas now.
+
+[00:30:06] If you don't eat your peas, I'm going to make the sun dissipate. Seems disproportionate, Dad. I've saved my power for this moment. Okay, it is time for fact number three, and that is Andy. My fact is, when Churchill met Stalin and complimented him on his goldfish, Stalin offered to have them killed for Churchill's breakfast. It's just a fun story.
+
+[00:30:36] Yeah, how awkward. Very awkward, yeah. This is a lovely little detail from a book called Allies at War. by Tim Bouverie, which is about diplomatic relations in the war. And, you know, all the summits that happened, there were so many conferences between Churchill and Stalin and the US presidents, Roosevelt and then Truman, after Roosevelt died. And they were deciding what the deal was and how, you know, how the world was going to look and the shape of Europe and the, you know, the idea of the United Nations, all of this stuff.
+
+[00:31:04] So there was Tehran and there was Yalta and Potsdam. And goldfish were a bit of a feature of the Yalta conference, certainly. so there was a huge amount of buggery, bugging, taking place. I definitely have different research. People were bugging each other. What, you know, how do you guys describe that? No, no, you're right.
+
+[00:31:26] They did do a lot of that to Eastern Europe, I would say. So, everyone was being bugged all the time because this was, Yolter was taking place on the Black Sea and Potsdam in Germany, but the Black Sea one, which was, you know, the Stalin hosted one, as it were, Yolter. At one point, a British official called Charles Portal. He says, oh, what a lovely nice fish tank. Shamy doesn't have any fish in it.
+
+[00:31:47] He's making this remark offhand to a colleague of his in English. The next day, it's full of goldfish. Really? So it's clearly there was a lot of funny business going on behind the scenes. Like quite often, I would say that they would do that to show you that you are being bugged. Yeah, that's what I would have thought. A lot of that happened in the Soviet Union. I think that's how they interpreted it, isn't it?
+
+[00:32:08] Like I read one exchange or one letter of the cameraman saying, you know, they clearly wanted us to feel a little bit watched. And this was... Right. Because if you want to gain secret information, then it's a bad thing to do. As in if you're genuinely trying to listen to the English as they're talking. Well, then they might not look for the other bugs. Oh, that's good.
+
+[00:32:27] It's like the second rotten fish in the car radiator. Yes, but that's also... Sorry? I've never let you be a passenger in my car. You put two rotten fish in someone's radiator and the car smells a fish and they find the fish and they go, ah, got it. But then there's still another one there rotting away. We've all done it. Crucially, you've labelled the fish one and three.
+
+[00:32:51] But no, so one of the points of that is, is that the idea would be you debug it. You have your security detail go in, debug the entire room. But they would always say, but we won't have got everything. So they still did know that they were bugged. It was a kind of weird game of chess where do they know. are they aware? And the Americans in English said, yes, we were aware even after debugging that we were being bugged. So they would then put out false information out loud in their rooms. No one knows what was going on at any point, basically.
+
+[00:33:19] This is why it basically achieved nothing. There was another excellent instance of a similar thing. The official American cameraman who was there to take photos of it, he remembered that when FDR first arrived at Yolta, he stepped in and he said, as was his habit, because it was late afternoon. he made a picture of dry martinis and as he passed a glass to Stalin he apologetically said that a good martini really should have a twist of lemon and then the cameraman said
+
+[00:33:45] at 6 a.m the following morning when I came into the entrance hall I was astonished to find a huge lemon tree I counted some 200 pieces of fruit on it which is a weird thing for him to have done in a pot or in the ground was it just sunnly in the ground I think it was in a pot
+
+[00:33:59] okay yeah that makes more sense yeah yeah because he'd had it flown in from Georgia right me that's very cool really Efficient. So Stalin and Churchill, this is one of their later meetings, but they first met in 1942. So America sent over a representative called Harriman. Churchill went himself.
+
+[00:34:17] And weirdly, we know the exact things that were being said because when they were on the plane on the way over together, the plane was so noisy they couldn't hear each other. And so they had to write everything on notes. We still have those notes in the Library of Congress. Yeah, not only for their trip there, but their trip back as well. Did they not sit them next to each other? It was so noisy. It was just so noisy on this old school bomber plane that they were on that they just couldn't hear each other.
+
+[00:34:41] So we do have the handwriting. Oh, God, I honestly thought you meant that other passengers were having such loud conversations. Pass it over to the guy with the mustache. Right, yes, no, the engines, that does make it was. Because if you're Churchill and the American representative, you could probably have some sway, even on like a Ryan Air Flight or whatever. Should have but first class. That's the thing with Ryan. You have to pay extra to sit next to your friends.
+
+[00:35:06] There was a war on. Yeah, but so they got there. And Churchill, when he went to the first function, where he first met Stalin on that trip, he came in in one of his onesies, as opposed to looking a bit more, you know, a suit or whatever. As we've discussed before, right? One of our earliest facts, Churchill often wore wundies.
+
+[00:35:24] It was exactly like a onesie, but it was his kind of... Well, it looked like, it's like a boiler suit. Exactly. It didn't have a teddy bear on it. Like when you say a onesie, it's like, It was plushy with him. Yeah, and he confused a lot of the public as well, because they were hoping that what the Americans and the English were going to do
+
+[00:35:42] was a second front to help them out. And Churchill did his classic V sign for peace, but everyone interpreted that as second front. They thought, oh, yes, that's what's going to happen. Oh, really? And that's not why they were there. And Churchill hated that meeting where he was wearing his onesie, went home, yelled in his room that this was terrible.
+
+[00:36:00] They heard it over the microphones that were bugging the room. And so he got invited then to go visit Stalin in his personal house. And they got drunk until 3 in the morning. And that's where things got better. They got absolutely wankered, didn't they that day? Yeah. Stalin and Molotov got really, really drunk. With this cocktail?
+
+[00:36:19] We know that Churchill was drinking red wine and not as much as Stalin wanted him to drink because Stalin wanted him to get absolutely shit-faced. But Churchill started feeling it a little bit and thought, okay, I'm going to go on to the red wine now. That's so interesting because Stalin was having his glass refilled with water I think when everyone else was being refilled with vodka because Stalin wanted to stay in a bit more control of the situation I think if we said before though that Churchill did the Stalin trick as well
+
+[00:36:43] where he'd weaken his drinks as well so it seemed like he was drinking more so they were both secretly probably just drinking tap water all night they're all sober then in 1943 so this one was in Moscow you're talking about Dan so then the next year they met in Tehran and Churchill presented Stalin with a special sword, the sword of Stalingrad, because Stalingrad had just happened, and he got this sword
+
+[00:37:08] commissioned. It was made in Sheffield, and it was supposed to be a gift from the king to say, congratulations, or well done the citizens of Stalingrad for managing to get through that. Stalin picked up the sword, held it from the sheath, the wrong way around. The sword then just fell to the ground. So that was a big faux par. But it wasn't the worst thing that happened in the war. No. or indeed the worst thing associated with Stalingrad. But does it make it to the top 100 list of bad things? It's number 100.
+
+[00:37:38] Yeah. It's the one that gets, you know, in the Channel 5 show 100 worst things to happen. It's the one at the start that gets people sucked in. Is it like those I remember the 80s shows? I remember Starlingrad. It's just got like Rufus Allen talking over some VT. Yalta was.
+
+[00:37:58] the Yalta Conference was not a... Yalta was not doing well at the time, right? It was apparently pretty grim the surroundings. So when they flew in, this is February 1945, the route was to fly to the airfield in Yolta and then to drive for eight hours
+
+[00:38:14] past bombed buildings and rotted animal carcasses. It was really tough there. But when they got there, things were much more pleasant. Caviar constantly, so one American officer estimated that during the week of the Yalta conference he ate 12 pounds of caviar. Wow. Yeah. They all hated it though. It's too much, yeah. That's what they, I read multiple
+
+[00:38:34] accounts of people being like, it's a nightmare. It's literally a bowl of caviar before every single meal. You don't want it that much. Before every minute. No, not a whole bowl either. It is easy to get hold of in Russia in fairness. Yeah, yeah. USSR like in the supermarkets, they'll have a caviar aisle. Really? Yeah, yeah. And they didn't even mix up the menu. They served them the same breakfast, lunch and dinner every single day for eight days, I think it was. I know. It's not as, Again, it's not the worst thing that happened in the war. No, but you would get to Day and go. Oh, we're down to 97 now in the top 100.
+
+[00:39:07] Lamb roast again. And there were mixed opinions about the venue. Churchill did say, if we had spent 10 years on research, we could not have found a worse place to stay. Apparently, there was a shortage of toilets in the altar. Big shortage of toilets. Yeah. And he didn't even have to take your shoes off, so they were filthy.
+
+[00:39:24] So I read this. One of our researchers, Gabriel posted this on our time. top boards because we're doing the Y series of QI at the moment. But apparently at one stage, Stalin was trying to find a toilet, couldn't find one. There was one right near him, but Churchill was in it. It was too busy. So he went down the corridor, found another toilet finally. But because his security had lost sight of him at that moment, they thought that the US had
+
+[00:39:47] tried to kidnap him. And so there was a big sort of like, fast moment where everyone's running around going, where's Stalin? And everyone at Yelts is looking for him. Oh, wow. It was just in the bog. Yeah. So good.
+
+[00:39:58] And do you think that was a power play by Churchill trying to get starting to shit himself? Oh, I hadn't thought of it that way. You know the old. How long are you going to be? Just a couple more minutes. Could have been. Because there were, there were multiple people forced to share rooms, which you don't expect. Apparently eight US generals had to share a room.
+
+[00:40:17] 16 colonels had to share another room. And 40 middle ranking officers. Oh, my God. Please don't tell me it was bunk. Not all of them came back. There's a separate. It's very sad in the War Cemetery. There's a bit where the gravestones are on top of each other.
+
+[00:40:38] Andy, you said Churchill loved his goldfish. He really loved his fish. At Chartwell, he used to keep thousands of fish. Which is his home in... Apologies, yeah. He has a home that you can go and visit. I have visited. I assume a few of you have as well.
+
+[00:40:56] No. Have you not? Oh, Andy, I know you have. I've been four times. I genuinely have. But do they have a love Hitler memorabilia? Why do you think I'm going? That's great.
+
+[00:41:07] It's really nice. It's in Kent. Okay. Southeast of London. If you're interested in Churchill, it's a very interesting place to go because it was his former home and all of his furniture is still there. His paintings are on the wall. It's, you know, if you want to see that side.
+
+[00:41:20] Because he painted a lot. Yeah, yeah. He was an artist himself. And he had this big pond full of fish. And this is how important they were to him. He used to import superior maggots over by rail from Yorkshire to feed them. Excuse me, is anyone sitting there? Yes, my pet maggots sitting there.
+
+[00:41:38] That's how he referred to them. He said they were aristocratic maggots. So if the train was delayed, did it arrive and there's just a load of flight? Did you guys read about Operation Unthinkable? No. This is a very interesting plan at the end of the war. So Churchill had a bit of form. He had sent troops to fight the Bolsheviks.
+
+[00:41:58] as they were in 1919. So that's probably why the first meeting with Stalin was a bit awkward because Churchill had literally sent a force to say, I would rather you were not in charge of Russia. But in 1945, the idea was come up with an operation unthinkable, which is the war is about to end. It's been six years of total war.
+
+[00:42:14] Chunks of the world are completely devastated. Everyone's life has been touched. Let's invade Russia. And the plan was, within eight weeks of the war ending, we're going to invade Russia. Problem, of course, we're quite short of numbers compared with the Russian army, which is absolutely enormous now.
+
+[00:42:28] And also no one in history has ever been able to invade Russia since. We've literally got a case in point right now of a guy with the biggest army ever. Another who's just failed to do it. But don't worry, our plan is we'll rearm the German army and the SS and they'll be bang up for it. And that's not with the numbers. This was the brainchild of a brigadier called Geoffrey Thompson. Because there was a fear that the Soviets would just keep going until they got to Western Europe, basically. Literally anyone at any senior military level who read this plan said,
+
+[00:42:56] I'm not sure about this. I'm not sure you even need to have been in the military to know that that's his shit idea. No. But he was commissioned to do it. Like he was a serious person was commissioned. He wasn't just a loopy. He wasn't just a loopy person.
+
+[00:43:09] The line is that he had 10 ideas a day. Only one of them was any good. And he didn't know which one. It was the pitch that was made about Churchill, which in many ways is my, I feel like, I feel like, I'm on this show. Still wasting, aren't we?
+
+[00:43:24] No, no, guys, hear me out. Yeah, invading Russia Cup. Something I didn't know about Potsdam. Potsdam, a bit confusing for Stalin because Roosevelt has died two months after Yolter, so he's been replaced by Truman, fine.
+
+[00:43:43] But also, I hadn't realized that the British election happened in the middle of Potsdam. So Churchill had to fly home and be replaced by Atley halfway through. Really? During the summit. Awkward.
+
+[00:43:54] Yeah. And Stalin was there saying, and Stalin said, to Churchill. A, he said to Churchill, of course you're going to win, you're the war leader. And also, he understandably said to some of Churchill's advisors, well, presumably your leader will rig this anyway, so it's not a thing. And they were like, no, honestly, this election thing, we do it. And he was astonished when a different Prime Minister came back. It's like when a movie recast a main character, but everyone else is the same. And you just have
+
+[00:44:17] to just accept it and keep watching the movie. Muppet Pothdam. Thank God. Okay. Keep going. Okay. I guess who's the only real person in it? Well, Stalin's the one who's, like, Churchill gets picked out by Attlee, and Truman comes in instead of Roosevelt.
+
+[00:44:34] So Stalin's the one person who's always the same. So it's got to be human Joseph Stalin. So it's human Joseph Stalin. And then it's like Miss Piggy for Churchill. Yeah, yeah. But she'll have to be replaced by Attlee Kermit. And then Truman, Sam the Eagle, I guess. Oh, yeah.
+
+[00:44:51] Yeah, yeah. Okay. I'm sure this does work, because I haven't seen the most. Muppets. I'm just not getting the genius. Okay, it is time for our final fact of the show, and that is my fact. My fact this week is that most circus clowns are part yak. Which part? That's a good question. Oh, is it the plushy? Okay, so when you see the wig of a clown, quite often, that is entirely made of yak hair.
+
+[00:45:21] And I read about this, by the way, in a book that I was reading recently called Dame Edna Everidge by John Larr, and they were talking about how. when Dame Edna Everidge is getting onto stage, Barry Humphreys is changing into the costume, that the wigs would come on and the person who makes the wigs saying this is entirely made of yak hair, because it is the best kind of hair for if you are doing any kind of stage performance, particularly if you were a clown and you get pied and you get all sorts of the... Because in the natural environment, yaks get pied quite a lot. Exactly.
+
+[00:45:52] A lot of meringues grow in Mongolia. That surprised me. the wigs were made from Yax. I just, the extent to which you managed to plunder your 20th century comedian's biographies for facts for this show is so impressive.
+
+[00:46:07] I'm really annoyed that. I didn't get to my Bob Hope book in the last fact when Christchov came to America and caused a scandal. Yeah, really cool. Really cool. And I was reading about one guy in particular
+
+[00:46:17] called Joe Rappasarda, who lived in New York, and he had a wig shop in Times Square. And basically, he was Mr. Clown Whig Man. He would make all the wigs. And they used to import all of the yak hair from Tibet. They would have someone who was dedicated to treating it, washing it, the dyeing of it,
+
+[00:46:34] to the right clown hair color. And it's not even just clowns. Major productions still to this day in the West End, in movies, they all use yak hair. Yeah. So, Cats, the original Broadway show of Cats, that was all yak hair. What? They weren't cat hairs? Oh, my God.
+
+[00:46:50] I know. I presume this guy, Joe Rapisade, who was there in the 1990s on Times Square, I presume that that business has been pushed out these days. By a vape shop or something. Yeah, it feels like that's quite a hard premises to keep hot. Like, no one's going to Times Square for a wig these days. If it's a showbiz thing, it feels like the kind of actually kind of hipster showbiz thing you might have in New York.
+
+[00:47:10] But they did the wigs for all Hollywood movies. Oh, I just assumed that like... Yeah, but like in central London in one of the best spots in central London, there's a big umbrella shop that they'll buy his umbrellas from. That's a good point. Yeah, but that's the spies have somewhere for me. You know. I think like some of these places they might have like a thousand year leases that they can.
+
+[00:47:28] Oh, okay. I was, I was thinking it would all be Eminem world by now in Times Square. I think it's in a building in Times Square. I don't think it's a shop front. That's what I assume. I don't think it's that. But it is, again, yeah, so it's used in Broadway.
+
+[00:47:41] It's used in many places. I found one account of The Rock, Dwayne Johnson, talking about his role as Hercules in a 2014 movie. And the chin hair, that was yak testicle hair specifically. Come on. Yeah. That they had is his hair. This is what he says in the interview. Why?
+
+[00:47:56] Is it better? Better hair. But the testicle hair in particular. Was it a goatee? Yucky. Yeah. Yeah. Testicle hair feels like it's usually not very good quality in humans.
+
+[00:48:08] So maybe they have different. Dare you. Dare you. I'm so sorry. There's no such thing as bad quality testicle hair. Only testicle hair that hasn't been treated right. No, good point. It's really good.
+
+[00:48:18] If you get split ends down there. Well, you've got to stop straightening it, Andy. It feels like something you might have just said in an interview. Do you not think? Yeah, yeah, maybe he was elaborating. But they use the belly hair of yaks a lot as well. They use the belly hair because yaks have the longest hair in nature, I think. Okay.
+
+[00:48:35] And it's really useful because especially the Tienju white yak has got very long white belly hair. So once you shave that off, you can dye it in any color you want. And they've been using it for many, many years. They used it for barrister wigs. Gosh. And like you say, been used in loads of movies. There are a lot of the rings, they used it. Yeah, there's actually, and in The Hobbit, they used it for the dwarves except one.
+
+[00:49:02] So quite a fun thing you're doing if you don't love the Hobbit itself is try and spot the dwarf who has real human hair for hair rather than yakker. Because Peter King, who was doing the costume, said that he mostly needed them to have really thick dense hair. And it's got that really thick density where you don't need to have too much of it. And human hair is too silky and doesn't have that texture. but one of the dwarfs who is that I think the lead dwarf has human hair I see the reason it needs to be like that apparently is like a perspective thing because you've got normal heighted humans who have to be like small people it looks better if their hair's really really bulky and really sort of big and fluffy
+
+[00:49:37] oh it makes them look shorter because the hair's wider yeah that makes sense interesting and they said this guy Peter King he got his yak hair from England even though I guess they were filming in New Zealand but he said that they bought all the yak hair that was in England at the time. So there was no yak hair for anyone else. That's why the rock had to sit with bull hair on his face. He was making Hercules. 60 to 80 kilograms
+
+[00:49:59] of the stuff they used for a lot of the rings. Yeah. So many yaks worth of hair. So I'm presuming that they're sourcing it from domesticated yaks. Yeah. Because there are two species of yak, aren't there? There's the wild, which there aren't terribly many of them, maybe not even 10,000
+
+[00:50:15] of those left. And then there are the domesticated, which are actually doing a lot better. there are some millions of those, I believe. It'll be the domesticated ones for sure. You trim it and then it grows back. I'm guessing you don't have to kill the egg. No, you don't. Every time you go to the hairdresser, you're quivering in terror.
+
+[00:50:32] You still don't have to kill me for this one, do you? Andy, it's just a cut and blow dry. Why do you think communism coming to China was bad for Santa Clauses in America? Is it something to do with yak hair? It's actually completely unrelated. It's just something I've wanted to say. It is to do with yak hair. Okay, so like Santa Claus's need hair.
+
+[00:50:58] Yeah. Very good. Need fake beards and stuff like that. You're there. Yeah. I'm not sure what the communism part of it is going to be, though. So, 1940s, you're absolutely right. The export of, it's actually yak tails they used for Santa Claus's beards in American shopping malls. They were just becoming a huge thing, very easy to curl.
+
+[00:51:17] then 1951 China annexed Tibet and it was also going communist and so America put a big old trade embargo on said it wasn't going to import Chinese goods anymore so Santa Beards suddenly rocketed in price because you couldn't get them anymore and India exported some to America and claimed that they'd come from Bhutan or whatever
+
+[00:51:35] but in the end I think Santa Beards became about 100 times more expensive Well luckily the US have never put trade sanctions on other countries that made everything miles more expensive for no real reason They learned their lesson from Father Christmas Gate. In Tibet, you might put a lot of yak hair in your bra. This is very common.
+
+[00:51:56] The black yakher tent that they use is called a bra in some Tibetan dialect. Oh, my God. That's the scabbiest fact I've ever heard. But it's apparently a really good tent. It's a really cool tent in the summer and a really hot tent in the winter. Oh, perfect. because the yak hair blocks the wind and the snow. But in the summer, the fabric expands, makes it waterproof when it's wet and allows ventilation when it's dry.
+
+[00:52:26] It's like the perfect thing to make your house out of if you haven't decided that you want to live in a Wattleham Daube house or a cave or whatever we decided in that recent show, then you can get yourself a yak hair tent. Do you know that when you're walking in Tibet, there is a thing called the Mountain Side Rule? and that means that if a yak comes past you in the other direction, you always stand next to the mountain, as opposed to next to the massive vertical drop. Okay, yeah. In case it pushes you off.
+
+[00:52:56] In case it pushes you off. Now, you might say, well, that makes just common sense that you would do that. But the reason that you're supposed to do it is because the guides will tell you at least that yaks are vindictive bastards and that they'll deliberately knock you off the cliff if they ever get the chance.
+
+[00:53:14] Wow. Right. God, and here we were, thinking they worship these creatures. I think probably they just say that to get the tourists to be safe. Yeah. Yeah. It does make sense. It makes so much more sense than saying stand on very much of the cliff while the yak passes on the inside.
+
+[00:53:28] And if they fall off, they'll probably survive because the amount of amazing wool on the side. Like push a yak off a bunk bed. It's fine. That dude's doing fine. I was reading a bit about the laws of Tibetan hunting because hunting yak is a big thing, you know, eating yak, obviously. And these are sort of historic laws, but they're really interesting
+
+[00:53:48] and they're very strict. So the share of yak that you get when you kill it was really dictated. So you'd have the strangers share, for instance, in a lot of Tibetan groups. And that meant that if you kill the yak and you were entitled to some of it and then your tribe was entitled to some of it,
+
+[00:54:04] if some strangers came over the hill at that moment, not involved in the hunt at all, the rules were that you had to allot a stranger share and that had to be the most generous. Wow. You've got to give the good bits away. That's exactly how I would live my life if I was there. Hiding, sneaking around, waiting until one was done, popping over and going,
+
+[00:54:23] Hey, Brian, what's? No, no, no, that's not the best one. No, no, no. Give me that testicle. I can see it. You dighead. You're really the Columbus of Tibet in your fictional life. Oh, that's so funny.
+
+[00:54:41] They also had a randomised sharing thing. where if you're in a group, so let's say you're in a hunted group of eight, you kill a yak, you have to divide it into eight piles, and then everyone has a pile that they guard. One person walks away from the circle. It's kind of like wink murder or something. You know, when you select the person who's going to be the murderer. Like the traitors.
+
+[00:55:01] Oh, yes, it's like the traitors. There's something that's on TV right now. This is Tibetan traitors. There you go, for people who watch TV. Wait for what happens? So you stand in a circle. You are each in front of one big pile of meat. And then to make it fair, who gets which pile,
+
+[00:55:17] one person walks away from the circle, closes their eyes. All the other people number themselves, one to eight, one to seven. But then the person who closes their eyes comes back, and they say which pile of meat is number one. Brilliant. And they don't know what number they are either. They don't know what number they are. And so then the number one has to go around to that pile,
+
+[00:55:35] and everyone rotates accordingly, so you end up in front of a pile of meat that you could never have guessed. I'll be honest, that's not really like traitors. Claudia Winkleman has just killed the yak. Okay, that's it. That is all of our facts. Thank you very much for listening. If you'd like to get in contact with any of us about the things that we have said over the course of this show, we're all online. I'm at Shreiberland on Instagram, James. No-Sysinger James Harkin on Instagram.
+
+[00:56:08] Andy. At Andrew Hunter-M. Yep. But if you want to get to us as a group, where do they go, Anna? You can go to Instagram to at no such thing or email podcast at QI.com. Yeah, that's right. And if you do email podcast at qI.com, you can send us two things that will actually be used on future episodes. So if you send in any bonus information, if you want to correct anything that we've said, if you've had an experience you think we should know about to do with the things we've spoken about, send it in. And Andy will pick them out and bring them to drop us a line, which is our bonus secret show, secret, as in you can only get access to it if you're a member of Clubfish. And that's on Patreon. So go to patreon.com slash, Clubfish and you can get access to that as well as Excel episodes and there's a bunch of other stuff there. Or if you send us an interesting fact, Andy will pick that out and bring it to our bonus Monday show,
+
+[00:56:58] which is called Little Fish. And Little Fish is where we put down our facts and we just read out the best of yours. We love doing that. So do send your stuff in or check out no such thing as a fish.com because we do have live gigs occasionally that pop up on there. We've got all our previous episodes. That's the hub to go to. Okay, that's it.
+
+[00:57:15] Thank you very much for listening. Thank you as ever to Leeing Lee and Ethan Ruperterelia as well as the larger Fish Buster team. And we're going to be back again next week. We'll see you then. Good bye.
