@@ -1,0 +1,192 @@
+# No Such Thing As A Fish - Little Fish: Ant Tower
+
+- Episode date: October 4, 2026
+- Source: https://podscripts.co/podcasts/no-such-thing-as-a-fish/little-fish-ant-tower
+- Transcript source: PodScripts
+- Slug: little-fish-ant-tower
+
+## Transcript
+
+[00:00:00] Hello and welcome to another episode of Little Fish. This is our bonus Monday show where we put down our favorite facts from the last seven days. And we get to sit back and enjoy all of your facts that have been sent through to us via podcast at QI.com. Very exciting batch of facts here. My name is Dan Schreiber. I'm sitting here with Anna Tysinski and Andrew Hunter Murray. Let's do it. What have we got? Here's one from Trent Thessons.
+
+[00:00:39] And Trent says, I was listening to Little Fish and, episode. There was a story mentioned about ants climbing on top of each other to reach the moon. It made me curious about how far every ant on Earth could actually reach if they all joined in together. Keep talking. Yes. Yep. And Trent's done an A4 pages worth of calculations. With which he has concluded that all ants on Earth could theoretically stretch on the Earth of the Moon approximately 52,000 times. Wow. Now that would be a strong tower. You could climb that. Could you climb? Yeah. I think. think you'd knock the ants away as you were putting your hand in to get grip.
+
+[00:01:15] You'll knock some away, Dan, but there are 52,000. So you think there would be enough, yeah, you'd have to just keep going. And that's a hell of a climb. Wait, why? What you mean? Once you stop, they start all falling away. Yeah. Yeah. Well, if you stop you fall as well. Yeah. Oh yeah. Okay. You'll need to bring some food. You'll need to bring a picnic and they're going to be very interested in that as well.
+
+[00:01:32] Yes. Yes. No jam on this spaceship. I think that's what would happen. It would reinforce the power of the tower because they would consume you into it and you would be stuck inside and then the next person climbing is like oh that feels very like a human head no time to stop keep going and it's just a column of humans that eventually become the main what so it's like a weird horror film where everyone keeps on going
+
+[00:01:56] up looking for the last person who tried to climb to the moon that is pretty distressing it's an upsetting film yeah that's a horror film also what's going to happen to earth now it's got no ants left probably bad stuff I expect so but a lot of birds will go a bit peckish weren't they literally peckish point. They're going to jeopardize the tower. The birds are the enemy, I think. Yeah, you're going to
+
+[00:02:16] need some big bird netting around this tower to ensure it doesn't just become a roving buffet for all the birds in the world. Yes. Well, this is the sort of stuff that gets the fans so excited is the what-ifs of sci-fi, isn't it? Yeah, yeah. It's the plot twist that the person climbing the tower has to come across. Oh, God, there's a hole in the bird netting. The tower's being eaten now. Yeah. Yeah. Am I going to make it to the moon? Why are you going to the moon? Because the ant tower ends there. it's because it's there. The moon does of course orbit Earth, so the bottom of the tower is going to have
+
+[00:02:46] to be on wheels of some kind, isn't it? Yeah, that's a really important. God, that's such a good official. Are we lassuing the moon with the ants? I'm not saying we can't. Gosh, yes, and the Earth's spinning as well. That does complicate things rather, doesn't it? Trent, when you sent your email, did you think
+
+[00:03:02] it would lead to this level of high-end practical discussion? I'm actually disappointed in Trent that he didn't work out this for us beforehand. There's a second page to the email. Don't worry. Okay, let me read one out here. This is from Scott Lucas.
+
+[00:03:18] Scott Lucas has discovered that there is a small town in Missouri called Humansville. That's so cool. It's a great name. He says, on top of Humansville, already sounding like the lady doth protest too much, it has the added quirkiness of actually being named for a Judge James Human in the 1830s. Thank you, Andy. So not really named for humans, but rather one specific. human, who incidentally also has a name that could be read as an imperative sentence,
+
+[00:03:48] Judge James Human, which I know you like and describes his job since Judge Human judged humans. Oh. Oh, that's good. That is very good. Yes, it's very nice. I looked into other local names of the area, just to see if there are any cool names. There is a town there called Halfway. Okay.
+
+[00:04:08] It is halfway between the Bolivar and Buffalo. If they'd call it destination instead, they could have been the biggest city in the area by now. Really good point. Yeah. That's true. In a way, everywhere is halfway, isn't it? Everywhere is halfway between somewhere and somewhere else. You're always halfway there.
+
+[00:04:28] Whoa. Not if you're at the bottom of the ant tower. Exactly. Okay. We're still on that. Okay. Oh, that's very good. This one is from Simon Burford, and I love it.
+
+[00:04:40] Apologies if anyone has pointed this out before But in episode 151 You talk about Stella Rimmington Being the head of MI5 We remember her She died some years ago now But she's a really famous Early head of MI5
+
+[00:04:52] She wrote a book about it as well She was one of the first publicly named heads Wasn't she? And she wrote lots of spy novels Once she'd retired obviously Anyway You surmise in this episode 151
+
+[00:05:03] Which was nine years ago That she may not be the real head of the agency But just a front for the real person in charge Okay? Oh yeah. I can't believe that none of you pointed out
+
+[00:05:14] that Stella Remington is an almost exact anagram of Remington Steel who was a fictional character played by Pierce Brosnan who pretended to be the head of a detective agency while it was secretly run by someone else. Coincidence? Probably, says Simon. Isn't that nuts? Yeah? So I had never heard of the series before,
+
+[00:05:35] but it was Pierce Brosnan's first big break really. It was a big TV series in America. I used to worry it. In Hong Kong. Did you? Yeah, yeah. Stella Remington, Remington Steel. That's...
+
+[00:05:44] Remington Steel. That is weird. It's a bit mad. So basically, there's this detective. She's not getting any work. She makes up a boss of the detective agency and business picks up. He's called Remington Steel. And then Pierce Brosnan is a thief who turns up, pretends to be Remington Steel.
+
+[00:05:58] And they solve crimes together. And Stella Remington was working as a spy when this was going out. So that must have been very weird for her. Yeah. And she was a model for M as Judy Dench in the James Bond films, which is when Pierce Brosnan first played James Bond. That's great. That's wonderful.
+
+[00:06:17] I know. And Stella Rimmington's father, guess what industry he worked in? The steel industry. What's happening? Oh, God. Start building that ant tower. We've got to get off this earth. Can I just tell you the mad little afterlife of the show?
+
+[00:06:32] Because the show got cancelled. Brosnan got offered the role of Bond. after the show was cancelled, and then work got out that he was being offered the role of Bond. Interest in Remington Steel exploded. He then was offered a new series of Remington Steel, which his contract said he had to take. No, really. He'd done all the photos to be James Bond. He was in.
+
+[00:06:52] He was about to have the champagne to toast his new life as James Bond. And his agent called and said, I'm so sorry, you have to do more Remington Steel, because that's what the contract says. So the Bond producers then went with Timothy Dalton, at which point interest in Remington Steel collapsed. No. And they drastically cut the next series they'd planned down to kind of six episodes because no one's interested in Remington Steel anymore. I'm serious.
+
+[00:07:13] Dalton was never meant to be Bond. He wasn't the first choice. Broznan was the first choice at that age to be Bond when Dalton was picked. Wow. Isn't that crazy? Yeah, that's amazing. Poor old Dalton then, because he wasn't, was he one or two, Dalton? He did two.
+
+[00:07:27] And then Brosnan zooms back in. Fresh from Mrs. Doubtfire. His audition film for Bond, many think. Where he outs and undercover. Oh, my God. There you go. He does. He probably had that written into the script going,
+
+[00:07:44] I'm not losing out on this thing entirely. That's the dad. Oh, very good. Okay, let's have another one, shall we? Yeah. This one is from Tom James from Edinburgh, and this is the fact that the best music for selling dog food is by Cat Stevens.
+
+[00:08:04] Okay. What? Tom says this came up in conversation with someone who spent years working in licensing at record labels and they talked about how unglamorous the day-to-day of the music industry can be and gave the example of licensing music for dog food commercials. So I asked, who always, you know, does the music with dog food commercials and it's Cat Stevens.
+
+[00:08:25] And weirdly, I didn't know this, you might know this, Dan. Cat Stevens had a song called I Love My Dog. No, I didn't know that. That's very good. So this was a go-to choice. And Cat Stevens, though, is no more because Kat Stevens changed his name to Yusuf. I can't remember the surname. Yusuf Islam.
+
+[00:08:41] Yusuf Islam. And I would love to know if dogs like Yusuf Islam. Is there a sort of cutoff point when Kat Stevens no longer is appreciated by the dog community? I think must be, yeah. Well, because they can tell that he changed his name. Just curious. In the music. Just curious.
+
+[00:08:59] You've got to assume that they don't. Otherwise, this person would have said, you know, they like Yusuf Islam. Although who can name a use of Islam song? No one. Nobody. He all know the Kat Stevens. Yeah. Hey, did you know?
+
+[00:09:09] Kat Stevens was converted to Islam by his brother who brought him back a Quran as a present when Kat Stevens was, you know, looking for some spirituality. But his brother was Jewish. Wow. And they both started Greek Orthodox. What? What? Just a nice story, isn't it?
+
+[00:09:23] And his brother now runs a charity in Israel that tries to bring together Israelis and Arabs. That's quite something. Isn't that a gift from holiday? Yeah, a gift from holiday. That's probably the most impact you can have with a gift from holiday on someone's life is to literally change their faith. Yeah. That's true.
+
+[00:09:39] And name. Yeah. Because I brought back some donkey milk soap from a holiday recently. Yeah, but your wife now worships donkey milk soap, didn't she? She's got a shrine. Yeah, she does. Here's one. This is from Felix Eilf.
+
+[00:09:53] Perhaps I'm too late with this fact, but I thought I'd try my luck anyway. I was at the Farnborough Air Show last week. Cool. Lucky you, Felix. Sounds great. I've never been. and saw a display of two pilots in ExtraNG aerobatic aircraft. That's this particular kind of plane, basically.
+
+[00:10:09] While many were excited by the remarkable skill and courage on display, the thing that excited me was learning that the ExtraNG is built by the Extra Aircraft Company, Extra Flugzoigbao, which in turn is named after its founder, Walter Extra. They can't just all be names, Andy. But that's all people send me. Because they're guaranteed to be read out on the show. it's a catch 22 almost
+
+[00:10:33] The people want what they want And it dovetails exactly with what I want That's the weird thing That is weird I the inbox guy It's bizarre Well I'm not gonna tell you now About the white cap company of Chicago
+
+[00:10:46] Which makes the ketchup glass bottle tops Do they? Yep Founded by the White Brothers in 1926 Thank you Raddy Radev Why did that a person say I think I might be too late for this Do people think that there's a deadline
+
+[00:10:59] for facts admission. People think we're going to stop. People think I'm going to stop. Yeah, okay. Oh, for your book, not just for the facts themselves. That must be what Felix means. It's a deadline for the book. Oh, for the publishing deadline. Yeah, because Felix, we're not. We're not.
+
+[00:11:14] I hate to break into you, Hunt. There is no book. Anyway. All right, is my turn? Yeah. Here's one from Dan Marsh. This is a great fact. Dan Marsh says, I have a fun submersible fact about the invention of digital audio
+
+[00:11:29] compression that knee, I know, it doesn't sound promising yet. But this is awesome. So Dan says in the 1980s Swedish audio engineer Lars Lillierid was approached by a diving company on oil rigs to say they need a better communication system between divers because, and I just didn't realize this, the oxygen tanks contain large amounts of helium. So when divers were trying to talk to each other underwater, it was very difficult to think that I understood because they're all talking like this and no one could understand anyone else. I'm not. doing a bit. I need to come up to the surface now.
+
+[00:12:04] There's been a catastrophic breach in the hole. Please. I've got one minute left. Oh, that minute's going to drag boys, but anyway. Glob, glob, glob,
+
+[00:12:19] glub! This is demonstrated this is very dangerous. They couldn't communicate because everyone's on a very high pitch. And Lars Lilliorid, who was a sound engineer, develop this digital pitch shift system to convert their voices back to natural sound frequencies. Wow.
+
+[00:12:37] And he gave it to the diving company, but it's that technology now, which means that large audio files can be compressed. So it's the same technology that means that our podcast can be enjoyed by billions of listeners. That's terrific. And that was invented for divers, so they didn't speak in stupid voices. So it was a live feed that was immediately, it wasn't a pre-record. Maybe it was that Maybe it was a slight delay on it
+
+[00:13:01] With the communications I don't know It was like So we've recorded it And then we'll compress it and we'll send it up And so when you hear Hi I've got one minute left to live Can someone help When did
+
+[00:13:13] It's half an hour ago We got that This is actually last week's episode as well Well let's go from down in the ocean To up into outer space Because this is a message from Colin Summers who says, my wife Rachel's fact, so actually from Rachel, is that NASA had 11 men volunteer
+
+[00:13:38] to act as guinea pigs in multiple experiments that tested how humans would react to weightlessness and motion sickness, specifically because they were deaf. Is that amazing? Sorry. So, when they were testing for trips to space, trips to the moon, there were 11 people who were taken from a school for the day. death. And there's a certain type of condition when you're deaf that means that you lose the ability to get motion sickness. And so they could go on boats and never experience sea sickness and
+
+[00:14:12] so on. And this proved to be the perfect thing to work out the science of how you could avoid motion sickness in space. And the tests performed included, this is from the email, Rachel's fact, living in a slowly rotating room for days, being on a quickly spinning platform for hours on end, rides on the vomit comet and riding on a boat in a storm in the Atlantic that included 40 foot waves and actually that one
+
+[00:14:38] I read up on that had to be abandoned because all the researchers who were on the boat with them got so sick that while the others were sitting and just playing cards in other games
+
+[00:14:47] and just not being affected whatsoever Wow so all these were they children from a deaf school no no no this was a sort of adult age like university level Wow
+
+[00:14:58] do we talk about I think last week when we were doing a fact about your test engineering. I don't think we mentioned the NASA vomit comet early tests where they were testing a space toilet. Oh, no. I don't think we did. So when they were doing that, they had to find volunteers again who could reliably defecate within a 30 second window. And the reason for that, I don't mean through a window. I mean, a window of time.
+
+[00:15:26] And it was because when you're in the plane that's doing, is it parabolic flying where you're going down and up and you're testing brief periods of weightlessness, when the plane enters its dive and everyone on board starts floating around because that's how the plane is moving, you've only got 30 seconds of that. And so you need to test your space toilet in those 30 seconds.
+
+[00:15:46] And that costs a lot of time and money and effort, so you need reliable poors. God, because if you don't do it, you cost them 10 million quid or something. Exactly. Expensive non-shy. Yeah, I just didn't actually. actually need to go. Sorry. So, so yeah, 30 seconds was your time. I have a friend who would be perfect for that job. I don't want to know. We can, we can bleep out the name, but I used to, I used to live
+
+[00:16:11] with him. And we'd be sitting, you know, just chatting and he'd say, sorry, I need to go for a poo, as he used to say. And he'd go off and he would be back instantly. And I was like, impossible. There's no way you just did that. That was quicker than urination time. And he said, it just, it just comes out and I'm done and I'm back. I thought you were going to say that you could do it on, you could say, do a poo now. Yeah, set your, set your watch. I think he can. Well, because that's more impressive than just pooing quickly. I do think that's, he doesn't wipe his ass. He might have waited until it was absolutely essential and urgent, whereas actually what you're saying is we need you in the next one minute to produce. Do you see what I mean? I do you see what
+
+[00:16:52] you're saying. All right, well, listen, we need to move on. That is all of your facts. Thank you everyone for sending them in. If you want to have yours read out on this show, podcast at qI.com is the place to send it. But before we wrap up today's episode, we have to hand out some of the headline facts from our 12 years of making this podcast to some new custodians. Now, if you join Clubfish, which is our secret members club on Patreon, so patreon.com slash clubfish, if you join that highest tier that we have, which is called Friend of the Podcast, you will be assigned one of these facts. You're going to be sent a digital certificate. And then eventually you'll have that fact read out by us on the show. And that's what we're going to do now. So let's get eight new
+
+[00:17:33] custodians officially inaugurated on the show. Andy, won't we start with you? Yeah. Okay. This one goes out to Namitha Vinayan. Namatha, your fact is, in 2015, the world discovered the largest prime number ever. It would have been discovered months earlier, but the computer which found it, forgot to tell anybody. So, just a silly computer fact. This is back when computers forgot stuff rather than deliberately concealed things from us and plotted amongst themselves.
+
+[00:18:04] You're absolutely right, yeah, yeah. That's very good. Here's one for Kevin, so enjoy this one, Kevin. This is the fact that in a press release about a new English language test for migrants, the British government misspelled the word language. Do we know how they misspell? I believe they did it the classic Language, did the A&U the wrong way around.
+
+[00:18:25] Right. An easy mistake maybe to make for maybe a five-year-old and maybe that's who they've got drafting their immigration policies. Let's do another one. This is for SV Yates. And your fact is now a New Zealand firm has developed an irrationally angry robot to train telesales staff. This would have been a while ago.
+
+[00:18:46] Again, this would have been about 2017. What, 2017 we're in now or 2018? Yeah. Yeah. So this was bang up to this was what AI was being used for at the time. Probably it was to create. Just to piss off. Train tele sales.
+
+[00:18:56] I don't understand how much training you need as a tele sales person, ringing someone up to deal with them saying, fuck off and cutting the phone off. I mean, do you need to design a whole robot to deal just sitting on the line for the split second before? I think it might not be for that. It might be for customer service as well, I suppose, where people are ringing you and they're angry. Oh, yes.
+
+[00:19:17] I think you don't need training to go with being hung off. on. Okay, yeah. Just to emotionally deal with it. Yeah, you're right. It's people saying my phone bill's too big. Yeah. Nice. That's good. God, these do feel like simpler times, don't they? Yes. That one and our headlines are kind of a weirdly a cultural stamp on what was going on at the time when we get topical. Dan, in the actual main show, there was a thing you said about this fact, which was that I got a call from a robot, but it knew to stay silent. Oh. To give the space for me to say the obvious response, I think, is what it was. So can I help you today with this problem?
+
+[00:19:53] Yeah, that'd be great. Why don't you tell me what the problem? So the gap would be for whatever I answered. It would leave an appropriate gap. Yeah, for the space that it would take a sort of predicted answer. So they were that basic. They were just predicting how long you'd take. They weren't even responding to the sound you made.
+
+[00:20:08] It's a long time ago. It's a long time ago. These days, the I will ring up and say, hello, I know that last night you dreamed about your uncle Peter. Well, that's what? I did. I didn't even have an Uncle Peter. How have you done that? We've made you an Uncle Peter.
+
+[00:20:26] Right, should we have another? Yeah. This one goes out to Reverend Dr. Nicols de Vant. I hope I'm saying that name right. It's that a fifth of America's meals are eaten in cars. Yeah, I remember finding this one. It's extraordinary. It's your fact.
+
+[00:20:43] And it was, of course, we've missed this year's National Drive-Thru Day, which is the 24th of July. Again. I missed it again. Yeah, and so it's one in five, but it's because of cars. It's because of drive-thrus. It's because of drive-thrues. Well, it's a combination, actually, in cars and drive-thrues.
+
+[00:20:59] If you only have one or the other, it wouldn't be nearly as much. Cars are 50% of this fact. Imagine inventing the drive-thru if we didn't have cars. What would that be? I think that still kind of works, doesn't it? It's sort of, you don't go in the building, you're not going to sit down. I'm just passing by. A walk-through.
+
+[00:21:17] Walk-through. Yeah. Yeah. Well, there is a place not near us. us, which is a restaurant which has a hatch on the street. A place not near us. No, it is near us. I misspoke. Either way, it's not a good anecdote.
+
+[00:21:31] All right, another fact here. This is Matt Birch. Matt, your fact is now that the most dangerous job in Britain is hairdresser. Yes, right to feel hardcore as a hairdresser. Stepping self with scissors? You'd think that. But it's actually repetitive. tendinitisy stuff which I totally understand right like having to um bend a weird way all day around
+
+[00:21:56] people's heads and the snip snip sniping and with your fingers i mean my fingers get really sort typing my parents are hairdressers both of them have they ever suffered any of this stuff no no never heard uh that kind of ailment with them and i can't think of that being a problem for any of the uncles and aunties that i grew up with you know ceremonial uncle aunties in the hair salons Cool Australian hairdressers, though, probably they're extremely fit. And they, you know. Well, they've even got fit fingers? Yeah.
+
+[00:22:24] All these all go for finger jongs. I just think everything in Australia is fitter, basically. You're outdoors. Everyone's outdoors all the time. All the hair salons are outdoors. They cut on surfboards while they're out in the ocean. I think it's skin conditions as well, isn't it? Have they both got very bad rashes?
+
+[00:22:40] Ah, they got great skin. Have they? Australian, Australian. Bloody hell. Let's all move there. All right, next up. Here's one. This is for Effie Palacios.
+
+[00:22:51] Elvis Presley once started a riot at the end of his show by saying to the crowd, Girls, I'll see you backstage. Worst Elvis. It didn't sound American, let alone like Elvis. Hold on. Girls? Girl. Oh, that's good.
+
+[00:23:08] Do that. What's that one? Elvis was, of course, New York Jewish. Giles. Maybe I could. Do the boys. Goils. Girls.
+
+[00:23:21] Girls, I'll see you. You do it, Dan? Girls. I can't do it now. Girls, I'll see you backstage. Very good. No, that was terrible. You got to do some, uh-huh, huh, that's first.
+
+[00:23:31] Uh-huh, uh-huh. Girls, I'll see you backstage. Did he do the stupid face as well? I wonder. That's stupid face. There wouldn't have been a right if he'd done that face. That was a really good Elvis lip curl that you were doing. I think that's what I was trying.
+
+[00:23:43] I guess it looked good on his face. Girls. I'll see you. I don't want to hear this phrase anymore than I already have done. He said, Girls, I'll see you all backstage.
+
+[00:23:54] And that caused the riot, did it? Sure did. Well, our gigs are like that, aren't they? They are. You've done that before,
+
+[00:24:00] haven't you? And people scrambling for the door. All right, let's have another. This one goes out to Brittany Pullium. And it's that. A million seconds is 11. 5 days.
+
+[00:24:14] A billion seconds is 32 years. Very, very good. It's a brilliant fact. Don't confuse them. Be careful when you're signing a document which might say something's a billion or a million seconds. Exactly.
+
+[00:24:27] Because you don't know what you're in for. If a judge sentences you to a million seconds in prison, well, that's fine. A couple of weeks. If they sentence you to a billion seconds in prison, you've probably been done something really naughty. Yeah. And this was Corey Taylor's fact.
+
+[00:24:40] It was. Is he the lead singer? Yeah, lead singer, Slipknot. Slipk. Stone sour. and author of many books, including some that are paranormal, about ghosts and so on. You knew him as a paranormal writer, didn't you, before you found out that he had a little band on the side. Yes, yeah, that's his side hustle, slip-knot.
+
+[00:24:57] And he, first, just a little background on our relationship with him, we found out that he was a fan of QI. And then when we released a vinyl, which, if anyone has out there, it's such a cool item, we released a physical record of an episode. he did a bonus little bit that we didn't mention initially, which was right at the end. It's like a bonus hidden track. And then he came on an episode. And then we had him on the comic relief episode as well when we did that big long stretch marathon.
+
+[00:25:27] So he's been on the show a bunch of times. Yeah. Thank you, Corey. Yeah. That was in our cool days, wasn't it? Back when Corey Taylor came on and we had vinals. Yeah. You know, that fact is always,
+
+[00:25:38] it's a way of making you see what the difference between a millionaire and a billionaire is effectively, right? It's always like, what's the difference between a millionaire billion. But there are quite a lot of billionaires, and it does feel more achievable than when you break it down into days and years, to me. You mean... To find achievable. I feel like there's a lot of billionaires out there now.
+
+[00:25:57] And it feels like going from a millionaire to a billionaire should almost be impossible within a lifetime. But a lot of people are achieving it. You mean when you read that Corey Taylor fact, you think, how is it possible anyone's become a billionaire? Exactly. But now there are a load to them. You don't mean it feels achievable like you're giving away how much we get paid to do all those adverts we do.
+
+[00:26:14] I think it's unachievable is what I'm saying. Yes. Yeah. It just seems nuts. Yeah. It's also making me think I wonder how long it took for Paul McCartney to become a billionaire. Is he? Yeah.
+
+[00:26:25] He'll be a billionaire. No. Paul McCartney. That's a lot of money. We just said it was basically unachievable and now you're saying it's ridiculous that he wouldn't be. Well, now we have trillionaires. Surely the one of the Beatles is going to be a billionaire. Perhaps.
+
+[00:26:39] Possibly, I suppose. Yeah. Because he's been around for a while. He has been around. But that's just compound interest working in his favour. Just a few successful gigs in the 60s, and you could actually do it these days. Almost all boomers are billionaire. Actually, fun fact.
+
+[00:26:56] Okay, one of I do one final fact. And this is for Harold Burgius. And your fact now is Star Trek was almost not commissioned because the pilot was considered too erotic. Was it erotic? I think an alien wanted to shag them all. But it's weird, right? Because it was Star Trek that had the first same-sex kiss, was it?
+
+[00:27:20] Or on-screen kiss? Interracial kiss is what it's claimed it had. But I think actually it wasn't, but certainly that's what the pop culture of today tells us. Was it in the show, was it also interspecies? Did it happen to be interracial in the show and it was a human and a Klingon or whatever? Yes.
+
+[00:27:36] I think it must. I think, I can't remember, to be honest. Aura, it was Aura, and it was Captain Kirk, is my memory. Can I say, don't write in, because I can feel a million fingers reaching out towards keyboards, no. Trekkie fingers. I promise I'll look it up, and I'll even watch the episode. He won't, guys, he won't.
+
+[00:27:54] I've never seen Star Trek. But now you've got a reason to, you know, there's an erotic episode out there. Yeah, exactly. Funny, it's for research, okay? God, get off my back and out of the room. Don't come in, don't come in. I'm watching the Roth of Khan. All right, listen, we need to wrap up.
+
+[00:28:16] So congratulations to Harold, to Brittany, to Effie, to Matt, Dr. Rev Nicole, Sv8s, Kevin, and Nemitha. These are your facts. If you want your own fact, as I said before, join Clubfish. Go to patreon.com slash Clubfish. It's in the friend of the podcast here. You get an awesome digital certificate along with it. And yeah, I hope you enjoyed the episode. We're going to be back again next week with more of your fans.
+
+[00:28:39] so do continue to send them in to podcast at QI.com. And we'll see you in a few days for a big fish episode. But until then, that's it from me, Anna, and Andy. And we'll see you again. Goodbye.
