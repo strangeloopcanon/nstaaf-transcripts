@@ -1,20 +1,20 @@
 {
-  "generated_at": "2026-10-05T22:15:39.902856+00:00",
+  "generated_at": "2026-10-12T22:39:59.112196+00:00",
   "transcript_source_url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish",
   "podcast_feed_url": "https://audioboom.com/channels/2399216.rss",
   "latest_transcript": {
-    "title": "No Such Thing As A Fish - Little Fish: Ant Tower",
-    "date": "October 4, 2026",
-    "date_iso": "2026-10-04",
-    "url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish/little-fish-ant-tower",
-    "slug": "little-fish-ant-tower"
+    "title": "No Such Thing As A Fish - This Podcast may contain traces of the Peanut Podcast",
+    "date": "October 12, 2026",
+    "date_iso": "2026-10-12",
+    "url": "https://podscripts.co/podcasts/no-such-thing-as-a-fish/this-podcast-may-contain-traces-of-the-peanut-podcast",
+    "slug": "this-podcast-may-contain-traces-of-the-peanut-podcast"
   },
   "latest_podcast_episode": {
-    "title": "Little Fish: Ant Tower",
-    "published_at": "2026-10-04T22:55:00+00:00",
-    "published_date": "2026-10-04",
-    "url": "https://audioboom.com/posts/8959861",
-    "audio_url": "https://pscrb.fm/rss/p/dts.podtrac.com/redirect.mp3/audioboom.com/posts/8959861.mp3?modified=1790958054&sid=2399216&source=rss"
+    "title": "This Podcast may contain traces of the Peanut Podcast",
+    "published_at": "2026-10-12T08:21:19+00:00",
+    "published_date": "2026-10-12",
+    "url": "https://audioboom.com/posts/8963189",
+    "audio_url": "https://pscrb.fm/rss/p/dts.podtrac.com/redirect.mp3/audioboom.com/posts/8963189.mp3?modified=1791793334&sid=2399216&source=rss"
   },
   "is_transcript_source_lagging": false,
   "lag_days": 0,
