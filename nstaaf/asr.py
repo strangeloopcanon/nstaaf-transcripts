@@ -5,6 +5,7 @@ import re
 import shutil
 import subprocess
 import time
+from collections.abc import Callable
 from datetime import datetime, timezone
 from pathlib import Path
 from typing import Any
@@ -24,6 +25,7 @@ ASR_PROMPT = (
     "Preserve proper names where possible, including Dan Schreiber, James Harkin, "
     "Anna Ptaszynski, Andrew Hunter Murray, and Little Fish."
 )
+LOCAL_ASR_MODEL = "small.en"
 
 
 def slugify_title(value: str) -> str:
@@ -177,6 +179,7 @@ def build_asr_document(
     *,
     model: str,
     segments: list[dict[str, str]],
+    backend: str = "openai",
 ) -> dict[str, Any]:
     if isinstance(episode, PodcastFeedEpisode):
         episode_data = {
@@ -196,19 +199,21 @@ def build_asr_document(
     )
     title = display_title(episode_data["title"])
     slug = slugify_title(episode_data["title"])
+    engine = "Faster Whisper" if backend == "faster-whisper" else "OpenAI"
     return {
         "slug": slug,
         "title": title,
         "url": episode_data.get("podcast_url"),
         "audio_url": episode_data.get("audio_url"),
         "source_type": "machine_generated_asr",
-        "transcript_source": f"OpenAI {model} transcription from official RSS audio",
+        "transcript_source": f"{engine} {model} transcription from official RSS audio",
         "quality_note": "Machine-generated transcript; may contain transcription errors.",
         "generated_at": datetime.now(timezone.utc).isoformat(),
         "episode_date": format_episode_date(episode_data.get("published_date")),
         "episode_date_iso": episode_data.get("published_date"),
         "published_at": episode_data.get("published_at"),
         "asr_model": model,
+        "asr_backend": backend,
         "segment_count": len(segments),
         "word_count": len(transcript_text.split()),
         "segments": segments,
@@ -242,20 +247,53 @@ def transcribe_episode(
     return build_asr_document(episode, model=model, segments=segments)
 
 
+def make_local_transcriber(
+    settings: Settings, model: str, *, force: bool
+) -> Callable[[dict[str, Any]], dict[str, Any]]:
+    from faster_whisper import WhisperModel
+
+    recognizer = WhisperModel(model, device="cpu", compute_type="int8", cpu_threads=4)
+
+    def transcribe(episode: dict[str, Any]) -> dict[str, Any]:
+        audio_path = download_audio(settings, episode, force=force)
+        recognized, _ = recognizer.transcribe(
+            str(audio_path),
+            language="en",
+            beam_size=5,
+            initial_prompt=ASR_PROMPT,
+            condition_on_previous_text=False,
+            vad_filter=True,
+        )
+        segments = [
+            {"timestamp": format_timestamp(int(segment.start)), "text": segment.text.strip()}
+            for segment in recognized
+            if segment.text.strip()
+        ]
+        if not segments:
+            raise RuntimeError(f"Transcription produced no text for {episode['title']}")
+        return build_asr_document(episode, model=model, segments=segments, backend="faster-whisper")
+
+    return transcribe
+
+
 def backfill_asr_transcripts(
     settings: Settings,
     *,
     limit: int | None = None,
     model: str | None = None,
+    backend: str = "openai",
     force: bool = False,
     dry_run: bool = False,
     keep_audio_cache: bool = False,
 ) -> dict[str, Any]:
-    if not settings.openai_api_key and not dry_run:
+    if backend not in {"openai", "faster-whisper"}:
+        raise ValueError(f"Unsupported ASR backend: {backend}")
+    if backend == "openai" and not settings.openai_api_key and not dry_run:
         raise RuntimeError("OPENAI_API_KEY is required to run ASR backfill.")
 
     settings.ensure_directories()
     documents = load_episode_documents(settings)
+    completed_slugs = {doc["slug"] for doc in documents if doc.get("transcript_text", "").strip()}
     gap_payload = build_gap_episodes(settings, documents)
     if gap_payload.get("error"):
         raise RuntimeError(f"Could not build RSS gap list: {gap_payload['error']}")
@@ -264,8 +302,10 @@ def backfill_asr_transcripts(
     if limit is not None:
         episodes = episodes[:limit]
 
-    selected_model = model or settings.asr_model
+    default_model = LOCAL_ASR_MODEL if backend == "faster-whisper" else settings.asr_model
+    selected_model = model or default_model
     payload: dict[str, Any] = {
+        "backend": backend,
         "model": selected_model,
         "dry_run": dry_run,
         "gap_episode_count": len(gap_payload.get("episodes") or []),
@@ -289,19 +329,24 @@ def backfill_asr_transcripts(
         ]
         return payload
 
-    client = OpenAI(api_key=settings.openai_api_key)
+    local_transcriber = None
+    client = OpenAI(api_key=settings.openai_api_key) if backend == "openai" else None
     for episode in episodes:
         slug = slugify_title(episode["title"])
-        episode_path = settings.episodes_dir / f"{slug}.json"
         transcript_path = settings.transcripts_dir / f"{slug}.md"
-        if episode_path.exists() and transcript_path.exists() and not force:
+        if slug in completed_slugs and transcript_path.exists() and not force:
             if not keep_audio_cache:
                 cleanup_audio_artifacts(settings, episode)
             payload["skipped_count"] += 1
             payload["episodes"].append({"title": episode["title"], "slug": slug, "status": "skipped"})
             continue
 
-        document = transcribe_episode(settings, episode, client=client, model=selected_model, force=force)
+        if client is not None:
+            document = transcribe_episode(settings, episode, client=client, model=selected_model, force=force)
+        else:
+            if local_transcriber is None:
+                local_transcriber = make_local_transcriber(settings, selected_model, force=force)
+            document = local_transcriber(episode)
         write_episode_outputs(settings, document)
         if not keep_audio_cache:
             cleanup_audio_artifacts(settings, episode)

@@ -54,7 +54,9 @@ Backfill current RSS gaps from official episode audio when PodScripts has not pu
 nstaaf backfill-asr
 ```
 
-This requires `OPENAI_API_KEY` and `ffmpeg`. It writes clearly labeled machine-generated transcripts into `data/episodes/` and `corpus/`, then deletes the downloaded audio and audio chunks after each successful transcript write. Use `--keep-audio-cache` only when debugging a transcription run. Later `nstaaf refresh` runs replace a generated transcript with the PodScripts version if a matching PodScripts page appears.
+The default OpenAI route requires `OPENAI_API_KEY` and `ffmpeg`. To run the same CPU transcription used by the scheduled workflow, install `pip install -e '.[asr]'` and run `nstaaf backfill-asr --backend faster-whisper`. Faster Whisper downloads the English `small.en` model on first use and runs it locally without an API key.
+
+Both routes write clearly labeled machine-generated transcripts into `data/episodes/` and `corpus/`, then delete the downloaded audio after each successful write. Use `--keep-audio-cache` when debugging. Later `nstaaf refresh` runs replace a generated transcript with the PodScripts version if a matching page appears.
 
 Rebuild the embedding index:
 
@@ -145,7 +147,7 @@ The public site path is intentionally separate from the local semantic search ap
 - MkDocs renders that into `site/`
 - Pagefind adds static keyword search to the built HTML
 - GitHub Actions republishes the site on pushes to `main`, on manual runs, and on the weekly refresh schedule via `.github/workflows/pages.yml`
-- Weekly/manual refreshes first take any newly available PodScripts transcript pages, then backfill remaining RSS gaps from official episode audio with `nstaaf backfill-asr` when the repo has an `OPENAI_API_KEY` secret.
+- Weekly and manual refreshes first try to ingest newly available PodScripts pages, then transcribe current RSS gaps from official audio using Faster Whisper on the GitHub Actions runner. A PodScripts failure generates a workflow warning and leaves the RSS backfill available.
 - Each refresh also checks the official podcast RSS feed against the newest local transcript and shows a freshness warning on the public site if the archive is behind the live podcast.
 - If the official RSS has episodes newer than the newest local transcript, `data/gap_episodes.json` and the public "Current gaps" page list those episodes with official Audioboom links.
 - The full committed content repo is the local/searchable corpus: `data/episodes/` contains structured JSON, and `corpus/` contains GitHub-friendly Markdown for every transcript page. Raw audio downloads and chunks are deleted after successful ASR runs; raw HTML, indexes, `site_docs/`, and `site/` are local/generated artifacts and are ignored.

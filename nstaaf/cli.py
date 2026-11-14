@@ -60,8 +60,9 @@ def build_parser() -> argparse.ArgumentParser:
 
     asr_parser = subparsers.add_parser(
         "backfill-asr",
-        help="Generate missing local transcripts from official RSS audio with OpenAI ASR.",
+        help="Generate missing local transcripts from official RSS audio.",
     )
+    asr_parser.add_argument("--backend", choices=("openai", "faster-whisper"), default="openai")
     asr_parser.add_argument("--limit", type=int, default=None)
     asr_parser.add_argument("--model", default=None)
     asr_parser.add_argument("--force", action="store_true")
@@ -148,6 +149,7 @@ def main() -> None:
                 settings,
                 limit=args.limit,
                 model=args.model,
+                backend=args.backend,
                 force=args.force,
                 dry_run=args.dry_run,
                 keep_audio_cache=args.keep_audio_cache,

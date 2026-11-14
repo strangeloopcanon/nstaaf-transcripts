@@ -2,10 +2,12 @@ from __future__ import annotations
 
 import tempfile
 import unittest
+from dataclasses import replace
 from pathlib import Path
+from unittest.mock import patch
 
-from nstaaf.asr import build_asr_document, cleanup_audio_artifacts, format_timestamp, slugify_title
-from nstaaf.config import Settings
+from nstaaf.asr import backfill_asr_transcripts, build_asr_document, cleanup_audio_artifacts, format_timestamp, slugify_title
+from nstaaf.config import Settings, get_settings
 
 
 class AsrTests(unittest.TestCase):
@@ -89,6 +91,34 @@ class AsrTests(unittest.TestCase):
 
             self.assertFalse(audio_path.exists())
             self.assertFalse(chunk_dir.exists())
+
+    def test_local_backfill_replaces_empty_podscripts_output_without_api_key(self) -> None:
+        episode = {"title": "New Fish", "published_date": "2026-11-12"}
+        document = build_asr_document(
+            episode,
+            model="small.en",
+            backend="faster-whisper",
+            segments=[{"timestamp": "00:01", "text": "A complete fish transcript."}],
+        )
+        with tempfile.TemporaryDirectory() as temp_dir:
+            root = Path(temp_dir)
+            settings = replace(get_settings(), episodes_dir=root, transcripts_dir=root, openai_api_key=None)
+            (root / "new-fish.md").write_text("# New Fish\n", encoding="utf-8")
+            placeholder = {"slug": "new-fish", "transcript_text": ""}
+            with (
+                patch.object(Settings, "ensure_directories"),
+                patch("nstaaf.asr.load_episode_documents", side_effect=[[placeholder], [document]]),
+                patch("nstaaf.asr.build_gap_episodes", return_value={"episodes": [episode]}),
+                patch("nstaaf.asr.make_local_transcriber", return_value=lambda _: document),
+                patch("nstaaf.asr.write_freshness_status"),
+                patch("nstaaf.asr.write_gap_episodes"),
+                patch("nstaaf.asr.OpenAI") as openai_client,
+            ):
+                result = backfill_asr_transcripts(settings, backend="faster-whisper")
+
+            openai_client.assert_not_called()
+            self.assertEqual(result["written_count"], 1)
+            self.assertIn("Faster Whisper small.en", (root / "new-fish.md").read_text())
 
 
 if __name__ == "__main__":

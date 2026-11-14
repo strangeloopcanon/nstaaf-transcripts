@@ -19,6 +19,7 @@ dependencies = [
 ]
 
 [project.optional-dependencies]
+asr = ["faster-whisper==1.2.1"]
 site = [
   "mkdocs>=1.6.1",
   "mkdocs-material>=9.7.4",
