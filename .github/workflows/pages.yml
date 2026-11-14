@@ -41,36 +41,31 @@ jobs:
           node-version: "24"
 
       - name: Install dependencies
+        env:
+          NSTAAF_EXTRAS: ${{ github.event_name == 'push' && 'site' || 'site,asr' }}
         run: |
           python -m pip install --upgrade pip
-          pip install -e ".[site]"
+          python -m pip install -e ".[$NSTAAF_EXTRAS]"
 
       - name: Refresh transcript corpus
+        id: podscripts
         if: github.event_name != 'push'
+        continue-on-error: true
+        timeout-minutes: 15
         env:
           NSTAAF_REQUEST_TIMEOUT_SECONDS: "10"
-        run: |
-          nstaaf discover
-          nstaaf refresh
+        run: nstaaf refresh
 
-      - name: Install ASR audio tools
-        if: github.event_name != 'push'
-        run: |
-          sudo apt-get update
-          sudo apt-get install -y ffmpeg
+      - name: Report PodScripts refresh failure
+        if: steps.podscripts.outcome == 'failure'
+        run: echo '::warning::PodScripts refresh failed. The official RSS backfill will still run.'
 
       - name: Backfill current RSS gaps from official audio
         if: github.event_name != 'push'
+        timeout-minutes: 60
         env:
-          OPENAI_API_KEY: ${{ secrets.OPENAI_API_KEY }}
           NSTAAF_REQUEST_TIMEOUT_SECONDS: "30"
-        run: |
-          if [ -z "$OPENAI_API_KEY" ]; then
-            echo "OPENAI_API_KEY secret is not set; skipping ASR backfill."
-            exit 0
-          fi
-
-          nstaaf backfill-asr
+        run: nstaaf backfill-asr --backend faster-whisper
 
       - name: Export static site source
         run: nstaaf export-site

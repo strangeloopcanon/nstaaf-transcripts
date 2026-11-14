@@ -182,6 +182,8 @@ def refresh_corpus(
             force_download=force_download,
         )
         document = parse_episode_html(html, listing.slug, listing.url)
+        if not document["transcript_text"]:
+            return (force_download or not html_exists), listing.slug
         write_episode_outputs(settings, document)
         return (force_download or not html_exists), listing.slug
 
