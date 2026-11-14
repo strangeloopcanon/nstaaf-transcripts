@@ -1,0 +1,2788 @@
+{
+  "slug": "little-fish-im-from-the-future-heres-a-fart-joke",
+  "title": "No Such Thing As A Fish - Little Fish: I'm from the future - here's a fart joke",
+  "url": "https://audioboom.com/posts/8973611",
+  "audio_url": "https://pscrb.fm/rss/p/dts.podtrac.com/redirect.mp3/audioboom.com/posts/8973611.mp3?modified=1793886500&sid=2399216&source=rss",
+  "source_type": "machine_generated_asr",
+  "transcript_source": "Faster Whisper small.en transcription from official RSS audio",
+  "quality_note": "Machine-generated transcript; may contain transcription errors.",
+  "generated_at": "2026-11-14T18:17:49.409833+00:00",
+  "episode_date": "November 8, 2026",
+  "episode_date_iso": "2026-11-08",
+  "published_at": "2026-11-08T23:55:00+00:00",
+  "asr_model": "small.en",
+  "asr_backend": "faster-whisper",
+  "segment_count": 692,
+  "word_count": 7151,
+  "segments": [
+    {
+      "timestamp": "00:00",
+      "text": "Stop the podcast. Stop the podcast. Hi, everybody. We are sponsored this week by Progressive. That's"
+    },
+    {
+      "timestamp": "00:05",
+      "text": "right. So everyone talks about how challenging it is to raise kids, but what about protecting them?"
+    },
+    {
+      "timestamp": "00:11",
+      "text": "I'm talking outlet covers, kitchen cabinet locks, baby gates. Where do you even start?"
+    },
+    {
+      "timestamp": "00:15",
+      "text": "Yes, it is a nightmare. Well, protecting your home and your auto is a great place to start."
+    },
+    {
+      "timestamp": "00:22",
+      "text": "Progressive offers customized coverage options so you can be sure you have the right coverage"
+    },
+    {
+      "timestamp": "00:26",
+      "text": "for you and your loved ones."
+    },
+    {
+      "timestamp": "00:27",
+      "text": "They're basically the outlet covers, kitchen cabinet locks, and baby gates of insurance."
+    },
+    {
+      "timestamp": "00:32",
+      "text": "Don't wait, get your quote today at progressive.com."
+    },
+    {
+      "timestamp": "00:35",
+      "text": "Progressive Casualty Insurance Company affiliates and other insurers, not available in all states."
+    },
+    {
+      "timestamp": "00:39",
+      "text": "On with the show."
+    },
+    {
+      "timestamp": "00:42",
+      "text": "Tell me I'm not the only one who loves a little holiday glam."
+    },
+    {
+      "timestamp": "00:46",
+      "text": "The outfit, the hair, the makeup."
+    },
+    {
+      "timestamp": "00:48",
+      "text": "I love when all the details come together because the outfit doesn't just set the"
+    },
+    {
+      "timestamp": "00:53",
+      "text": "color palette, it sets the whole mood."
+    },
+    {
+      "timestamp": "00:55",
+      "text": "Are we going all out for holiday parties,"
+    },
+    {
+      "timestamp": "00:58",
+      "text": "keeping it cute for family photos,"
+    },
+    {
+      "timestamp": "01:00",
+      "text": "or staying in the salat looking all fabulous"
+    },
+    {
+      "timestamp": "01:03",
+      "text": "and enjoying time with your loved ones?"
+    },
+    {
+      "timestamp": "01:05",
+      "text": "Whatever the plans, I'm bringing the style."
+    },
+    {
+      "timestamp": "01:07",
+      "text": "And Old Navy has looks for all those holiday moments,"
+    },
+    {
+      "timestamp": "01:11",
+      "text": "from dressing up to keeping it cozy"
+    },
+    {
+      "timestamp": "01:13",
+      "text": "with options for the whole family."
+    },
+    {
+      "timestamp": "01:15",
+      "text": "And yes, we can match too."
+    },
+    {
+      "timestamp": "01:17",
+      "text": "So glam up, gather your people,"
+    },
+    {
+      "timestamp": "01:19",
+      "text": "and slay the season with Old Navy."
+    },
+    {
+      "timestamp": "01:21",
+      "text": "Shop in store or online at oldnavy.com."
+    },
+    {
+      "timestamp": "01:39",
+      "text": "Hi everybody, welcome to another episode of Little Fish. My name is Andrew Hunter Murray, and I'm here in the QI studio with Dan Schreiber and Anna Tejinsky."
+    },
+    {
+      "timestamp": "01:48",
+      "text": "And we're here to celebrate your facts that you've been sending in to podcast at hatsignqi.com."
+    },
+    {
+      "timestamp": "01:56",
+      "text": "So let's go. Let's have a fact. Who's got one?"
+    },
+    {
+      "timestamp": "02:00",
+      "text": "I got one. Great batch this week. This one's from Glenn Johnson, who says the furthest person who has been away from Earth was Canadian."
+    },
+    {
+      "timestamp": "02:08",
+      "text": "This was Commander Reed Wiseman in an interview."
+    },
+    {
+      "timestamp": "02:10",
+      "text": "The furthest person who has been away."
+    },
+    {
+      "timestamp": "02:13",
+      "text": "I've checked how it's written, and it is written correctly on the page."
+    },
+    {
+      "timestamp": "02:17",
+      "text": "I just want to say in defense of this person's facts."
+    },
+    {
+      "timestamp": "02:19",
+      "text": "What did I say?"
+    },
+    {
+      "timestamp": "02:20",
+      "text": "The furthest person."
+    },
+    {
+      "timestamp": "02:21",
+      "text": "I thought you might mean the person who has been furthest away from Earth."
+    },
+    {
+      "timestamp": "02:23",
+      "text": "That's what I meant."
+    },
+    {
+      "timestamp": "02:24",
+      "text": "And I understand that, and I'm sorry for slowing things down."
+    },
+    {
+      "timestamp": "02:27",
+      "text": "Go on, Canadian, you say?"
+    },
+    {
+      "timestamp": "02:29",
+      "text": "When Artemis 2, the spacecraft, was at its furthest distance from Earth while going around the moon,"
+    },
+    {
+      "timestamp": "02:34",
+      "text": "Canadian astronaut Jeremy Hansen was positioned in the spacecraft"
+    },
+    {
+      "timestamp": "02:38",
+      "text": "furthest away from the Earth and the rest of the crew at that point,"
+    },
+    {
+      "timestamp": "02:42",
+      "text": "thus making him the furthest person ever out in space."
+    },
+    {
+      "timestamp": "02:45",
+      "text": "That's great."
+    },
+    {
+      "timestamp": "02:45",
+      "text": "It's been a few decades since anyone's got that far,"
+    },
+    {
+      "timestamp": "02:48",
+      "text": "and it was Apollo 13 who had to fling around the moon."
+    },
+    {
+      "timestamp": "02:51",
+      "text": "So they went the furthest ever at that point."
+    },
+    {
+      "timestamp": "02:53",
+      "text": "That's so cool."
+    },
+    {
+      "timestamp": "02:53",
+      "text": "So this is a record broken."
+    },
+    {
+      "timestamp": "02:55",
+      "text": "And yeah, by a Canadian."
+    },
+    {
+      "timestamp": "02:56",
+      "text": "So Jeremy Hansen, he sounds amazing."
+    },
+    {
+      "timestamp": "03:00",
+      "text": "He started off as a cave naught."
+    },
+    {
+      "timestamp": "03:03",
+      "text": "Oh nice!"
+    },
+    {
+      "timestamp": "03:03",
+      "text": "I didn't... We had some... Who came on the show a few years ago?"
+    },
+    {
+      "timestamp": "03:08",
+      "text": "Also astronaut who started off as a cave naught."
+    },
+    {
+      "timestamp": "03:10",
+      "text": "Tim Peake."
+    },
+    {
+      "timestamp": "03:10",
+      "text": "Tim Peake started off as a cave naught."
+    },
+    {
+      "timestamp": "03:11",
+      "text": "I think they sometimes are, aren't they?"
+    },
+    {
+      "timestamp": "03:13",
+      "text": "Because a lot of the same skills it entails."
+    },
+    {
+      "timestamp": "03:15",
+      "text": "It's all the training."
+    },
+    {
+      "timestamp": "03:16",
+      "text": "It's like different levels of noughts that you are before you become an astronaut."
+    },
+    {
+      "timestamp": "03:20",
+      "text": "Not everyone follows this system, but cave naught is one."
+    },
+    {
+      "timestamp": "03:23",
+      "text": "It's part of the European Space Agency, cooperative adventure for"
+    },
+    {
+      "timestamp": "03:27",
+      "text": "valuing and exercising human behavior and performance skills."
+    },
+    {
+      "timestamp": "03:30",
+      "text": "That spells caves."
+    },
+    {
+      "timestamp": "03:32",
+      "text": "And they are in caves."
+    },
+    {
+      "timestamp": "03:33",
+      "text": "Yes, okay, yes, right."
+    },
+    {
+      "timestamp": "03:35",
+      "text": "So one of those things has done a backward job on it, probably the name."
+    },
+    {
+      "timestamp": "03:38",
+      "text": "And no, I think they had the name and they were like,"
+    },
+    {
+      "timestamp": "03:41",
+      "text": "well, we'll have to do it in a cave now."
+    },
+    {
+      "timestamp": "03:42",
+      "text": "It'd be silly if we don't now, yeah."
+    },
+    {
+      "timestamp": "03:44",
+      "text": "Yeah, which isn't, it's not suitable at all, but..."
+    },
+    {
+      "timestamp": "03:46",
+      "text": "Yeah, so he was a cave nought, then he was an aqua nought,"
+    },
+    {
+      "timestamp": "03:49",
+      "text": "did a mission down underwater for seven days,"
+    },
+    {
+      "timestamp": "03:51",
+      "text": "and then he became an astronaut, and now, gone the furthest of any human."
+    },
+    {
+      "timestamp": "03:54",
+      "text": "What next?"
+    },
+    {
+      "timestamp": "03:55",
+      "text": "Well, good question."
+    },
+    {
+      "timestamp": "03:56",
+      "text": "What after astronaut?"
+    },
+    {
+      "timestamp": "03:57",
+      "text": "Well, he's a retired nought now."
+    },
+    {
+      "timestamp": "04:01",
+      "text": "He's a normal nought."
+    },
+    {
+      "timestamp": "04:02",
+      "text": "he's there's nothing more he's just a nobody now okay that's no not a nobody he's just like"
+    },
+    {
+      "timestamp": "04:07",
+      "text": "the rest of us now yeah yeah try telling tim peak that he's a nobody you know he's always popping up"
+    },
+    {
+      "timestamp": "04:12",
+      "text": "doing stuff isn't he because he's been an astronaut and tim peak was an astronaut yes he was went to"
+    },
+    {
+      "timestamp": "04:17",
+      "text": "space you're still dying on that hill are you not an astronaut until you go to space do you want"
+    },
+    {
+      "timestamp": "04:23",
+      "text": "one for me yeah of course here's one from chris swinton it's about fat boy slim's dad okay we're"
+    },
+    {
+      "timestamp": "04:31",
+      "text": "We're all familiar with Flat Boy Slim, DJ."
+    },
+    {
+      "timestamp": "04:34",
+      "text": "Norman Cook, I call him because we're mates."
+    },
+    {
+      "timestamp": "04:36",
+      "text": "Norman Cook, of course, if you are really a mate of his,"
+    },
+    {
+      "timestamp": "04:39",
+      "text": "you'd call him Quentin, which is his birth name."
+    },
+    {
+      "timestamp": "04:41",
+      "text": "Yes, I don't want to embarrass him."
+    },
+    {
+      "timestamp": "04:42",
+      "text": "I think he got teased at school"
+    },
+    {
+      "timestamp": "04:44",
+      "text": "and changed his name from Quentin to Norman."
+    },
+    {
+      "timestamp": "04:46",
+      "text": "And if you are really, really good mate of his,"
+    },
+    {
+      "timestamp": "04:48",
+      "text": "like I am, you call him Pookie,"
+    },
+    {
+      "timestamp": "04:49",
+      "text": "because he likes being snuggled in the morning"
+    },
+    {
+      "timestamp": "04:52",
+      "text": "and little kisses on the back of the ear,"
+    },
+    {
+      "timestamp": "04:55",
+      "text": "on the left ear, little kisses on the back of the left ear."
+    },
+    {
+      "timestamp": "04:57",
+      "text": "That is so gross."
+    },
+    {
+      "timestamp": "04:59",
+      "text": "Well, this-"
+    },
+    {
+      "timestamp": "05:00",
+      "text": "There's an image."
+    },
+    {
+      "timestamp": "05:00",
+      "text": "fact is about Fatboy Slim's dad, Ron Cook. And the fact is, he introduced England to"
+    },
+    {
+      "timestamp": "05:13",
+      "text": "recycling glass. He introduced the bottle bank to England. I don't know if you call this something"
+    },
+    {
+      "timestamp": "05:20",
+      "text": "different overseas. International listeners, the bottle bank is where we recycle our glass."
+    },
+    {
+      "timestamp": "05:24",
+      "text": "You drop it in and it smashes. It's great fun. And Ron Cook got an MBE for introducing the"
+    },
+    {
+      "timestamp": "05:29",
+      "text": "the concept of recycling glass to the UK. Wow. He would sometimes dress up as a character"
+    },
+    {
+      "timestamp": "05:33",
+      "text": "called Ali Jamja. Okay, a character you probably wouldn't do today, but which was absolutely"
+    },
+    {
+      "timestamp": "05:39",
+      "text": "fine in the 90s. Yeah, that makes me want to look it up. Yeah, it's just a sort of Arabian"
+    },
+    {
+      "timestamp": "05:46",
+      "text": "guy who I think it sort of is or has a jam jar on them. Okay, probably is right. I don't"
+    },
+    {
+      "timestamp": "05:53",
+      "text": "think so. I looked up a picture of Ali Jamja. I don't think he is a jam jar. Just holding"
+    },
+    {
+      "timestamp": "05:57",
+      "text": "your jam jar. Yeah, it's probably a reference that's been lost on me. I'm sure there was"
+    },
+    {
+      "timestamp": "06:03",
+      "text": "more sense to it than that. So anyway, that's Ron Cook. I do think that's rather marvellous."
+    },
+    {
+      "timestamp": "06:08",
+      "text": "Good on him. And interestingly, his father, Ron Cook's father, so Fatboy Slim's grandfather,"
+    },
+    {
+      "timestamp": "06:14",
+      "text": "was a window cleaner. So Glass, again, in the family. Interesting. Yeah. And Fatboy"
+    },
+    {
+      "timestamp": "06:19",
+      "text": "Slim, in 2002, hosted a gig on Brighton Beach where 250,000 people came. What a massive"
+    },
+    {
+      "timestamp": "06:26",
+      "text": "gig. And afterwards the beach was strewn with, what's that? Broken glass. So he would have"
+    },
+    {
+      "timestamp": "06:31",
+      "text": "got to wrap on the knuckles for that, I imagine."
+    },
+    {
+      "timestamp": "06:32",
+      "text": "From his dad?"
+    },
+    {
+      "timestamp": "06:33",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "06:34",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "06:35",
+      "text": "Shouldn't have recycled the glass."
+    },
+    {
+      "timestamp": "06:36",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "06:37",
+      "text": "You can't expect Fatboy Slim after the gig of a quarter of a million to go round the"
+    },
+    {
+      "timestamp": "06:41",
+      "text": "beach himself."
+    },
+    {
+      "timestamp": "06:42",
+      "text": "No, but he's literally got the microphone, hasn't he? He could make an announcement saying"
+    },
+    {
+      "timestamp": "06:45",
+      "text": "there are bottle banks."
+    },
+    {
+      "timestamp": "06:46",
+      "text": "Good point. Should have done that."
+    },
+    {
+      "timestamp": "06:48",
+      "text": "But then he'd probably think that it sounds like nepotism, doesn't it?"
+    },
+    {
+      "timestamp": "06:51",
+      "text": "Like he's just trying to keep his dad's business going."
+    },
+    {
+      "timestamp": "06:53",
+      "text": "Right."
+    },
+    {
+      "timestamp": "06:54",
+      "text": "What a great family."
+    },
+    {
+      "timestamp": "06:55",
+      "text": "Glustrious."
+    },
+    {
+      "timestamp": "06:56",
+      "text": "High achievers."
+    },
+    {
+      "timestamp": "06:57",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "06:58",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "06:59",
+      "text": "I wonder how far the glass connection goes higher up."
+    },
+    {
+      "timestamp": "07:00",
+      "text": "Did that always slim be the first to break the, uh, the glass, as it were, you know?"
+    },
+    {
+      "timestamp": "07:06",
+      "text": "Lovely."
+    },
+    {
+      "timestamp": "07:07",
+      "text": "Breaking the glass floor."
+    },
+    {
+      "timestamp": "07:08",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "07:09",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "07:10",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "07:11",
+      "text": "Stomping it down."
+    },
+    {
+      "timestamp": "07:12",
+      "text": "Here's one from me, from my batch from Ada Camp Mainy, and I think she might have,"
+    },
+    {
+      "timestamp": "07:19",
+      "text": "she might have made this up herself, as in it's true, a James Harkins style created."
+    },
+    {
+      "timestamp": "07:23",
+      "text": "Okay."
+    },
+    {
+      "timestamp": "07:24",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "07:25",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "07:26",
+      "text": "Yao Ming's longest neuron is about the same length as Peter Dinklage's height."
+    },
+    {
+      "timestamp": "07:32",
+      "text": "Okay."
+    },
+    {
+      "timestamp": "07:33",
+      "text": "What?"
+    },
+    {
+      "timestamp": "07:34",
+      "text": "I know that Peter Dinklage is short, because he was in Game of Thrones."
+    },
+    {
+      "timestamp": "07:39",
+      "text": "He plays, is it Tyrion?"
+    },
+    {
+      "timestamp": "07:40",
+      "text": "No, one of the Lannisters."
+    },
+    {
+      "timestamp": "07:41",
+      "text": "One of the Lannisters, does he?"
+    },
+    {
+      "timestamp": "07:43",
+      "text": "Yeah, and he's a short person, so he's an actor."
+    },
+    {
+      "timestamp": "07:45",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "07:46",
+      "text": "So I don't know who Yao Ming is."
+    },
+    {
+      "timestamp": "07:47",
+      "text": "No, I didn't actually know who either of these people were."
+    },
+    {
+      "timestamp": "07:49",
+      "text": "He's an NBA star."
+    },
+    {
+      "timestamp": "07:50",
+      "text": "There we go."
+    },
+    {
+      "timestamp": "07:51",
+      "text": "He's an NBA star."
+    },
+    {
+      "timestamp": "07:52",
+      "text": "She goes on to explain the longest neuron in the human body is the motor neuron that runs"
+    },
+    {
+      "timestamp": "08:01",
+      "text": "from the base of the spinal cord to the toes, which is quite interesting. So from your bum"
+    },
+    {
+      "timestamp": "08:05",
+      "text": "to your toes. And so Yao Ming's longest neuron proportionally would be 1.35 meters. And so"
+    },
+    {
+      "timestamp": "08:12",
+      "text": "I was reading up on Yao Ming. And he is the product of a project I did know about. In"
+    },
+    {
+      "timestamp": "08:16",
+      "text": "China, people were sort of bred to be basketball players, which I think some people wonder"
+    },
+    {
+      "timestamp": "08:21",
+      "text": "how definitely it did happen. I think it did."
+    },
+    {
+      "timestamp": "08:23",
+      "text": "What, like they were growing giants."
+    },
+    {
+      "timestamp": "08:26",
+      "text": "Because he's tall. Yalming is like, he's like at least five foot eleven. No, no, he's like six"
+    },
+    {
+      "timestamp": "08:33",
+      "text": "eight. He's massive. Yeah, yeah. He's six nine. No, no, he's way taller than that. He's seven foot"
+    },
+    {
+      "timestamp": "08:37",
+      "text": "six. So he's, I'm sorry. What? Seven foot six. Yeah. And a Chinese man in China, men are on"
+    },
+    {
+      "timestamp": "08:43",
+      "text": "average about three inches, two, three inches shorter than they are here. And they, and the"
+    },
+    {
+      "timestamp": "08:47",
+      "text": "The Chinese government did very, very strongly encourage slash make tall women marry tall"
+    },
+    {
+      "timestamp": "08:53",
+      "text": "men for a couple of generations, and then also strongly encourage slash make them play basketball."
+    },
+    {
+      "timestamp": "08:58",
+      "text": "Oh, so that's sorry."
+    },
+    {
+      "timestamp": "09:00",
+      "text": "So there wasn't like some machine kind of like how they turn Captain America."
+    },
+    {
+      "timestamp": "09:04",
+      "text": "Steve Rogers gets put in a machine and he turns into Captain America."
+    },
+    {
+      "timestamp": "09:08",
+      "text": "Right."
+    },
+    {
+      "timestamp": "09:09",
+      "text": "Sorry."
+    },
+    {
+      "timestamp": "09:10",
+      "text": "No."
+    },
+    {
+      "timestamp": "09:11",
+      "text": "And actually they were both."
+    },
+    {
+      "timestamp": "09:12",
+      "text": "So Yao Ming's parents both also play basketball because they were bred from very tall parents."
+    },
+    {
+      "timestamp": "09:14",
+      "text": "So they were both incredibly tall."
+    },
+    {
+      "timestamp": "09:16",
+      "text": "They were the tallest couple in China and they were made to play basketball and they were both"
+    },
+    {
+      "timestamp": "09:20",
+      "text": "very bad at basketball apparently at first. But if you just are made to play basketball"
+    },
+    {
+      "timestamp": "09:23",
+      "text": "enough from the age of two, then you do become an NBA star, which they almost did. And then"
+    },
+    {
+      "timestamp": "09:28",
+      "text": "Yao Ming did. That is fascinating. That's great fact. And do we know if there's more"
+    },
+    {
+      "timestamp": "09:32",
+      "text": "Chinese basketball players who've been through the same scientific? I think there are. I don't"
+    },
+    {
+      "timestamp": "09:38",
+      "text": "know if we're calling it scientific, maybe it's encouragement. They weren't in a lab."
+    },
+    {
+      "timestamp": "09:42",
+      "text": "They weren't grown in test tubes, but I think there are."
+    },
+    {
+      "timestamp": "09:45",
+      "text": "That's extraordinary."
+    },
+    {
+      "timestamp": "09:49",
+      "text": "Okay, well, I've got another fact here."
+    },
+    {
+      "timestamp": "09:50",
+      "text": "Should we go?"
+    },
+    {
+      "timestamp": "09:51",
+      "text": "This is from Denver, from Antwerp."
+    },
+    {
+      "timestamp": "09:55",
+      "text": "Brilliant."
+    },
+    {
+      "timestamp": "09:56",
+      "text": "We have Jurassic Park to thank for K-pop."
+    },
+    {
+      "timestamp": "09:59",
+      "text": "So, Korea was the country whose GDP predominantly relied on manufacturing industries."
+    },
+    {
+      "timestamp": "10:04",
+      "text": "And when the movie Jurassic Park came out in 1993,"
+    },
+    {
+      "timestamp": "10:06",
+      "text": "the Korean government noticed that it had brought in more money than Hyundai did."
+    },
+    {
+      "timestamp": "10:10",
+      "text": "So, this was a revelation to them, an entertainment thing, generating more money than a big manufacturing"
+    },
+    {
+      "timestamp": "10:18",
+      "text": "company there."
+    },
+    {
+      "timestamp": "10:19",
+      "text": "What's going on?"
+    },
+    {
+      "timestamp": "10:20",
+      "text": "What's been brought in more money in Korea?"
+    },
+    {
+      "timestamp": "10:21",
+      "text": "Yeah, exactly."
+    },
+    {
+      "timestamp": "10:22",
+      "text": "It's not a Korean film."
+    },
+    {
+      "timestamp": "10:23",
+      "text": "No, exactly."
+    },
+    {
+      "timestamp": "10:24",
+      "text": "Just in the cinemas."
+    },
+    {
+      "timestamp": "10:25",
+      "text": "It just raised, it was the biggest hit of its day, Jurassic Park, and that extended"
+    },
+    {
+      "timestamp": "10:29",
+      "text": "to every country."
+    },
+    {
+      "timestamp": "10:30",
+      "text": "It was a number one blockbuster."
+    },
+    {
+      "timestamp": "10:31",
+      "text": "Quick hand up."
+    },
+    {
+      "timestamp": "10:32",
+      "text": "South Korea we're talking about."
+    },
+    {
+      "timestamp": "10:33",
+      "text": "Yeah, sorry."
+    },
+    {
+      "timestamp": "10:34",
+      "text": "South Korea here."
+    },
+    {
+      "timestamp": "10:35",
+      "text": "We're talking about."
+    },
+    {
+      "timestamp": "10:36",
+      "text": "Just checking because we just said Korea."
+    },
+    {
+      "timestamp": "10:37",
+      "text": "Yeah, absolutely."
+    },
+    {
+      "timestamp": "10:38",
+      "text": "Like you say Ireland, you mean the Republic of."
+    },
+    {
+      "timestamp": "10:40",
+      "text": "You take Korea, you mean South Africa."
+    },
+    {
+      "timestamp": "10:43",
+      "text": "Please don't."
+    },
+    {
+      "timestamp": "10:45",
+      "text": "I think Korea is acceptable."
+    },
+    {
+      "timestamp": "10:46",
+      "text": "Anyway, they invested in their entertainment world, and as a result,"
+    },
+    {
+      "timestamp": "10:51",
+      "text": "there's a few steps, but it leads to K-pop."
+    },
+    {
+      "timestamp": "10:53",
+      "text": "And now K-pop obviously dominating the world."
+    },
+    {
+      "timestamp": "10:56",
+      "text": "You've got K-pop demon hunters."
+    },
+    {
+      "timestamp": "10:58",
+      "text": "They should have made it K-pop dino hunters."
+    },
+    {
+      "timestamp": "11:00",
+      "text": "That's a tribute."
+    },
+    {
+      "timestamp": "11:01",
+      "text": "They absolutely should."
+    },
+    {
+      "timestamp": "11:02",
+      "text": "In fact, you know what they should have anyway,"
+    },
+    {
+      "timestamp": "11:04",
+      "text": "because this is the thing that's happening right now in America,"
+    },
+    {
+      "timestamp": "11:06",
+      "text": "where there's a Christian metal band called Demon Hunter, who are now suing Netflix,"
+    },
+    {
+      "timestamp": "11:11",
+      "text": "because Netflix has taken K-pop Demon Hunters on the road. They've created a live band of it,"
+    },
+    {
+      "timestamp": "11:16",
+      "text": "so you can buy concert tickets and so on. And there's been a band in America that's been"
+    },
+    {
+      "timestamp": "11:20",
+      "text": "going since 2000 called Demon Hunter, Christian Metal Band. They've got massive album sales."
+    },
+    {
+      "timestamp": "11:25",
+      "text": "They've done over 600,000 albums. They play big shows."
+    },
+    {
+      "timestamp": "11:28",
+      "text": "That's a lot of albums."
+    },
+    {
+      "timestamp": "11:30",
+      "text": "That's a lot of albums."
+    },
+    {
+      "timestamp": "11:31",
+      "text": "That's a lot of songs to have to write."
+    },
+    {
+      "timestamp": "11:33",
+      "text": "Pumping them out very quickly. 600,000 albums. They've sold most bad... Oasis only did two good ones."
+    },
+    {
+      "timestamp": "11:40",
+      "text": "They have sold 600,000 albums."
+    },
+    {
+      "timestamp": "11:43",
+      "text": "But only the first two tracks on each one."
+    },
+    {
+      "timestamp": "11:45",
+      "text": "No, not songs, albums."
+    },
+    {
+      "timestamp": "11:48",
+      "text": "Anyway, they are having huge problems."
+    },
+    {
+      "timestamp": "11:51",
+      "text": "They keep getting booked for interviews and then finding out that,"
+    },
+    {
+      "timestamp": "11:53",
+      "text": "oh, we thought it was the K-pop demon hunters."
+    },
+    {
+      "timestamp": "11:55",
+      "text": "They're looking out at the crowds of their gigs."
+    },
+    {
+      "timestamp": "11:57",
+      "text": "It's very confused children standing in the crowd as they do their thrash medal."
+    },
+    {
+      "timestamp": "12:00",
+      "text": "Um, and so they're suing Netflix as a result to say, you can't do this."
+    },
+    {
+      "timestamp": "12:05",
+      "text": "You've ruined our 26 years of livelihood."
+    },
+    {
+      "timestamp": "12:09",
+      "text": "That's cool."
+    },
+    {
+      "timestamp": "12:10",
+      "text": "Cause if they're big enough, that was not just like a puny person suing that Netflix."
+    },
+    {
+      "timestamp": "12:13",
+      "text": "That might actually be a battle."
+    },
+    {
+      "timestamp": "12:14",
+      "text": "Right."
+    },
+    {
+      "timestamp": "12:15",
+      "text": "It'd be a battle if it's trademarks, if it's all that, you know, they've got their stuff"
+    },
+    {
+      "timestamp": "12:17",
+      "text": "on their side."
+    },
+    {
+      "timestamp": "12:18",
+      "text": "Yep."
+    },
+    {
+      "timestamp": "12:19",
+      "text": "Let's see."
+    },
+    {
+      "timestamp": "12:20",
+      "text": "Exciting."
+    },
+    {
+      "timestamp": "12:21",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "12:22",
+      "text": "I can't wait."
+    },
+    {
+      "timestamp": "12:23",
+      "text": "Here's one that came in from Robin."
+    },
+    {
+      "timestamp": "12:24",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "12:25",
+      "text": "Universal Studios spent three years developing a roller coaster that barely makes a sound so as not to disturb local residents."
+    },
+    {
+      "timestamp": "12:35",
+      "text": "But they didn't account for how much people tend to scream when they're on the roller coasters. This is so good."
+    },
+    {
+      "timestamp": "12:43",
+      "text": "This is one of their resorts and they did all this work building a new roller coaster, which is quite near some homes."
+    },
+    {
+      "timestamp": "12:49",
+      "text": "And so, for example, it has a 940-foot-long sound wall lined with airport-grade insulation."
+    },
+    {
+      "timestamp": "12:57",
+      "text": "Airports are famously noisy places, I don't quite understand that, but sure."
+    },
+    {
+      "timestamp": "13:01",
+      "text": "The tracks are lined with a particular kind of gravel to mute the vibrations."
+    },
+    {
+      "timestamp": "13:05",
+      "text": "Unfortunately, local residents say, we don't hear the roller coaster, but we do hear the"
+    },
+    {
+      "timestamp": "13:09",
+      "text": "screams."
+    },
+    {
+      "timestamp": "13:10",
+      "text": "So they still..."
+    },
+    {
+      "timestamp": "13:11",
+      "text": "Every 30 seconds, all day, you just hear scream for 10 hours."
+    },
+    {
+      "timestamp": "13:17",
+      "text": "don't hear the roller coaster magic you just hear screaming can they just put a"
+    },
+    {
+      "timestamp": "13:21",
+      "text": "sign up saying don't scream do you think that's a good idea because really on"
+    },
+    {
+      "timestamp": "13:27",
+      "text": "roller coasters I was scream you don't need to do you you just know that's the"
+    },
+    {
+      "timestamp": "13:30",
+      "text": "dumb thing rollercoaster yeah you just know you meant or helmets like a full"
+    },
+    {
+      "timestamp": "13:35",
+      "text": "face helmet really good idea oh like a soundproof helmet yeah right isn't there"
+    },
+    {
+      "timestamp": "13:39",
+      "text": "a fashion for taping your mouth shut while you sleep have you heard of this"
+    },
+    {
+      "timestamp": "13:45",
+      "text": "You're looking at me like I'm a weirdo."
+    },
+    {
+      "timestamp": "13:47",
+      "text": "It's something to do with helping your quality of your sleep or something to do with breathing"
+    },
+    {
+      "timestamp": "13:51",
+      "text": "through your nose."
+    },
+    {
+      "timestamp": "13:52",
+      "text": "You're still breathing, but through your nose."
+    },
+    {
+      "timestamp": "13:53",
+      "text": "There is a thing of mouth taping while you're asleep."
+    },
+    {
+      "timestamp": "13:56",
+      "text": "It sounds like, I mean, there's a thing for everything, isn't there?"
+    },
+    {
+      "timestamp": "13:58",
+      "text": "No, there's a thing for everything."
+    },
+    {
+      "timestamp": "13:59",
+      "text": "I know."
+    },
+    {
+      "timestamp": "14:00",
+      "text": "It sounds very silly, but..."
+    },
+    {
+      "timestamp": "14:01",
+      "text": "You're saying..."
+    },
+    {
+      "timestamp": "14:02",
+      "text": "I'm saying..."
+    },
+    {
+      "timestamp": "14:03",
+      "text": "Roller coaster."
+    },
+    {
+      "timestamp": "14:04",
+      "text": "Roller coaster."
+    },
+    {
+      "timestamp": "14:05",
+      "text": "Right."
+    },
+    {
+      "timestamp": "14:06",
+      "text": "And that makes it scarier."
+    },
+    {
+      "timestamp": "14:09",
+      "text": "Every child."
+    },
+    {
+      "timestamp": "14:10",
+      "text": "We're actually just going to leave that on for the rest of the day, if that's cool."
+    },
+    {
+      "timestamp": "14:14",
+      "text": "Well that's an excellent fact. Here's another good fact. This is from Ellen Cliff. This"
+    },
+    {
+      "timestamp": "14:21",
+      "text": "is a confusing opening sentence. She says, one of my favourite facts that genuinely depressed"
+    },
+    {
+      "timestamp": "14:27",
+      "text": "me before I went to live in the UK was this. It is that 1.75 square miles of Black Mountain"
+    },
+    {
+      "timestamp": "14:35",
+      "text": "Reserve in the centre of Canberra, Australia has more species of ant than the whole British"
+    },
+    {
+      "timestamp": "14:40",
+      "text": "Isles. In fact, more than twice as many."
+    },
+    {
+      "timestamp": "14:43",
+      "text": "was depressing. And she's an entomology nerd. Yeah right. I know I think there's a lot to get"
+    },
+    {
+      "timestamp": "14:47",
+      "text": "depressed about in the world and you know on that front I would say. Yeah pick your battles."
+    },
+    {
+      "timestamp": "14:51",
+      "text": "Cheer up yeah. So sorry there's an area of this Australian you say Black Mountain Reserve. Yeah"
+    },
+    {
+      "timestamp": "14:56",
+      "text": "and in the middle of Canberra apparently and it has more it has over 100 species of ant and"
+    },
+    {
+      "timestamp": "15:01",
+      "text": "Britain we only have 41. According to her though I had a look and it now looks like we have between"
+    },
+    {
+      "timestamp": "15:05",
+      "text": "50 and 60. So it's climbing. Great news. Huge news. You can feel a bit happier about life, Ellen."
+    },
+    {
+      "timestamp": "15:13",
+      "text": "I didn't know we had more than one species of ants. A band. You saw there was just ants. Well,"
+    },
+    {
+      "timestamp": "15:18",
+      "text": "you just see the ants, the common or garden ants, don't you? Yeah, yeah, yeah. What about red ants?"
+    },
+    {
+      "timestamp": "15:22",
+      "text": "Yep, good point. Yeah, yep. I haven't divided enough thought to it. No, loads more. I guess"
+    },
+    {
+      "timestamp": "15:26",
+      "text": "they all look quite similar, probably, don't they? I think that's true. I think a lot of ants look"
+    },
+    {
+      "timestamp": "15:30",
+      "text": "very similar. I think that's a really controversial point. Because Anna did her thing about Ireland"
+    },
+    {
+      "timestamp": "15:39",
+      "text": "earlier, so I think we're all probably slightly on edge. We don't alienate the ants. We don't have"
+    },
+    {
+      "timestamp": "15:45",
+      "text": "any antlers as we have. Probably safer that we tape your mouth over for the rest of the episode, Anna."
+    },
+    {
+      "timestamp": "15:54",
+      "text": "Stop the podcast. Stop the podcast. Hi everybody, we are sponsored this week by Progressive."
+    },
+    {
+      "timestamp": "16:00",
+      "text": "That's right. So, everyone talks about how challenging it is to raise kids, but what about"
+    },
+    {
+      "timestamp": "16:04",
+      "text": "protecting them? I'm talking outlet covers, kitchen cabinet locks, baby gates. Where do you even start?"
+    },
+    {
+      "timestamp": "16:10",
+      "text": "Yes, it is a nightmare. Well, protecting your home and your auto is a great place to start."
+    },
+    {
+      "timestamp": "16:17",
+      "text": "Progressive offers customised coverage options so you can be sure you have the right coverage"
+    },
+    {
+      "timestamp": "16:21",
+      "text": "for you and your loved ones. They're basically the outlet covers,"
+    },
+    {
+      "timestamp": "16:24",
+      "text": "kitchen cabinet locks and baby gates of insurance."
+    },
+    {
+      "timestamp": "16:27",
+      "text": "Don't wait. Get your quote today at progressive.com."
+    },
+    {
+      "timestamp": "16:30",
+      "text": "Progressive Casualty Insurance Company affiliates and other insurers not available in all states."
+    },
+    {
+      "timestamp": "16:34",
+      "text": "On with the show."
+    },
+    {
+      "timestamp": "16:36",
+      "text": "This is Joe, Nick, and Kevin Jonas. This episode is sponsored by Starbucks."
+    },
+    {
+      "timestamp": "16:40",
+      "text": "I always think it's funny how everyone has that one thing that immediately tells them"
+    },
+    {
+      "timestamp": "16:43",
+      "text": "the holidays are amongst us."
+    },
+    {
+      "timestamp": "16:45",
+      "text": "For me, it's when I start seeing those red Starbucks holiday cups everywhere."
+    },
+    {
+      "timestamp": "16:49",
+      "text": "I've been reaching for the peppermint mocha from Starbucks lately. It's pretty good."
+    },
+    {
+      "timestamp": "16:52",
+      "text": "It just feels like the season in my cup."
+    },
+    {
+      "timestamp": "16:54",
+      "text": "And I'm more of a caramel brulee latte person,"
+    },
+    {
+      "timestamp": "16:56",
+      "text": "but once that comes back, it is officially holiday season."
+    },
+    {
+      "timestamp": "17:00",
+      "text": "Grab a holiday favorite from Starbucks and spend a little time with the people who make the season"
+    },
+    {
+      "timestamp": "17:03",
+      "text": "special. Hey there, it's Ryan Seacrest for Safeway. Fall is here, which means it's time"
+    },
+    {
+      "timestamp": "17:08",
+      "text": "to stock up on vitamins for the season. Now through December 1st, buy more participating"
+    },
+    {
+      "timestamp": "17:12",
+      "text": "vitamin products and save more. Save on items like nature-made magnesium, nature-made vitamin"
+    },
+    {
+      "timestamp": "17:16",
+      "text": "C gummies, nature's truth elderberry gummies, nature-made B12 tablets, nature's truth vitamin"
+    },
+    {
+      "timestamp": "17:22",
+      "text": "K, nature made multivitamins and nature's truth ashwagandha gummies and save more when"
+    },
+    {
+      "timestamp": "17:27",
+      "text": "you buy more."
+    },
+    {
+      "timestamp": "17:28",
+      "text": "Offer ends December 1st, restrictions apply, offers may vary."
+    },
+    {
+      "timestamp": "17:32",
+      "text": "Visit Safeway.com for more details."
+    },
+    {
+      "timestamp": "17:36",
+      "text": "This is from Anders Kallen."
+    },
+    {
+      "timestamp": "17:38",
+      "text": "He's just sent a bunch of facts, just bullet point facts."
+    },
+    {
+      "timestamp": "17:42",
+      "text": "Burt Bacharach's dad was Burt Bacharach, but Burt Bacharach, who we know is spelled"
+    },
+    {
+      "timestamp": "17:48",
+      "text": "B-U-R-T, but his dad is spelled B-E-R-T."
+    },
+    {
+      "timestamp": "17:52",
+      "text": "Love it."
+    },
+    {
+      "timestamp": "17:53",
+      "text": "it. Love it, because it's arrogant to call your son the exact same name."
+    },
+    {
+      "timestamp": "17:56",
+      "text": "Exactly. And then how are you going to distinguish when you're saying,"
+    },
+    {
+      "timestamp": "18:00",
+      "text": "Burt, Burt, Burt. That is my husband Burt, my son Burt."
+    },
+    {
+      "timestamp": "18:07",
+      "text": "We've all been saying Burt back in Iraq's name wrong."
+    },
+    {
+      "timestamp": "18:12",
+      "text": "One more, by the way, just from Anders. The actor Alan Hale, who played Little John"
+    },
+    {
+      "timestamp": "18:17",
+      "text": "in three Robin Hood movies, invented the sliding theatre chair."
+    },
+    {
+      "timestamp": "18:21",
+      "text": "ALICE We all know the sliding theatre chair!"
+    },
+    {
+      "timestamp": "18:25",
+      "text": "ALICE Sorry. On first presentation,"
+    },
+    {
+      "timestamp": "18:27",
+      "text": "that's an insanely dull fact. And there's no link between the Robin Hood thing and the theatre thing."
+    },
+    {
+      "timestamp": "18:33",
+      "text": "ALICE Well, no, the link is that if you need to think,"
+    },
+    {
+      "timestamp": "18:35",
+      "text": "who's Alan Hale? Oh yeah, he's the guy in Robin Hood."
+    },
+    {
+      "timestamp": "18:38",
+      "text": "ALICE So Little John is the big guy in Robin Hood, right?"
+    },
+    {
+      "timestamp": "18:41",
+      "text": "ALICE Yeah."
+    },
+    {
+      "timestamp": "18:41",
+      "text": "ALICE And the sliding theatre chair? I'm not..."
+    },
+    {
+      "timestamp": "18:43",
+      "text": "What's that?"
+    },
+    {
+      "timestamp": "18:44",
+      "text": "ALICE Thank you, Anders, because I hadn't heard of it either. Now, immediately,"
+    },
+    {
+      "timestamp": "18:47",
+      "text": "I sort of thought the flippable chair, you know, in theatres that flip up."
+    },
+    {
+      "timestamp": "18:50",
+      "text": "up."
+    },
+    {
+      "timestamp": "18:51",
+      "text": "But they don't slide."
+    },
+    {
+      "timestamp": "18:52",
+      "text": "They don't slide."
+    },
+    {
+      "timestamp": "18:53",
+      "text": "It would be awful if they slid."
+    },
+    {
+      "timestamp": "18:54",
+      "text": "They don't slide."
+    },
+    {
+      "timestamp": "18:55",
+      "text": "That would be very disruptive."
+    },
+    {
+      "timestamp": "18:56",
+      "text": "So this is what he invented."
+    },
+    {
+      "timestamp": "18:57",
+      "text": "He invented a chair so that when people need to get past you in a row, you slide it back."
+    },
+    {
+      "timestamp": "19:02",
+      "text": "You don't stand up."
+    },
+    {
+      "timestamp": "19:03",
+      "text": "You physically move the entire chair back so they can walk in front of you, and then"
+    },
+    {
+      "timestamp": "19:06",
+      "text": "you sort of bring yourself back forward again."
+    },
+    {
+      "timestamp": "19:09",
+      "text": "But when you say you've invented something, it has to have actually been used."
+    },
+    {
+      "timestamp": "19:13",
+      "text": "Good point."
+    },
+    {
+      "timestamp": "19:14",
+      "text": "And I'd have never seen one of those."
+    },
+    {
+      "timestamp": "19:15",
+      "text": "It would ram into the knees of the person behind, which I imagine is why it hasn't"
+    },
+    {
+      "timestamp": "19:18",
+      "text": "had huge uptake in the West End."
+    },
+    {
+      "timestamp": "19:19",
+      "text": "No, but they can just move their seat back."
+    },
+    {
+      "timestamp": "19:21",
+      "text": "Come on, Anna."
+    },
+    {
+      "timestamp": "19:22",
+      "text": "So it's like, everyone moves fine, please."
+    },
+    {
+      "timestamp": "19:24",
+      "text": "Everyone moves back."
+    },
+    {
+      "timestamp": "19:26",
+      "text": "No, this is a better way of doing it than standing."
+    },
+    {
+      "timestamp": "19:29",
+      "text": "So in the back row, move."
+    },
+    {
+      "timestamp": "19:30",
+      "text": "Sorry to interrupt."
+    },
+    {
+      "timestamp": "19:32",
+      "text": "If you just start moving."
+    },
+    {
+      "timestamp": "19:34",
+      "text": "People in the back row, tragically,"
+    },
+    {
+      "timestamp": "19:35",
+      "text": "those are the only ones that can't move back on the wall."
+    },
+    {
+      "timestamp": "19:37",
+      "text": "So they, any time someone is on row B walking to their seat,"
+    },
+    {
+      "timestamp": "19:42",
+      "text": "they get slammed into."
+    },
+    {
+      "timestamp": "19:44",
+      "text": "But they can see it coming."
+    },
+    {
+      "timestamp": "19:45",
+      "text": "They've got more time to make their escape."
+    },
+    {
+      "timestamp": "19:48",
+      "text": "They actually back row need to evacuate altogether."
+    },
+    {
+      "timestamp": "19:52",
+      "text": "So you're hoping it's row B."
+    },
+    {
+      "timestamp": "19:54",
+      "text": "You're on row X, you're dead."
+    },
+    {
+      "timestamp": "19:58",
+      "text": "What the hell are these used anywhere?"
+    },
+    {
+      "timestamp": "20:00",
+      "text": "I couldn't see that they were."
+    },
+    {
+      "timestamp": "20:02",
+      "text": "The point is that he was an amazing inventor."
+    },
+    {
+      "timestamp": "20:05",
+      "text": "Sometimes people come up with ideas."
+    },
+    {
+      "timestamp": "20:06",
+      "text": "They don't necessarily get used day to day."
+    },
+    {
+      "timestamp": "20:08",
+      "text": "Apparently he modified the folding chair in theaters as well."
+    },
+    {
+      "timestamp": "20:12",
+      "text": "So he invented it."
+    },
+    {
+      "timestamp": "20:13",
+      "text": "There's quite a little problem for me."
+    },
+    {
+      "timestamp": "20:15",
+      "text": "Did he do that?"
+    },
+    {
+      "timestamp": "20:16",
+      "text": "He also supposedly invented a formula for greaseless potato chips."
+    },
+    {
+      "timestamp": "20:24",
+      "text": "So this is a big deal, Mr. Caleb."
+    },
+    {
+      "timestamp": "20:26",
+      "text": "Oh, what a huge deal, yeah."
+    },
+    {
+      "timestamp": "20:28",
+      "text": "Anyway, there's more from Anders, but maybe we'll save it for another one."
+    },
+    {
+      "timestamp": "20:30",
+      "text": "Oh, that's terrific."
+    },
+    {
+      "timestamp": "20:31",
+      "text": "Yeah, that's so good."
+    },
+    {
+      "timestamp": "20:32",
+      "text": "Now, here's one from Stuart Laidler, which I didn't know,"
+    },
+    {
+      "timestamp": "20:34",
+      "text": "which is that at the time of writing, there are nine living ex-Prime Minister of the UK."
+    },
+    {
+      "timestamp": "20:38",
+      "text": "I knew that."
+    },
+    {
+      "timestamp": "20:40",
+      "text": "This is the most that there have ever been."
+    },
+    {
+      "timestamp": "20:41",
+      "text": "the previous high was a tie of five under major, I mean that can't have been the previous high,"
+    },
+    {
+      "timestamp": "20:48",
+      "text": "the previous high must have just been when there were eight. Anyway, we're only two ex-prime"
+    },
+    {
+      "timestamp": "20:56",
+      "text": "ministers away from being able to field a football team in the international ex-prime"
+    },
+    {
+      "timestamp": "21:00",
+      "text": "ministers first 11 world championships, which is cool. And I looked it up because I thought"
+    },
+    {
+      "timestamp": "21:04",
+      "text": "there is a lot of ex-prime ministers to have, and we're second in the world. Isn't that cool?"
+    },
+    {
+      "timestamp": "21:10",
+      "text": "Not after Switzerland, I'm guessing. Because they have that funny thing where it's every"
+    },
+    {
+      "timestamp": "21:14",
+      "text": "year or every six months they have a new one and it's not quite as we do it."
+    },
+    {
+      "timestamp": "21:17",
+      "text": "I didn't count Switzerland because I think it's cheating."
+    },
+    {
+      "timestamp": "21:20",
+      "text": "Oh, so where else has the most living..."
+    },
+    {
+      "timestamp": "21:22",
+      "text": "Well, we're tied with the ties. We've got a tie tie."
+    },
+    {
+      "timestamp": "21:25",
+      "text": "Very pleasing."
+    },
+    {
+      "timestamp": "21:26",
+      "text": "Very nice."
+    },
+    {
+      "timestamp": "21:27",
+      "text": "And Italy beats us with 10 former PMs, which is weird because actually Georgia Maloney is"
+    },
+    {
+      "timestamp": "21:31",
+      "text": "the longest serving leader of Italy since Second World War."
+    },
+    {
+      "timestamp": "21:35",
+      "text": "Yes, she is, but they just don't serve very long. She's only been in since 2022."
+    },
+    {
+      "timestamp": "21:38",
+      "text": "Sounds like a footballer as well, doesn't she?"
+    },
+    {
+      "timestamp": "21:40",
+      "text": "Georgia Maloney."
+    },
+    {
+      "timestamp": "21:41",
+      "text": "Georgia Maloney, taken to the field."
+    },
+    {
+      "timestamp": "21:42",
+      "text": "Reckon she could kick some ass."
+    },
+    {
+      "timestamp": "21:44",
+      "text": "So sorry, but Berlusconi did long stints, didn't he?"
+    },
+    {
+      "timestamp": "21:47",
+      "text": "Was he in the same position?"
+    },
+    {
+      "timestamp": "21:49",
+      "text": "You're right, he did."
+    },
+    {
+      "timestamp": "21:50",
+      "text": "But, and yet, there have been a lot in between, I suppose."
+    },
+    {
+      "timestamp": "21:52",
+      "text": "Right."
+    },
+    {
+      "timestamp": "21:54",
+      "text": "Although he lived to be really old."
+    },
+    {
+      "timestamp": "21:55",
+      "text": "Can we name all nine?"
+    },
+    {
+      "timestamp": "21:56",
+      "text": "Gun to our head."
+    },
+    {
+      "timestamp": "21:57",
+      "text": "John Major."
+    },
+    {
+      "timestamp": "21:58",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "21:59",
+      "text": "Winston Churchill."
+    },
+    {
+      "timestamp": "22:00",
+      "text": "No problem."
+    },
+    {
+      "timestamp": "22:02",
+      "text": "John Major, Gordon Brown, Tony Blair, Andy Burnham, Theresa May."
+    },
+    {
+      "timestamp": "22:06",
+      "text": "Andy Burnham's not former."
+    },
+    {
+      "timestamp": "22:08",
+      "text": "Oh, we're doing formers only."
+    },
+    {
+      "timestamp": "22:09",
+      "text": "Oh, right. Major Blair Brown, Cameron May, Johnson, Russ, Starma, Knight."
+    },
+    {
+      "timestamp": "22:18",
+      "text": "I think there's no points. It's no points for naming the prime ministers that you've just lived through."
+    },
+    {
+      "timestamp": "22:22",
+      "text": "It was pretty boring, even as I was saying it. Here's another one. This I quite like. It's from"
+    },
+    {
+      "timestamp": "22:29",
+      "text": "John Ankeny. Upon the occasion of Dolly Parton's passing, sad times for all,"
+    },
+    {
+      "timestamp": "22:36",
+      "text": "My wife and I re-watched the wonderful 1989 film, Steel Magnolias, which I think she was"
+    },
+    {
+      "timestamp": "22:41",
+      "text": "in."
+    },
+    {
+      "timestamp": "22:42",
+      "text": "In the course of that viewing, we learned that the playwright Robert Harling based his play"
+    },
+    {
+      "timestamp": "22:47",
+      "text": "on the real life of his sister, Susan Harling Robinson, Julia Roberts plays her, who died"
+    },
+    {
+      "timestamp": "22:53",
+      "text": "of type 1 diabetes."
+    },
+    {
+      "timestamp": "22:54",
+      "text": "When the film was made, such care was made for authenticity that the actor who disconnects"
+    },
+    {
+      "timestamp": "23:00",
+      "text": "Julia Roberts' life support was played by a real nurse."
+    },
+    {
+      "timestamp": "23:03",
+      "text": "In fact, the same nurse who disconnected the life support of Susan Harling-Roberts and"
+    },
+    {
+      "timestamp": "23:08",
+      "text": "herself."
+    },
+    {
+      "timestamp": "23:09",
+      "text": "No."
+    },
+    {
+      "timestamp": "23:10",
+      "text": "It was in the film."
+    },
+    {
+      "timestamp": "23:11",
+      "text": "Wow."
+    },
+    {
+      "timestamp": "23:12",
+      "text": "Wasn't that peculiar?"
+    },
+    {
+      "timestamp": "23:13",
+      "text": "Cast specifically?"
+    },
+    {
+      "timestamp": "23:14",
+      "text": "I think it can't have been an accident."
+    },
+    {
+      "timestamp": "23:17",
+      "text": "They only realised, didn't they?"
+    },
+    {
+      "timestamp": "23:18",
+      "text": "Halfway through filming."
+    },
+    {
+      "timestamp": "23:19",
+      "text": "Yeah, yeah."
+    },
+    {
+      "timestamp": "23:20",
+      "text": "He only found out at the premiere."
+    },
+    {
+      "timestamp": "23:21",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "23:22",
+      "text": "Oh, right."
+    },
+    {
+      "timestamp": "23:23",
+      "text": "The nurse has changed jobs."
+    },
+    {
+      "timestamp": "23:24",
+      "text": "Yeah, yeah."
+    },
+    {
+      "timestamp": "23:25",
+      "text": "That's amazing."
+    },
+    {
+      "timestamp": "23:26",
+      "text": "I like the claimants for authenticity, like otherwise people might not believe the story."
+    },
+    {
+      "timestamp": "23:30",
+      "text": "Yes, that's true."
+    },
+    {
+      "timestamp": "23:31",
+      "text": "Unless we get the actual nurse."
+    },
+    {
+      "timestamp": "23:33",
+      "text": "Well, all nurses and doctors and movies are played by real doctors and nurses."
+    },
+    {
+      "timestamp": "23:36",
+      "text": "That's a that's a classic fact."
+    },
+    {
+      "timestamp": "23:38",
+      "text": "That's why there's such a crisis in health care at the moment."
+    },
+    {
+      "timestamp": "23:40",
+      "text": "I was a disaster win."
+    },
+    {
+      "timestamp": "23:41",
+      "text": "Keep feeling cleanly defected after EI to become a full time actor."
+    },
+    {
+      "timestamp": "23:47",
+      "text": "It was terrible."
+    },
+    {
+      "timestamp": "23:47",
+      "text": "He was their best."
+    },
+    {
+      "timestamp": "23:49",
+      "text": "Fortunately, actors are filling in for doctors all over the NHS, so we're fine."
+    },
+    {
+      "timestamp": "23:54",
+      "text": "Very good."
+    },
+    {
+      "timestamp": "23:55",
+      "text": "Well, should we do some some fact distribution?"
+    },
+    {
+      "timestamp": "23:58",
+      "text": "You're not hosting the show, but sure."
+    },
+    {
+      "timestamp": "24:00",
+      "text": "But I would like to second Anna's suggestion that we dish out some custodianships."
+    },
+    {
+      "timestamp": "24:10",
+      "text": "It's a good idea, Andy."
+    },
+    {
+      "timestamp": "24:11",
+      "text": "Thank you, Anna."
+    },
+    {
+      "timestamp": "24:12",
+      "text": "Do it."
+    },
+    {
+      "timestamp": "24:13",
+      "text": "So if you join Club Fish, our members club, at the top tier friend of the podcast, then"
+    },
+    {
+      "timestamp": "24:18",
+      "text": "you will get one of our facts dedicated to you in perpetuity in our Hall of Fame."
+    },
+    {
+      "timestamp": "24:23",
+      "text": "You get a fantastic looking certificate, which you can print and put on your wall."
+    },
+    {
+      "timestamp": "24:28",
+      "text": "you get one of our facts just for you. So let's now bestow a few more of those. Who would like"
+    },
+    {
+      "timestamp": "24:34",
+      "text": "to go first?"
+    },
+    {
+      "timestamp": "24:35",
+      "text": "This one is a fact for Sandy Cronin. Sandy, take good care of this one. This is the fact"
+    },
+    {
+      "timestamp": "24:40",
+      "text": "that Iceland imports ice."
+    },
+    {
+      "timestamp": "24:42",
+      "text": "Lovely."
+    },
+    {
+      "timestamp": "24:43",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "24:44",
+      "text": "Lovely fact."
+    },
+    {
+      "timestamp": "24:45",
+      "text": "I wonder if it's still the case. I think it must be right. It's an industry. It's not"
+    },
+    {
+      "timestamp": "24:49",
+      "text": "they're not importing ice for their glaciers. This is like drinking ice and so on."
+    },
+    {
+      "timestamp": "24:52",
+      "text": "Drinking ice."
+    },
+    {
+      "timestamp": "24:53",
+      "text": "Ice for your drinks, rather."
+    },
+    {
+      "timestamp": "24:56",
+      "text": "I'm going to ditch one out now to gem pie."
+    },
+    {
+      "timestamp": "25:00",
+      "text": "And this is the fact that the most dangerous invasive species in Britain is a poo eating"
+    },
+    {
+      "timestamp": "25:05",
+      "text": "muscle from Transylvania."
+    },
+    {
+      "timestamp": "25:08",
+      "text": "That's very nice."
+    },
+    {
+      "timestamp": "25:09",
+      "text": "A poo eating muscle?"
+    },
+    {
+      "timestamp": "25:11",
+      "text": "Doesn't sound dangerous."
+    },
+    {
+      "timestamp": "25:12",
+      "text": "No."
+    },
+    {
+      "timestamp": "25:13",
+      "text": "It sounds beneficial."
+    },
+    {
+      "timestamp": "25:14",
+      "text": "It's because we play it fast on news with the word dangerous."
+    },
+    {
+      "timestamp": "25:17",
+      "text": "Dangerous to whom?"
+    },
+    {
+      "timestamp": "25:18",
+      "text": "It feels like it's not killing people left, right and center."
+    },
+    {
+      "timestamp": "25:21",
+      "text": "Well, James said that one female can produce a billion babies a year."
+    },
+    {
+      "timestamp": "25:25",
+      "text": "And this was about 10 years ago, so we're probably, I mean, we're wading through them"
+    },
+    {
+      "timestamp": "25:29",
+      "text": "day in, day out now, aren't we?"
+    },
+    {
+      "timestamp": "25:30",
+      "text": "I can't believe we're not nipple high in these words."
+    },
+    {
+      "timestamp": "25:33",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "25:34",
+      "text": "Right."
+    },
+    {
+      "timestamp": "25:35",
+      "text": "I'll dish one out."
+    },
+    {
+      "timestamp": "25:37",
+      "text": "This one goes to Aislinn Smith."
+    },
+    {
+      "timestamp": "25:40",
+      "text": "Aislinn, I really hope I'm saying your name right, because sometimes it's Aislingn, I have"
+    },
+    {
+      "timestamp": "25:44",
+      "text": "a relative whose name is Aislinn, and pronounces it like that."
+    },
+    {
+      "timestamp": "25:47",
+      "text": "But your surname is Smith, and I'm absolutely dead certain on that one."
+    },
+    {
+      "timestamp": "25:52",
+      "text": "But your fact, Aislinn, is, until about 4,000 years ago, most humans didn't notice the colour"
+    },
+    {
+      "timestamp": "25:58",
+      "text": "blue."
+    },
+    {
+      "timestamp": "25:59",
+      "text": "I've forgotten."
+    },
+    {
+      "timestamp": "26:00",
+      "text": "I've just gone around with this."
+    },
+    {
+      "timestamp": "26:02",
+      "text": "An ancient theory."
+    },
+    {
+      "timestamp": "26:03",
+      "text": "I think this was a eufact, Anna."
+    },
+    {
+      "timestamp": "26:05",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "26:06",
+      "text": "Just people didn't notice, you know, the sky's there and the sea's there and you can't,"
+    },
+    {
+      "timestamp": "26:09",
+      "text": "you know."
+    },
+    {
+      "timestamp": "26:10",
+      "text": "Yeah, we thought people weren't really distinguishing between blue and green, I think, and, you"
+    },
+    {
+      "timestamp": "26:14",
+      "text": "know, date it back to lots of Herodotus and other ancient Greek quotes."
+    },
+    {
+      "timestamp": "26:18",
+      "text": "Well, there is a rule of fashion, fashionable dressing, that says blue and green should"
+    },
+    {
+      "timestamp": "26:21",
+      "text": "never be seen that blue and green don't go together because they're the same yeah because you can't see"
+    },
+    {
+      "timestamp": "26:27",
+      "text": "people think you're naked yeah that's interesting i'm trying to think if there's any iconic superhero"
+    },
+    {
+      "timestamp": "26:32",
+      "text": "or anything that has blue and green please don't write him because honestly i think they do go"
+    },
+    {
+      "timestamp": "26:36",
+      "text": "perfectly well together but my mum always said that to me and it just has stuck okay i'm sure"
+    },
+    {
+      "timestamp": "26:40",
+      "text": "someone has worked out how to make blue and green go together if they have let's let andy's mom know"
+    },
+    {
+      "timestamp": "26:45",
+      "text": "No, don't play QI.com. I'll give you her email address."
+    },
+    {
+      "timestamp": "26:51",
+      "text": "Andy's mom at gmail.com. I asked her not to pick that. I said it's confusing."
+    },
+    {
+      "timestamp": "26:59",
+      "text": "Okay, let's get another one. This one is for Kim. Belgian fishermen go fishing on horseback."
+    },
+    {
+      "timestamp": "27:07",
+      "text": "Lovely. I remember this. This is a very exciting coastal fishermen who"
+    },
+    {
+      "timestamp": "27:12",
+      "text": "are on the coast on horseback and they have nets and they drag them up and down."
+    },
+    {
+      "timestamp": "27:15",
+      "text": "And are they catching electric fish sometimes? Well that might be something else. You used to go"
+    },
+    {
+      "timestamp": "27:21",
+      "text": "into the water to catch electric eels because sometimes they used to electrify the horse."
+    },
+    {
+      "timestamp": "27:24",
+      "text": "Yeah they would get the horse's legs. I don't think that was a method of fishing them though."
+    },
+    {
+      "timestamp": "27:29",
+      "text": "I think that was just something that happened to you when you were in South America and your horse"
+    },
+    {
+      "timestamp": "27:32",
+      "text": "got bit pineal. Sorry you're right. Don't do that. I've got this one for Ian Butterick."
+    },
+    {
+      "timestamp": "27:39",
+      "text": "This is the fact that in 1921 the news of the world offered a free tea tray"
+    },
+    {
+      "timestamp": "27:43",
+      "text": "to any mother on the birth of her 10th child."
+    },
+    {
+      "timestamp": "27:49",
+      "text": "I think if you had eight children, that's maybe a tempting offer."
+    },
+    {
+      "timestamp": "27:53",
+      "text": "Depending on how long the offer lasts, you know."
+    },
+    {
+      "timestamp": "27:55",
+      "text": "Do you think you would, if you had eight, do you think you'd go for the extra two for the tea tray?"
+    },
+    {
+      "timestamp": "27:59",
+      "text": "You probably think you'd be in the paper as a result holding the tea tray,"
+    },
+    {
+      "timestamp": "28:02",
+      "text": "maybe because not many people are going to take that up,"
+    },
+    {
+      "timestamp": "28:04",
+      "text": "so suddenly you've got a famous story on your hands."
+    },
+    {
+      "timestamp": "28:07",
+      "text": "I don't think we have stats on how many they ended up giving out."
+    },
+    {
+      "timestamp": "28:11",
+      "text": "I would be very interested. That's totally buried in some archive. It would be good to know."
+    },
+    {
+      "timestamp": "28:15",
+      "text": "It does feel a bit stingy. I do think that other countries sort of have offered large amounts"
+    },
+    {
+      "timestamp": "28:21",
+      "text": "of money to people to incentivise them to have children."
+    },
+    {
+      "timestamp": "28:23",
+      "text": "Not the country, this was the news of the world newspaper."
+    },
+    {
+      "timestamp": "28:25",
+      "text": "I know, I know, I'm not the instant of the news of the world, you know."
+    },
+    {
+      "timestamp": "28:29",
+      "text": "What are you going to get them? A massive house. Like, you can't..."
+    },
+    {
+      "timestamp": "28:33",
+      "text": "This is a crazy..."
+    },
+    {
+      "timestamp": "28:35",
+      "text": "Makes more sense."
+    },
+    {
+      "timestamp": "28:36",
+      "text": "Actually, the Daily Mail always used to give away cottages in the 2010s,"
+    },
+    {
+      "timestamp": "28:39",
+      "text": "2020 tens. Did they? Always a thing on the sort of masthead on the top saying,"
+    },
+    {
+      "timestamp": "28:43",
+      "text": "win a cottage. Yeah, I wonder what you got in China for having a tall basketball child."
+    },
+    {
+      "timestamp": "28:49",
+      "text": "Well, they wouldn't know initially, would they? They'd say this baby's small."
+    },
+    {
+      "timestamp": "28:52",
+      "text": "You've got this, you've got it all wrong."
+    },
+    {
+      "timestamp": "28:57",
+      "text": "All right, here's another one. This goes out to Kong."
+    },
+    {
+      "timestamp": "29:00",
+      "text": "And it's that 68% of mountains don't have pointy peaks."
+    },
+    {
+      "timestamp": "29:05",
+      "text": "Oh yeah, this was a classic Dan."
+    },
+    {
+      "timestamp": "29:08",
+      "text": "Now I love this one, partly because it's so stupid, and also because there was a famous"
+    },
+    {
+      "timestamp": "29:15",
+      "text": "mountain range called the Mountains of Kong."
+    },
+    {
+      "timestamp": "29:16",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "29:17",
+      "text": "Remember the fictional range that was on maps for hundreds of years?"
+    },
+    {
+      "timestamp": "29:19",
+      "text": "The Mountains of Kong."
+    },
+    {
+      "timestamp": "29:21",
+      "text": "And this fact goes out to Kong and it's about mountains, that's why I like it."
+    },
+    {
+      "timestamp": "29:23",
+      "text": "And we've also had another person being given a fact today called Kim."
+    },
+    {
+      "timestamp": "29:27",
+      "text": "Kim Kong."
+    },
+    {
+      "timestamp": "29:28",
+      "text": "Kim Kong."
+    },
+    {
+      "timestamp": "29:29",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "29:30",
+      "text": "This is great."
+    },
+    {
+      "timestamp": "29:31",
+      "text": "Let's get them together."
+    },
+    {
+      "timestamp": "29:32",
+      "text": "ask a child to draw a mountain, or even an adult to draw a mountain, usually they do"
+    },
+    {
+      "timestamp": "29:36",
+      "text": "it as a pointy peak. That's how we do it. And it turns out that that's a minority in"
+    },
+    {
+      "timestamp": "29:40",
+      "text": "the mountain world."
+    },
+    {
+      "timestamp": "29:41",
+      "text": "Who would have thought that eight-year-olds drawings are not a realistic depiction sometimes?"
+    },
+    {
+      "timestamp": "29:46",
+      "text": "You're going to tell me my house doesn't have four windows and a chimney next."
+    },
+    {
+      "timestamp": "29:52",
+      "text": "Okay, let's do another one. This one goes to Hannah Lauer, and your fact is the oldest"
+    },
+    {
+      "timestamp": "29:57",
+      "text": "your mum joke appears on a 3,500-year-old Babylonian tablet."
+    },
+    {
+      "timestamp": "30:03",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "30:04",
+      "text": "It's very good, isn't it?"
+    },
+    {
+      "timestamp": "30:05",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "30:06",
+      "text": "And the joke is, I've just looked at the archive,"
+    },
+    {
+      "timestamp": "30:08",
+      "text": "it's dot, dot, dot of your mother is by the one who has sex with her."
+    },
+    {
+      "timestamp": "30:13",
+      "text": "Who is it?"
+    },
+    {
+      "timestamp": "30:14",
+      "text": "So it's exciting to kind of fill in your own, fill in the gaps."
+    },
+    {
+      "timestamp": "30:16",
+      "text": "Like, have I got news for you challenge?"
+    },
+    {
+      "timestamp": "30:18",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "30:20",
+      "text": "Dot, dot, dot of your mother is by the one who has sex with her."
+    },
+    {
+      "timestamp": "30:24",
+      "text": "Who is it?"
+    },
+    {
+      "timestamp": "30:25",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "30:25",
+      "text": "Very good."
+    },
+    {
+      "timestamp": "30:26",
+      "text": "I suppose implying that she's been, you know, getting around a bit."
+    },
+    {
+      "timestamp": "30:30",
+      "text": "That's the joke, I see."
+    },
+    {
+      "timestamp": "30:31",
+      "text": "I think that's the joke."
+    },
+    {
+      "timestamp": "30:32",
+      "text": "Yeah, that's good."
+    },
+    {
+      "timestamp": "30:33",
+      "text": "We don't know."
+    },
+    {
+      "timestamp": "30:34",
+      "text": "Get her a tea tray."
+    },
+    {
+      "timestamp": "30:35",
+      "text": "She's probably..."
+    },
+    {
+      "timestamp": "30:40",
+      "text": "I didn't connect..."
+    },
+    {
+      "timestamp": "30:40",
+      "text": "That's the dot dot dot so I didn't connect to that joke."
+    },
+    {
+      "timestamp": "30:43",
+      "text": "It is amazing always when you look at old jokes how it's all been the same."
+    },
+    {
+      "timestamp": "30:46",
+      "text": "Every ancient joke is about farts, as far as I can tell."
+    },
+    {
+      "timestamp": "30:49",
+      "text": "Whenever you come across another one that's Babylonian tablet."
+    },
+    {
+      "timestamp": "30:52",
+      "text": "It's another bloody fart joke, sometimes a penis."
+    },
+    {
+      "timestamp": "30:54",
+      "text": "It's good though, that's if you were then thrown back in time"
+    },
+    {
+      "timestamp": "30:58",
+      "text": "and you were looking for the best way to communicate with someone from the past,"
+    },
+    {
+      "timestamp": "31:01",
+      "text": "fart jokes. You'd have the best, you'd have ones they hadn't thought of because we'd advanced them."
+    },
+    {
+      "timestamp": "31:05",
+      "text": "But wait, you can't speak their language, so you can't do fart jokes. All you can do is fart."
+    },
+    {
+      "timestamp": "31:08",
+      "text": "Let's say you've learnt their language, but there's nothing that relates you to them."
+    },
+    {
+      "timestamp": "31:13",
+      "text": "You're going to win them over with a fart joke."
+    },
+    {
+      "timestamp": "31:14",
+      "text": "I think the joy is that you don't need a language, you can just go..."
+    },
+    {
+      "timestamp": "31:18",
+      "text": "You're saying if you've learnt their language, that's the best way of connecting."
+    },
+    {
+      "timestamp": "31:21",
+      "text": "Yeah, because I think if you've learnt their language, then you've got a connection."
+    },
+    {
+      "timestamp": "31:24",
+      "text": "You're fine."
+    },
+    {
+      "timestamp": "31:25",
+      "text": "You're OK."
+    },
+    {
+      "timestamp": "31:26",
+      "text": "You can speak their language, you can tell them I'm from the future, I'm from a place called Hoban."
+    },
+    {
+      "timestamp": "31:29",
+      "text": "What a weird thing to say to someone when you first meet them. I'm from the future,"
+    },
+    {
+      "timestamp": "31:33",
+      "text": "are you talking to them Andy? Or are you sending them on their way?"
+    },
+    {
+      "timestamp": "31:36",
+      "text": "I still think it's weird to go up to someone and tell them a fart joke out of the blue."
+    },
+    {
+      "timestamp": "31:40",
+      "text": "I would say you've got to start."
+    },
+    {
+      "timestamp": "31:42",
+      "text": "Well, let's test it. Let's test it."
+    },
+    {
+      "timestamp": "31:44",
+      "text": "Let's go. We'll go to the local tube station."
+    },
+    {
+      "timestamp": "31:46",
+      "text": "Andy, you walk up to a random and say, I'm from the future."
+    },
+    {
+      "timestamp": "31:50",
+      "text": "I'm here to communicate with your language."
+    },
+    {
+      "timestamp": "31:53",
+      "text": "And I'll walk up and tell them a fart joke."
+    },
+    {
+      "timestamp": "31:55",
+      "text": "Yeah. Why is Andy talking in the robot voice? I will be doing that."
+    },
+    {
+      "timestamp": "32:02",
+      "text": "You think I'm going to pass up an opportunity to use the robot voice in public. You're right,"
+    },
+    {
+      "timestamp": "32:07",
+      "text": "it's such a gift. You've got to use it when you can."
+    },
+    {
+      "timestamp": "32:12",
+      "text": "Well, one more. Let's have one more. Yeah, here's one. Here's one for Sarah. And this is the fact"
+    },
+    {
+      "timestamp": "32:16",
+      "text": "that in the 1920s, scientists concluded that menstruating women wilted flowers. This is"
+    },
+    {
+      "timestamp": "32:23",
+      "text": "This is a classic Serapasko, wasn't it?"
+    },
+    {
+      "timestamp": "32:25",
+      "text": "Of course it was, yes."
+    },
+    {
+      "timestamp": "32:26",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "32:27",
+      "text": "We talked about all those evil other things that menstruating women can do."
+    },
+    {
+      "timestamp": "32:31",
+      "text": "Another thing since the dawn of time."
+    },
+    {
+      "timestamp": "32:32",
+      "text": "If you can't think of the fart show, there's nothing that you've got you can bitch about"
+    },
+    {
+      "timestamp": "32:36",
+      "text": "how menstruating women ruin everything."
+    },
+    {
+      "timestamp": "32:38",
+      "text": "Yeah, yeah."
+    },
+    {
+      "timestamp": "32:39",
+      "text": "That's another thing."
+    },
+    {
+      "timestamp": "32:40",
+      "text": "You could say they've destroyed the crop or something."
+    },
+    {
+      "timestamp": "32:42",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "32:43",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "32:44",
+      "text": "And that will, that will get them rolling at the aisles."
+    },
+    {
+      "timestamp": "32:46",
+      "text": "It will."
+    },
+    {
+      "timestamp": "32:47",
+      "text": "Well, those are your facts."
+    },
+    {
+      "timestamp": "32:50",
+      "text": "Thank you so much for becoming friends of the podcast to our new custodians."
+    },
+    {
+      "timestamp": "32:54",
+      "text": "That is Sarah, Hannah Lauer, Kong, Kim, Ian, Butterick, Aislinn Smith, Gempie and Sandy"
+    },
+    {
+      "timestamp": "33:00",
+      "text": "Cronin."
+    },
+    {
+      "timestamp": "33:01",
+      "text": "Thank you to all of you who've joined as members."
+    },
+    {
+      "timestamp": "33:03",
+      "text": "Thank you to everyone who's joined Club Fish in general."
+    },
+    {
+      "timestamp": "33:05",
+      "text": "There's so much stuff on there."
+    },
+    {
+      "timestamp": "33:06",
+      "text": "There are longer versions of our weekly episode."
+    },
+    {
+      "timestamp": "33:08",
+      "text": "There are bonus episodes."
+    },
+    {
+      "timestamp": "33:10",
+      "text": "There is our audience feedback show."
+    },
+    {
+      "timestamp": "33:11",
+      "text": "Drop us a line."
+    },
+    {
+      "timestamp": "33:12",
+      "text": "There is all sorts of stuff there."
+    },
+    {
+      "timestamp": "33:13",
+      "text": "If you go to patreon.com slash Club Fish, you can join for very reasonable rates or"
+    },
+    {
+      "timestamp": "33:18",
+      "text": "buy one for the fish fan in your life Christmas after all is coming that's it"
+    },
+    {
+      "timestamp": "33:23",
+      "text": "for this episode of little fish we'll be back again in a week with another one of"
+    },
+    {
+      "timestamp": "33:27",
+      "text": "these and we'll see you in between now and then with another episode of the main"
+    },
+    {
+      "timestamp": "33:31",
+      "text": "show which is called no such thing as a fish thanks Dan and Anna"
+    },
+    {
+      "timestamp": "33:46",
+      "text": "Coca-Cola for the big for the small the short and the tall peacemakers risk takers"
+    },
+    {
+      "timestamp": "33:55",
+      "text": "for the optimists, pessimists, for long-distance love,"
+    },
+    {
+      "timestamp": "34:01",
+      "text": "for introverts and extroverts,"
+    },
+    {
+      "timestamp": "34:04",
+      "text": "the thinkers and the doers,"
+    },
+    {
+      "timestamp": "34:07",
+      "text": "for old friends and new."
+    },
+    {
+      "timestamp": "34:09",
+      "text": "Coca-Cola, for everyone."
+    },
+    {
+      "timestamp": "34:13",
+      "text": "Pick up some Coca-Cola at a store near you."
+    }
+  ],
+  "transcript_text": "[00:00] Stop the podcast. Stop the podcast. Hi, everybody. We are sponsored this week by Progressive. That's\n\n[00:05] right. So everyone talks about how challenging it is to raise kids, but what about protecting them?\n\n[00:11] I'm talking outlet covers, kitchen cabinet locks, baby gates. Where do you even start?\n\n[00:15] Yes, it is a nightmare. Well, protecting your home and your auto is a great place to start.\n\n[00:22] Progressive offers customized coverage options so you can be sure you have the right coverage\n\n[00:26] for you and your loved ones.\n\n[00:27] They're basically the outlet covers, kitchen cabinet locks, and baby gates of insurance.\n\n[00:32] Don't wait, get your quote today at progressive.com.\n\n[00:35] Progressive Casualty Insurance Company affiliates and other insurers, not available in all states.\n\n[00:39] On with the show.\n\n[00:42] Tell me I'm not the only one who loves a little holiday glam.\n\n[00:46] The outfit, the hair, the makeup.\n\n[00:48] I love when all the details come together because the outfit doesn't just set the\n\n[00:53] color palette, it sets the whole mood.\n\n[00:55] Are we going all out for holiday parties,\n\n[00:58] keeping it cute for family photos,\n\n[01:00] or staying in the salat looking all fabulous\n\n[01:03] and enjoying time with your loved ones?\n\n[01:05] Whatever the plans, I'm bringing the style.\n\n[01:07] And Old Navy has looks for all those holiday moments,\n\n[01:11] from dressing up to keeping it cozy\n\n[01:13] with options for the whole family.\n\n[01:15] And yes, we can match too.\n\n[01:17] So glam up, gather your people,\n\n[01:19] and slay the season with Old Navy.\n\n[01:21] Shop in store or online at oldnavy.com.\n\n[01:39] Hi everybody, welcome to another episode of Little Fish. My name is Andrew Hunter Murray, and I'm here in the QI studio with Dan Schreiber and Anna Tejinsky.\n\n[01:48] And we're here to celebrate your facts that you've been sending in to podcast at hatsignqi.com.\n\n[01:56] So let's go. Let's have a fact. Who's got one?\n\n[02:00] I got one. Great batch this week. This one's from Glenn Johnson, who says the furthest person who has been away from Earth was Canadian.\n\n[02:08] This was Commander Reed Wiseman in an interview.\n\n[02:10] The furthest person who has been away.\n\n[02:13] I've checked how it's written, and it is written correctly on the page.\n\n[02:17] I just want to say in defense of this person's facts.\n\n[02:19] What did I say?\n\n[02:20] The furthest person.\n\n[02:21] I thought you might mean the person who has been furthest away from Earth.\n\n[02:23] That's what I meant.\n\n[02:24] And I understand that, and I'm sorry for slowing things down.\n\n[02:27] Go on, Canadian, you say?\n\n[02:29] When Artemis 2, the spacecraft, was at its furthest distance from Earth while going around the moon,\n\n[02:34] Canadian astronaut Jeremy Hansen was positioned in the spacecraft\n\n[02:38] furthest away from the Earth and the rest of the crew at that point,\n\n[02:42] thus making him the furthest person ever out in space.\n\n[02:45] That's great.\n\n[02:45] It's been a few decades since anyone's got that far,\n\n[02:48] and it was Apollo 13 who had to fling around the moon.\n\n[02:51] So they went the furthest ever at that point.\n\n[02:53] That's so cool.\n\n[02:53] So this is a record broken.\n\n[02:55] And yeah, by a Canadian.\n\n[02:56] So Jeremy Hansen, he sounds amazing.\n\n[03:00] He started off as a cave naught.\n\n[03:03] Oh nice!\n\n[03:03] I didn't... We had some... Who came on the show a few years ago?\n\n[03:08] Also astronaut who started off as a cave naught.\n\n[03:10] Tim Peake.\n\n[03:10] Tim Peake started off as a cave naught.\n\n[03:11] I think they sometimes are, aren't they?\n\n[03:13] Because a lot of the same skills it entails.\n\n[03:15] It's all the training.\n\n[03:16] It's like different levels of noughts that you are before you become an astronaut.\n\n[03:20] Not everyone follows this system, but cave naught is one.\n\n[03:23] It's part of the European Space Agency, cooperative adventure for\n\n[03:27] valuing and exercising human behavior and performance skills.\n\n[03:30] That spells caves.\n\n[03:32] And they are in caves.\n\n[03:33] Yes, okay, yes, right.\n\n[03:35] So one of those things has done a backward job on it, probably the name.\n\n[03:38] And no, I think they had the name and they were like,\n\n[03:41] well, we'll have to do it in a cave now.\n\n[03:42] It'd be silly if we don't now, yeah.\n\n[03:44] Yeah, which isn't, it's not suitable at all, but...\n\n[03:46] Yeah, so he was a cave nought, then he was an aqua nought,\n\n[03:49] did a mission down underwater for seven days,\n\n[03:51] and then he became an astronaut, and now, gone the furthest of any human.\n\n[03:54] What next?\n\n[03:55] Well, good question.\n\n[03:56] What after astronaut?\n\n[03:57] Well, he's a retired nought now.\n\n[04:01] He's a normal nought.\n\n[04:02] he's there's nothing more he's just a nobody now okay that's no not a nobody he's just like\n\n[04:07] the rest of us now yeah yeah try telling tim peak that he's a nobody you know he's always popping up\n\n[04:12] doing stuff isn't he because he's been an astronaut and tim peak was an astronaut yes he was went to\n\n[04:17] space you're still dying on that hill are you not an astronaut until you go to space do you want\n\n[04:23] one for me yeah of course here's one from chris swinton it's about fat boy slim's dad okay we're\n\n[04:31] We're all familiar with Flat Boy Slim, DJ.\n\n[04:34] Norman Cook, I call him because we're mates.\n\n[04:36] Norman Cook, of course, if you are really a mate of his,\n\n[04:39] you'd call him Quentin, which is his birth name.\n\n[04:41] Yes, I don't want to embarrass him.\n\n[04:42] I think he got teased at school\n\n[04:44] and changed his name from Quentin to Norman.\n\n[04:46] And if you are really, really good mate of his,\n\n[04:48] like I am, you call him Pookie,\n\n[04:49] because he likes being snuggled in the morning\n\n[04:52] and little kisses on the back of the ear,\n\n[04:55] on the left ear, little kisses on the back of the left ear.\n\n[04:57] That is so gross.\n\n[04:59] Well, this-\n\n[05:00] There's an image.\n\n[05:00] fact is about Fatboy Slim's dad, Ron Cook. And the fact is, he introduced England to\n\n[05:13] recycling glass. He introduced the bottle bank to England. I don't know if you call this something\n\n[05:20] different overseas. International listeners, the bottle bank is where we recycle our glass.\n\n[05:24] You drop it in and it smashes. It's great fun. And Ron Cook got an MBE for introducing the\n\n[05:29] the concept of recycling glass to the UK. Wow. He would sometimes dress up as a character\n\n[05:33] called Ali Jamja. Okay, a character you probably wouldn't do today, but which was absolutely\n\n[05:39] fine in the 90s. Yeah, that makes me want to look it up. Yeah, it's just a sort of Arabian\n\n[05:46] guy who I think it sort of is or has a jam jar on them. Okay, probably is right. I don't\n\n[05:53] think so. I looked up a picture of Ali Jamja. I don't think he is a jam jar. Just holding\n\n[05:57] your jam jar. Yeah, it's probably a reference that's been lost on me. I'm sure there was\n\n[06:03] more sense to it than that. So anyway, that's Ron Cook. I do think that's rather marvellous.\n\n[06:08] Good on him. And interestingly, his father, Ron Cook's father, so Fatboy Slim's grandfather,\n\n[06:14] was a window cleaner. So Glass, again, in the family. Interesting. Yeah. And Fatboy\n\n[06:19] Slim, in 2002, hosted a gig on Brighton Beach where 250,000 people came. What a massive\n\n[06:26] gig. And afterwards the beach was strewn with, what's that? Broken glass. So he would have\n\n[06:31] got to wrap on the knuckles for that, I imagine.\n\n[06:32] From his dad?\n\n[06:33] Yeah.\n\n[06:34] Yeah.\n\n[06:35] Shouldn't have recycled the glass.\n\n[06:36] Yes.\n\n[06:37] You can't expect Fatboy Slim after the gig of a quarter of a million to go round the\n\n[06:41] beach himself.\n\n[06:42] No, but he's literally got the microphone, hasn't he? He could make an announcement saying\n\n[06:45] there are bottle banks.\n\n[06:46] Good point. Should have done that.\n\n[06:48] But then he'd probably think that it sounds like nepotism, doesn't it?\n\n[06:51] Like he's just trying to keep his dad's business going.\n\n[06:53] Right.\n\n[06:54] What a great family.\n\n[06:55] Glustrious.\n\n[06:56] High achievers.\n\n[06:57] Yeah.\n\n[06:58] Yeah.\n\n[06:59] I wonder how far the glass connection goes higher up.\n\n[07:00] Did that always slim be the first to break the, uh, the glass, as it were, you know?\n\n[07:06] Lovely.\n\n[07:07] Breaking the glass floor.\n\n[07:08] Yeah.\n\n[07:09] Yeah.\n\n[07:10] Yeah.\n\n[07:11] Stomping it down.\n\n[07:12] Here's one from me, from my batch from Ada Camp Mainy, and I think she might have,\n\n[07:19] she might have made this up herself, as in it's true, a James Harkins style created.\n\n[07:23] Okay.\n\n[07:24] Yeah.\n\n[07:25] Yes.\n\n[07:26] Yao Ming's longest neuron is about the same length as Peter Dinklage's height.\n\n[07:32] Okay.\n\n[07:33] What?\n\n[07:34] I know that Peter Dinklage is short, because he was in Game of Thrones.\n\n[07:39] He plays, is it Tyrion?\n\n[07:40] No, one of the Lannisters.\n\n[07:41] One of the Lannisters, does he?\n\n[07:43] Yeah, and he's a short person, so he's an actor.\n\n[07:45] Yeah.\n\n[07:46] So I don't know who Yao Ming is.\n\n[07:47] No, I didn't actually know who either of these people were.\n\n[07:49] He's an NBA star.\n\n[07:50] There we go.\n\n[07:51] He's an NBA star.\n\n[07:52] She goes on to explain the longest neuron in the human body is the motor neuron that runs\n\n[08:01] from the base of the spinal cord to the toes, which is quite interesting. So from your bum\n\n[08:05] to your toes. And so Yao Ming's longest neuron proportionally would be 1.35 meters. And so\n\n[08:12] I was reading up on Yao Ming. And he is the product of a project I did know about. In\n\n[08:16] China, people were sort of bred to be basketball players, which I think some people wonder\n\n[08:21] how definitely it did happen. I think it did.\n\n[08:23] What, like they were growing giants.\n\n[08:26] Because he's tall. Yalming is like, he's like at least five foot eleven. No, no, he's like six\n\n[08:33] eight. He's massive. Yeah, yeah. He's six nine. No, no, he's way taller than that. He's seven foot\n\n[08:37] six. So he's, I'm sorry. What? Seven foot six. Yeah. And a Chinese man in China, men are on\n\n[08:43] average about three inches, two, three inches shorter than they are here. And they, and the\n\n[08:47] The Chinese government did very, very strongly encourage slash make tall women marry tall\n\n[08:53] men for a couple of generations, and then also strongly encourage slash make them play basketball.\n\n[08:58] Oh, so that's sorry.\n\n[09:00] So there wasn't like some machine kind of like how they turn Captain America.\n\n[09:04] Steve Rogers gets put in a machine and he turns into Captain America.\n\n[09:08] Right.\n\n[09:09] Sorry.\n\n[09:10] No.\n\n[09:11] And actually they were both.\n\n[09:12] So Yao Ming's parents both also play basketball because they were bred from very tall parents.\n\n[09:14] So they were both incredibly tall.\n\n[09:16] They were the tallest couple in China and they were made to play basketball and they were both\n\n[09:20] very bad at basketball apparently at first. But if you just are made to play basketball\n\n[09:23] enough from the age of two, then you do become an NBA star, which they almost did. And then\n\n[09:28] Yao Ming did. That is fascinating. That's great fact. And do we know if there's more\n\n[09:32] Chinese basketball players who've been through the same scientific? I think there are. I don't\n\n[09:38] know if we're calling it scientific, maybe it's encouragement. They weren't in a lab.\n\n[09:42] They weren't grown in test tubes, but I think there are.\n\n[09:45] That's extraordinary.\n\n[09:49] Okay, well, I've got another fact here.\n\n[09:50] Should we go?\n\n[09:51] This is from Denver, from Antwerp.\n\n[09:55] Brilliant.\n\n[09:56] We have Jurassic Park to thank for K-pop.\n\n[09:59] So, Korea was the country whose GDP predominantly relied on manufacturing industries.\n\n[10:04] And when the movie Jurassic Park came out in 1993,\n\n[10:06] the Korean government noticed that it had brought in more money than Hyundai did.\n\n[10:10] So, this was a revelation to them, an entertainment thing, generating more money than a big manufacturing\n\n[10:18] company there.\n\n[10:19] What's going on?\n\n[10:20] What's been brought in more money in Korea?\n\n[10:21] Yeah, exactly.\n\n[10:22] It's not a Korean film.\n\n[10:23] No, exactly.\n\n[10:24] Just in the cinemas.\n\n[10:25] It just raised, it was the biggest hit of its day, Jurassic Park, and that extended\n\n[10:29] to every country.\n\n[10:30] It was a number one blockbuster.\n\n[10:31] Quick hand up.\n\n[10:32] South Korea we're talking about.\n\n[10:33] Yeah, sorry.\n\n[10:34] South Korea here.\n\n[10:35] We're talking about.\n\n[10:36] Just checking because we just said Korea.\n\n[10:37] Yeah, absolutely.\n\n[10:38] Like you say Ireland, you mean the Republic of.\n\n[10:40] You take Korea, you mean South Africa.\n\n[10:43] Please don't.\n\n[10:45] I think Korea is acceptable.\n\n[10:46] Anyway, they invested in their entertainment world, and as a result,\n\n[10:51] there's a few steps, but it leads to K-pop.\n\n[10:53] And now K-pop obviously dominating the world.\n\n[10:56] You've got K-pop demon hunters.\n\n[10:58] They should have made it K-pop dino hunters.\n\n[11:00] That's a tribute.\n\n[11:01] They absolutely should.\n\n[11:02] In fact, you know what they should have anyway,\n\n[11:04] because this is the thing that's happening right now in America,\n\n[11:06] where there's a Christian metal band called Demon Hunter, who are now suing Netflix,\n\n[11:11] because Netflix has taken K-pop Demon Hunters on the road. They've created a live band of it,\n\n[11:16] so you can buy concert tickets and so on. And there's been a band in America that's been\n\n[11:20] going since 2000 called Demon Hunter, Christian Metal Band. They've got massive album sales.\n\n[11:25] They've done over 600,000 albums. They play big shows.\n\n[11:28] That's a lot of albums.\n\n[11:30] That's a lot of albums.\n\n[11:31] That's a lot of songs to have to write.\n\n[11:33] Pumping them out very quickly. 600,000 albums. They've sold most bad... Oasis only did two good ones.\n\n[11:40] They have sold 600,000 albums.\n\n[11:43] But only the first two tracks on each one.\n\n[11:45] No, not songs, albums.\n\n[11:48] Anyway, they are having huge problems.\n\n[11:51] They keep getting booked for interviews and then finding out that,\n\n[11:53] oh, we thought it was the K-pop demon hunters.\n\n[11:55] They're looking out at the crowds of their gigs.\n\n[11:57] It's very confused children standing in the crowd as they do their thrash medal.\n\n[12:00] Um, and so they're suing Netflix as a result to say, you can't do this.\n\n[12:05] You've ruined our 26 years of livelihood.\n\n[12:09] That's cool.\n\n[12:10] Cause if they're big enough, that was not just like a puny person suing that Netflix.\n\n[12:13] That might actually be a battle.\n\n[12:14] Right.\n\n[12:15] It'd be a battle if it's trademarks, if it's all that, you know, they've got their stuff\n\n[12:17] on their side.\n\n[12:18] Yep.\n\n[12:19] Let's see.\n\n[12:20] Exciting.\n\n[12:21] Yeah.\n\n[12:22] I can't wait.\n\n[12:23] Here's one that came in from Robin.\n\n[12:24] Yeah.\n\n[12:25] Universal Studios spent three years developing a roller coaster that barely makes a sound so as not to disturb local residents.\n\n[12:35] But they didn't account for how much people tend to scream when they're on the roller coasters. This is so good.\n\n[12:43] This is one of their resorts and they did all this work building a new roller coaster, which is quite near some homes.\n\n[12:49] And so, for example, it has a 940-foot-long sound wall lined with airport-grade insulation.\n\n[12:57] Airports are famously noisy places, I don't quite understand that, but sure.\n\n[13:01] The tracks are lined with a particular kind of gravel to mute the vibrations.\n\n[13:05] Unfortunately, local residents say, we don't hear the roller coaster, but we do hear the\n\n[13:09] screams.\n\n[13:10] So they still...\n\n[13:11] Every 30 seconds, all day, you just hear scream for 10 hours.\n\n[13:17] don't hear the roller coaster magic you just hear screaming can they just put a\n\n[13:21] sign up saying don't scream do you think that's a good idea because really on\n\n[13:27] roller coasters I was scream you don't need to do you you just know that's the\n\n[13:30] dumb thing rollercoaster yeah you just know you meant or helmets like a full\n\n[13:35] face helmet really good idea oh like a soundproof helmet yeah right isn't there\n\n[13:39] a fashion for taping your mouth shut while you sleep have you heard of this\n\n[13:45] You're looking at me like I'm a weirdo.\n\n[13:47] It's something to do with helping your quality of your sleep or something to do with breathing\n\n[13:51] through your nose.\n\n[13:52] You're still breathing, but through your nose.\n\n[13:53] There is a thing of mouth taping while you're asleep.\n\n[13:56] It sounds like, I mean, there's a thing for everything, isn't there?\n\n[13:58] No, there's a thing for everything.\n\n[13:59] I know.\n\n[14:00] It sounds very silly, but...\n\n[14:01] You're saying...\n\n[14:02] I'm saying...\n\n[14:03] Roller coaster.\n\n[14:04] Roller coaster.\n\n[14:05] Right.\n\n[14:06] And that makes it scarier.\n\n[14:09] Every child.\n\n[14:10] We're actually just going to leave that on for the rest of the day, if that's cool.\n\n[14:14] Well that's an excellent fact. Here's another good fact. This is from Ellen Cliff. This\n\n[14:21] is a confusing opening sentence. She says, one of my favourite facts that genuinely depressed\n\n[14:27] me before I went to live in the UK was this. It is that 1.75 square miles of Black Mountain\n\n[14:35] Reserve in the centre of Canberra, Australia has more species of ant than the whole British\n\n[14:40] Isles. In fact, more than twice as many.\n\n[14:43] was depressing. And she's an entomology nerd. Yeah right. I know I think there's a lot to get\n\n[14:47] depressed about in the world and you know on that front I would say. Yeah pick your battles.\n\n[14:51] Cheer up yeah. So sorry there's an area of this Australian you say Black Mountain Reserve. Yeah\n\n[14:56] and in the middle of Canberra apparently and it has more it has over 100 species of ant and\n\n[15:01] Britain we only have 41. According to her though I had a look and it now looks like we have between\n\n[15:05] 50 and 60. So it's climbing. Great news. Huge news. You can feel a bit happier about life, Ellen.\n\n[15:13] I didn't know we had more than one species of ants. A band. You saw there was just ants. Well,\n\n[15:18] you just see the ants, the common or garden ants, don't you? Yeah, yeah, yeah. What about red ants?\n\n[15:22] Yep, good point. Yeah, yep. I haven't divided enough thought to it. No, loads more. I guess\n\n[15:26] they all look quite similar, probably, don't they? I think that's true. I think a lot of ants look\n\n[15:30] very similar. I think that's a really controversial point. Because Anna did her thing about Ireland\n\n[15:39] earlier, so I think we're all probably slightly on edge. We don't alienate the ants. We don't have\n\n[15:45] any antlers as we have. Probably safer that we tape your mouth over for the rest of the episode, Anna.\n\n[15:54] Stop the podcast. Stop the podcast. Hi everybody, we are sponsored this week by Progressive.\n\n[16:00] That's right. So, everyone talks about how challenging it is to raise kids, but what about\n\n[16:04] protecting them? I'm talking outlet covers, kitchen cabinet locks, baby gates. Where do you even start?\n\n[16:10] Yes, it is a nightmare. Well, protecting your home and your auto is a great place to start.\n\n[16:17] Progressive offers customised coverage options so you can be sure you have the right coverage\n\n[16:21] for you and your loved ones. They're basically the outlet covers,\n\n[16:24] kitchen cabinet locks and baby gates of insurance.\n\n[16:27] Don't wait. Get your quote today at progressive.com.\n\n[16:30] Progressive Casualty Insurance Company affiliates and other insurers not available in all states.\n\n[16:34] On with the show.\n\n[16:36] This is Joe, Nick, and Kevin Jonas. This episode is sponsored by Starbucks.\n\n[16:40] I always think it's funny how everyone has that one thing that immediately tells them\n\n[16:43] the holidays are amongst us.\n\n[16:45] For me, it's when I start seeing those red Starbucks holiday cups everywhere.\n\n[16:49] I've been reaching for the peppermint mocha from Starbucks lately. It's pretty good.\n\n[16:52] It just feels like the season in my cup.\n\n[16:54] And I'm more of a caramel brulee latte person,\n\n[16:56] but once that comes back, it is officially holiday season.\n\n[17:00] Grab a holiday favorite from Starbucks and spend a little time with the people who make the season\n\n[17:03] special. Hey there, it's Ryan Seacrest for Safeway. Fall is here, which means it's time\n\n[17:08] to stock up on vitamins for the season. Now through December 1st, buy more participating\n\n[17:12] vitamin products and save more. Save on items like nature-made magnesium, nature-made vitamin\n\n[17:16] C gummies, nature's truth elderberry gummies, nature-made B12 tablets, nature's truth vitamin\n\n[17:22] K, nature made multivitamins and nature's truth ashwagandha gummies and save more when\n\n[17:27] you buy more.\n\n[17:28] Offer ends December 1st, restrictions apply, offers may vary.\n\n[17:32] Visit Safeway.com for more details.\n\n[17:36] This is from Anders Kallen.\n\n[17:38] He's just sent a bunch of facts, just bullet point facts.\n\n[17:42] Burt Bacharach's dad was Burt Bacharach, but Burt Bacharach, who we know is spelled\n\n[17:48] B-U-R-T, but his dad is spelled B-E-R-T.\n\n[17:52] Love it.\n\n[17:53] it. Love it, because it's arrogant to call your son the exact same name.\n\n[17:56] Exactly. And then how are you going to distinguish when you're saying,\n\n[18:00] Burt, Burt, Burt. That is my husband Burt, my son Burt.\n\n[18:07] We've all been saying Burt back in Iraq's name wrong.\n\n[18:12] One more, by the way, just from Anders. The actor Alan Hale, who played Little John\n\n[18:17] in three Robin Hood movies, invented the sliding theatre chair.\n\n[18:21] ALICE We all know the sliding theatre chair!\n\n[18:25] ALICE Sorry. On first presentation,\n\n[18:27] that's an insanely dull fact. And there's no link between the Robin Hood thing and the theatre thing.\n\n[18:33] ALICE Well, no, the link is that if you need to think,\n\n[18:35] who's Alan Hale? Oh yeah, he's the guy in Robin Hood.\n\n[18:38] ALICE So Little John is the big guy in Robin Hood, right?\n\n[18:41] ALICE Yeah.\n\n[18:41] ALICE And the sliding theatre chair? I'm not...\n\n[18:43] What's that?\n\n[18:44] ALICE Thank you, Anders, because I hadn't heard of it either. Now, immediately,\n\n[18:47] I sort of thought the flippable chair, you know, in theatres that flip up.\n\n[18:50] up.\n\n[18:51] But they don't slide.\n\n[18:52] They don't slide.\n\n[18:53] It would be awful if they slid.\n\n[18:54] They don't slide.\n\n[18:55] That would be very disruptive.\n\n[18:56] So this is what he invented.\n\n[18:57] He invented a chair so that when people need to get past you in a row, you slide it back.\n\n[19:02] You don't stand up.\n\n[19:03] You physically move the entire chair back so they can walk in front of you, and then\n\n[19:06] you sort of bring yourself back forward again.\n\n[19:09] But when you say you've invented something, it has to have actually been used.\n\n[19:13] Good point.\n\n[19:14] And I'd have never seen one of those.\n\n[19:15] It would ram into the knees of the person behind, which I imagine is why it hasn't\n\n[19:18] had huge uptake in the West End.\n\n[19:19] No, but they can just move their seat back.\n\n[19:21] Come on, Anna.\n\n[19:22] So it's like, everyone moves fine, please.\n\n[19:24] Everyone moves back.\n\n[19:26] No, this is a better way of doing it than standing.\n\n[19:29] So in the back row, move.\n\n[19:30] Sorry to interrupt.\n\n[19:32] If you just start moving.\n\n[19:34] People in the back row, tragically,\n\n[19:35] those are the only ones that can't move back on the wall.\n\n[19:37] So they, any time someone is on row B walking to their seat,\n\n[19:42] they get slammed into.\n\n[19:44] But they can see it coming.\n\n[19:45] They've got more time to make their escape.\n\n[19:48] They actually back row need to evacuate altogether.\n\n[19:52] So you're hoping it's row B.\n\n[19:54] You're on row X, you're dead.\n\n[19:58] What the hell are these used anywhere?\n\n[20:00] I couldn't see that they were.\n\n[20:02] The point is that he was an amazing inventor.\n\n[20:05] Sometimes people come up with ideas.\n\n[20:06] They don't necessarily get used day to day.\n\n[20:08] Apparently he modified the folding chair in theaters as well.\n\n[20:12] So he invented it.\n\n[20:13] There's quite a little problem for me.\n\n[20:15] Did he do that?\n\n[20:16] He also supposedly invented a formula for greaseless potato chips.\n\n[20:24] So this is a big deal, Mr. Caleb.\n\n[20:26] Oh, what a huge deal, yeah.\n\n[20:28] Anyway, there's more from Anders, but maybe we'll save it for another one.\n\n[20:30] Oh, that's terrific.\n\n[20:31] Yeah, that's so good.\n\n[20:32] Now, here's one from Stuart Laidler, which I didn't know,\n\n[20:34] which is that at the time of writing, there are nine living ex-Prime Minister of the UK.\n\n[20:38] I knew that.\n\n[20:40] This is the most that there have ever been.\n\n[20:41] the previous high was a tie of five under major, I mean that can't have been the previous high,\n\n[20:48] the previous high must have just been when there were eight. Anyway, we're only two ex-prime\n\n[20:56] ministers away from being able to field a football team in the international ex-prime\n\n[21:00] ministers first 11 world championships, which is cool. And I looked it up because I thought\n\n[21:04] there is a lot of ex-prime ministers to have, and we're second in the world. Isn't that cool?\n\n[21:10] Not after Switzerland, I'm guessing. Because they have that funny thing where it's every\n\n[21:14] year or every six months they have a new one and it's not quite as we do it.\n\n[21:17] I didn't count Switzerland because I think it's cheating.\n\n[21:20] Oh, so where else has the most living...\n\n[21:22] Well, we're tied with the ties. We've got a tie tie.\n\n[21:25] Very pleasing.\n\n[21:26] Very nice.\n\n[21:27] And Italy beats us with 10 former PMs, which is weird because actually Georgia Maloney is\n\n[21:31] the longest serving leader of Italy since Second World War.\n\n[21:35] Yes, she is, but they just don't serve very long. She's only been in since 2022.\n\n[21:38] Sounds like a footballer as well, doesn't she?\n\n[21:40] Georgia Maloney.\n\n[21:41] Georgia Maloney, taken to the field.\n\n[21:42] Reckon she could kick some ass.\n\n[21:44] So sorry, but Berlusconi did long stints, didn't he?\n\n[21:47] Was he in the same position?\n\n[21:49] You're right, he did.\n\n[21:50] But, and yet, there have been a lot in between, I suppose.\n\n[21:52] Right.\n\n[21:54] Although he lived to be really old.\n\n[21:55] Can we name all nine?\n\n[21:56] Gun to our head.\n\n[21:57] John Major.\n\n[21:58] Yes.\n\n[21:59] Winston Churchill.\n\n[22:00] No problem.\n\n[22:02] John Major, Gordon Brown, Tony Blair, Andy Burnham, Theresa May.\n\n[22:06] Andy Burnham's not former.\n\n[22:08] Oh, we're doing formers only.\n\n[22:09] Oh, right. Major Blair Brown, Cameron May, Johnson, Russ, Starma, Knight.\n\n[22:18] I think there's no points. It's no points for naming the prime ministers that you've just lived through.\n\n[22:22] It was pretty boring, even as I was saying it. Here's another one. This I quite like. It's from\n\n[22:29] John Ankeny. Upon the occasion of Dolly Parton's passing, sad times for all,\n\n[22:36] My wife and I re-watched the wonderful 1989 film, Steel Magnolias, which I think she was\n\n[22:41] in.\n\n[22:42] In the course of that viewing, we learned that the playwright Robert Harling based his play\n\n[22:47] on the real life of his sister, Susan Harling Robinson, Julia Roberts plays her, who died\n\n[22:53] of type 1 diabetes.\n\n[22:54] When the film was made, such care was made for authenticity that the actor who disconnects\n\n[23:00] Julia Roberts' life support was played by a real nurse.\n\n[23:03] In fact, the same nurse who disconnected the life support of Susan Harling-Roberts and\n\n[23:08] herself.\n\n[23:09] No.\n\n[23:10] It was in the film.\n\n[23:11] Wow.\n\n[23:12] Wasn't that peculiar?\n\n[23:13] Cast specifically?\n\n[23:14] I think it can't have been an accident.\n\n[23:17] They only realised, didn't they?\n\n[23:18] Halfway through filming.\n\n[23:19] Yeah, yeah.\n\n[23:20] He only found out at the premiere.\n\n[23:21] Yeah.\n\n[23:22] Oh, right.\n\n[23:23] The nurse has changed jobs.\n\n[23:24] Yeah, yeah.\n\n[23:25] That's amazing.\n\n[23:26] I like the claimants for authenticity, like otherwise people might not believe the story.\n\n[23:30] Yes, that's true.\n\n[23:31] Unless we get the actual nurse.\n\n[23:33] Well, all nurses and doctors and movies are played by real doctors and nurses.\n\n[23:36] That's a that's a classic fact.\n\n[23:38] That's why there's such a crisis in health care at the moment.\n\n[23:40] I was a disaster win.\n\n[23:41] Keep feeling cleanly defected after EI to become a full time actor.\n\n[23:47] It was terrible.\n\n[23:47] He was their best.\n\n[23:49] Fortunately, actors are filling in for doctors all over the NHS, so we're fine.\n\n[23:54] Very good.\n\n[23:55] Well, should we do some some fact distribution?\n\n[23:58] You're not hosting the show, but sure.\n\n[24:00] But I would like to second Anna's suggestion that we dish out some custodianships.\n\n[24:10] It's a good idea, Andy.\n\n[24:11] Thank you, Anna.\n\n[24:12] Do it.\n\n[24:13] So if you join Club Fish, our members club, at the top tier friend of the podcast, then\n\n[24:18] you will get one of our facts dedicated to you in perpetuity in our Hall of Fame.\n\n[24:23] You get a fantastic looking certificate, which you can print and put on your wall.\n\n[24:28] you get one of our facts just for you. So let's now bestow a few more of those. Who would like\n\n[24:34] to go first?\n\n[24:35] This one is a fact for Sandy Cronin. Sandy, take good care of this one. This is the fact\n\n[24:40] that Iceland imports ice.\n\n[24:42] Lovely.\n\n[24:43] Yes.\n\n[24:44] Lovely fact.\n\n[24:45] I wonder if it's still the case. I think it must be right. It's an industry. It's not\n\n[24:49] they're not importing ice for their glaciers. This is like drinking ice and so on.\n\n[24:52] Drinking ice.\n\n[24:53] Ice for your drinks, rather.\n\n[24:56] I'm going to ditch one out now to gem pie.\n\n[25:00] And this is the fact that the most dangerous invasive species in Britain is a poo eating\n\n[25:05] muscle from Transylvania.\n\n[25:08] That's very nice.\n\n[25:09] A poo eating muscle?\n\n[25:11] Doesn't sound dangerous.\n\n[25:12] No.\n\n[25:13] It sounds beneficial.\n\n[25:14] It's because we play it fast on news with the word dangerous.\n\n[25:17] Dangerous to whom?\n\n[25:18] It feels like it's not killing people left, right and center.\n\n[25:21] Well, James said that one female can produce a billion babies a year.\n\n[25:25] And this was about 10 years ago, so we're probably, I mean, we're wading through them\n\n[25:29] day in, day out now, aren't we?\n\n[25:30] I can't believe we're not nipple high in these words.\n\n[25:33] Yeah.\n\n[25:34] Right.\n\n[25:35] I'll dish one out.\n\n[25:37] This one goes to Aislinn Smith.\n\n[25:40] Aislinn, I really hope I'm saying your name right, because sometimes it's Aislingn, I have\n\n[25:44] a relative whose name is Aislinn, and pronounces it like that.\n\n[25:47] But your surname is Smith, and I'm absolutely dead certain on that one.\n\n[25:52] But your fact, Aislinn, is, until about 4,000 years ago, most humans didn't notice the colour\n\n[25:58] blue.\n\n[25:59] I've forgotten.\n\n[26:00] I've just gone around with this.\n\n[26:02] An ancient theory.\n\n[26:03] I think this was a eufact, Anna.\n\n[26:05] Yes.\n\n[26:06] Just people didn't notice, you know, the sky's there and the sea's there and you can't,\n\n[26:09] you know.\n\n[26:10] Yeah, we thought people weren't really distinguishing between blue and green, I think, and, you\n\n[26:14] know, date it back to lots of Herodotus and other ancient Greek quotes.\n\n[26:18] Well, there is a rule of fashion, fashionable dressing, that says blue and green should\n\n[26:21] never be seen that blue and green don't go together because they're the same yeah because you can't see\n\n[26:27] people think you're naked yeah that's interesting i'm trying to think if there's any iconic superhero\n\n[26:32] or anything that has blue and green please don't write him because honestly i think they do go\n\n[26:36] perfectly well together but my mum always said that to me and it just has stuck okay i'm sure\n\n[26:40] someone has worked out how to make blue and green go together if they have let's let andy's mom know\n\n[26:45] No, don't play QI.com. I'll give you her email address.\n\n[26:51] Andy's mom at gmail.com. I asked her not to pick that. I said it's confusing.\n\n[26:59] Okay, let's get another one. This one is for Kim. Belgian fishermen go fishing on horseback.\n\n[27:07] Lovely. I remember this. This is a very exciting coastal fishermen who\n\n[27:12] are on the coast on horseback and they have nets and they drag them up and down.\n\n[27:15] And are they catching electric fish sometimes? Well that might be something else. You used to go\n\n[27:21] into the water to catch electric eels because sometimes they used to electrify the horse.\n\n[27:24] Yeah they would get the horse's legs. I don't think that was a method of fishing them though.\n\n[27:29] I think that was just something that happened to you when you were in South America and your horse\n\n[27:32] got bit pineal. Sorry you're right. Don't do that. I've got this one for Ian Butterick.\n\n[27:39] This is the fact that in 1921 the news of the world offered a free tea tray\n\n[27:43] to any mother on the birth of her 10th child.\n\n[27:49] I think if you had eight children, that's maybe a tempting offer.\n\n[27:53] Depending on how long the offer lasts, you know.\n\n[27:55] Do you think you would, if you had eight, do you think you'd go for the extra two for the tea tray?\n\n[27:59] You probably think you'd be in the paper as a result holding the tea tray,\n\n[28:02] maybe because not many people are going to take that up,\n\n[28:04] so suddenly you've got a famous story on your hands.\n\n[28:07] I don't think we have stats on how many they ended up giving out.\n\n[28:11] I would be very interested. That's totally buried in some archive. It would be good to know.\n\n[28:15] It does feel a bit stingy. I do think that other countries sort of have offered large amounts\n\n[28:21] of money to people to incentivise them to have children.\n\n[28:23] Not the country, this was the news of the world newspaper.\n\n[28:25] I know, I know, I'm not the instant of the news of the world, you know.\n\n[28:29] What are you going to get them? A massive house. Like, you can't...\n\n[28:33] This is a crazy...\n\n[28:35] Makes more sense.\n\n[28:36] Actually, the Daily Mail always used to give away cottages in the 2010s,\n\n[28:39] 2020 tens. Did they? Always a thing on the sort of masthead on the top saying,\n\n[28:43] win a cottage. Yeah, I wonder what you got in China for having a tall basketball child.\n\n[28:49] Well, they wouldn't know initially, would they? They'd say this baby's small.\n\n[28:52] You've got this, you've got it all wrong.\n\n[28:57] All right, here's another one. This goes out to Kong.\n\n[29:00] And it's that 68% of mountains don't have pointy peaks.\n\n[29:05] Oh yeah, this was a classic Dan.\n\n[29:08] Now I love this one, partly because it's so stupid, and also because there was a famous\n\n[29:15] mountain range called the Mountains of Kong.\n\n[29:16] Yes.\n\n[29:17] Remember the fictional range that was on maps for hundreds of years?\n\n[29:19] The Mountains of Kong.\n\n[29:21] And this fact goes out to Kong and it's about mountains, that's why I like it.\n\n[29:23] And we've also had another person being given a fact today called Kim.\n\n[29:27] Kim Kong.\n\n[29:28] Kim Kong.\n\n[29:29] Yeah.\n\n[29:30] This is great.\n\n[29:31] Let's get them together.\n\n[29:32] ask a child to draw a mountain, or even an adult to draw a mountain, usually they do\n\n[29:36] it as a pointy peak. That's how we do it. And it turns out that that's a minority in\n\n[29:40] the mountain world.\n\n[29:41] Who would have thought that eight-year-olds drawings are not a realistic depiction sometimes?\n\n[29:46] You're going to tell me my house doesn't have four windows and a chimney next.\n\n[29:52] Okay, let's do another one. This one goes to Hannah Lauer, and your fact is the oldest\n\n[29:57] your mum joke appears on a 3,500-year-old Babylonian tablet.\n\n[30:03] Yeah.\n\n[30:04] It's very good, isn't it?\n\n[30:05] Yeah.\n\n[30:06] And the joke is, I've just looked at the archive,\n\n[30:08] it's dot, dot, dot of your mother is by the one who has sex with her.\n\n[30:13] Who is it?\n\n[30:14] So it's exciting to kind of fill in your own, fill in the gaps.\n\n[30:16] Like, have I got news for you challenge?\n\n[30:18] Yeah.\n\n[30:20] Dot, dot, dot of your mother is by the one who has sex with her.\n\n[30:24] Who is it?\n\n[30:25] Yeah.\n\n[30:25] Very good.\n\n[30:26] I suppose implying that she's been, you know, getting around a bit.\n\n[30:30] That's the joke, I see.\n\n[30:31] I think that's the joke.\n\n[30:32] Yeah, that's good.\n\n[30:33] We don't know.\n\n[30:34] Get her a tea tray.\n\n[30:35] She's probably...\n\n[30:40] I didn't connect...\n\n[30:40] That's the dot dot dot so I didn't connect to that joke.\n\n[30:43] It is amazing always when you look at old jokes how it's all been the same.\n\n[30:46] Every ancient joke is about farts, as far as I can tell.\n\n[30:49] Whenever you come across another one that's Babylonian tablet.\n\n[30:52] It's another bloody fart joke, sometimes a penis.\n\n[30:54] It's good though, that's if you were then thrown back in time\n\n[30:58] and you were looking for the best way to communicate with someone from the past,\n\n[31:01] fart jokes. You'd have the best, you'd have ones they hadn't thought of because we'd advanced them.\n\n[31:05] But wait, you can't speak their language, so you can't do fart jokes. All you can do is fart.\n\n[31:08] Let's say you've learnt their language, but there's nothing that relates you to them.\n\n[31:13] You're going to win them over with a fart joke.\n\n[31:14] I think the joy is that you don't need a language, you can just go...\n\n[31:18] You're saying if you've learnt their language, that's the best way of connecting.\n\n[31:21] Yeah, because I think if you've learnt their language, then you've got a connection.\n\n[31:24] You're fine.\n\n[31:25] You're OK.\n\n[31:26] You can speak their language, you can tell them I'm from the future, I'm from a place called Hoban.\n\n[31:29] What a weird thing to say to someone when you first meet them. I'm from the future,\n\n[31:33] are you talking to them Andy? Or are you sending them on their way?\n\n[31:36] I still think it's weird to go up to someone and tell them a fart joke out of the blue.\n\n[31:40] I would say you've got to start.\n\n[31:42] Well, let's test it. Let's test it.\n\n[31:44] Let's go. We'll go to the local tube station.\n\n[31:46] Andy, you walk up to a random and say, I'm from the future.\n\n[31:50] I'm here to communicate with your language.\n\n[31:53] And I'll walk up and tell them a fart joke.\n\n[31:55] Yeah. Why is Andy talking in the robot voice? I will be doing that.\n\n[32:02] You think I'm going to pass up an opportunity to use the robot voice in public. You're right,\n\n[32:07] it's such a gift. You've got to use it when you can.\n\n[32:12] Well, one more. Let's have one more. Yeah, here's one. Here's one for Sarah. And this is the fact\n\n[32:16] that in the 1920s, scientists concluded that menstruating women wilted flowers. This is\n\n[32:23] This is a classic Serapasko, wasn't it?\n\n[32:25] Of course it was, yes.\n\n[32:26] Yeah.\n\n[32:27] We talked about all those evil other things that menstruating women can do.\n\n[32:31] Another thing since the dawn of time.\n\n[32:32] If you can't think of the fart show, there's nothing that you've got you can bitch about\n\n[32:36] how menstruating women ruin everything.\n\n[32:38] Yeah, yeah.\n\n[32:39] That's another thing.\n\n[32:40] You could say they've destroyed the crop or something.\n\n[32:42] Yeah.\n\n[32:43] Yeah.\n\n[32:44] And that will, that will get them rolling at the aisles.\n\n[32:46] It will.\n\n[32:47] Well, those are your facts.\n\n[32:50] Thank you so much for becoming friends of the podcast to our new custodians.\n\n[32:54] That is Sarah, Hannah Lauer, Kong, Kim, Ian, Butterick, Aislinn Smith, Gempie and Sandy\n\n[33:00] Cronin.\n\n[33:01] Thank you to all of you who've joined as members.\n\n[33:03] Thank you to everyone who's joined Club Fish in general.\n\n[33:05] There's so much stuff on there.\n\n[33:06] There are longer versions of our weekly episode.\n\n[33:08] There are bonus episodes.\n\n[33:10] There is our audience feedback show.\n\n[33:11] Drop us a line.\n\n[33:12] There is all sorts of stuff there.\n\n[33:13] If you go to patreon.com slash Club Fish, you can join for very reasonable rates or\n\n[33:18] buy one for the fish fan in your life Christmas after all is coming that's it\n\n[33:23] for this episode of little fish we'll be back again in a week with another one of\n\n[33:27] these and we'll see you in between now and then with another episode of the main\n\n[33:31] show which is called no such thing as a fish thanks Dan and Anna\n\n[33:46] Coca-Cola for the big for the small the short and the tall peacemakers risk takers\n\n[33:55] for the optimists, pessimists, for long-distance love,\n\n[34:01] for introverts and extroverts,\n\n[34:04] the thinkers and the doers,\n\n[34:07] for old friends and new.\n\n[34:09] Coca-Cola, for everyone.\n\n[34:13] Pick up some Coca-Cola at a store near you."
+}
