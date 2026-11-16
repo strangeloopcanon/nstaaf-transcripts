@@ -1,0 +1,2492 @@
+{
+  "slug": "little-fish-im-glad-you-asked",
+  "title": "No Such Thing As A Fish - Little Fish: I'm glad you asked",
+  "url": "https://audioboom.com/posts/8976674",
+  "audio_url": "https://pscrb.fm/rss/p/dts.podtrac.com/redirect.mp3/audioboom.com/posts/8976674.mp3?modified=1794568541&sid=2399216&source=rss",
+  "source_type": "machine_generated_asr",
+  "transcript_source": "Faster Whisper small.en transcription from official RSS audio",
+  "quality_note": "Machine-generated transcript; may contain transcription errors.",
+  "generated_at": "2026-11-16T23:59:40.518046+00:00",
+  "episode_date": "November 15, 2026",
+  "episode_date_iso": "2026-11-15",
+  "published_at": "2026-11-15T23:55:00+00:00",
+  "asr_model": "small.en",
+  "asr_backend": "faster-whisper",
+  "segment_count": 618,
+  "word_count": 6381,
+  "segments": [
+    {
+      "timestamp": "00:00",
+      "text": "Hello and welcome to Little Fish. This is our bonus Monday show where we put down our favorite"
+    },
+    {
+      "timestamp": "00:20",
+      "text": "facts from the last seven days and we pick up yours. These are the best of the facts that you have sent"
+    },
+    {
+      "timestamp": "00:25",
+      "text": "in to podcast at qi.com. My name is Dan Schreiber. Today I'm going to be joined by Andrew Hunter Murray"
+    },
+    {
+      "timestamp": "00:30",
+      "text": "and Anna Ptaszynski and we are ready to read them out. So let's do it. Who's going to go first?"
+    },
+    {
+      "timestamp": "00:35",
+      "text": "I've got one that I love this week. Let's do it. This is from Sun Crow. Don't know if it's"
+    },
+    {
+      "timestamp": "00:40",
+      "text": "It's the real name, but it's a great fact."
+    },
+    {
+      "timestamp": "00:42",
+      "text": "This is that according to the latest episode"
+    },
+    {
+      "timestamp": "00:44",
+      "text": "of That's Absurd Please Elaborate,"
+    },
+    {
+      "timestamp": "00:47",
+      "text": "bit of a plug for another podcast on this podcast,"
+    },
+    {
+      "timestamp": "00:49",
+      "text": "a study conducted using the cadavers of a human and a goat"
+    },
+    {
+      "timestamp": "00:54",
+      "text": "so that the best way to drain your sinuses is on all fours."
+    },
+    {
+      "timestamp": "00:57",
+      "text": "And I just had no idea about this,"
+    },
+    {
+      "timestamp": "00:59",
+      "text": "but it's because the human skull contains several sinuses."
+    },
+    {
+      "timestamp": "01:02",
+      "text": "The biggest one has a top only drain hole."
+    },
+    {
+      "timestamp": "01:05",
+      "text": "So up at the top of your nose."
+    },
+    {
+      "timestamp": "01:07",
+      "text": "So that's absolutely fine as quadrupeds."
+    },
+    {
+      "timestamp": "01:09",
+      "text": "And so all quadrupeds are fine draining their noses,"
+    },
+    {
+      "timestamp": "01:11",
+      "text": "which is probably why they don't get really blocked up,"
+    },
+    {
+      "timestamp": "01:13",
+      "text": "because when your head is leaning forward on all fours,"
+    },
+    {
+      "timestamp": "01:16",
+      "text": "then it does drain out happily of that top sinus."
+    },
+    {
+      "timestamp": "01:19",
+      "text": "But when we stood upright,"
+    },
+    {
+      "timestamp": "01:21",
+      "text": "that sinus just gets blocked up and can't drain out."
+    },
+    {
+      "timestamp": "01:23",
+      "text": "And so if you go back down to all fours, it drains out."
+    },
+    {
+      "timestamp": "01:26",
+      "text": "So blow your nose on all fours."
+    },
+    {
+      "timestamp": "01:28",
+      "text": "Blow your nose on all fours."
+    },
+    {
+      "timestamp": "01:29",
+      "text": "Just go around on all fours if you've got a cold."
+    },
+    {
+      "timestamp": "01:31",
+      "text": "Yeah. Exactly. Yes."
+    },
+    {
+      "timestamp": "01:33",
+      "text": "Yep."
+    },
+    {
+      "timestamp": "01:34",
+      "text": "And we should normalize that in the workplace."
+    },
+    {
+      "timestamp": "01:37",
+      "text": "You can be the first one"
+    },
+    {
+      "timestamp": "01:38",
+      "text": "I will follow your lead when that happens."
+    },
+    {
+      "timestamp": "01:41",
+      "text": "I've got a fact here for you. This comes in from Rhys, enemy of the podcast Williams."
+    },
+    {
+      "timestamp": "01:48",
+      "text": "I can't remember what Rhys did to justify this label. I'm sure it was deserved."
+    },
+    {
+      "timestamp": "01:52",
+      "text": "Bloody yeah."
+    },
+    {
+      "timestamp": "01:53",
+      "text": "Rhys the cheeky fellow. So my fact, Rhys writes, is that in the childhood game hangman,"
+    },
+    {
+      "timestamp": "02:00",
+      "text": "the word indistinguishable is distinguishable."
+    },
+    {
+      "timestamp": "02:05",
+      "text": "Ah, that's interesting."
+    },
+    {
+      "timestamp": "02:06",
+      "text": "It's really good. If you just get the letter I as your first letter, it's 17 letters long,"
+    },
+    {
+      "timestamp": "02:13",
+      "text": "you would be able to correctly guess it by using the length and the fact that you just had I."
+    },
+    {
+      "timestamp": "02:18",
+      "text": "I had an awkward moment on a train the other day,"
+    },
+    {
+      "timestamp": "02:21",
+      "text": "tell me what you guys would have done. There was..."
+    },
+    {
+      "timestamp": "02:23",
+      "text": "You finished some child tang man. You just lent over with a pen. It's sausage."
+    },
+    {
+      "timestamp": "02:30",
+      "text": "Okay, what would you have done? There's a mum, I'm at a table, there's a mum opposite,"
+    },
+    {
+      "timestamp": "02:34",
+      "text": "and she's sitting with her two boys."
+    },
+    {
+      "timestamp": "02:37",
+      "text": "They're just all squeezed in together,"
+    },
+    {
+      "timestamp": "02:39",
+      "text": "both under 10, and they are playing hangman."
+    },
+    {
+      "timestamp": "02:43",
+      "text": "Actually, one of the boys is too cool."
+    },
+    {
+      "timestamp": "02:44",
+      "text": "He's probably about nine."
+    },
+    {
+      "timestamp": "02:45",
+      "text": "He's like on his game boy or something."
+    },
+    {
+      "timestamp": "02:47",
+      "text": "But the other boy is about six and wants to play hangman."
+    },
+    {
+      "timestamp": "02:50",
+      "text": "And she says, okay, pick a word."
+    },
+    {
+      "timestamp": "02:53",
+      "text": "And he picked a word and was like,"
+    },
+    {
+      "timestamp": "02:55",
+      "text": "I don't know if I spelled that right."
+    },
+    {
+      "timestamp": "02:56",
+      "text": "And I was pretending to work,"
+    },
+    {
+      "timestamp": "02:58",
+      "text": "but I was really eavesdropping."
+    },
+    {
+      "timestamp": "02:59",
+      "text": "And then I obviously leaned over and said,"
+    },
+    {
+      "timestamp": "03:01",
+      "text": "job me to check if you spelled it right"
+    },
+    {
+      "timestamp": "03:03",
+      "text": "to the little boy."
+    },
+    {
+      "timestamp": "03:03",
+      "text": "He didn't have to show his mum who was going to be playing with him. Yeah, so I think that's nice"
+    },
+    {
+      "timestamp": "03:07",
+      "text": "and normal so far. Yeah, yeah, yeah, yeah. Oh, here we go. I didn't do anything wrong in this,"
+    },
+    {
+      "timestamp": "03:11",
+      "text": "by the way. Okay. I know what you're thinking. He showed me the spelling. So it's crazy that"
+    },
+    {
+      "timestamp": "03:17",
+      "text": "the British Transport Police ended up marching you off the train."
+    },
+    {
+      "timestamp": "03:22",
+      "text": "His political correctness gone mad. He showed me the thing which he had spelled right. So I said"
+    },
+    {
+      "timestamp": "03:27",
+      "text": "yes. And then he did it out in the hangman. But then as he was giving mum his mum the clues,"
+    },
+    {
+      "timestamp": "03:32",
+      "text": "he forgot how to spell it and she said does it have an n or something and it did and he said no"
+    },
+    {
+      "timestamp": "03:37",
+      "text": "okay and i saw it happen and i thought shit he's ruined the game what do we do and i didn't say"
+    },
+    {
+      "timestamp": "03:45",
+      "text": "anything and i felt like i'd backed out at that point so i was back on my computer and i didn't"
+    },
+    {
+      "timestamp": "03:48",
+      "text": "want to say so i didn't say anything and then i just had to hear this confusion going for about"
+    },
+    {
+      "timestamp": "03:52",
+      "text": "five minutes of the mum not knowing what the word was and the boy looking really smug and me"
+    },
+    {
+      "timestamp": "03:55",
+      "text": "knowing there was an n in there right would you have said i i would have i would have tipped"
+    },
+    {
+      "timestamp": "04:00",
+      "text": "them on the wink. I would have sort of implied, yes, there is a man."
+    },
+    {
+      "timestamp": "04:04",
+      "text": "Okay, okay. Yeah, I should have done that tonight."
+    },
+    {
+      "timestamp": "04:06",
+      "text": "And then she could have said to him, are you sure?"
+    },
+    {
+      "timestamp": "04:08",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "04:08",
+      "text": "I think it's only awkward if you're about to say you then heard her calling up like a local"
+    },
+    {
+      "timestamp": "04:13",
+      "text": "orphanage. Like, what's the consequence of you not having given that information? Did they fall out?"
+    },
+    {
+      "timestamp": "04:19",
+      "text": "It was just like dragged out the game unnecessarily."
+    },
+    {
+      "timestamp": "04:21",
+      "text": "Okay, I think I think you're fine."
+    },
+    {
+      "timestamp": "04:23",
+      "text": "Okay, fine. Well, there's the moral maze of the week solved."
+    },
+    {
+      "timestamp": "04:26",
+      "text": "It's exciting."
+    },
+    {
+      "timestamp": "04:26",
+      "text": "It's a chunky dilemma though. Good to get our teeth into that one."
+    },
+    {
+      "timestamp": "04:32",
+      "text": "I think so. Oh, I feel like that's really tested everyone. Okay, time for another fact."
+    },
+    {
+      "timestamp": "04:37",
+      "text": "Whose turn is it?"
+    },
+    {
+      "timestamp": "04:38",
+      "text": "It might be Dan's. I'm gonna read one out here from Gil Reich, who writes, cap that Dan."
+    },
+    {
+      "timestamp": "04:45",
+      "text": "This is just a fantastic anniversary fact. We are sitting here on the 14th of October,"
+    },
+    {
+      "timestamp": "04:51",
+      "text": "as we record this. Gilreich says Dan mentioned Carl Sagan and his work on Voyager 1 on the"
+    },
+    {
+      "timestamp": "04:57",
+      "text": "most recent episode. I thought Dan might be excited to know about the upcoming momentous occasion."
+    },
+    {
+      "timestamp": "05:02",
+      "text": "The Voyager 1 spacecraft traveling for nearly 50 years will be one light day away from Earth"
+    },
+    {
+      "timestamp": "05:09",
+      "text": "on Wednesday, November the 18th, 2026. So in just over a month, it will be officially"
+    },
+    {
+      "timestamp": "05:16",
+      "text": "one light day away from Earth. That's huge. Is that exciting? We've gone into a different order"
+    },
+    {
+      "timestamp": "05:23",
+      "text": "of magnitude and distance, well-done humanity. How far we've gone, how far Carl Sagan's dream"
+    },
+    {
+      "timestamp": "05:28",
+      "text": "has gone out there, and the others who were part of it, there were many. Is that, I'm sorry not"
+    },
+    {
+      "timestamp": "05:34",
+      "text": "to know where it is, is it beyond Neptune or Pluto? Oh, we're out of the solar system."
+    },
+    {
+      "timestamp": "05:39",
+      "text": "Oh, really? Oh, yes, sir. Well, wonderful. Yeah, yeah, yeah."
+    },
+    {
+      "timestamp": "05:43",
+      "text": "This is from Connie B from St. Louis and this is the fact that Missouri has an official state"
+    },
+    {
+      "timestamp": "05:49",
+      "text": "wonder dog and Connie says there's a museum in Marshall, Missouri that celebrates and"
+    },
+    {
+      "timestamp": "05:56",
+      "text": "commemorates the life of Jim the Wonder Dog which was a Llewelyn setter who reportedly gained fame"
+    },
+    {
+      "timestamp": "06:02",
+      "text": "in the 1930s for being able to understand foreign languages and have psychic abilities."
+    },
+    {
+      "timestamp": "06:06",
+      "text": "One of these definitely a real thing, not some kind of mass delusion things."
+    },
+    {
+      "timestamp": "06:10",
+      "text": "He was also very good at hunting, although I don't think that's the headline, she says."
+    },
+    {
+      "timestamp": "06:14",
+      "text": "He said to have predicted the winners of seven consecutive Kentucky Durbies, the 1936 World"
+    },
+    {
+      "timestamp": "06:19",
+      "text": "Series."
+    },
+    {
+      "timestamp": "06:20",
+      "text": "He could also predict the gender of unborn babies, so you wouldn't have to bother with"
+    },
+    {
+      "timestamp": "06:24",
+      "text": "that 20-week scan, except for various medical reasons."
+    },
+    {
+      "timestamp": "06:28",
+      "text": "I mean, that weirdly, that's the one that's closest to be believing that it's possible."
+    },
+    {
+      "timestamp": "06:33",
+      "text": "You know how they train dogs to smell diseases and so on?"
+    },
+    {
+      "timestamp": "06:36",
+      "text": "Yeah, maybe they could sniff them off."
+    },
+    {
+      "timestamp": "06:37",
+      "text": "Surely, surely maybe there's something coming off the body."
+    },
+    {
+      "timestamp": "06:40",
+      "text": "Sniff a little, Willy."
+    },
+    {
+      "timestamp": "06:41",
+      "text": "I just think that's closer, Handy."
+    },
+    {
+      "timestamp": "06:44",
+      "text": "Don't look at me like that."
+    },
+    {
+      "timestamp": "06:45",
+      "text": "I can't."
+    },
+    {
+      "timestamp": "06:46",
+      "text": "You're not even looking at me."
+    },
+    {
+      "timestamp": "06:47",
+      "text": "Your eyes are sealed shut in pain."
+    },
+    {
+      "timestamp": "06:50",
+      "text": "I know."
+    },
+    {
+      "timestamp": "06:51",
+      "text": "I know what you mean."
+    },
+    {
+      "timestamp": "06:52",
+      "text": "You've, like, gone into yourself."
+    },
+    {
+      "timestamp": "06:53",
+      "text": "I'm in my mind palace, and you can't get me out."
+    },
+    {
+      "timestamp": "06:58",
+      "text": "I'm with you, Dan."
+    },
+    {
+      "timestamp": "07:00",
+      "text": "I think you probably could do that and many other things."
+    },
+    {
+      "timestamp": "07:03",
+      "text": "I actually-"
+    },
+    {
+      "timestamp": "07:04",
+      "text": "I think you could do all the above."
+    },
+    {
+      "timestamp": "07:05",
+      "text": "You could."
+    },
+    {
+      "timestamp": "07:06",
+      "text": "I went to the Missouri government website and it has more on him. It says that legend has it. He tracked over"
+    },
+    {
+      "timestamp": "07:14",
+      "text": "5,000 birds a total no other dog has ever achieved"
+    },
+    {
+      "timestamp": "07:16",
+      "text": "He could also identify a car on the street if told the license plate number"
+    },
+    {
+      "timestamp": "07:22",
+      "text": "So I think you say, you know, we're looking for a Grey Honda SU-23 DBN. Yeah"
+    },
+    {
+      "timestamp": "07:33",
+      "text": "He could recognize unknown people in a crowd have given a description"
+    },
+    {
+      "timestamp": "07:36",
+      "text": "We could follow instructions as you gave them in Morse code."
+    },
+    {
+      "timestamp": "07:41",
+      "text": "Okay."
+    },
+    {
+      "timestamp": "07:42",
+      "text": "So this is the state wonder dog of Missouri."
+    },
+    {
+      "timestamp": "07:46",
+      "text": "Well done, Jim."
+    },
+    {
+      "timestamp": "07:47",
+      "text": "I'm sorry."
+    },
+    {
+      "timestamp": "07:48",
+      "text": "I've not heard of the, did you say the Llewellyn Setter or Llewellyn something?"
+    },
+    {
+      "timestamp": "07:51",
+      "text": "Yeah, Llewellyn Setter."
+    },
+    {
+      "timestamp": "07:52",
+      "text": "Never heard of that?"
+    },
+    {
+      "timestamp": "07:53",
+      "text": "No, me neither."
+    },
+    {
+      "timestamp": "07:54",
+      "text": "Weird that not all dogs are Llewellyn Setters given that apparently all genius is."
+    },
+    {
+      "timestamp": "07:57",
+      "text": "I know."
+    },
+    {
+      "timestamp": "07:58",
+      "text": "Why didn't we breed more of this?"
+    },
+    {
+      "timestamp": "07:59",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "08:00",
+      "text": "Too dangerous."
+    },
+    {
+      "timestamp": "08:01",
+      "text": "That's a great fact."
+    },
+    {
+      "timestamp": "08:02",
+      "text": "Can I give you one?"
+    },
+    {
+      "timestamp": "08:03",
+      "text": "Yes, please."
+    },
+    {
+      "timestamp": "08:04",
+      "text": "This comes in from Catherine Keener Miller from Rock Hill in South Carolina."
+    },
+    {
+      "timestamp": "08:10",
+      "text": "Ding dong."
+    },
+    {
+      "timestamp": "08:11",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "08:12",
+      "text": "She says, although I now live outside London, I thought Andy might enjoy yet another lesson"
+    },
+    {
+      "timestamp": "08:16",
+      "text": "from incredibly mundane, exotic places in the USA."
+    },
+    {
+      "timestamp": "08:19",
+      "text": "I talked about a guy who forgot the password to his Bitcoin wallet, a few episodes ago."
+    },
+    {
+      "timestamp": "08:24",
+      "text": "Do you remember that?"
+    },
+    {
+      "timestamp": "08:25",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "08:26",
+      "text": "Well, Catherine came across this fact in a pack of trivial pursuit cards in the pub"
+    },
+    {
+      "timestamp": "08:30",
+      "text": "and did a bit of extra research and it's true, right?"
+    },
+    {
+      "timestamp": "08:32",
+      "text": "it's about the first time someone ever paid for something with Bitcoin. It was in May 2010,"
+    },
+    {
+      "timestamp": "08:37",
+      "text": "so cast your mind back. David Cameron has just been elected. Okay. Good times."
+    },
+    {
+      "timestamp": "08:42",
+      "text": "Laszlo Hanyek brought two pizzas at Papa John's using Bitcoin. Okay. He paid another guy"
+    },
+    {
+      "timestamp": "08:51",
+      "text": "a certain number of Bitcoin to buy him the pizzas, right?"
+    },
+    {
+      "timestamp": "08:54",
+      "text": "God, that makes more sense because I remember being amazed if Papa John's was the first"
+    },
+    {
+      "timestamp": "08:57",
+      "text": "He paid him the equivalent then in Bitcoin of about $41 and he got pizzas worth about"
+    },
+    {
+      "timestamp": "09:08",
+      "text": "$25."
+    },
+    {
+      "timestamp": "09:09",
+      "text": "So he had to pay a bit of a surcharge, but the number of Bitcoin he paid was 10,000,"
+    },
+    {
+      "timestamp": "09:14",
+      "text": "which at the absolute peak would have been worth a billion dollars."
+    },
+    {
+      "timestamp": "09:20",
+      "text": "And then he was interviewed about this a bit later on."
+    },
+    {
+      "timestamp": "09:22",
+      "text": "He said, during that period, I probably spent 100,000 Bitcoin on pizzas in 2010, who would"
+    },
+    {
+      "timestamp": "09:28",
+      "text": "have been about 2.7 billion pounds."
+    },
+    {
+      "timestamp": "09:30",
+      "text": "He had no idea."
+    },
+    {
+      "timestamp": "09:32",
+      "text": "That's a great claim."
+    },
+    {
+      "timestamp": "09:34",
+      "text": "That's an amazing claim."
+    },
+    {
+      "timestamp": "09:35",
+      "text": "There's a taxi driver in Margate who has a live Bitcoin screen that's just telling him"
+    },
+    {
+      "timestamp": "09:42",
+      "text": "where his coin is worth live."
+    },
+    {
+      "timestamp": "09:45",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "09:46",
+      "text": "So you look and there's a taxi meter and then there's like this other weird kind of"
+    },
+    {
+      "timestamp": "09:49",
+      "text": "it looks like ghost hunting equipment."
+    },
+    {
+      "timestamp": "09:51",
+      "text": "You're like, what are all these peaks and ups and downs?"
+    },
+    {
+      "timestamp": "09:53",
+      "text": "And he's like, that's my Bitcoin."
+    },
+    {
+      "timestamp": "09:54",
+      "text": "I watch it every day."
+    },
+    {
+      "timestamp": "09:56",
+      "text": "And does he change the way he drives,"
+    },
+    {
+      "timestamp": "09:58",
+      "text": "depending on how well or badly his investment is doing?"
+    },
+    {
+      "timestamp": "10:01",
+      "text": "His mood, certainly, is altered."
+    },
+    {
+      "timestamp": "10:03",
+      "text": "If it's doing badly, does he drive very slowly"
+    },
+    {
+      "timestamp": "10:05",
+      "text": "and right around the houses?"
+    },
+    {
+      "timestamp": "10:08",
+      "text": "Screws a bit more normal human money out of you."
+    },
+    {
+      "timestamp": "10:12",
+      "text": "Yeah, it's a fascinating little thing."
+    },
+    {
+      "timestamp": "10:13",
+      "text": "It's just on a phone."
+    },
+    {
+      "timestamp": "10:15",
+      "text": "Amazing."
+    },
+    {
+      "timestamp": "10:15",
+      "text": "It feels dangerous to have that in the cab."
+    },
+    {
+      "timestamp": "10:18",
+      "text": "I think so, yeah."
+    },
+    {
+      "timestamp": "10:19",
+      "text": "I think that's distracting."
+    },
+    {
+      "timestamp": "10:20",
+      "text": "I think what it is, is it's an item that forces you to ask what it is, and then allow him to talk about Bitcoin for half an hour of the journey, no matter what."
+    },
+    {
+      "timestamp": "10:29",
+      "text": "Yeah, you're so right."
+    },
+    {
+      "timestamp": "10:31",
+      "text": "It's like if I disguised a Bob Hope book in the front of a car and you went,"
+    },
+    {
+      "timestamp": "10:35",
+      "text": "What's that? I'm glad you asked."
+    },
+    {
+      "timestamp": "10:44",
+      "text": "Hey, I've got another fact, guys. From Ari Tunes Samuelson."
+    },
+    {
+      "timestamp": "10:48",
+      "text": "This might be the heaviest band merch of all time, Norwegian band The Dogs had manhole covers made because they envisaged what drunk fans might buy at the merch stand at one of their concerts, and then enjoyed the idea of them struggling to get it home."
+    },
+    {
+      "timestamp": "11:04",
+      "text": "So they thought, let's do manhole covers, and they did end up producing these, and they did cost a lot of money, and weirdly, it kind of worked out for them because it ended up propping them up with a bit of money to then do recordings for their next episode."
+    },
+    {
+      "timestamp": "11:17",
+      "text": "recordings for their next album."
+    },
+    {
+      "timestamp": "11:19",
+      "text": "They people did buy them."
+    },
+    {
+      "timestamp": "11:20",
+      "text": "Yeah, people did buy them and they started with 20 and they weighed it between 42 and"
+    },
+    {
+      "timestamp": "11:24",
+      "text": "50 kilograms."
+    },
+    {
+      "timestamp": "11:25",
+      "text": "So it was very heavy."
+    },
+    {
+      "timestamp": "11:26",
+      "text": "So their car broke on the way to one of the venues."
+    },
+    {
+      "timestamp": "11:29",
+      "text": "So they had to invest in a second van."
+    },
+    {
+      "timestamp": "11:31",
+      "text": "So basically the manhole covers and then their equipment traveled in one van while they"
+    },
+    {
+      "timestamp": "11:35",
+      "text": "traveled in another."
+    },
+    {
+      "timestamp": "11:37",
+      "text": "But yeah, and I think they became the second buyer of one of the biggest manhole cover"
+    },
+    {
+      "timestamp": "11:42",
+      "text": "manufacturers in their country off the back of getting more of these."
+    },
+    {
+      "timestamp": "11:45",
+      "text": "They must have sold loads then, because a lot of manhole covers are needed."
+    },
+    {
+      "timestamp": "11:49",
+      "text": "Although they last a long time, so maybe you don't buy that many each year."
+    },
+    {
+      "timestamp": "11:51",
+      "text": "They last a long time, so yeah."
+    },
+    {
+      "timestamp": "11:53",
+      "text": "And there's also normally only one buyer of manhole covers, which is whoever's in charge"
+    },
+    {
+      "timestamp": "11:55",
+      "text": "of the roads."
+    },
+    {
+      "timestamp": "11:56",
+      "text": "There aren't many hobbyist manhole cover purposes."
+    },
+    {
+      "timestamp": "11:58",
+      "text": "I see, so if you're the second biggest buyer, maybe that's because there's just one buyer"
+    },
+    {
+      "timestamp": "12:02",
+      "text": "as you say, and then the second biggest buyer is five."
+    },
+    {
+      "timestamp": "12:04",
+      "text": "Exactly."
+    },
+    {
+      "timestamp": "12:05",
+      "text": "Although can I come back to the fact that Jeremy Corbyn is a manhole cover obsessive?"
+    },
+    {
+      "timestamp": "12:09",
+      "text": "Well, I assume he's a huge fan of the band."
+    },
+    {
+      "timestamp": "12:11",
+      "text": "I was going to say, was he the buyer of all of their manhole covers?"
+    },
+    {
+      "timestamp": "12:15",
+      "text": "Very well-opened. When you say, can I come back to, like you last mentioned that, like..."
+    },
+    {
+      "timestamp": "12:19",
+      "text": "What? You mean a long time ago?"
+    },
+    {
+      "timestamp": "12:20",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "12:21",
+      "text": "Eight years ago."
+    },
+    {
+      "timestamp": "12:22",
+      "text": "Eight years ago."
+    },
+    {
+      "timestamp": "12:24",
+      "text": "Can I come back to? How long have you been holding on to that one?"
+    },
+    {
+      "timestamp": "12:28",
+      "text": "I hope you do that in conversations all the time, actually."
+    },
+    {
+      "timestamp": "12:30",
+      "text": "Oh god, I do."
+    },
+    {
+      "timestamp": "12:31",
+      "text": "Can I come back to something we spoke about when we were 22?"
+    },
+    {
+      "timestamp": "12:34",
+      "text": "Yeah, you remember? You said, let's park this for a second, we'll come back to this."
+    },
+    {
+      "timestamp": "12:38",
+      "text": "That was in year 13."
+    },
+    {
+      "timestamp": "12:42",
+      "text": "Anyway, very cool."
+    },
+    {
+      "timestamp": "12:43",
+      "text": "Very cool."
+    },
+    {
+      "timestamp": "12:43",
+      "text": "The dogs."
+    },
+    {
+      "timestamp": "12:44",
+      "text": "Really cool, I've got a fact from Paddy Fogarty."
+    },
+    {
+      "timestamp": "12:48",
+      "text": "So he says, you seem to get a lot of facts"
+    },
+    {
+      "timestamp": "12:50",
+      "text": "involving football teams and player names, correct?"
+    },
+    {
+      "timestamp": "12:53",
+      "text": "We do."
+    },
+    {
+      "timestamp": "12:53",
+      "text": "So here's one of my favorite footballing facts."
+    },
+    {
+      "timestamp": "12:56",
+      "text": "Between 2013 and 2018,"
+    },
+    {
+      "timestamp": "12:58",
+      "text": "the Republic of Ireland manager was Martin O'Neill,"
+    },
+    {
+      "timestamp": "13:00",
+      "text": "while the Northern Ireland manager was Michael O'Neill,"
+    },
+    {
+      "timestamp": "13:03",
+      "text": "but here's the best bit, even better than that."
+    },
+    {
+      "timestamp": "13:07",
+      "text": "Martin O'Neill's middle name is Michael,"
+    },
+    {
+      "timestamp": "13:11",
+      "text": "and Michael O'Neill's middle name,"
+    },
+    {
+      "timestamp": "13:13",
+      "text": "Any guesses?"
+    },
+    {
+      "timestamp": "13:15",
+      "text": "John."
+    },
+    {
+      "timestamp": "13:16",
+      "text": "Who's John?"
+    },
+    {
+      "timestamp": "13:16",
+      "text": "That is Martin."
+    },
+    {
+      "timestamp": "13:18",
+      "text": "That's cool."
+    },
+    {
+      "timestamp": "13:19",
+      "text": "So for a five-year period, Martin Michael O'Neill"
+    },
+    {
+      "timestamp": "13:21",
+      "text": "managed a Republic of Ireland"
+    },
+    {
+      "timestamp": "13:22",
+      "text": "and Michael Martin O'Neill managed Northern Ireland."
+    },
+    {
+      "timestamp": "13:24",
+      "text": "Confusingly, Martin O'Neill is Northern Irish"
+    },
+    {
+      "timestamp": "13:27",
+      "text": "and played for Northern Ireland,"
+    },
+    {
+      "timestamp": "13:28",
+      "text": "even though he managed Ireland."
+    },
+    {
+      "timestamp": "13:29",
+      "text": "Oh my God!"
+    },
+    {
+      "timestamp": "13:30",
+      "text": "It was all in this!"
+    },
+    {
+      "timestamp": "13:32",
+      "text": "But yeah, great fact, Martin O'Neill and Michael O'Neill."
+    },
+    {
+      "timestamp": "13:35",
+      "text": "Lovely."
+    },
+    {
+      "timestamp": "13:36",
+      "text": "Nice."
+    },
+    {
+      "timestamp": "13:37",
+      "text": "Here's one from CIMO, the city of Hooker, Oklahoma."
+    },
+    {
+      "timestamp": "13:40",
+      "text": "Oh yeah."
+    },
+    {
+      "timestamp": "13:41",
+      "text": "Which of course has the motto, it's a location, not a vocation."
+    },
+    {
+      "timestamp": "13:46",
+      "text": "Fantastic."
+    },
+    {
+      "timestamp": "13:47",
+      "text": "Which is a great city motto."
+    },
+    {
+      "timestamp": "13:49",
+      "text": "That is good."
+    },
+    {
+      "timestamp": "13:50",
+      "text": "Uh, is named after a man named John Hooker Threlkeld."
+    },
+    {
+      "timestamp": "13:53",
+      "text": "Cool."
+    },
+    {
+      "timestamp": "13:54",
+      "text": "One for the book."
+    },
+    {
+      "timestamp": "13:55",
+      "text": "One for the book."
+    },
+    {
+      "timestamp": "13:56",
+      "text": "Yep."
+    },
+    {
+      "timestamp": "13:57",
+      "text": "And why was he called Hooker?"
+    },
+    {
+      "timestamp": "13:58",
+      "text": "Why was his nickname Hooker?"
+    },
+    {
+      "timestamp": "13:59",
+      "text": "Because he was a prostitute?"
+    },
+    {
+      "timestamp": "14:01",
+      "text": "Ding."
+    },
+    {
+      "timestamp": "14:02",
+      "text": "Ding."
+    },
+    {
+      "timestamp": "14:03",
+      "text": "Uh, why was he called Hooker?"
+    },
+    {
+      "timestamp": "14:06",
+      "text": "Because he'd hook him in."
+    },
+    {
+      "timestamp": "14:07",
+      "text": "He was a sales guy who would always hook his..."
+    },
+    {
+      "timestamp": "14:09",
+      "text": "That's a great guess."
+    },
+    {
+      "timestamp": "14:10",
+      "text": "Not it."
+    },
+    {
+      "timestamp": "14:11",
+      "text": "It's, oh, you're hooking an animal."
+    },
+    {
+      "timestamp": "14:14",
+      "text": "Oh, okay."
+    },
+    {
+      "timestamp": "14:15",
+      "text": "Not a fish animal though."
+    },
+    {
+      "timestamp": "14:16",
+      "text": "A sheep with like, bow peeps."
+    },
+    {
+      "timestamp": "14:18",
+      "text": "Think bigger."
+    },
+    {
+      "timestamp": "14:19",
+      "text": "Cow."
+    },
+    {
+      "timestamp": "14:20",
+      "text": "Dinosaur?"
+    },
+    {
+      "timestamp": "14:20",
+      "text": "Whale."
+    },
+    {
+      "timestamp": "14:21",
+      "text": "Cow."
+    },
+    {
+      "timestamp": "14:21",
+      "text": "Cow."
+    },
+    {
+      "timestamp": "14:23",
+      "text": "Dinosaur and whale."
+    },
+    {
+      "timestamp": "14:25",
+      "text": "You two crack under the slightest question of pressure."
+    },
+    {
+      "timestamp": "14:28",
+      "text": "This is giving crazy answers."
+    },
+    {
+      "timestamp": "14:30",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "14:31",
+      "text": "He was a, he was a good, a good roper of cattle."
+    },
+    {
+      "timestamp": "14:35",
+      "text": "Okay."
+    },
+    {
+      "timestamp": "14:35",
+      "text": "Cause you have to lasso them sometimes, don't you?"
+    },
+    {
+      "timestamp": "14:38",
+      "text": "Apparently he was just absolutely wizzo, groping him in."
+    },
+    {
+      "timestamp": "14:41",
+      "text": "Do we call that hooking? I don't think that's hooking."
+    },
+    {
+      "timestamp": "14:43",
+      "text": "Well, yeah, you got like good hooking or good hooker,"
+    },
+    {
+      "timestamp": "14:46",
+      "text": "and he worked on a place called the Beaver River."
+    },
+    {
+      "timestamp": "14:49",
+      "text": "I wouldn't have assumed that this place called hooker,"
+    },
+    {
+      "timestamp": "14:51",
+      "text": "just if we do have any standards for the book."
+    },
+    {
+      "timestamp": "14:54",
+      "text": "And that is an open question."
+    },
+    {
+      "timestamp": "14:56",
+      "text": "It is a big if."
+    },
+    {
+      "timestamp": "14:58",
+      "text": "I wouldn't have assumed a place called hooker was named after prostitutes."
+    },
+    {
+      "timestamp": "15:00",
+      "text": "No, you're right."
+    },
+    {
+      "timestamp": "15:01",
+      "text": "Which I think is what the implication is."
+    },
+    {
+      "timestamp": "15:02",
+      "text": "Oh, you're right."
+    },
+    {
+      "timestamp": "15:03",
+      "text": "Yeah, I'm sorry, Simmo, to be really,"
+    },
+    {
+      "timestamp": "15:05",
+      "text": "yeah, I'm going to be really harsh on that."
+    },
+    {
+      "timestamp": "15:06",
+      "text": "I'm not sure it's one for the book."
+    },
+    {
+      "timestamp": "15:08",
+      "text": "I think it is, but after the first 20 pages,"
+    },
+    {
+      "timestamp": "15:11",
+      "text": "along with the rest of examples that are of this quality."
+    },
+    {
+      "timestamp": "15:15",
+      "text": "I would argue, I think that's good enough, personally."
+    },
+    {
+      "timestamp": "15:18",
+      "text": "OK."
+    },
+    {
+      "timestamp": "15:19",
+      "text": "You wouldn't have assumed it was just named after a man called Hooker."
+    },
+    {
+      "timestamp": "15:21",
+      "text": "Well, I know that there was a lot of old..."
+    },
+    {
+      "timestamp": "15:23",
+      "text": "There's old London streets, aren't there, that have very rude names."
+    },
+    {
+      "timestamp": "15:25",
+      "text": "Oh, that's true."
+    },
+    {
+      "timestamp": "15:25",
+      "text": "We're connected to the sex trade."
+    },
+    {
+      "timestamp": "15:27",
+      "text": "And so, you know, it's not beyond the times of the past to name places like that."
+    },
+    {
+      "timestamp": "15:32",
+      "text": "That's true."
+    },
+    {
+      "timestamp": "15:33",
+      "text": "I think it's on the cusp."
+    },
+    {
+      "timestamp": "15:34",
+      "text": "OK."
+    },
+    {
+      "timestamp": "15:35",
+      "text": "You know, if we're feeling generous."
+    },
+    {
+      "timestamp": "15:36",
+      "text": "Well, who's writing this book? Sorry, good point. I don't know why I'm trying to get involved."
+    },
+    {
+      "timestamp": "15:44",
+      "text": "I'm backing out, I'm backing out."
+    },
+    {
+      "timestamp": "15:46",
+      "text": "We'll do 500 each."
+    },
+    {
+      "timestamp": "15:48",
+      "text": "Moving on."
+    },
+    {
+      "timestamp": "15:50",
+      "text": "I've got one more fact before we head into the custodianship bit of our show."
+    },
+    {
+      "timestamp": "15:53",
+      "text": "This is from Jeffrey Partica."
+    },
+    {
+      "timestamp": "15:56",
+      "text": "If you're going to have party in your name, I'm not saying it any different, Jeffrey."
+    },
+    {
+      "timestamp": "15:59",
+      "text": "And he's from Detroit, Michigan."
+    },
+    {
+      "timestamp": "16:01",
+      "text": "He says in the Journey song, Don't Stop Believing, we all know that song."
+    },
+    {
+      "timestamp": "16:06",
+      "text": "The line, just a city boy born and raised in south Detroit is a misnomer."
+    },
+    {
+      "timestamp": "16:12",
+      "text": "Detroiters would describe themselves as either Eastsiders or Westsiders."
+    },
+    {
+      "timestamp": "16:17",
+      "text": "South of Detroit is Canada, making it the largest US city where you drive south to cross the border"
+    },
+    {
+      "timestamp": "16:23",
+      "text": "to drink when you turn 19."
+    },
+    {
+      "timestamp": "16:26",
+      "text": "So if you're born and raised in South Detroit, you're from Windsor, Canada."
+    },
+    {
+      "timestamp": "16:30",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "16:31",
+      "text": "I didn't know that you would drive south to get into Canada from,"
+    },
+    {
+      "timestamp": "16:34",
+      "text": "I didn't know that wasn't that overhanging situation, it's not a bit of America I know"
+    },
+    {
+      "timestamp": "16:37",
+      "text": "anything about really."
+    },
+    {
+      "timestamp": "16:38",
+      "text": "Yeah, yeah, yeah."
+    },
+    {
+      "timestamp": "16:39",
+      "text": "I'm embarrassingly, yes, we're all surprised by that."
+    },
+    {
+      "timestamp": "16:42",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "16:43",
+      "text": "That's confusing."
+    },
+    {
+      "timestamp": "16:44",
+      "text": "And so for years, this has been a thing in Detroit that, you know, they sing the song"
+    },
+    {
+      "timestamp": "16:48",
+      "text": "out loud in stadiums and apparently that, this is according to some sources online, that's"
+    },
+    {
+      "timestamp": "16:53",
+      "text": "a line that gets sung really loudly because it's seen as a joke, you know, like, I can't"
+    },
+    {
+      "timestamp": "16:58",
+      "text": "believe they write it."
+    },
+    {
+      "timestamp": "16:59",
+      "text": "Because the writer wasn't from Detroit."
+    },
+    {
+      "timestamp": "17:01",
+      "text": "So does he say South Detroit is in the city? Is he saying that part of Detroit goes into Canada?"
+    },
+    {
+      "timestamp": "17:09",
+      "text": "No, he's saying that they just don't call you in Detroit. You wouldn't say South Detroit."
+    },
+    {
+      "timestamp": "17:13",
+      "text": "Yeah, exactly. So they're like, if you're saying you're from South Detroit,"
+    },
+    {
+      "timestamp": "17:16",
+      "text": "you were raised on a slag heap at the down river steel mill. That would be the only"
+    },
+    {
+      "timestamp": "17:20",
+      "text": "reason that you would say you're from South Detroit, because that's the bit."
+    },
+    {
+      "timestamp": "17:23",
+      "text": "Yeah, no, here's the thing. I looked this up because it turns out that the lead singer"
+    },
+    {
+      "timestamp": "17:27",
+      "text": "wasn't from that area, had no idea that there was no South Detroit. He was just doing the"
+    },
+    {
+      "timestamp": "17:32",
+      "text": "scans for the lyric and he thought that sounds better lyrically to say South Detroit. So he's"
+    },
+    {
+      "timestamp": "17:37",
+      "text": "like, it doesn't matter, I don't care. But someone looked even further into it and discovered, uh-uh,"
+    },
+    {
+      "timestamp": "17:42",
+      "text": "there actually is a South Detroit. Oh my god, plot twist. Yeah. This is how Dan does it."
+    },
+    {
+      "timestamp": "17:47",
+      "text": "He hooks you in and then he whips the rug from under your feet. That's right."
+    },
+    {
+      "timestamp": "17:50",
+      "text": "I feel like the rug was always undermined. I was never buying the fact that there wasn't"
+    },
+    {
+      "timestamp": "17:53",
+      "text": "South Detroit."
+    },
+    {
+      "timestamp": "17:54",
+      "text": "Exactly."
+    },
+    {
+      "timestamp": "17:55",
+      "text": "It's in the northeast section of South Dakota, and it's just one of the townships that is"
+    },
+    {
+      "timestamp": "18:02",
+      "text": "in that area."
+    },
+    {
+      "timestamp": "18:03",
+      "text": "It's a place that is literally called South Detroit."
+    },
+    {
+      "timestamp": "18:07",
+      "text": "Did it pick itself up from Detroit and think, well, no one's talking about me here."
+    },
+    {
+      "timestamp": "18:10",
+      "text": "It flowed away on the river and had to relocate, presumably."
+    },
+    {
+      "timestamp": "18:15",
+      "text": "So actually, you can change the entire location of that song now."
+    },
+    {
+      "timestamp": "18:19",
+      "text": "And again, I'm going to say, not there at the States I know very much about."
+    },
+    {
+      "timestamp": "18:24",
+      "text": "So for me, my mental map of the world has not been rocked as much by this fact, because"
+    },
+    {
+      "timestamp": "18:30",
+      "text": "it would be if I knew more."
+    },
+    {
+      "timestamp": "18:31",
+      "text": "L. No, but the lead cigarette rider of Journey can now be happy that..."
+    },
+    {
+      "timestamp": "18:35",
+      "text": "C. Yeah."
+    },
+    {
+      "timestamp": "18:36",
+      "text": "He's been excused."
+    },
+    {
+      "timestamp": "18:37",
+      "text": "L. Excused."
+    },
+    {
+      "timestamp": "18:38",
+      "text": "C. That's what I was talking about all along."
+    },
+    {
+      "timestamp": "18:39",
+      "text": "L. Exactly."
+    },
+    {
+      "timestamp": "18:40",
+      "text": "C. Yeah."
+    },
+    {
+      "timestamp": "18:41",
+      "text": "L. All right."
+    },
+    {
+      "timestamp": "18:42",
+      "text": "Well, listen, guys, we need to move on to give out some facts to the custodians who"
+    },
+    {
+      "timestamp": "18:46",
+      "text": "are the members of our Clubfish highest tier, which is called Friend of the Podcast. Now,"
+    },
+    {
+      "timestamp": "18:50",
+      "text": "if you want a headline fact sent to you on a beautiful digital certificate and have it read"
+    },
+    {
+      "timestamp": "18:56",
+      "text": "out here, all you need to do is go to patreon.com slash clubfish and you will be allocated one."
+    },
+    {
+      "timestamp": "19:02",
+      "text": "And so we've got eight new custodians to hand these facts out to. Who's going to start us off?"
+    },
+    {
+      "timestamp": "19:07",
+      "text": "Can I start? Yeah."
+    },
+    {
+      "timestamp": "19:09",
+      "text": "This one goes out to Lyn at Labs, and I love this fact so much. This is one of mine."
+    },
+    {
+      "timestamp": "19:14",
+      "text": "One proposed solution to plane hijackings in the 1970s was to build a pretend Havana airport"
+    },
+    {
+      "timestamp": "19:21",
+      "text": "in South Florida. Do you remember this? Yes, I do."
+    },
+    {
+      "timestamp": "19:24",
+      "text": "I love this so much. There were just so many hijackings and everyone was saying,"
+    },
+    {
+      "timestamp": "19:28",
+      "text": "take me to Cuba. That was the thing. And so this was their solution was to say,"
+    },
+    {
+      "timestamp": "19:33",
+      "text": "okay, we'll take it to Cuba. And yeah, oh God, I love that so much."
+    },
+    {
+      "timestamp": "19:37",
+      "text": "That happened so much, didn't it? Back in the day. And there was that great fact about"
+    },
+    {
+      "timestamp": "19:42",
+      "text": "the host of, I think, Candid Camera."
+    },
+    {
+      "timestamp": "19:44",
+      "text": "He stood up and said, we've been hijacks when the hijacker told him."
+    },
+    {
+      "timestamp": "19:46",
+      "text": "And they all went, yeah, nice one, mate."
+    },
+    {
+      "timestamp": "19:49",
+      "text": "Sure thing."
+    },
+    {
+      "timestamp": "19:50",
+      "text": "I thought it was that the hijacker hijacked the plane,"
+    },
+    {
+      "timestamp": "19:52",
+      "text": "but just nobody believed it because this guy was on board."
+    },
+    {
+      "timestamp": "19:54",
+      "text": "Oh, right."
+    },
+    {
+      "timestamp": "19:55",
+      "text": "Oh, yes."
+    },
+    {
+      "timestamp": "19:56",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "19:56",
+      "text": "It was like being on a plane with Jeremy Beadle."
+    },
+    {
+      "timestamp": "19:59",
+      "text": "Okay, right."
+    },
+    {
+      "timestamp": "19:59",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "20:00",
+      "text": "I don't think..."
+    },
+    {
+      "timestamp": "20:01",
+      "text": "That's why I'd be freaked out now if I was on a plane with Jeremy Beadle."
+    },
+    {
+      "timestamp": "20:04",
+      "text": "But do you think everyone would assume it was a joke on a plane with him?"
+    },
+    {
+      "timestamp": "20:07",
+      "text": "Or Dom Jolly."
+    },
+    {
+      "timestamp": "20:08",
+      "text": "Yeah, no, no, you're right."
+    },
+    {
+      "timestamp": "20:09",
+      "text": "Yeah, yeah, yeah."
+    },
+    {
+      "timestamp": "20:09",
+      "text": "You'd ask questions."
+    },
+    {
+      "timestamp": "20:10",
+      "text": "Who are the great pranksters these days?"
+    },
+    {
+      "timestamp": "20:12",
+      "text": "I don't know what, I'd love Dom Jolly back."
+    },
+    {
+      "timestamp": "20:15",
+      "text": "He's still around."
+    },
+    {
+      "timestamp": "20:16",
+      "text": "He's still around."
+    },
+    {
+      "timestamp": "20:17",
+      "text": "He's still trading."
+    },
+    {
+      "timestamp": "20:18",
+      "text": "He's not around for me."
+    },
+    {
+      "timestamp": "20:20",
+      "text": "Who would be the most modern prankster you could have on your flight that would make"
+    },
+    {
+      "timestamp": "20:25",
+      "text": "you think, no, it's fine, we haven't been hijacked?"
+    },
+    {
+      "timestamp": "20:27",
+      "text": "I guess the Jackass guys, again, not that modern."
+    },
+    {
+      "timestamp": "20:30",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "20:31",
+      "text": "Steve Pink from the Capital FM, Steve Pink Wind-Up Show, again."
+    },
+    {
+      "timestamp": "20:34",
+      "text": "Yeah, hard as part of the radio show, isn't it?"
+    },
+    {
+      "timestamp": "20:38",
+      "text": "Totally snap up to the minute reference."
+    },
+    {
+      "timestamp": "20:39",
+      "text": "I know, but if you stood up on the plane and went,"
+    },
+    {
+      "timestamp": "20:42",
+      "text": "guys, Steve Pink's here, we're fine."
+    },
+    {
+      "timestamp": "20:47",
+      "text": "Everyone's bringing a huge sigh of relief."
+    },
+    {
+      "timestamp": "20:48",
+      "text": "Oh, that show is so funny."
+    },
+    {
+      "timestamp": "20:50",
+      "text": "Do you remember the Steve Pink Wind-ups?"
+    },
+    {
+      "timestamp": "20:52",
+      "text": "Everyone remembers the Steve Pink Wind-ups."
+    },
+    {
+      "timestamp": "20:54",
+      "text": "Let's just say yes."
+    },
+    {
+      "timestamp": "20:55",
+      "text": "We got it in Hong Kong. We got it in Australia."
+    },
+    {
+      "timestamp": "20:59",
+      "text": "This is like your book in the front of the taxi."
+    },
+    {
+      "timestamp": "21:01",
+      "text": "When Andy asked a question like that, he'd just say, yes, I do."
+    },
+    {
+      "timestamp": "21:03",
+      "text": "Moving on."
+    },
+    {
+      "timestamp": "21:06",
+      "text": "Anna."
+    },
+    {
+      "timestamp": "21:07",
+      "text": "Moving on."
+    },
+    {
+      "timestamp": "21:08",
+      "text": "And here's a fact for Lauren Cartwright Burhanan."
+    },
+    {
+      "timestamp": "21:11",
+      "text": "This is the fact that this year,"
+    },
+    {
+      "timestamp": "21:13",
+      "text": "except not this year now, probably about five years ago,"
+    },
+    {
+      "timestamp": "21:17",
+      "text": "an organization finished a 40 year long study"
+    },
+    {
+      "timestamp": "21:21",
+      "text": "of Britain's post boxes,"
+    },
+    {
+      "timestamp": "21:22",
+      "text": "at which point it immediately started again."
+    },
+    {
+      "timestamp": "21:26",
+      "text": "Oh, lovely."
+    },
+    {
+      "timestamp": "21:27",
+      "text": "This was the Letterbox Study Group,"
+    },
+    {
+      "timestamp": "21:30",
+      "text": "who started documenting all the details"
+    },
+    {
+      "timestamp": "21:31",
+      "text": "of every post box in the UK,"
+    },
+    {
+      "timestamp": "21:33",
+      "text": "but it's just amazing the lengths that they go to"
+    },
+    {
+      "timestamp": "21:36",
+      "text": "and the details of every single post box"
+    },
+    {
+      "timestamp": "21:39",
+      "text": "and the importance of every one"
+    },
+    {
+      "timestamp": "21:40",
+      "text": "and like all the little codes within a post box"
+    },
+    {
+      "timestamp": "21:43",
+      "text": "that show you exactly when it's from and what it was for."
+    },
+    {
+      "timestamp": "21:47",
+      "text": "And they're great post boxes, aren't they?"
+    },
+    {
+      "timestamp": "21:49",
+      "text": "Absolutely."
+    },
+    {
+      "timestamp": "21:50",
+      "text": "We just got near my way."
+    },
+    {
+      "timestamp": "21:52",
+      "text": "We've got a solar powered post box."
+    },
+    {
+      "timestamp": "21:54",
+      "text": "Pretty exciting."
+    },
+    {
+      "timestamp": "21:55",
+      "text": "Ah, it's got a little panel on the top."
+    },
+    {
+      "timestamp": "21:58",
+      "text": "I think it does you your stamps and stuff"
+    },
+    {
+      "timestamp": "22:00",
+      "text": "and what powers the mechanism of solar power?"
+    },
+    {
+      "timestamp": "22:02",
+      "text": "It does you, oh, it gives you your stamps."
+    },
+    {
+      "timestamp": "22:04",
+      "text": "I think you can buy stamps from it."
+    },
+    {
+      "timestamp": "22:06",
+      "text": "or something or it'll print you a label or something."
+    },
+    {
+      "timestamp": "22:08",
+      "text": "It's very, yes, that's cool."
+    },
+    {
+      "timestamp": "22:10",
+      "text": "Because you used to be able to do that with the earliest post boxes in like the 20s or 30s."
+    },
+    {
+      "timestamp": "22:14",
+      "text": "But there was someone sitting inside it."
+    },
+    {
+      "timestamp": "22:15",
+      "text": "Yes, exactly."
+    },
+    {
+      "timestamp": "22:17",
+      "text": "Their fingers would pop out, take your money."
+    },
+    {
+      "timestamp": "22:20",
+      "text": "They used to have little coin machines and you'd get a stamp out of them, didn't they?"
+    },
+    {
+      "timestamp": "22:23",
+      "text": "So they've reintroduced this."
+    },
+    {
+      "timestamp": "22:25",
+      "text": "Wow, I knew they'd catch up with the 1930s."
+    },
+    {
+      "timestamp": "22:27",
+      "text": "So exciting."
+    },
+    {
+      "timestamp": "22:29",
+      "text": "All right, I got one here now."
+    },
+    {
+      "timestamp": "22:31",
+      "text": "This is for Phoebe."
+    },
+    {
+      "timestamp": "22:32",
+      "text": "Phoebe's fact is that in the Middle Ages,"
+    },
+    {
+      "timestamp": "22:35",
+      "text": "people slept with cow dung at the foot of their bed to keep bugs away.\""
+    },
+    {
+      "timestamp": "22:40",
+      "text": "Nice. Well, we were having the conversation the other day about how cow dung isn't even gross,"
+    },
+    {
+      "timestamp": "22:43",
+      "text": "so was that with you guys when I was talking about that?"
+    },
+    {
+      "timestamp": "22:46",
+      "text": "Not me."
+    },
+    {
+      "timestamp": "22:47",
+      "text": "Because I only think I'd have pushed back a bit."
+    },
+    {
+      "timestamp": "22:49",
+      "text": "Okay, no, no, these people weren't giving me any pushback."
+    },
+    {
+      "timestamp": "22:52",
+      "text": "It's less gross than carnivore poo anyway. Like, it would be worse to sleep with dog poo at the"
+    },
+    {
+      "timestamp": "22:56",
+      "text": "foot of your bed."
+    },
+    {
+      "timestamp": "22:57",
+      "text": "Yeah, absolutely."
+    },
+    {
+      "timestamp": "22:58",
+      "text": "Why is it less worse?"
+    },
+    {
+      "timestamp": "23:00",
+      "text": "Because herbivore poo is obviously less smelly and gross because it's just got nice"
+    },
+    {
+      "timestamp": "23:04",
+      "text": "plants in it, not lots of horrible meat. So the aroma is better for..."
+    },
+    {
+      "timestamp": "23:08",
+      "text": "Yeah, you're looking at me like you've never smelled cow dung."
+    },
+    {
+      "timestamp": "23:10",
+      "text": "Or not at the end of my bed. The smells don't transform once you put"
+    },
+    {
+      "timestamp": "23:13",
+      "text": "them at the foot of your bed. Unless you've got..."
+    },
+    {
+      "timestamp": "23:15",
+      "text": "But how many cow pats would you have to have at the foot of your bed before you"
+    },
+    {
+      "timestamp": "23:19",
+      "text": "thought actually no one dog poo would be better than this?"
+    },
+    {
+      "timestamp": "23:23",
+      "text": "I think 25 cow pats. What about you? Wow."
+    },
+    {
+      "timestamp": "23:26",
+      "text": "Yeah. So you really don't like dog poo? I think I'm probably about the same."
+    },
+    {
+      "timestamp": "23:31",
+      "text": "Yeah. Yeah. Okay. Nice. All right. Let's get another one. Okay. Here's one that goes up"
+    },
+    {
+      "timestamp": "23:37",
+      "text": "to Jess D. Jess, your fact is that in 2016, Queen Elizabeth II celebrated her 669th birthday."
+    },
+    {
+      "timestamp": "23:49",
+      "text": "Such a great fact. Great thing. This is a James fact. Yeah. And I think it's one that"
+    },
+    {
+      "timestamp": "23:52",
+      "text": "he may have coined himself calculated by totting up all the Queen, the true Queens official"
+    },
+    {
+      "timestamp": "23:58",
+      "text": "birthdays, and she had loads of them over her whole life, over her whole life."
+    },
+    {
+      "timestamp": "24:03",
+      "text": "She never skipped a year."
+    },
+    {
+      "timestamp": "24:05",
+      "text": "Yeah, she has a birthday in like Australia, right? Or in Canada, and they're not on the"
+    },
+    {
+      "timestamp": "24:09",
+      "text": "same day."
+    },
+    {
+      "timestamp": "24:10",
+      "text": "Exactly. Everywhere she's head of state will have done her a different birthday."
+    },
+    {
+      "timestamp": "24:13",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "24:14",
+      "text": "Right."
+    },
+    {
+      "timestamp": "24:15",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "24:16",
+      "text": "And then her official one, and then she got her actual one."
+    },
+    {
+      "timestamp": "24:17",
+      "text": "Yes, that's true."
+    },
+    {
+      "timestamp": "24:18",
+      "text": "Buried in the middle there."
+    },
+    {
+      "timestamp": "24:19",
+      "text": "The cards and presents rolling in."
+    },
+    {
+      "timestamp": "24:20",
+      "text": "Yeah, absolutely."
+    },
+    {
+      "timestamp": "24:21",
+      "text": "She loved a present."
+    },
+    {
+      "timestamp": "24:22",
+      "text": "She loved it."
+    },
+    {
+      "timestamp": "24:23",
+      "text": "Loved a bit of birthday cake."
+    },
+    {
+      "timestamp": "24:24",
+      "text": "Proper birthday cake with white icing and jam in the middle."
+    },
+    {
+      "timestamp": "24:26",
+      "text": "Was that her preference?"
+    },
+    {
+      "timestamp": "24:27",
+      "text": "probably. A Victoria sponge. Nice, yeah. So yes, Queen, 700 years old. Here's one for"
+    },
+    {
+      "timestamp": "24:35",
+      "text": "Ben Ganger. Ben Ganger have this fact on us and this is that also in 2016 the Brazilian"
+    },
+    {
+      "timestamp": "24:42",
+      "text": "vice president accidentally released his presidential acceptance speech by sending it to the wrong"
+    },
+    {
+      "timestamp": "24:47",
+      "text": "WhatsApp group. This feels like just the early days of technology to me. Was WhatsApp"
+    },
+    {
+      "timestamp": "24:53",
+      "text": "quite new in 2016. Yeah, I imagine it would have been. Yeah. I think so. Was, yeah, the"
+    },
+    {
+      "timestamp": "24:58",
+      "text": "vice president, I think, was it Dilma Rousseff? No, I think it was Michelle Temer, her deputy,"
+    },
+    {
+      "timestamp": "25:03",
+      "text": "who recorded a 50 minute acceptance speech and supposedly accidentally sent it to lots"
+    },
+    {
+      "timestamp": "25:08",
+      "text": "of journalists and politicians. That's just off the top of my head, though. That's really amazing."
+    },
+    {
+      "timestamp": "25:12",
+      "text": "Do you remember all of our facts verbatim like that? Of course. Like a savant. Yes, very"
+    },
+    {
+      "timestamp": "25:17",
+      "text": "embarrassing, but we've all sent things to the wrong WhatsApp groups and it's amazing that the"
+    },
+    {
+      "timestamp": "25:21",
+      "text": "the relationship between us three has survived, for example."
+    },
+    {
+      "timestamp": "25:23",
+      "text": "Yeah, that's true."
+    },
+    {
+      "timestamp": "25:24",
+      "text": "Those mistakes."
+    },
+    {
+      "timestamp": "25:25",
+      "text": "All right."
+    },
+    {
+      "timestamp": "25:26",
+      "text": "Let me give another one to Abigail Rothstein."
+    },
+    {
+      "timestamp": "25:28",
+      "text": "And your fact is, a German city is fighting global terror by fighting number plates, starting"
+    },
+    {
+      "timestamp": "25:34",
+      "text": "with IS."
+    },
+    {
+      "timestamp": "25:35",
+      "text": "Oh, this is the, uh, this was a 2016, uh, ISIS, ISIS from the past."
+    },
+    {
+      "timestamp": "25:43",
+      "text": "Yeah, exactly."
+    },
+    {
+      "timestamp": "25:44",
+      "text": "Yep."
+    },
+    {
+      "timestamp": "25:45",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "25:46",
+      "text": "There was that phase when all ISIS has got cancelled."
+    },
+    {
+      "timestamp": "25:47",
+      "text": "And I found out in a little personal news that a school I went to, where we used to"
+    },
+    {
+      "timestamp": "25:51",
+      "text": "have houses, one of which was called ISIS because it was a river in Oxford, they changed"
+    },
+    {
+      "timestamp": "25:56",
+      "text": "all the house names that year and there was no explanation given, but you've got to think"
+    },
+    {
+      "timestamp": "26:01",
+      "text": "because a bunch of kids were members of ISIS."
+    },
+    {
+      "timestamp": "26:03",
+      "text": "That's clever to change all the house names rather than just to change ISIS house."
+    },
+    {
+      "timestamp": "26:07",
+      "text": "I think that's good."
+    },
+    {
+      "timestamp": "26:08",
+      "text": "Yeah."
+    },
+    {
+      "timestamp": "26:09",
+      "text": "That's very good."
+    },
+    {
+      "timestamp": "26:10",
+      "text": "I think I would have mentioned on the podcast at the time that I was in Oxford around"
+    },
+    {
+      "timestamp": "26:13",
+      "text": "this period and there was a shop front called ISIS."
+    },
+    {
+      "timestamp": "26:17",
+      "text": "I think it was a magazine in Oxford at the time, and, um, it had on its window,"
+    },
+    {
+      "timestamp": "26:22",
+      "text": "don't put your bikes against our wall."
+    },
+    {
+      "timestamp": "26:25",
+      "text": "And it felt a lot more threatening than just a normal sign that time."
+    },
+    {
+      "timestamp": "26:31",
+      "text": "And I think I won't, there were no bikes."
+    },
+    {
+      "timestamp": "26:34",
+      "text": "Oh, can I tell you the thing I said at the time about the other places,"
+    },
+    {
+      "timestamp": "26:37",
+      "text": "but it should change their name from ISIS, a mobile banking app, a nail"
+    },
+    {
+      "timestamp": "26:41",
+      "text": "salon in Oakland, California, a Danish pudding company, a Belgian chocolate"
+    },
+    {
+      "timestamp": "26:45",
+      "text": "and a wife swapping club in Leeds."
+    },
+    {
+      "timestamp": "26:47",
+      "text": "A wife swapping club!"
+    },
+    {
+      "timestamp": "26:51",
+      "text": "All right, here's one more that goes out to Paul Kiesenberry."
+    },
+    {
+      "timestamp": "26:54",
+      "text": "Hope I'm saying your name right, Paul."
+    },
+    {
+      "timestamp": "26:56",
+      "text": "Your fact is that the North Pole is on a collision course with Greenwich, London."
+    },
+    {
+      "timestamp": "27:00",
+      "text": "No!"
+    },
+    {
+      "timestamp": "27:01",
+      "text": "No!"
+    },
+    {
+      "timestamp": "27:02",
+      "text": "Has it been by now?"
+    },
+    {
+      "timestamp": "27:03",
+      "text": "We've been a few years."
+    },
+    {
+      "timestamp": "27:04",
+      "text": "It's been a few years."
+    },
+    {
+      "timestamp": "27:05",
+      "text": "It's so long."
+    },
+    {
+      "timestamp": "27:06",
+      "text": "But probably it has."
+    },
+    {
+      "timestamp": "27:08",
+      "text": "This was a live show that we did at Up The Creek, which is why I found the fact, because"
+    },
+    {
+      "timestamp": "27:12",
+      "text": "were sitting at the collision point. Lovely. I mean, that's my memory of it. Yeah. And this"
+    },
+    {
+      "timestamp": "27:17",
+      "text": "would be magnetic North Pole rather than. I don't think it was. I think it was because"
+    },
+    {
+      "timestamp": "27:22",
+      "text": "when the magnetic North changes, I think that everything really flips, right? It goes south."
+    },
+    {
+      "timestamp": "27:27",
+      "text": "This was like the earth is wobbling on its axis. So this is the directional North Pole,"
+    },
+    {
+      "timestamp": "27:30",
+      "text": "I believe. And it was that the earth wobbles a bit. So the directional North Pole keeps"
+    },
+    {
+      "timestamp": "27:35",
+      "text": "changing direction. And it was heading towards like Canada. And then it sort of wobble is"
+    },
+    {
+      "timestamp": "27:40",
+      "text": "wobbling back now towards Greenwich. Interesting. I think so many North Poles aren't they? They're"
+    },
+    {
+      "timestamp": "27:44",
+      "text": "about seven different North Poles and they're all sorts of moving around. Yeah. Okay and final fact"
+    },
+    {
+      "timestamp": "27:50",
+      "text": "of the day, here is one for Ivana Wilbraham. Here is the fact that Antarctica, so we're going to"
+    },
+    {
+      "timestamp": "27:57",
+      "text": "the South Pole now, exports used toilet paper. Nice, nice. Who's importing that? You might wonder."
+    },
+    {
+      "timestamp": "28:07",
+      "text": "It's going to look great on your wall, Ivana, as your digital certificate on your bathroom"
+    },
+    {
+      "timestamp": "28:14",
+      "text": "wall."
+    },
+    {
+      "timestamp": "28:15",
+      "text": "Yeah, there we go."
+    },
+    {
+      "timestamp": "28:16",
+      "text": "Wonderful, Andy."
+    },
+    {
+      "timestamp": "28:17",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "28:18",
+      "text": "Thank you."
+    },
+    {
+      "timestamp": "28:19",
+      "text": "Yes."
+    },
+    {
+      "timestamp": "28:20",
+      "text": "So are we sending a sample?"
+    },
+    {
+      "timestamp": "28:21",
+      "text": "What's the suggestion here?"
+    },
+    {
+      "timestamp": "28:22",
+      "text": "The certificate that Ivana receives, she can print out and hang it on her bathroom wall."
+    },
+    {
+      "timestamp": "28:25",
+      "text": "Because we send people a certificate when they become a fact custodian."
+    },
+    {
+      "timestamp": "28:28",
+      "text": "Yes, no, I thought you were suggesting that we'll send her some used toilet paper for"
+    },
+    {
+      "timestamp": "28:31",
+      "text": "her wall."
+    },
+    {
+      "timestamp": "28:32",
+      "text": "And we can do that too, if she needs."
+    },
+    {
+      "timestamp": "28:33",
+      "text": "And that would look great."
+    },
+    {
+      "timestamp": "28:34",
+      "text": "Yeah, yeah, yeah."
+    },
+    {
+      "timestamp": "28:35",
+      "text": "We'll discuss it, Ivana."
+    },
+    {
+      "timestamp": "28:36",
+      "text": "You may or may not get that."
+    },
+    {
+      "timestamp": "28:37",
+      "text": "Yeah. Well, those are all the facts, everyone. Thank you so much. If you are a member of"
+    },
+    {
+      "timestamp": "28:42",
+      "text": "Friend of the Podcast, I wonder how many facts along here were in some way connected to the"
+    },
+    {
+      "timestamp": "28:48",
+      "text": "person receiving them. We got a message the other day from someone who was given a fact"
+    },
+    {
+      "timestamp": "28:52",
+      "text": "about the number of uses of the word nashing in the Bible. And that Friend of the Podcast"
+    },
+    {
+      "timestamp": "28:57",
+      "text": "is, I think, the president of Atheists America. So he was very excited to have a Bible fact given"
+    },
+    {
+      "timestamp": "29:03",
+      "text": "into him. So yeah, I wonder if there's any other synchronicity going on with these ones."
+    },
+    {
+      "timestamp": "29:08",
+      "text": "But for now, congratulations to Ivana, Paul, Abigail, Ben, Jess, Phoebe, Lauren and Lena."
+    },
+    {
+      "timestamp": "29:13",
+      "text": "Those are your facts. Join the highest tier of club fish if you want to get one yourself"
+    },
+    {
+      "timestamp": "29:18",
+      "text": "and do send us in more facts. Podcast at qi.com. We love, love, love reading them out at the"
+    },
+    {
+      "timestamp": "29:23",
+      "text": "top of this show. So yeah, Andy will go through them and bring a big old batch to"
+    },
+    {
+      "timestamp": "29:27",
+      "text": "next week's show. Otherwise join us on Friday for Big Fish. We're going to be back with"
+    },
+    {
+      "timestamp": "29:32",
+      "text": "our four favorite facts from the last seven days."
+    },
+    {
+      "timestamp": "29:34",
+      "text": "That's it from me, Anna, and Andy,"
+    },
+    {
+      "timestamp": "29:36",
+      "text": "and we will see you next time."
+    },
+    {
+      "timestamp": "29:38",
+      "text": "Goodbye."
+    }
+  ],
+  "transcript_text": "[00:00] Hello and welcome to Little Fish. This is our bonus Monday show where we put down our favorite\n\n[00:20] facts from the last seven days and we pick up yours. These are the best of the facts that you have sent\n\n[00:25] in to podcast at qi.com. My name is Dan Schreiber. Today I'm going to be joined by Andrew Hunter Murray\n\n[00:30] and Anna Ptaszynski and we are ready to read them out. So let's do it. Who's going to go first?\n\n[00:35] I've got one that I love this week. Let's do it. This is from Sun Crow. Don't know if it's\n\n[00:40] It's the real name, but it's a great fact.\n\n[00:42] This is that according to the latest episode\n\n[00:44] of That's Absurd Please Elaborate,\n\n[00:47] bit of a plug for another podcast on this podcast,\n\n[00:49] a study conducted using the cadavers of a human and a goat\n\n[00:54] so that the best way to drain your sinuses is on all fours.\n\n[00:57] And I just had no idea about this,\n\n[00:59] but it's because the human skull contains several sinuses.\n\n[01:02] The biggest one has a top only drain hole.\n\n[01:05] So up at the top of your nose.\n\n[01:07] So that's absolutely fine as quadrupeds.\n\n[01:09] And so all quadrupeds are fine draining their noses,\n\n[01:11] which is probably why they don't get really blocked up,\n\n[01:13] because when your head is leaning forward on all fours,\n\n[01:16] then it does drain out happily of that top sinus.\n\n[01:19] But when we stood upright,\n\n[01:21] that sinus just gets blocked up and can't drain out.\n\n[01:23] And so if you go back down to all fours, it drains out.\n\n[01:26] So blow your nose on all fours.\n\n[01:28] Blow your nose on all fours.\n\n[01:29] Just go around on all fours if you've got a cold.\n\n[01:31] Yeah. Exactly. Yes.\n\n[01:33] Yep.\n\n[01:34] And we should normalize that in the workplace.\n\n[01:37] You can be the first one\n\n[01:38] I will follow your lead when that happens.\n\n[01:41] I've got a fact here for you. This comes in from Rhys, enemy of the podcast Williams.\n\n[01:48] I can't remember what Rhys did to justify this label. I'm sure it was deserved.\n\n[01:52] Bloody yeah.\n\n[01:53] Rhys the cheeky fellow. So my fact, Rhys writes, is that in the childhood game hangman,\n\n[02:00] the word indistinguishable is distinguishable.\n\n[02:05] Ah, that's interesting.\n\n[02:06] It's really good. If you just get the letter I as your first letter, it's 17 letters long,\n\n[02:13] you would be able to correctly guess it by using the length and the fact that you just had I.\n\n[02:18] I had an awkward moment on a train the other day,\n\n[02:21] tell me what you guys would have done. There was...\n\n[02:23] You finished some child tang man. You just lent over with a pen. It's sausage.\n\n[02:30] Okay, what would you have done? There's a mum, I'm at a table, there's a mum opposite,\n\n[02:34] and she's sitting with her two boys.\n\n[02:37] They're just all squeezed in together,\n\n[02:39] both under 10, and they are playing hangman.\n\n[02:43] Actually, one of the boys is too cool.\n\n[02:44] He's probably about nine.\n\n[02:45] He's like on his game boy or something.\n\n[02:47] But the other boy is about six and wants to play hangman.\n\n[02:50] And she says, okay, pick a word.\n\n[02:53] And he picked a word and was like,\n\n[02:55] I don't know if I spelled that right.\n\n[02:56] And I was pretending to work,\n\n[02:58] but I was really eavesdropping.\n\n[02:59] And then I obviously leaned over and said,\n\n[03:01] job me to check if you spelled it right\n\n[03:03] to the little boy.\n\n[03:03] He didn't have to show his mum who was going to be playing with him. Yeah, so I think that's nice\n\n[03:07] and normal so far. Yeah, yeah, yeah, yeah. Oh, here we go. I didn't do anything wrong in this,\n\n[03:11] by the way. Okay. I know what you're thinking. He showed me the spelling. So it's crazy that\n\n[03:17] the British Transport Police ended up marching you off the train.\n\n[03:22] His political correctness gone mad. He showed me the thing which he had spelled right. So I said\n\n[03:27] yes. And then he did it out in the hangman. But then as he was giving mum his mum the clues,\n\n[03:32] he forgot how to spell it and she said does it have an n or something and it did and he said no\n\n[03:37] okay and i saw it happen and i thought shit he's ruined the game what do we do and i didn't say\n\n[03:45] anything and i felt like i'd backed out at that point so i was back on my computer and i didn't\n\n[03:48] want to say so i didn't say anything and then i just had to hear this confusion going for about\n\n[03:52] five minutes of the mum not knowing what the word was and the boy looking really smug and me\n\n[03:55] knowing there was an n in there right would you have said i i would have i would have tipped\n\n[04:00] them on the wink. I would have sort of implied, yes, there is a man.\n\n[04:04] Okay, okay. Yeah, I should have done that tonight.\n\n[04:06] And then she could have said to him, are you sure?\n\n[04:08] Yeah.\n\n[04:08] I think it's only awkward if you're about to say you then heard her calling up like a local\n\n[04:13] orphanage. Like, what's the consequence of you not having given that information? Did they fall out?\n\n[04:19] It was just like dragged out the game unnecessarily.\n\n[04:21] Okay, I think I think you're fine.\n\n[04:23] Okay, fine. Well, there's the moral maze of the week solved.\n\n[04:26] It's exciting.\n\n[04:26] It's a chunky dilemma though. Good to get our teeth into that one.\n\n[04:32] I think so. Oh, I feel like that's really tested everyone. Okay, time for another fact.\n\n[04:37] Whose turn is it?\n\n[04:38] It might be Dan's. I'm gonna read one out here from Gil Reich, who writes, cap that Dan.\n\n[04:45] This is just a fantastic anniversary fact. We are sitting here on the 14th of October,\n\n[04:51] as we record this. Gilreich says Dan mentioned Carl Sagan and his work on Voyager 1 on the\n\n[04:57] most recent episode. I thought Dan might be excited to know about the upcoming momentous occasion.\n\n[05:02] The Voyager 1 spacecraft traveling for nearly 50 years will be one light day away from Earth\n\n[05:09] on Wednesday, November the 18th, 2026. So in just over a month, it will be officially\n\n[05:16] one light day away from Earth. That's huge. Is that exciting? We've gone into a different order\n\n[05:23] of magnitude and distance, well-done humanity. How far we've gone, how far Carl Sagan's dream\n\n[05:28] has gone out there, and the others who were part of it, there were many. Is that, I'm sorry not\n\n[05:34] to know where it is, is it beyond Neptune or Pluto? Oh, we're out of the solar system.\n\n[05:39] Oh, really? Oh, yes, sir. Well, wonderful. Yeah, yeah, yeah.\n\n[05:43] This is from Connie B from St. Louis and this is the fact that Missouri has an official state\n\n[05:49] wonder dog and Connie says there's a museum in Marshall, Missouri that celebrates and\n\n[05:56] commemorates the life of Jim the Wonder Dog which was a Llewelyn setter who reportedly gained fame\n\n[06:02] in the 1930s for being able to understand foreign languages and have psychic abilities.\n\n[06:06] One of these definitely a real thing, not some kind of mass delusion things.\n\n[06:10] He was also very good at hunting, although I don't think that's the headline, she says.\n\n[06:14] He said to have predicted the winners of seven consecutive Kentucky Durbies, the 1936 World\n\n[06:19] Series.\n\n[06:20] He could also predict the gender of unborn babies, so you wouldn't have to bother with\n\n[06:24] that 20-week scan, except for various medical reasons.\n\n[06:28] I mean, that weirdly, that's the one that's closest to be believing that it's possible.\n\n[06:33] You know how they train dogs to smell diseases and so on?\n\n[06:36] Yeah, maybe they could sniff them off.\n\n[06:37] Surely, surely maybe there's something coming off the body.\n\n[06:40] Sniff a little, Willy.\n\n[06:41] I just think that's closer, Handy.\n\n[06:44] Don't look at me like that.\n\n[06:45] I can't.\n\n[06:46] You're not even looking at me.\n\n[06:47] Your eyes are sealed shut in pain.\n\n[06:50] I know.\n\n[06:51] I know what you mean.\n\n[06:52] You've, like, gone into yourself.\n\n[06:53] I'm in my mind palace, and you can't get me out.\n\n[06:58] I'm with you, Dan.\n\n[07:00] I think you probably could do that and many other things.\n\n[07:03] I actually-\n\n[07:04] I think you could do all the above.\n\n[07:05] You could.\n\n[07:06] I went to the Missouri government website and it has more on him. It says that legend has it. He tracked over\n\n[07:14] 5,000 birds a total no other dog has ever achieved\n\n[07:16] He could also identify a car on the street if told the license plate number\n\n[07:22] So I think you say, you know, we're looking for a Grey Honda SU-23 DBN. Yeah\n\n[07:33] He could recognize unknown people in a crowd have given a description\n\n[07:36] We could follow instructions as you gave them in Morse code.\n\n[07:41] Okay.\n\n[07:42] So this is the state wonder dog of Missouri.\n\n[07:46] Well done, Jim.\n\n[07:47] I'm sorry.\n\n[07:48] I've not heard of the, did you say the Llewellyn Setter or Llewellyn something?\n\n[07:51] Yeah, Llewellyn Setter.\n\n[07:52] Never heard of that?\n\n[07:53] No, me neither.\n\n[07:54] Weird that not all dogs are Llewellyn Setters given that apparently all genius is.\n\n[07:57] I know.\n\n[07:58] Why didn't we breed more of this?\n\n[07:59] Yeah.\n\n[08:00] Too dangerous.\n\n[08:01] That's a great fact.\n\n[08:02] Can I give you one?\n\n[08:03] Yes, please.\n\n[08:04] This comes in from Catherine Keener Miller from Rock Hill in South Carolina.\n\n[08:10] Ding dong.\n\n[08:11] Yeah.\n\n[08:12] She says, although I now live outside London, I thought Andy might enjoy yet another lesson\n\n[08:16] from incredibly mundane, exotic places in the USA.\n\n[08:19] I talked about a guy who forgot the password to his Bitcoin wallet, a few episodes ago.\n\n[08:24] Do you remember that?\n\n[08:25] Yeah.\n\n[08:26] Well, Catherine came across this fact in a pack of trivial pursuit cards in the pub\n\n[08:30] and did a bit of extra research and it's true, right?\n\n[08:32] it's about the first time someone ever paid for something with Bitcoin. It was in May 2010,\n\n[08:37] so cast your mind back. David Cameron has just been elected. Okay. Good times.\n\n[08:42] Laszlo Hanyek brought two pizzas at Papa John's using Bitcoin. Okay. He paid another guy\n\n[08:51] a certain number of Bitcoin to buy him the pizzas, right?\n\n[08:54] God, that makes more sense because I remember being amazed if Papa John's was the first\n\n[08:57] He paid him the equivalent then in Bitcoin of about $41 and he got pizzas worth about\n\n[09:08] $25.\n\n[09:09] So he had to pay a bit of a surcharge, but the number of Bitcoin he paid was 10,000,\n\n[09:14] which at the absolute peak would have been worth a billion dollars.\n\n[09:20] And then he was interviewed about this a bit later on.\n\n[09:22] He said, during that period, I probably spent 100,000 Bitcoin on pizzas in 2010, who would\n\n[09:28] have been about 2.7 billion pounds.\n\n[09:30] He had no idea.\n\n[09:32] That's a great claim.\n\n[09:34] That's an amazing claim.\n\n[09:35] There's a taxi driver in Margate who has a live Bitcoin screen that's just telling him\n\n[09:42] where his coin is worth live.\n\n[09:45] Yeah.\n\n[09:46] So you look and there's a taxi meter and then there's like this other weird kind of\n\n[09:49] it looks like ghost hunting equipment.\n\n[09:51] You're like, what are all these peaks and ups and downs?\n\n[09:53] And he's like, that's my Bitcoin.\n\n[09:54] I watch it every day.\n\n[09:56] And does he change the way he drives,\n\n[09:58] depending on how well or badly his investment is doing?\n\n[10:01] His mood, certainly, is altered.\n\n[10:03] If it's doing badly, does he drive very slowly\n\n[10:05] and right around the houses?\n\n[10:08] Screws a bit more normal human money out of you.\n\n[10:12] Yeah, it's a fascinating little thing.\n\n[10:13] It's just on a phone.\n\n[10:15] Amazing.\n\n[10:15] It feels dangerous to have that in the cab.\n\n[10:18] I think so, yeah.\n\n[10:19] I think that's distracting.\n\n[10:20] I think what it is, is it's an item that forces you to ask what it is, and then allow him to talk about Bitcoin for half an hour of the journey, no matter what.\n\n[10:29] Yeah, you're so right.\n\n[10:31] It's like if I disguised a Bob Hope book in the front of a car and you went,\n\n[10:35] What's that? I'm glad you asked.\n\n[10:44] Hey, I've got another fact, guys. From Ari Tunes Samuelson.\n\n[10:48] This might be the heaviest band merch of all time, Norwegian band The Dogs had manhole covers made because they envisaged what drunk fans might buy at the merch stand at one of their concerts, and then enjoyed the idea of them struggling to get it home.\n\n[11:04] So they thought, let's do manhole covers, and they did end up producing these, and they did cost a lot of money, and weirdly, it kind of worked out for them because it ended up propping them up with a bit of money to then do recordings for their next episode.\n\n[11:17] recordings for their next album.\n\n[11:19] They people did buy them.\n\n[11:20] Yeah, people did buy them and they started with 20 and they weighed it between 42 and\n\n[11:24] 50 kilograms.\n\n[11:25] So it was very heavy.\n\n[11:26] So their car broke on the way to one of the venues.\n\n[11:29] So they had to invest in a second van.\n\n[11:31] So basically the manhole covers and then their equipment traveled in one van while they\n\n[11:35] traveled in another.\n\n[11:37] But yeah, and I think they became the second buyer of one of the biggest manhole cover\n\n[11:42] manufacturers in their country off the back of getting more of these.\n\n[11:45] They must have sold loads then, because a lot of manhole covers are needed.\n\n[11:49] Although they last a long time, so maybe you don't buy that many each year.\n\n[11:51] They last a long time, so yeah.\n\n[11:53] And there's also normally only one buyer of manhole covers, which is whoever's in charge\n\n[11:55] of the roads.\n\n[11:56] There aren't many hobbyist manhole cover purposes.\n\n[11:58] I see, so if you're the second biggest buyer, maybe that's because there's just one buyer\n\n[12:02] as you say, and then the second biggest buyer is five.\n\n[12:04] Exactly.\n\n[12:05] Although can I come back to the fact that Jeremy Corbyn is a manhole cover obsessive?\n\n[12:09] Well, I assume he's a huge fan of the band.\n\n[12:11] I was going to say, was he the buyer of all of their manhole covers?\n\n[12:15] Very well-opened. When you say, can I come back to, like you last mentioned that, like...\n\n[12:19] What? You mean a long time ago?\n\n[12:20] Yeah.\n\n[12:21] Eight years ago.\n\n[12:22] Eight years ago.\n\n[12:24] Can I come back to? How long have you been holding on to that one?\n\n[12:28] I hope you do that in conversations all the time, actually.\n\n[12:30] Oh god, I do.\n\n[12:31] Can I come back to something we spoke about when we were 22?\n\n[12:34] Yeah, you remember? You said, let's park this for a second, we'll come back to this.\n\n[12:38] That was in year 13.\n\n[12:42] Anyway, very cool.\n\n[12:43] Very cool.\n\n[12:43] The dogs.\n\n[12:44] Really cool, I've got a fact from Paddy Fogarty.\n\n[12:48] So he says, you seem to get a lot of facts\n\n[12:50] involving football teams and player names, correct?\n\n[12:53] We do.\n\n[12:53] So here's one of my favorite footballing facts.\n\n[12:56] Between 2013 and 2018,\n\n[12:58] the Republic of Ireland manager was Martin O'Neill,\n\n[13:00] while the Northern Ireland manager was Michael O'Neill,\n\n[13:03] but here's the best bit, even better than that.\n\n[13:07] Martin O'Neill's middle name is Michael,\n\n[13:11] and Michael O'Neill's middle name,\n\n[13:13] Any guesses?\n\n[13:15] John.\n\n[13:16] Who's John?\n\n[13:16] That is Martin.\n\n[13:18] That's cool.\n\n[13:19] So for a five-year period, Martin Michael O'Neill\n\n[13:21] managed a Republic of Ireland\n\n[13:22] and Michael Martin O'Neill managed Northern Ireland.\n\n[13:24] Confusingly, Martin O'Neill is Northern Irish\n\n[13:27] and played for Northern Ireland,\n\n[13:28] even though he managed Ireland.\n\n[13:29] Oh my God!\n\n[13:30] It was all in this!\n\n[13:32] But yeah, great fact, Martin O'Neill and Michael O'Neill.\n\n[13:35] Lovely.\n\n[13:36] Nice.\n\n[13:37] Here's one from CIMO, the city of Hooker, Oklahoma.\n\n[13:40] Oh yeah.\n\n[13:41] Which of course has the motto, it's a location, not a vocation.\n\n[13:46] Fantastic.\n\n[13:47] Which is a great city motto.\n\n[13:49] That is good.\n\n[13:50] Uh, is named after a man named John Hooker Threlkeld.\n\n[13:53] Cool.\n\n[13:54] One for the book.\n\n[13:55] One for the book.\n\n[13:56] Yep.\n\n[13:57] And why was he called Hooker?\n\n[13:58] Why was his nickname Hooker?\n\n[13:59] Because he was a prostitute?\n\n[14:01] Ding.\n\n[14:02] Ding.\n\n[14:03] Uh, why was he called Hooker?\n\n[14:06] Because he'd hook him in.\n\n[14:07] He was a sales guy who would always hook his...\n\n[14:09] That's a great guess.\n\n[14:10] Not it.\n\n[14:11] It's, oh, you're hooking an animal.\n\n[14:14] Oh, okay.\n\n[14:15] Not a fish animal though.\n\n[14:16] A sheep with like, bow peeps.\n\n[14:18] Think bigger.\n\n[14:19] Cow.\n\n[14:20] Dinosaur?\n\n[14:20] Whale.\n\n[14:21] Cow.\n\n[14:21] Cow.\n\n[14:23] Dinosaur and whale.\n\n[14:25] You two crack under the slightest question of pressure.\n\n[14:28] This is giving crazy answers.\n\n[14:30] Yeah.\n\n[14:31] He was a, he was a good, a good roper of cattle.\n\n[14:35] Okay.\n\n[14:35] Cause you have to lasso them sometimes, don't you?\n\n[14:38] Apparently he was just absolutely wizzo, groping him in.\n\n[14:41] Do we call that hooking? I don't think that's hooking.\n\n[14:43] Well, yeah, you got like good hooking or good hooker,\n\n[14:46] and he worked on a place called the Beaver River.\n\n[14:49] I wouldn't have assumed that this place called hooker,\n\n[14:51] just if we do have any standards for the book.\n\n[14:54] And that is an open question.\n\n[14:56] It is a big if.\n\n[14:58] I wouldn't have assumed a place called hooker was named after prostitutes.\n\n[15:00] No, you're right.\n\n[15:01] Which I think is what the implication is.\n\n[15:02] Oh, you're right.\n\n[15:03] Yeah, I'm sorry, Simmo, to be really,\n\n[15:05] yeah, I'm going to be really harsh on that.\n\n[15:06] I'm not sure it's one for the book.\n\n[15:08] I think it is, but after the first 20 pages,\n\n[15:11] along with the rest of examples that are of this quality.\n\n[15:15] I would argue, I think that's good enough, personally.\n\n[15:18] OK.\n\n[15:19] You wouldn't have assumed it was just named after a man called Hooker.\n\n[15:21] Well, I know that there was a lot of old...\n\n[15:23] There's old London streets, aren't there, that have very rude names.\n\n[15:25] Oh, that's true.\n\n[15:25] We're connected to the sex trade.\n\n[15:27] And so, you know, it's not beyond the times of the past to name places like that.\n\n[15:32] That's true.\n\n[15:33] I think it's on the cusp.\n\n[15:34] OK.\n\n[15:35] You know, if we're feeling generous.\n\n[15:36] Well, who's writing this book? Sorry, good point. I don't know why I'm trying to get involved.\n\n[15:44] I'm backing out, I'm backing out.\n\n[15:46] We'll do 500 each.\n\n[15:48] Moving on.\n\n[15:50] I've got one more fact before we head into the custodianship bit of our show.\n\n[15:53] This is from Jeffrey Partica.\n\n[15:56] If you're going to have party in your name, I'm not saying it any different, Jeffrey.\n\n[15:59] And he's from Detroit, Michigan.\n\n[16:01] He says in the Journey song, Don't Stop Believing, we all know that song.\n\n[16:06] The line, just a city boy born and raised in south Detroit is a misnomer.\n\n[16:12] Detroiters would describe themselves as either Eastsiders or Westsiders.\n\n[16:17] South of Detroit is Canada, making it the largest US city where you drive south to cross the border\n\n[16:23] to drink when you turn 19.\n\n[16:26] So if you're born and raised in South Detroit, you're from Windsor, Canada.\n\n[16:30] Yeah.\n\n[16:31] I didn't know that you would drive south to get into Canada from,\n\n[16:34] I didn't know that wasn't that overhanging situation, it's not a bit of America I know\n\n[16:37] anything about really.\n\n[16:38] Yeah, yeah, yeah.\n\n[16:39] I'm embarrassingly, yes, we're all surprised by that.\n\n[16:42] Yeah.\n\n[16:43] That's confusing.\n\n[16:44] And so for years, this has been a thing in Detroit that, you know, they sing the song\n\n[16:48] out loud in stadiums and apparently that, this is according to some sources online, that's\n\n[16:53] a line that gets sung really loudly because it's seen as a joke, you know, like, I can't\n\n[16:58] believe they write it.\n\n[16:59] Because the writer wasn't from Detroit.\n\n[17:01] So does he say South Detroit is in the city? Is he saying that part of Detroit goes into Canada?\n\n[17:09] No, he's saying that they just don't call you in Detroit. You wouldn't say South Detroit.\n\n[17:13] Yeah, exactly. So they're like, if you're saying you're from South Detroit,\n\n[17:16] you were raised on a slag heap at the down river steel mill. That would be the only\n\n[17:20] reason that you would say you're from South Detroit, because that's the bit.\n\n[17:23] Yeah, no, here's the thing. I looked this up because it turns out that the lead singer\n\n[17:27] wasn't from that area, had no idea that there was no South Detroit. He was just doing the\n\n[17:32] scans for the lyric and he thought that sounds better lyrically to say South Detroit. So he's\n\n[17:37] like, it doesn't matter, I don't care. But someone looked even further into it and discovered, uh-uh,\n\n[17:42] there actually is a South Detroit. Oh my god, plot twist. Yeah. This is how Dan does it.\n\n[17:47] He hooks you in and then he whips the rug from under your feet. That's right.\n\n[17:50] I feel like the rug was always undermined. I was never buying the fact that there wasn't\n\n[17:53] South Detroit.\n\n[17:54] Exactly.\n\n[17:55] It's in the northeast section of South Dakota, and it's just one of the townships that is\n\n[18:02] in that area.\n\n[18:03] It's a place that is literally called South Detroit.\n\n[18:07] Did it pick itself up from Detroit and think, well, no one's talking about me here.\n\n[18:10] It flowed away on the river and had to relocate, presumably.\n\n[18:15] So actually, you can change the entire location of that song now.\n\n[18:19] And again, I'm going to say, not there at the States I know very much about.\n\n[18:24] So for me, my mental map of the world has not been rocked as much by this fact, because\n\n[18:30] it would be if I knew more.\n\n[18:31] L. No, but the lead cigarette rider of Journey can now be happy that...\n\n[18:35] C. Yeah.\n\n[18:36] He's been excused.\n\n[18:37] L. Excused.\n\n[18:38] C. That's what I was talking about all along.\n\n[18:39] L. Exactly.\n\n[18:40] C. Yeah.\n\n[18:41] L. All right.\n\n[18:42] Well, listen, guys, we need to move on to give out some facts to the custodians who\n\n[18:46] are the members of our Clubfish highest tier, which is called Friend of the Podcast. Now,\n\n[18:50] if you want a headline fact sent to you on a beautiful digital certificate and have it read\n\n[18:56] out here, all you need to do is go to patreon.com slash clubfish and you will be allocated one.\n\n[19:02] And so we've got eight new custodians to hand these facts out to. Who's going to start us off?\n\n[19:07] Can I start? Yeah.\n\n[19:09] This one goes out to Lyn at Labs, and I love this fact so much. This is one of mine.\n\n[19:14] One proposed solution to plane hijackings in the 1970s was to build a pretend Havana airport\n\n[19:21] in South Florida. Do you remember this? Yes, I do.\n\n[19:24] I love this so much. There were just so many hijackings and everyone was saying,\n\n[19:28] take me to Cuba. That was the thing. And so this was their solution was to say,\n\n[19:33] okay, we'll take it to Cuba. And yeah, oh God, I love that so much.\n\n[19:37] That happened so much, didn't it? Back in the day. And there was that great fact about\n\n[19:42] the host of, I think, Candid Camera.\n\n[19:44] He stood up and said, we've been hijacks when the hijacker told him.\n\n[19:46] And they all went, yeah, nice one, mate.\n\n[19:49] Sure thing.\n\n[19:50] I thought it was that the hijacker hijacked the plane,\n\n[19:52] but just nobody believed it because this guy was on board.\n\n[19:54] Oh, right.\n\n[19:55] Oh, yes.\n\n[19:56] Yes.\n\n[19:56] It was like being on a plane with Jeremy Beadle.\n\n[19:59] Okay, right.\n\n[19:59] Yeah.\n\n[20:00] I don't think...\n\n[20:01] That's why I'd be freaked out now if I was on a plane with Jeremy Beadle.\n\n[20:04] But do you think everyone would assume it was a joke on a plane with him?\n\n[20:07] Or Dom Jolly.\n\n[20:08] Yeah, no, no, you're right.\n\n[20:09] Yeah, yeah, yeah.\n\n[20:09] You'd ask questions.\n\n[20:10] Who are the great pranksters these days?\n\n[20:12] I don't know what, I'd love Dom Jolly back.\n\n[20:15] He's still around.\n\n[20:16] He's still around.\n\n[20:17] He's still trading.\n\n[20:18] He's not around for me.\n\n[20:20] Who would be the most modern prankster you could have on your flight that would make\n\n[20:25] you think, no, it's fine, we haven't been hijacked?\n\n[20:27] I guess the Jackass guys, again, not that modern.\n\n[20:30] Yeah.\n\n[20:31] Steve Pink from the Capital FM, Steve Pink Wind-Up Show, again.\n\n[20:34] Yeah, hard as part of the radio show, isn't it?\n\n[20:38] Totally snap up to the minute reference.\n\n[20:39] I know, but if you stood up on the plane and went,\n\n[20:42] guys, Steve Pink's here, we're fine.\n\n[20:47] Everyone's bringing a huge sigh of relief.\n\n[20:48] Oh, that show is so funny.\n\n[20:50] Do you remember the Steve Pink Wind-ups?\n\n[20:52] Everyone remembers the Steve Pink Wind-ups.\n\n[20:54] Let's just say yes.\n\n[20:55] We got it in Hong Kong. We got it in Australia.\n\n[20:59] This is like your book in the front of the taxi.\n\n[21:01] When Andy asked a question like that, he'd just say, yes, I do.\n\n[21:03] Moving on.\n\n[21:06] Anna.\n\n[21:07] Moving on.\n\n[21:08] And here's a fact for Lauren Cartwright Burhanan.\n\n[21:11] This is the fact that this year,\n\n[21:13] except not this year now, probably about five years ago,\n\n[21:17] an organization finished a 40 year long study\n\n[21:21] of Britain's post boxes,\n\n[21:22] at which point it immediately started again.\n\n[21:26] Oh, lovely.\n\n[21:27] This was the Letterbox Study Group,\n\n[21:30] who started documenting all the details\n\n[21:31] of every post box in the UK,\n\n[21:33] but it's just amazing the lengths that they go to\n\n[21:36] and the details of every single post box\n\n[21:39] and the importance of every one\n\n[21:40] and like all the little codes within a post box\n\n[21:43] that show you exactly when it's from and what it was for.\n\n[21:47] And they're great post boxes, aren't they?\n\n[21:49] Absolutely.\n\n[21:50] We just got near my way.\n\n[21:52] We've got a solar powered post box.\n\n[21:54] Pretty exciting.\n\n[21:55] Ah, it's got a little panel on the top.\n\n[21:58] I think it does you your stamps and stuff\n\n[22:00] and what powers the mechanism of solar power?\n\n[22:02] It does you, oh, it gives you your stamps.\n\n[22:04] I think you can buy stamps from it.\n\n[22:06] or something or it'll print you a label or something.\n\n[22:08] It's very, yes, that's cool.\n\n[22:10] Because you used to be able to do that with the earliest post boxes in like the 20s or 30s.\n\n[22:14] But there was someone sitting inside it.\n\n[22:15] Yes, exactly.\n\n[22:17] Their fingers would pop out, take your money.\n\n[22:20] They used to have little coin machines and you'd get a stamp out of them, didn't they?\n\n[22:23] So they've reintroduced this.\n\n[22:25] Wow, I knew they'd catch up with the 1930s.\n\n[22:27] So exciting.\n\n[22:29] All right, I got one here now.\n\n[22:31] This is for Phoebe.\n\n[22:32] Phoebe's fact is that in the Middle Ages,\n\n[22:35] people slept with cow dung at the foot of their bed to keep bugs away.\"\n\n[22:40] Nice. Well, we were having the conversation the other day about how cow dung isn't even gross,\n\n[22:43] so was that with you guys when I was talking about that?\n\n[22:46] Not me.\n\n[22:47] Because I only think I'd have pushed back a bit.\n\n[22:49] Okay, no, no, these people weren't giving me any pushback.\n\n[22:52] It's less gross than carnivore poo anyway. Like, it would be worse to sleep with dog poo at the\n\n[22:56] foot of your bed.\n\n[22:57] Yeah, absolutely.\n\n[22:58] Why is it less worse?\n\n[23:00] Because herbivore poo is obviously less smelly and gross because it's just got nice\n\n[23:04] plants in it, not lots of horrible meat. So the aroma is better for...\n\n[23:08] Yeah, you're looking at me like you've never smelled cow dung.\n\n[23:10] Or not at the end of my bed. The smells don't transform once you put\n\n[23:13] them at the foot of your bed. Unless you've got...\n\n[23:15] But how many cow pats would you have to have at the foot of your bed before you\n\n[23:19] thought actually no one dog poo would be better than this?\n\n[23:23] I think 25 cow pats. What about you? Wow.\n\n[23:26] Yeah. So you really don't like dog poo? I think I'm probably about the same.\n\n[23:31] Yeah. Yeah. Okay. Nice. All right. Let's get another one. Okay. Here's one that goes up\n\n[23:37] to Jess D. Jess, your fact is that in 2016, Queen Elizabeth II celebrated her 669th birthday.\n\n[23:49] Such a great fact. Great thing. This is a James fact. Yeah. And I think it's one that\n\n[23:52] he may have coined himself calculated by totting up all the Queen, the true Queens official\n\n[23:58] birthdays, and she had loads of them over her whole life, over her whole life.\n\n[24:03] She never skipped a year.\n\n[24:05] Yeah, she has a birthday in like Australia, right? Or in Canada, and they're not on the\n\n[24:09] same day.\n\n[24:10] Exactly. Everywhere she's head of state will have done her a different birthday.\n\n[24:13] Yeah.\n\n[24:14] Right.\n\n[24:15] Yeah.\n\n[24:16] And then her official one, and then she got her actual one.\n\n[24:17] Yes, that's true.\n\n[24:18] Buried in the middle there.\n\n[24:19] The cards and presents rolling in.\n\n[24:20] Yeah, absolutely.\n\n[24:21] She loved a present.\n\n[24:22] She loved it.\n\n[24:23] Loved a bit of birthday cake.\n\n[24:24] Proper birthday cake with white icing and jam in the middle.\n\n[24:26] Was that her preference?\n\n[24:27] probably. A Victoria sponge. Nice, yeah. So yes, Queen, 700 years old. Here's one for\n\n[24:35] Ben Ganger. Ben Ganger have this fact on us and this is that also in 2016 the Brazilian\n\n[24:42] vice president accidentally released his presidential acceptance speech by sending it to the wrong\n\n[24:47] WhatsApp group. This feels like just the early days of technology to me. Was WhatsApp\n\n[24:53] quite new in 2016. Yeah, I imagine it would have been. Yeah. I think so. Was, yeah, the\n\n[24:58] vice president, I think, was it Dilma Rousseff? No, I think it was Michelle Temer, her deputy,\n\n[25:03] who recorded a 50 minute acceptance speech and supposedly accidentally sent it to lots\n\n[25:08] of journalists and politicians. That's just off the top of my head, though. That's really amazing.\n\n[25:12] Do you remember all of our facts verbatim like that? Of course. Like a savant. Yes, very\n\n[25:17] embarrassing, but we've all sent things to the wrong WhatsApp groups and it's amazing that the\n\n[25:21] the relationship between us three has survived, for example.\n\n[25:23] Yeah, that's true.\n\n[25:24] Those mistakes.\n\n[25:25] All right.\n\n[25:26] Let me give another one to Abigail Rothstein.\n\n[25:28] And your fact is, a German city is fighting global terror by fighting number plates, starting\n\n[25:34] with IS.\n\n[25:35] Oh, this is the, uh, this was a 2016, uh, ISIS, ISIS from the past.\n\n[25:43] Yeah, exactly.\n\n[25:44] Yep.\n\n[25:45] Yes.\n\n[25:46] There was that phase when all ISIS has got cancelled.\n\n[25:47] And I found out in a little personal news that a school I went to, where we used to\n\n[25:51] have houses, one of which was called ISIS because it was a river in Oxford, they changed\n\n[25:56] all the house names that year and there was no explanation given, but you've got to think\n\n[26:01] because a bunch of kids were members of ISIS.\n\n[26:03] That's clever to change all the house names rather than just to change ISIS house.\n\n[26:07] I think that's good.\n\n[26:08] Yeah.\n\n[26:09] That's very good.\n\n[26:10] I think I would have mentioned on the podcast at the time that I was in Oxford around\n\n[26:13] this period and there was a shop front called ISIS.\n\n[26:17] I think it was a magazine in Oxford at the time, and, um, it had on its window,\n\n[26:22] don't put your bikes against our wall.\n\n[26:25] And it felt a lot more threatening than just a normal sign that time.\n\n[26:31] And I think I won't, there were no bikes.\n\n[26:34] Oh, can I tell you the thing I said at the time about the other places,\n\n[26:37] but it should change their name from ISIS, a mobile banking app, a nail\n\n[26:41] salon in Oakland, California, a Danish pudding company, a Belgian chocolate\n\n[26:45] and a wife swapping club in Leeds.\n\n[26:47] A wife swapping club!\n\n[26:51] All right, here's one more that goes out to Paul Kiesenberry.\n\n[26:54] Hope I'm saying your name right, Paul.\n\n[26:56] Your fact is that the North Pole is on a collision course with Greenwich, London.\n\n[27:00] No!\n\n[27:01] No!\n\n[27:02] Has it been by now?\n\n[27:03] We've been a few years.\n\n[27:04] It's been a few years.\n\n[27:05] It's so long.\n\n[27:06] But probably it has.\n\n[27:08] This was a live show that we did at Up The Creek, which is why I found the fact, because\n\n[27:12] were sitting at the collision point. Lovely. I mean, that's my memory of it. Yeah. And this\n\n[27:17] would be magnetic North Pole rather than. I don't think it was. I think it was because\n\n[27:22] when the magnetic North changes, I think that everything really flips, right? It goes south.\n\n[27:27] This was like the earth is wobbling on its axis. So this is the directional North Pole,\n\n[27:30] I believe. And it was that the earth wobbles a bit. So the directional North Pole keeps\n\n[27:35] changing direction. And it was heading towards like Canada. And then it sort of wobble is\n\n[27:40] wobbling back now towards Greenwich. Interesting. I think so many North Poles aren't they? They're\n\n[27:44] about seven different North Poles and they're all sorts of moving around. Yeah. Okay and final fact\n\n[27:50] of the day, here is one for Ivana Wilbraham. Here is the fact that Antarctica, so we're going to\n\n[27:57] the South Pole now, exports used toilet paper. Nice, nice. Who's importing that? You might wonder.\n\n[28:07] It's going to look great on your wall, Ivana, as your digital certificate on your bathroom\n\n[28:14] wall.\n\n[28:15] Yeah, there we go.\n\n[28:16] Wonderful, Andy.\n\n[28:17] Yes.\n\n[28:18] Thank you.\n\n[28:19] Yes.\n\n[28:20] So are we sending a sample?\n\n[28:21] What's the suggestion here?\n\n[28:22] The certificate that Ivana receives, she can print out and hang it on her bathroom wall.\n\n[28:25] Because we send people a certificate when they become a fact custodian.\n\n[28:28] Yes, no, I thought you were suggesting that we'll send her some used toilet paper for\n\n[28:31] her wall.\n\n[28:32] And we can do that too, if she needs.\n\n[28:33] And that would look great.\n\n[28:34] Yeah, yeah, yeah.\n\n[28:35] We'll discuss it, Ivana.\n\n[28:36] You may or may not get that.\n\n[28:37] Yeah. Well, those are all the facts, everyone. Thank you so much. If you are a member of\n\n[28:42] Friend of the Podcast, I wonder how many facts along here were in some way connected to the\n\n[28:48] person receiving them. We got a message the other day from someone who was given a fact\n\n[28:52] about the number of uses of the word nashing in the Bible. And that Friend of the Podcast\n\n[28:57] is, I think, the president of Atheists America. So he was very excited to have a Bible fact given\n\n[29:03] into him. So yeah, I wonder if there's any other synchronicity going on with these ones.\n\n[29:08] But for now, congratulations to Ivana, Paul, Abigail, Ben, Jess, Phoebe, Lauren and Lena.\n\n[29:13] Those are your facts. Join the highest tier of club fish if you want to get one yourself\n\n[29:18] and do send us in more facts. Podcast at qi.com. We love, love, love reading them out at the\n\n[29:23] top of this show. So yeah, Andy will go through them and bring a big old batch to\n\n[29:27] next week's show. Otherwise join us on Friday for Big Fish. We're going to be back with\n\n[29:32] our four favorite facts from the last seven days.\n\n[29:34] That's it from me, Anna, and Andy,\n\n[29:36] and we will see you next time.\n\n[29:38] Goodbye."
+}
